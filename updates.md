@@ -1,3 +1,7 @@
+**Are Matt Chapman and Miguel Vargas undervalued? Fantasy baseball third base rundown**\
+`Eno Sarris and Derek VanRiper preview third base ahead of the 2026 fantasy baseball season. `\
+https://nytimes.com/athletic/6994290/2026/02/10/fantasy-baseball-third-base-preview-matt-chapman/
+
 **Breezy Johnson puts U.S. in Olympic team combined lead; Mikaela Shiffrin still to come**\
 `The American Johnson topped the downhill field to kick off Tuesday’s team combined event, setting up Mikaela Shiffrin in the slalom.`\
 https://nytimes.com/athletic/7035461/2026/02/10/winter-olympics-mikaela-shiffrin-breezy-johnson-alpine-team-combined/

@@ -1,40 +1,40 @@
-**Are Matt Chapman and Miguel Vargas undervalued? Fantasy baseball third base rundown**\
-`Eno Sarris and Derek VanRiper preview third base ahead of the 2026 fantasy baseball season. `\
-https://nytimes.com/athletic/6994290/2026/02/10/fantasy-baseball-third-base-preview-matt-chapman/
+**Assessing the Lions' 22 unrestricted free agents: Tough calls ahead on defense**\
+`Analyzing the starting-tier players, along with key reserves and others who potentially could play roles in 2026.`\
+https://nytimes.com/athletic/7034793/2026/02/10/lions-unrestricted-free-agents-analysis/
 
-**Breezy Johnson puts U.S. in Olympic team combined lead; Mikaela Shiffrin still to come**\
-`The American Johnson topped the downhill field to kick off Tuesday’s team combined event, setting up Mikaela Shiffrin in the slalom.`\
-https://nytimes.com/athletic/7035461/2026/02/10/winter-olympics-mikaela-shiffrin-breezy-johnson-alpine-team-combined/
+**Three burning Yankees questions as spring training opens**\
+`The Yankees' quest for a 28th World Series championship has begun. Here are three questions surrounding the club as spring training begins.`\
+https://nytimes.com/athletic/7029441/2026/02/10/new-york-yankees-questions-spring-training/
 
-**After Kershaw, Verlander and Scherzer, will there be another Hall of Fame starting pitcher?**\
-`Years from now, what will a Hall of Fame starting pitcher even look like? We asked current HOFers and considered some compelling cases. `\
-https://nytimes.com/athletic/7033895/2026/02/10/future-hall-of-fame-starting-pitchers/
+**NHL Awards Watch: Can MacKinnon and Makar hold on to early Hart and Norris leads?**\
+`Welcome to the third edition of this year’s NHL Awards Watch, conveniently timed at the league’s Olympic break.`\
+https://nytimes.com/athletic/7028020/2026/02/10/nhl-awards-watch-mackinnon-makar/
 
-**The biggest winners and losers from MLB's offseason: From Tarik Skubal to St. Louis**\
-`The Dodgers are not an offseason winner as much as a category unto themselves. However, several other teams and players also made out big.`\
-https://nytimes.com/athletic/7034947/2026/02/10/mlb-offseason-winners-losers-free-agency/
+**Guardians spring training burning questions: Rookies, rotation and breakout candidate**\
+`With spring training getting underway this week, here are three questions for the Guardians in their pursuit of an AL Central three-peat.`\
+https://nytimes.com/athletic/7030963/2026/02/10/guardians-spring-training-questions-rookies-rotation-offense/
 
-**The Jets' 10 best free agents: Breece Hall and a pair of guards top the list**\
-`A look at the the team's pending free agents, as well as what some of them might cost to bring back.`\
-https://nytimes.com/athletic/7034975/2026/02/10/new-york-jets-free-agents/
+**The Enhanced Games are 100 days away. Here's what we know**\
+`The controversial venture allows athletes to use performance-enhancing drugs, sparking health concerns from traditional sporting bodies`\
+https://nytimes.com/athletic/7033048/2026/02/10/enhanced-games-explained-where-how-doping/
 
-**The Seahawks didn’t just win the Super Bowl. They did something even more challenging**\
-`Seahawks coach Mike Macdonald managed to build on the culture the team had before his arrival while adding new ideas of his own.`\
-https://nytimes.com/athletic/7033901/2026/02/10/the-seahawks-didnt-just-win-the-super-bowl-they-did-something-even-more-challenging/
+**Olympic goalie heat check: Which NHL netminders have been surging or struggling?**\
+`There are 21 NHL goalies on Olympic rosters. How has the play of each been trending in recent weeks?`\
+https://nytimes.com/athletic/7029995/2026/02/10/olympics-mens-hockey-2026-best-goalies-nhl-teams/
 
-**Russia Nears Capture of Key Ukrainian Towns After Year of Grinding Assaults**\
-`Russian troops have advanced at a glacial pace in recent months, but gains in southern and eastern Ukraine could give Moscow an edge in U.S.-mediated peace talks.`\
-https://nytimes.com/2026/02/10/world/europe/russia-ukraine-battlefield-huliaipole-pokrovsk.html
+**'Follow your dreams': A trip to Lindy Ruff's hometown reveals origin of his passion and ambition**\
+`Lindy Ruff's hockey journey began in Warburg, Alberta, and led to a career in the NHL as a player and coach spanning over 40 years.`\
+https://nytimes.com/athletic/7021760/2026/02/10/buffalo-sabres-lindy-ruff-hometown-warburg/
 
-**NFL Power Rankings: Seahawks cement top spot, Patriots slide and other key season takeaways**\
-`The Seahawks ended the season like they played most of it — dominating on defense. They claimed the top spot in the season's final rankings.`\
-https://nytimes.com/athletic/7033954/2026/02/10/nfl-power-rankings-super-bowl-seahawks-patriots-takeaways/
+**Chris Pronger: How winning Olympic gold as an NHL player shaped me as an athlete**\
+`Olympic hockey is a wild ride. What matters is how you handle adversity and improve as a team.`\
+https://nytimes.com/athletic/7017091/2026/02/10/olympic-mens-hockey-nhl-players-canada-winning/
 
-**Nordic combined is a mental challenge unlike any other at the Olympics. Here's why**\
-`The complex challenge of Nordic combined: Who can go the fastest and who can go the farthest?`\
-https://nytimes.com/athletic/7033931/2026/02/10/olympics-nordic-combined-mental-challenge/
+**Is Packers' Jordan Morgan ready to protect Jordan Love's blind side?**\
+`Morgan has played left tackle sparingly in the NFL, but he hasn't yet done so with Love at quarterback.`\
+https://nytimes.com/athletic/7033884/2026/02/10/packers-jordan-morgan-left-tackle/
 
-**NFL insiders rank head coach hires: John Harbaugh among 4 to receive first-place votes**\
-`The Athletic asked nine NFL coaches and team executives to rate the 10 head-coaching hires this offseason.`\
-https://nytimes.com/athletic/7034727/2026/02/10/best-nfl-head-coach-hires-2026-harbaugh/
+**Three burning Cubs questions as spring training opens**\
+`Nico Hoerner is a perfect fit for a Cubs team that seems poised to contend.`\
+https://nytimes.com/athletic/7034960/2026/02/10/three-burning-cubs-questions-as-spring-training-opens/
 
