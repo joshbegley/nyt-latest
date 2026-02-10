@@ -1,3 +1,15 @@
+**Rename Penn Station and Dulles Airport After Trump?**\
+`Should two major transportation hubs be renamed for the president? Also: When children watch TV; a hope for long life.`\
+https://nytimes.com/2026/02/10/opinion/penn-station-dulles-trump.html
+
+**Ahead of Jobs Report, White House Seeks to Downplay Any Slowdown**\
+`President Trump’s top aides have argued in recent days that the economy is strong, even if new data on Wednesday show sluggish hiring.`\
+https://nytimes.com/2026/02/10/us/politics/white-house-jobs.html
+
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/10/us/savannah-guthrie-mom-news
+
 **Republican Cash Edge Threatens to Swamp Democrats in the Midterms**\
 `“Donald Trump has 99 problems going into the midterms,” one Democratic strategist said. “But money ain’t one.”`\
 https://nytimes.com/2026/02/10/us/politics/republicans-democrats-midterms-fund-raising.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/podcasts/100000010702270/ai-can-fool-us-into-thinking-
 **Elon Musk’s Edge in the A.I. Race**\
 `Casey Newton and Kevin Roose, the hosts of “Hard Fork,” consider how the news that SpaceX is acquiring Elon Musk’s company xAI could give him an edge in the artificial intelligence race.`\
 https://nytimes.com/video/podcasts/100000010702414/elon-musks-edge-in-the-ai-race.html
-
-**U.S. Hands Over Some NATO Commands to European Allies**\
-`The move shows that European countries are taking more responsibility for conventional war planning, a change that President Trump has long pushed for.`\
-https://nytimes.com/2026/02/10/us/politics/us-nato-commands-european-allies.html
-
-**How to watch North Carolina vs. Miami (FL) men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036189/2026/02/10/north-carolina-vs-miami-fl-stream-how-to-watch-feb-10/
-
-**How to watch Purdue vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036178/2026/02/10/purdue-vs-nebraska-stream-how-to-watch-feb-10/
 
