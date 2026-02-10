@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, Feb. 10, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/10/todays-new-york-times
+
+**Bangladesh Has Exposed Democracy’s Deeper Problem**\
+`Toppling autocrats is easier than rebuilding the institutions democracy depends on.`\
+https://nytimes.com/2026/02/10/opinion/bangladesh-election-revolution-democracy.html
+
+**The Epstein Files Are Coming for Britain’s Prime Minister**\
+`Even longtime admirers see the writing on the wall for Keir Starmer.`\
+https://nytimes.com/2026/02/10/opinion/epstein-mandelson-starmer-britain.html
+
 **No. 9 Kansas hands No. 1 Arizona its first loss even without freshman star Darryn Peterson**\
 `The Jayhawks are 40-0 at home on ESPN Big Monday games under Hall of Fame coach Bill Self.`\
 https://nytimes.com/athletic/7035240/2026/02/10/kansas-win-arizona-darryn-peterson-40-straight/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7017794/2026/02/10/the-incredible-numbers-behind-wr
 **Why Chelsea's man-to-man pressing under Liam Rosenior has echoes of Bielsa**\
 `For a team with rapid forwards, plus Caicedo’s outstanding ball-winning ability, defending in this way makes the most of their capabilities`\
 https://nytimes.com/athletic/7033637/2026/02/10/chelsea-pressing-rosenior-premier-league-tactics/
-
-**The day Manchester United and the New York Yankees teamed up – and the missed opportunity**\
-`Two of the world's biggest sports franchises teamed up — but the relationship could have gone much further`\
-https://nytimes.com/athletic/7004057/2026/02/10/manchester-united-new-york-yankees-partnership/
-
-**Mid-tier Premier League clubs and the awkward art of reinvention**\
-`Too often mid-tier clubs hit a ceiling in the elite and, whether through ownership issues or poor recruitment, find themselves spiralling`\
-https://nytimes.com/athletic/7032953/2026/02/10/premier-league-mid-tier-reinvent-wolves-palace-brentford/
-
-**Frank vs Howe - The flaws Spurs and Newcastle are struggling to fix and how it might play out**\
-`Spurs and Newcastle have had flaws ruthlessly exposed in the Premier League this season - can Thomas Frank and Eddie Howe fix them?`\
-https://nytimes.com/athletic/7032933/2026/02/10/thomas-frank-eddie-howe/
 

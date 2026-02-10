@@ -1,4 +1,8 @@
 **No. 9 Kansas hands No. 1 Arizona its first loss even without freshman star Darryn Peterson**\
+`The Jayhawks are 40-0 at home on ESPN Big Monday games under Hall of Fame coach Bill Self.`\
+https://nytimes.com/athletic/7035240/2026/02/10/kansas-win-arizona-darryn-peterson-40-straight/
+
+**No. 9 Kansas hands No. 1 Arizona its first loss even without freshman star Darryn Peterson**\
 `The Jayhawks have never lost at home in Allen Fieldhouse on ESPN's Big Monday games.`\
 https://nytimes.com/athletic/7035240/2026/02/10/kansas-wins-arizona-darryn-peterson-40-straight/
 
