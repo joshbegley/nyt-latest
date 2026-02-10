@@ -1,3 +1,7 @@
+**Film Club: ‘Dear ICE: Letters From Students Living in Fear’**\
+`What would you like to say to ICE agents, and to the children who are detained in immigration detention centers?`\
+https://nytimes.com/2026/02/10/learning/film-club-dear-ice-letters-from-students-living-in-fear.html
+
 **Changing of the guards: Bulls' new-look backcourt tries to make an impression**\
 `Chicago added seven new players at the trade deadline, most of them guards. Can Anfernee Simons, Collin Sexton and others find a home?`\
 https://nytimes.com/athletic/7035459/2026/02/10/nba-bulls-guards-collin-sexton-anfernee-simons/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027952/2026/02/10/red-sox-spring-training-roster-q
 **Yankees fans pray the World Series drought ends. For their kids, 'It has been a lifetime'**\
 `For Yankees fans, 16 years might as well be eons — especially for parents raising kids who have no idea what a World Series win feels like.`\
 https://nytimes.com/athletic/7020213/2026/02/10/yankees-fans-world-series-drought/
-
-**Meet the quarterback recruit who chose the Ivy League over the Power 4**\
-`Teodecki, who originally signed with Kanas State, is Penn’s highest-rated prospect of the modern recruiting era. `\
-https://nytimes.com/athletic/7027948/2026/02/10/miles-teodecki-penn-qb-college-football-recruit/
 

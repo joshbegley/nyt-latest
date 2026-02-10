@@ -1,3 +1,7 @@
+**Changing of the guards: Bulls' new-look backcourt tries to make an impression**\
+`Chicago added seven new players at the trade deadline, most of them guards. Can Anfernee Simons, Collin Sexton and others find a home?`\
+https://nytimes.com/athletic/7035459/2026/02/10/nba-bulls-guards-collin-sexton-anfernee-simons/
+
 **Serie A Briefing: How Federico Dimarco became football's perfect 'fifth'**\
 `Inter star pilloried after their Champions League final trouncing by Paris Sant-Germain in May is showing his true worth now`\
 https://nytimes.com/athletic/7035346/2026/02/10/federico-dimarco-inter-milan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020213/2026/02/10/yankees-fans-world-series-drough
 **Meet the quarterback recruit who chose the Ivy League over the Power 4**\
 `Teodecki, who originally signed with Kanas State, is Penn’s highest-rated prospect of the modern recruiting era. `\
 https://nytimes.com/athletic/7027948/2026/02/10/miles-teodecki-penn-qb-college-football-recruit/
-
-**49ers mailbag: How will new coordinator Raheem Morris change the defense?**\
-`Among this week's questions: Is Oregon tight end Kenyon Sadiq a target in the draft, and which free agents make sense for San Francisco?`\
-https://nytimes.com/athletic/7034978/2026/02/10/49ers-defensive-coordinator-raheem-morris-mailbag/
 
