@@ -1,3 +1,19 @@
+**Buddhist Monks Reach Washington D.C. in 2,300-Mile ‘Walk for Peace’**\
+`A group of Buddhist monks arrived in Washington on Tuesday, in the final stretch of their “Walk for Peace,” which began four months ago in Texas.`\
+https://nytimes.com/video/us/100000010702233/buddhist-monks-walk-for-peace-dc.html
+
+**Inside a Detention Site at the Heart of Europe’s Harsh New Approach to Immigration**\
+`This former military barracks in Bulgaria has become a symbol of the E.U.’s increasingly strict policing of its borders — and of what may come next.`\
+https://nytimes.com/2026/02/10/magazine/immigration-detention-europe-busmantsi-bulgaria.html
+
+**Ilia Malinin's dominance puts him one skate away from men's Olympic gold**\
+`The Quad God, the star of these Milan Cortina Games, is in prime position to win individual men's figure skating gold.`\
+https://nytimes.com/athletic/7037080/2026/02/10/ilia-malinin-winter-olympics-figure-skating-short-program-mens/
+
+**A closer look at Luis Arraez's defense at second base**\
+`Arraez has played all over the field in his career. His time at second has been defined by sure-handedness but also very limited range.`\
+https://nytimes.com/athletic/7037121/2026/02/10/sf-giants-luis-arraez-second-base-defense/
+
 **The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay as Leeds summon stunning two-goal comeback**\
 `Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
 https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/7036494/2026/02/10/topps-best-baseball-cards-ever/
 **USA blanks Canada in women's hockey as Marie-Philip Poulin's absence looms large**\
 `The Americans continued their dominant run at the 2026 Olympics, defeating Canada 5-0 on Tuesday in their final group-stage game.`\
 https://nytimes.com/athletic/7036543/2026/02/10/usa-canada-olympics-womens-hockey-results/
-
-**The Briefing: Tottenham 1 Newcastle 2 – Where does Thomas Frank go from here? Has Jacob Ramsey finally arrived?**\
-`The Athletic's writers analyse Tuesday evening's game at the Tottenham Hotspur Stadium`\
-https://nytimes.com/athletic/7030957/2026/02/10/tottenham-newcastle-premier-league-analysis-frank-howe/
-
-**Lakers' LeBron James to sit out 18th game, ending 21-year All-NBA streak**\
-`With James set to miss his 18th game this season, he will be ineligible for postseason awards due to the NBA's 65-game rule. `\
-https://nytimes.com/athletic/7037151/2026/02/10/lebron-james-all-nba-streak-miss-18th-game-lakers/
-
-**A Crucial Step in Trump’s Gaza Plan**\
-`Persuading Hamas to give up its weapons is the “linchpin of everything” in the president’s plan.`\
-https://nytimes.com/2026/02/10/world/trump-gaza-hamas-disarm-ukraine-epstein.html
-
-**The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
-`Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
-https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
 

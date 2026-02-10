@@ -1,3 +1,19 @@
+**Buddhist Monks Reach Washington D.C. in 2,300-Mile ‘Walk for Peace’**\
+`A group of Buddhist monks arrived in Washington on Tuesday, in the final stretch of their “Walk for Peace,” which began four months ago in Texas.`\
+https://nytimes.com/video/us/100000010702233/buddhist-monks-walk-for-peace-dc.html
+
+**Inside a Detention Site at the Heart of Europe’s Harsh New Approach to Immigration**\
+`This former military barracks in Bulgaria has become a symbol of the E.U.’s increasingly strict policing of its borders — and of what may come next.`\
+https://nytimes.com/2026/02/10/magazine/immigration-detention-europe-busmantsi-bulgaria.html
+
+**Ilia Malinin's dominance puts him one skate away from men's Olympic gold**\
+`The Quad God, the star of these Milan Cortina Games, is in prime position to win individual men's figure skating gold.`\
+https://nytimes.com/athletic/7037080/2026/02/10/ilia-malinin-winter-olympics-figure-skating-short-program-mens/
+
+**A closer look at Luis Arraez's defense at second base**\
+`Arraez has played all over the field in his career. His time at second has been defined by sure-handedness but also very limited range.`\
+https://nytimes.com/athletic/7037121/2026/02/10/sf-giants-luis-arraez-second-base-defense/
+
 **The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay as Leeds summon stunning two-goal comeback**\
 `Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
 https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
