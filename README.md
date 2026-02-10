@@ -1,3 +1,15 @@
+**Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
+`Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
+https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
+
+**Justin Verlander signs with the Tigers, bringing his career full-circle**\
+`Verlander returns to Detroit, where he spent the first 13 years of his MLB career and where he won 183 games.`\
+https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
+
+**Mamdani Hires Groundbreaking Computer Scientist as Chief Tech Officer**\
+`Lisa Gelobter, whose worked helped shape the modern web, was also on the launch team at Hulu.`\
+https://nytimes.com/2026/02/10/nyregion/mamdani-lisa-gelobter-gif.html
+
 **Wild at the Olympics: A punchable face, hanging with Snoop Dogg and a chance at a pile of medals**\
 `Quinn Hughes on 10 Wild players being in the Olympics: "It says a lot about our team and maybe why we've been so good."`\
 https://nytimes.com/athletic/7036458/2026/02/10/wild-olympics-punchable-snoop-dogg/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/10/business/spacex-nlrb-labor-elon-musk.html
 **The Whiskey World Is Reeling, but This Company Has Bigger Troubles**\
 `A new report paints a grim financial picture of Uncle Nearest, a high-profile brand named for an enslaved distiller. But its founder is fighting the findings.`\
 https://nytimes.com/2026/02/10/dining/drinks/uncle-nearest-whiskey.html
-
-**Farquharson wins bronze for second-ever U.S. Olympic medal in women's luge**\
-`Farquharson sealed it with a strong fourth run that cemented her medal position.`\
-https://nytimes.com/athletic/7036378/2026/02/10/ashley-farquharson-winter-olympics-luge-bronze-usa/
-
-**Canada's pre-World Cup schedule and the reasons behind its opponent choices**\
-`On the surface, Canada's run-up to the World Cup may appear underwhelming, but there's reason for it`\
-https://nytimes.com/athletic/7036354/2026/02/10/canada-friendlies-world-cup-tunisia-iceland-uzbekistan-ireland/
-
-**Jessie Diggins says she bruised ribs in skiathlon crash, but 'no lasting injury'**\
-`The American cross-country skiing star, who is retiring after this season, says she can continue racing in the Olympics.`\
-https://nytimes.com/athletic/7036501/2026/02/10/jessie-diggins-winter-olympics-bruised-ribs-injury-cross-country/
 
