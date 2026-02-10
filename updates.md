@@ -1,3 +1,7 @@
+**The Satchel: Send your Bills questions to Tim Graham**\
+`The Satchel: Send your Bills questions to Tim Graham.`\
+https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
+
 **Delgado Drops Out of Democratic Primary for N.Y. Governor**\
 `After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado had hoped to challenge her from the left. But his campaign failed to gain traction.`\
 https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html

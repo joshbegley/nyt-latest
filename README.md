@@ -1,3 +1,11 @@
+**Republican Cash Edge Threatens to Swamp Democrats in the Midterms**\
+`“Donald Trump has 99 problems going into the midterms,” one Democratic strategist said. “But money ain’t one.”`\
+https://nytimes.com/2026/02/10/us/politics/republicans-democrats-midterms-fund-raising.html
+
+**A.I. Is Giving You a Personalized Internet, but You Have No Say in It**\
+`The relentless addition of artificial intelligence in popular apps raises questions about what’s at stake. The answer: the future of the internet and its lifeblood, digital advertising.`\
+https://nytimes.com/2026/02/10/technology/personaltech/ai-google-meta-opt-out.html
+
 **The Satchel: Send your Bills questions to Tim Graham**\
 `The Satchel: Send your Bills questions to Tim Graham.`\
 https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036189/2026/02/10/north-carolina-vs-miami-fl-strea
 **How to watch Purdue vs. Nebraska men's basketball: Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036178/2026/02/10/purdue-vs-nebraska-stream-how-to-watch-feb-10/
-
-**How to watch Kansas vs. Texas Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036176/2026/02/10/kansas-vs-texas-tech-stream-how-to-watch-feb-10/
-
-**How to watch Vanderbilt vs. Auburn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036172/2026/02/10/vanderbilt-vs-auburn-stream-how-to-watch-feb-10/
 
