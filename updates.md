@@ -1,3 +1,15 @@
+**Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield depth**\
+`After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
+https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
+
+**The stakes are high for her this week, but Chloe Kim is relaxed and confident**\
+`Kim is trying to become the first halfpipe snowboarder in Olympic history to win three consecutive gold medals.`\
+https://nytimes.com/athletic/7033044/2026/02/09/chloe-kim-2026-winter-olympics-history/
+
+**Here’s What a Warm Night Looks Like for Homeless New Yorkers**\
+`As weekend temperatures fell into the single digits, New York City operated 65 warming centers where people could find cots, chairs and a respite from the cold.`\
+https://nytimes.com/2026/02/09/nyregion/cold-warming-centers-homeless.html
+
 **A Gray Wolf’s Visit to Los Angeles County Is a First in Nearly a Century**\
 `The wolf, known as BEY03F, roamed more than 500 miles from Northern California, signaling that the species continues to rebound after being wiped out in the 1920s.`\
 https://nytimes.com/2026/02/09/us/gray-wolf-los-angeles-california.html

@@ -1,3 +1,7 @@
+**Trump Administration Abandons Steve Bannon Conviction**\
+`The longtime Trump ally served four months in prison on contempt of Congress charges for refusing to testify to the House committee that investigated the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2026/02/09/us/politics/bannon-trump-contempt-case.html
+
 **Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield depth**\
 `After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
 https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/nyregion/cold-warming-centers-homeless.html
 **Bobby Hauck joining Illinois as DC after stepping down as Montana head coach**\
 `"A lot of the head coach stuff in current day Division I college football is not enjoyable," Hauck said upon stepping down at Montana.`\
 https://nytimes.com/athletic/7034556/2026/02/09/bobby-hauck-illinois-defensive-coordinator-montana/
-
-**A New Jersey Primary Shows the Depth of Democratic Fury**\
-`Trump has thrust us into a new political world, and Democratic voters want leaders who can adapt.`\
-https://nytimes.com/2026/02/09/opinion/new-jersey-democratic-anger.html
 
