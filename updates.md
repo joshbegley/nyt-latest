@@ -1,3 +1,7 @@
+**New Epstein Details Rattle Washington, Hollywood and Beyond**\
+`Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
+
 **Trump Administration Live Updates: Top Officials to Face Questions Over Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2026/02/10/us/trump-news

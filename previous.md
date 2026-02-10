@@ -1,3 +1,7 @@
+**New Epstein Details Rattle Washington, Hollywood and Beyond**\
+`Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
+https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
+
 **Trump Administration Live Updates: Top Officials to Face Questions Over Immigration Crackdown**\
 ``\
 https://nytimes.com/live/2026/02/10/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/world/europe/sunghoon-milan-winter-olympics.html
 **Is Ohio State ready for a tougher schedule amid roster changes? What we've learned for 2026**\
 `Thoughts on where Ohio State stands after a busy January in the portal and coaching carousel following an early CFP exit.`\
 https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coaches-roster-2026/
-
-**Mercedes' Kimi Antonelli unhurt after car crash in San Marino**\
-`The 19-year-old is expected to still take part in the second round of preseason testing this week ahead of the 2026 F1 season.`\
-https://nytimes.com/athletic/7035603/2026/02/10/kimi-antonelli-crash-san-marino-f1/
 
