@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Top Officials to Face Questions Over Immigration Crackdown**\
+``\
+https://nytimes.com/live/2026/02/10/us/trump-news
+
+**Three burning questions for the Reds heading into spring training**\
+`The Reds are in a good position heading into spring training but still have pressing questions to address if they're going to see success. `\
+https://nytimes.com/athletic/7034694/2026/02/10/three-cincinnati-reds-questions-spring-training-2026/
+
+**Alex Hall wins men’s freeski slopestyle silver, Birk Ruud wins gold for Norway**\
+`Hall went into Milan Cortina as the defending champion but the American could not make it back-to-back Olympic titles. `\
+https://nytimes.com/athletic/7035521/2026/02/10/mens-freeski-slopestyle-2026-winter-olympics-alex-hall/
+
 **Ben Ogden ends U.S. men's 50-year Olympic medal drought in cross-country skiing**\
 `Ogden won the first U.S. men's cross-country skiing Olympic medal since Bill Koch in 1976.`\
 https://nytimes.com/athletic/7035634/2026/02/10/winter-olympics-ben-ogden-cross-country-silver-american-drought/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coa
 **Mercedes' Kimi Antonelli unhurt after car crash in San Marino**\
 `The 19-year-old is expected to still take part in the second round of preseason testing this week ahead of the 2026 F1 season.`\
 https://nytimes.com/athletic/7035603/2026/02/10/kimi-antonelli-crash-san-marino-f1/
-
-**Former soccer agent Jonathan Barnett denies 'sex slave' accusations**\
-`Barnett, 76, also wants the complaint against him in the United States dismissed.`\
-https://nytimes.com/athletic/7035483/2026/02/10/jonathan-barnett-case-deny-accusations/
-
-**Nickeil Alexander-Walker's return to Minnesota shows Ayo Dosunmu the way**\
-`NAW was a fan favorite for the Timberwolves. The newly acquired Dosunmu shares many of his positive traits.`\
-https://nytimes.com/athletic/7034585/2026/02/10/nickeil-alexander-walker-return-timberwolves-ayo-dosunmu/
-
-**Three burning Red Sox questions as spring training opens**\
-`With a deep stable of starters and a crowded mix of outfielders and designated hitters, is Boston done shaping its roster?`\
-https://nytimes.com/athletic/7027952/2026/02/10/red-sox-spring-training-roster-questions/
 
