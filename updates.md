@@ -1,3 +1,7 @@
+**Antarctica’s Best Ocean Explorers Have Whiskers and Love to Lounge**\
+`The environment is changing rapidly around the melting Thwaites Glacier. Seals can collect data in waters that ships could never reach.`\
+https://nytimes.com/2026/02/10/climate/antarctica-seal-tagging.html
+
 **Susan Collins Runs for Re-election, in One of 2026’s Top Senate Fights**\
 `The Maine Republican is one of her party’s most vulnerable senators, and her seat is crucial to Democratic hopes of retaking control of the chamber.`\
 https://nytimes.com/2026/02/10/us/politics/susan-collins-maine-senate-2026.html

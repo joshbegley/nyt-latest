@@ -1,3 +1,7 @@
+**What to know about every pitcher in Dodgers spring camp**\
+`From Cy Young candidates to non-roster invitees, the defending champs have no shortage of compelling options. `\
+https://nytimes.com/athletic/7035092/2026/02/10/dodgers-pitchers-spring-training-analysis/
+
 **Antarctica’s Best Ocean Explorers Have Whiskers and Love to Lounge**\
 `The environment is changing rapidly around the melting Thwaites Glacier. Seals can collect data in waters that ships could never reach.`\
 https://nytimes.com/2026/02/10/climate/antarctica-seal-tagging.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035295/2026/02/10/minnesota-twins-spring-training-
 **Sweden sweep cross-country sprint as Jessie Diggins knocked out early**\
 `Linn Svahn won a dominant gold ahead of team-mates Jonna Sundling and Maja Dahlqvist.`\
 https://nytimes.com/athletic/7035689/2026/02/10/sweden-wins-cross-country-sprint-result/
-
-**New Epstein Details Rattle Washington, Hollywood and Beyond**\
-`Commerce Secretary Howard Lutnick and Casey Wasserman, the entertainment mogul, are among facing blowback amid the release of files related to Jeffrey Epstein.`\
-https://nytimes.com/2026/02/10/business/dealbook/epstein-lutnick-wasserman-starmer.html
 
