@@ -1,3 +1,7 @@
+**Why are Olympic figure skaters having issues with their music selections?**\
+`The International Skating Union eased its rules in 2014, permitting skaters to perform to contemporary songs with lyrics.`\
+https://nytimes.com/athletic/7034724/2026/02/10/olympics-figure-skating-music-copyright/
+
 **Rename Penn Station and Dulles Airport After Trump?**\
 `Should two major transportation hubs be renamed for the president? Also: When children watch TV; a hope for long life.`\
 https://nytimes.com/2026/02/10/opinion/penn-station-dulles-trump.html
@@ -23,7 +27,7 @@ https://nytimes.com/2026/02/10/technology/personaltech/ai-google-meta-opt-out.ht
 https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
 
 **Delgado Drops Out of Democratic Primary for N.Y. Governor**\
-`After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado had hoped to challenge her from the left. But his campaign failed to gain traction.`\
+`After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado mounted a challenge from the left. But his campaign failed to gain traction.`\
 https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html
 
 **Michael Pollan on R.F.K. Jr. and the MAHA Movement**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010702330/michael-pollan-on-rfk-jr-and-
 **A.I. Can Fool Us Into Thinking It’s Human. Now What?**\
 `And if A.I. tells us it is conscious, should we believe it? The writer Michael Pollan dug into those questions and more on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010702270/ai-can-fool-us-into-thinking-its-human-now-what.html
-
-**Elon Musk’s Edge in the A.I. Race**\
-`Casey Newton and Kevin Roose, the hosts of “Hard Fork,” consider how the news that SpaceX is acquiring Elon Musk’s company xAI could give him an edge in the artificial intelligence race.`\
-https://nytimes.com/video/podcasts/100000010702414/elon-musks-edge-in-the-ai-race.html
 
