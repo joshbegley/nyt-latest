@@ -1,3 +1,7 @@
+**Full Time: College soccer standout skiing at the Games**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7035136/2026/02/09/sammy-smith-stanford-olympics-full-time/
+
 **Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation**\
 `A small group of conservative activists has worked for 16 years to stop all government efforts to fight climate change. Their efforts seem poised to pay off.`\
 https://nytimes.com/2026/02/09/climate/endangerment-finding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/09/us/politics/trump-gordie-howe-bridge-canada.html
 **Confrontation between Jalen Duren, Moussa Diabaté sparks Pistons-Hornets brawl**\
 `Stewart, Duren, Diabaté and Bridges were all ejected. Suspensions are likely to follow.`\
 https://nytimes.com/athletic/7034892/2026/02/09/pistons-hornets-fight-diabate-duren-bridges-stewart/
-
-**How a Decision to Use Whistles as a Prop Cost Eric Adams $4,000**\
-`The former New York mayor paid a Conflicts of Interest Board fine for having City Hall employees assist in attacking former Gov. Andrew Cuomo over sexual harassment allegations.`\
-https://nytimes.com/2026/02/09/nyregion/eric-adams-whistles.html
 
