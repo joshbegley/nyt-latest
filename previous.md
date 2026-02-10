@@ -1,3 +1,23 @@
+**Ghislaine Maxwell Refuses to Answer Congress’s Questions**\
+`Ghislaine Maxwell, longtime associate of Jeffrey Epstein, the convicted sex offender, refused to answer questions during a virtual deposition in front of the House Oversight Committee.`\
+https://nytimes.com/video/us/100000010701770/ghislaine-maxwell-jeffrey-epstein-house-oversight.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/10/crosswords/spelling-bee-forum.html
+
+**Athletic Feats**\
+`What athlete has impressed you recently?`\
+https://nytimes.com/2026/02/10/learning/athletic-feats.html
+
+**They Use MetroCards to Make Art. They’re Starting to Run Out.**\
+`The fare card is dead. How much longer can these New York artists stretch a finite supply?`\
+https://nytimes.com/2026/02/10/nyregion/metro-card-art-exhibit-nyc.html
+
+**A Desperate Father, a Troubled Son and Death in a 5-Star Hotel**\
+`Henry McGowan headed for Europe, showing signs of mental distress. His father, John McGowan, raced after him. This week, the son will stand trial in Ireland, accused of his father’s murder.`\
+https://nytimes.com/2026/02/10/nyregion/henry-mcgowan-ireland-murder.html
+
 **Fantasy Premier League live Q&A: Gameweek 26 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts `\
 https://nytimes.com/athletic/7032806/2026/02/10/fantasy-premier-league-live-qa-gameweek-26-advice-from-ben-dinnery/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
 **The New York Times in Print for Tuesday, Feb. 10, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/10/todays-new-york-times
-
-**Bangladesh Has Exposed Democracy’s Deeper Problem**\
-`Toppling autocrats is easier than rebuilding the institutions democracy depends on.`\
-https://nytimes.com/2026/02/10/opinion/bangladesh-election-revolution-democracy.html
-
-**The Epstein Files Are Coming for Britain’s Prime Minister**\
-`Even longtime admirers see the writing on the wall for Keir Starmer.`\
-https://nytimes.com/2026/02/10/opinion/epstein-mandelson-starmer-britain.html
-
-**No. 9 Kansas hands No. 1 Arizona its first loss even without freshman star Darryn Peterson**\
-`The Jayhawks are 40-0 at home on ESPN Big Monday games under Hall of Fame coach Bill Self.`\
-https://nytimes.com/athletic/7035240/2026/02/10/kansas-win-arizona-darryn-peterson-40-straight/
-
-**What to watch on Day 4 at the Winter Olympics: U.S. vs. Canada women's hockey, Shiffrin and Johnson**\
-`Our first Olympic hockey border battle is here.`\
-https://nytimes.com/athletic/6923014/2026/02/10/milan-cortina-winter-olympics-what-to-watch-day-4/
-
-**Sterling, Coady, Phillips... How looking back at 2022 shows the speed of England's evolution**\
-`While some key players remain, the squad England take to this summer's World Cup will be very different to the one from four years ago`\
-https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-sterling-coady/
 
