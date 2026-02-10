@@ -1,3 +1,11 @@
+**The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
+`Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
+https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
+
+**Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
+`Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees matchup over the Red Sox.`\
+https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
+
 **Bad Bunny halftime performer goes viral for sharing workout stats as sugarcane plant**\
 `Austin Klapman, a 26-year-old tech worker, walked 1,198 steps while dressed as a sugarcane plant during the Super Bowl halftime show.`\
 https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-sugarcane-performer/

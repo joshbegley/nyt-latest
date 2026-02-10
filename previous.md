@@ -1,3 +1,7 @@
+**The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
+`Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
+https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
+
 **Bad Bunny halftime performer goes viral for sharing workout stats as sugarcane plant**\
 `Austin Klapman, a 26-year-old tech worker, walked 1,198 steps while dressed as a sugarcane plant during the Super Bowl halftime show.`\
 https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-sugarcane-performer/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-
 https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.html
 
 **Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
-`Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees match-up over the Red Sox.`\
+`Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees matchup over the Red Sox.`\
 https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
 
 **Doing the Dishes Is Romantic**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/technology/youtube-social-media-addiction-trial.h
 **Michael Imperioli Will Tell His Great-Grandchildren About Dining With Bourdain**\
 `“I remember getting there and he was standing outside, smoking. It was hours of white wine and fish,” says the “Sopranos” actor.`\
 https://nytimes.com/2026/02/10/dining/white-lotus-michael-imperioli-restaurants.html
-
-**Slovenia, after extra three-day wait, finally gets its Olympic ski jumping party**\
-`The dominant nation in ski jumping, Slovenia missed out on its first two chances at an Olympic gold medal this week. That changed Tuesday.`\
-https://nytimes.com/athletic/7036948/2026/02/10/winter-olympics-slovenia-ski-jumping-mixed-team-gold/
 
