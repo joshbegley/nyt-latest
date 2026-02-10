@@ -1,3 +1,11 @@
+**Jon Stewart Defends Bad Bunny’s Super Bowl Halftime Show**\
+`“The Daily Show” host said it shouldn’t be a performer’s job to unify the country: “Isn’t there another person whose job description is much more along those lines?”`\
+https://nytimes.com/2026/02/10/arts/television/late-night-bad-bunny.html
+
+**Word of the Day: indigent**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/10/learning/word-of-the-day-indigent.html
+
 **Tracy Scroggins, Lions' No. 3 sack leader, dies at 56**\
 `Scroggins' 60.5 sacks rank third on the Lions' career sack list, and he helped Detroit reach the playoffs five times in his 10 seasons.`\
 https://nytimes.com/athletic/7034931/2026/02/10/lions-tracy-scroggins-dead/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-ste
 **Radu Dragusin has been given an unlikely Spurs lifeline - they need him to grab it**\
 `A few weeks ago you may have wondered whether Radu Dragusin would ever get back in the Spurs team - now he may be getting a run in the side`\
 https://nytimes.com/athletic/7027477/2026/02/10/radu-dragusin-tottenham-2/
-
-**Brighton get a glimpse of a bright future as Harry Howell makes full Premier League debut**\
-`The 17-year-old midfielder became the youngest to start a Premier League game in the defeat to Crystal Palace on Sunday`\
-https://nytimes.com/athletic/7030737/2026/02/10/brighton-premier-league-harry-howell/
-
-**The incredible numbers behind Wrexham's Hollywood revolution**\
-`The statistics behind the Welsh club's remarkable rise over the last five years under Rob McElhenney and Ryan Reynolds' ownership`\
-https://nytimes.com/athletic/7017794/2026/02/10/the-incredible-numbers-behind-wrexhams-hollywood-revolution/
 
