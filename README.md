@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 2 Leeds 2 - Wasteful hosts made to pay as Leeds summon stunning two-goal comeback**\
+`Liam Rosenior's side appeared to be cruising after establishing a two-goal advantage only to be hauled back by a stubborn and defiant Leeds`\
+https://nytimes.com/athletic/7030956/2026/02/10/chelsea-leeds-bogle-palmer-acheampong-briefing/
+
+**Russia Further Restricts Telegram, Escalating Internet Clampdown**\
+`The throttling of the communication app, used by more than 100 million Russians, endangers what remains of the country’s free internet.`\
+https://nytimes.com/2026/02/10/world/europe/telegram-throttled-internet-russia.html
+
 **House Republicans Again Seek to Stop Time to Avoid Vote on Trump’s Tariffs**\
 `For the third time this Congress, G.O.P. leaders are seeking to effectively nullify a law that requires a quick House vote on a measure demanding an end to President Trump’s tariffs.`\
 https://nytimes.com/2026/02/10/us/politics/tariffs-house-legislative-day.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/10/world/trump-gaza-hamas-disarm-ukraine-epstein.htm
 **The Conservative Activists Behind One of Trump’s Biggest Climate Moves**\
 `Four Trump allies have been a driving force behind the administration’s efforts to rollback a key climate regulation.`\
 https://nytimes.com/2026/02/10/climate/the-conservative-activists-behind-one-of-trumps-biggest-climate-moves.html
-
-**Bad Bunny halftime performer goes viral for sharing workout stats as sugarcane plant**\
-`Austin Klapman, a 26-year-old tech worker, walked 1,198 steps while dressed as a sugarcane plant during the Super Bowl halftime show.`\
-https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-sugarcane-performer/
-
-**The Everyday People Who Made Bad Bunny’s Halftime Authentic**\
-`A priest from Sacramento. A bar owner from New York. A taquero from Los Angeles. Puerto Rico came alive at the Super Bowl because of hundreds of non-famous performers.`\
-https://nytimes.com/2026/02/10/arts/music/bad-bunny-super-bowl-show-everyday-people.html
 
