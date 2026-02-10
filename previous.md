@@ -1,3 +1,15 @@
+**Political talk at Olympics particularly hazardous for the not-yet-mainstream athletes**\
+`The attention of President Donald Trump on the skier Hunter Hess calls attention to the stakes of the Olympics for its athletes.`\
+https://nytimes.com/athletic/7034383/2026/02/09/winter-olympics-politics-hunter-hess-donald-trump/
+
+**N.Y.C. Social Services Chief Resigns After Losing Mamdani’s Favor**\
+`Molly Wasow Park, a holdover from the Eric Adams administration, said her resignation was unrelated to the recent wave of cold-related deaths in New York City.`\
+https://nytimes.com/2026/02/09/nyregion/molly-park-resignation-homeless.html
+
+**Trump Administration Abandons Steve Bannon Conviction**\
+`The longtime Trump ally served four months in prison on contempt of Congress charges for refusing to testify to the House committee that investigated the Jan. 6, 2021, attack on the Capitol.`\
+https://nytimes.com/2026/02/09/us/politics/bannon-trump-contempt-case.html
+
 **Red Sox takeaways: What Caleb Durbin acquisition means for offense, infield depth**\
 `After Boston added Durbin in a trade with the Brewers, manager Alex Cora said the team seems "more complete" than last season's club.`\
 https://nytimes.com/athletic/7034341/2026/02/09/caleb-durbin-trade-red-sox-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/09/nyregion/bruce-blakeman-new-york-governor.html
 **Weekly Student News Quiz: Super Bowl, Olympics, Missing Person**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/02/09/learning/09StudentNewsQuiz.html
-
-**Here’s What a Warm Night Looks Like for Homeless New Yorkers**\
-`As weekend temperatures fell into the single digits, New York City operated 65 warming centers where people could find cots, chairs and a respite from the cold.`\
-https://nytimes.com/2026/02/09/nyregion/cold-warming-centers-homeless.html
-
-**Bobby Hauck joining Illinois as DC after stepping down as Montana head coach**\
-`"A lot of the head coach stuff in current day Division I college football is not enjoyable," Hauck said upon stepping down at Montana.`\
-https://nytimes.com/athletic/7034556/2026/02/09/bobby-hauck-illinois-defensive-coordinator-montana/
-
-**A New Jersey Primary Shows the Depth of Democratic Fury**\
-`Trump has thrust us into a new political world, and Democratic voters want leaders who can adapt.`\
-https://nytimes.com/2026/02/09/opinion/new-jersey-democratic-anger.html
 
