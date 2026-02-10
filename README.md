@@ -1,3 +1,7 @@
+**Sweden’s last stone topples U.S.**\
+`Sweden’s sibling team took advantage of the hammer to edge the Americans in the final end. `\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/swedens-last-stone-topples-us
+
 **Epstein Files Reveal Efforts to Build Ties With Officials in Russia**\
 `New documents detail Jeffrey Epstein’s efforts to foster strategic, sometimes reciprocal relationships with Russian officials.`\
 https://nytimes.com/2026/02/10/business/epstein-files-russia-putin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain
 **Justin Verlander signs with the Tigers, bringing his career full-circle**\
 `Verlander returns to Detroit, where he spent the first 13 years of his MLB career and won 183 games.`\
 https://nytimes.com/athletic/6982882/2026/02/10/justin-verlander-mlb-free-agency-tigers/
-
-**Mamdani Hires Groundbreaking Computer Scientist as Chief Tech Officer**\
-`Lisa Gelobter, whose worked helped shape the modern web, was also on the launch team at Hulu.`\
-https://nytimes.com/2026/02/10/nyregion/mamdani-lisa-gelobter-gif.html
 
