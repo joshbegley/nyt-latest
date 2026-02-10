@@ -1,3 +1,7 @@
+**Sterling, Coady, Phillips... How looking back at 2022 shows the speed of England's evolution**\
+`While some key players remain, the squad England take to this summer's World Cup will be very different to the one from four years ago`\
+https://nytimes.com/athletic/7032983/2026/02/10/england-2026-world-cup-watch-sterling-coady/
+
 **Radu Dragusin has been given an unlikely Spurs lifeline - they need him to grab it**\
 `A few weeks ago you may have wondered whether Radu Dragusin would ever get back in the Spurs team - now he may be getting a run in the side`\
 https://nytimes.com/athletic/7027477/2026/02/10/radu-dragusin-tottenham-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032771/2026/02/10/alexis-mac-allister-liverpool-fo
 **Deciphering the Premier League's block party**\
 `Analysis of each side's out-of-possession approaches reveals key differences in philosophies across the division `\
 https://nytimes.com/athletic/7033512/2026/02/10/premier-league-out-of-possession-blocks/
-
-**Premier League predictions: West Ham vs Man United, Tottenham vs Newcastle and rest of matchday 26**\
-`Who's leading after MD25? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 26?`\
-https://nytimes.com/athletic/7032748/2026/02/10/premier-league-predictions-md26/
 
