@@ -1,3 +1,11 @@
+**Where were contenders at the trade deadline? Scouting Heat rookie Kasparas Jakučionis**\
+`With Jaren Jackson Jr. and Ivica Zubac being moved at the deadline, why did they go to lottery-bound teams instead of contenders?`\
+https://nytimes.com/athletic/7035225/2026/02/10/where-were-contenders-at-the-trade-deadline-scouting-heat-rookie-kasparas-jakucionis/
+
+**Chappell Roan Leaves Wasserman Agency After Founder Appears in Epstein Files**\
+`Casey Wasserman, who founded and leads the talent agency bearing his name, exchanged flirtatious emails with Ghislaine Maxwell in the early 2000s.`\
+https://nytimes.com/2026/02/10/arts/music/chappell-roan-casey-wasserman-epstein-agency.html
+
 **Premier League sack race: Thomas Frank and Eddie Howe among favourites ahead of showdown**\
 `The Premier League season is heading towards a crescendo. But will all managers make it to the finish line?`\
 https://nytimes.com/athletic/7035530/2026/02/10/premier-league-sack-race-thomas-frank-and-eddie-howe-under-pressure-ahead-of-key-match/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/us/politics/susan-collins-maine-senate-2026.html
 **The Qatar Open is not Coco Gauff's favorite tournament. This loss was different**\
 `Gauff's 6-4, 6-2 loss to Elisabetta Cocciaretto showed why the development of one shot could define her coming season.`\
 https://nytimes.com/athletic/7035692/2026/02/10/tennis-coco-gauff-forehand-qatar-open-cocciaretto-analysis/
-
-**A Requiem for Marc Jacobs (and the 1990s)**\
-`The designer revisits his heyday — and makes clothes you can wear.`\
-https://nytimes.com/2026/02/10/style/marc-jacobs-new-york-fashion-week.html
-
-**Return of the bundle? ESPN's new baseball play goes local**\
-`ESPN is now selling the MLB.tv package, and hopes to sell local broadcasts for a slew of MLB teams next season. `\
-https://nytimes.com/athletic/7035166/2026/02/10/espn-mlb-tv-bundle-broadcast-rights/
 

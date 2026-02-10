@@ -1,3 +1,11 @@
+**Where were contenders at the trade deadline? Scouting Heat rookie Kasparas Jakučionis**\
+`With Jaren Jackson Jr. and Ivica Zubac being moved at the deadline, why did they go to lottery-bound teams instead of contenders?`\
+https://nytimes.com/athletic/7035225/2026/02/10/where-were-contenders-at-the-trade-deadline-scouting-heat-rookie-kasparas-jakucionis/
+
+**Chappell Roan Leaves Wasserman Agency After Founder Appears in Epstein Files**\
+`Casey Wasserman, who founded and leads the talent agency bearing his name, exchanged flirtatious emails with Ghislaine Maxwell in the early 2000s.`\
+https://nytimes.com/2026/02/10/arts/music/chappell-roan-casey-wasserman-epstein-agency.html
+
 **Premier League sack race: Thomas Frank and Eddie Howe among favourites ahead of showdown**\
 `The Premier League season is heading towards a crescendo. But will all managers make it to the finish line?`\
 https://nytimes.com/athletic/7035530/2026/02/10/premier-league-sack-race-thomas-frank-and-eddie-howe-under-pressure-ahead-of-key-match/

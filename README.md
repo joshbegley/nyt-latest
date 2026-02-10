@@ -1,3 +1,11 @@
+**Nikola Topić makes G League debut after being treated for testicular cancer**\
+`"We're all just collectively thrilled that he's back playing basketball," Thunder coach Mark Daigneault said.`\
+https://nytimes.com/athletic/7035709/2026/02/10/nba-thunder-nikola-topic-cancer-return/
+
+**Marie-Philip Poulin ruled out for Canada vs. USA game with lower-body injury**\
+`Poulin, the greatest women's hockey player of all time, was injured in Monday's game versus the Czech Republic.`\
+https://nytimes.com/athletic/7035917/2026/02/10/marie-philip-poulin-injury-olympics-womens-hockey-canada-usa/
+
 **Where were contenders at the trade deadline? Scouting Heat rookie Kasparas Jakučionis**\
 `With Jaren Jackson Jr. and Ivica Zubac being moved at the deadline, why did they go to lottery-bound teams instead of contenders?`\
 https://nytimes.com/athletic/7035225/2026/02/10/where-were-contenders-at-the-trade-deadline-scouting-heat-rookie-kasparas-jakucionis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7035092/2026/02/10/dodgers-pitchers-spring-training
 **Antarctica’s Best Ocean Explorers Have Whiskers and Love to Lounge**\
 `The environment is changing rapidly around the melting Thwaites Glacier. Seals can collect data in waters that ships could never reach.`\
 https://nytimes.com/2026/02/10/climate/antarctica-seal-tagging.html
-
-**Susan Collins Runs for Re-election, in One of 2026’s Top Senate Fights**\
-`The Maine Republican is one of her party’s most vulnerable senators, and her seat is crucial to Democratic hopes of retaking control of the chamber.`\
-https://nytimes.com/2026/02/10/us/politics/susan-collins-maine-senate-2026.html
-
-**The Qatar Open is not Coco Gauff's favorite tournament. This loss was different**\
-`Gauff's 6-4, 6-2 loss to Elisabetta Cocciaretto showed why the development of one shot could define her coming season.`\
-https://nytimes.com/athletic/7035692/2026/02/10/tennis-coco-gauff-forehand-qatar-open-cocciaretto-analysis/
 
