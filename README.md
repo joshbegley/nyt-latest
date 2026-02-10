@@ -1,3 +1,7 @@
+**The Satchel: Send your Bills questions to Tim Graham**\
+`The Satchel: Send your Bills questions to Tim Graham.`\
+https://nytimes.com/athletic/7036200/2026/02/10/bills-draft-offeseason-questions/
+
 **Delgado Drops Out of Democratic Primary for N.Y. Governor**\
 `After falling out with Gov. Kathy Hochul, Lt. Gov. Antonio Delgado had hoped to challenge her from the left. But his campaign failed to gain traction.`\
 https://nytimes.com/2026/02/10/nyregion/antonio-delgado-drops-out-governor-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036176/2026/02/10/kansas-vs-texas-tech-stream-how-
 **How to watch Vanderbilt vs. Auburn men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Auburn Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036172/2026/02/10/vanderbilt-vs-auburn-stream-how-to-watch-feb-10/
-
-**How to watch BYU vs. Baylor men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036170/2026/02/10/byu-vs-baylor-stream-how-to-watch-feb-10/
 
