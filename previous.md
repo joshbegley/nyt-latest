@@ -1,3 +1,15 @@
+**Surveillance Video Shows Masked Person at Guthrie’s Doorstep**\
+`Newly released photos and videos show a masked suspect at Nancy Guthrie’s doorstep on the night she was abducted.`\
+https://nytimes.com/video/us/100000010703950/nancy-guthrie-video-fbi-suspect.html
+
+**Ford Says Electric Vehicle Losses Will Continue for Three More Years**\
+`Ford Motor reported a big loss for 2025 because of its troubled electric vehicle division, which it has significantly scaled back.`\
+https://nytimes.com/2026/02/10/business/ford-earnings-electric-vehicles.html
+
+**The Left Needs a Sharper A.I. Politics**\
+`The future may put progressive theories of work and human nature to the test.`\
+https://nytimes.com/2026/02/10/opinion/ai-politics-left-progressive.html
+
 **Peter Attia’s Ties to Epstein Spark a Backlash From Doctors**\
 `What started as a rebuke of Dr. Attia has become a discussion about his credentials, longevity medicine and whom patients should trust.`\
 https://nytimes.com/2026/02/10/well/peter-attia-jeffrey-epstein-doctors-backlash.html
@@ -21,12 +33,4 @@ https://nytimes.com/2026/02/10/world/americas/mexico-cartel-ammunition-us-army.h
 **New Video Shows a Masked Figure at Nancy Guthrie’s Door**\
 `Also, Republicans have a huge cash advantage. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/02/10/briefing/video-nancy-guthrie-republicans-cash-advantage.html
-
-**West Ham 1 Man Utd 1 - How good was Sesko's goal? How was Shaw caught out?**\
-`Analysis of Manchester United's dramatic Premier League draw away at West Ham`\
-https://nytimes.com/athletic/7030959/2026/02/10/sesko-manchester-united-goal-west-ham/
-
-**Boston announces World Cup Fan Fest plans as entertainment license dispute persists**\
-`The FIFA World Cup host committee for Boston has announced plans to host a Fan Fest at City Hall Plaza for "up to 16 days".`\
-https://nytimes.com/athletic/7036819/2026/02/10/boston-world-cup-fan-fests/
 

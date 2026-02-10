@@ -1,3 +1,15 @@
+**Surveillance Video Shows Masked Person at Guthrie’s Doorstep**\
+`Newly released photos and videos show a masked suspect at Nancy Guthrie’s doorstep on the night she was abducted.`\
+https://nytimes.com/video/us/100000010703950/nancy-guthrie-video-fbi-suspect.html
+
+**Ford Says Electric Vehicle Losses Will Continue for Three More Years**\
+`Ford Motor reported a big loss for 2025 because of its troubled electric vehicle division, which it has significantly scaled back.`\
+https://nytimes.com/2026/02/10/business/ford-earnings-electric-vehicles.html
+
+**The Left Needs a Sharper A.I. Politics**\
+`The future may put progressive theories of work and human nature to the test.`\
+https://nytimes.com/2026/02/10/opinion/ai-politics-left-progressive.html
+
 **Peter Attia’s Ties to Epstein Spark a Backlash From Doctors**\
 `What started as a rebuke of Dr. Attia has become a discussion about his credentials, longevity medicine and whom patients should trust.`\
 https://nytimes.com/2026/02/10/well/peter-attia-jeffrey-epstein-doctors-backlash.html
