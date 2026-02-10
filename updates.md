@@ -1,3 +1,11 @@
+**Francisco Lindor dealing with stress reaction in hamate bone, could require surgery**\
+`Even if Lindor needs surgery, he could still be ready for Opening Day. Plus, Juan Soto will move to left field for the upcoming season.`\
+https://nytimes.com/athletic/7036738/2026/02/10/mets-francisco-lindor-hamate-injury/
+
+**Sweden’s last stone topples U.S. in Curling.**\
+`Sweden’s sibling team took advantage of the hammer to edge the Americans in the final end. `\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/swedens-last-stone-topples-us
+
 **Epstein Files Reveal Efforts to Build Ties With Officials in Russia**\
 `New documents detail Jeffrey Epstein’s efforts to foster strategic, sometimes reciprocal relationships with Russian officials.`\
 https://nytimes.com/2026/02/10/business/epstein-files-russia-putin.html

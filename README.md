@@ -1,3 +1,7 @@
+**The E.P.A. Is Barreling Toward a Supreme Court Climate Showdown**\
+`The agency is racing to repeal a scientific finding that requires it to fight global warming. Experts say the goal is to get the matter before the justices while President Trump is still in office.`\
+https://nytimes.com/2026/02/10/climate/epa-endangerment-supreme-court.html
+
 **Francisco Lindor dealing with stress reaction in hamate bone, could require surgery**\
 `Even if Lindor needs surgery, he could still be ready for Opening Day. Plus, Juan Soto will move to left field for the upcoming season.`\
 https://nytimes.com/athletic/7036738/2026/02/10/mets-francisco-lindor-hamate-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036462/2026/02/10/braves-spencer-schwellenbach-elb
 **EFL clubs to vote on expanding Championship play-offs**\
 `The 72 clubs in the EFL will vote on increasing the number of spots from four to six at a meeting in March.`\
 https://nytimes.com/athletic/7036443/2026/02/10/championship-playoffs-vote-efl/
-
-**Spain striker Aghehowa set to miss World Cup after suffering ACL injury**\
-`Aghehowa, 21, was replaced at half time during Monday's Primeira Liga fixture against Sporting CP`\
-https://nytimes.com/athletic/7036541/2026/02/10/samu-aghehowa-injury-porto-spain/
 
