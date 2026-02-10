@@ -1,3 +1,7 @@
+**Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
+`Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees match-up over the Red Sox.`\
+https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
+
 **Doing the Dishes Is Romantic**\
 `But not fun. Which is why I have five delightful, one-pan dinner options for your Valentine’s Day (or any weeknight).`\
 https://nytimes.com/2026/02/10/dining/doing-the-dishes-is-romantic.html

@@ -1,3 +1,7 @@
+**Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
+`Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees match-up over the Red Sox.`\
+https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
+
 **Doing the Dishes Is Romantic**\
 `But not fun. Which is why I have five delightful, one-pan dinner options for your Valentine’s Day (or any weeknight).`\
 https://nytimes.com/2026/02/10/dining/doing-the-dishes-is-romantic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036959/2026/02/10/mavericks-vs-suns-stream-how-to-
 **How to watch Pacers vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036956/2026/02/10/pacers-vs-knicks-stream-how-to-watch-feb-10/
-
-**Cubans Sent to U.S. Prison at Guantánamo Are Returned to Cuba**\
-`The men were repatriated on the first deportation flight of the year, which delivered 170 Cubans to Havana.`\
-https://nytimes.com/2026/02/10/us/politics/cubans-sent-to-us-prison-at-guantanamo-are-returned-to-cuba.html
 

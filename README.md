@@ -1,3 +1,15 @@
+**Seven People Died at Private Homes in N.Y.C. Cold Snap, Officials Say**\
+`It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
+https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
+
+**Barcelona's Araujo says he took football break after experiencing anxiety, depression**\
+`Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
+https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
+
+**Congress Quietly Used Funding Law to Try to Rein in Trump on Spending**\
+`Dozens of measures sprinkled throughout the recently enacted spending package seek to tie the Trump administration’s hands on funding, an act of quiet bipartisan resistance to efforts to trample congressional power.`\
+https://nytimes.com/2026/02/10/us/politics/congress-white-house-spending-law.html
+
 **Isiah Kiner-Falefa addresses World Series play; says Jays preferred Yankees ALDS match-up**\
 `Kiner-Falefa discussed being thrown out at home plate in Game 7 and why the Jays preferred a Yankees match-up over the Red Sox.`\
 https://nytimes.com/athletic/7036882/2026/02/10/isiah-kiner-falefa-world-series-game-seven-yankees-blue-jays-red-sox/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7036952/2026/02/10/raiders-klint-kubiak-introduce-h
 **How to watch Spurs vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7036979/2026/02/10/spurs-vs-lakers-stream-how-to-watch-feb-10/
-
-**How to watch Clippers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036965/2026/02/10/clippers-vs-rockets-stream-how-to-watch-feb-10/
-
-**How to watch Mavericks vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036959/2026/02/10/mavericks-vs-suns-stream-how-to-watch-feb-10/
-
-**How to watch Pacers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7036956/2026/02/10/pacers-vs-knicks-stream-how-to-watch-feb-10/
 
