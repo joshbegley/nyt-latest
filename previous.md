@@ -1,3 +1,15 @@
+**Former soccer agent Jonathan Barnett denies 'sex slave' accusations**\
+`Barnett, 76, also wants the complaint against him in the United States dismissed.`\
+https://nytimes.com/athletic/7035483/2026/02/10/jonathan-barnett-case-deny-accusations/
+
+**Nickeil Alexander-Walker's return to Minnesota shows Ayo Dosunmu the way**\
+`NAW was a fan favorite for the Timberwolves. The newly acquired Dosunmu shares many of his positive traits.`\
+https://nytimes.com/athletic/7034585/2026/02/10/nickeil-alexander-walker-return-timberwolves-ayo-dosunmu/
+
+**Three burning Red Sox questions as spring training opens**\
+`With a deep stable of starters and a crowded mix of outfielders and designated hitters, is Boston done shaping its roster?`\
+https://nytimes.com/athletic/7027952/2026/02/10/red-sox-spring-training-roster-questions/
+
 **Yankees fans pray the World Series drought ends. For their kids, 'It has been a lifetime'**\
 `For Yankees fans, 16 years might as well be eons — especially for parents raising kids who have no idea what a World Series win feels like.`\
 https://nytimes.com/athletic/7020213/2026/02/10/yankees-fans-world-series-drought/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7034956/2026/02/10/2026-fifa-world-cup-tickets-lott
 **What I'm hearing about the Penguins: Sergei Murashov, Avery Hayes, NHL trade deadline**\
 `Some enticing Penguins prospects are getting closer to being full-time NHL players.`\
 https://nytimes.com/athletic/7030258/2026/02/10/penguins-nhl-trade-deadline-murashov-hayes/
-
-**College baseball’s best players ever, teams to watch in 2026: The Athletic’s coaches forum**\
-`What stat matters most to coaches when evaluating a hitter? What about a pitcher? `\
-https://nytimes.com/athletic/7027110/2026/02/10/college-baseball-players-teams-to-watch-2026-season/
-
-**UCLA's Roch Cholowsky headlines 2026 college baseball preseason All-Americans**\
-`No school has more than two players on the two teams, and 24 different schools are represented among the 28 spots.`\
-https://nytimes.com/athletic/6999173/2026/02/10/college-baseball-2026-all-americans-roch-cholowsky-drew-burress/
-
-**How to watch USA vs. Canada women's hockey: Start time, streaming for Olympic matchup**\
-`Team USA is 3-0 in the preliminary round. Team Canada is 2-0. Just one side will remain unbeaten after Tuesday's matchup.`\
-https://nytimes.com/athletic/7034663/2026/02/10/usa-canada-winter-olympics-womens-hockey-how-to-watch/
 

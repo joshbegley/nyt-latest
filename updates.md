@@ -1,3 +1,15 @@
+**Former soccer agent Jonathan Barnett denies 'sex slave' accusations**\
+`Barnett, 76, also wants the complaint against him in the United States dismissed.`\
+https://nytimes.com/athletic/7035483/2026/02/10/jonathan-barnett-case-deny-accusations/
+
+**Nickeil Alexander-Walker's return to Minnesota shows Ayo Dosunmu the way**\
+`NAW was a fan favorite for the Timberwolves. The newly acquired Dosunmu shares many of his positive traits.`\
+https://nytimes.com/athletic/7034585/2026/02/10/nickeil-alexander-walker-return-timberwolves-ayo-dosunmu/
+
+**Three burning Red Sox questions as spring training opens**\
+`With a deep stable of starters and a crowded mix of outfielders and designated hitters, is Boston done shaping its roster?`\
+https://nytimes.com/athletic/7027952/2026/02/10/red-sox-spring-training-roster-questions/
+
 **Yankees fans pray the World Series drought ends. For their kids, 'It has been a lifetime'**\
 `For Yankees fans, 16 years might as well be eons — especially for parents raising kids who have no idea what a World Series win feels like.`\
 https://nytimes.com/athletic/7020213/2026/02/10/yankees-fans-world-series-drought/
