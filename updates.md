@@ -1,3 +1,7 @@
+**What’s the Secret to Happiness? These Researchers Have a Theory.**\
+`A new book, “How to Feel Loved,” links our social skills to how content we are.`\
+https://nytimes.com/2026/02/10/well/lyubomirsky-reis-how-to-feel-loved.html
+
 **Canucks trade targets: 9 teams with incentive to buy and future assets to spare**\
 `Let's profile nine teams with surplus draft capital and the incentive to use it.`\
 https://nytimes.com/athletic/7035271/2026/02/10/canucks-trade-targets/
