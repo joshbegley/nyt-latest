@@ -1,3 +1,7 @@
+**What to know about every pitcher in Dodgers spring camp**\
+`From Cy Young candidates to non-roster invitees, the defending champs have no shortage of compelling options. `\
+https://nytimes.com/athletic/7035092/2026/02/10/dodgers-pitchers-spring-training-analysis/
+
 **Antarctica’s Best Ocean Explorers Have Whiskers and Love to Lounge**\
 `The environment is changing rapidly around the melting Thwaites Glacier. Seals can collect data in waters that ships could never reach.`\
 https://nytimes.com/2026/02/10/climate/antarctica-seal-tagging.html
