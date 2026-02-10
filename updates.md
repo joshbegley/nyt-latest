@@ -1,3 +1,15 @@
+**2026 Olympics, Day 3 recap: Lindsey Vonn speaks, and U.S. chases curling gold**\
+`The U.S. can win its second curling gold ever, and the American women's hockey team faces Canada on Tuesday.`\
+https://nytimes.com/athletic/7034616/2026/02/09/olympics-recap-vonn-curling-gold-us-womens-hockey/
+
+**Pistons cap physical game vs. Hornets to snap Charlotte's nine-game win streak**\
+`The Pistons now have a six-game lead atop the conference over the New York Knicks and Bostons Celtics.`\
+https://nytimes.com/athletic/7035019/2026/02/09/pistons-hornets-nine-game-winning-streak-fight-ejections/
+
+**Section of a Journey**\
+`Sarah Sinclair and Amie Walker’s collaboration will cheer you up.`\
+https://nytimes.com/2026/02/09/crosswords/daily-puzzle-2026-02-10.html
+
 **U.S. Boat Strike Kills 2 in Pacific, With One Survivor**\
 `The strike in the eastern Pacific, the third on suspected drug trafficking boats this year, was the second authorized by Gen. Francis L. Donovan, the new head of the Southern Command.`\
 https://nytimes.com/2026/02/09/us/politics/us-boat-strike-pacific-ocean.html
