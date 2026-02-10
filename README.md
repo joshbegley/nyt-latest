@@ -1,8 +1,16 @@
+**House Republicans Again Seek to Stop Time to Avoid Vote on Trump’s Tariffs**\
+`For the third time this Congress, G.O.P. leaders are seeking to effectively nullify a law that requires a quick House vote on a measure demanding an end to President Trump’s tariffs.`\
+https://nytimes.com/2026/02/10/us/politics/tariffs-house-legislative-day.html
+
+**Inside the construction of Topps' 75 best baseball cards of all time list**\
+`Topps assembled an expert panel to take on the difficult task of compiling a list of the company's best 75 baseball cards.`\
+https://nytimes.com/athletic/7036494/2026/02/10/topps-best-baseball-cards-ever/
+
 **USA blanks Canada in women's hockey as Marie-Philip Poulin's absence looms large**\
 `The Americans continued their dominant run at the 2026 Olympics, defeating Canada 5-0 on Tuesday in their final group-stage game.`\
 https://nytimes.com/athletic/7036543/2026/02/10/usa-canada-olympics-womens-hockey-results/
 
-**The Briefing: Tottenham 1 Newcastle 2 - Where does Thomas Frank go from here? Has Jacob Ramsey finally arrived?**\
+**The Briefing: Tottenham 1 Newcastle 2 – Where does Thomas Frank go from here? Has Jacob Ramsey finally arrived?**\
 `The Athletic's writers analyse Tuesday evening's game at the Tottenham Hotspur Stadium`\
 https://nytimes.com/athletic/7030957/2026/02/10/tottenham-newcastle-premier-league-analysis-frank-howe/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7036752/2026/02/10/bad-bunny-super-bowl-halftime-su
 **The Everyday People Who Made Bad Bunny’s Halftime Authentic**\
 `A priest from Sacramento. A bar owner from New York. A taquero from Los Angeles. Puerto Rico came alive at the Super Bowl because of hundreds of non-famous performers.`\
 https://nytimes.com/2026/02/10/arts/music/bad-bunny-super-bowl-show-everyday-people.html
-
-**Seven People Died at Private Homes in N.Y.C. Cold Snap, Officials Say**\
-`It was not immediately clear whether any of the buildings in question had faulty heating systems.`\
-https://nytimes.com/2026/02/10/nyregion/nyc-cold-snap-deaths.html
-
-**Barcelona's Araujo took football break after experiencing anxiety, depression**\
-`Araujo, 26, was granted indefinite leave by Barcelona at the beginning of December.`\
-https://nytimes.com/athletic/7036887/2026/02/10/ronald-araujo-barcelona-anxiety-depression/
 
