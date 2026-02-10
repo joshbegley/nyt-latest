@@ -1,3 +1,19 @@
+**Serie A Briefing: How Federico Dimarco became football's perfect 'fifth'**\
+`Inter star pilloried after their Champions League final trouncing by Paris Sant-Germain in May is showing his true worth now`\
+https://nytimes.com/athletic/7035346/2026/02/10/federico-dimarco-inter-milan/
+
+**An Olympian Quest in Milan: Glimpsing a K-Pop Superstar**\
+`Celebrities abound at the Winter Games. For fans, seeing one up close can be its own grueling competition.`\
+https://nytimes.com/2026/02/10/world/europe/sunghoon-milan-winter-olympics.html
+
+**Is Ohio State ready for a tougher schedule amid roster changes? What we've learned for 2026**\
+`Thoughts on where Ohio State stands after a busy January in the portal and coaching carousel following an early CFP exit.`\
+https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coaches-roster-2026/
+
+**Mercedes' Kimi Antonelli unhurt after car crash in San Marino**\
+`The 19-year-old is expected to still take part in the second round of preseason testing this week ahead of the 2026 F1 season.`\
+https://nytimes.com/athletic/7035603/2026/02/10/kimi-antonelli-crash-san-marino-f1/
+
 **Former soccer agent Jonathan Barnett denies 'sex slave' accusations**\
 `Barnett, 76, also wants the complaint against him in the United States dismissed.`\
 https://nytimes.com/athletic/7035483/2026/02/10/jonathan-barnett-case-deny-accusations/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7027948/2026/02/10/miles-teodecki-penn-qb-college-f
 **49ers mailbag: How will new coordinator Raheem Morris change the defense?**\
 `Among this week's questions: Is Oregon tight end Kenyon Sadiq a target in the draft, and which free agents make sense for San Francisco?`\
 https://nytimes.com/athletic/7034978/2026/02/10/49ers-defensive-coordinator-raheem-morris-mailbag/
-
-**What's the playoff cut line? Who are Detroit's ideal matchups? Mailbag**\
-`Plus: What's the future of the Red Wings' net, from a potential John Gibson extension to Trey Augustine's next move?`\
-https://nytimes.com/athletic/7031152/2026/02/10/detroit-red-wings-playoff-chances-opponents-mailbag/
-
-**Three burning questions facing the 2026 Tigers ahead of spring training**\
-`Can pitching, prospects and Riley Greene help lead the Tigers to their first AL Central title since 2014?`\
-https://nytimes.com/athletic/7034077/2026/02/10/tigers-spring-training-preview-skubal-valdez-mcgonigle-greene/
-
-**So you didn’t get 2026 World Cup tickets in FIFA’s lottery. What now?**\
-`Successful applicants have been notified that they'll be attending the World Cup, but all hope isn't lost for those who didn't get picked`\
-https://nytimes.com/athletic/7034956/2026/02/10/2026-fifa-world-cup-tickets-lottery-options/
-
-**What I'm hearing about the Penguins: Sergei Murashov, Avery Hayes, NHL trade deadline**\
-`Some enticing Penguins prospects are getting closer to being full-time NHL players.`\
-https://nytimes.com/athletic/7030258/2026/02/10/penguins-nhl-trade-deadline-murashov-hayes/
 

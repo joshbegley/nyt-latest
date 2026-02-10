@@ -1,3 +1,19 @@
+**Serie A Briefing: How Federico Dimarco became football's perfect 'fifth'**\
+`Inter star pilloried after their Champions League final trouncing by Paris Sant-Germain in May is showing his true worth now`\
+https://nytimes.com/athletic/7035346/2026/02/10/federico-dimarco-inter-milan/
+
+**An Olympian Quest in Milan: Glimpsing a K-Pop Superstar**\
+`Celebrities abound at the Winter Games. For fans, seeing one up close can be its own grueling competition.`\
+https://nytimes.com/2026/02/10/world/europe/sunghoon-milan-winter-olympics.html
+
+**Is Ohio State ready for a tougher schedule amid roster changes? What we've learned for 2026**\
+`Thoughts on where Ohio State stands after a busy January in the portal and coaching carousel following an early CFP exit.`\
+https://nytimes.com/athletic/7033725/2026/02/10/ohio-state-football-schedule-coaches-roster-2026/
+
+**Mercedes' Kimi Antonelli unhurt after car crash in San Marino**\
+`The 19-year-old is expected to still take part in the second round of preseason testing this week ahead of the 2026 F1 season.`\
+https://nytimes.com/athletic/7035603/2026/02/10/kimi-antonelli-crash-san-marino-f1/
+
 **Former soccer agent Jonathan Barnett denies 'sex slave' accusations**\
 `Barnett, 76, also wants the complaint against him in the United States dismissed.`\
 https://nytimes.com/athletic/7035483/2026/02/10/jonathan-barnett-case-deny-accusations/
