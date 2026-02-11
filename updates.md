@@ -1,3 +1,15 @@
+**‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
+`In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
+https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
+
+**Super Bowl LX draws 124.9 million viewers, Bad Bunny 128.2 million**\
+`The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
+https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
+
+**Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
+`Video from a camera sold by Google probably sat in one of its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
+https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
+
 **Super Bowl LX draws 124.9 million viewers, down slightly from 2025**\
 `The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
 https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/

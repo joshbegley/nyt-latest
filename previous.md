@@ -1,4 +1,8 @@
-**Super Bowl LX draws 124.9 million viewers, down slightly from 2025**\
+**‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
+`In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
+https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
+
+**Super Bowl LX draws 124.9 million viewers, Bad Bunny 128.2 million**\
 `The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
 https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
 
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-b
 https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
 
 **Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
-`Video from a camera sold by Google probably sat in one of the its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
+`Video from a camera sold by Google probably sat in one of its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
 https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
 
 **Baboon Sibling Rivalry Suggests Monkeys Feel Jealousy Like People**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7037167/2026/02/10/maxim-naumov-voice-reason-olympi
 **Man Is Charged in 2021 Acid Attack Against Woman on Long Island**\
 `Terrell Campbell, 29, was charged with assaulting Nafiah Ikram outside her home. Mr. Campbell later described the assault in a rap lyric, prosecutors said.`\
 https://nytimes.com/2026/02/10/nyregion/acid-attack-long-island-charges.html
-
-**Six former Pitt players sue, alleging abusive coaching methods**\
-`Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
-https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
 
