@@ -1,5 +1,17 @@
+**N.Y.P.D. Officer Is Charged With Assault and Misconduct Over 2 Episodes**\
+`Police Officer Quran McPhatter slapped a handcuffed prisoner and threatened a man who complained about the officer’s driving, prosecutors said.`\
+https://nytimes.com/2026/02/10/nyregion/nypd-officer-charges-assault.html
+
+**Guatemala to Phase Out Use of Cuban Doctors Amid U.S. Pressure**\
+`The program, nearly 30 years old, had allowed Cuban medical workers to fill critical needs in Guatemala, while reaping income for Cuba.`\
+https://nytimes.com/2026/02/10/world/americas/guatemala-cuba-doctors.html
+
+**Grand Jury Rebuffs Justice Dept. Attempt to Indict 6 Democrats in Congress**\
+`The rejection was a remarkable rebuke, suggesting that ordinary citizens did not believe that the lawmakers had committed any crimes.`\
+https://nytimes.com/2026/02/10/us/politics/trump-democrats-illegal-orders-pirro.html
+
 **Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
-`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC. `\
+`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC.`\
 https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
 
 **Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
 **Baboon Sibling Rivalry Suggests Monkeys Feel Jealousy Like People**\
 `Young primates in a southern African nature park were observed to constantly interfere when their mother was giving attention to a younger brother or sister.`\
 https://nytimes.com/2026/02/10/science/jealousy-siblings-baboons-monkeys.html
-
-**George Saunders on Why the Right Is ‘on Autopilot’**\
-`The writer George Saunders is deeply attuned to the contradictions in people. On “The Ezra Klein Show,” he speculates about why many Trump supporters accept the incoherence that often exists between the president’s messaging and his administration’s actions.`\
-https://nytimes.com/video/opinion/100000010695803/george-saunders-on-why-the-right-is-on-autopilot.html
-
-**The 44 Seconds of Video That Show the Guthrie Abduction Suspect**\
-`The footage provided the first glimpse of a suspect in the kidnapping of Nancy Guthrie, the mother of the television host Savannah Guthrie who has been missing for 10 days.`\
-https://nytimes.com/2026/02/10/us/guthrie-doorbell-camera-video.html
-
-**Rory McIlroy says Players Championship does not need to be a fifth major**\
-`McIlroy talked about leaving the Players Championship alone, two days before he defends his AT&T Pebble Beach Pro-Am title.`\
-https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
 

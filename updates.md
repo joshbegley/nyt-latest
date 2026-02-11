@@ -1,3 +1,19 @@
+**N.Y.P.D. Officer Is Charged With Assault and Misconduct Over 2 Episodes**\
+`Police Officer Quran McPhatter slapped a handcuffed prisoner and threatened a man who complained about the officer’s driving, prosecutors said.`\
+https://nytimes.com/2026/02/10/nyregion/nypd-officer-charges-assault.html
+
+**Guatemala to Phase Out Use of Cuban Doctors Amid U.S. Pressure**\
+`The program, nearly 30 years old, had allowed Cuban medical workers to fill critical needs in Guatemala, while reaping income for Cuba.`\
+https://nytimes.com/2026/02/10/world/americas/guatemala-cuba-doctors.html
+
+**Grand Jury Rebuffs Justice Dept. Attempt to Indict 6 Democrats in Congress**\
+`The rejection was a remarkable rebuke, suggesting that ordinary citizens did not believe that the lawmakers had committed any crimes.`\
+https://nytimes.com/2026/02/10/us/politics/trump-democrats-illegal-orders-pirro.html
+
+**Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
+`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC.`\
+https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
+
 **Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
 `With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC. `\
 https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
