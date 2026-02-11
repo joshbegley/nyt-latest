@@ -1,3 +1,7 @@
+**Still there, still loved: Witnessing Howe's vital night of release with Newcastle's away end**\
+`Eddie Howe has been questioned by many people including himself after an awful run. But the die-hard travellers were staying loyal at Spurs`\
+https://nytimes.com/athletic/7037758/2026/02/11/eddie-howe-newcastle-united-release/
+
 **Canada Shooting at High School and Home Leaves Several Dead**\
 `Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
 https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
 **Where A-Listers and Newcomers Shine Equally**\
 `At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
 https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html
-
-**New York City Turned 400 Years Old. What Comes Next?**\
-`A Times project commemorated centuries of history not by looking into the past, but by exploring the city’s future.`\
-https://nytimes.com/2026/02/11/insider/future-new-york.html
 
