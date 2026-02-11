@@ -1,3 +1,19 @@
+**Astros closer Josh Hader's status for Opening Day uncertain after biceps inflammation**\
+`Hader's potential absence to start the season could be mitigated by the Astros' offseason spending spree on pitching.`\
+https://nytimes.com/athletic/7038741/2026/02/11/astros-josh-hader-injury-biceps-opening-day/
+
+**ESPN launches 'Year of the Super Bowl' to count down to February 2027**\
+`More than 365 days in advance, ESPN is basically starting its Super Bowl pregame show now with its &#8220;Year of the Super Bowl&#8221; that will include expanded NFL programming; as well as expanded promotion throughout the Disney empire.`\
+https://nytimes.com/athletic/7037450/2026/02/11/espn-super-bowl-2027/
+
+**Here’s the latest.**\
+`By Matina Stevis-Gridneff`\
+https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/heres-the-latest
+
+**Live Updates: Deadly Mass Shooting in Canada Leaves Questions About Suspect**\
+`Nine people were fatally shot at a school and a home in Tumbler Ridge, a remote community in British Columbia. The police said the shooter died of a self-inflicted injury.`\
+https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge
+
 **Olympic organizers offer to repair broken medals, recall other medals**\
 `While Olympic organizers have offered to fix broken medals, some who experienced issues early in the Games were instead given replacements. `\
 https://nytimes.com/athletic/7038500/2026/02/11/broken-olympics-medals-repair-original-breezy-johnson/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7033033/2026/02/11/utah-jazz-tanking-nba-victor-wem
 **Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
 `The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid told a newspaper it will be "hard to forgive" his infidelity.  `\
 https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
-
-**At Winter Olympics, drone cameras are pushing limits for viewers — and athletes**\
-`Drones chasing behind athletes has illuminated these Winter Olympic sports like never before, though not without their downsides.`\
-https://nytimes.com/athletic/7038436/2026/02/11/winter-olympics-drone-cameras-nbc-obs/
-
-**How did Team USA's dominant win against Canada shift the women's hockey gold medal odds?**\
-`The American women blasted past Canada 5-0 in a game that set multiple Olympic firsts. Team USA is now the clear gold medal favorite.`\
-https://nytimes.com/athletic/7037267/2026/02/11/olympics-womens-hockey-gold-medal-odds-usa-canada/
-
-**Premier League title race update: Arsenal and Manchester City face midweek tests**\
-`The three main Premier League title protagonists are in action on Wednesday night`\
-https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update-city-arsenal-tests/
-
-**Team USA wins gold and silver in women's freestyle skiing moguls**\
-`Lemley and Jaelin Kauf's achievements make this the best performance for Team USA in the event's history`\
-https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
 
