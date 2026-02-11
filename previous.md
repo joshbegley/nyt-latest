@@ -1,3 +1,7 @@
+**Blended officiating will be on full display as NHL players return to Olympics**\
+`Without much fanfare, the NHL and IIHF have spent the last five years or so diligently narrowing the gap between rulebooks.`\
+https://nytimes.com/athletic/7036495/2026/02/11/nhl-olympic-hockey-officiating-rules/
+
 **Alex Sarr film study: How the Wizards are developing their unique big man**\
 `As the NBA has transformed into a game of pace and space, the Wizards' second-year big man is learning how to use his precocious skills.`\
 https://nytimes.com/athletic/7034033/2026/02/11/alex-sarr-wizards-film-breakdown-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7037599/2026/02/11/bengals-mock-draft-2026-defense/
 **Irish mailbag: How real is the ACC exit? What's the plan for Notre Dame hoops and hockey?**\
 `Plus, how many first-round picks will Notre Dame have in the 2027 NFL Draft and how concerning is the QB depth behind CJ Carr?`\
 https://nytimes.com/athletic/7036915/2026/02/11/notre-dame-basketball-hockey-acc-mailbag/
-
-**Women's volleyball is booming in the U.S. But can 2 pro leagues find common ground?**\
-`"I think this is a defining moment," former Nebraska coach John Cook said. "There’s a golden opportunity for volleyball to take off."`\
-https://nytimes.com/athletic/7037029/2026/02/11/womens-pro-volleyball-mlv-lovb/
 

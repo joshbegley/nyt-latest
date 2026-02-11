@@ -1,3 +1,7 @@
+**Blended officiating will be on full display as NHL players return to Olympics**\
+`Without much fanfare, the NHL and IIHF have spent the last five years or so diligently narrowing the gap between rulebooks.`\
+https://nytimes.com/athletic/7036495/2026/02/11/nhl-olympic-hockey-officiating-rules/
+
 **Alex Sarr film study: How the Wizards are developing their unique big man**\
 `As the NBA has transformed into a game of pace and space, the Wizards' second-year big man is learning how to use his precocious skills.`\
 https://nytimes.com/athletic/7034033/2026/02/11/alex-sarr-wizards-film-breakdown-highlights/
