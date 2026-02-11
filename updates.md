@@ -1,3 +1,7 @@
+**Olympic organizers offer to repair broken medals, recall other medals**\
+`While Olympic organizers have offered to fix broken medals, some who experienced issues early in the Games were instead given replacements. `\
+https://nytimes.com/athletic/7038500/2026/02/11/broken-olympics-medals-repair-original-breezy-johnson/
+
 **Giants to hire former Titans head coach Brian Callahan as QBs coach: Sources**\
 `Callahan was also the Bengals' offensive coordinator for five seasons.`\
 https://nytimes.com/athletic/7038577/2026/02/11/brian-callahan-new-york-giants/
