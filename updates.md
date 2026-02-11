@@ -1,3 +1,11 @@
+**OpenAI’s Biggest Challenge Is Turning Its A.I. Into a Cash Machine**\
+`The maker of ChatGPT hopes to triple its revenue in the coming year because it is planning to spend tens of billions of dollars. The clock is ticking.`\
+https://nytimes.com/2026/02/11/technology/openai-revenue-challenge.html
+
+**A Fresh Take on a Retro Classic**\
+`My vegetarian tamale pie loses the meat but keeps the cornbread-blanketed comfort.`\
+https://nytimes.com/2026/02/11/dining/a-fresh-take-on-a-retro-classic.html
+
 **Nine People Killed in Mass Shooting in British Columbia, Canada**\
 `Nine people were killed and 25 others were injured in the third-deadliest shooting in Canada’s history. The police said the person believed to be the shooter was found dead.`\
 https://nytimes.com/video/world/americas/100000010705110/school-shooting-tumbler-ridge-canada.html
