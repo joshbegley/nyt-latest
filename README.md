@@ -1,3 +1,15 @@
+**How to watch Colorado vs. Texas Tech men's basketball: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039611/2026/02/11/colorado-vs-texas-tech-stream-how-to-watch-feb-11/
+
+**How to watch Michigan vs. Northwestern men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039606/2026/02/11/michigan-vs-northwestern-stream-how-to-watch-feb-11/
+
+**How to watch Washington vs. Iowa women's basketball: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039604/2026/02/11/washington-vs-iowa-stream-how-to-watch-feb-11/
+
 **How to watch UConn vs. Butler men's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7039601/2026/02/11/uconn-vs-butler-stream-how-to-watch-feb-11/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
 **New Mexico Rebukes Federal Agency Over Nuclear Waste at Los Alamos**\
 `State environmental regulators will also fine the Energy Department up to $16 million for exceeding safe groundwater standards near the nuclear lab.`\
 https://nytimes.com/2026/02/11/us/new-mexico-los-alamos-nuclear-waste-fines.html
-
-**L.A. 2028 Olympic Organizers Stand By Chairman Linked to Epstein**\
-`Casey Wasserman exchanged flirtatious messages more than two decades ago with Ghislaine Maxwell, the longtime companion of Jeffrey Epstein. The 2028 board said its review found no other indiscretions related to Mr. Epstein.`\
-https://nytimes.com/2026/02/11/us/wasserman-epstein-la-olympics-2028.html
-
-**James Van Der Beek, Teenage Heartthrob of ‘Dawson’s Creek,’ Dies at 48**\
-`He first appeared in a hit TV drama as a wide-eyed 15-year-old who then grew up over six seasons. He announced he had cancer in 2024.`\
-https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dead.html
-
-**Defiant Seahawks celebrate Super Bowl: 'A lot of people didn't believe'**\
-`Three days after claiming the second Lombardi Trophy in franchise history, the Seahawks relished in victory and taunted their doubters.`\
-https://nytimes.com/athletic/7039290/2026/02/11/seahawks-super-bowl-parade-celebration/
 

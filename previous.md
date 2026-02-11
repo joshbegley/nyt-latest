@@ -1,3 +1,23 @@
+**How to watch UConn vs. Butler men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039601/2026/02/11/uconn-vs-butler-stream-how-to-watch-feb-11/
+
+**How to watch UCLA vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039599/2026/02/11/ucla-vs-michigan-state-stream-how-to-watch-feb-11/
+
+**WNBA's Rickea Jackson offers to testify vs. Falcons rookie James Pearce in domestic case**\
+`The Falcons' rookie edge rusher is facing five felony charges, including aggravated battery with a deadly weapon and aggravated stalking.`\
+https://nytimes.com/athletic/7039157/2026/02/11/james-pearce-rickea-jackson-domestic-violence-charges/
+
+**USA Basketball announces roster for 2026 FIBA Women’s World Cup qualifier**\
+`Four members from the 2024 Olympic team are returning, and Caitlin Clark, Paige Bueckers and Angel Reese will make their senior team debuts.`\
+https://nytimes.com/athletic/7039043/2026/02/11/usa-basketball-roster-coaches-fiba-world-cup/
+
+**Brewers reunite with catcher Gary Sánchez on 1-year deal: Source**\
+`The former Yankees All-Star will likely reprise his role as backup to William Contreras.`\
+https://nytimes.com/athletic/6783763/2026/02/11/mlb-gary-sanchez-free-agency-signing-brewers/
+
 **The People vs. the Plutocrats**\
 `The fight over inequality will define the 21st century.`\
 https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dead.html
 **Defiant Seahawks celebrate Super Bowl: 'A lot of people didn't believe'**\
 `Three days after claiming the second Lombardi Trophy in franchise history, the Seahawks relished in victory and taunted their doubters.`\
 https://nytimes.com/athletic/7039290/2026/02/11/seahawks-super-bowl-parade-celebration/
-
-**Man Accused of Murdering His Father Once Sought to Kill Stranger’s Baby**\
-`Henry McGowan of New York is on trial for murder in Ireland and has pleaded not guilty by reason of insanity. Prosecutors outlined a previous psychotic break.`\
-https://nytimes.com/2026/02/11/nyregion/henry-mcgowan-ireland-murder-trial.html
-
-**U.K. Police Say They Have Spoken to Prosecutors Over Former Prince Andrew**\
-`The police are weighing whether to formally investigate Andrew Mountbatten-Windsor over accusations he shared confidential information with Jeffrey Epstein.`\
-https://nytimes.com/2026/02/11/world/europe/epstein-prince-andrew-uk-investigation.html
-
-**Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
-`"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
-https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
-
-**Mamdani Wants to Test Free Bus Service During World Cup**\
-`The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
-https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
-
-**Jordan Stolz hits another gear to break an Olympic record.**\
-`Stolz put an end to Dutch dominance in the men’s sport, cruising to his first Olympic gold medal.`\
-https://nytimes.com/2026/02/11/world/jordan-stolz-hits-another-gear-to-set-an-olympic-record.html
 
