@@ -1,3 +1,7 @@
+**Ilia Malinin is nearing Olympic gold. Meet who taught him the quadruple axel**\
+`Inspired by Rafael Arutyunyan's famed anti-coddling approach, the U.S. superstar is one skate from glory.`\
+https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-skating-coach-rafael-arutyunyan/
+
 **Rashford misses Barca's Copa del Rey semi-final with knee injury - Flick**\
 `The Catalan side are also set to miss fellow winger Raphinha who is still struggling with a muscle issue.`\
 https://nytimes.com/athletic/7038444/2026/02/11/rashford-barcelona-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/world/canada/canada-shooting-tumbler-ridge-britis
 **Trump Administration Live Updates: Bondi Expected to Face Bipartisan Questioning at Hearing**\
 ``\
 https://nytimes.com/live/2026/02/11/us/trump-news
-
-**Austria working on Chukwuemeka allegiance switch before World Cup**\
-`Chukwuemeka, born in Austria to Nigerian presents, moved to England at a young age and represented the country up to under-20 level.`\
-https://nytimes.com/athletic/7038382/2026/02/11/chukwuemeka-austria-world-cup/
 

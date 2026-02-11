@@ -1,3 +1,11 @@
+**Rashford misses Barca's Copa del Rey semi-final with knee injury - Flick**\
+`The Catalan side are also set to miss fellow winger Raphinha who is still struggling with a muscle issue.`\
+https://nytimes.com/athletic/7038444/2026/02/11/rashford-barcelona-injury-news/
+
+**Iran Commemorates Revolution, With U.S. Warships Lurking Off the Coast**\
+`The authoritarian clerical regime in Tehran came to power in 1979. Today, it presides over a country that is deeply polarized and under threat of an American attack.`\
+https://nytimes.com/2026/02/11/world/europe/iran-revolution-anniversary.html
+
 **Nearly 8 months after a quadruple bypass, Ron Washington is back on the field with the Giants**\
 `The recovering 73-year-old is still 'Wash,' teaching, gesturing, cussing, squeezing every ounce out of every baseball day.`\
 https://nytimes.com/athletic/7038420/2026/02/11/ron-washington-giants-angels-quadruple-bypass/
