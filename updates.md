@@ -1,3 +1,7 @@
+**ICE says it will play 'key part' in 2026 World Cup security**\
+`Todd Lyons, ICE’s acting director, was responding to a question from Democrat Nellie Pou before a panel in the House of Representatives.`\
+https://nytimes.com/athletic/7038337/2026/02/11/world-cup-usa-ice-security/
+
 **Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
 `Swiss star Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G. `\
 https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
