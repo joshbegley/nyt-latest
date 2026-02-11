@@ -1,4 +1,28 @@
-**Epstein Files Include Grainy Videos From His Florida Home**\
+**ICE in America: Dread and Danger**\
+`Readers describe the agency’s disturbing effects on children and detained immigrants.`\
+https://nytimes.com/2026/02/11/opinion/letters/ice-immigrants-children.html
+
+**Iran Holds Mass Rallies For Revolution Anniversary**\
+`The Iranian government has commemorated the anniversary of the revolution that brought the current regime into power with a show of defiance during precarious nuclear negotiations with Washington.`\
+https://nytimes.com/video/world/asia/100000010705101/iran-revolution-anniversary-rallies.html
+
+**Why do Michael Carrick's Man United play better when they have less possession?**\
+`United can win big as the underdog, but their ceiling is limited by an uneasy tactical fit when they have more of the ball`\
+https://nytimes.com/athletic/7038256/2026/02/11/manchester-united-michael-carrick-tactics-sesko-mbeumo/
+
+**Ukrainian FA chief Shevchenko looking to discuss Russia comments with Infantino**\
+`The FIFA president spoke out against banning Russia and Israel from international football earlier this month.`\
+https://nytimes.com/athletic/7038836/2026/02/11/andriy-shevchenko-ukraine-fifa-gianni-infantino-russia/
+
+**What to Watch After Watching Marc Jacobs**\
+`A ’90s-tinged fashion show has our critic thinking about an underappreciated ’90s movie.`\
+https://nytimes.com/2026/02/11/style/marc-jacobs-90s-clockwatchers.html
+
+**Can I Cut Ties With a Friend Who Helped Me Through a Hard Time?**\
+`As I recovered from my heartbreak, I started to notice he had some views that I couldn’t disagree with more.`\
+https://nytimes.com/2026/02/11/magazine/friend-cut-ties-ethics.html
+
+**Epstein Files Include Grainy Videos From Inside His Florida Home**\
 `The clips from Jeffrey Epstein’s home office appear to show him with young women.`\
 https://nytimes.com/2026/02/11/us/epstein-files-videos.html
 
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010701285/why-irans-nuclear-pro
 **When Grief Came for the Gravedigger**\
 `In pursuit of an interesting life, he came face to face with death.`\
 https://nytimes.com/2026/02/11/magazine/hurricane-helene-asheville-north-carolina-grief.html
-
-**Isaiah Stewart suspended 7 games, 3 others punished for roles in Pistons-Hornets fight**\
-`The punishment marks Stewart's fifth suspension in six years in the NBA.`\
-https://nytimes.com/athletic/7035969/2026/02/11/pistons-hornets-suspensions-fight-isaiah-stewart/
-
-**How to watch Hawks vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Atlanta Hawks play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7038907/2026/02/11/hawks-vs-hornets-stream-how-to-watch-feb-11/
-
-**How to watch Bucks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7038903/2026/02/11/bucks-vs-magic-stream-how-to-watch-feb-11/
-
-**How to watch Wizards vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7038900/2026/02/11/wizards-vs-cavaliers-stream-how-to-watch-feb-11/
-
-**D-Backs Corbin Carroll, O's Jackson Holliday each set for surgery for broken bone in hand**\
-`The Mets' Francisco Lindor is also experiencing a hamate bone issue that may require surgery.`\
-https://nytimes.com/athletic/7038794/2026/02/11/mlb-jackson-holliday-corbin-carroll-hamate-bone/
-
-**The Key to This Sci-Fi Tale: ‘Respecting Kids’ Intelligence’**\
-`The Oscar-nominated “Arco” aims to give viewers of all ages hope in the possibility of a brighter tomorrow.`\
-https://nytimes.com/2026/02/11/arts/arco-film-ugo-bienvenu.html
 
