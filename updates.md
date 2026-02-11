@@ -1,3 +1,7 @@
+**How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
+`summary`\
+https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html
+
 **Ken Peplowski, Who Helped Revive Jazz Clarinet, Dies at 66**\
 `Also a saxophone standout, he served as stylistic bridge between the Benny Goodman swing era and the genre-blurring present.`\
 https://nytimes.com/2026/02/11/arts/music/ken-peplowski-dead.html
