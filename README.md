@@ -1,3 +1,7 @@
+**At one tennis event, the ball is the villain: 'It is not normal to play with these'**\
+`Arthur Fils and Alex de Minaur have echoed Daniil Medvedev's criticisms of the Head Tour XT balls at the ATP 500 event in the Netherlands.`\
+https://nytimes.com/athletic/7038183/2026/02/11/tennis-balls-player-complaints-rotterdam-open/
+
 **How to watch Chloe Kim try to make history with a third straight gold**\
 `Snowboarding legend Chloe Kim aims to shrug off a recent injury as she pursues her third consecutive Olympic gold medal.`\
 https://nytimes.com/athletic/7037311/2026/02/11/chloe-kim-winter-olympics-how-to-watch-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/learning/broadway-re-enactments.html
 **When It’s Finally Cold Enough to Race Ice Yachts**\
 `On the Navesink River, a long and frigid winter has allowed a 135-year-old rivalry to be renewed.`\
 https://nytimes.com/2026/02/11/nyregion/ice-yachting-race-navesink-river.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/11/crosswords/spelling-bee-forum.html
 
