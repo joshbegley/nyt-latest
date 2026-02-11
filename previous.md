@@ -1,3 +1,11 @@
+**‘I will know every victim,’ says mayor of close-knit Tumbler Ridge.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/i-will-know-every-victim-says-mayor-of-close-knit-tumbler-ridge
+
+**Has age caught up with Jose Altuve? Fantasy baseball second base rundown**\
+`Eno Sarris and Derek VanRiper preview second base ahead of the 2026 fantasy baseball season. `\
+https://nytimes.com/athletic/6994025/2026/02/11/fantasy-baseball-second-base-preview-jose-altuve/
+
 **Pebble Beach Pro-Am odds, picks: Scheffler is a big favorite as McIlroy defends title**\
 `Dennis Esser breaks down his betting picks and daily fantasy plays for the AT&T Pebble Beach Pro-Am.`\
 https://nytimes.com/athletic/7036715/2026/02/11/2026-pebble-beach-pro-am-odds-dfs-picks-scheffler-mcilroy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7035810/2026/02/11/olympics-mens-hockey-former-nhl-
 **Can Team USA win Olympic gold in hockey? Canada enters as the favorite**\
 `Team USA is bringing one of its best teams to the Olympics ever, but Canada is still favored to win gold in men's hockey.`\
 https://nytimes.com/athletic/7036301/2026/02/11/olympic-mens-hockey-odds-canada-team-usa/
-
-**One thought on every New York Giants offensive player ahead of free agency**\
-`Assessing 32 of John Harbaugh's new players, from Jaxson Dart to Bryan Hudson.`\
-https://nytimes.com/athletic/7037227/2026/02/11/new-york-giants-offensive-roster/
-
-**Browns mock draft: Improving wide receiver, offensive line groups in Round 1**\
-`In our first  Cleveland mock draft, the team beefs up its offensive line and finds playmaking help for whoever starts at QB in 2026. `\
-https://nytimes.com/athletic/7037306/2026/02/11/browns-2026-nfl-mock-draft/
 

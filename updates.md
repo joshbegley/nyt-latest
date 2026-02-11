@@ -1,3 +1,11 @@
+**‘I will know every victim,’ says mayor of close-knit Tumbler Ridge.**\
+`By Lynsey Chutel`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/i-will-know-every-victim-says-mayor-of-close-knit-tumbler-ridge
+
+**Has age caught up with Jose Altuve? Fantasy baseball second base rundown**\
+`Eno Sarris and Derek VanRiper preview second base ahead of the 2026 fantasy baseball season. `\
+https://nytimes.com/athletic/6994025/2026/02/11/fantasy-baseball-second-base-preview-jose-altuve/
+
 **Pebble Beach Pro-Am odds, picks: Scheffler is a big favorite as McIlroy defends title**\
 `Dennis Esser breaks down his betting picks and daily fantasy plays for the AT&T Pebble Beach Pro-Am.`\
 https://nytimes.com/athletic/7036715/2026/02/11/2026-pebble-beach-pro-am-odds-dfs-picks-scheffler-mcilroy/
