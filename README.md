@@ -1,3 +1,7 @@
+**L.A. 2028 Olympic Organizers Stand By Chairman Linked to Epstein**\
+`Casey Wasserman exchanged flirtatious messages more than two decades ago with Ghislaine Maxwell, the longtime companion of Jeffrey Epstein. The 2028 board said its review found no other indiscretions related to Mr. Epstein.`\
+https://nytimes.com/2026/02/11/us/wasserman-epstein-la-olympics-2028.html
+
 **James Van Der Beek, Teenage Heartthrob of ‘Dawson’s Creek,’ Dies at 48**\
 `He first appeared in a hit TV drama as a wide-eyed 15-year-old who then grew up over six seasons. He announced he had cancer in 2024.`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039304/2026/02/11/charlie-mcavoy-olympics-diary-us
 **Biathlon's wild Olympic start: Infidelity, credit card fraud and medal reallocations**\
 `One biathlete admitted infidelity. Another won gold months after stealing her teammate's credit card. It's been a week at Olympic biathlon.`\
 https://nytimes.com/athletic/7038971/2026/02/11/olympics-biathlon-norwegian-infidelity-fraud-medals/
-
-**What’s in Our Queue? ‘Foxes in the Snow’ and More**\
-`Text by Dana Rubinstein`\
-https://nytimes.com/card/2026/02/11/arts/editors-recommendations-isbell
 
