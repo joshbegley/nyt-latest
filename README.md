@@ -1,3 +1,15 @@
+**What to know about the better-than-expected report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2026/02/11/business/jobs-report-economy/what-to-know-about-the-better-than-expected-report
+
+**Democrats Push for Transparency on Venezuelan Oil Money Controlled by U.S.**\
+`Lawmakers say the Trump administration’s secrecy around the funds parked in an overseas bank could lead to corruption, and that the arrangement skirts congressional oversight and the law.`\
+https://nytimes.com/2026/02/11/us/venezuela-oil-money-democrats-congress.html
+
+**U.S. Officials Have Warned About Cartel Drones at the Border**\
+`U.S. officials say they have seized thousands of pounds of drugs flown in by drones over the border. Mexican officials have downplayed the threat.`\
+https://nytimes.com/2026/02/11/us/el-paso-airport-drones-mexico-cartel-drugs.html
+
 **ICE in America: Dread and Danger**\
 `Readers describe the agency’s disturbing effects on children and detained immigrants.`\
 https://nytimes.com/2026/02/11/opinion/letters/ice-immigrants-children.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/magazine/friend-cut-ties-ethics.html
 **Epstein Files Include Grainy Videos From Inside His Florida Home**\
 `The clips from Jeffrey Epstein’s home office appear to show him with young women.`\
 https://nytimes.com/2026/02/11/us/epstein-files-videos.html
-
-**Olympics' hottest prize: Mascots Tina and Milo toys sold out throughout Italy**\
-`The toys are being sold secondhand online for as much as $66 each, as of Wednesday.`\
-https://nytimes.com/athletic/7038864/2026/02/11/olympics-mascots-tina-milo-toys/
-
-**Why Iran’s Nuclear Program Isn’t the Only Threat**\
-`While talks with Iran have focused on its nuclear program, Israel’s greater immediate concern is Iran’s rebuilding of its ability to launch missiles at Israel, as it did during last year’s war. Our national security reporter Mark Mazzetti breaks down the latest intelligence.`\
-https://nytimes.com/video/world/middleeast/100000010701285/why-irans-nuclear-program-isnt-the-only-threat.html
-
-**When Grief Came for the Gravedigger**\
-`In pursuit of an interesting life, he came face to face with death.`\
-https://nytimes.com/2026/02/11/magazine/hurricane-helene-asheville-north-carolina-grief.html
 
