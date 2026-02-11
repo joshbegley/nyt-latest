@@ -1,3 +1,7 @@
+**Everton, the Hill Dickinson Stadium and a curious capacity for self-sabotage**\
+`Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
+https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
+
 **The warning signs are flashing for Tottenham – the ship is sinking and survival is at stake**\
 `Spurs have a decision to make about a head coach who has lost the faith of the fans, with the spectre of relegation hanging over the club`\
 https://nytimes.com/athletic/7038019/2026/02/11/tottenham-newcastle-thomas-frank-relegation/

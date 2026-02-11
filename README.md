@@ -1,3 +1,7 @@
+**Canada Shooting at High School and Home Leaves Several Dead**\
+`Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
+https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html
+
 **Everton, the Hill Dickinson Stadium and a curious capacity for self-sabotage**\
 `Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
 https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jac
 **New York City Turned 400 Years Old. What Comes Next?**\
 `A Times project commemorated centuries of history not by looking into the past, but by exploring the city’s future.`\
 https://nytimes.com/2026/02/11/insider/future-new-york.html
-
-**Liverpool and late goals: The causes, the consequences and a possible cure**\
-`Arne Slot's men are one away from setting a Premier League record for most added-time winners conceded in a season`\
-https://nytimes.com/athletic/7035735/2026/02/11/liverpool-late-goals/
 

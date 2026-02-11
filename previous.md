@@ -1,3 +1,7 @@
+**Everton, the Hill Dickinson Stadium and a curious capacity for self-sabotage**\
+`Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
+https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
+
 **The warning signs are flashing for Tottenham – the ship is sinking and survival is at stake**\
 `Spurs have a decision to make about a head coach who has lost the faith of the fans, with the spectre of relegation hanging over the club`\
 https://nytimes.com/athletic/7038019/2026/02/11/tottenham-newcastle-thomas-frank-relegation/
@@ -17,10 +21,6 @@ https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-l
 **Late Night Mines Trump’s Million Mentions in the Epstein Files**\
 `“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
-
-**Sesko is part sledgehammer, part subtlety. Is it time for him to start?**\
-`The 22-year-old has been a substitute in all of Michael Carrick's games in charge so far but he is making the case for a greater role`\
-https://nytimes.com/athletic/7036016/2026/02/11/benjamin-sesko-west-ham-goal/
 
 **The New York Times in Print for Wednesday, Feb. 11, 2026**\
 ``\
