@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Feb. 11, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
+
 **Where A-Listers and Newcomers Shine Equally**\
 `At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
 https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html

@@ -1,3 +1,7 @@
+**The New York Times in Print for Wednesday, Feb. 11, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
+
 **Where A-Listers and Newcomers Shine Equally**\
 `At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
 https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7032924/2026/02/11/coco-gauff-tennis-privacy-camera
 **Gianluigi Donnarumma makes another wonder save – but is he the goalkeeper Manchester City need?**\
 `The Italy goalkeeper's shot-stopping has been world class, but have his limitations with the ball at his feet hampered City this season?`\
 https://nytimes.com/athletic/7036114/2026/02/11/gianluigi-donnarumma-manchester-city-analysis/
-
-**Headed clearances are rising significantly - football should not ignore the health risks**\
-`It seemed like the direction of travel was to a sport where aerial duels would be contested less regularly – but that has not been the case`\
-https://nytimes.com/athletic/7035873/2026/02/11/headed-clearances-rise-football-danger-cte-premier-league/
 
