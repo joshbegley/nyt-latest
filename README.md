@@ -7,7 +7,7 @@ https://nytimes.com/2026/02/11/headway/infant-mortality-fell-for-decades-why-did
 https://nytimes.com/athletic/7038912/2026/02/11/panthers-darrell-bevell-dave-canales-coaching-staff/
 
 **Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
-`Phillips morphed into one of the game’s more dominant relievers with the Dodgers.`\
+`Phillips morphed into one of the game's more dominant relievers with the Dodgers.`\
 https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
 
 **States Weigh Bills to Allow You to Make Your Own Electricity**\
