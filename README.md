@@ -1,3 +1,11 @@
+**In pitch-rigging case, Guardians pitcher seeks to shift more blame onto teammate**\
+`A lawyer for pitcher Luis Ortiz characterized his client as a “victim” of his teammate, All-Star closer Emmanuel Clase.`\
+https://nytimes.com/athletic/7037727/2026/02/11/guardians-luis-ortiz-emmanuel-clase-gambling-case-update/
+
+**How Super Bowl announcer Alan Roach made it to the Milan Olympics in time for hockey**\
+`A PA announcer at every Colorado Avalanche and Minnesota Vikings home game, Roach is a familiar voice of the Super Bowl and Winter Olympics.`\
+https://nytimes.com/athletic/7040263/2026/02/11/alan-roach-super-bowl-announcer-olympics-hockey-milan/
+
 **In His Second Act, James Van Der Beek Starred Online as a Proud Papa**\
 `The actor, who died on Wednesday, was most famous for “Dawson’s Creek,” but as he got older, he let fans into his real life as a father of six.`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dad-kids.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/us/politics/democrats-michigan-senate-working-cla
 **Former Colombo Boss Is Going Back to Prison for Meeting With Mob Members**\
 `Theodore Persico Jr., once picked to lead one of New York’s five crime families, was supposed to stay away from his former associates. But he nonetheless attended a Christmas party in Brooklyn.`\
 https://nytimes.com/2026/02/11/nyregion/columbo-family-mafia-sentencing.html
-
-**Slot says he expects Liverpool's Endo to be out 'for quite a long time'**\
-`The 33-year-old was stretchered off the pitch after appearing to land awkwardly on his ankle in Liverpool's 1-0 win over Sunderland.`\
-https://nytimes.com/athletic/7039893/2026/02/11/wataru-endo-liverpool-injury/
-
-**Cardi B was on stage with Bad Bunny. Was she 'performing'? Prediction markets were divided**\
-`Prediction markets are clarifying what constitutes a "performance."`\
-https://nytimes.com/athletic/7038991/2026/02/11/cardi-b-halftime-show-betting-prediction-markets-controversy/
 
