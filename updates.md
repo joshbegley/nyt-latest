@@ -1,3 +1,7 @@
+**Angel Reese to join Unrivaled for remainder of season, reunite with Rose BC**\
+`Reese will join the Rose for their final three regular-season games.`\
+https://nytimes.com/athletic/7037012/2026/02/11/angel-reese-unrivaled-rose-sky/
+
 **What to know about every hitter in Dodgers spring camp**\
 `Freddie Freeman, Shohei Ohtani and other familiar names crowd this list, so which unsung players are most likely to break through in 2026?`\
 https://nytimes.com/athletic/7036051/2026/02/11/dodgers-roster-hitters-review/
