@@ -23,8 +23,8 @@ https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-prog
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
 
 **10 Dead in Shooting at School and Home in British Columbia**\
-`The Royal Canadian Mounted Police said the suspected shooter was among the dead and that 25 others had been wounded. A shelter-in-place order for the town of Tumbler Ridge was dropped.`\
-https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-ridge-school-shooting-canada
+`Police say the person believed to be the shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
 
 **Elon Musk Wants to Build an A.I. Satellite Factory on the Moon**\
 `In a meeting with employees at his company xAI, Mr. Musk revealed a vision for a facility that includes a giant catapult to launch his satellites into space.`\
