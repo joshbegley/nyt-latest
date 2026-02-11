@@ -1,40 +1,40 @@
-**Man Who Was Detained in Nancy Guthrie’s Disappearance Is Released**\
-`The release of the man was a blow to investigators, who have been trying for 11 days to determine who may have abducted Ms. Guthrie.`\
-https://nytimes.com/2026/02/11/us/nancy-guthrie-man-released-rio-rico-arizona.html
+**Bondi Expected to Face Scrutiny Over Release of Epstein Files**\
+`At a House Judiciary Committee hearing on Wednesday, Attorney General Pam Bondi could face bipartisan skepticism over her handling of the documents.`\
+https://nytimes.com/2026/02/11/us/politics/bondi-testimony-epstein-files.html
 
-**At one tennis event, the ball is the villain: 'It is not normal to play with these'**\
-`Arthur Fils and Alex de Minaur have echoed Daniil Medvedev's criticisms of the Head Tour XT balls at the ATP 500 event in the Netherlands.`\
-https://nytimes.com/athletic/7038183/2026/02/11/tennis-balls-player-complaints-rotterdam-open/
+**Iran’s Missile Program Tops Israel’s Concerns as Netanyahu Meets Trump**\
+`President Trump is focused on Iran’s nuclear program, but Prime Minister Benjamin Netanyahu sees a more immediate threat from Tehran’s rapid rebuilding of its ability to launch missiles at Israel.`\
+https://nytimes.com/2026/02/11/us/politics/irans-missile-program-tops-israels-concerns-as-netanyahu-meets-trump.html
 
-**How to watch Chloe Kim try to make history with a third straight gold**\
-`Snowboarding legend Chloe Kim aims to shrug off a recent injury as she pursues her third consecutive Olympic gold medal.`\
-https://nytimes.com/athletic/7037311/2026/02/11/chloe-kim-winter-olympics-how-to-watch-2026/
+**Epstein Revelations Stir Chaos From Scandinavia to South Asia**\
+`Disclosures in documents released by the Trump administration have roiled the world, leading to resignations and the threat of legal charges far beyond American borders.`\
+https://nytimes.com/2026/02/11/world/europe/epstein-files-global-chaos-resignations.html
 
-**Young Voters in Bangladesh Have Demands for Thursday’s Election**\
-`Young voters, many of whom participated in a student-led revolution that toppled the government in 2024, hope the election will result in a new direction for the nation.`\
-https://nytimes.com/video/world/asia/100000010704401/bangladesh-election-youth.html
+**What Love in Your Life Are You Grateful For?**\
+`Some people are spending Valentine’s Day honoring love in all its forms, not just romance. What meaningful relationships might you like to celebrate this year?`\
+https://nytimes.com/2026/02/11/learning/what-love-in-your-life-are-you-grateful-for.html
 
-**F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
-`No flights would be allowed to or from the airport for 10 days under a flight restriction order that cited unspecified “special security reasons.”`\
-https://nytimes.com/2026/02/11/us/faa-el-paso-flight-restrictions.html
+**Fired Former Trump Prosecutor to Run for Congress in Virginia as a Democrat**\
+`J.P. Cooney, a former top deputy to the special counsel Jack Smith, who led two prosecutions of President Trump, plans to seek election to a newly drawn district in Northern and Central Virginia.`\
+https://nytimes.com/2026/02/11/us/politics/cooney-trump-prosecutor-congress-virginia.html
 
-**‘An Uphill Struggle’: King Charles Is Not Giving Up on the Planet Yet**\
-`Environmentalism may have gone out of fashion on Wall Street and in the White House, but the British monarch says he remains deeply committed to the cause in a new documentary, ‘Finding Harmony’.`\
-https://nytimes.com/2026/02/11/world/europe/king-charles-harmony-documentary-climate.html
+**NATO Is Expected to Step Up Arctic Security. Here’s Why.**\
+`As Russia displays military might in the Arctic Circle, the Western alliance is preparing a mission to increase its presence in that area.`\
+https://nytimes.com/2026/02/11/world/europe/nato-arctic-russia-military.html
 
-**A Possible Upside of a Bitter N.Y.C. Winter? There Might Be Fewer Rats.**\
-`Rodent experts said the prolonged cold weather could kill some rats and cause others to have fewer babies, resulting in a smaller population in the spring.`\
-https://nytimes.com/2026/02/11/nyregion/rats-nyc-snow-cold.html
+**U.S. Brings Dozens of Foreign Military Chiefs to Washington**\
+`The rare gathering focused on the Western Hemisphere underscored potential implications of the Trump administration’s “Donroe Doctrine.”`\
+https://nytimes.com/2026/02/11/us/politics/us-caine-military-chiefs.html
 
-**Republicans Face Uphill Fight for N.Y. Governor: ‘We’re in Bad Shape’**\
-`Bruce Blakeman, the Republican nominee against Gov. Kathy Hochul, has shown he can win in the suburbs. But political winds are blowing in his face.`\
-https://nytimes.com/2026/02/11/nyregion/republicans-governor-blakeman-ny.html
+**We Have to Face What ICE Has Done to Us**\
+`Any serious push to account for the actions of this government must include recompense and repair for its victims.`\
+https://nytimes.com/2026/02/11/opinion/ice-victims-hearings-justice.html
 
-**Racing Boats Over a Frozen Lake, a Rivalry From the 1800s Continues**\
-`This year’s lengthy cold-snap formed thick enough ice on the Navesink River in New Jersey that two ice boat clubs were able to compete against each other in the Van Nostrand Challenge Cup. This was only the fourth time the race has been held in the competition’s nearly 140 year history.`\
-https://nytimes.com/video/us/100000010702551/ice-sailing-race-new-jersey.html
+**Murdaugh Takes Appeal of Murder Convictions to South Carolina’s Top Court**\
+`The appeal by Alex Murdaugh, once a well-connected member of a prominent family law firm, seeks to overturn his conviction in the murders of his wife and son.`\
+https://nytimes.com/2026/02/11/us/murdaugh-murder-supreme-court.html
 
-**Broadway Re-enactments**\
-`Are you a fan of musicals? What do you think of these viral videos?`\
-https://nytimes.com/2026/02/11/learning/broadway-re-enactments.html
+**A Sitting Room Where Every Object Tells a Story**\
+`Olive Ateliers co-founders Ben and Kendall Knox cranked up the charm in their Venice Beach bungalow.`\
+https://nytimes.com/2026/02/11/realestate/a-sitting-room-where-every-object-tells-a-story.html
 
