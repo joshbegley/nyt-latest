@@ -1,3 +1,7 @@
+**Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
+`The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid told a newspaper it will be "hard to forgive" his infidelity.  `\
+https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
+
 **Ralph Lauren’s Not-So-Gilded Age**\
 `The designer goes hunting in the fields of style past.`\
 https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-week.html
