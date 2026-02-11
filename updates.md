@@ -1,3 +1,11 @@
+**Luka Dončić, Dirk Nowitzki-backed group to buy Italian team with NBA Europe hopes: Sources**\
+`Two former Dallas Mavericks stars and a former GM are part of a group that plans to buy an Italian basketball team and move it to Rome.`\
+https://nytimes.com/athletic/7037888/2026/02/10/nba-europe-luka-doncic-donnie-nelson-italy/
+
+**Here’s what to know.**\
+`By Nicholas Bogel-Burroughs, Chelsia Rose Marcius and Jill Cowan`\
+https://nytimes.com/live/2026/02/10/us/nancy-guthrie-case-suspect-updates/heres-what-to-know
+
 **10 Dead and 25 Injured in Shootings at School and Home in British Columbia**\
 `Police say the suspected shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
 https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html

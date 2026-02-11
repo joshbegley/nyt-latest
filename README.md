@@ -1,3 +1,7 @@
+**Tumbler Ridge is a small, remote town surrounded by wilderness.**\
+`By Vjosa Isai and Yan Zhuang`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-ridge-is-a-small-remote-town-surrounded-by-wilderness
+
 **Luka Dončić, Dirk Nowitzki-backed group to buy Italian team with NBA Europe hopes: Sources**\
 `Two former Dallas Mavericks stars and a former GM are part of a group that plans to buy an Italian basketball team and move it to Rome.`\
 https://nytimes.com/athletic/7037888/2026/02/10/nba-europe-luka-doncic-donnie-nelson-italy/
@@ -18,8 +22,8 @@ https://nytimes.com/2026/02/10/crosswords/daily-puzzle-2026-02-11.html
 `One of the bill's sponsors says Iowa could offer the Bears “everything they need to build a world-class facility."`\
 https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/
 
-**Live Updates: 10 Dead and 25 Injured in Shooting at School and Home in Canada**\
-`The shooting occurred at a high school and residence in eastern British Columbia, according to the Royal Canadian Mounted Police, which said the suspected shooter was among the dead.`\
+**Live Updates: 9 Killed and 25 Injured in Shooting at School and Home in Canada**\
+`The shooting occurred in Tumbler Ridge, a remote community in British Columbia. The police said the suspected shooter died of a self-inflicted injury.`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
 
 **Vance Deletes Post Recognizing Armenian Genocide**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-prog
 **2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
 `Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
-
-**10 Dead and 25 Injured in Shootings at School and Home in British Columbia**\
-`Police say the suspected shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
-https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
 
