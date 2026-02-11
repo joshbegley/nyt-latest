@@ -1,3 +1,7 @@
+**Ilia Malinin is nearing Olympic gold. Meet who taught him the quadruple axel**\
+`Inspired by Rafael Arutyunyan's famed anti-coddling approach, the U.S. superstar is one skate from glory.`\
+https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-skating-coach-rafael-arutyunyan/
+
 **Rashford misses Barca's Copa del Rey semi-final with knee injury - Flick**\
 `The Catalan side are also set to miss fellow winger Raphinha who is still struggling with a muscle issue.`\
 https://nytimes.com/athletic/7038444/2026/02/11/rashford-barcelona-injury-news/
