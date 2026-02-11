@@ -1,3 +1,27 @@
+**Slot says he expects Liverpool's Endo to be out 'for quite a long time'**\
+`The 33-year-old was stretchered off the pitch after appearing to land awkwardly on his ankle in Liverpool's 1-0 win over Sunderland.`\
+https://nytimes.com/athletic/7039893/2026/02/11/wataru-endo-liverpool-injury/
+
+**Cardi B was on stage with Bad Bunny. Was she 'performing'? Prediction markets were divided**\
+`Prediction markets are clarifying what constitutes a "performance."`\
+https://nytimes.com/athletic/7038991/2026/02/11/cardi-b-halftime-show-betting-prediction-markets-controversy/
+
+**'It doesn't make sense': Brighton's Hurzeler baffled by Baleba booking**\
+`The early yellow card led to Baleba's withdrawal in the 22nd minute to avoid the danger of a red card.`\
+https://nytimes.com/athletic/7040127/2026/02/11/fabian-hurzeler-yellow-card-baleba-brighton/
+
+**The El Paso Airspace Closed After the Military Tested New Technology**\
+`Also, the attorney general faces lawmakers’ anger over Epstein files. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/02/11/briefing/el-paso-airspace-labor-market.html
+
+**Democrats Denounce Attempt to Indict Lawmakers for Illegal Orders Video**\
+`Members in both chambers warned the failed attempt to prosecute the six lawmakers amounted to an existential threat to the legislative branch.`\
+https://nytimes.com/2026/02/11/us/politics/democrats-illegal-orders-video-indictment.html
+
+**In Tumbler Ridge, a Community in Stunned Agony**\
+`Residents embraced and wiped away tears a day after one of the worst mass shootings in the history of Canada rocked the small, remote town.`\
+https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/tumbler-ridge-shooting-community
+
 **One dead, 32 injured after Iowa college baseball team's bus crashes**\
 `The Iowa Lakes Community College baseball team was heading to Harrison, Ark., to face North Arkansas College.`\
 https://nytimes.com/athletic/7039907/2026/02/11/iowa-college-baseball-teams-bus-crash/
