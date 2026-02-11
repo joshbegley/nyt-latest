@@ -1,3 +1,7 @@
+**Mamdani Wants to Test Free Bus Service During World Cup**\
+`The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
+https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
+
 **Jordan Stolz hits another gear to set an Olympic record.**\
 `By Victor Mather and Doug Mills`\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/jordan-stolz-hits-another-gear-to-set-an-olympic-record
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coro
 **Jordan Stolz nabs Olympic record and 1000m speedskating gold**\
 `Stolz has drawn comparisons to Michael Phelps and Apolo Ohno for his individual medal potential. `\
 https://nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-speedskating-1000-meters/
-
-**Chickpeas al Limone With Burrata**\
-`Inspired by the jaunty pasta dish, spaghetti al limone, here’s a new way to make a memorable meal from humble cans of chickpeas; just add lemon, olive oil and Parmesan.`\
-https://nytimes.com/video/dining/100000010689565/chickpeas-al-limone-with-burrata.html
 
