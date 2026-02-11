@@ -1,3 +1,15 @@
+**Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
+`Swiss star Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G. `\
+https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
+
+**Live Updates: F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
+`No flights are allowed to or from the airport until Feb. 20 under a flight restriction order that cited unspecified “special security reasons.”`\
+https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport
+
+**What Executives Are Saying About the ‘K-Shaped’ Economy**\
+`Leaders across industries from airlines to packaged foods have said a growing divide between lower-income and wealthy consumers is changing their businesses.`\
+https://nytimes.com/2026/02/11/business/economy/k-shaped-economy.html
+
 **Live Updates: Jobs Report May Offer Clarity on Uncertain Labor Market**\
 `Employment data for January is set to be released by the Labor Department.`\
 https://nytimes.com/live/2026/02/11/business/jobs-report-economy
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7037091/2026/02/11/seahawks-super-bowl-parade-2026-
 **How Michigan's Aday Mara found his happy place and became one of college hoops' top shot blockers**\
 `Three years into his college career, Aday Mara has rediscovered his joy — and emerged as one of the nation’s best defenders.`\
 https://nytimes.com/athletic/7037069/2026/02/11/michigan-aday-mara-college-basketball-ucla-spain/
-
-**Is Arch still No. 1? What about Darian Mensah: Re-ranking the QB Class of 2023**\
-`Three of the top 10 in the re-rank were not among the top 1,000 overall prospects coming out of high school.`\
-https://nytimes.com/athletic/7036638/2026/02/11/arch-manning-dante-moore-darian-mensah-class-2023-quarterbacks/
-
-**College baseball preseason superlatives: Golden Spikes watchlist, top transfers and more**\
-`UCLA's Roch Cholowsky is the preseason Golden Spikes favorite, but LSU's Derek Curiel and Georgia Tech's Drew Burress are names to watch.`\
-https://nytimes.com/athletic/6999335/2026/02/11/college-baseball-golden-spikes-transfers-freshmen/
-
-**How Vanderbilt's Connor Fennell became the SEC's unlikeliest ace: 'He flat-out hates hitters'**\
-`Fennell was a recruiting afterthought coming out of high school in New Hampshire. Three years later, he is one of the SEC's top pitchers.`\
-https://nytimes.com/athletic/7016403/2026/02/11/vanderbilt-baseball-connor-fennell-sec/
 

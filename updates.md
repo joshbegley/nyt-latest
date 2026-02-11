@@ -1,3 +1,15 @@
+**Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
+`Swiss star Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G. `\
+https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
+
+**Live Updates: F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
+`No flights are allowed to or from the airport until Feb. 20 under a flight restriction order that cited unspecified “special security reasons.”`\
+https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport
+
+**What Executives Are Saying About the ‘K-Shaped’ Economy**\
+`Leaders across industries from airlines to packaged foods have said a growing divide between lower-income and wealthy consumers is changing their businesses.`\
+https://nytimes.com/2026/02/11/business/economy/k-shaped-economy.html
+
 **Live Updates: Jobs Report May Offer Clarity on Uncertain Labor Market**\
 `Employment data for January is set to be released by the Labor Department.`\
 https://nytimes.com/live/2026/02/11/business/jobs-report-economy
