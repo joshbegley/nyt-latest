@@ -1,3 +1,11 @@
+**Thomas Frank sacked by Tottenham**\
+`Spurs are winless in their last eight league games and have won just two of their last 17.`\
+https://nytimes.com/athletic/6831096/2026/02/11/thomas-frank-tottenham-sacked/
+
+**Students and Teachers Hid in School for Hours During British Columbia Shooting**\
+`The shooting in Tumbler Ridge was one of the deadliest in Canada’s history. Seven people, including the suspected shooter, were found dead at the local secondary school.`\
+https://nytimes.com/2026/02/11/world/canada/tumbler-ridge-shooting-school-teacher.html
+
 **Man Who Was Detained in Nancy Guthrie’s Disappearance Is Released**\
 `The release of the man was a blow to investigators, who have been trying for 11 days to determine who may have abducted Ms. Guthrie.`\
 https://nytimes.com/2026/02/11/us/nancy-guthrie-man-released-rio-rico-arizona.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/nyregion/rats-nyc-snow-cold.html
 **Republicans Face Uphill Fight for N.Y. Governor: ‘We’re in Bad Shape’**\
 `Bruce Blakeman, the Republican nominee against Gov. Kathy Hochul, has shown he can win in the suburbs. But political winds are blowing in his face.`\
 https://nytimes.com/2026/02/11/nyregion/republicans-governor-blakeman-ny.html
-
-**Racing Boats Over a Frozen Lake, a Rivalry From the 1800s Continues**\
-`This year’s lengthy cold-snap formed thick enough ice on the Navesink River in New Jersey that two ice boat clubs were able to compete against each other in the Van Nostrand Challenge Cup. This was only the fourth time the race has been held in the competition’s nearly 140 year history.`\
-https://nytimes.com/video/us/100000010702551/ice-sailing-race-new-jersey.html
-
-**Broadway Re-enactments**\
-`Are you a fan of musicals? What do you think of these viral videos?`\
-https://nytimes.com/2026/02/11/learning/broadway-re-enactments.html
 
