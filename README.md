@@ -1,3 +1,7 @@
+**Chloe Kim Is Chasing History, and Doing It With an Injury**\
+`The snowboarder Chloe Kim is competing with an injured shoulder while seeking her third consecutive gold medal, which would further cement her as one of the United States’ greatest Winter Olympians.`\
+https://nytimes.com/video/sports/100000010704788/chloe-kim-is-chasing-history-and-doing-it-with-an-injury.html
+
 **Bondi Expected to Face Scrutiny Over Release of Epstein Files**\
 `At a House Judiciary Committee hearing on Wednesday, Attorney General Pam Bondi could face bipartisan skepticism over her handling of the documents.`\
 https://nytimes.com/2026/02/11/us/politics/bondi-testimony-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/opinion/ice-victims-hearings-justice.html
 **Murdaugh Takes Appeal of Murder Convictions to South Carolina’s Top Court**\
 `The appeal by Alex Murdaugh, once a well-connected member of a prominent family law firm, seeks to overturn his conviction in the murders of his wife and son.`\
 https://nytimes.com/2026/02/11/us/murdaugh-murder-supreme-court.html
-
-**A Sitting Room Where Every Object Tells a Story**\
-`Olive Ateliers co-founders Ben and Kendall Knox cranked up the charm in their Venice Beach bungalow.`\
-https://nytimes.com/2026/02/11/realestate/a-sitting-room-where-every-object-tells-a-story.html
 
