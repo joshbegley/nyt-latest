@@ -1,5 +1,9 @@
 **Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
 `Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
+https://nytimes.com/2026/02/11/business/mcdonalds-earnings-sales-value-meals.html
+
+**Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
+`Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
 https://nytimes.com/2026/02/11/business/sales-at-mcdonalds-rise-after-discounts-the-grinch-and-monopoly-promos.html
 
 **The familiar Phillies are (mostly) back, but this spring will be about the kids**\
