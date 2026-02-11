@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting
 `The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
 
-**Jordan Stolz hits another gear to set an Olympic record.**\
+**Jordan Stolz hits another gear to break an Olympic record.**\
 `By Victor Mather and Doug Mills`\
 https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/jordan-stolz-hits-another-gear-to-set-an-olympic-record
 

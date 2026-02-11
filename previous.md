@@ -1,3 +1,7 @@
+**Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
+`"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
+https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
+
 **Mamdani Wants to Test Free Bus Service During World Cup**\
 `The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/nyregion/nypd-drones-cities-el-paso.html
 **U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
 `A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
 https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
-
-**Jordan Stolz nabs Olympic record and 1000m speedskating gold**\
-`Stolz has drawn comparisons to Michael Phelps and Apolo Ohno for his individual medal potential. `\
-https://nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-speedskating-1000-meters/
 

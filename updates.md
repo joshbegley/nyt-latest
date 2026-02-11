@@ -1,3 +1,7 @@
+**Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
+`"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
+https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
+
 **Mamdani Wants to Test Free Bus Service During World Cup**\
 `The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
