@@ -1,3 +1,7 @@
+**D-Backs Corbin Carroll, O's Jackson Holliday each set for surgery for broken bone in hand**\
+`The Mets' Francisco Lindor is also experiencing a hamate bone issue that may require surgery.`\
+https://nytimes.com/athletic/7038794/2026/02/11/mlb-jackson-holliday-corbin-carroll-hamate-bone/
+
 **The Key to This Sci-Fi Tale: ‘Respecting Kids’ Intelligence’**\
 `The Oscar-nominated “Arco” aims to give viewers of all ages hope in the possibility of a brighter tomorrow.`\
 https://nytimes.com/2026/02/11/arts/arco-film-ugo-bienvenu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/us/politics/trump-canada-tariffs.html
 **We’ve Got Stars for Bong, Theodora and More**\
 `Our latest batch of reviews includes the buzzy Cambodian spot, the Mediterranean favorite in Fort Greene and a remarkably well priced Thai fine-dining experience.`\
 https://nytimes.com/2026/02/11/dining/bong-theodora-odre-comal-restaurant-review.html
-
-**OpenAI’s Biggest Challenge Is Turning Its A.I. Into a Cash Machine**\
-`The maker of ChatGPT hopes to triple its revenue in the coming year because it is planning to spend tens of billions of dollars. The clock is ticking.`\
-https://nytimes.com/2026/02/11/technology/openai-revenue-challenge.html
 
