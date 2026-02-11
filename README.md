@@ -1,3 +1,15 @@
+**Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
+`Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
+https://nytimes.com/2026/02/11/business/sales-at-mcdonalds-rise-after-discounts-the-grinch-and-monopoly-promos.html
+
+**The familiar Phillies are (mostly) back, but this spring will be about the kids**\
+`Although the beginning of this camp might be defined by what did not change, the Phillies are leaning into what did.`\
+https://nytimes.com/athletic/7039580/2026/02/11/phillies-spring-training-prospects-roster/
+
+**Can Tage Thompson and Quinn Hughes give Team USA the boost it needs for Olympic gold?**\
+`At last year's 4 Nations Face-Off, Thompson was snubbed from the U.S. team and Hughes missed the tournament due to an injury.`\
+https://nytimes.com/athletic/7039538/2026/02/11/team-usa-olympics-hockey-thompson-hughes-gold/
+
 **Bay FC signs USWNT midfielder Claire Hutton in $1.1 million deal with Kansas City Current**\
 `With her contract expiring, the 20-year-old considered a move to Europe and has not ruled out the possibility in the future.`\
 https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc-from-kc-current/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7039529/2026/02/11/with-key-teammates-retained-joe-
 **Arsenal's Havertz sustains muscular injury, set to miss north London derby**\
 `Havertz' injury is compounded by the fact that fellow Arsenal midfielder Mikel Merino will miss an extended period due to a foot injury.`\
 https://nytimes.com/athletic/7038931/2026/02/11/kai-havertz-injury-arsenal-update/
-
-**T's March 8 Men's Fashion Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2026/02/11/ts-march-8-mens-fashion-issue-2026
-
-**The Best Part of This Chickpea Stew? The Tiny Pasta in Every Bite.**\
-`Yotam Ottolenghi channels a childhood favorite for a dish that’s still sophisticated enough for grown-ups.`\
-https://nytimes.com/2026/02/11/dining/yotam-ottolenghi-chickpea-stew.html
-
-**How to watch Spurs vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039670/2026/02/11/spurs-vs-warriors-stream-how-to-watch-feb-11/
 
