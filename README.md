@@ -1,3 +1,11 @@
+**USA Basketball announces roster for 2026 FIBA Women’s World Cup qualifier**\
+`Four members from the 2024 Olympic team are returning, and Caitlin Clark, Paige Bueckers and Angel Reese will make their senior team debuts.`\
+https://nytimes.com/athletic/7039043/2026/02/11/usa-basketball-roster-coaches-fiba-world-cup/
+
+**Brewers reunite with catcher Gary Sánchez on 1-year deal: Source**\
+`The former Yankees All-Star will likely reprise his role as backup to William Contreras.`\
+https://nytimes.com/athletic/6783763/2026/02/11/mlb-gary-sanchez-free-agency-signing-brewers/
+
 **The People vs. the Plutocrats**\
 `The fight over inequality will define the 21st century.`\
 https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/world/europe/epstein-prince-andrew-uk-investigati
 **Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
 `"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
 https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
-
-**Mamdani Wants to Test Free Bus Service During World Cup**\
-`The mayor is seeking the governor’s help in making bus service free when the New York City area plays host to the soccer tournament this summer.`\
-https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
-
-**Jordan Stolz hits another gear to break an Olympic record.**\
-`Stolz put an end to Dutch dominance in the men’s sport, cruising to his first Olympic gold medal.`\
-https://nytimes.com/2026/02/11/world/jordan-stolz-hits-another-gear-to-set-an-olympic-record.html
 

@@ -1,3 +1,15 @@
+**The People vs. the Plutocrats**\
+`The fight over inequality will define the 21st century.`\
+https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
+
+**New Mexico Rebukes Federal Agency Over Nuclear Waste at Los Alamos**\
+`State environmental regulators will also fine the Energy Department up to $16 million for exceeding safe groundwater standards near the nuclear lab.`\
+https://nytimes.com/2026/02/11/us/new-mexico-los-alamos-nuclear-waste-fines.html
+
+**L.A. 2028 Olympic Organizers Stand By Chairman Linked to Epstein**\
+`Casey Wasserman exchanged flirtatious messages more than two decades ago with Ghislaine Maxwell, the longtime companion of Jeffrey Epstein. The 2028 board said its review found no other indiscretions related to Mr. Epstein.`\
+https://nytimes.com/2026/02/11/us/wasserman-epstein-la-olympics-2028.html
+
 **James Van Der Beek, Teenage Heartthrob of ‘Dawson’s Creek,’ Dies at 48**\
 `He first appeared in a hit TV drama as a wide-eyed 15-year-old who then grew up over six seasons. He announced he had cancer in 2024.`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dead.html
