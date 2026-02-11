@@ -1,3 +1,11 @@
+**Olympics' hottest prize: Mascots Tina and Milo toys sold out throughout Italy**\
+`The toys are being sold secondhand online for as much as $66 each, as of Wednesday.`\
+https://nytimes.com/athletic/7038864/2026/02/11/olympics-mascots-tina-milo-toys/
+
+**Why Iran’s Nuclear Program Isn’t the Only Threat**\
+`While talks with Iran have focused on its nuclear program, Israel’s greater immediate concern is Iran’s rebuilding of its ability to launch missiles at Israel, as it did during last year’s war. Our national security reporter Mark Mazzetti breaks down the latest intelligence.`\
+https://nytimes.com/video/world/middleeast/100000010701285/why-irans-nuclear-program-isnt-the-only-threat.html
+
 **Hard-to-Track Digital Currencies Like Bitcoin Are Common in Ransom Demands**\
 `Investigators have spent days analyzing notes from people claiming to be Nancy Guthrie’s kidnappers, including one that demanded millions of dollars in Bitcoin for her release.`\
 https://nytimes.com/2026/02/11/us/digital-currency-bitcoin.html

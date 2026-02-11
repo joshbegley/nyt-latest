@@ -1,3 +1,7 @@
+**Epstein Files Include Grainy Videos From His Florida Home**\
+`The clips from Jeffrey Epstein’s home office appear to show him with young women.`\
+https://nytimes.com/2026/02/11/us/epstein-files-videos.html
+
 **Olympics' hottest prize: Mascots Tina and Milo toys sold out throughout Italy**\
 `The toys are being sold secondhand online for as much as $66 each, as of Wednesday.`\
 https://nytimes.com/athletic/7038864/2026/02/11/olympics-mascots-tina-milo-toys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038794/2026/02/11/mlb-jackson-holliday-corbin-carr
 **The Key to This Sci-Fi Tale: ‘Respecting Kids’ Intelligence’**\
 `The Oscar-nominated “Arco” aims to give viewers of all ages hope in the possibility of a brighter tomorrow.`\
 https://nytimes.com/2026/02/11/arts/arco-film-ugo-bienvenu.html
-
-**Hard-to-Track Digital Currencies Like Bitcoin Are Common in Ransom Demands**\
-`Investigators have spent days analyzing notes from people claiming to be Nancy Guthrie’s kidnappers, including one that demanded millions of dollars in Bitcoin for her release.`\
-https://nytimes.com/2026/02/11/us/digital-currency-bitcoin.html
 
