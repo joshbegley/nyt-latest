@@ -1,3 +1,7 @@
+**Sesko is part sledgehammer, part subtlety. Is it time for him to start?**\
+`The 22-year-old has been a substitute in all of Michael Carrick's games in charge so far but he is making the case for a greater role`\
+https://nytimes.com/athletic/7036016/2026/02/11/benjamin-sesko-west-ham-goal/
+
 **The New York Times in Print for Wednesday, Feb. 11, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
