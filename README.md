@@ -1,3 +1,7 @@
+**Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
+`Phillips morphed into one of the game’s more dominant relievers with the Dodgers.`\
+https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
+
 **States Weigh Bills to Allow You to Make Your Own Electricity**\
 `Twenty four states are now considering legislation to allow small, plug-in solar power systems that connect directly into a wall socket.`\
 https://nytimes.com/2026/02/11/climate/plug-in-solar-power-bills.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010705101/iran-revolution-anniversary
 **Why do Michael Carrick's Man United play better when they have less possession?**\
 `United can win big as the underdog, but their ceiling is limited by an uneasy tactical fit when they have more of the ball`\
 https://nytimes.com/athletic/7038256/2026/02/11/manchester-united-michael-carrick-tactics-sesko-mbeumo/
-
-**Ukrainian FA chief Shevchenko looking to discuss Russia comments with Infantino**\
-`The FIFA president spoke out against banning Russia and Israel from international football earlier this month.`\
-https://nytimes.com/athletic/7038836/2026/02/11/andriy-shevchenko-ukraine-fifa-gianni-infantino-russia/
 
