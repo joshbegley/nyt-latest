@@ -1,3 +1,7 @@
+**Ukrainian Olympic athlete on collision course with IOC over 'helmet of memory'**\
+`Questions have arisen about other athletes who have made similar tributes to family members or friends.`\
+https://nytimes.com/athletic/7038558/2026/02/11/ukraine-skeleton-helmet-banned-olympics-heraskevych/
+
 **Lindsey Vonn has third surgery, says success now has 'completely different meaning'**\
 `Vonn's post was accompanied by a picture and had a decidedly less upbeat tone than her previous statement.`\
 https://nytimes.com/athletic/7039162/2026/02/11/lindsey-vonn-third-surgery-tibia-fracture-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6982893/2026/02/11/thomas-frank-sacking-spurs/
 **Netflix pursuing Barry Bonds for Opening Day coverage: Sources**\
 `Netflix is also trying to sign CC Sabathia to be a part of its Opening Day coverage, according to sources briefed on the discussions.`\
 https://nytimes.com/athletic/7039087/2026/02/11/barry-bonds-netflix-opening-day-stream-mlb/
-
-**This Sheet-Pan Shrimp and Rice Is Extremely Nice**\
-`Melissa Clark’s recipe layers textures and flavors in this generous weeknight dinner, inspired by shrimp fried rice.`\
-https://nytimes.com/2026/02/11/dining/sheet-pan-shrimp-fried-rice-easy-dinner.html
 

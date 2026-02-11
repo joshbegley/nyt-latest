@@ -1,3 +1,15 @@
+**Lindsey Vonn has third surgery, says success now has 'completely different meaning'**\
+`Vonn's post was accompanied by a picture and had a decidedly less upbeat tone than her previous statement.`\
+https://nytimes.com/athletic/7039162/2026/02/11/lindsey-vonn-third-surgery-tibia-fracture-olympics/
+
+**Sock Rugs and Pants Curtains: When Clothes Become Décor**\
+`Part of a microtrend in art and design, these pieces are meant to be used but not worn.`\
+https://nytimes.com/2026/02/11/t-magazine/clothes-decor-design.html
+
+**Kraft Heinz Reverses Course on Company Split as Sales Continue to Slide**\
+`The company’s new C.E.O. said he saw opportunities to fix and grow the food giant — and cut prices for consumers.`\
+https://nytimes.com/2026/02/11/business/kraft-heinz-sales-prices-cahillane.html
+
 **Games Briefing: Olympics updates: NHLers are officially back!**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7038755/2026/02/11/nhl-olympic-hockey-tournament-start-games-briefing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7039087/2026/02/11/barry-bonds-netflix-opening-day-
 **This Sheet-Pan Shrimp and Rice Is Extremely Nice**\
 `Melissa Clark’s recipe layers textures and flavors in this generous weeknight dinner, inspired by shrimp fried rice.`\
 https://nytimes.com/2026/02/11/dining/sheet-pan-shrimp-fried-rice-easy-dinner.html
-
-**Ray Mouton Dies at 78; Lawyer Warned of Pedophilia in the Catholic Church**\
-`After defending one of the first priests charged with child sex abuse, he coauthored a 1985 report warning that the problem was endemic and ignoring it could be catastrophic.`\
-https://nytimes.com/2026/02/11/us/politics/ray-mouton-dead.html
-
-**Infant Mortality Fell for Decades. Why Did That Stop?**\
-`Our weekly conversation about the numbers that chart progress continues.`\
-https://nytimes.com/2026/02/11/headway/infant-mortality-fell-for-decades-why-did-that-stop.html
-
-**Panthers, Dave Canales add familiar face in Darrell Bevell to help with offense**\
-`Canales and Bevell spent seven seasons together on the Seahawks' staff under Pete Carroll.`\
-https://nytimes.com/athletic/7038912/2026/02/11/panthers-darrell-bevell-dave-canales-coaching-staff/
 

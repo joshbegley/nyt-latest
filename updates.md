@@ -1,3 +1,15 @@
+**Lindsey Vonn has third surgery, says success now has 'completely different meaning'**\
+`Vonn's post was accompanied by a picture and had a decidedly less upbeat tone than her previous statement.`\
+https://nytimes.com/athletic/7039162/2026/02/11/lindsey-vonn-third-surgery-tibia-fracture-olympics/
+
+**Sock Rugs and Pants Curtains: When Clothes Become Décor**\
+`Part of a microtrend in art and design, these pieces are meant to be used but not worn.`\
+https://nytimes.com/2026/02/11/t-magazine/clothes-decor-design.html
+
+**Kraft Heinz Reverses Course on Company Split as Sales Continue to Slide**\
+`The company’s new C.E.O. said he saw opportunities to fix and grow the food giant — and cut prices for consumers.`\
+https://nytimes.com/2026/02/11/business/kraft-heinz-sales-prices-cahillane.html
+
 **Games Briefing: Olympics updates: NHLers are officially back!**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7038755/2026/02/11/nhl-olympic-hockey-tournament-start-games-briefing/
