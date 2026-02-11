@@ -1,3 +1,7 @@
+**What we learned on day one of Astros spring training: Hunter Brown's leadership and Tatsuya Imai's arrival**\
+`Isaac Paredes and Christian Walker have not reported to camp yet as the Astros continue exploring trades before Sunday's full-squad workout.`\
+https://nytimes.com/athletic/7039683/2026/02/11/hunter-brown-astros-opening-day-starter-paredes-walker-trades/
+
 **KC Current acquire Croix Bethune from Washington Spirit in $1M transfer**\
 `The $1 million in transfer fees is the third-most expensive intra-league transfer in NWSL history.`\
 https://nytimes.com/athletic/7039806/2026/02/11/croix-bethune-transfer-kc-current-washington-spirit/
