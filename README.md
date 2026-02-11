@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘Will You Take the Sex Plant?’**\
+`Modern Love in miniature, featuring stories of no more than 100 words submitted by readers.`\
+https://nytimes.com/2026/02/11/style/tiny-modern-love-stories-will-you-take-the-sex-plant.html
+
+**In Tumbler Ridge, a Community in Stunned Agony**\
+`Residents embraced and wiped away tears a day after one of the worst mass shootings in the history of Canada rocked the small, remote town.`\
+https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/in-tumbler-ridge-a-community-in-stunned-agony
+
 **If the Cubs' season started today, Daniel Palencia is Craig Counsell's closer**\
 `"I know I’m that guy for that situation," Palencia said of closing games.`\
 https://nytimes.com/athletic/7039816/2026/02/11/daniel-palencia-cubs-closer-craig-counsell/
@@ -15,7 +23,7 @@ https://nytimes.com/2026/02/11/us/politics/gallup-poll-presidential-approval-rat
 https://nytimes.com/athletic/7039505/2026/02/11/zack-wheeler-injury-phillies-spring-training/
 
 **U.S. Olympic ice dance duo Chock and Bates win silver, fall just shy of French**\
-`MILAN — It’s been a 15-year journey.`\
+`Chock and Bates became just the third American duo to win silver ice dance in the Olympics.`\
 https://nytimes.com/athletic/7039915/2026/02/11/winter-olympics-ice-dance-france-madison-chock-evan-bates/
 
 **How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
@@ -25,16 +33,4 @@ https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi
 **Ken Peplowski, Who Helped Revive the Jazz Clarinet, Dies at 66**\
 `Also a saxophone standout, he served as stylistic bridge between the Benny Goodman swing era and the genre-blurring present.`\
 https://nytimes.com/2026/02/11/arts/music/ken-peplowski-dead.html
-
-**What Homeowners Need to Know About Smart Home Cameras**\
-`A new Super Bowl ad is raising questions about the power of doorbell cameras.`\
-https://nytimes.com/2026/02/11/realestate/smart-home-cameras-nest-ring-privacy.html
-
-**Spurs waive Jeremy Sochan after failing to make trade at deadline**\
-`Spurs discussed potential deadline deals for Sochan with the Knicks, Bulls and Suns, among others.`\
-https://nytimes.com/athletic/7039859/2026/02/11/spurs-jeremy-sochan-waive/
-
-**The Briefing: Sunderland 0 Liverpool 1 - How did Konate get on vs Brobbey? First-half issues? Right-back options?**\
-`We break down the talking points from the Premier League game at the Stadium of Light.`\
-https://nytimes.com/athletic/7031143/2026/02/11/liverpool-van-dijk-konate/
 
