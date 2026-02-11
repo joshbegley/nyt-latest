@@ -1,3 +1,11 @@
+**Hard-to-Track Digital Currencies Like Bitcoin Are Common in Ransom Demands**\
+`Investigators have spent days analyzing notes from people claiming to be Nancy Guthrie’s kidnappers, including one that demanded millions of dollars in Bitcoin for her release.`\
+https://nytimes.com/2026/02/11/us/digital-currency-bitcoin.html
+
+**Five years in, is there any success comparable to Wrexham? Plus: Daytona, Serena, Madonna**\
+`This week's free sports business cheat sheet includes a Super Bowl LX lightning round, a Daytona 500 preview and Madonna, the soccer mom.`\
+https://nytimes.com/athletic/7038831/2026/02/11/wrexham-rob-mac-ryan-reynolds-moneycall/
+
 **When Grief Came for the Gravedigger**\
 `In pursuit of an interesting life, he came face to face with death.`\
 https://nytimes.com/2026/02/11/magazine/hurricane-helene-asheville-north-carolina-grief.html
