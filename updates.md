@@ -1,3 +1,7 @@
+**Man Who Was Detained in Nancy Guthrie’s Disappearance Is Released**\
+`The release of the man was a blow to investigators, who have been trying for 11 days to determine who may have abducted Ms. Guthrie.`\
+https://nytimes.com/2026/02/11/us/nancy-guthrie-man-released-rio-rico-arizona.html
+
 **At one tennis event, the ball is the villain: 'It is not normal to play with these'**\
 `Arthur Fils and Alex de Minaur have echoed Daniil Medvedev's criticisms of the Head Tour XT balls at the ATP 500 event in the Netherlands.`\
 https://nytimes.com/athletic/7038183/2026/02/11/tennis-balls-player-complaints-rotterdam-open/
