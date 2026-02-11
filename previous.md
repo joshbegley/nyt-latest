@@ -1,3 +1,19 @@
+**The Bears in Iowa? Bill aims to lure NFL team with stadium incentives**\
+`One of the bill's sponsors says Iowa could offer the Bears “everything they need to build a world-class facility."`\
+https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/
+
+**Live Updates: 10 Dead and 25 Injured Shooting at School and Home in Canada**\
+`The shooting occurred at a high school and residence in eastern British Columbia, according to the Royal Canadian Mounted Police, which said the suspected shooter was among the dead.`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
+
+**Vance Deletes Post Recognizing Armenian Genocide**\
+`President Trump has not recognized the Armenian genocide. The vice president’s office called the post an error.`\
+https://nytimes.com/2026/02/10/us/politics/vance-armenian-genocide.html
+
+**Highlights From Ilia Malinin’s Short Program**\
+`With the nervousness of a first-time Olympian behind him, figure skater Ilia Malinin delivered his best routine of the Milan-Cortina Games on Tuesday, bouncing back from two relatively shaky performances in the team event to finish first in the short program with an unforgettable flourish.`\
+https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-program-highlights.html
+
 **2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
 `Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/10/nyregion/nypd-officer-charges-assault.html
 **Guatemala to Phase Out Use of Cuban Doctors Amid U.S. Pressure**\
 `The program, nearly 30 years old, had allowed Cuban medical workers to fill critical needs in Guatemala, while reaping income for Cuba.`\
 https://nytimes.com/2026/02/10/world/americas/guatemala-cuba-doctors.html
-
-**Grand Jury Rebuffs Justice Dept. Attempt to Indict 6 Democrats in Congress**\
-`The rejection was a remarkable rebuke, suggesting that ordinary citizens did not believe that the lawmakers had committed any crimes.`\
-https://nytimes.com/2026/02/10/us/politics/trump-democrats-illegal-orders-pirro.html
-
-**Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
-`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC.`\
-https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
-
-**Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
-`The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
-https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
-
-**‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
-`In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
-https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
 

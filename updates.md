@@ -1,3 +1,19 @@
+**The Bears in Iowa? Bill aims to lure NFL team with stadium incentives**\
+`One of the bill's sponsors says Iowa could offer the Bears “everything they need to build a world-class facility."`\
+https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/
+
+**Live Updates: 10 Dead and 25 Injured Shooting at School and Home in Canada**\
+`The shooting occurred at a high school and residence in eastern British Columbia, according to the Royal Canadian Mounted Police, which said the suspected shooter was among the dead.`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
+
+**Vance Deletes Post Recognizing Armenian Genocide**\
+`President Trump has not recognized the Armenian genocide. The vice president’s office called the post an error.`\
+https://nytimes.com/2026/02/10/us/politics/vance-armenian-genocide.html
+
+**Highlights From Ilia Malinin’s Short Program**\
+`With the nervousness of a first-time Olympian behind him, figure skater Ilia Malinin delivered his best routine of the Milan-Cortina Games on Tuesday, bouncing back from two relatively shaky performances in the team event to finish first in the short program with an unforgettable flourish.`\
+https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-program-highlights.html
+
 **2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
 `Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
