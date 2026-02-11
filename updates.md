@@ -1,3 +1,7 @@
+**Tottenham's Wilson Odobert suffers ACL tear**\
+`The 21-year-old went off injured in the 35th minute of Tuesday's home defeat by Newcastle.`\
+https://nytimes.com/athletic/7038527/2026/02/11/wilson-odobert-tottenham-injury-acl/
+
 **Lewis Hamilton's new Ferrari race engineer yet to be finalized, under a month before new F1 season**\
 `Ferrari is still yet to announce a replacement for Lewis Hamilton's race engineer, less a month until the new F1 season starts`\
 https://nytimes.com/athletic/7038526/2026/02/11/lewis-hamilton-ferrari-f1-engineer-replacement/
