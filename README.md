@@ -1,3 +1,7 @@
+**Sesko is part sledgehammer, part subtlety. Is it time for him to start?**\
+`The 22-year-old has been a substitute in all of Michael Carrick's games in charge so far but he is making the case for a greater role`\
+https://nytimes.com/athletic/7036016/2026/02/11/benjamin-sesko-west-ham-goal/
+
 **The New York Times in Print for Wednesday, Feb. 11, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035880/2026/02/11/real-madrid-bernabeu-fans-handke
 **Sports stars, 'sacred spaces', and an increasingly bitter battle for privacy**\
 `Coco Gauff's criticisms of privacy invasions at the Australian Open raise a pointed question: how much should we know about sports stars?`\
 https://nytimes.com/athletic/7032924/2026/02/11/coco-gauff-tennis-privacy-cameras/
-
-**Gianluigi Donnarumma makes another wonder save – but is he the goalkeeper Manchester City need?**\
-`The Italy goalkeeper's shot-stopping has been world class, but have his limitations with the ball at his feet hampered City this season?`\
-https://nytimes.com/athletic/7036114/2026/02/11/gianluigi-donnarumma-manchester-city-analysis/
 
