@@ -1,3 +1,7 @@
+**‘An Uphill Struggle’: King Charles Is Not Giving Up on the Planet Yet**\
+`Environmentalism may have gone out of fashion on Wall Street and in the White House, but the British monarch says he remains deeply committed to the cause in a new documentary, ‘Finding Harmony’.`\
+https://nytimes.com/2026/02/11/world/europe/king-charles-harmony-documentary-climate.html
+
 **Everton, the Hill Dickinson Stadium, and a curious capacity for self-sabotage**\
 `Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
 https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
