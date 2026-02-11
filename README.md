@@ -1,3 +1,15 @@
+**The Key to This Sci-Fi Tale: ‘Respecting Kids’ Intelligence’**\
+`The Oscar-nominated “Arco” aims to give viewers of all ages hope in the possibility of a brighter tomorrow.`\
+https://nytimes.com/2026/02/11/arts/arco-film-ugo-bienvenu.html
+
+**Hard-to-Track Digital Currencies Are Common in Ransom Demands**\
+`Investigators have spent days analyzing notes from people claiming to be Nancy Guthrie’s kidnappers, including one that demanded millions of dollars in Bitcoin for her release.`\
+https://nytimes.com/2026/02/11/us/digital-currency-bitcoin.html
+
+**Five years in, is there any success comparable to Wrexham? MoneyCall**\
+`This week's free sports business cheat sheet includes a Super Bowl LX lightning round, a Daytona 500 preview and Madonna, the soccer mom.`\
+https://nytimes.com/athletic/7038831/2026/02/11/wrexham-rob-mac-ryan-reynolds-moneycall/
+
 **How to watch Virginia Tech vs. Clemson men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7038878/2026/02/11/virginia-tech-vs-clemson-stream-how-to-watch-feb-11/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/dining/bong-theodora-odre-comal-restaurant-review
 **OpenAI’s Biggest Challenge Is Turning Its A.I. Into a Cash Machine**\
 `The maker of ChatGPT hopes to triple its revenue in the coming year because it is planning to spend tens of billions of dollars. The clock is ticking.`\
 https://nytimes.com/2026/02/11/technology/openai-revenue-challenge.html
-
-**A Fresh Take on a Retro Classic**\
-`My vegetarian tamale pie loses the meat but keeps the cornbread-blanketed comfort.`\
-https://nytimes.com/2026/02/11/dining/a-fresh-take-on-a-retro-classic.html
-
-**Nine People Killed in Mass Shooting in British Columbia, Canada**\
-`Nine people were killed and 25 others were injured in the third-deadliest shooting in Canada’s history. The police said the person believed to be the shooter was found dead.`\
-https://nytimes.com/video/world/americas/100000010705110/school-shooting-tumbler-ridge-canada.html
-
-**What Questions Do You Have About Saudi Arabia?**\
-`“Ask a Correspondent” will take your questions to Vivian Nereim, our Gulf bureau chief.`\
-https://nytimes.com/2026/02/11/world/what-questions-do-you-have-about-saudi-arabia.html
 
