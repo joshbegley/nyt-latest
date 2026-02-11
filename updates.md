@@ -1,3 +1,7 @@
+**What We Know About the Deadly Mass Shooting in Canada**\
+`The attack at a school and a residence in the small, remote town of Tumbler Ridge, British Columbia, has shocked a country where such acts of violence are rare.`\
+https://nytimes.com/2026/02/11/world/americas/canada-tumbler-ridge-shooting.html
+
 **Angel Reese to join Unrivaled for remainder of season, reunite with Rose BC**\
 `Reese will join the Rose for their final three regular-season games.`\
 https://nytimes.com/athletic/7037012/2026/02/11/angel-reese-unrivaled-rose-sky/

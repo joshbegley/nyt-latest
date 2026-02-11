@@ -1,3 +1,7 @@
+**What We Know About the Deadly Mass Shooting in Canada**\
+`The attack at a school and a residence in the small, remote town of Tumbler Ridge, British Columbia, has shocked a country where such acts of violence are rare.`\
+https://nytimes.com/2026/02/11/world/americas/canada-tumbler-ridge-shooting.html
+
 **What to know about every hitter in Dodgers spring camp**\
 `Freddie Freeman, Shohei Ohtani and other familiar names crowd this list, so which unsung players are most likely to break through in 2026?`\
 https://nytimes.com/athletic/7036051/2026/02/11/dodgers-roster-hitters-review/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6988221/2026/02/11/thomas-frank-tottenham-style-sac
 **Ranking Chargers' internal free agents: Who should they be prioritizing?**\
 `The Chargers found an effective pass-rush trio with Tuli Tuipulotu, Odafe Oweh and Khalil Mack. But will Oweh and Mack return next season?`\
 https://nytimes.com/athletic/7031263/2026/02/11/chargers-free-agents-2026-ranking/
-
-**Lowetide: Oilers can't afford to ignore Ike Howard as a scoring solution**\
-`Edmonton's nuclear option is no longer as nuclear as it once was. It's time to give their young offensive dynamo another shot.`\
-https://nytimes.com/athletic/7036237/2026/02/11/oilers-ike-howard-scoring-analysis/
 
