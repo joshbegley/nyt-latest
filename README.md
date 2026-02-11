@@ -1,3 +1,23 @@
+**Man Accused of Killing His Father Said He Was on a ‘Mission From God’**\
+`In a courtroom in Ireland, prosecutors detailed the rambling, manic confessions of Henry McGowan, the New York man charged with murdering his father in a luxury hotel.`\
+https://nytimes.com/2026/02/11/nyregion/henry-mcgowan-murder-trial-ireland.html
+
+**Away From Pomp of Olympics, Homeless Shiver on Streets of Milan**\
+`Six homeless people have died in the Italian city in recent weeks, highlighting the widening inequality as the Games unfold there.`\
+https://nytimes.com/2026/02/11/world/europe/olympics-homeless-milan.html
+
+**Trump Wants to Revive Shipping. Investors Are Slow to Back Him.**\
+`A French logistics behemoth promised $20 billion for the United States, but a year into President Trump’s second term, only a fraction of the money has arrived.`\
+https://nytimes.com/2026/02/11/business/trump-shipping-investors.html
+
+**Corrections: Feb. 11, 2026**\
+`Corrections that appeared in print on Wednesday, Feb. 11, 2026.`\
+https://nytimes.com/2026/02/11/pageoneplus/corrections-feb-11-2026.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 11, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7037889/2026/02/11/connections-sports-edition-hints-answers-feb-11-2026/
+
 **Quote of the Day: D.H.S. Claims In 4 Shootings Fizzle in Court**\
 `Quotation of the Day for Wednesday, February 11, 2026.`\
 https://nytimes.com/2026/02/10/pageoneplus/quote-of-the-day-dhs-claims-in-4-shootings-fizzle-in-court.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-
 **Luka Dončić, Dirk Nowitzki-backed group to buy Italian team with NBA Europe hopes: Sources**\
 `Two former Dallas Mavericks stars and a former GM are part of a group that plans to buy an Italian basketball team and move it to Rome.`\
 https://nytimes.com/athletic/7037888/2026/02/10/nba-europe-luka-doncic-donnie-nelson-italy/
-
-**Here’s what to know.**\
-`By Nicholas Bogel-Burroughs, Chelsia Rose Marcius and Jill Cowan`\
-https://nytimes.com/live/2026/02/10/us/nancy-guthrie-case-suspect-updates/heres-what-to-know
-
-**California Man Sentenced to 4 Years for Covert Work on China’s Behalf**\
-`The man, Mike Sun, corresponded with Chinese government officials, monitored the visit of Taiwan’s president to California and backed the election of a city council member, according to court documents.`\
-https://nytimes.com/2026/02/10/us/california-man-chinese-agent.html
-
-**Twisty Curve**\
-`If you can’t take the heat, get out of Joseph Gangi’s crossword.`\
-https://nytimes.com/2026/02/10/crosswords/daily-puzzle-2026-02-11.html
-
-**The Bears in Iowa? Bill aims to lure NFL team with stadium incentives**\
-`One of the bill's sponsors says Iowa could offer the Bears “everything they need to build a world-class facility."`\
-https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/
-
-**Live Updates: 9 Killed and 25 Injured in Shooting at School and Home in Canada**\
-`The shooting occurred in Tumbler Ridge, a remote community in British Columbia. The police said the suspected shooter died of a self-inflicted injury.`\
-https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
 

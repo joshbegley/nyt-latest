@@ -1,3 +1,15 @@
+**Quote of the Day: D.H.S. Claims In 4 Shootings Fizzle in Court**\
+`Quotation of the Day for Wednesday, February 11, 2026.`\
+https://nytimes.com/2026/02/10/pageoneplus/quote-of-the-day-dhs-claims-in-4-shootings-fizzle-in-court.html
+
+**Hong Kong Convicts a Political Exile’s Father, a First for the City**\
+`In her first interview about her father, the exiled Hong Kong activist Anna Kwok said the authorities were targeting her family to try to silence her.`\
+https://nytimes.com/2026/02/10/world/asia/hong-kong-anna-kwok-father.html
+
+**Victor Wembanyama's hot first half pushes him past Tim Duncan, into NBA record books**\
+`The third-year center scored 25 points in just eight first-quarter minutes, a period-long masterpiece of Picasso-esque proportions`\
+https://nytimes.com/athletic/7037927/2026/02/10/victor-wembanyamas-tim-duncan-spurs-stats-nba/
+
 **Tumbler Ridge is a small, remote town surrounded by wilderness.**\
 `By Vjosa Isai and Yan Zhuang`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-ridge-is-a-small-remote-town-surrounded-by-wilderness
