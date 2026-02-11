@@ -1,3 +1,7 @@
+**Everton, the Hill Dickinson Stadium, and a curious capacity for self-sabotage**\
+`Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
+https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
+
 **A Possible Upside of a Bitter N.Y.C. Winter? There Might Be Fewer Rats.**\
 `Rodent experts said the prolonged cold weather could kill some rats and cause others to have fewer babies, resulting in a smaller population in the spring.`\
 https://nytimes.com/2026/02/11/nyregion/rats-nyc-snow-cold.html
