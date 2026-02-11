@@ -1,3 +1,7 @@
+**How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
+`summary`\
+https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html
+
 **Ken Peplowski, Who Helped Revive Jazz Clarinet, Dies at 66**\
 `Also a saxophone standout, he served as stylistic bridge between the Benny Goodman swing era and the genre-blurring present.`\
 https://nytimes.com/2026/02/11/arts/music/ken-peplowski-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/arts/music/lamonte-mclemore-dead.html
 **Here’s Where Trump Is Unrivaled**\
 `New disclosures underscore that the White House is enveloped in a culture of corruption with no precedent in American history.`\
 https://nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html
-
-**What’s next for Blue Jays following early camp injuries? Plus, Dylan Cease's hobbies**\
-`With Shane Bieber ailing, could Max Scherzer or Chris Bassitt return to Toronto?  Who will fill Anthony Santander's shoes?`\
-https://nytimes.com/athletic/7039834/2026/02/11/blue-jays-injuries-spring-training/
 
