@@ -1,3 +1,11 @@
+**2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
+`Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
+https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
+
+**10 Dead in Shooting at School and Home in British Columbia**\
+`Police say the person believed to be the shooter was among the dead. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
+
 **Elon Musk Wants to Build an A.I. Satellite Factory on the Moon**\
 `In a meeting with employees at his company xAI, Mr. Musk revealed a vision for a facility that includes a giant catapult to launch his satellites into space.`\
 https://nytimes.com/2026/02/10/technology/elon-musk-lunar-factory.html

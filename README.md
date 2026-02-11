@@ -1,3 +1,7 @@
+**Highlights From Ilia Malinin’s Short Program**\
+`With the nervousness of a first-time Olympian behind him, figure skater Ilia Malinin delivered his best routine of the Milan-Cortina Games on Tuesday, bouncing back from two relatively shaky performances in the team event to finish first in the short program with an unforgettable flourish.`\
+https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-program-highlights.html
+
 **2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
 `Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-worl
 **Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
 `The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
 https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
-
-**‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
-`In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
-https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
 
