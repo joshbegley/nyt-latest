@@ -1,3 +1,11 @@
+**West Ham have a new sense of unity. They now truly believe they can survive**\
+`They may have been denied a fourth win in five games by a late equaliser, but Nuno Espirito Santo's side are heading in the right direction`\
+https://nytimes.com/athletic/7036932/2026/02/11/west-ham-manchester-united-survival/
+
+**Jayden Bogle's 'unstoppable' Chelsea performance shows a player reaching new heights**\
+`The right-back appeared everywhere from right wing to No 10 against Chelsea, playing a key role in his side's unlikely comeback`\
+https://nytimes.com/athletic/7037836/2026/02/11/jayden-bogle-leeds-chelsea-analysis/
+
 **Canada Shooting at High School and Home Leaves At Least Nine Dead**\
 `Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
 https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html

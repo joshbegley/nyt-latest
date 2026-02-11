@@ -1,3 +1,11 @@
+**West Ham have a new sense of unity. They now truly believe they can survive**\
+`They may have been denied a fourth win in five games by a late equaliser, but Nuno Espirito Santo's side are heading in the right direction`\
+https://nytimes.com/athletic/7036932/2026/02/11/west-ham-manchester-united-survival/
+
+**Jayden Bogle's 'unstoppable' Chelsea performance shows a player reaching new heights**\
+`The right-back appeared everywhere from right wing to No 10 against Chelsea, playing a key role in his side's unlikely comeback`\
+https://nytimes.com/athletic/7037836/2026/02/11/jayden-bogle-leeds-chelsea-analysis/
+
 **Still there, still loved: Witnessing Howe's vital night of release with Newcastle's away end**\
 `Eddie Howe has been questioned by many people including himself after an awful run. But the die-hard travellers were staying loyal at Spurs`\
 https://nytimes.com/athletic/7037758/2026/02/11/eddie-howe-newcastle-united-release/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-l
 **Late Night Mines Trump’s Million Mentions in the Epstein Files**\
 `“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
-
-**The New York Times in Print for Wednesday, Feb. 11, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/11/todays-new-york-times
-
-**Where A-Listers and Newcomers Shine Equally**\
-`At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
-https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html
 
