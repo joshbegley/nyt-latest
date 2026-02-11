@@ -1,3 +1,7 @@
+**Lewis Hamilton's new Ferrari race engineer yet to be finalized, under a month before new F1 season**\
+`Ferrari is still yet to announce a replacement for Lewis Hamilton's race engineer, less a month until the new F1 season starts`\
+https://nytimes.com/athletic/7038526/2026/02/11/lewis-hamilton-ferrari-f1-engineer-replacement/
+
 **My Brother Wrote Me a Nasty Letter. Why Haven’t My Parents Gotten Involved?**\
 `After her brother accused her of years of mistreatment in a no-holds-barred letter, a reader feels that her parents’ neutrality is tantamount to taking his side.`\
 https://nytimes.com/2026/02/11/style/sibling-quarrel-parental-intervention.html

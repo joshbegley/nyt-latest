@@ -1,3 +1,7 @@
+**Lewis Hamilton's new Ferrari race engineer yet to be finalized, under a month before new F1 season**\
+`Ferrari is still yet to announce a replacement for Lewis Hamilton's race engineer, less a month until the new F1 season starts`\
+https://nytimes.com/athletic/7038526/2026/02/11/lewis-hamilton-ferrari-f1-engineer-replacement/
+
 **My Brother Wrote Me a Nasty Letter. Why Haven’t My Parents Gotten Involved?**\
 `After her brother accused her of years of mistreatment in a no-holds-barred letter, a reader feels that her parents’ neutrality is tantamount to taking his side.`\
 https://nytimes.com/2026/02/11/style/sibling-quarrel-parental-intervention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-ska
 **Rashford misses Barca's Copa del Rey semi-final with knee injury - Flick**\
 `The Catalan side are also set to miss fellow winger Raphinha who is still struggling with a muscle issue.`\
 https://nytimes.com/athletic/7038444/2026/02/11/rashford-barcelona-injury-news/
-
-**Iran Commemorates Revolution, With U.S. Warships Lurking Off the Coast**\
-`The authoritarian clerical regime in Tehran came to power in 1979. Today, it presides over a country that is deeply polarized and under threat of an American attack.`\
-https://nytimes.com/2026/02/11/world/europe/iran-revolution-anniversary.html
 
