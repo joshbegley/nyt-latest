@@ -1,3 +1,19 @@
+**Austria working on Chukwuemeka allegiance switch before World Cup**\
+`Chukwuemeka, born in Austria to Nigerian presents, moved to England at a young age and represented the country up to under-20 level.`\
+https://nytimes.com/athletic/7038382/2026/02/11/chukwuemeka-austria-world-cup/
+
+**Wall St. and Washington Brace for a Big Jobs Report**\
+`A hiring slowdown and fears about artificial intelligence have investors on edge, and some in the Trump administration on the defensive.`\
+https://nytimes.com/2026/02/11/business/dealbook/wall-street-washington-jobs.html
+
+**Trump plans to nominate a ‘data nerd’ to lead Bureau of Labor Statistics.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2026/02/11/business/jobs-report-economy/trump-plans-to-nominate-a-data-nerd-to-lead-bureau-of-labor-statistics
+
+**Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
+`Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G, while USA's Ryan Cochran-Siegle takes silver.`\
+https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
+
 **Men's college basketball mailbag: Who could be this year's NCAA Tournament Cinderella?**\
 `A No. 12 or 13 seed hasn't made it to the Sweet 16 since La Salle in 2013. Will that change this year?`\
 https://nytimes.com/athletic/7037721/2026/02/11/ncaa-tournament-cinderellas-college-basketball-mailbag/
