@@ -1,3 +1,7 @@
+**Chloe Kim qualifies for women's snowboard halfpipe in top spot**\
+`Kim qualified for the women's snowboard halfpipe final in top position, showing no signs of being hampered by her dislocated left shoulder. `\
+https://nytimes.com/athletic/7038240/2026/02/11/chloe-kim-womens-snowboard-halfpipe-qualification-2026-winter-olympics/
+
 **Everything happened yesterday in Italy**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7036593/2026/02/11/winter-olympics-day-4-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/11/us/nancy-guthrie-case-updates
 **Blended officiating will be on full display as NHL players return to Olympics**\
 `Without much fanfare, the NHL and IIHF have spent the last five years or so diligently narrowing the gap between rulebooks.`\
 https://nytimes.com/athletic/7036495/2026/02/11/nhl-olympic-hockey-officiating-rules/
-
-**Alex Sarr film study: How the Wizards are developing their unique big man**\
-`As the NBA has transformed into a game of pace and space, the Wizards' second-year big man is learning how to use his precocious skills.`\
-https://nytimes.com/athletic/7034033/2026/02/11/alex-sarr-wizards-film-breakdown-highlights/
 

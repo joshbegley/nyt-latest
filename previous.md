@@ -1,3 +1,15 @@
+**Everything happened yesterday in Italy**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7036593/2026/02/11/winter-olympics-day-4-the-pulse/
+
+**Behind Oliver Ekman-Larsson's Olympic journey: A lifetime of lessons from home**\
+`Oliver Ekman-Larsson surprised the hockey world by playing his way onto Team Sweden. His former-Olympian grandfather helped him get there.`\
+https://nytimes.com/athletic/7034839/2026/02/11/oliver-ekman-larsson-olympics-sweden-leafs-nhl/
+
+**Olympic men's hockey power rankings: The greatest teams from Canada and the USA**\
+`Just because there's no NHL games doesn't mean there's no topical teams to rank. From first to 12th, here's North America's finest.`\
+https://nytimes.com/athletic/7036460/2026/02/11/olympic-mens-hockey-power-rankings/
+
 **How eco-unfriendly wax cost a South Korean pair in cross-country sprint**\
 `Han Dasom and Lee Eui-jin had both taken part in the qualification time trial, but were subsequently disqualified.`\
 https://nytimes.com/athletic/7038332/2026/02/11/olympics-south-korea-cross-country-ski-wax/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/7038332/2026/02/11/olympics-south-korea-cross-count
 https://nytimes.com/athletic/7038344/2026/02/11/mitchell-marsh-australia-injury/
 
 **Three burning Phillies questions as spring training opens**\
-`There won’t be steep competition for many spots, but there's still plenty to talk about with this roster. `\
+`There won’t be steep competition for many spots, but there's still plenty to talk about with Philadelphia's roster. `\
 https://nytimes.com/athletic/7037842/2026/02/11/phillies-questions-spring-training/
 
 **Here’s what to know.**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7036495/2026/02/11/nhl-olympic-hockey-officiating-r
 **Alex Sarr film study: How the Wizards are developing their unique big man**\
 `As the NBA has transformed into a game of pace and space, the Wizards' second-year big man is learning how to use his precocious skills.`\
 https://nytimes.com/athletic/7034033/2026/02/11/alex-sarr-wizards-film-breakdown-highlights/
-
-**Cowboys Round 1 mock draft: Dallas gets 2 immediate impact defenders**\
-`The Cowboys have a lot of needs, but exiting the first round with a starting cornerback and a pass rusher would be a positive step.`\
-https://nytimes.com/athletic/7037238/2026/02/11/cowboys-mock-draft-first-round-mansoor-delane/
-
-**Lions mock draft 1.0: Detroit gets faster and more athletic on defense**\
-`Detroit trades back in Round 1 and gets one of the draft's top pass rushers while finding an offensive tackle in Round 2.`\
-https://nytimes.com/athletic/7036719/2026/02/11/lions-mock-draft-defense-akheem-mesidor/
-
-**Panthers mock draft 1.0: One thing is clear — defense will be priority**\
-`GM Dan Morgan has stressed the Panthers' need for more pass rushers. Will Carolina take an edge rusher with the 19th pick?`\
-https://nytimes.com/athletic/7036640/2026/02/11/panthers-mock-draft-defense-edge-rusher/
 
