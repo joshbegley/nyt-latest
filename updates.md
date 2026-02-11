@@ -1,3 +1,15 @@
+**Giants to hire former Titans head coach Brian Callahan as QBs coach: Sources**\
+`Callahan was also the Bengals' offensive coordinator for five seasons.`\
+https://nytimes.com/athletic/7038577/2026/02/11/brian-callahan-new-york-giants/
+
+**Federal Debt to Hit Record Levels, Budget Office Warns**\
+`President Trump has reshaped the country’s economic policies, but the outlook for the budget remains dire.`\
+https://nytimes.com/2026/02/11/business/federal-debt-record-levels-budget-office.html
+
+**Team USA wins gold and silver in women's freestyle skiing moguls**\
+`Lemley and Jaelin Kauf's achievements make this the best performance for Team USA in the event's history`\
+https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
+
 **Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
 `The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid told a newspaper it will be "hard to forgive" his infidelity.  `\
 https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/

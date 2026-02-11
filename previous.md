@@ -1,3 +1,11 @@
+**Giants to hire former Titans head coach Brian Callahan as QBs coach: Sources**\
+`Callahan was also the Bengals' offensive coordinator for five seasons.`\
+https://nytimes.com/athletic/7038577/2026/02/11/brian-callahan-new-york-giants/
+
+**Federal Debt to Hit Record Levels, Budget Office Warns**\
+`President Trump has reshaped the country’s economic policies, but the outlook for the budget remains dire.`\
+https://nytimes.com/2026/02/11/business/federal-debt-record-levels-budget-office.html
+
 **Ralph Lauren’s Not-So-Gilded Age**\
 `The designer goes hunting in the fields of style past.`\
 https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-week.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/7037267/2026/02/11/olympics-womens-hockey-gold-meda
 https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update-city-arsenal-tests/
 
 **Team USA wins gold and silver in women's freestyle skiing moguls**\
-`Lemley, 20, is the Olympic champion. Teammate Jaelin Kauf won silver in the women's freestyle skiing moguls.`\
+`Lemley and Jaelin Kauf's achievements make this the best performance for Team USA in the event's history`\
 https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
 
 **Swiss Watch Precision Guardian Tightens Its Criteria**\
 `The Contrôle Officiel Suisse des Chronomètres adds a new chronometer standard, certifying watches accurate to six seconds a day.`\
 https://nytimes.com/2026/02/11/fashion/watches-controle-officiel-suisse-des-chronometres.html
-
-**Tottenham's Wilson Odobert suffers ACL tear**\
-`The 21-year-old went off injured in the 35th minute of Tuesday's home defeat by Newcastle.`\
-https://nytimes.com/athletic/7038527/2026/02/11/wilson-odobert-tottenham-injury-acl/
-
-**Lewis Hamilton's new Ferrari race engineer yet to be finalized, under a month before new F1 season**\
-`Ferrari is still yet to announce a replacement for Lewis Hamilton's race engineer, less a month until the new F1 season starts`\
-https://nytimes.com/athletic/7038526/2026/02/11/lewis-hamilton-ferrari-f1-engineer-replacement/
 
