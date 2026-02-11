@@ -1,3 +1,7 @@
+**Still there, still loved: Witnessing Howe's vital night of release with Newcastle's away end**\
+`Eddie Howe has been questioned by many people including himself after an awful run. But the die-hard travellers were staying loyal at Spurs`\
+https://nytimes.com/athletic/7037758/2026/02/11/eddie-howe-newcastle-united-release/
+
 **Canada Shooting at High School and Home Leaves Several Dead**\
 `Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
 https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html
