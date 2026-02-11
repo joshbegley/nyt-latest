@@ -1,3 +1,7 @@
+**De Zerbi leaves position as Marseille manager 'by mutual agreement'**\
+`The former Brighton & Hove Albion manager has left the French club following a thrashing by PSG and Champions League elimination`\
+https://nytimes.com/athletic/7038000/2026/02/11/roberto-de-zerbi-marseille-exit/
+
 **Canada launched major gun reforms in 2020 after its deadliest mass shooting.**\
 `By Vjosa Isai`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-launched-major-gun-reforms-in-2020-after-its-deadliest-mass-shooting
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6925270/2026/02/11/milan-cortina-winter-olympics-wh
 **Top Border Official Praised Agent Who Shot Chicago Woman, Evidence Shows**\
 `A Border Patrol agent shot Marimar Martinez five times, claiming that she tried to run him over. Newly released videos and text messages reveal fresh details about what happened.`\
 https://nytimes.com/2026/02/11/us/dc-chicago-border-officials.html
-
-**None of Villa's signing this season have scored yet - is that a problem or does the Emery factor counteract it?**\
-`Villa may not have new signings bringing goals, but that issue is eased by their manager having the ability to improve the players he has.`\
-https://nytimes.com/athletic/7035536/2026/02/11/aston-villa-signings-goals-emery/
 

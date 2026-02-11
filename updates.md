@@ -1,3 +1,7 @@
+**De Zerbi leaves position as Marseille manager 'by mutual agreement'**\
+`The former Brighton & Hove Albion manager has left the French club following a thrashing by PSG and Champions League elimination`\
+https://nytimes.com/athletic/7038000/2026/02/11/roberto-de-zerbi-marseille-exit/
+
 **Canada launched major gun reforms in 2020 after its deadliest mass shooting.**\
 `By Vjosa Isai`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-launched-major-gun-reforms-in-2020-after-its-deadliest-mass-shooting
