@@ -1,3 +1,7 @@
+**Bay FC signs USWNT midfielder Claire Hutton in $1.1 million deal with Kansas City Current**\
+`With her contract expiring, the 20-year-old considered a move to Europe and has not ruled out the possibility in the future.`\
+https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc-from-kc-current/
+
 **Pastor shares inside story of legal wedding at Bad Bunny Super Bowl halftime show**\
 `Antonio Reyes of Sacramento's Project Church called the Super Bowl nuptials "the quickest ceremony I've ever done."`\
 https://nytimes.com/athletic/7039212/2026/02/11/bad-bunny-super-bowl-halftime-wedding/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/dining/yotam-ottolenghi-chickpea-stew.html
 **How to watch Spurs vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7039670/2026/02/11/spurs-vs-warriors-stream-how-to-watch-feb-11/
-
-**Wambach leaves Wasserman Agency over founder's ties to Epstein**\
-`United States women's soccer legend Abby Wambach announces she is cutting ties with Wasserman Agency after Epstein Files release`\
-https://nytimes.com/athletic/7039228/2026/02/11/epstein-files-uswnt-abby-wambach-wasserman-agency/
 

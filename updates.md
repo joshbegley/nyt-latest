@@ -1,3 +1,7 @@
+**Bay FC signs USWNT midfielder Claire Hutton in $1.1 million deal with Kansas City Current**\
+`With her contract expiring, the 20-year-old considered a move to Europe and has not ruled out the possibility in the future.`\
+https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc-from-kc-current/
+
 **Pastor shares inside story of legal wedding at Bad Bunny Super Bowl halftime show**\
 `Antonio Reyes of Sacramento's Project Church called the Super Bowl nuptials "the quickest ceremony I've ever done."`\
 https://nytimes.com/athletic/7039212/2026/02/11/bad-bunny-super-bowl-halftime-wedding/
