@@ -1,3 +1,7 @@
+**How eco-unfriendly wax cost a South Korean pair in cross-country sprint**\
+`Han Dasom and Lee Eui-jin had both taken part in the qualification time trial, but were subsequently disqualified.`\
+https://nytimes.com/athletic/7038332/2026/02/11/olympics-south-korea-cross-country-ski-wax/
+
 **Marsh suffers testicular bleeding after training ground accident**\
 `Australia captain Mitchell Marsh was ruled out of his side’s opening match against Ireland at the Men’s T20 World Cup after suffering internal testicular bleeding in a training ground accident.`\
 https://nytimes.com/athletic/7038344/2026/02/11/mitchell-marsh-australia-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036719/2026/02/11/lions-mock-draft-defense-akheem-
 **Panthers mock draft 1.0: One thing is clear — defense will be priority**\
 `GM Dan Morgan has stressed the Panthers' need for more pass rushers. Will Carolina take an edge rusher with the 19th pick?`\
 https://nytimes.com/athletic/7036640/2026/02/11/panthers-mock-draft-defense-edge-rusher/
-
-**For Aaron Boone’s ninth Yankees season, it’s win or go home**\
-`Boone needs to be great in '26 and end up on a float in a ticker-tape parade. If not, it will be time to hand over the team to someone else.`\
-https://nytimes.com/athletic/7037621/2026/02/11/yankees-aaron-boone-must-win-season/
 
