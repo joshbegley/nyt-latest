@@ -1,3 +1,15 @@
+**With key teammates retained, Joe Ryan is 'really happy' to return to Twins**\
+`Joe Ryan didn't reflect for on the trying final two months of the Twins' 2025 season.`\
+https://nytimes.com/athletic/7039529/2026/02/11/with-key-teammates-retained-joe-ryan-is-really-happy-to-return-to-twins/
+
+**Arsenal's Havertz sustains muscular injury, set to miss north London derby**\
+`Havertz' injury is compounded by the fact that fellow Arsenal midfielder Mikel Merino will miss an extended period due to a foot injury.`\
+https://nytimes.com/athletic/7038931/2026/02/11/kai-havertz-injury-arsenal-update/
+
+**T's March 8 Men's Fashion Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2026/02/11/ts-march-8-mens-fashion-issue-2026
+
 **The Best Part of This Chickpea Stew? The Tiny Pasta in Every Bite.**\
 `Yotam Ottolenghi channels a childhood favorite for a dish that’s still sophisticated enough for grown-ups.`\
 https://nytimes.com/2026/02/11/dining/yotam-ottolenghi-chickpea-stew.html
