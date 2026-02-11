@@ -1,3 +1,19 @@
+**How to watch Chloe Kim try to make history with a third straight gold**\
+`Snowboarding legend Chloe Kim aims to shrug off a recent injury as she pursues her third consecutive Olympic gold medal.`\
+https://nytimes.com/athletic/7037311/2026/02/11/chloe-kim-winter-olympics-how-to-watch-2026/
+
+**Young Voters in Bangladesh Have Demands for Thursday’s Election**\
+`Young voters, many of whom participated in a student-led revolution that toppled the government in 2024, hope the election will result in a new direction for the nation.`\
+https://nytimes.com/video/world/asia/100000010704401/bangladesh-election-youth.html
+
+**F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
+`No flights would be allowed to or from the airport for 10 days under a flight restriction order that cited unspecified “special security reasons.”`\
+https://nytimes.com/2026/02/11/us/faa-el-paso-flight-restrictions.html
+
+**‘An Uphill Struggle’: King Charles Is Not Giving Up on the Planet Yet**\
+`Environmentalism may have gone out of fashion on Wall Street and in the White House, but the British monarch says he remains deeply committed to the cause in a new documentary, ‘Finding Harmony’.`\
+https://nytimes.com/2026/02/11/world/europe/king-charles-harmony-documentary-climate.html
+
 **A Possible Upside of a Bitter N.Y.C. Winter? There Might Be Fewer Rats.**\
 `Rodent experts said the prolonged cold weather could kill some rats and cause others to have fewer babies, resulting in a smaller population in the spring.`\
 https://nytimes.com/2026/02/11/nyregion/rats-nyc-snow-cold.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/11/nyregion/ice-yachting-race-navesink-river.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/11/crosswords/spelling-bee-forum.html
-
-**West Ham have a new sense of unity. They now truly believe they can survive**\
-`They may have been denied a fourth win in five games by a late equaliser, but Nuno Espirito Santo's side are heading in the right direction`\
-https://nytimes.com/athletic/7036932/2026/02/11/west-ham-manchester-united-survival/
-
-**Jayden Bogle's 'unstoppable' Chelsea performance shows a player reaching new heights**\
-`The right-back appeared everywhere from right wing to No 10 against Chelsea, playing a key role in his side's unlikely comeback`\
-https://nytimes.com/athletic/7037836/2026/02/11/jayden-bogle-leeds-chelsea-analysis/
-
-**Canada Shooting at High School and Home Leaves At Least Nine Dead**\
-`Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
-https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html
-
-**Everton, the Hill Dickinson Stadium, and a curious capacity for self-sabotage**\
-`Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
-https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
 

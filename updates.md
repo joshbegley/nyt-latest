@@ -1,3 +1,19 @@
+**How to watch Chloe Kim try to make history with a third straight gold**\
+`Snowboarding legend Chloe Kim aims to shrug off a recent injury as she pursues her third consecutive Olympic gold medal.`\
+https://nytimes.com/athletic/7037311/2026/02/11/chloe-kim-winter-olympics-how-to-watch-2026/
+
+**Young Voters in Bangladesh Have Demands for Thursday’s Election**\
+`Young voters, many of whom participated in a student-led revolution that toppled the government in 2024, hope the election will result in a new direction for the nation.`\
+https://nytimes.com/video/world/asia/100000010704401/bangladesh-election-youth.html
+
+**F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
+`No flights would be allowed to or from the airport for 10 days under a flight restriction order that cited unspecified “special security reasons.”`\
+https://nytimes.com/2026/02/11/us/faa-el-paso-flight-restrictions.html
+
+**‘An Uphill Struggle’: King Charles Is Not Giving Up on the Planet Yet**\
+`Environmentalism may have gone out of fashion on Wall Street and in the White House, but the British monarch says he remains deeply committed to the cause in a new documentary, ‘Finding Harmony’.`\
+https://nytimes.com/2026/02/11/world/europe/king-charles-harmony-documentary-climate.html
+
 **Everton, the Hill Dickinson Stadium, and a curious capacity for self-sabotage**\
 `Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
 https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
