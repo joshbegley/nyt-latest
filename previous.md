@@ -1,3 +1,23 @@
+**What We Know About the El Paso Airspace Shutdown**\
+`The Trump administration blamed the disruptive halt on a cartel drone incursion, but others have disputed that explanation.`\
+https://nytimes.com/2026/02/11/us/el-paso-airspace-shutdown-what-to-know.html
+
+**How the perspective of Olympic margins prepared Canada to start the men’s hockey tournament**\
+`The Olympics are inherently about minutiae, the details that differentiate a win from a loss. Canada's penalty kill is among them.`\
+https://nytimes.com/athletic/7039122/2026/02/11/olympics-mens-hockey-canada-penalty-kill/
+
+**Which 2026 NFL Draft prospects received invites to NFL Scouting Combine?**\
+`There are 319 NFL Draft prospects invited to the 2026 NFL Scouting Combine, which begins with player arrivals in Indianapolis on Feb. 22.`\
+https://nytimes.com/athletic/7038996/2026/02/11/nfl-draft-2026-combine-prospects-invites/
+
+**Questions Surround Trump Administration’s Explanation for El Paso Airspace Closure**\
+`Administration officials said Mexican drug cartel drones breached U.S. airspace, prompting the closure. But two people briefed on the situation said the shutdown was prompted by the Defense Department’s use of new counter-drone technology.`\
+https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport/questions-surround-trump-administrations-explanation-for-el-paso-airspace-closure
+
+**Ukrainian Olympic athlete on collision course with IOC over 'helmet of memory'**\
+`Questions have arisen about other athletes who have made similar tributes to family members or friends.`\
+https://nytimes.com/athletic/7038558/2026/02/11/ukraine-skeleton-helmet-banned-olympics-heraskevych/
+
 **Lindsey Vonn has third surgery, says success now has 'completely different meaning'**\
 `Vonn's post was accompanied by a picture and had a decidedly less upbeat tone than her previous statement.`\
 https://nytimes.com/athletic/7039162/2026/02/11/lindsey-vonn-third-surgery-tibia-fracture-olympics/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7038755/2026/02/11/nhl-olympic-hockey-tournament-st
 **Cash expected to miss Villa's next two games with knee injury**\
 `The defender has avoided a serious injury after sustaining the issue during Saturday's draw with Bournemouth.`\
 https://nytimes.com/athletic/7038881/2026/02/11/matty-cash-knee-injury-aston-villa/
-
-**Man Utd co-owner Ratcliffe says UK 'has been colonised by immigrants'**\
-`Ratcliffe, who moved to Monaco in 2020, said the UK needs a prime minister who is “prepared to be unpopular … to get the big issues sorted”.`\
-https://nytimes.com/athletic/7039130/2026/02/11/jim-ratcliffe-manchester-united-immigrants/
-
-**England to prepare for World Cup against New Zealand & Costa Rica**\
-`The games in southern Florida promise to give England a flavour of the heat which is likely to be a fixture of the tournament.`\
-https://nytimes.com/athletic/7039048/2026/02/11/england-world-cup-new-zealand-costa-rica-florida/
-
-**Frank was meant to bring stability to Spurs, but ended up unpopular with fans and players**\
-`There have been some unpopular managers at Spurs in recent years. But even at the worst moments, predecessors were not as scorned as Frank`\
-https://nytimes.com/athletic/6982893/2026/02/11/thomas-frank-sacking-spurs/
-
-**Netflix pursuing Barry Bonds for Opening Day coverage: Sources**\
-`Netflix is also trying to sign CC Sabathia to be a part of its Opening Day coverage, according to sources briefed on the discussions.`\
-https://nytimes.com/athletic/7039087/2026/02/11/barry-bonds-netflix-opening-day-stream-mlb/
-
-**This Sheet-Pan Shrimp and Rice Is Extremely Nice**\
-`Melissa Clark’s recipe layers textures and flavors in this generous weeknight dinner, inspired by shrimp fried rice.`\
-https://nytimes.com/2026/02/11/dining/sheet-pan-shrimp-fried-rice-easy-dinner.html
 

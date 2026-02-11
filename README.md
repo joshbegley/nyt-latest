@@ -1,3 +1,11 @@
+**In North Carolina, a Tight Primary Could Upend the Balance of Conservative Power**\
+`Phil Berger has led the State Senate for years with an iron grip. But in a March election, he faces a popular, horse-riding sheriff who could topple his reign.`\
+https://nytimes.com/2026/02/11/us/politics/north-carolina-state-senate-primary-berger-page.html
+
+**N.B.A. Trade Deadline Winners and Losers**\
+`Now that the dust has settled on the N.B.A. trade deadline, which team got closer to a championship? Which team got worse? And which team has the most exciting new teammates to watch? The hosts of “The Athletic Show” and “NBA Daily” break it all down with a senior N.B.A writer from The Athletic.`\
+https://nytimes.com/video/the-athletic/100000010705528/nba-trade-deadline-winners-and-losers.html
+
 **What We Know About the El Paso Airspace Shutdown**\
 `The Trump administration blamed the disruptive halt on a cartel drone incursion, but others have disputed that explanation.`\
 https://nytimes.com/2026/02/11/us/el-paso-airspace-shutdown-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/t-magazine/clothes-decor-design.html
 **Kraft Heinz Reverses Course on Company Split as Sales Continue to Slide**\
 `The company’s new C.E.O. said he saw opportunities to fix and grow the food giant — and cut prices for consumers.`\
 https://nytimes.com/2026/02/11/business/kraft-heinz-sales-prices-cahillane.html
-
-**Games Briefing: Olympics updates: NHLers are officially back!**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7038755/2026/02/11/nhl-olympic-hockey-tournament-start-games-briefing/
-
-**Cash expected to miss Villa's next two games with knee injury**\
-`The defender has avoided a serious injury after sustaining the issue during Saturday's draw with Bournemouth.`\
-https://nytimes.com/athletic/7038881/2026/02/11/matty-cash-knee-injury-aston-villa/
 
