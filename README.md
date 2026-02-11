@@ -1,3 +1,7 @@
+**10 Dead in Shooting at School and Home in British Columbia**\
+`Police say the person believed to be the shooter was among the dead. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
+
 **Elon Musk Wants to Build an A.I. Satellite Factory on the Moon**\
 `In a meeting with employees at his company xAI, Mr. Musk revealed a vision for a facility that includes a giant catapult to launch his satellites into space.`\
 https://nytimes.com/2026/02/10/technology/elon-musk-lunar-factory.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
 **Super Bowl LX draws 124.9 million viewers, Bad Bunny 128.2 million**\
 `The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
 https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
-
-**Garrett Crochet's new pitch, Kristian Campbell sticking to outfield and more Red Sox notes**\
-`The Red Sox ace said he’s planning to take another step forward in 2026, but declined to share his goals publicly.`\
-https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
 
