@@ -1,3 +1,7 @@
+**What to know about every hitter in Dodgers spring camp**\
+`Freddie Freeman, Shohei Ohtani and other familiar names crowd this list, so which unsung players are most likely to break through in 2026?`\
+https://nytimes.com/athletic/7036051/2026/02/11/dodgers-roster-hitters-review/
+
 **Ilia Malinin is nearing Olympic gold. Meet who taught him the quadruple axel**\
 `Inspired by Rafael Arutyunyan's famed anti-coddling approach, the U.S. superstar is one skate from glory.`\
 https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-skating-coach-rafael-arutyunyan/

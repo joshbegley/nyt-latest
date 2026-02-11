@@ -2,6 +2,10 @@
 `Freddie Freeman, Shohei Ohtani and other familiar names crowd this list, so which unsung players are most likely to break through in 2026?`\
 https://nytimes.com/athletic/7036051/2026/02/11/dodgers-roster-hitters-review/
 
+**Angel Reese to join Unrivaled for remainder of season, reunite with Rose BC**\
+`Reese will join the Rose for their final three regular-season games.`\
+https://nytimes.com/athletic/7037012/2026/02/11/angel-reese-unrivaled-rose-sky/
+
 **Ilia Malinin is nearing Olympic gold. Meet who taught him the quadruple axel**\
 `Inspired by Rafael Arutyunyan's famed anti-coddling approach, the U.S. superstar is one skate from glory.`\
 https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-skating-coach-rafael-arutyunyan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031263/2026/02/11/chargers-free-agents-2026-rankin
 **Lowetide: Oilers can't afford to ignore Ike Howard as a scoring solution**\
 `Edmonton's nuclear option is no longer as nuclear as it once was. It's time to give their young offensive dynamo another shot.`\
 https://nytimes.com/athletic/7036237/2026/02/11/oilers-ike-howard-scoring-analysis/
-
-**9 Killed and 25 Injured in Shootings at School and Home in Canada**\
-`The police said the suspect died of a self-inflicted injury after the shooting in Tumbler Ridge, a remote community in British Columbia.`\
-https://nytimes.com/2026/02/11/world/canada/canada-shooting-tumbler-ridge-british-columbia.html
 
