@@ -1,3 +1,19 @@
+**N.Y.P.D. Asks Trump Administration for Authority to Disable Drones**\
+`The request, by Police Commissioner Jessica Tisch, came a day before federal authorities closed the airspace in El Paso because of what they said was a drone threat.`\
+https://nytimes.com/2026/02/11/nyregion/nypd-drones-cities-el-paso.html
+
+**U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
+`A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
+https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
+
+**Jordan Stolz nabs Olympic record and 1000m speedskating gold**\
+`Stolz has drawn comparisons to Michael Phelps and Apolo Ohno for his individual medal potential. `\
+https://nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-speedskating-1000-meters/
+
+**Chickpeas al Limone With Burrata**\
+`Inspired by the jaunty pasta dish, spaghetti al limone, here’s a new way to make a memorable meal from humble cans of chickpeas; just add lemon, olive oil and Parmesan.`\
+https://nytimes.com/video/dining/100000010689565/chickpeas-al-limone-with-burrata.html
+
 **Potato Nachos**\
 `Crisp potatoes, crispier cheese and spicy-tart pickled jalapeños come together here for a riff on the classic three-ingredient nacho dish.`\
 https://nytimes.com/video/dining/100000010689587/potato-nachos.html
