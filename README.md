@@ -1,3 +1,7 @@
+**James Van Der Beek, Teenage Heartthrob of ‘Dawson’s Creek,’ Dies at 48**\
+`He first appeared in a hit TV drama as a wide-eyed 15-year-old who then grew up over six seasons. He announced he had cancer in 2024.`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dead.html
+
 **Defiant Seahawks celebrate Super Bowl: 'A lot of people didn't believe'**\
 `Three days after claiming the second Lombardi Trophy in franchise history, the Seahawks relished in victory and taunted their doubters.`\
 https://nytimes.com/athletic/7039290/2026/02/11/seahawks-super-bowl-parade-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038971/2026/02/11/olympics-biathlon-norwegian-infi
 **What’s in Our Queue? ‘Foxes in the Snow’ and More**\
 `Text by Dana Rubinstein`\
 https://nytimes.com/card/2026/02/11/arts/editors-recommendations-isbell
-
-**Francisco Lindor heads for hand surgery as Mets hope for Opening Day return**\
-`Mets officials talk about having “four shortstops” in Lindor, Marcus Semien, Bo Bichette and Jorge Polanco. That depth will be tested early.`\
-https://nytimes.com/athletic/7039273/2026/02/11/francisco-lindor-mets-surgery/
 
