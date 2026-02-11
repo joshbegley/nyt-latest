@@ -1,3 +1,7 @@
+**Canada launched major gun reforms in 2020 after its deadliest mass shooting.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-launched-major-gun-reforms-in-2020-after-its-deadliest-mass-shooting
+
 **Late Night Mines Trump’s Million Mentions in the Epstein Files**\
 `“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/us/dc-chicago-border-officials.html
 **None of Villa's signing this season have scored yet - is that a problem or does the Emery factor counteract it?**\
 `Villa may not have new signings bringing goals, but that issue is eased by their manager having the ability to improve the players he has.`\
 https://nytimes.com/athletic/7035536/2026/02/11/aston-villa-signings-goals-emery/
-
-**Why are angry Real Madrid fans waving white handkerchiefs?**\
-`Thousands of Real Madrid fans held their white hankies aloft to protest recent performances, a gesture with origins in bullfighting`\
-https://nytimes.com/athletic/7035880/2026/02/11/real-madrid-bernabeu-fans-handkerchiefs-history/
 

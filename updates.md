@@ -1,3 +1,7 @@
+**Canada launched major gun reforms in 2020 after its deadliest mass shooting.**\
+`By Vjosa Isai`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/canada-launched-major-gun-reforms-in-2020-after-its-deadliest-mass-shooting
+
 **Late Night Mines Trump’s Million Mentions in the Epstein Files**\
 `“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
