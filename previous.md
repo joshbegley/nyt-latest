@@ -1,3 +1,15 @@
+**What Questions Do You Have About Saudi Arabia?**\
+`“Ask a Correspondent” will take your questions to Vivian Nereim, our Gulf bureau chief.`\
+https://nytimes.com/2026/02/11/world/what-questions-do-you-have-about-saudi-arabia.html
+
+**Real Madrid, UEFA announce agreement to resolve Super League legal disputes**\
+`In October 2025, Madrid set out to seek a reported €4.5billion (£3.9bn; $5.2bn) in damages from UEFA.`\
+https://nytimes.com/athletic/7038687/2026/02/11/super-league-real-madrid-uefa-agreement/
+
+**The Athletic Show**\
+`Welcome to your essential weekly breakdown of the biggest stories in sports, brought to you by the most extensive sports newsroom ever assembled. Every Saturday, Robert Mays, Zena Keita and Jason Goff will explain the stories behind the headlines, leaning on the expertise of The Athletic's esteemed reporters to cut through the noise.`\
+https://nytimes.com/column/the-athletic-show
+
 **Mavs collaborating with CAA Sports, take another step toward new arena: What we know**\
 `Amid a season of change, the Mavericks are continuing to look ahead to the next decade and their potential future home.`\
 https://nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge
 **Olympic organizers offer to repair broken medals, recall other medals**\
 `While Olympic organizers have offered to fix broken medals, some who experienced issues early in the Games were instead given replacements. `\
 https://nytimes.com/athletic/7038500/2026/02/11/broken-olympics-medals-repair-original-breezy-johnson/
-
-**Giants to hire former Titans head coach Brian Callahan as QBs coach: Sources**\
-`Callahan was also the Bengals' offensive coordinator for five seasons.`\
-https://nytimes.com/athletic/7038577/2026/02/11/brian-callahan-new-york-giants/
-
-**Federal Debt to Hit Record Levels, Budget Office Warns**\
-`President Trump has reshaped the country’s economic policies, but the outlook for the budget remains dire.`\
-https://nytimes.com/2026/02/11/business/federal-debt-record-levels-budget-office.html
-
-**Ralph Lauren’s Not-So-Gilded Age**\
-`The designer goes hunting in the fields of style past.`\
-https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-week.html
 

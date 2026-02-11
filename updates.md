@@ -1,3 +1,15 @@
+**What Questions Do You Have About Saudi Arabia?**\
+`“Ask a Correspondent” will take your questions to Vivian Nereim, our Gulf bureau chief.`\
+https://nytimes.com/2026/02/11/world/what-questions-do-you-have-about-saudi-arabia.html
+
+**Real Madrid, UEFA announce agreement to resolve Super League legal disputes**\
+`In October 2025, Madrid set out to seek a reported €4.5billion (£3.9bn; $5.2bn) in damages from UEFA.`\
+https://nytimes.com/athletic/7038687/2026/02/11/super-league-real-madrid-uefa-agreement/
+
+**The Athletic Show**\
+`Welcome to your essential weekly breakdown of the biggest stories in sports, brought to you by the most extensive sports newsroom ever assembled. Every Saturday, Robert Mays, Zena Keita and Jason Goff will explain the stories behind the headlines, leaning on the expertise of The Athletic's esteemed reporters to cut through the noise.`\
+https://nytimes.com/column/the-athletic-show
+
 **Mavs collaborating with CAA Sports, take another step toward new arena: What we know**\
 `Amid a season of change, the Mavericks are continuing to look ahead to the next decade and their potential future home.`\
 https://nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/
