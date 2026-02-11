@@ -1,3 +1,11 @@
+**Ralph Lauren’s Not-So-Gilded Age**\
+`The designer goes hunting in the fields of style past.`\
+https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-week.html
+
+**The Bounce: Jazz are pushing the tanking boundaries. Plus, Wemby goes nuclear**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7033033/2026/02/11/utah-jazz-tanking-nba-victor-wembanyamathe-the-bounce/
+
 **Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
 `The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid said it will be "hard to forgive" his infidelity.  `\
 https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7038527/2026/02/11/wilson-odobert-tottenham-injury-
 **Lewis Hamilton's new Ferrari race engineer yet to be finalized, under a month before new F1 season**\
 `Ferrari is still yet to announce a replacement for Lewis Hamilton's race engineer, less a month until the new F1 season starts`\
 https://nytimes.com/athletic/7038526/2026/02/11/lewis-hamilton-ferrari-f1-engineer-replacement/
-
-**My Brother Wrote Me a Nasty Letter. Why Haven’t My Parents Gotten Involved?**\
-`After her brother accused her of years of mistreatment in a no-holds-barred letter, a reader feels that her parents’ neutrality is tantamount to taking his side.`\
-https://nytimes.com/2026/02/11/style/sibling-quarrel-parental-intervention.html
-
-**Diet Alone Will Not Cure Mental Illness**\
-`And other inane cruelties uttered by Robert F. Kennedy Jr.`\
-https://nytimes.com/2026/02/11/opinion/kennedy-mental-illness.html
 
