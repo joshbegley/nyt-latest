@@ -1,3 +1,11 @@
+**Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
+`Phillips morphed into one of the game’s more dominant relievers with the Dodgers.`\
+https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
+
+**States Weigh Bills to Allow You to Make Your Own Electricity**\
+`Twenty four states are now considering legislation to allow small, plug-in solar power systems that connect directly into a wall socket.`\
+https://nytimes.com/2026/02/11/climate/plug-in-solar-power-bills.html
+
 **Big 12 tournament basketball games to be played on LED video floor**\
 `The Big 12 basketball tournaments will be the first time this particular LED court tech will be used for official competition in the U.S.`\
 https://nytimes.com/athletic/7038865/2026/02/11/big-12-tournament-games-basketball-led-floor/
