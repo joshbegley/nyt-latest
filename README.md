@@ -1,3 +1,23 @@
+**Jordan Stolz hits another gear to set an Olympic record.**\
+`By Victor Mather and Doug Mills`\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/jordan-stolz-hits-another-gear-to-set-an-olympic-record
+
+**Charlie McAvoy’s Olympic diary: On Coach Snoop, meeting Chock and Bates and prep for Latvia**\
+`On the eve of Team USA's debut in the men's hockey tournament, McAvoy chronicles his Olympic adventures for The Athletic.`\
+https://nytimes.com/athletic/7039304/2026/02/11/charlie-mcavoy-olympics-diary-usa-mens-hockey/
+
+**Biathlon's wild Olympic start: Infidelity, credit card fraud and medal reallocations**\
+`One biathlete admitted infidelity. Another won gold months after stealing her teammate's credit card. It's been a week at Olympic biathlon.`\
+https://nytimes.com/athletic/7038971/2026/02/11/olympics-biathlon-norwegian-infidelity-fraud-medals/
+
+**What’s in Our Queue? ‘Foxes in the Snow’ and More**\
+`Text by Dana Rubinstein`\
+https://nytimes.com/card/2026/02/11/arts/editors-recommendations-isbell
+
+**Francisco Lindor heads for hand surgery as Mets hope for Opening Day return**\
+`Mets officials talk about having “four shortstops” in Lindor, Marcus Semien, Bo Bichette and Jorge Polanco. That depth will be tested early.`\
+https://nytimes.com/athletic/7039273/2026/02/11/francisco-lindor-mets-surgery/
+
 **‘Miss Piggy Is Vogue!’ and Four More Surprising Moments With Anna Wintour and Chloe Malle**\
 `What is Ms. Wintour’s alternative career path? Who does Ms. Malle hope to rub elbows with at the Met Gala? More from our interview with American Vogue’s past and present.`\
 https://nytimes.com/2026/02/11/business/media/anna-wintour-chloe-malle-vogue-conde-nast.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-spe
 **Chickpeas al Limone With Burrata**\
 `Inspired by the jaunty pasta dish, spaghetti al limone, here’s a new way to make a memorable meal from humble cans of chickpeas; just add lemon, olive oil and Parmesan.`\
 https://nytimes.com/video/dining/100000010689565/chickpeas-al-limone-with-burrata.html
-
-**Potato Nachos**\
-`Crisp potatoes, crispier cheese and spicy-tart pickled jalapeños come together here for a riff on the classic three-ingredient nacho dish.`\
-https://nytimes.com/video/dining/100000010689587/potato-nachos.html
-
-**Princess Cake**\
-`Princess Cake, or Prinsesstårta, makes a spectacular centerpiece for any celebration, but despite its regal appearance, this simplified version is far easier to make than it looks.`\
-https://nytimes.com/video/dining/100000010689600/princess-cake.html
-
-**Moravian Sugar Cake**\
-`Not quite cake (though it’s a close cousin to coffee cake), and not quite bread (though it looks like a sugar-laden focaccia), Moravian sugar cake is perhaps most similar in spirit to cinnamon rolls.`\
-https://nytimes.com/video/dining/100000010689581/moravian-sugar-cake.html
-
-**In North Carolina, a Tight Primary Could Upend the Balance of Conservative Power**\
-`Phil Berger has led the State Senate for years with an iron grip. But in a March election, he faces a popular, horse-riding sheriff who could topple his reign.`\
-https://nytimes.com/2026/02/11/us/politics/north-carolina-state-senate-primary-berger-page.html
-
-**N.B.A. Trade Deadline Winners and Losers**\
-`Now that the dust has settled on the N.B.A. trade deadline, which team got closer to a championship? Which team got worse? And which team has the most exciting new teammates to watch? The hosts of “The Athletic Show” and “NBA Daily” break it all down with a senior N.B.A writer from The Athletic.`\
-https://nytimes.com/video/the-athletic/100000010705528/nba-trade-deadline-winners-and-losers.html
 
