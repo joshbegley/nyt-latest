@@ -1,3 +1,23 @@
+**Pebble Beach Pro-Am odds, picks: Scheffler is a big favorite as McIlroy defends title**\
+`Dennis Esser breaks down his betting picks and daily fantasy plays for the AT&T Pebble Beach Pro-Am.`\
+https://nytimes.com/athletic/7036715/2026/02/11/2026-pebble-beach-pro-am-odds-dfs-picks-scheffler-mcilroy/
+
+**Trump to Meet Netanyahu in Washington Amid Tensions With Iran**\
+`It will be the sixth visit by Prime Minister Benjamin Netanyahu of Israel to the United States to meet with President Trump since the president began his second term.`\
+https://nytimes.com/2026/02/11/us/politics/trump-netanyahu-israel-iran.html
+
+**Danny Casper, new U.S. men's curling Olympic skip, is ready for the challenge**\
+`In November, Casper's team upended John Shuster's 20-year run as the face of U.S. men's curling. Now Casper enters the Olympic spotlight.`\
+https://nytimes.com/athletic/6961798/2026/02/11/danny-casper-winter-olympics-usa-curling-skip/
+
+**The format for the men's Olympic hockey tournament is terrible. Here's how to fix it**\
+`A format similar to the women's side would make for a stronger men's tournament, with more competitive games and fewer blowouts. `\
+https://nytimes.com/athletic/7035984/2026/02/11/olympic-mens-hockey-tournament-format-fixes-ideas/
+
+**Thomas Frank and Tottenham Hotspur seemed like a good match... until they didn't**\
+`For Tottenham Hotspur and Thomas Frank, the grass was not greener`\
+https://nytimes.com/athletic/6854696/2026/02/11/thomas-frank-tottenham-sacked-reaction/
+
 **What's it like to fall at the Olympics? Nathan Chen can tell you**\
 `Figure skater Nathan Chen fell during his routine in the 2018 Olympics. Four years later, he won gold.`\
 https://nytimes.com/athletic/7035806/2026/02/11/olympics-nathan-chen-figure-skating-fall/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7037227/2026/02/11/new-york-giants-offensive-roster
 **Browns mock draft: Improving wide receiver, offensive line groups in Round 1**\
 `In our first  Cleveland mock draft, the team beefs up its offensive line and finds playmaking help for whoever starts at QB in 2026. `\
 https://nytimes.com/athletic/7037306/2026/02/11/browns-2026-nfl-mock-draft/
-
-**You've probably never thought about the mental challenges of curling. So let me tell you**\
-`Canada's Jennifer Jones felt the pressure of the whole Olympics riding on her final shot in 2014. So she told herself: "No regrets."`\
-https://nytimes.com/athletic/7037071/2026/02/11/curling-olympics-jennifer-jones-mental-challenge/
-
-**Raptors GM Bobby Webster says 'there's no preferred route' to building next Toronto contender**\
-`Quieter than his predecessor, Masai Ujiri, the Raptors general manager isn't getting ahead of himself despite his team's surprise season.`\
-https://nytimes.com/athletic/7037224/2026/02/11/raptors-rebuild-contender-bobby-webster-gm/
-
-**Olympic men’s hockey cheat sheet: Canada vs. USA, schedules, watch guide**\
-`Everything you need to know about the latest edition of international best-on-best men's hockey in Milan.`\
-https://nytimes.com/athletic/7027425/2026/02/11/olympic-mens-hockey-cheat-sheet-canada-vs-usa-schedules-how-to-watch/
-
-**Ranking Colts' top unrestricted free agents: How much to retain Alec Pierce?**\
-`From a league-wide perspective, Pierce is easily the Colts’ top free agent, but someone else tops our annual list for the team.`\
-https://nytimes.com/athletic/7034718/2026/02/11/colts-2026-free-agents-ranking/
-
-**An MLB labor war is coming. Will President Trump try to step in?**\
-`If President Trump wanted to exert influence over MLB, what avenues could he take? `\
-https://nytimes.com/athletic/7037067/2026/02/11/mlb-president-trump-labor-issue-wbc/
 
