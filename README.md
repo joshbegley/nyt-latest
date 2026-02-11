@@ -1,3 +1,15 @@
+**U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
+`A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
+https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
+
+**Jordan Stolz nabs Olympic record and 1000m speedskating gold**\
+`Stolz has drawn comparisons to Michael Phelps and Apolo Ohno for his individual medal potential. `\
+https://nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-speedskating-1000-meters/
+
+**Chickpeas al Limone With Burrata**\
+`Inspired by the jaunty pasta dish, spaghetti al limone, here’s a new way to make a memorable meal from humble cans of chickpeas; just add lemon, olive oil and Parmesan.`\
+https://nytimes.com/video/dining/100000010689565/chickpeas-al-limone-with-burrata.html
+
 **Potato Nachos**\
 `Crisp potatoes, crispier cheese and spicy-tart pickled jalapeños come together here for a riff on the classic three-ingredient nacho dish.`\
 https://nytimes.com/video/dining/100000010689587/potato-nachos.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/us/el-paso-airspace-shutdown-what-to-know.html
 **How the perspective of Olympic margins prepared Canada to start the men’s hockey tournament**\
 `The Olympics are inherently about minutiae, the details that differentiate a win from a loss. Canada's penalty kill is among them.`\
 https://nytimes.com/athletic/7039122/2026/02/11/olympics-mens-hockey-canada-penalty-kill/
-
-**Which 2026 NFL Draft prospects received invites to NFL Scouting Combine?**\
-`There are 319 NFL Draft prospects invited to the 2026 NFL Scouting Combine, which begins with player arrivals in Indianapolis on Feb. 22.`\
-https://nytimes.com/athletic/7038996/2026/02/11/nfl-draft-2026-combine-prospects-invites/
-
-**Questions Surround Trump Administration’s Explanation for El Paso Airspace Closure**\
-`Administration officials said Mexican drug cartel drones breached U.S. airspace, prompting the closure. But two people briefed on the situation said the shutdown was prompted by the Defense Department’s use of new counter-drone technology.`\
-https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport/questions-surround-trump-administrations-explanation-for-el-paso-airspace-closure
-
-**Ukrainian Olympic athlete on collision course with IOC over 'helmet of memory'**\
-`Questions have arisen about other athletes who have made similar tributes to family members or friends.`\
-https://nytimes.com/athletic/7038558/2026/02/11/ukraine-skeleton-helmet-banned-olympics-heraskevych/
 
