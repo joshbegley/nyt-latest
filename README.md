@@ -1,3 +1,7 @@
+**Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
+`The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
+https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
+
 **‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
 `In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
 https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championshi
 **Maxim Naumov emerges as a voice of reason at Olympics: 'Do things out of love, not fear'**\
 `Having dealt with his own tragedy, figure skater hopes to inspire others to "do what they've always wanted to do."`\
 https://nytimes.com/athletic/7037167/2026/02/10/maxim-naumov-voice-reason-olympics-love-not-fear/
-
-**Man Is Charged in 2021 Acid Attack Against Woman on Long Island**\
-`Terrell Campbell, 29, was charged with assaulting Nafiah Ikram outside her home. Mr. Campbell later described the assault in a rap lyric, prosecutors said.`\
-https://nytimes.com/2026/02/10/nyregion/acid-attack-long-island-charges.html
 
