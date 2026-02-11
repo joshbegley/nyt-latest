@@ -1,3 +1,7 @@
+**Late Night Mines Trump’s Million Mentions in the Epstein Files**\
+`“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
+https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
+
 **Sesko is part sledgehammer, part subtlety. Is it time for him to start?**\
 `The 22-year-old has been a substitute in all of Michael Carrick's games in charge so far but he is making the case for a greater role`\
 https://nytimes.com/athletic/7036016/2026/02/11/benjamin-sesko-west-ham-goal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035536/2026/02/11/aston-villa-signings-goals-emery
 **Why are angry Real Madrid fans waving white handkerchiefs?**\
 `Thousands of Real Madrid fans held their white hankies aloft to protest recent performances, a gesture with origins in bullfighting`\
 https://nytimes.com/athletic/7035880/2026/02/11/real-madrid-bernabeu-fans-handkerchiefs-history/
-
-**Sports stars, 'sacred spaces', and an increasingly bitter battle for privacy**\
-`Coco Gauff's criticisms of privacy invasions at the Australian Open raise a pointed question: how much should we know about sports stars?`\
-https://nytimes.com/athletic/7032924/2026/02/11/coco-gauff-tennis-privacy-cameras/
 

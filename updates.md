@@ -1,3 +1,7 @@
+**Late Night Mines Trump’s Million Mentions in the Epstein Files**\
+`“A million times? There’s not even that many references to Hamlet in the play ‘Hamlet,’” Jordan Klepper said on “The Daily Show.”`\
+https://nytimes.com/2026/02/11/arts/television/late-night-trump-epstein.html
+
 **Sesko is part sledgehammer, part subtlety. Is it time for him to start?**\
 `The 22-year-old has been a substitute in all of Michael Carrick's games in charge so far but he is making the case for a greater role`\
 https://nytimes.com/athletic/7036016/2026/02/11/benjamin-sesko-west-ham-goal/
