@@ -1,3 +1,7 @@
+**Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
+`The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
+https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
+
 **‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
 `In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
 https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
