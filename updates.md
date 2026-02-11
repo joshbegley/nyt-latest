@@ -1,3 +1,7 @@
+**Elon Musk Wants to Build an A.I. Satellite Factory on the Moon**\
+`In a meeting with employees at his company xAI, Mr. Musk revealed a vision for a facility that includes a giant catapult to launch his satellites into space.`\
+https://nytimes.com/2026/02/10/technology/elon-musk-lunar-factory.html
+
 **'What's happening in Minnesota is wrong' says U.S. curler Rich Ruohonen**\
 `His comments continue a trend among U.S. Winter Olympic athletes to call attention to the social and political climate in the country.`\
 https://nytimes.com/athletic/7037616/2026/02/10/rich-ruohonen-team-usa-curling-ice-reaction/
