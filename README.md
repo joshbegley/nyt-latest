@@ -1,3 +1,7 @@
+**Everton, the Hill Dickinson Stadium and a curious capacity for self-sabotage**\
+`Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
+https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
+
 **The warning signs are flashing for Tottenham – the ship is sinking and survival is at stake**\
 `Spurs have a decision to make about a head coach who has lost the faith of the fans, with the spectre of relegation hanging over the club`\
 https://nytimes.com/athletic/7038019/2026/02/11/tottenham-newcastle-thomas-frank-relegation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/insider/future-new-york.html
 **Liverpool and late goals: The causes, the consequences and a possible cure**\
 `Arne Slot's men are one away from setting a Premier League record for most added-time winners conceded in a season`\
 https://nytimes.com/athletic/7035735/2026/02/11/liverpool-late-goals/
-
-**What to watch on Day 5 at the Winter Olympics: Jordan Stolz, Chloe Kim, ice dance**\
-`U.S. speedskating star will go for his first Olympic gold medal.`\
-https://nytimes.com/athletic/6925270/2026/02/11/milan-cortina-winter-olympics-what-to-watch-day-5/
 
