@@ -1,10 +1,18 @@
+**KC Current acquire Croix Bethune from Washington Spirit in $1M transfer**\
+`The $1 million in transfer fees is the third-most expensive intra-league transfer in NWSL history.`\
+https://nytimes.com/athletic/7039806/2026/02/11/croix-bethune-transfer-kc-current-washington-spirit/
+
+**Andrew Ranken, Whose Drumming Powered the Pogues, Dies at 72**\
+`Known as “The Clobberer,” he pounded out driving rhythms that fueled the band’s boisterous blend of traditional Irish music, rock and punk.`\
+https://nytimes.com/2026/02/11/arts/music/andrew-ranken-dead-the-pogues.html
+
 **More than 23 years on from his debut, James Milner is making Premier League history**\
 `As Manuel Pellegrini said during his time at Manchester City: 'Show me another player who does all the things that Milner does well'`\
 https://nytimes.com/athletic/7021671/2026/02/11/james-milner-premier-league-appearance-record-barry/
 
-**The Briefing: Manchester City 3 Fulham 0 - Semenyo the poacher, O'Reilly excels but Haaland concerns**\
+**The Briefing: Man City 3 Fulham 0 – Semenyo the poacher, O'Reilly excels, but Haaland concerns**\
 `Pep Guardiola's side keep up the pressure on leaders Arsenal after brushing aside Fulham in the first half`\
-https://nytimes.com/athletic/7031139/2026/02/11/manchester-city-3-fulham-0-analysis/
+https://nytimes.com/athletic/7031139/2026/02/11/manchester-city-fulham-premier-league-analysis/
 
 **Takaichi’s New Superpowers**\
 `Japan’s voters just gave their prime minister a huge mandate to transform her country. What comes next?`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc
 **Pastor shares inside story of legal wedding at Bad Bunny Super Bowl halftime show**\
 `Antonio Reyes of Sacramento's Project Church called the Super Bowl nuptials "the quickest ceremony I've ever done."`\
 https://nytimes.com/athletic/7039212/2026/02/11/bad-bunny-super-bowl-halftime-wedding/
-
-**Mamdani Finds Allies, and Skeptics, in Albany as He Asks for Funding**\
-`Mayor Zohran Mamdani of New York City visited the State Capitol to press lawmakers for their cooperation in helping fund some of his initiatives.`\
-https://nytimes.com/2026/02/11/nyregion/mamdani-budget-tin-cup-albany.html
-
-**U.S. Health Officials Defend Rejection of Moderna’s Flu Vaccine**\
-`The F.D.A.’s refusal to examine the company’s mRNA shot drew widespread criticism from doctors and was divisive within the agency.`\
-https://nytimes.com/2026/02/11/health/fda-moderna-flu-vaccine.html
 
