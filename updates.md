@@ -1,3 +1,15 @@
+**Super Bowl LX draws 124.9 million viewers, down slightly from 2025**\
+`The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
+https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
+
+**Garrett Crochet's new pitch, Kristian Campbell sticking to outfield and more Red Sox notes**\
+`The Red Sox ace said he’s planning to take another step forward in 2026, but declined to share his goals publicly.`\
+https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
+
+**Rory McIlroy says Players Championship does not need to be a fifth major**\
+`McIlroy talked about leaving the Players Championship alone, two days before he defends his AT&T Pebble Beach Pro-Am title.`\
+https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
+
 **Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
 `Video from a camera sold by Google probably sat in one of the its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
 https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html

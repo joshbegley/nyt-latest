@@ -1,3 +1,11 @@
+**Super Bowl LX draws 124.9 million viewers, down slightly from 2025**\
+`The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
+https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
+
+**Garrett Crochet's new pitch, Kristian Campbell sticking to outfield and more Red Sox notes**\
+`The Red Sox ace said he’s planning to take another step forward in 2026, but declined to share his goals publicly.`\
+https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
+
 **Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
 `Video from a camera sold by Google probably sat in one of the its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
 https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
@@ -14,8 +22,8 @@ https://nytimes.com/video/opinion/100000010695803/george-saunders-on-why-the-rig
 `The footage provided the first glimpse of a suspect in the kidnapping of Nancy Guthrie, the mother of the television host Savannah Guthrie who has been missing for 10 days.`\
 https://nytimes.com/2026/02/10/us/guthrie-doorbell-camera-video.html
 
-**McIlroy: Players Championship does not need to be a major**\
-`"It's the Players. Like it doesn't need to be anything else."`\
+**Rory McIlroy says Players Championship does not need to be a fifth major**\
+`McIlroy talked about leaving the Players Championship alone, two days before he defends his AT&T Pebble Beach Pro-Am title.`\
 https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
 
 **Maxim Naumov emerges as a voice of reason at Olympics: 'Do things out of love, not fear'**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/10/nyregion/acid-attack-long-island-charges.html
 **Six former Pitt players sue, alleging abusive coaching methods**\
 `Lawsuits also allege Title IX violations and a failure by the school to act after abuses were reported to multiple university officials.`\
 https://nytimes.com/athletic/7036473/2026/02/10/pitt-tory-verdi-lawsuit-womens-basketball-abuse/
-
-**Blue Jays' Anthony Santander to miss 5 to 6 months; Shane Bieber to open on IL**\
-`Following a seven-game World Series, many players are coming off career-highs in workload and a shortened offseason. `\
-https://nytimes.com/athletic/7037341/2026/02/10/blue-jays-injuries-santander-bieber/
-
-**Pentagon to Send 200 Troops to Nigeria**\
-`The troops will help train Nigerians to fight militants, but will not be involved in combat. U.S. forces have been assisting local soldiers with identifying potential terrorist targets.`\
-https://nytimes.com/2026/02/10/us/politics/us-troops-nigeria.html
 
