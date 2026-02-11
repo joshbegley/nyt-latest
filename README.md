@@ -1,3 +1,7 @@
+**For Tottenham Hotspur and Thomas Frank, the grass was not greener**\
+`Thomas Frank and Tottenham Hotspur seemed like a good match... until they didn't`\
+https://nytimes.com/athletic/6854696/2026/02/11/thomas-frank-tottenham-sacked-reaction/
+
 **What's it like to fall at the Olympics? Nathan Chen can tell you**\
 `Figure skater Nathan Chen fell during his routine in the 2018 Olympics. Four years later, he won gold.`\
 https://nytimes.com/athletic/7035806/2026/02/11/olympics-nathan-chen-figure-skating-fall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7027425/2026/02/11/olympic-mens-hockey-cheat-sheet-
 **Ranking Colts' top unrestricted free agents: How much to retain Alec Pierce?**\
 `From a league-wide perspective, Pierce is easily the Colts’ top free agent, but someone else tops our annual list for the team.`\
 https://nytimes.com/athletic/7034718/2026/02/11/colts-2026-free-agents-ranking/
-
-**An MLB labor war is coming. Will President Trump try to step in?**\
-`If President Trump wanted to exert influence over MLB, what avenues could he take? `\
-https://nytimes.com/athletic/7037067/2026/02/11/mlb-president-trump-labor-issue-wbc/
 

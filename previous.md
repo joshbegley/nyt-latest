@@ -1,40 +1,40 @@
-**Chloe Kim Is Chasing History, and Doing It With an Injury**\
-`The snowboarder Chloe Kim is competing with an injured shoulder while seeking her third consecutive gold medal, which would further cement her as one of the United States’ greatest Winter Olympians.`\
-https://nytimes.com/video/sports/100000010704788/chloe-kim-is-chasing-history-and-doing-it-with-an-injury.html
+**What's it like to fall at the Olympics? Nathan Chen can tell you**\
+`Figure skater Nathan Chen fell during his routine in the 2018 Olympics. Four years later, he won gold.`\
+https://nytimes.com/athletic/7035806/2026/02/11/olympics-nathan-chen-figure-skating-fall/
 
-**Bondi Expected to Face Scrutiny Over Release of Epstein Files**\
-`At a House Judiciary Committee hearing on Wednesday, Attorney General Pam Bondi could face bipartisan skepticism over her handling of the documents.`\
-https://nytimes.com/2026/02/11/us/politics/bondi-testimony-epstein-files.html
+**For former NHLers in Milan, the Olympics are a last chance to earn one more opportunity**\
+`Some ex-NHLers are hoping to catch the NHL's eye in Milan. If they prove they can still hang against the world's best, anything’s possible.`\
+https://nytimes.com/athletic/7035810/2026/02/11/olympics-mens-hockey-former-nhl-players/
 
-**Iran’s Missile Program Tops Israel’s Concerns as Netanyahu Meets Trump**\
-`President Trump is focused on Iran’s nuclear program, but Prime Minister Benjamin Netanyahu sees a more immediate threat from Tehran’s rapid rebuilding of its ability to launch missiles at Israel.`\
-https://nytimes.com/2026/02/11/us/politics/irans-missile-program-tops-israels-concerns-as-netanyahu-meets-trump.html
+**Can Team USA win Olympic gold in hockey? Canada enters as the favorite**\
+`Team USA is bringing one of its best teams to the Olympics ever, but Canada is still favored to win gold in men's hockey.`\
+https://nytimes.com/athletic/7036301/2026/02/11/olympic-mens-hockey-odds-canada-team-usa/
 
-**Epstein Revelations Stir Chaos From Scandinavia to South Asia**\
-`Disclosures in documents released by the Trump administration have roiled the world, leading to resignations and the threat of legal charges far beyond American borders.`\
-https://nytimes.com/2026/02/11/world/europe/epstein-files-global-chaos-resignations.html
+**One thought on every New York Giants offensive player ahead of free agency**\
+`Assessing 32 of John Harbaugh's new players, from Jaxson Dart to Bryan Hudson.`\
+https://nytimes.com/athletic/7037227/2026/02/11/new-york-giants-offensive-roster/
 
-**What Love in Your Life Are You Grateful For?**\
-`Some people are spending Valentine’s Day honoring love in all its forms, not just romance. What meaningful relationships might you like to celebrate this year?`\
-https://nytimes.com/2026/02/11/learning/what-love-in-your-life-are-you-grateful-for.html
+**Browns mock draft: Improving wide receiver, offensive line groups in Round 1**\
+`In our first  Cleveland mock draft, the team beefs up its offensive line and finds playmaking help for whoever starts at QB in 2026. `\
+https://nytimes.com/athletic/7037306/2026/02/11/browns-2026-nfl-mock-draft/
 
-**Fired Former Trump Prosecutor to Run for Congress in Virginia as a Democrat**\
-`J.P. Cooney, a former top deputy to the special counsel Jack Smith, who led two prosecutions of President Trump, plans to seek election to a newly drawn district in Northern and Central Virginia.`\
-https://nytimes.com/2026/02/11/us/politics/cooney-trump-prosecutor-congress-virginia.html
+**You've probably never thought about the mental challenges of curling. So let me tell you**\
+`Canada's Jennifer Jones felt the pressure of the whole Olympics riding on her final shot in 2014. So she told herself: "No regrets."`\
+https://nytimes.com/athletic/7037071/2026/02/11/curling-olympics-jennifer-jones-mental-challenge/
 
-**NATO Is Expected to Step Up Arctic Security. Here’s Why.**\
-`As Russia displays military might in the Arctic Circle, the Western alliance is preparing a mission to increase its presence in that area.`\
-https://nytimes.com/2026/02/11/world/europe/nato-arctic-russia-military.html
+**Raptors GM Bobby Webster says 'there's no preferred route' to building next Toronto contender**\
+`Quieter than his predecessor, Masai Ujiri, the Raptors general manager isn't getting ahead of himself despite his team's surprise season.`\
+https://nytimes.com/athletic/7037224/2026/02/11/raptors-rebuild-contender-bobby-webster-gm/
 
-**U.S. Brings Dozens of Foreign Military Chiefs to Washington**\
-`The rare gathering focused on the Western Hemisphere underscored potential implications of the Trump administration’s “Donroe Doctrine.”`\
-https://nytimes.com/2026/02/11/us/politics/us-caine-military-chiefs.html
+**Olympic men’s hockey cheat sheet: Canada vs. USA, schedules, watch guide**\
+`Everything you need to know about the latest edition of international best-on-best men's hockey in Milan.`\
+https://nytimes.com/athletic/7027425/2026/02/11/olympic-mens-hockey-cheat-sheet-canada-vs-usa-schedules-how-to-watch/
 
-**We Have to Face What ICE Has Done to Us**\
-`Any serious push to account for the actions of this government must include recompense and repair for its victims.`\
-https://nytimes.com/2026/02/11/opinion/ice-victims-hearings-justice.html
+**Ranking Colts' top unrestricted free agents: How much to retain Alec Pierce?**\
+`From a league-wide perspective, Pierce is easily the Colts’ top free agent, but someone else tops our annual list for the team.`\
+https://nytimes.com/athletic/7034718/2026/02/11/colts-2026-free-agents-ranking/
 
-**Murdaugh Takes Appeal of Murder Convictions to South Carolina’s Top Court**\
-`The appeal by Alex Murdaugh, once a well-connected member of a prominent family law firm, seeks to overturn his conviction in the murders of his wife and son.`\
-https://nytimes.com/2026/02/11/us/murdaugh-murder-supreme-court.html
+**An MLB labor war is coming. Will President Trump try to step in?**\
+`If President Trump wanted to exert influence over MLB, what avenues could he take? `\
+https://nytimes.com/athletic/7037067/2026/02/11/mlb-president-trump-labor-issue-wbc/
 
