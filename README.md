@@ -1,3 +1,15 @@
+**How to watch Hawks vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Atlanta Hawks play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7038907/2026/02/11/hawks-vs-hornets-stream-how-to-watch-feb-11/
+
+**How to watch Bucks vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7038903/2026/02/11/bucks-vs-magic-stream-how-to-watch-feb-11/
+
+**How to watch Wizards vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7038900/2026/02/11/wizards-vs-cavaliers-stream-how-to-watch-feb-11/
+
 **D-Backs Corbin Carroll, O's Jackson Holliday each set for surgery for broken bone in hand**\
 `The Mets' Francisco Lindor is also experiencing a hamate bone issue that may require surgery.`\
 https://nytimes.com/athletic/7038794/2026/02/11/mlb-jackson-holliday-corbin-carroll-hamate-bone/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7038877/2026/02/11/florida-vs-georgia-stream-how-to
 **How to watch Creighton vs. UConn women's basketball: Time, TV, streaming**\
 `Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7038872/2026/02/11/creighton-vs-uconn-stream-how-to-watch-feb-11/
-
-**How to watch UCF vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCF Knights play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7038870/2026/02/11/ucf-vs-west-virginia-stream-how-to-watch-feb-11/
-
-**House Is Set to Vote on Canceling Trump’s Canada Tariffs**\
-`Republican leaders have blocked challenges to President Trump’s trade war for a year, but dissent in their own ranks will force a vote.`\
-https://nytimes.com/2026/02/11/us/politics/trump-canada-tariffs.html
-
-**We’ve Got Stars for Bong, Theodora and More**\
-`Our latest batch of reviews includes the buzzy Cambodian spot, the Mediterranean favorite in Fort Greene and a remarkably well priced Thai fine-dining experience.`\
-https://nytimes.com/2026/02/11/dining/bong-theodora-odre-comal-restaurant-review.html
 
