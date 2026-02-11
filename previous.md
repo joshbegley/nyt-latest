@@ -1,3 +1,15 @@
+**Defiant Seahawks celebrate Super Bowl: 'A lot of people didn't believe'**\
+`Three days after claiming the second Lombardi Trophy in franchise history, the Seahawks relished in victory and taunted their doubters.`\
+https://nytimes.com/athletic/7039290/2026/02/11/seahawks-super-bowl-parade-celebration/
+
+**Man Accused of Murdering His Father Once Sought to Kill Stranger’s Baby**\
+`Henry McGowan of New York is on trial for murder in Ireland and has pleaded not guilty by reason of insanity. Prosecutors outlined a previous psychotic break.`\
+https://nytimes.com/2026/02/11/nyregion/henry-mcgowan-ireland-murder-trial.html
+
+**U.K. Police Say They Have Spoken to Prosecutors Over Former Prince Andrew**\
+`The police are weighing whether to formally investigate Andrew Mountbatten-Windsor over accusations he shared confidential information with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/11/world/europe/epstein-prince-andrew-uk-investigation.html
+
 **Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
 `"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
 https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
@@ -7,8 +19,8 @@ https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting
 https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
 
 **Jordan Stolz hits another gear to break an Olympic record.**\
-`By Victor Mather and Doug Mills`\
-https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/jordan-stolz-hits-another-gear-to-set-an-olympic-record
+`Stolz put an end to Dutch dominance in the men’s sport, cruising to his first Olympic gold medal.`\
+https://nytimes.com/2026/02/11/world/jordan-stolz-hits-another-gear-to-set-an-olympic-record.html
 
 **Charlie McAvoy’s Olympic diary: On Coach Snoop, meeting Chock and Bates and prep for Latvia**\
 `On the eve of Team USA's debut in the men's hockey tournament, McAvoy chronicles his Olympic adventures for The Athletic.`\
@@ -25,16 +37,4 @@ https://nytimes.com/card/2026/02/11/arts/editors-recommendations-isbell
 **Francisco Lindor heads for hand surgery as Mets hope for Opening Day return**\
 `Mets officials talk about having “four shortstops” in Lindor, Marcus Semien, Bo Bichette and Jorge Polanco. That depth will be tested early.`\
 https://nytimes.com/athletic/7039273/2026/02/11/francisco-lindor-mets-surgery/
-
-**‘Miss Piggy Is Vogue!’ and Four More Surprising Moments With Anna Wintour and Chloe Malle**\
-`What is Ms. Wintour’s alternative career path? Who does Ms. Malle hope to rub elbows with at the Met Gala? More from our interview with American Vogue’s past and present.`\
-https://nytimes.com/2026/02/11/business/media/anna-wintour-chloe-malle-vogue-conde-nast.html
-
-**N.Y.P.D. Asks Trump Administration for Authority to Disable Drones**\
-`The request, by Police Commissioner Jessica Tisch, came a day before federal authorities closed the airspace in El Paso because of what they said was a drone threat.`\
-https://nytimes.com/2026/02/11/nyregion/nypd-drones-cities-el-paso.html
-
-**U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
-`A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
-https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
 
