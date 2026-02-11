@@ -1,3 +1,19 @@
+**The Best Part of This Chickpea Stew? The Tiny Pasta in Every Bite.**\
+`Yotam Ottolenghi channels a childhood favorite for a dish that’s still sophisticated enough for grown-ups.`\
+https://nytimes.com/2026/02/11/dining/yotam-ottolenghi-chickpea-stew.html
+
+**How to watch Spurs vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039670/2026/02/11/spurs-vs-warriors-stream-how-to-watch-feb-11/
+
+**Wambach leaves Wasserman Agency over founder's ties to Epstein**\
+`United States women's soccer legend Abby Wambach announces she is cutting ties with Wasserman Agency after Epstein Files release`\
+https://nytimes.com/athletic/7039228/2026/02/11/epstein-files-uswnt-abby-wambach-wasserman-agency/
+
+**How to watch Thunder vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Oklahoma City Thunder play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039665/2026/02/11/thunder-vs-suns-stream-how-to-watch-feb-11/
+
 **How to watch Heat vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7039658/2026/02/11/heat-vs-pelicans-stream-how-to-watch-feb-11/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7039644/2026/02/11/grizzlies-vs-nuggets-stream-how-
 **How to watch Knicks vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7039640/2026/02/11/knicks-vs-76ers-stream-how-to-watch-feb-11/
-
-**How to watch Trail Blazers vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039636/2026/02/11/trail-blazers-vs-timberwolves-stream-how-to-watch-feb-11/
-
-**How to watch Clippers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039631/2026/02/11/clippers-vs-rockets-stream-how-to-watch-feb-11/
-
-**Switzerland to Vote on Capping Population at 10 Million**\
-`After a campaign by a right-wing opposition party, the government will hold a referendum in June that would require measures to limit immigration.`\
-https://nytimes.com/2026/02/11/world/europe/switzerland-to-vote-on-capping-population-at-10-million.html
-
-**How to watch Bulls vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039624/2026/02/11/bulls-vs-celtics-stream-how-to-watch-feb-11/
 
