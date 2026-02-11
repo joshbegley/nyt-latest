@@ -1,3 +1,11 @@
+**Where A-Listers and Newcomers Shine Equally**\
+`At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
+https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html
+
+**New York City Turned 400 Years Old. What Comes Next?**\
+`A Times project commemorated centuries of history not by looking into the past, but by exploring the city’s future.`\
+https://nytimes.com/2026/02/11/insider/future-new-york.html
+
 **Liverpool and late goals: The causes, the consequences and a possible cure**\
 `Arne Slot's men are one away from setting a Premier League record for most added-time winners conceded in a season`\
 https://nytimes.com/athletic/7035735/2026/02/11/liverpool-late-goals/

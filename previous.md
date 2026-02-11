@@ -1,3 +1,11 @@
+**Where A-Listers and Newcomers Shine Equally**\
+`At the Oscar nominees’ luncheon, Timothée Chalamet, Teyana Taylor and Jacob Elordi mingled with documentarians and behind-the-scenes professionals.`\
+https://nytimes.com/2026/02/11/movies/oscar-nominees-lunch-timothee-chalamet-jacob-elordi-teyana-taylor.html
+
+**New York City Turned 400 Years Old. What Comes Next?**\
+`A Times project commemorated centuries of history not by looking into the past, but by exploring the city’s future.`\
+https://nytimes.com/2026/02/11/insider/future-new-york.html
+
 **Liverpool and late goals: The causes, the consequences and a possible cure**\
 `Arne Slot's men are one away from setting a Premier League record for most added-time winners conceded in a season`\
 https://nytimes.com/athletic/7035735/2026/02/11/liverpool-late-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036114/2026/02/11/gianluigi-donnarumma-manchester-
 **Headed clearances are rising significantly - football should not ignore the health risks**\
 `It seemed like the direction of travel was to a sport where aerial duels would be contested less regularly – but that has not been the case`\
 https://nytimes.com/athletic/7035873/2026/02/11/headed-clearances-rise-football-danger-cte-premier-league/
-
-**Anxious Olympians and racing hearts. Inside the start hut: 'It's like a funeral at the top'**\
-`The start hut is a private space for Alpine skiers. No one is allowed there except the athlete, one coach and start officials.`\
-https://nytimes.com/athletic/7031828/2026/02/11/olympics-super-g-mens-skiers-warmth/
-
-**Fermin Lopez's Barcelona glow up, and how the club almost lost him – twice**\
-`The 22-year-old attacking midfielder has upped his game again this season, and recently signed a new, improved contract`\
-https://nytimes.com/athletic/7035784/2026/02/11/barcelona-fermin-lopez-flick-xavi-contract/
 
