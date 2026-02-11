@@ -1,3 +1,7 @@
+**N.Y.P.D. Asks Trump Administration for Authority to Disable Drones**\
+`The request, by Police Commissioner Jessica Tisch, came a day before federal authorities closed the airspace in El Paso because of what they said was a drone threat.`\
+https://nytimes.com/2026/02/11/nyregion/nypd-drones-cities-el-paso.html
+
 **U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
 `A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
 https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010705528/nba-trade-deadline-winner
 **What We Know About the El Paso Airspace Shutdown**\
 `The Trump administration blamed the disruptive halt on a cartel drone incursion, but others have disputed that explanation.`\
 https://nytimes.com/2026/02/11/us/el-paso-airspace-shutdown-what-to-know.html
-
-**How the perspective of Olympic margins prepared Canada to start the men’s hockey tournament**\
-`The Olympics are inherently about minutiae, the details that differentiate a win from a loss. Canada's penalty kill is among them.`\
-https://nytimes.com/athletic/7039122/2026/02/11/olympics-mens-hockey-canada-penalty-kill/
 
