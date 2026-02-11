@@ -1,3 +1,15 @@
+**Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
+`Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
+https://nytimes.com/2026/02/11/business/sales-at-mcdonalds-rise-after-discounts-the-grinch-and-monopoly-promos.html
+
+**The familiar Phillies are (mostly) back, but this spring will be about the kids**\
+`Although the beginning of this camp might be defined by what did not change, the Phillies are leaning into what did.`\
+https://nytimes.com/athletic/7039580/2026/02/11/phillies-spring-training-prospects-roster/
+
+**Can Tage Thompson and Quinn Hughes give Team USA the boost it needs for Olympic gold?**\
+`At last year's 4 Nations Face-Off, Thompson was snubbed from the U.S. team and Hughes missed the tournament due to an injury.`\
+https://nytimes.com/athletic/7039538/2026/02/11/team-usa-olympics-hockey-thompson-hughes-gold/
+
 **Bay FC signs USWNT midfielder Claire Hutton in $1.1 million deal with Kansas City Current**\
 `With her contract expiring, the 20-year-old considered a move to Europe and has not ruled out the possibility in the future.`\
 https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc-from-kc-current/
