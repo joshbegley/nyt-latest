@@ -1,3 +1,7 @@
+**Yankees received the best possible news on first day of camp: 3 takeaways**\
+`The only injuries and recoveries the Yankees are dealing with are old news — and that's good news as camp officially gets underway. `\
+https://nytimes.com/athletic/7039086/2026/02/11/ny-yankees-spring-training-takeaways/
+
 **What we learned on day one of Astros spring training: Hunter Brown's leadership and Tatsuya Imai's arrival**\
 `Isaac Paredes and Christian Walker have not reported to camp yet as the Astros continue exploring trades before Sunday's full-squad workout.`\
 https://nytimes.com/athletic/7039683/2026/02/11/hunter-brown-astros-opening-day-starter-paredes-walker-trades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039580/2026/02/11/phillies-spring-training-prospec
 **Can Tage Thompson and Quinn Hughes give Team USA the boost it needs for Olympic gold?**\
 `At last year's 4 Nations Face-Off, Thompson was snubbed from the U.S. team and Hughes missed the tournament due to an injury.`\
 https://nytimes.com/athletic/7039538/2026/02/11/team-usa-olympics-hockey-thompson-hughes-gold/
-
-**Bay FC signs USWNT midfielder Claire Hutton in $1.1 million deal with Kansas City Current**\
-`With her contract expiring, the 20-year-old considered a move to Europe and has not ruled out the possibility in the future.`\
-https://nytimes.com/athletic/7039449/2026/02/11/uswnt-claire-hutton-joins-bay-fc-from-kc-current/
 

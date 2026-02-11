@@ -1,3 +1,7 @@
+**Yankees received the best possible news on first day of camp: 3 takeaways**\
+`The only injuries and recoveries the Yankees are dealing with are old news — and that's good news as camp officially gets underway. `\
+https://nytimes.com/athletic/7039086/2026/02/11/ny-yankees-spring-training-takeaways/
+
 **What we learned on day one of Astros spring training: Hunter Brown's leadership and Tatsuya Imai's arrival**\
 `Isaac Paredes and Christian Walker have not reported to camp yet as the Astros continue exploring trades before Sunday's full-squad workout.`\
 https://nytimes.com/athletic/7039683/2026/02/11/hunter-brown-astros-opening-day-starter-paredes-walker-trades/
