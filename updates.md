@@ -1,3 +1,15 @@
+**Who will be next Tottenham manager? Roberto De Zerbi the current favourite after Thomas Frank sacking**\
+`Who will be the next Tottenham manager following Thomas Frank's dismissal?`\
+https://nytimes.com/athletic/7038283/2026/02/11/next-tottenham-manager-odds-roberto-de-zerbi-mauricio-pochettino/
+
+**Paging Dr. Chatbot**\
+`We look at when you can trust A.I. with your health, and when you can’t.`\
+https://nytimes.com/2026/02/11/briefing/paging-dr-chatbot.html
+
+**Chloe Kim qualifies for women's snowboard halfpipe in top spot**\
+`Kim qualified for the women's snowboard halfpipe final in top position, showing no signs of being hampered by her dislocated left shoulder. `\
+https://nytimes.com/athletic/7038240/2026/02/11/chloe-kim-womens-snowboard-halfpipe-qualification-2026-winter-olympics/
+
 **Everything happened yesterday in Italy**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7036593/2026/02/11/winter-olympics-day-4-the-pulse/
