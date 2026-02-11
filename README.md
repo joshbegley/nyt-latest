@@ -1,3 +1,7 @@
+**Olympic organizers offer to repair broken medals, recall other medals**\
+`While Olympic organizers have offered to fix broken medals, some who experienced issues early in the Games were instead given replacements. `\
+https://nytimes.com/athletic/7038500/2026/02/11/broken-olympics-medals-repair-original-breezy-johnson/
+
 **Giants to hire former Titans head coach Brian Callahan as QBs coach: Sources**\
 `Callahan was also the Bengals' offensive coordinator for five seasons.`\
 https://nytimes.com/athletic/7038577/2026/02/11/brian-callahan-new-york-giants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update
 **Team USA wins gold and silver in women's freestyle skiing moguls**\
 `Lemley and Jaelin Kauf's achievements make this the best performance for Team USA in the event's history`\
 https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
-
-**Swiss Watch Precision Guardian Tightens Its Criteria**\
-`The Contrôle Officiel Suisse des Chronomètres adds a new chronometer standard, certifying watches accurate to six seconds a day.`\
-https://nytimes.com/2026/02/11/fashion/watches-controle-officiel-suisse-des-chronometres.html
 
