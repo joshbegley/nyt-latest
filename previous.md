@@ -1,3 +1,15 @@
+**Premier League title race update: Arsenal and Manchester City face midweek tests**\
+`The three main Premier League title protagonists are in action on Wednesday night`\
+https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update-city-arsenal-tests/
+
+**USA wins gold and silver in women's freestyle skiing moguls**\
+`Lemley, 20, is the Olympic champion. Teammate Jaelin Kauf won silver in the women's freestyle skiing moguls.`\
+https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
+
+**Swiss Watch Precision Guardian Tightens Its Criteria**\
+`The Contrôle Officiel Suisse des Chronomètres adds a new chronometer standard, certifying watches accurate to six seconds a day.`\
+https://nytimes.com/2026/02/11/fashion/watches-controle-officiel-suisse-des-chronometres.html
+
 **Tottenham's Wilson Odobert suffers ACL tear**\
 `The 21-year-old went off injured in the 35th minute of Tuesday's home defeat by Newcastle.`\
 https://nytimes.com/athletic/7038527/2026/02/11/wilson-odobert-tottenham-injury-acl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7037041/2026/02/11/canucks-trade-targets-2/
 **What We Know About the Deadly Mass Shooting in Canada**\
 `The attack at a school and a residence in the small, remote town of Tumbler Ridge, British Columbia, has shocked a country where such acts of violence are rare.`\
 https://nytimes.com/2026/02/11/world/americas/canada-tumbler-ridge-shooting.html
-
-**What to know about every hitter in Dodgers spring camp**\
-`Freddie Freeman, Shohei Ohtani and other familiar names crowd this list, so which unsung players are most likely to break through in 2026?`\
-https://nytimes.com/athletic/7036051/2026/02/11/dodgers-roster-hitters-review/
-
-**Angel Reese to join Unrivaled for remainder of season, reunite with Rose BC**\
-`Reese will join the Rose for their final three regular-season games.`\
-https://nytimes.com/athletic/7037012/2026/02/11/angel-reese-unrivaled-rose-sky/
-
-**Ilia Malinin is nearing Olympic gold. Meet who taught him the quadruple axel**\
-`Inspired by Rafael Arutyunyan's famed anti-coddling approach, the U.S. superstar is one skate from glory.`\
-https://nytimes.com/athletic/7038386/2026/02/11/ilia-malinin-olympics-figure-skating-coach-rafael-arutyunyan/
 

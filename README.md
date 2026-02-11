@@ -1,8 +1,20 @@
+**Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
+`The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid said it will be "hard to forgive" his infidelity.  `\
+https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
+
+**At Winter Olympics, drone cameras are pushing limits for viewers — and athletes**\
+`Drones chasing behind athletes has illuminated these Winter Olympic sports like never before, though not without their downsides.`\
+https://nytimes.com/athletic/7038436/2026/02/11/winter-olympics-drone-cameras-nbc-obs/
+
+**How did Team USA's dominant win against Canada shift the women's hockey gold medal odds?**\
+`The American women blasted past Canada 5-0 in a game that set multiple Olympic firsts. Team USA is now the clear gold medal favorite.`\
+https://nytimes.com/athletic/7037267/2026/02/11/olympics-womens-hockey-gold-medal-odds-usa-canada/
+
 **Premier League title race update: Arsenal and Manchester City face midweek tests**\
 `The three main Premier League title protagonists are in action on Wednesday night`\
 https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update-city-arsenal-tests/
 
-**USA wins gold and silver in women's freestyle skiing moguls**\
+**Team USA wins gold and silver in women's freestyle skiing moguls**\
 `Lemley, 20, is the Olympic champion. Teammate Jaelin Kauf won silver in the women's freestyle skiing moguls.`\
 https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/style/sibling-quarrel-parental-intervention.html
 **Diet Alone Will Not Cure Mental Illness**\
 `And other inane cruelties uttered by Robert F. Kennedy Jr.`\
 https://nytimes.com/2026/02/11/opinion/kennedy-mental-illness.html
-
-**Tony Vitello receives a big endorsement on his first day as Giants manager**\
-`For Vitello, new to pro baseball, the buy-in process had to start with Giants star Matt Chapman.`\
-https://nytimes.com/athletic/7037813/2026/02/11/giants-tony-vitello-matt-chapman-endorsement/
-
-**Canucks trade targets: 5 distressed assets the Canucks could target**\
-`Here are five players the Canucks could consider targeting in advance of the NHL trade deadline.`\
-https://nytimes.com/athletic/7037041/2026/02/11/canucks-trade-targets-2/
-
-**What We Know About the Deadly Mass Shooting in Canada**\
-`The attack at a school and a residence in the small, remote town of Tumbler Ridge, British Columbia, has shocked a country where such acts of violence are rare.`\
-https://nytimes.com/2026/02/11/world/americas/canada-tumbler-ridge-shooting.html
 

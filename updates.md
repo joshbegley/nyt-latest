@@ -1,3 +1,15 @@
+**Premier League title race update: Arsenal and Manchester City face midweek tests**\
+`The three main Premier League title protagonists are in action on Wednesday night`\
+https://nytimes.com/athletic/7038443/2026/02/11/premier-league-title-race-update-city-arsenal-tests/
+
+**USA wins gold and silver in women's freestyle skiing moguls**\
+`Lemley, 20, is the Olympic champion. Teammate Jaelin Kauf won silver in the women's freestyle skiing moguls.`\
+https://nytimes.com/athletic/7038561/2026/02/11/elizabeth-lemley-womens-moguls-final-2026-winter-olympics/
+
+**Swiss Watch Precision Guardian Tightens Its Criteria**\
+`The Contrôle Officiel Suisse des Chronomètres adds a new chronometer standard, certifying watches accurate to six seconds a day.`\
+https://nytimes.com/2026/02/11/fashion/watches-controle-officiel-suisse-des-chronometres.html
+
 **Tottenham's Wilson Odobert suffers ACL tear**\
 `The 21-year-old went off injured in the 35th minute of Tuesday's home defeat by Newcastle.`\
 https://nytimes.com/athletic/7038527/2026/02/11/wilson-odobert-tottenham-injury-acl/
