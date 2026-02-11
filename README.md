@@ -1,3 +1,7 @@
+**None of Villa's signing this season have scored yet - is that a problem or does the Emery factor counteract it?**\
+`Villa may not have new signings bringing goals, but that issue is eased by their manager having the ability to improve the players he has.`\
+https://nytimes.com/athletic/7035536/2026/02/11/aston-villa-signings-goals-emery/
+
 **Why are angry Real Madrid fans waving white handkerchiefs?**\
 `Thousands of Real Madrid fans held their white hankies aloft to protest recent performances, a gesture with origins in bullfighting`\
 https://nytimes.com/athletic/7035880/2026/02/11/real-madrid-bernabeu-fans-handkerchiefs-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7035439/2026/02/11/declan-rice-martin-zubimendi-ars
 **Meet Farai Hallam, the trailblazing referee who piqued Pep**\
 `The 32-year-old's rapid rise through the match-officials ranks in English football is no surprise to those who know him well `\
 https://nytimes.com/athletic/7023967/2026/02/11/farai-hallam-referee-premier-league/
-
-**Dyche at Forest, and why the Wolves game could be pivotal to his future**\
-`The club are already on their third manager of the season, and he is facing pressure as they sit just above the relegation places`\
-https://nytimes.com/athletic/7035723/2026/02/11/sean-dyche-forest-wolves-future/
 
