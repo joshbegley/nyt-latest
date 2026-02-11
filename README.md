@@ -1,3 +1,7 @@
+**Here’s Where Trump Is Unrivaled**\
+`New disclosures underscore that the White House is enveloped in a culture of corruption with no precedent in American history.`\
+https://nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html
+
 **What’s next for Blue Jays following early camp injuries? Plus, Dylan Cease's hobbies**\
 `With Shane Bieber ailing, could Max Scherzer or Chris Bassitt return to Toronto?  Who will fill Anthony Santander's shoes?`\
 https://nytimes.com/athletic/7039834/2026/02/11/blue-jays-injuries-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031139/2026/02/11/manchester-city-fulham-premier-l
 **Takaichi’s New Superpowers**\
 `Japan’s voters just gave their prime minister a huge mandate to transform her country. What comes next?`\
 https://nytimes.com/2026/02/11/world/sanae-takaichi-japan-canada-shooting.html
-
-**Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
-`Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
-https://nytimes.com/2026/02/11/business/mcdonalds-earnings-sales-value-meals.html
 
