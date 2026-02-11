@@ -1,3 +1,7 @@
+**Stopping Antidepressants During Pregnancy Can Be a Health Risk, Research Shows**\
+`Confusion about the safety of taking the drugs during pregnancy has led to mental health emergencies for some expectant mothers, experts say.`\
+https://nytimes.com/2026/02/11/well/mind/ssri-pregnancy-antidepressants.html
+
 **Despite any Olympic fallout, Ukrainian skeleton athlete has delivered his message**\
 `Should he be disallowed from competing on Thursday, he will be remembered in Ukraine as an athlete who took a bold stand.`\
 https://nytimes.com/athletic/7039783/2026/02/11/olympics-ukraine-helmet-war-russia-ioc-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040127/2026/02/11/fabian-hurzeler-yellow-card-bale
 **The El Paso Airspace Closed After the Military Tested New Technology**\
 `Also, the attorney general faces lawmakers’ anger over Epstein files. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/02/11/briefing/el-paso-airspace-labor-market.html
-
-**Democrats Denounce Attempt to Indict Lawmakers for Illegal Orders Video**\
-`Members in both chambers warned the failed attempt to prosecute the six lawmakers amounted to an existential threat to the legislative branch.`\
-https://nytimes.com/2026/02/11/us/politics/democrats-illegal-orders-video-indictment.html
 
