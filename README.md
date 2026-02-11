@@ -1,3 +1,11 @@
+**9 Killed and 25 Injured in Shootings at School and Home in Canada**\
+`Police say the suspect died of a self-inflicted injury after the shooting in Tumbler Ridge, a remote community in British Columbia.`\
+https://nytimes.com/2026/02/11/world/canada/canada-shooting-tumbler-ridge-british-columbia.html
+
+**Trump Administration Live Updates: Bondi Expected to Face Bipartisan Questioning at Hearing**\
+``\
+https://nytimes.com/live/2026/02/11/us/trump-news
+
 **Austria working on Chukwuemeka allegiance switch before World Cup**\
 `Chukwuemeka, born in Austria to Nigerian presents, moved to England at a young age and represented the country up to under-20 level.`\
 https://nytimes.com/athletic/7038382/2026/02/11/chukwuemeka-austria-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport
 **What Executives Are Saying About the ‘K-Shaped’ Economy**\
 `Leaders across industries from airlines to packaged foods have said a growing divide between lower-income and wealthy consumers is changing their businesses.`\
 https://nytimes.com/2026/02/11/business/economy/k-shaped-economy.html
-
-**Live Updates: Jobs Report May Offer Clarity on Uncertain Labor Market**\
-`Employment data for January is set to be released by the Labor Department.`\
-https://nytimes.com/live/2026/02/11/business/jobs-report-economy
-
-**Mailbag: What's the next phase of Blackhawks' rebuild?**\
-`The Blackhawks want to implement more of their early-round draft picks into the NHL. Here's what that might look like.`\
-https://nytimes.com/athletic/7032276/2026/02/11/blackhawks-rebuild-phases-kyle-davidson/
 
