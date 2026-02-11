@@ -1,3 +1,7 @@
+**'What's happening in Minnesota is wrong' says U.S. curler Rich Ruohonen**\
+`His comments continue a trend among U.S. Winter Olympic athletes to call attention to the social and political climate in the country.`\
+https://nytimes.com/athletic/7037616/2026/02/10/rich-ruohonen-team-usa-curling-ice-reaction/
+
 **N.Y.P.D. Officer Is Charged With Assault and Misconduct Over 2 Episodes**\
 `Police Officer Quran McPhatter slapped a handcuffed prisoner and threatened a man who complained about the officer’s driving, prosecutors said.`\
 https://nytimes.com/2026/02/10/nyregion/nypd-officer-charges-assault.html
