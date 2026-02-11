@@ -1,3 +1,7 @@
+**10 Dead in Shootings at School and Home in British Columbia**\
+`Police say the person believed to be the shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
+
 **Twisty Curve**\
 `If you can’t take the heat, get out of Joseph Gangi’s crossword.`\
 https://nytimes.com/2026/02/10/crosswords/daily-puzzle-2026-02-11.html
