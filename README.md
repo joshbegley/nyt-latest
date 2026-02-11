@@ -1,3 +1,15 @@
+**Quote of the Day: D.H.S. Claims In 4 Shootings Fizzle in Court**\
+`Quotation of the Day for Wednesday, February 11, 2026.`\
+https://nytimes.com/2026/02/10/pageoneplus/quote-of-the-day-dhs-claims-in-4-shootings-fizzle-in-court.html
+
+**Hong Kong Convicts a Political Exile’s Father, a First for the City**\
+`In her first interview about her father, the exiled Hong Kong activist Anna Kwok said the authorities were targeting her family to try to silence her.`\
+https://nytimes.com/2026/02/10/world/asia/hong-kong-anna-kwok-father.html
+
+**Victor Wembanyama's hot first half pushes him past Tim Duncan, into NBA record books**\
+`The third-year center scored 25 points in just eight first-quarter minutes, a period-long masterpiece of Picasso-esque proportions`\
+https://nytimes.com/athletic/7037927/2026/02/10/victor-wembanyamas-tim-duncan-spurs-stats-nba/
+
 **Tumbler Ridge is a small, remote town surrounded by wilderness.**\
 `By Vjosa Isai and Yan Zhuang`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-ridge-is-a-small-remote-town-surrounded-by-wilderness
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/
 **Live Updates: 9 Killed and 25 Injured in Shooting at School and Home in Canada**\
 `The shooting occurred in Tumbler Ridge, a remote community in British Columbia. The police said the suspected shooter died of a self-inflicted injury.`\
 https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
-
-**Vance Deletes Post Recognizing Armenian Genocide**\
-`President Trump has not recognized the Armenian genocide. The vice president’s office called the post an error.`\
-https://nytimes.com/2026/02/10/us/politics/vance-armenian-genocide.html
-
-**Highlights From Ilia Malinin’s Short Program**\
-`With the nervousness of a first-time Olympian behind him, figure skater Ilia Malinin delivered his best routine of the Milan-Cortina Games on Tuesday, bouncing back from two relatively shaky performances in the team event to finish first in the short program with an unforgettable flourish.`\
-https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-program-highlights.html
-
-**2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
-`Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
-https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
 

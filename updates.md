@@ -1,3 +1,11 @@
+**Tumbler Ridge is a small, remote town surrounded by wilderness.**\
+`By Vjosa Isai and Yan Zhuang`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting/tumbler-ridge-is-a-small-remote-town-surrounded-by-wilderness
+
+**Live Updates: 9 Killed and 25 Injured in Shooting at School and Home in Canada**\
+`The shooting occurred in Tumbler Ridge, a remote community in British Columbia. The police said the suspected shooter died of a self-inflicted injury.`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
+
 **Luka Dončić, Dirk Nowitzki-backed group to buy Italian team with NBA Europe hopes: Sources**\
 `Two former Dallas Mavericks stars and a former GM are part of a group that plans to buy an Italian basketball team and move it to Rome.`\
 https://nytimes.com/athletic/7037888/2026/02/10/nba-europe-luka-doncic-donnie-nelson-italy/
