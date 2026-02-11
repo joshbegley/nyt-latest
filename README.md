@@ -7,7 +7,7 @@ https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-wee
 https://nytimes.com/athletic/7033033/2026/02/11/utah-jazz-tanking-nba-victor-wembanyamathe-the-bounce/
 
 **Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
-`The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid said it will be "hard to forgive" his infidelity.  `\
+`The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid told a newspaper it will be "hard to forgive" his infidelity.  `\
 https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
 
 **At Winter Olympics, drone cameras are pushing limits for viewers — and athletes**\
