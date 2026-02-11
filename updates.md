@@ -1,3 +1,7 @@
+**At one tennis event, the ball is the villain: 'It is not normal to play with these'**\
+`Arthur Fils and Alex de Minaur have echoed Daniil Medvedev's criticisms of the Head Tour XT balls at the ATP 500 event in the Netherlands.`\
+https://nytimes.com/athletic/7038183/2026/02/11/tennis-balls-player-complaints-rotterdam-open/
+
 **How to watch Chloe Kim try to make history with a third straight gold**\
 `Snowboarding legend Chloe Kim aims to shrug off a recent injury as she pursues her third consecutive Olympic gold medal.`\
 https://nytimes.com/athletic/7037311/2026/02/11/chloe-kim-winter-olympics-how-to-watch-2026/
