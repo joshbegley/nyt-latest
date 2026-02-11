@@ -1,3 +1,27 @@
+**Why are angry Real Madrid fans waving white handkerchiefs?**\
+`Thousands of Real Madrid fans held their white hankies aloft to protest recent performances, a gesture with origins in bullfighting`\
+https://nytimes.com/athletic/7035880/2026/02/11/real-madrid-bernabeu-fans-handkerchiefs-history/
+
+**Sports stars, 'sacred spaces', and an increasingly bitter battle for privacy**\
+`Coco Gauff's criticisms of privacy invasions at the Australian Open raise a pointed question: how much should we know about sports stars?`\
+https://nytimes.com/athletic/7032924/2026/02/11/coco-gauff-tennis-privacy-cameras/
+
+**Gianluigi Donnarumma makes another wonder save – but is he the goalkeeper Manchester City need?**\
+`The Italy goalkeeper's shot-stopping has been world class, but have his limitations with the ball at his feet hampered City this season?`\
+https://nytimes.com/athletic/7036114/2026/02/11/gianluigi-donnarumma-manchester-city-analysis/
+
+**Headed clearances are rising significantly - football should not ignore the health risks**\
+`It seemed like the direction of travel was to a sport where aerial duels would be contested less regularly – but that has not been the case`\
+https://nytimes.com/athletic/7035873/2026/02/11/headed-clearances-rise-football-danger-cte-premier-league/
+
+**Anxious Olympians and racing hearts. Inside the start hut: 'It's like a funeral at the top'**\
+`The start hut is a private space for Alpine skiers. No one is allowed there except the athlete, one coach and start officials.`\
+https://nytimes.com/athletic/7031828/2026/02/11/olympics-super-g-mens-skiers-warmth/
+
+**Fermin Lopez's Barcelona glow up, and how the club almost lost him – twice**\
+`The 22-year-old attacking midfielder has upped his game again this season, and recently signed a new, improved contract`\
+https://nytimes.com/athletic/7035784/2026/02/11/barcelona-fermin-lopez-flick-xavi-contract/
+
 **Bangladesh Holds Elections on Thursday. Here’s What to Know.**\
 `Bangladesh is holding national elections for the first time since 2024, when a student movement ousted the prime minister.`\
 https://nytimes.com/2026/02/11/world/asia/bangladesh-elections.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7023967/2026/02/11/farai-hallam-referee-premier-lea
 **Dyche at Forest, and why the Wolves game could be pivotal to his future**\
 `The club are already on their third manager of the season, and he is facing pressure as they sit just above the relegation places`\
 https://nytimes.com/athletic/7035723/2026/02/11/sean-dyche-forest-wolves-future/
-
-**Restyled, redrawn and rebalanced: RB Leipzig and a sense of new beginnings**\
-`Last season, the German club fell to their lowest league finish since 2016 and fired manager Marco Rose - it was an opportunity for a reset`\
-https://nytimes.com/athletic/7032967/2026/02/11/rb-leipzig-bundesliga-klopp-diomande/
-
-**Man Accused of Killing His Father Said He Was on a ‘Mission From God’**\
-`In a courtroom in Ireland, prosecutors detailed the rambling, manic confessions of Henry McGowan, the New York man charged with murdering his father in a luxury hotel.`\
-https://nytimes.com/2026/02/11/nyregion/henry-mcgowan-murder-trial-ireland.html
-
-**Away From Pomp of Olympics, Homeless Shiver on Streets of Milan**\
-`Six homeless people have died in the Italian city in recent weeks, highlighting the widening inequality as the Games unfold there.`\
-https://nytimes.com/2026/02/11/world/europe/olympics-homeless-milan.html
-
-**Trump Wants to Revive Shipping. Investors Are Slow to Back Him.**\
-`A French logistics behemoth promised $20 billion for the United States, but a year into President Trump’s second term, only a fraction of the money has arrived.`\
-https://nytimes.com/2026/02/11/business/trump-shipping-investors.html
-
-**Corrections: Feb. 11, 2026**\
-`Corrections that appeared in print on Wednesday, Feb. 11, 2026.`\
-https://nytimes.com/2026/02/11/pageoneplus/corrections-feb-11-2026.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 11, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7037889/2026/02/11/connections-sports-edition-hints-answers-feb-11-2026/
 
