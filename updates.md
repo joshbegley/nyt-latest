@@ -1,3 +1,7 @@
+**10 Dead and 25 Injured in Shootings at School and Home in British Columbia**\
+`Police say the suspected shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
+
 **California Man Sentenced to 4 Years for Covert Work on China’s Behalf**\
 `The man, Mike Sun, corresponded with Chinese government officials, monitored the visit of Taiwan’s president to California and backed the election of a city council member, according to court documents.`\
 https://nytimes.com/2026/02/10/us/california-man-chinese-agent.html
