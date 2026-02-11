@@ -1,3 +1,7 @@
+**U.K. Police Say They Have Spoken to Prosecutors Over Former Prince Andrew**\
+`The police are weighing whether to formally investigate Andrew Mountbatten-Windsor over accusations he shared confidential information with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/11/world/europe/epstein-prince-andrew-uk-investigation.html
+
 **Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
 `"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
 https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/business/media/anna-wintour-chloe-malle-vogue-con
 **N.Y.P.D. Asks Trump Administration for Authority to Disable Drones**\
 `The request, by Police Commissioner Jessica Tisch, came a day before federal authorities closed the airspace in El Paso because of what they said was a drone threat.`\
 https://nytimes.com/2026/02/11/nyregion/nypd-drones-cities-el-paso.html
-
-**U.K. Inquest Finds British Woman Was Killed ‘Unlawfully’ in Texas Shooting**\
-`A British coroner ruled that a Texas man acted with gross negligence when he accidentally shot his 23-year-old daughter, who was visiting from Britain last year.`\
-https://nytimes.com/2026/02/11/world/europe/lucy-harrison-shooting-uk-texas-coroner.html
 

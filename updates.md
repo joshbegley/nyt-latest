@@ -1,3 +1,7 @@
+**Jordan Stolz hits another gear to break an Olympic record.**\
+`By Victor Mather and Doug Mills`\
+https://nytimes.com/live/2026/02/07/world/olympics-italy-photos/jordan-stolz-hits-another-gear-to-set-an-olympic-record
+
 **Knitting and skiing are polar opposites. For Breezy Johnson, that's the point**\
 `"Most of the knitting is escapism," the Olympic gold medalist said. "I'm usually not thinking about skiing when I'm knitting."`\
 https://nytimes.com/athletic/7039270/2026/02/11/breezy-johnson-olympics-knitting-gold-medal/
