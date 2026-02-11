@@ -1,3 +1,11 @@
+**Big 12 tournament basketball games to be played on LED video floor**\
+`The Big 12 basketball tournaments will be the first time this particular LED court tech will be used for official competition in the U.S.`\
+https://nytimes.com/athletic/7038865/2026/02/11/big-12-tournament-games-basketball-led-floor/
+
+**In the Winter Olympic medal count, tiny Vermont is right up there with Canada**\
+`In 24 hours, Vermont natives picked up two medals and another resident added one too. Only nine countries have more than three medals.`\
+https://nytimes.com/athletic/7038793/2026/02/11/winter-olympics-medal-count-vermont/
+
 **What to know about the better-than-expected report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2026/02/11/business/jobs-report-economy/what-to-know-about-the-better-than-expected-report
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7038836/2026/02/11/andriy-shevchenko-ukraine-fifa-g
 **What to Watch After Watching Marc Jacobs**\
 `A ’90s-tinged fashion show has our critic thinking about an underappreciated ’90s movie.`\
 https://nytimes.com/2026/02/11/style/marc-jacobs-90s-clockwatchers.html
-
-**Can I Cut Ties With a Friend Who Helped Me Through a Hard Time?**\
-`As I recovered from my heartbreak, I started to notice he had some views that I couldn’t disagree with more.`\
-https://nytimes.com/2026/02/11/magazine/friend-cut-ties-ethics.html
-
-**Epstein Files Include Grainy Videos From Inside His Florida Home**\
-`The clips from Jeffrey Epstein’s home office appear to show him with young women.`\
-https://nytimes.com/2026/02/11/us/epstein-files-videos.html
 
