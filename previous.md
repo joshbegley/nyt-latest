@@ -1,3 +1,23 @@
+**How eco-unfriendly wax cost a South Korean pair in cross-country sprint**\
+`Han Dasom and Lee Eui-jin had both taken part in the qualification time trial, but were subsequently disqualified.`\
+https://nytimes.com/athletic/7038332/2026/02/11/olympics-south-korea-cross-country-ski-wax/
+
+**Marsh suffers testicular bleeding after training ground accident**\
+`Australia captain Mitchell Marsh was ruled out of his side’s opening match against Ireland at the Men’s T20 World Cup after suffering internal testicular bleeding in a training ground accident.`\
+https://nytimes.com/athletic/7038344/2026/02/11/mitchell-marsh-australia-injury/
+
+**Three burning Phillies questions as spring training opens**\
+`There won’t be steep competition for many spots, but there's still plenty to talk about with this roster. `\
+https://nytimes.com/athletic/7037842/2026/02/11/phillies-questions-spring-training/
+
+**Here’s what to know.**\
+`By Nicholas Bogel-Burroughs, Chelsia Rose Marcius and Jill Cowan`\
+https://nytimes.com/live/2026/02/11/us/nancy-guthrie-case-updates/heres-what-to-know
+
+**Nancy Guthrie Live Updates: Man Detained for Questioning Is Released**\
+`The development came several hours after investigators released chilling video showing a masked figure on Ms. Guthrie’s front porch the morning of her disappearance.`\
+https://nytimes.com/live/2026/02/11/us/nancy-guthrie-case-updates
+
 **Blended officiating will be on full display as NHL players return to Olympics**\
 `Without much fanfare, the NHL and IIHF have spent the last five years or so diligently narrowing the gap between rulebooks.`\
 https://nytimes.com/athletic/7036495/2026/02/11/nhl-olympic-hockey-officiating-rules/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7036719/2026/02/11/lions-mock-draft-defense-akheem-
 **Panthers mock draft 1.0: One thing is clear — defense will be priority**\
 `GM Dan Morgan has stressed the Panthers' need for more pass rushers. Will Carolina take an edge rusher with the 19th pick?`\
 https://nytimes.com/athletic/7036640/2026/02/11/panthers-mock-draft-defense-edge-rusher/
-
-**For Aaron Boone’s ninth Yankees season, it’s win or go home**\
-`Boone needs to be great in '26 and end up on a float in a ticker-tape parade. If not, it will be time to hand over the team to someone else.`\
-https://nytimes.com/athletic/7037621/2026/02/11/yankees-aaron-boone-must-win-season/
-
-**Sabres trade targets: Logan Stanley and 9 other defensemen who could fit in Buffalo**\
-`The Sabres could use another defenseman, preferably one with playoff experience who can play a physical and defensively reliable game.`\
-https://nytimes.com/athletic/7016190/2026/02/11/sabres-trade-targets-defensemen-deadline-2026/
-
-**James interview: The 'gasoline that fuels him' and the truth about playing in the cold**\
-`James Rodríguez has heard it all, but for Minnesota United's unlikeliest signing, his sense of duty to Colombia has never waned.`\
-https://nytimes.com/athletic/7028097/2026/02/11/james-rodriguez-interview-minnesota-united-colombia-world-cup/
-
-**Bengals mock draft 0.5: Bolstering the defense in the first 4 rounds**\
-`Cincinnati's draft direction will hinge on what it does in free agency, but if it were now, defense would be the focus.`\
-https://nytimes.com/athletic/7037599/2026/02/11/bengals-mock-draft-2026-defense/
-
-**Irish mailbag: How real is the ACC exit? What's the plan for Notre Dame hoops and hockey?**\
-`Plus, how many first-round picks will Notre Dame have in the 2027 NFL Draft and how concerning is the QB depth behind CJ Carr?`\
-https://nytimes.com/athletic/7036915/2026/02/11/notre-dame-basketball-hockey-acc-mailbag/
 
