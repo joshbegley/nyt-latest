@@ -1,3 +1,7 @@
+**Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
+`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC. `\
+https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
+
 **Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
 `The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
 https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
