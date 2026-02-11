@@ -1,5 +1,13 @@
+**Infant Mortality Fell for Decades. Why Did That Stop?**\
+`Our weekly conversation about the numbers that chart progress continues.`\
+https://nytimes.com/2026/02/11/headway/infant-mortality-fell-for-decades-why-did-that-stop.html
+
+**Panthers, Dave Canales add familiar face in Darrell Bevell to help with offense**\
+`Canales and Bevell spent seven seasons together on the Seahawks' staff under Pete Carroll.`\
+https://nytimes.com/athletic/7038912/2026/02/11/panthers-darrell-bevell-dave-canales-coaching-staff/
+
 **Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
-`Phillips morphed into one of the game’s more dominant relievers with the Dodgers.`\
+`Phillips morphed into one of the game's more dominant relievers with the Dodgers.`\
 https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
 
 **States Weigh Bills to Allow You to Make Your Own Electricity**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/us/el-paso-airport-drones-mexico-cartel-drugs.htm
 **ICE in America: Dread and Danger**\
 `Readers describe the agency’s disturbing effects on children and detained immigrants.`\
 https://nytimes.com/2026/02/11/opinion/letters/ice-immigrants-children.html
-
-**Iran Holds Mass Rallies For Revolution Anniversary**\
-`The Iranian government has commemorated the anniversary of the revolution that brought the current regime into power with a show of defiance during precarious nuclear negotiations with Washington.`\
-https://nytimes.com/video/world/asia/100000010705101/iran-revolution-anniversary-rallies.html
-
-**Why do Michael Carrick's Man United play better when they have less possession?**\
-`United can win big as the underdog, but their ceiling is limited by an uneasy tactical fit when they have more of the ball`\
-https://nytimes.com/athletic/7038256/2026/02/11/manchester-united-michael-carrick-tactics-sesko-mbeumo/
 

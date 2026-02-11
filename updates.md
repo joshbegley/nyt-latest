@@ -1,3 +1,15 @@
+**Infant Mortality Fell for Decades. Why Did That Stop?**\
+`Our weekly conversation about the numbers that chart progress continues.`\
+https://nytimes.com/2026/02/11/headway/infant-mortality-fell-for-decades-why-did-that-stop.html
+
+**Panthers, Dave Canales add familiar face in Darrell Bevell to help with offense**\
+`Canales and Bevell spent seven seasons together on the Seahawks' staff under Pete Carroll.`\
+https://nytimes.com/athletic/7038912/2026/02/11/panthers-darrell-bevell-dave-canales-coaching-staff/
+
+**Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
+`Phillips morphed into one of the game's more dominant relievers with the Dodgers.`\
+https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
+
 **Dodgers bring back reliever Evan Phillips as he recovers from Tommy John**\
 `Phillips morphed into one of the game’s more dominant relievers with the Dodgers.`\
 https://nytimes.com/athletic/6943480/2026/02/11/mlb-evan-phillips-free-agency-signs-dodgers/
