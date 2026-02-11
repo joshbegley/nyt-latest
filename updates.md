@@ -1,3 +1,11 @@
+**Juraj Slafkovský is once again proving to be 'that guy' for Slovakia at the Olympics**\
+`Slafkovský delivered in Slovakia's opening win over Finland, and his teammates couldn't be happier: “He performed like a No. 1 draft pick.”`\
+https://nytimes.com/athletic/7039845/2026/02/11/juraj-slafkovsky-slovakia-finland-olympics-hockey-canadiens/
+
+**LaMonte McLemore, Founding Singer With the 5th Dimension, Dies at 90**\
+`His group notched smooth hippie-era hits like “Up, Up and Away” and “The Age of Aquarius” in embracing a genre-blurring sound they called “champagne soul.”`\
+https://nytimes.com/2026/02/11/arts/music/lamonte-mclemore-dead.html
+
 **Here’s Where Trump Is Unrivaled**\
 `New disclosures underscore that the White House is enveloped in a culture of corruption with no precedent in American history.`\
 https://nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html
