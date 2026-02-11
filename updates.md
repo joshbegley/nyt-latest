@@ -1,3 +1,7 @@
+**The warning signs are flashing for Tottenham – the ship is sinking and survival is at stake**\
+`Spurs have a decision to make about a head coach who has lost the faith of the fans, with the spectre of relegation hanging over the club`\
+https://nytimes.com/athletic/7038019/2026/02/11/tottenham-newcastle-thomas-frank-relegation/
+
 **The warning signs are flashing for Tottenham - the ship is sinking and survival is at stake**\
 `Spurs have a decision to make about a head coach who has lost the faith of the fans, with the spectre of relegation hanging over the club`\
 https://nytimes.com/athletic/7038019/2026/02/11/tottenham-newcastle-thomas-frank-relegation/
