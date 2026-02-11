@@ -1,3 +1,11 @@
+**One dead, 32 injured after Iowa college baseball team's bus crashes**\
+`The Iowa Lakes Community College baseball team was heading to Harrison, Ark., to face North Arkansas College.`\
+https://nytimes.com/athletic/7039907/2026/02/11/iowa-college-baseball-teams-bus-crash/
+
+**Why Are People ‘Becoming Chinese’ on Social Media?**\
+`Think of the meme as an absurdist joke, a wellness goal or an ironic expression of protest — or all of the above. Your ethnicity is beside the point.`\
+https://nytimes.com/2026/02/11/style/chinese-meme-social-media.html
+
 **Tiny Love Stories: ‘Will You Take the Sex Plant?’**\
 `Modern Love in miniature, featuring stories of no more than 100 words submitted by readers.`\
 https://nytimes.com/2026/02/11/style/tiny-modern-love-stories-will-you-take-the-sex-plant.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7039505/2026/02/11/zack-wheeler-injury-phillies-spr
 **U.S. Olympic ice dance duo Chock and Bates win silver, fall just shy of French**\
 `Chock and Bates became just the third American duo to win silver ice dance in the Olympics.`\
 https://nytimes.com/athletic/7039915/2026/02/11/winter-olympics-ice-dance-france-madison-chock-evan-bates/
-
-**How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
-`summary`\
-https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html
-
-**Ken Peplowski, Who Helped Revive the Jazz Clarinet, Dies at 66**\
-`Also a saxophone standout, he served as stylistic bridge between the Benny Goodman swing era and the genre-blurring present.`\
-https://nytimes.com/2026/02/11/arts/music/ken-peplowski-dead.html
 
