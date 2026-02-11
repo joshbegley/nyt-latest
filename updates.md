@@ -1,3 +1,11 @@
+**Zack Wheeler and the Phillies are optimistic as he takes his comeback day by day**\
+`A winter spent rehabbing with Phillies staff played a role in the optimism the club and Wheeler feel about his recovery.`\
+https://nytimes.com/athletic/7039505/2026/02/11/zack-wheeler-injury-phillies-spring-training/
+
+**U.S. Olympic ice dance duo Chock and Bates win silver, fall just shy of French**\
+`MILAN — It’s been a 15-year journey.`\
+https://nytimes.com/athletic/7039915/2026/02/11/winter-olympics-ice-dance-france-madison-chock-evan-bates/
+
 **How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
 `summary`\
 https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html

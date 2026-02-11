@@ -1,3 +1,15 @@
+**If the Cubs' season started today, Daniel Palencia is Craig Counsell's closer**\
+`"I know I’m that guy for that situation," Palencia said of closing games.`\
+https://nytimes.com/athletic/7039816/2026/02/11/daniel-palencia-cubs-closer-craig-counsell/
+
+**What we saw on Day 1 of Olympic men's hockey: Slovakia stuns Finland, Landeskog returns**\
+`Slovakia upset Finland on Wednesday, setting the stage for what could be a wild tournament in an age of increasing international parity.`\
+https://nytimes.com/athletic/7039447/2026/02/11/olympics-mens-hockey-slovakia-finland-sweden-italy/
+
+**Gallup Will No Longer Track Presidential Approval Ratings**\
+`The monthly poll has been used to measure presidential performance for almost nine decades.`\
+https://nytimes.com/2026/02/11/us/politics/gallup-poll-presidential-approval-ratings-trump.html
+
 **Zack Wheeler and the Phillies are optimistic as he takes his comeback day by day**\
 `A winter spent rehabbing with Phillies staff played a role in the optimism the club and Wheeler feel about his recovery.`\
 https://nytimes.com/athletic/7039505/2026/02/11/zack-wheeler-injury-phillies-spring-training/
@@ -10,7 +22,7 @@ https://nytimes.com/athletic/7039915/2026/02/11/winter-olympics-ice-dance-france
 `summary`\
 https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html
 
-**Ken Peplowski, Who Helped Revive Jazz Clarinet, Dies at 66**\
+**Ken Peplowski, Who Helped Revive the Jazz Clarinet, Dies at 66**\
 `Also a saxophone standout, he served as stylistic bridge between the Benny Goodman swing era and the genre-blurring present.`\
 https://nytimes.com/2026/02/11/arts/music/ken-peplowski-dead.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7039859/2026/02/11/spurs-jeremy-sochan-waive/
 **The Briefing: Sunderland 0 Liverpool 1 - How did Konate get on vs Brobbey? First-half issues? Right-back options?**\
 `We break down the talking points from the Premier League game at the Stadium of Light.`\
 https://nytimes.com/athletic/7031143/2026/02/11/liverpool-van-dijk-konate/
-
-**Weapons Used to Fight Drones Don’t Mix Well With Civilian Airspace**\
-`In the race to build anti-drone weapons intended for use in a war zone, it is unclear how they may be used safely in crowded skies.`\
-https://nytimes.com/2026/02/11/us/weapons-used-to-fight-drones-dont-mix-well-with-civilian-airspace.html
-
-**'Offensive & wrong': Starmer condemns Man United's Ratcliffe for comments on immigrants**\
-`Ratcliffe, who has resided in Monaco since 2020, offered misleading and inaccurate observations about the UK's immigrant population.`\
-https://nytimes.com/athletic/7039928/2026/02/11/keir-starmer-jim-ratcliffe-immigrants-manchester-united/
-
-**Juraj Slafkovský is once again proving to be 'that guy' for Slovakia at the Olympics**\
-`Slafkovský delivered in Slovakia's opening win over Finland, and his teammates couldn't be happier: “He performed like a No. 1 draft pick.”`\
-https://nytimes.com/athletic/7039845/2026/02/11/juraj-slafkovsky-slovakia-finland-olympics-hockey-canadiens/
 

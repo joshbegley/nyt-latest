@@ -1,3 +1,11 @@
+**Zack Wheeler and the Phillies are optimistic as he takes his comeback day by day**\
+`A winter spent rehabbing with Phillies staff played a role in the optimism the club and Wheeler feel about his recovery.`\
+https://nytimes.com/athletic/7039505/2026/02/11/zack-wheeler-injury-phillies-spring-training/
+
+**U.S. Olympic ice dance duo Chock and Bates win silver, fall just shy of French**\
+`MILAN — It’s been a 15-year journey.`\
+https://nytimes.com/athletic/7039915/2026/02/11/winter-olympics-ice-dance-france-madison-chock-evan-bates/
+
 **How an F.B.I. Affidavit to Seize Ballots Relied on Debunked Election Claims**\
 `summary`\
 https://nytimes.com/interactive/2026/02/11/us/election-ballots-fulton-county-fbi-affadavit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039928/2026/02/11/keir-starmer-jim-ratcliffe-immig
 **Juraj Slafkovský is once again proving to be 'that guy' for Slovakia at the Olympics**\
 `Slafkovský delivered in Slovakia's opening win over Finland, and his teammates couldn't be happier: “He performed like a No. 1 draft pick.”`\
 https://nytimes.com/athletic/7039845/2026/02/11/juraj-slafkovsky-slovakia-finland-olympics-hockey-canadiens/
-
-**LaMonte McLemore, Founding Singer With the 5th Dimension, Dies at 90**\
-`His group notched smooth hippie-era hits like “Up, Up and Away” and “The Age of Aquarius” in embracing a genre-blurring sound they called “champagne soul.”`\
-https://nytimes.com/2026/02/11/arts/music/lamonte-mclemore-dead.html
-
-**Here’s Where Trump Is Unrivaled**\
-`New disclosures underscore that the White House is enveloped in a culture of corruption with no precedent in American history.`\
-https://nytimes.com/2026/02/11/opinion/trump-crypto-corruption.html
 
