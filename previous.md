@@ -1,3 +1,7 @@
+**Nine People Killed in Mass Shooting in British Columbia, Canada**\
+`Nine people were killed and 25 others were injured in the third-deadliest shooting in Canada’s history. The police said the person believed to be the shooter was found dead.`\
+https://nytimes.com/video/world/americas/100000010705110/school-shooting-tumbler-ridge-canada.html
+
 **What Questions Do You Have About Saudi Arabia?**\
 `“Ask a Correspondent” will take your questions to Vivian Nereim, our Gulf bureau chief.`\
 https://nytimes.com/2026/02/11/world/what-questions-do-you-have-about-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/heres-th
 **Live Updates: Police Search for Motive After Deadly Mass Shooting in Canada**\
 `Nine people were fatally shot at a school and a home in Tumbler Ridge, a remote community in British Columbia. The police said the shooter died of a self-inflicted injury.`\
 https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge
-
-**Olympic organizers offer to repair broken medals, recall other medals**\
-`While Olympic organizers have offered to fix broken medals, some who experienced issues early in the Games were instead given replacements. `\
-https://nytimes.com/athletic/7038500/2026/02/11/broken-olympics-medals-repair-original-breezy-johnson/
 

@@ -1,3 +1,7 @@
+**Nine People Killed in Mass Shooting in British Columbia, Canada**\
+`Nine people were killed and 25 others were injured in the third-deadliest shooting in Canada’s history. The police said the person believed to be the shooter was found dead.`\
+https://nytimes.com/video/world/americas/100000010705110/school-shooting-tumbler-ridge-canada.html
+
 **What Questions Do You Have About Saudi Arabia?**\
 `“Ask a Correspondent” will take your questions to Vivian Nereim, our Gulf bureau chief.`\
 https://nytimes.com/2026/02/11/world/what-questions-do-you-have-about-saudi-arabia.html
