@@ -1,3 +1,7 @@
+**Canada Shooting at High School and Home Leaves Several Dead**\
+`Premier David Eby of British Columbia said in a news briefing on Tuesday that another 25 others were injured in a shooting that took place in the remote community of Tumbler Ridge.`\
+https://nytimes.com/video/world/canada/100000010704636/canada-tumbler-ridge-school-shooting.html
+
 **Everton, the Hill Dickinson Stadium and a curious capacity for self-sabotage**\
 `Home defeats could prove costly in their pursuit of European football but the causes are hard to fathom`\
 https://nytimes.com/athletic/7037738/2026/02/11/everton-hill-dickinson-stadium-defeats/
