@@ -1,5 +1,21 @@
+**Mandel's Mailbag: Texas, Sarkisian can't afford to miss again; case for NDSU's jump to FBS**\
+`Plus, could MrBeast turn East Carolina into a Playoff contender? And who are the best players who returned to their teams?`\
+https://nytimes.com/athletic/7037706/2026/02/11/mandel-mailbag-texas-sarkisian-north-dakota-state/
+
+**Frank's dreadful Spurs spell is latest example that managers simply can't change their style**\
+`Tottenham's decision to sack Thomas Frank isn't just bad news for Thomas Frank, it's bad news for managers like him too...`\
+https://nytimes.com/athletic/6988221/2026/02/11/thomas-frank-tottenham-style-sacked/
+
+**Ranking Chargers' internal free agents: Who should they be prioritizing?**\
+`The Chargers found an effective pass-rush trio with Tuli Tuipulotu, Odafe Oweh and Khalil Mack. But will Oweh and Mack return next season?`\
+https://nytimes.com/athletic/7031263/2026/02/11/chargers-free-agents-2026-ranking/
+
+**Lowetide: Oilers can't afford to ignore Ike Howard as a scoring solution**\
+`Edmonton's nuclear option is no longer as nuclear as it once was. It's time to give their young offensive dynamo another shot.`\
+https://nytimes.com/athletic/7036237/2026/02/11/oilers-ike-howard-scoring-analysis/
+
 **9 Killed and 25 Injured in Shootings at School and Home in Canada**\
-`Police say the suspect died of a self-inflicted injury after the shooting in Tumbler Ridge, a remote community in British Columbia.`\
+`The police said the suspect died of a self-inflicted injury after the shooting in Tumbler Ridge, a remote community in British Columbia.`\
 https://nytimes.com/2026/02/11/world/canada/canada-shooting-tumbler-ridge-british-columbia.html
 
 **Trump Administration Live Updates: Bondi Expected to Face Bipartisan Questioning at Hearing**\
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/11/business/jobs-report-economy/trump-plans-to-
 **Men's college basketball mailbag: Who could be this year's NCAA Tournament Cinderella?**\
 `A No. 12 or 13 seed hasn't made it to the Sweet 16 since La Salle in 2013. Will that change this year?`\
 https://nytimes.com/athletic/7037721/2026/02/11/ncaa-tournament-cinderellas-college-basketball-mailbag/
-
-**ICE says it will play 'key part' in 2026 World Cup security**\
-`Todd Lyons, ICE’s acting director, was responding to a question from Democrat Nellie Pou before a panel in the House of Representatives.`\
-https://nytimes.com/athletic/7038337/2026/02/11/world-cup-usa-ice-security/
-
-**Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
-`Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G, while USA's Ryan Cochran-Siegle takes silver.`\
-https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
-
-**Live Updates: F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
-`No flights are allowed to or from the airport until Feb. 20 under a flight restriction order that cited unspecified “special security reasons.”`\
-https://nytimes.com/live/2026/02/11/us/faa-el-paso-flights-airport
-
-**What Executives Are Saying About the ‘K-Shaped’ Economy**\
-`Leaders across industries from airlines to packaged foods have said a growing divide between lower-income and wealthy consumers is changing their businesses.`\
-https://nytimes.com/2026/02/11/business/economy/k-shaped-economy.html
 
