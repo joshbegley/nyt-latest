@@ -1,3 +1,11 @@
+**Mavs collaborating with CAA Sports, take another step toward new arena: What we know**\
+`Amid a season of change, the Mavericks are continuing to look ahead to the next decade and their potential future home.`\
+https://nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/
+
+**Nordic combined gives out first medals at what might be its last Olympics**\
+`Nordic combined crowned its first medalists on Wednesday as the fight over the sport's Olympic future rages on.`\
+https://nytimes.com/athletic/7038723/2026/02/11/winter-olympics-nordic-combined-medals-future-normal-hill/
+
 **Astros closer Josh Hader's status for Opening Day uncertain after biceps inflammation**\
 `Hader's potential absence to start the season could be mitigated by the Astros' offseason spending spree on pitching.`\
 https://nytimes.com/athletic/7038741/2026/02/11/astros-josh-hader-injury-biceps-opening-day/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/7037450/2026/02/11/espn-super-bowl-2027/
 `By Matina Stevis-Gridneff`\
 https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/heres-the-latest
 
-**Live Updates: Deadly Mass Shooting in Canada Leaves Questions About Suspect**\
+**Live Updates: Police Search for Motive After Deadly Mass Shooting in Canada**\
 `Nine people were fatally shot at a school and a home in Tumbler Ridge, a remote community in British Columbia. The police said the shooter died of a self-inflicted injury.`\
 https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/business/federal-debt-record-levels-budget-office
 **Ralph Lauren’s Not-So-Gilded Age**\
 `The designer goes hunting in the fields of style past.`\
 https://nytimes.com/2026/02/11/style/ralph-lauren-fall-2026-new-york-fashion-week.html
-
-**The Bounce: Jazz are pushing the tanking boundaries. Plus, Wemby goes nuclear**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7033033/2026/02/11/utah-jazz-tanking-nba-victor-wembanyamathe-the-bounce/
-
-**Ex-girlfriend speaks out after Norwegian biathlete’s public cheating confession**\
-`The former girlfriend of Olympic bronze medalist Sturla Holm Laegreid told a newspaper it will be "hard to forgive" his infidelity.  `\
-https://nytimes.com/athletic/7038564/2026/02/11/norwegian-biathlete-cheating-ex-girlfriend-reaction-olympics/
 

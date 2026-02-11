@@ -1,3 +1,15 @@
+**Mavs collaborating with CAA Sports, take another step toward new arena: What we know**\
+`Amid a season of change, the Mavericks are continuing to look ahead to the next decade and their potential future home.`\
+https://nytimes.com/athletic/7036141/2026/02/11/dallas-mavericks-arena-caa-sports/
+
+**Nordic combined gives out first medals at what might be its last Olympics**\
+`Nordic combined crowned its first medalists on Wednesday as the fight over the sport's Olympic future rages on.`\
+https://nytimes.com/athletic/7038723/2026/02/11/winter-olympics-nordic-combined-medals-future-normal-hill/
+
+**Live Updates: Police Search for Motive After Deadly Mass Shooting in Canada**\
+`Nine people were fatally shot at a school and a home in Tumbler Ridge, a remote community in British Columbia. The police said the shooter died of a self-inflicted injury.`\
+https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge
+
 **Astros closer Josh Hader's status for Opening Day uncertain after biceps inflammation**\
 `Hader's potential absence to start the season could be mitigated by the Astros' offseason spending spree on pitching.`\
 https://nytimes.com/athletic/7038741/2026/02/11/astros-josh-hader-injury-biceps-opening-day/
