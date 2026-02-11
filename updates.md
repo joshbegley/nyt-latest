@@ -1,3 +1,35 @@
+**Games Briefing: Olympics updates: NHLers are officially back!**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7038755/2026/02/11/nhl-olympic-hockey-tournament-start-games-briefing/
+
+**Cash expected to miss Villa's next two games with knee injury**\
+`The defender has avoided a serious injury after sustaining the issue during Saturday's draw with Bournemouth.`\
+https://nytimes.com/athletic/7038881/2026/02/11/matty-cash-knee-injury-aston-villa/
+
+**Man Utd co-owner Ratcliffe says UK 'has been colonised by immigrants'**\
+`Ratcliffe, who moved to Monaco in 2020, said the UK needs a prime minister who is “prepared to be unpopular … to get the big issues sorted”.`\
+https://nytimes.com/athletic/7039130/2026/02/11/jim-ratcliffe-manchester-united-immigrants/
+
+**England to prepare for World Cup against New Zealand & Costa Rica**\
+`The games in southern Florida promise to give England a flavour of the heat which is likely to be a fixture of the tournament.`\
+https://nytimes.com/athletic/7039048/2026/02/11/england-world-cup-new-zealand-costa-rica-florida/
+
+**Frank was meant to bring stability to Spurs, but ended up unpopular with fans and players**\
+`There have been some unpopular managers at Spurs in recent years. But even at the worst moments, predecessors were not as scorned as Frank`\
+https://nytimes.com/athletic/6982893/2026/02/11/thomas-frank-sacking-spurs/
+
+**Netflix pursuing Barry Bonds for Opening Day coverage: Sources**\
+`Netflix is also trying to sign CC Sabathia to be a part of its Opening Day coverage, according to sources briefed on the discussions.`\
+https://nytimes.com/athletic/7039087/2026/02/11/barry-bonds-netflix-opening-day-stream-mlb/
+
+**This Sheet-Pan Shrimp and Rice Is Extremely Nice**\
+`Melissa Clark’s recipe layers textures and flavors in this generous weeknight dinner, inspired by shrimp fried rice.`\
+https://nytimes.com/2026/02/11/dining/sheet-pan-shrimp-fried-rice-easy-dinner.html
+
+**Ray Mouton Dies at 78; Lawyer Warned of Pedophilia in the Catholic Church**\
+`After defending one of the first priests charged with child sex abuse, he coauthored a 1985 report warning that the problem was endemic and ignoring it could be catastrophic.`\
+https://nytimes.com/2026/02/11/us/politics/ray-mouton-dead.html
+
 **In the Winter Olympic medal count, tiny Vermont is right up there with Canada**\
 `In 24 hours, Vermont natives picked up two medals and another resident added one too. Only nine countries have more than three medals.`\
 https://nytimes.com/athletic/7038793/2026/02/11/winter-olympics-medal-count-vermont/
