@@ -1,3 +1,7 @@
+**Gun Part Maker Agrees to Pay $1.75 Million in Buffalo Massacre Lawsuits**\
+`Mean Arms agreed to stop selling an accessory that Peyton Gendron was able to remove when he killed 10 people at a Buffalo supermarket. The settlement is one of the largest following a mass shooting.`\
+https://nytimes.com/2026/02/11/nyregion/buffalo-shooting-gun-settlement.html
+
 **With key teammates retained, Joe Ryan is 'really happy' to return to Twins**\
 `Joe Ryan didn't reflect for on the trying final two months of the Twins' 2025 season.`\
 https://nytimes.com/athletic/7039529/2026/02/11/with-key-teammates-retained-joe-ryan-is-really-happy-to-return-to-twins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039658/2026/02/11/heat-vs-pelicans-stream-how-to-w
 **How to watch Pacers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7039651/2026/02/11/pacers-vs-nets-stream-how-to-watch-feb-11/
-
-**Yankees players don't mind that they're 'running it back.' They're embracing it**\
-`The Yankees are running it back, and for all the unrest it's caused within a fan base, the players had no problem with it. `\
-https://nytimes.com/athletic/7039455/2026/02/11/yankees-spring-training-running-back-roster/
 
