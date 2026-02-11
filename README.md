@@ -1,3 +1,7 @@
+**Diamondbacks give Carlos Santana go-ahead to play in WBC despite lack of insurance**\
+`With MLB players 37 or older unable to get insured for the tournament, Arizona will assume the risk if the veteran is injured in the WBC. `\
+https://nytimes.com/athletic/7037708/2026/02/10/carlos-santana-diamondbacks-world-baseball-classic/
+
 **Ilia Malinin’s Jumps Put Him on Top After the Short Program**\
 `The 21-year-old American figure skater clinched the top spot in the short program by earning high scores for his jumps.`\
 https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/10/us/guthrie-doorbell-camera-video.html
 **Rory McIlroy says Players Championship does not need to be a fifth major**\
 `McIlroy talked about leaving the Players Championship alone, two days before he defends his AT&T Pebble Beach Pro-Am title.`\
 https://nytimes.com/athletic/7037484/2026/02/10/rory-mcilroy-players-championship-major-championship-debate/
-
-**Maxim Naumov emerges as a voice of reason at Olympics: 'Do things out of love, not fear'**\
-`Having dealt with his own tragedy, figure skater hopes to inspire others to "do what they've always wanted to do."`\
-https://nytimes.com/athletic/7037167/2026/02/10/maxim-naumov-voice-reason-olympics-love-not-fear/
 
