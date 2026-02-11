@@ -1,3 +1,15 @@
+**Austria working on Chukwuemeka allegiance switch before World Cup**\
+`Chukwuemeka, born in Austria to Nigerian presents, moved to England at a young age and represented the country up to under-20 level.`\
+https://nytimes.com/athletic/7038382/2026/02/11/chukwuemeka-austria-world-cup/
+
+**Wall St. and Washington Brace for a Big Jobs Report**\
+`A hiring slowdown and fears about artificial intelligence have investors on edge, and some in the Trump administration on the defensive.`\
+https://nytimes.com/2026/02/11/business/dealbook/wall-street-washington-jobs.html
+
+**Trump plans to nominate a ‘data nerd’ to lead Bureau of Labor Statistics.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2026/02/11/business/jobs-report-economy/trump-plans-to-nominate-a-data-nerd-to-lead-bureau-of-labor-statistics
+
 **Men's college basketball mailbag: Who could be this year's NCAA Tournament Cinderella?**\
 `A No. 12 or 13 seed hasn't made it to the Sweet 16 since La Salle in 2013. Will that change this year?`\
 https://nytimes.com/athletic/7037721/2026/02/11/ncaa-tournament-cinderellas-college-basketball-mailbag/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/7037721/2026/02/11/ncaa-tournament-cinderellas-coll
 https://nytimes.com/athletic/7038337/2026/02/11/world-cup-usa-ice-security/
 
 **Young Swiss skier Franjo von Allmen announces himself to the world with third Olympic gold**\
-`Swiss star Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G. `\
+`Von Allmen wins his third gold of the 2026 Winter Olympics with victory in the men's super-G, while USA's Ryan Cochran-Siegle takes silver.`\
 https://nytimes.com/athletic/7038310/2026/02/11/franjo-von-allmen-mens-super-g-2026-winter-olympics/
 
 **Live Updates: F.A.A. Halts All Flights at El Paso Airport for 10 Days**\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/11/business/jobs-report-economy
 **Mailbag: What's the next phase of Blackhawks' rebuild?**\
 `The Blackhawks want to implement more of their early-round draft picks into the NHL. Here's what that might look like.`\
 https://nytimes.com/athletic/7032276/2026/02/11/blackhawks-rebuild-phases-kyle-davidson/
-
-**Women's basketball bubble watch: Do Villanova, Syracuse, Colorado have tournament resumes?**\
-`Bubble teams have representation from the Big East, ACC, A-10, Big 12, Summit League and MAAC.`\
-https://nytimes.com/athletic/7037857/2026/02/11/womens-college-basketball-bubble-watch-villanova-syracuse-colorado/
-
-**Reds roster prediction 2.0: Spring has sprung, and health trumps all**\
-`With Eugenio Suárez aboard, Cincinnati's roster looks much better in Version 2.0 than in 1.0.`\
-https://nytimes.com/athletic/7037280/2026/02/11/reds-roster-prediction-2-0/
-
-**Could Breece Hall revive run game in Denver next season? Broncos mailbag**\
-`Plus, a look at how the Broncos could approach the tight end position this offseason.`\
-https://nytimes.com/athletic/7036264/2026/02/11/broncos-mailbag-breece-hall-free-agency/
 
