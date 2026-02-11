@@ -1,3 +1,11 @@
+**The People vs. the Plutocrats**\
+`The fight over inequality will define the 21st century.`\
+https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
+
+**New Mexico Rebukes Federal Agency Over Nuclear Waste at Los Alamos**\
+`State environmental regulators will also fine the Energy Department up to $16 million for exceeding safe groundwater standards near the nuclear lab.`\
+https://nytimes.com/2026/02/11/us/new-mexico-los-alamos-nuclear-waste-fines.html
+
 **L.A. 2028 Olympic Organizers Stand By Chairman Linked to Epstein**\
 `Casey Wasserman exchanged flirtatious messages more than two decades ago with Ghislaine Maxwell, the longtime companion of Jeffrey Epstein. The 2028 board said its review found no other indiscretions related to Mr. Epstein.`\
 https://nytimes.com/2026/02/11/us/wasserman-epstein-la-olympics-2028.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/11/nyregion/nyc-free-buses-world-cup-mamdani.html
 **Jordan Stolz hits another gear to break an Olympic record.**\
 `Stolz put an end to Dutch dominance in the men’s sport, cruising to his first Olympic gold medal.`\
 https://nytimes.com/2026/02/11/world/jordan-stolz-hits-another-gear-to-set-an-olympic-record.html
-
-**Charlie McAvoy’s Olympic diary: On Coach Snoop, meeting Chock and Bates and prep for Latvia**\
-`On the eve of Team USA's debut in the men's hockey tournament, McAvoy chronicles his Olympic adventures for The Athletic.`\
-https://nytimes.com/athletic/7039304/2026/02/11/charlie-mcavoy-olympics-diary-usa-mens-hockey/
-
-**Biathlon's wild Olympic start: Infidelity, credit card fraud and medal reallocations**\
-`One biathlete admitted infidelity. Another won gold months after stealing her teammate's credit card. It's been a week at Olympic biathlon.`\
-https://nytimes.com/athletic/7038971/2026/02/11/olympics-biathlon-norwegian-infidelity-fraud-medals/
 
