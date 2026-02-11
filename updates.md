@@ -1,3 +1,15 @@
+**Twisty Curve**\
+`If you can’t take the heat, get out of Joseph Gangi’s crossword.`\
+https://nytimes.com/2026/02/10/crosswords/daily-puzzle-2026-02-11.html
+
+**Live Updates: 10 Dead and 25 Injured in Shooting at School and Home in Canada**\
+`The shooting occurred at a high school and residence in eastern British Columbia, according to the Royal Canadian Mounted Police, which said the suspected shooter was among the dead.`\
+https://nytimes.com/live/2026/02/10/world/tumbler-ridge-school-shooting
+
+**10 Dead in Shooting at School and Home in British Columbia**\
+`Police say the person believed to be the shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
+https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
+
 **The Bears in Iowa? Bill aims to lure NFL team with stadium incentives**\
 `One of the bill's sponsors says Iowa could offer the Bears “everything they need to build a world-class facility."`\
 https://nytimes.com/athletic/7037791/2026/02/10/chicago-bears-iowa-stadium-bill/

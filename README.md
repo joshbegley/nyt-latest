@@ -22,7 +22,7 @@ https://nytimes.com/video/sports/100000010703987/ilia-malinan-skating-short-prog
 `Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
 https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
 
-**10 Dead in Shooting at School and Home in British Columbia**\
+**10 Dead in Shootings at School and Home in British Columbia**\
 `Police say the person believed to be the shooter died of a self-inflicted injury. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
 https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
 
