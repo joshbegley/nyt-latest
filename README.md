@@ -1,3 +1,7 @@
+**Elon Musk Wants to Build an A.I. Satellite Factory on the Moon**\
+`In a meeting with employees at his company xAI, Mr. Musk revealed a vision for a facility that includes a giant catapult to launch his satellites into space.`\
+https://nytimes.com/2026/02/10/technology/elon-musk-lunar-factory.html
+
 **'What's happening in Minnesota is wrong' says U.S. curler Rich Ruohonen**\
 `His comments continue a trend among U.S. Winter Olympic athletes to call attention to the social and political climate in the country.`\
 https://nytimes.com/athletic/7037616/2026/02/10/rich-ruohonen-team-usa-curling-ice-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-b
 **Garrett Crochet's new pitch, Kristian Campbell sticking to outfield and more Red Sox notes**\
 `The Red Sox ace said he’s planning to take another step forward in 2026, but declined to share his goals publicly.`\
 https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
-
-**Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
-`Video from a camera sold by Google probably sat in one of its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
-https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
 
