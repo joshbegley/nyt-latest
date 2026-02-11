@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-b
 https://nytimes.com/athletic/7037352/2026/02/10/garrett-crochet-new-pitch-kristian-campbell-outfield-red-sox-notes/
 
 **Why the Guthrie Doorbell Footage Took More Than a Week to Retrieve**\
-`Video from a camera sold by Google probably sat in one of the its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
+`Video from a camera sold by Google probably sat in one of its vast data centers. Nancy Guthrie did not have a subscription that would have allowed easy access.`\
 https://nytimes.com/2026/02/10/us/guthrie-video-camera-access.html
 
 **Baboon Sibling Rivalry Suggests Monkeys Feel Jealousy Like People**\
