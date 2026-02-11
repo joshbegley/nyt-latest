@@ -1,40 +1,40 @@
-**How to watch Colorado vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039611/2026/02/11/colorado-vs-texas-tech-stream-how-to-watch-feb-11/
+**How to watch Heat vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039658/2026/02/11/heat-vs-pelicans-stream-how-to-watch-feb-11/
 
-**How to watch Michigan vs. Northwestern men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039606/2026/02/11/michigan-vs-northwestern-stream-how-to-watch-feb-11/
+**How to watch Pacers vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039651/2026/02/11/pacers-vs-nets-stream-how-to-watch-feb-11/
 
-**How to watch Washington vs. Iowa women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039604/2026/02/11/washington-vs-iowa-stream-how-to-watch-feb-11/
+**Yankees players don't mind that they're 'running it back.' They're embracing it**\
+`The Yankees are running it back, and for all the unrest it's caused within a fan base, the players had no problem with it. `\
+https://nytimes.com/athletic/7039455/2026/02/11/yankees-spring-training-running-back-roster/
 
-**How to watch UConn vs. Butler men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Butler Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039601/2026/02/11/uconn-vs-butler-stream-how-to-watch-feb-11/
+**How to watch Kings vs. Jazz: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Utah Jazz, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039646/2026/02/11/kings-vs-jazz-stream-how-to-watch-feb-11/
 
-**How to watch UCLA vs. Michigan State women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7039599/2026/02/11/ucla-vs-michigan-state-stream-how-to-watch-feb-11/
+**How to watch Grizzlies vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039644/2026/02/11/grizzlies-vs-nuggets-stream-how-to-watch-feb-11/
 
-**WNBA's Rickea Jackson offers to testify vs. Falcons rookie James Pearce in domestic case**\
-`The Falcons' rookie edge rusher is facing five felony charges, including aggravated battery with a deadly weapon and aggravated stalking.`\
-https://nytimes.com/athletic/7039157/2026/02/11/james-pearce-rickea-jackson-domestic-violence-charges/
+**How to watch Knicks vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039640/2026/02/11/knicks-vs-76ers-stream-how-to-watch-feb-11/
 
-**USA Basketball announces roster for 2026 FIBA Women’s World Cup qualifier**\
-`Four members from the 2024 Olympic team are returning, and Caitlin Clark, Paige Bueckers and Angel Reese will make their senior team debuts.`\
-https://nytimes.com/athletic/7039043/2026/02/11/usa-basketball-roster-coaches-fiba-world-cup/
+**How to watch Trail Blazers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039636/2026/02/11/trail-blazers-vs-timberwolves-stream-how-to-watch-feb-11/
 
-**Brewers reunite with catcher Gary Sánchez on 1-year deal: Source**\
-`The former Yankees All-Star will likely reprise his role as backup to William Contreras.`\
-https://nytimes.com/athletic/6783763/2026/02/11/mlb-gary-sanchez-free-agency-signing-brewers/
+**How to watch Clippers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039631/2026/02/11/clippers-vs-rockets-stream-how-to-watch-feb-11/
 
-**The People vs. the Plutocrats**\
-`The fight over inequality will define the 21st century.`\
-https://nytimes.com/2026/02/11/opinion/billionaires-wealth-tax.html
+**Switzerland to Vote on Capping Population at 10 Million**\
+`After a campaign by a right-wing opposition party, the government will hold a referendum in June that would require measures to limit immigration.`\
+https://nytimes.com/2026/02/11/world/europe/switzerland-to-vote-on-capping-population-at-10-million.html
 
-**New Mexico Rebukes Federal Agency Over Nuclear Waste at Los Alamos**\
-`State environmental regulators will also fine the Energy Department up to $16 million for exceeding safe groundwater standards near the nuclear lab.`\
-https://nytimes.com/2026/02/11/us/new-mexico-los-alamos-nuclear-waste-fines.html
+**How to watch Bulls vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7039624/2026/02/11/bulls-vs-celtics-stream-how-to-watch-feb-11/
 
