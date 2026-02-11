@@ -1,3 +1,7 @@
+**2026 Olympics, Day 4 recap: USA women's hockey rolls on, Shiffrin struggles, Malinin shines**\
+`Men's 1,000-meter speedskating among eight gold medals to be awarded Wednesday`\
+https://nytimes.com/athletic/7036946/2026/02/10/olympics-recap-usa-womens-hockey-shiffrin-malinin/
+
 **10 Dead in Shooting at School and Home in British Columbia**\
 `Police say the person believed to be the shooter was among the dead. A shelter-in-place order for the town of Tumbler Ridge has been dropped.`\
 https://nytimes.com/2026/02/10/world/canada/tumbler-ridge-school-shooting-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/10/sports/ilia-malinin-ice-skating-jumps
 **‘No Reason He Should Have Died’: Alex Pretti’s Parents Open Up**\
 `In their first sit-down interview, Michael and Susan Pretti avoided recriminations and recalled the son that Michael called “an exceptionally kind, caring man.”`\
 https://nytimes.com/2026/02/10/us/alex-pretti-parents-interview.html
-
-**Super Bowl LX draws 124.9 million viewers, Bad Bunny 128.2 million**\
-`The game peaked with 137.8 million viewers in the second quarter, the most-watched moment in U.S. television history.`\
-https://nytimes.com/athletic/7036613/2026/02/10/super-bowl-ratings-nfl-nbc-bad-bunny/
 
