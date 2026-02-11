@@ -1,3 +1,7 @@
+**Stopping Antidepressants During Pregnancy Can Be a Health Risk, Research Shows**\
+`Confusion about the safety of taking the drugs during pregnancy has led to mental health emergencies for some expectant mothers, experts say.`\
+https://nytimes.com/2026/02/11/well/mind/ssri-pregnancy-antidepressants.html
+
 **Despite any Olympic fallout, Ukrainian skeleton athlete has delivered his message**\
 `Should he be disallowed from competing on Thursday, he will be remembered in Ukraine as an athlete who took a bold stand.`\
 https://nytimes.com/athletic/7039783/2026/02/11/olympics-ukraine-helmet-war-russia-ioc-rules/

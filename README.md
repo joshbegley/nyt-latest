@@ -1,3 +1,11 @@
+**In His Second Act, James Van Der Beek Starred Online as a Proud Papa**\
+`The actor, who died on Wednesday, was most famous for “Dawson’s Creek,” but as he got older, he let fans into his real life as a father of six.`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dad-kids.html
+
+**Scoop City: Eight burning offseason questions**\
+`Pressing offseason questions, from Daniel Jones' payday to rule changes, plus what history tells us about Klint Kubiak's exit`\
+https://nytimes.com/athletic/7040235/2026/02/11/nfl-offseason-questions-2026-scoop-city/
+
 **Stopping Antidepressants During Pregnancy Can Be a Health Risk, Research Shows**\
 `Confusion about the safety of taking the drugs during pregnancy has led to mental health emergencies for some expectant mothers, experts say.`\
 https://nytimes.com/2026/02/11/well/mind/ssri-pregnancy-antidepressants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039893/2026/02/11/wataru-endo-liverpool-injury/
 **Cardi B was on stage with Bad Bunny. Was she 'performing'? Prediction markets were divided**\
 `Prediction markets are clarifying what constitutes a "performance."`\
 https://nytimes.com/athletic/7038991/2026/02/11/cardi-b-halftime-show-betting-prediction-markets-controversy/
-
-**'It doesn't make sense': Brighton's Hurzeler baffled by Baleba booking**\
-`The early yellow card led to Baleba's withdrawal in the 22nd minute to avoid the danger of a red card.`\
-https://nytimes.com/athletic/7040127/2026/02/11/fabian-hurzeler-yellow-card-baleba-brighton/
-
-**The El Paso Airspace Closed After the Military Tested New Technology**\
-`Also, the attorney general faces lawmakers’ anger over Epstein files. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/02/11/briefing/el-paso-airspace-labor-market.html
 
