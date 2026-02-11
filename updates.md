@@ -1,3 +1,7 @@
+**Chloe Kim Is Chasing History, and Doing It With an Injury**\
+`The snowboarder Chloe Kim is competing with an injured shoulder while seeking her third consecutive gold medal, which would further cement her as one of the United States’ greatest Winter Olympians.`\
+https://nytimes.com/video/sports/100000010704788/chloe-kim-is-chasing-history-and-doing-it-with-an-injury.html
+
 **Bondi Expected to Face Scrutiny Over Release of Epstein Files**\
 `At a House Judiciary Committee hearing on Wednesday, Attorney General Pam Bondi could face bipartisan skepticism over her handling of the documents.`\
 https://nytimes.com/2026/02/11/us/politics/bondi-testimony-epstein-files.html
