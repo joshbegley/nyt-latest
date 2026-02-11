@@ -1,3 +1,23 @@
+**Despite any Olympic fallout, Ukrainian skeleton athlete has delivered his message**\
+`Should he be disallowed from competing on Thursday, he will be remembered in Ukraine as an athlete who took a bold stand.`\
+https://nytimes.com/athletic/7039783/2026/02/11/olympics-ukraine-helmet-war-russia-ioc-rules/
+
+**Trump Orders the Pentagon to Buy More Coal-Fired Electricity**\
+`Mr. Trump is trying to revive coal, the dirtiest fossil fuel. At the White House, coal executives awarded him a trophy as the “Undisputed Champion of Beautiful Clean Coal.”`\
+https://nytimes.com/2026/02/11/climate/trump-coal-pentagon-electricity.html
+
+**Tamas Vasary, Pianist of Power and Sensitivity, Dies at 92**\
+`He bought technical brilliance and stylistic authority to Romantic-era music, particularly the works of Chopin and Liszt.`\
+https://nytimes.com/2026/02/11/arts/music/tamas-vasary-dead.html
+
+**Senate Hopefuls From Michigan Jostle for Union Support**\
+`Can Democrats win back working-class voters? These candidates are trying.`\
+https://nytimes.com/2026/02/11/us/politics/democrats-michigan-senate-working-class-voters.html
+
+**Former Colombo Boss Is Going Back to Prison for Meeting With Mob Members**\
+`Theodore Persico Jr., once picked to lead one of New York’s five crime families, was supposed to stay away from his former associates. But he nonetheless attended a Christmas party in Brooklyn.`\
+https://nytimes.com/2026/02/11/nyregion/columbo-family-mafia-sentencing.html
+
 **Slot says he expects Liverpool's Endo to be out 'for quite a long time'**\
 `The 33-year-old was stretchered off the pitch after appearing to land awkwardly on his ankle in Liverpool's 1-0 win over Sunderland.`\
 https://nytimes.com/athletic/7039893/2026/02/11/wataru-endo-liverpool-injury/
@@ -17,20 +37,4 @@ https://nytimes.com/2026/02/11/briefing/el-paso-airspace-labor-market.html
 **Democrats Denounce Attempt to Indict Lawmakers for Illegal Orders Video**\
 `Members in both chambers warned the failed attempt to prosecute the six lawmakers amounted to an existential threat to the legislative branch.`\
 https://nytimes.com/2026/02/11/us/politics/democrats-illegal-orders-video-indictment.html
-
-**One dead, 32 injured after Iowa college baseball team's bus crashes**\
-`The Iowa Lakes Community College baseball team was heading to Harrison, Ark., to face North Arkansas College.`\
-https://nytimes.com/athletic/7039907/2026/02/11/iowa-college-baseball-teams-bus-crash/
-
-**Why Are People ‘Becoming Chinese’ on Social Media?**\
-`Think of the meme as an absurdist joke, a wellness goal or an ironic expression of protest — or all of the above. Your ethnicity is beside the point.`\
-https://nytimes.com/2026/02/11/style/chinese-meme-social-media.html
-
-**Tiny Love Stories: ‘Will You Take the Sex Plant?’**\
-`Modern Love in miniature, featuring stories of no more than 100 words submitted by readers.`\
-https://nytimes.com/2026/02/11/style/tiny-modern-love-stories-will-you-take-the-sex-plant.html
-
-**In Tumbler Ridge, a Community in Stunned Agony**\
-`Residents embraced and wiped away tears a day after one of the worst mass shootings in the history of Canada rocked the small, remote town.`\
-https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/tumbler-ridge-shooting-community
 
