@@ -1,3 +1,15 @@
+**More than 23 years on from his debut, James Milner is making Premier League history**\
+`As Manuel Pellegrini said during his time at Manchester City: 'Show me another player who does all the things that Milner does well'`\
+https://nytimes.com/athletic/7021671/2026/02/11/james-milner-premier-league-appearance-record-barry/
+
+**The Briefing: Manchester City 3 Fulham 0 - O'Reilly excels in midfield but another flat second half**\
+`Pep Guardiola's side keep up the pressure on leaders Arsenal after brushing aside Fulham in the first half`\
+https://nytimes.com/athletic/7031139/2026/02/11/manchester-city-3-fulham-0-analysis/
+
+**Takaichi’s New Superpowers**\
+`Japan’s voters just gave their prime minister a huge mandate to transform her country. What comes next?`\
+https://nytimes.com/2026/02/11/world/sanae-takaichi-japan-canada-shooting.html
+
 **Sales at McDonald’s Rise After Discounts, the Grinch and Monopoly Promos**\
 `Profits were up for the fast-food giant as the company focused on value menu items for price-conscious customers.`\
 https://nytimes.com/2026/02/11/business/mcdonalds-earnings-sales-value-meals.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/11/nyregion/mamdani-budget-tin-cup-albany.html
 **U.S. Health Officials Defend Rejection of Moderna’s Flu Vaccine**\
 `The F.D.A.’s refusal to examine the company’s mRNA shot drew widespread criticism from doctors and was divisive within the agency.`\
 https://nytimes.com/2026/02/11/health/fda-moderna-flu-vaccine.html
-
-**Gun Part Maker Agrees to Pay $1.75 Million in Buffalo Massacre Lawsuits**\
-`Mean Arms agreed to stop selling an accessory that Peyton Gendron was able to remove when he killed 10 people at a Buffalo supermarket. The settlement is one of the largest following a mass shooting.`\
-https://nytimes.com/2026/02/11/nyregion/buffalo-shooting-gun-settlement.html
-
-**With key teammates retained, Joe Ryan 'really happy' to return to Twins**\
-`Ryan didn't reflect on the trying final two months of the Twins' 2025 season.`\
-https://nytimes.com/athletic/7039529/2026/02/11/with-key-teammates-retained-joe-ryan-is-really-happy-to-return-to-twins/
-
-**Arsenal's Havertz sustains muscular injury, set to miss north London derby**\
-`Havertz' injury is compounded by the fact that fellow Arsenal midfielder Mikel Merino will miss an extended period due to a foot injury.`\
-https://nytimes.com/athletic/7038931/2026/02/11/kai-havertz-injury-arsenal-update/
 

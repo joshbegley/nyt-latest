@@ -2,7 +2,7 @@
 `As Manuel Pellegrini said during his time at Manchester City: 'Show me another player who does all the things that Milner does well'`\
 https://nytimes.com/athletic/7021671/2026/02/11/james-milner-premier-league-appearance-record-barry/
 
-**The Briefing: Manchester City 3 Fulham 0 - O'Reilly excels in midfield but another flat second half**\
+**The Briefing: Manchester City 3 Fulham 0 - Semenyo the poacher, O'Reilly excels but Haaland concerns**\
 `Pep Guardiola's side keep up the pressure on leaders Arsenal after brushing aside Fulham in the first half`\
 https://nytimes.com/athletic/7031139/2026/02/11/manchester-city-3-fulham-0-analysis/
 
