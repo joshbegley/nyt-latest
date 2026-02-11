@@ -1,3 +1,7 @@
+**Slot says he expects Liverpool's Endo to be out 'for quite a long time'**\
+`The 33-year-old was stretchered off the pitch after appearing to land awkwardly on his ankle in Liverpool's 1-0 win over Sunderland.`\
+https://nytimes.com/athletic/7039893/2026/02/11/wataru-endo-liverpool-injury/
+
 **Cardi B was on stage with Bad Bunny. Was she 'performing'? Prediction markets were divided**\
 `Prediction markets are clarifying what constitutes a "performance."`\
 https://nytimes.com/athletic/7038991/2026/02/11/cardi-b-halftime-show-betting-prediction-markets-controversy/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/11/style/tiny-modern-love-stories-will-you-take-the-
 **In Tumbler Ridge, a Community in Stunned Agony**\
 `Residents embraced and wiped away tears a day after one of the worst mass shootings in the history of Canada rocked the small, remote town.`\
 https://nytimes.com/live/2026/02/11/world/canada-shooting-tumbler-ridge/tumbler-ridge-shooting-community
-
-**If the Cubs' season started today, Daniel Palencia is Craig Counsell's closer**\
-`"I know I’m that guy for that situation," Palencia said of closing games.`\
-https://nytimes.com/athletic/7039816/2026/02/11/daniel-palencia-cubs-closer-craig-counsell/
 
