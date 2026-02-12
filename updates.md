@@ -1,3 +1,7 @@
+**Twins, Liam Hendriks reunite on minor-league deal with invite to camp: Sources**\
+`Hendriks first signed with the organization in 2007 and pitched for the Twins from 2011-13.`\
+https://nytimes.com/athletic/7040637/2026/02/11/minnesota-twins-liam-hendriks-sign-camp/
+
 **Dillon Brooks picks up 16th technical foul of season, faces one-game suspension**\
 `After getting called for a foul, Brooks exchanged words with official James Williams. Williams called the technical foul.`\
 https://nytimes.com/athletic/7040636/2026/02/11/dillon-brooks-suns-16th-technical-foul-faces-suspension/
