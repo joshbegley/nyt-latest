@@ -1,3 +1,11 @@
+**Your 35 (New! Crowdsourced!) Dating Rules**\
+`On Valentine’s Day 31 years ago, the book “The Rules” provided 35 decidedly retro “rules” for dating. We thought it was time for a refresh, so we asked people what rules they rely on today. Here are the best.`\
+https://nytimes.com/2026/02/12/style/modern-dating-rules.html
+
+**How Europe Woke Up to Trump**\
+`European leaders are wondering if they can ever trust the U.S. again.`\
+https://nytimes.com/2026/02/12/world/europe-trump-munich-security-council-canada-minnesota.html
+
 **The nature and nurture behind Celebrini’s seamless arrival on the Olympic stage**\
 `Macklin Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
 https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/12/world/europe/munich-conference-europe-trump-vance
 **Chloe Kim, once a teenage phenom, loses to a new one.**\
 `Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe.`\
 https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
-
-**Your A–Z Guide to All Things Romance**\
-`From cinnamon rolls to stern brunch daddies, here are 101 terms you should know to understand the popular literary genre.`\
-https://nytimes.com/interactive/2026/02/12/books/romance-book-tropes-themes-glossary.html
-
-**Israeli Army Reservists Are Suspected of Using Inside Knowledge to Bet**\
-`The authorities said several reservists and a civilian were arrested, and two were charged, after an investigation into the use of classified information to bet on military operations.`\
-https://nytimes.com/2026/02/12/world/middleeast/israel-army-reservists-classified-information-bets.html
 
