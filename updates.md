@@ -1,3 +1,11 @@
+**Little Houses on the Icelandic Prairie**\
+`Plus: Martin Parr’s visual memoir, a deep dive into macaroni and cheese and more recommendations from T Magazine.`\
+https://nytimes.com/2026/02/12/t-magazine/iceland-cabin-retreat-travel.html
+
+**The Bounce: What can the NBA learn from the NHL's 4 Nations Face-Off?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7039520/2026/02/12/nba-all-star-game-nhl-the-bounce/
+
 **South Korean Court Rules Against Women in LG Inheritance Lawsuit**\
 `The widow and two daughters of LG’s former chairman sought to invalidate an inheritance agreement, claiming they were deceived into forfeiting their rightful inheritance.`\
 https://nytimes.com/2026/02/12/business/lg-inheritance-lawsuit.html
