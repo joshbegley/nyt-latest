@@ -1,3 +1,7 @@
+**Quote of the Day: G.O.P.’S CASH LEAD GIVES DEMOCRATS MIDTERM ANXIETY**\
+`Quotation of the Day for Thursday, February 12, 2026.`\
+https://nytimes.com/2026/02/11/pageoneplus/quote-of-the-day-gops-cash-lead-gives-democrats-midterm-anxiety.html
+
 **Kyle Busch wins the Daytona 500 pole**\
 `It is Busch’s first Daytona 500 pole and seventh for Richard Childress Racing.`\
 https://nytimes.com/athletic/7040661/2026/02/11/kyle-busch-wins-the-daytona-500-pole/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/crosswords/daily-puzzle-2026-02-12.html
 **Michigan State guard Kur Teng gets posterized … by Tom Izzo’s 99-year-old mom**\
 `Izzo was caught by FS1 cameras in a Jan. 20 win at Oregon telling Teng in a huddle: "Kur, you can’t guard my mother."`\
 https://nytimes.com/athletic/7040533/2026/02/11/michigan-state-guard-kur-teng-tom-izzos-mom/
-
-**U.S. Attorney Chosen to Replace Trump Pick Is Quickly Fired by White House**\
-`Federal judges had appointed Donald Kinsella, a veteran litigator, as top prosecutor in the Northern District of New York after the Trump administration’s nominee was found to be serving unlawfully.`\
-https://nytimes.com/2026/02/11/nyregion/donald-kinsella-ndny-sarcone-trump.html
 
