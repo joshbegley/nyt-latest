@@ -1,3 +1,11 @@
+**Police Seek 4 People After Teen Killed in Bronx Shooting**\
+`The police said they were seeking three men and one woman in connection with the shooting, which killed Christopher Redding, 16. Two other teenagers were injured.`\
+https://nytimes.com/2026/02/12/nyregion/bronx-fatal-shooting-teens.html
+
+**Former N.Y.P.D. Official Is Charged With Soliciting Bribes**\
+`Kevin Taylor, who ran the School Safety Division, received cash, luxury hotel lodging and a helicopter ride for promising to help steer city contracts to a Florida businessman, prosecutors said.`\
+https://nytimes.com/2026/02/12/nyregion/nypd-school-safety-bribes.html
+
 **Seattle to Pay $29 Million to Family of Woman Fatally Struck by Police S.U.V.**\
 `The officer was traveling 74 miles per hour in a 25-m.p.h. zone when he hit Jaahnavi Kandula in a crosswalk while responding to a call.`\
 https://nytimes.com/2026/02/12/us/seattle-settlement-jaahnavi-kandula-death.html
