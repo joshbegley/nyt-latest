@@ -1,3 +1,7 @@
+**Would You Leave Your Bag Unattended at a Starbucks? They Did. For Hours.**\
+`It is common for people to leave their belongings when they step away in South Korea. But some customers created a minor furor by occupying seats at a store without physically being there.`\
+https://nytimes.com/2026/02/12/world/asia/south-korea-cafe-culture.html
+
 **Thomas Tuchel set to stay on as England head coach after World Cup**\
 `The German's contract was set to expire following the summer tournament but he is now expected to sign an extension to 2028.`\
 https://nytimes.com/athletic/7041000/2026/02/12/thomas-tuchel-england-manager-stay/

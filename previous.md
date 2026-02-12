@@ -1,3 +1,7 @@
+**Would You Leave Your Bag Unattended at a Starbucks? They Did. For Hours.**\
+`It is common for people to leave their belongings when they step away in South Korea. But some customers created a minor furor by occupying seats at a store without physically being there.`\
+https://nytimes.com/2026/02/12/world/asia/south-korea-cafe-culture.html
+
 **Thomas Tuchel set to stay on as England head coach after World Cup**\
 `The German's contract was set to expire following the summer tournament but he is now expected to sign an extension to 2028.`\
 https://nytimes.com/athletic/7041000/2026/02/12/thomas-tuchel-england-manager-stay/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/learning/heart-on-a-string.html
 **Mamdani Is Targeting Bad Landlords. What About Public Housing?**\
 `Mayor Zohran Mamdani has pledged to hold private landlords accountable. But he has said less about how he will fix the crumbling public housing system he now oversees.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-public-housing-nycha.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/12/crosswords/spelling-bee-forum.html
 
