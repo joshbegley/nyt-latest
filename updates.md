@@ -1,3 +1,7 @@
+**Dillon Brooks picks up 16th technical foul of season, faces one-game suspension**\
+`After getting called for a foul, Brooks exchanged words with official James Williams. Williams called the technical foul.`\
+https://nytimes.com/athletic/7040636/2026/02/11/dillon-brooks-suns-16th-technical-foul-faces-suspension/
+
 **Jose Alvarado knocks down eight 3s, adds fuel to Knicks' blowout win vs. 76ers**\
 `As the pro-Knicks crowd drowned out the sadness of the 76ers faithful, each 3 New York's newest guard tossed up was met with loud applause.`\
 https://nytimes.com/athletic/7040587/2026/02/11/jose-alvarado-stats-knicks-76ers/
