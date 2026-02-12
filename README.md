@@ -1,3 +1,7 @@
+**The soccer analytics experts aiming to transform a club in Portugal's fourth division**\
+`Sport Uniao Sintrense have never featured in their nation's top-flight before, but four men are aiming to change that`\
+https://nytimes.com/athletic/7018483/2026/02/12/sintrense-data-revolution-analytics-portugal-kruger-rb-leipzig/
+
 **Olympic Figure Skaters Are on Thin Ice Over Copyright Rules**\
 `Several athletes have found themselves caught up in controversies over musical choices before and during one of the biggest competitions of their careers.`\
 https://nytimes.com/2026/02/12/world/europe/winter-olympics-figure-skating-music-copyright.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040575/2026/02/11/cam-thomas-stats-bucks-magic-ben
 **Judge Halts Transfer of Former Death Row Inmates to Federal ‘Supermax’ Facility**\
 `A judge ruled that the Trump administration’s plan to send the men to the nation’s harshest prison rendered their attempts to challenge the transfer a “sham” process.`\
 https://nytimes.com/2026/02/11/us/politics/judge-halts-transfer-inmates.html
-
-**Twins, Liam Hendriks reunite on minor-league deal with invite to camp: Sources**\
-`Hendriks first signed with the organization in 2007 and pitched for the Twins from 2011-13.`\
-https://nytimes.com/athletic/7040637/2026/02/11/minnesota-twins-liam-hendriks-sign-camp/
 
