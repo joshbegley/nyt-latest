@@ -1,3 +1,7 @@
+**Ukrainian Olympian Is Disqualified Over Helmet With Images of War Dead**\
+`Olympic officials had told Vladyslav Heraskevych that the helmet, featuring images of people killed in the war with Russia, violated the Games’ ban on political speech.`\
+https://nytimes.com/2026/02/12/world/olympics/ukraine-skeleton-olympics-banned-helmet-heraskevych.html
+
 **Late Night Boos Pam Bondi’s ‘Bratty’ Behavior**\
 `“If downplaying international sex rings were an Olympic sport, Bondi would take home the gold,” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/12/arts/television/late-night-pam-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6961880/2026/02/12/winter-olympics-curling-stones-s
 **Crystal Palace's season was back on track – then came seven minutes of madness**\
 `Just as it looked like they had turned a corner, Oliver Glasner's side were reminded this is a season where little has gone right`\
 https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-glasner/
-
-**Word of the Day: ubiquitous**\
-`This word has appeared in 576 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
 

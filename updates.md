@@ -1,3 +1,7 @@
+**Ukrainian Olympian Is Disqualified Over Helmet With Images of War Dead**\
+`Olympic officials had told Vladyslav Heraskevych that the helmet, featuring images of people killed in the war with Russia, violated the Games’ ban on political speech.`\
+https://nytimes.com/2026/02/12/world/olympics/ukraine-skeleton-olympics-banned-helmet-heraskevych.html
+
 **Late Night Boos Pam Bondi’s ‘Bratty’ Behavior**\
 `“If downplaying international sex rings were an Olympic sport, Bondi would take home the gold,” Jordan Klepper said on “The Daily Show.”`\
 https://nytimes.com/2026/02/12/arts/television/late-night-pam-bondi.html
