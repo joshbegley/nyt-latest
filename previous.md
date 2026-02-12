@@ -1,3 +1,7 @@
+**Why Nancy Guthrie’s Disappearance Is Breaking Through the Noise**\
+`A vulnerable victim, an unknown perpetrator and a recognizable celebrity are all factors in a case that has captivated the public.`\
+https://nytimes.com/2026/02/11/style/nancy-guthrie-missing-savannah.html
+
 **Where to Stream James Van Der Beek’s Best Performances**\
 `The actor seemed to understand early on that his lasting legacy would be the title character of “Dawson’s Creek.” But he found ways to subvert his all-American persona.`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-streaming-movies-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-si
 **How Trump Sees the World: It’s Personal**\
 `Historical relationships play little if any role in the second-term worldview of the president, who holds himself as the constant center of global events.`\
 https://nytimes.com/interactive/2026/02/11/us/trump-foreign-policy-world-quotes.html
-
-**Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
-`Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
-https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
 
