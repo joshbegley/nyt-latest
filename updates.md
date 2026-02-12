@@ -1,3 +1,7 @@
+**Ukrainian Olympic athlete disqualified over helmet commemorating Russian invasion victims**\
+`The IOC announced its decision before Heraskevych's first heats in Cortina d'Ampezzo.`\
+https://nytimes.com/athletic/7041012/2026/02/12/olympics-ukranian-helmet-disqualified/
+
 **Ukrainian Olympian Is Disqualified Over Helmet With Images of War Dead**\
 `Olympic officials had told Vladyslav Heraskevych that the helmet, featuring images of people killed in the war with Russia, violated the Games’ ban on political speech.`\
 https://nytimes.com/2026/02/12/world/olympics/ukraine-skeleton-olympics-banned-helmet-heraskevych.html
