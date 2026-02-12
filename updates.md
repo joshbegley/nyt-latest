@@ -1,3 +1,15 @@
+**The Pulse: The NBA’s yucky tanking problem**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7038703/2026/02/12/nba-tank-jazz-wizards-the-pulse/
+
+**A message to Sir Jim Ratcliffe: You are a custodian of Man Utd, your words matter**\
+`Ratcliffe is the man in charge of a club that is beloved by millions around the world. With that comes responsibility`\
+https://nytimes.com/athletic/7041105/2026/02/12/sir-jim-ratcliffe-immigrants-manchester-united/
+
+**Forest have plenty to be grateful to Marinakis for - but this mess is on him**\
+`Forest's owner has brought them a long way since taking over, but four managers in one season tells its own story of missteps.`\
+https://nytimes.com/athletic/7040959/2026/02/12/nottingham-forest-evangelos-marinakis-four-managers/
+
 **Bears mock draft 1.0: Defense is clear priority, starting with front 7**\
 `In our first look at some options for the Bears in the 2026 draft, the focus is on the defensive line with the first two rounds.`\
 https://nytimes.com/athletic/7039577/2026/02/12/bears-mock-draft-kayden-mcdonald/
