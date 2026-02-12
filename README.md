@@ -1,3 +1,11 @@
+**Daniel Cathiard Dies at 81; Turned Bordeaux Estate Into Champion Winery**\
+`He came to winemaking late, after a career in retail, and turned the 18th-century Chateau Smith Haut Lafitte into one of France’s most esteemed vineyards.`\
+https://nytimes.com/2026/02/12/dining/drinks/daniel-cathiard-dead.html
+
+**Josh Morrissey leaves Canada's Olympic hockey opener, won't return: Sources**\
+`Morrissey was unable to finish the opening game of the Olympics.`\
+https://nytimes.com/athletic/7042198/2026/02/12/josh-morrissey-canadas-olympics-injury/
+
 **Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
 `By Sonia A. Rao`\
 https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/12/health/tb-sanitarium-cameroon.html
 **Another Storm Takes Aim at the South. Here’s What’s Coming.**\
 `It’s finally warming up, which means the storm will most likely bring rain instead of more dreaded ice. But forecasters warned that there may be a lot of it.`\
 https://nytimes.com/2026/02/12/weather/us-south-rain-storm-forecast.html
-
-**Dodgers guarantee Max Muncy $10 million in new extension through at least 2027**\
-`With another extension signed, Muncy has again signaled he’s exactly where he wants to be.`\
-https://nytimes.com/athletic/7042044/2026/02/12/dodgers-max-muncy-extension-2027/
-
-**Helmuth Rilling, Who Recorded Huge Swaths of Bach, Dies at 92**\
-`He was the first to record all of J.S. Bach’s nearly 200 sacred cantatas, a project that stood out not only for its range but also for its steadfast style.`\
-https://nytimes.com/2026/02/12/arts/music/helmuth-rilling-dead.html
 

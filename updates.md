@@ -1,4 +1,8 @@
 **Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
+`By Sonia A. Rao`\
+https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
+
+**Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
 `Governor Tim Walz said`\
 https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
 

@@ -1,5 +1,5 @@
 **Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
-`Governor Tim Walz said`\
+`By Sonia A. Rao`\
 https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
 
 **‘Cold Storage’ Review: It’s a Gross Green Threat. Who You Gonna Call?**\
