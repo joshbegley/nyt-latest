@@ -1,3 +1,27 @@
+**The Figure Skaters Making Murder Wholesome**\
+`On “The Traitors,” two American Olympians turned skating commentators have become fan favorites by embracing the roles of lovable fools.`\
+https://nytimes.com/2026/02/12/style/traitors-tara-lipinski-johnny-weir-skating.html
+
+**Woman in ICE Custody for Nearly a Year Suffers Seizure After Falling**\
+`Leqaa Kordia, 33, of New Jersey, was hospitalized after hitting her head at a Texas detention center, her lawyer said. She was initially arrested during a 2024 protest at Columbia University.`\
+https://nytimes.com/2026/02/12/nyregion/leqaa-kordia-columbia-ice.html
+
+**Mamdani Reverses Campaign Promise to Expand Rental Assistance**\
+`A rental voucher program costs more than $1 billion. The mayor’s decision to curtail its expansion reflects the clash between his ideology and the realities of managing the city.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-rental-vouchers.html
+
+**Heart on a String**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/02/12/learning/heart-on-a-string.html
+
+**Mamdani Is Targeting Bad Landlords. What About Public Housing?**\
+`Mayor Zohran Mamdani has pledged to hold private landlords accountable. But he has said less about how he will fix the crumbling public housing system he now oversees.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-public-housing-nycha.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/12/crosswords/spelling-bee-forum.html
+
 **A trip to the Scottish factory where Olympic (and all other) curling stones are made**\
 `Every stone thrown at the Olympic curling tournaments comes from the same place — the remote island of Ailsa Craig, off the Scottish coast.`\
 https://nytimes.com/athletic/6961880/2026/02/12/winter-olympics-curling-stones-scotland-island-factory/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
 **The Magic are underachieving. Will they recover in time?**\
 `The Magic will enter the All-Star break with a winning record, but they have lost their mojo. Wednesday offered more proof of that.`\
 https://nytimes.com/athletic/7040858/2026/02/12/orlando-magic-struggling-paolo-banchero-bucks/
-
-**The New York Times in Print for Thursday, Feb. 12, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/12/todays-new-york-times
-
-**Spain’s Approach to Migration Is Overrated and Harmful**\
-`It appears democratically unworkable and may be stoking populism.`\
-https://nytimes.com/2026/02/12/opinion/spain-amnesty-immigration.html
-
-**Lawmakers Spar with Bondi Over Epstein Files**\
-`Attorney General Pam Bondi, sitting in a room with survivors of the convicted sex offender Jeffrey Epstein, refused to apologize for the Justice Department’s handling of the Epstein files during a House Judiciary Committee hearing.`\
-https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-files.html
-
-**What to watch on Day 6 at Winter Olympics: Chloe Kim, U.S., Canada men's hockey start**\
-`Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
-https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
-
-**Rob Edwards will pray that Wolves stay true to their word on summer rebuild**\
-`Wolves are heading towards the Championship and allowed six players to leave — either permanently or on loan — in the January window`\
-https://nytimes.com/athletic/7040446/2026/02/12/wolves-squad-depth-edwards-summer-transfers/
-
-**Liverpool haven't given up hope on Konate signing new deal – again he proved why he's worth it**\
-`Konate is popular in the dressing room and the kind of personality you want to keep around. He's put a torrid spell firmly behind him`\
-https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-contract-future/
 
