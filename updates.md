@@ -1,3 +1,7 @@
+**Lawmakers Spar with Bondi Over Epstein Files**\
+`Attorney General Pam Bondi, sitting in a room with survivors of the convicted sex offender Jeffrey Epstein, refused to apologize for the Justice Department’s handling of the Epstein files during a House Judiciary Committee hearing.`\
+https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-files.html
+
 **What to watch on Day 6 at Winter Olympics: Chloe Kim, U.S., Canada men's hockey start**\
 `Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
 https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
