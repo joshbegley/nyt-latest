@@ -1,3 +1,7 @@
+**Seattle to Pay $29 Million to Family of Woman Fatally Struck by Police S.U.V.**\
+`The officer was traveling 74 miles per hour in a 25-m.p.h. zone when he hit Jaahnavi Kandula in a crosswalk while responding to a call.`\
+https://nytimes.com/2026/02/12/us/seattle-settlement-jaahnavi-kandula-death.html
+
 **Rangers' top prospect Sebastian Walcott likely out for the year with torn UCL**\
 `Walcott, the No. 16 prospect in baseball, will miss at least nine months while recovering from Tommy John surgery.`\
 https://nytimes.com/athletic/7042993/2026/02/12/texas-rangers-sebastian-walcott-torn-ucl/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7042993/2026/02/12/texas-rangers-sebastian-walcott-
 `Plus notes on Sonny Gray spinning it, Caleb Durbin's October elbow surgery, Roman Anthony possibly getting a WBC invite and more.`\
 https://nytimes.com/athletic/7043015/2026/02/12/red-sox-brayan-bello-trade-rumors-reinvention/
 
-**At the Olympics, can Auston Matthews can regain his place in the hockey hierarchy?**\
+**At the Olympics, can Auston Matthews regain his place in the hockey hierarchy?**\
 `Make no mistake, Matthews is still very, very good. He may even be great. But he’s not what he was. And he hasn’t been for a while now.`\
 https://nytimes.com/athletic/7043077/2026/02/12/auston-matthews-olympics-mens-hockey/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/nyregion/analilia-mejia-new-jersey-congress.html
 **Team USA gets rolling in men's hockey, beating up Latvia on Day 2 of Olympic tournament**\
 `The Americans opened their Olympic hockey tournament with a 5-1 win over Latvia on Thursday.`\
 https://nytimes.com/athletic/7042530/2026/02/12/olympics-mens-hockey-united-states-latvia/
-
-**Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
-`The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
-https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html
 

@@ -1,3 +1,11 @@
+**Police Seek 4 People After Teen Killed in Bronx Shooting**\
+`The police said they were seeking three men and one woman in connection with the shooting, which killed Christopher Redding, 16. Two other teenagers were injured.`\
+https://nytimes.com/2026/02/12/nyregion/bronx-fatal-shooting-teens.html
+
+**Former N.Y.P.D. Official Is Charged With Soliciting Bribes**\
+`Kevin Taylor, who ran the School Safety Division, received cash, luxury hotel lodging and a helicopter ride for promising to help steer city contracts to a Florida businessman, prosecutors said.`\
+https://nytimes.com/2026/02/12/nyregion/nypd-school-safety-bribes.html
+
 **Seattle to Pay $29 Million to Family of Woman Fatally Struck by Police S.U.V.**\
 `The officer was traveling 74 miles per hour in a 25-m.p.h. zone when he hit Jaahnavi Kandula in a crosswalk while responding to a call.`\
 https://nytimes.com/2026/02/12/us/seattle-settlement-jaahnavi-kandula-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7043048/2026/02/12/patriots-defensive-coordinator-t
 **The High-Stakes Fight Over Masked Federal Agents**\
 `The debate over whether federal agents should be allowed to cover their faces with masks has become a flashpoint as the government heads for a partial shutdown.`\
 https://nytimes.com/2026/02/12/us/politics/congress-trump-ice-masked-agents.html
-
-**In an Upset, Analilia Mejia, a Progressive, Wins a Democratic House Race**\
-`Ms. Mejia, a political organizer, beat her main opponent in the New Jersey primary, Tom Malinowski, by a narrow margin after he was battered by negative ads from a pro-Israel group.`\
-https://nytimes.com/2026/02/12/nyregion/analilia-mejia-new-jersey-congress.html
-
-**Team USA gets rolling in men's hockey, beating up Latvia on Day 2 of Olympic tournament**\
-`The Americans opened their Olympic hockey tournament with a 5-1 win over Latvia on Thursday.`\
-https://nytimes.com/athletic/7042530/2026/02/12/olympics-mens-hockey-united-states-latvia/
 

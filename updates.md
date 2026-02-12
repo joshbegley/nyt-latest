@@ -1,3 +1,11 @@
+**Seattle to Pay $29 Million to Family of Woman Fatally Struck by Police S.U.V.**\
+`The officer was traveling 74 miles per hour in a 25-m.p.h. zone when he hit Jaahnavi Kandula in a crosswalk while responding to a call.`\
+https://nytimes.com/2026/02/12/us/seattle-settlement-jaahnavi-kandula-death.html
+
+**At the Olympics, can Auston Matthews regain his place in the hockey hierarchy?**\
+`Make no mistake, Matthews is still very, very good. He may even be great. But he’s not what he was. And he hasn’t been for a while now.`\
+https://nytimes.com/athletic/7043077/2026/02/12/auston-matthews-olympics-mens-hockey/
+
 **Rangers' top prospect Sebastian Walcott likely out for the year with torn UCL**\
 `Walcott, the No. 16 prospect in baseball, will miss at least nine months while recovering from Tommy John surgery.`\
 https://nytimes.com/athletic/7042993/2026/02/12/texas-rangers-sebastian-walcott-torn-ucl/
