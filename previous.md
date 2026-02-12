@@ -1,3 +1,19 @@
+**K-State coach Tang slams team after 29-point loss: 'Embarrassed for our fans'**\
+`Kansas State students showed up to the game with paper bags on their heads, and Tang said, "I'd wear a paper bag too if I was them."`\
+https://nytimes.com/athletic/7042236/2026/02/12/kansas-state-basketball-jerome-tang-loss-embarrassed/
+
+**Judge Temporarily Blocks Hegseth from Punishing Kelly for Video**\
+`Judge Richard J. Leon found that attempts to discipline Mark Kelly for a video that warned against following illegal orders would violate the senator’s First Amendment rights.`\
+https://nytimes.com/2026/02/12/us/judge-blocks-kelly-punishment-hegseth.html
+
+**Dodgers and Kiké Hernández run it back again, agree to 1-year, $4.5 million deal**\
+`The Dodgers have acquired Kiké Hernández via free agency or trade five previous times. `\
+https://nytimes.com/athletic/6943799/2026/02/12/mlb-free-agency-kike-hernandez-signs-dodgers/
+
+**Pam Bondi’s Performance Before Congress**\
+`Readers react to the attorney general’s appearance before the House Judiciary Committee. Also: “Freedom from fear”; the Melania Trump movie; humor that’s not funny.`\
+https://nytimes.com/2026/02/12/opinion/pam-bondi-congress.html
+
 **Canada begins quest for gold with decisive win over Czechia in Olympic men's hockey**\
 `Canada routed the Czech Republic on Thursday in its Olympic opener. The Canadians face Switzerland on Friday.`\
 https://nytimes.com/athletic/7041938/2026/02/12/olympic-mens-hockey-canada-czechia-results/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7042198/2026/02/12/josh-morrissey-canadas-olympics-
 **Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
 `By Sonia A. Rao`\
 https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
-
-**‘Cold Storage’ Review: It’s a Gross Green Threat. Who You Gonna Call?**\
-`In this goofy B-movie throwback, it’s Liam Neeson to the rescue as a weary, tough-talking bioterror operative.`\
-https://nytimes.com/2026/02/12/movies/cold-storage-review-liam-neeson.html
-
-**Games Briefing: Vladyslav Heraskevych disqualified over helmet controversy**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7042099/2026/02/12/vladyslav-heraskevych-skeleton-olympics-games-briefing/
-
-**Luisangel Acuña isn't a switch hitter, but White Sox GM says he loves him anyway**\
-`GM Chris Getz has a reputation for making news with his comments. This time, his overstatement of his new player's skills went viral.`\
-https://nytimes.com/athletic/7042027/2026/02/12/white-sox-luisangel-acuna-gm-switch-hitter/
-
-**‘Kramer/Fauci’ Revisits a Sparring Match During the AIDS Crisis**\
-`At the heart of Daniel Fish’s verbatim staging of a C-SPAN segment is a complex relationship, between Larry Kramer and Anthony Fauci, that “goes from ‘I hate you’ to ‘I love you’ and back.”`\
-https://nytimes.com/2026/02/12/theater/larry-kramer-anthony-fauci-daniel-fish-aids.html
 

@@ -1,3 +1,19 @@
+**K-State coach Tang slams team after 29-point loss: 'Embarrassed for our fans'**\
+`Kansas State students showed up to the game with paper bags on their heads, and Tang said, "I'd wear a paper bag too if I was them."`\
+https://nytimes.com/athletic/7042236/2026/02/12/kansas-state-basketball-jerome-tang-loss-embarrassed/
+
+**Judge Temporarily Blocks Hegseth from Punishing Kelly for Video**\
+`Judge Richard J. Leon found that attempts to discipline Mark Kelly for a video that warned against following illegal orders would violate the senator’s First Amendment rights.`\
+https://nytimes.com/2026/02/12/us/judge-blocks-kelly-punishment-hegseth.html
+
+**Dodgers and Kiké Hernández run it back again, agree to 1-year, $4.5 million deal**\
+`The Dodgers have acquired Kiké Hernández via free agency or trade five previous times. `\
+https://nytimes.com/athletic/6943799/2026/02/12/mlb-free-agency-kike-hernandez-signs-dodgers/
+
+**Pam Bondi’s Performance Before Congress**\
+`Readers react to the attorney general’s appearance before the House Judiciary Committee. Also: “Freedom from fear”; the Melania Trump movie; humor that’s not funny.`\
+https://nytimes.com/2026/02/12/opinion/pam-bondi-congress.html
+
 **Canada begins quest for gold with decisive win over Czechia in Olympic men's hockey**\
 `Canada routed the Czech Republic on Thursday in its Olympic opener. The Canadians face Switzerland on Friday.`\
 https://nytimes.com/athletic/7041938/2026/02/12/olympic-mens-hockey-canada-czechia-results/
