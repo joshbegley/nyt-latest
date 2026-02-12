@@ -1,3 +1,7 @@
+**Rewriting the Fashion Rules**\
+`With her first show for Proenza Schouler, Rachel Scott was trying to pull off more than a reinvention.`\
+https://nytimes.com/2026/02/12/style/proenza-schouler-rachel-scott-new-york-fashion-week.html
+
 **Judge Ends Deportation Case for Mexican Father of 3 U.S. Marines**\
 `The arrest of Narciso Barranco, who was detained by federal agents while landscaping outside an IHOP in Southern California last June, garnered national attention.`\
 https://nytimes.com/2026/02/12/us/deportation-case-us-mexico-marines-barranco.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041204/2026/02/12/mikael-kingsbury-cooper-woods-me
 **Submit your questions for Seth Emerson's SEC football mailbag**\
 `In a lull between the transfer portal window and spring practices, let's talk SEC football.`\
 https://nytimes.com/athletic/7041345/2026/02/12/sec-football-mailbag-submit-questions/
-
-**Court Vision: Where do Kansas, Illinois rank in national title contender tiers?**\
-`Purdue, Texas Tech, Gonzaga and UNC are among teams with glaring vulnerabilities, but they also have great wins.`\
-https://nytimes.com/athletic/7039637/2026/02/12/college-basketball-tiers-selection-sunday/
 
