@@ -26,6 +26,10 @@ https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-fi
 `Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
 https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
 
+**Rob Edwards will pray that Wolves stay true to their word on summer rebuild**\
+`Wolves are heading towards the Championship and allowed six players to leave — either permanently or on loan — in the January window`\
+https://nytimes.com/athletic/7040446/2026/02/12/wolves-squad-depth-edwards-summer-transfers/
+
 **Liverpool haven't given up hope on Konate signing new deal – again he proved why he's worth it**\
 `Konate is popular in the dressing room and the kind of personality you want to keep around. He's put a torrid spell firmly behind him`\
 https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-contract-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-con
 **Why doesn't La Masia produce strikers for Barcelona?**\
 `The Catalan club's celebrated youth academy turns out scores of players for their first team, so why don't centre-forwards break through?`\
 https://nytimes.com/athletic/7038697/2026/02/12/barcelona-la-masia-strikers-lewandowski-yamal/
-
-**Another defeat, but Fabian Hurzeler still has support of Brighton players and board**\
-`The bad run goes on for Brighton and the scrutiny on Fabian Hurzeler's position as head coach will intensify. But he is still safe for now`\
-https://nytimes.com/athletic/7038369/2026/02/12/hurzeler-brighton-villa/
 
