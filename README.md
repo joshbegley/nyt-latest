@@ -1,3 +1,7 @@
+**‘Dawson’s Creek’ Heartthrob James Van Der Beek Dies at 48**\
+`James Van Der Beek, who played the wide-eyed, overly sensitive main character on the popular turn-of-the-millennium TV drama series “Dawson’s Creek,” died on Wednesday at age 48.`\
+https://nytimes.com/video/obituaries/archives/100000010706343/james-van-der-beek-obituary.html
+
 **‘Hot Girls for Zohran’ Co-Founder Floated Conspiracy Theories About Israel**\
 `Kaif Gilani was fired from Brad Lander’s House campaign after his social media history, which included praise for Hamas and virulent attacks on the police, emerged.`\
 https://nytimes.com/2026/02/11/nyregion/kaif-gilani-hot-girls-zohran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dad-kids.html
 **Scoop City: Eight burning offseason questions**\
 `Pressing offseason questions, from Daniel Jones' payday to rule changes, plus what history tells us about Klint Kubiak's exit`\
 https://nytimes.com/athletic/7040235/2026/02/11/nfl-offseason-questions-2026-scoop-city/
-
-**Stopping Antidepressants During Pregnancy Can Be a Health Risk, Research Shows**\
-`Confusion about the safety of taking the drugs during pregnancy has led to mental health emergencies for some expectant mothers, experts say.`\
-https://nytimes.com/2026/02/11/well/mind/ssri-pregnancy-antidepressants.html
 
