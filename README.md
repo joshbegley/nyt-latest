@@ -1,3 +1,7 @@
+**From the chaos of snowboard cross, a repeat champ.**\
+`Alessandro Hämmerle of  Austria came from behind to claim another gold medal in the men’s event.`\
+https://nytimes.com/2026/02/12/world/from-the-chaos-of-snowboard-cross-a-repeat-champ.html
+
 **Beethoven’s ‘Egmont,’ by Way of Cate Blanchett and Jeremy O. Harris**\
 `Gustavo Dudamel, Blanchett and Harris sit down to discuss their new version of Beethoven’s classic, premiering in Los Angeles this week.`\
 https://nytimes.com/2026/02/12/arts/music/cate-blanchet-jeremy-o-harris-gustavo-dudamel-egmont-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041562/2026/02/12/switzerland-canada-mens-olympic-
 **The Snow Sure Was Beautiful. Now Here Comes the River of Yuck.**\
 `Melting mega-piles of grimy road snow can release weeks worth of salt, oils (and dog poop) in what one scientist called a “triple whammy.”`\
 https://nytimes.com/2026/02/12/climate/toxic-melting-snow-dog-poop.html
-
-**Trump Administration to End Surge of Immigration Agents in Minnesota**\
-`The announcement came more than two months into an operation that has led to tense protests, thousands of arrests and three shootings in the Democratic-led state.`\
-https://nytimes.com/2026/02/12/us/minnesota-immigration-crackdown.html
 
