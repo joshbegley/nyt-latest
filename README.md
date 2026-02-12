@@ -1,3 +1,7 @@
+**Lawmakers Spar with Bondi Over Epstein Files**\
+`Attorney General Pam Bondi, sitting in a room with survivors of the convicted sex offender Jeffrey Epstein, refused to apologize for the Justice Department’s handling of the Epstein files during a House Judiciary Committee hearing.`\
+https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-files.html
+
 **What to watch on Day 6 at Winter Olympics: Chloe Kim, U.S., Canada men's hockey start**\
 `Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
 https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7020692/2026/02/12/manchester-city-fulham-games-won
 **Erling Haaland is feeling the wear and tear, but can Manchester City really afford to rest him?**\
 `The striker made it two goals in two games on Wednesday after a recent scoring drought but was then taken off at half-time by Pep Guardiola`\
 https://nytimes.com/athletic/7040049/2026/02/12/erling-haaland-manchester-city-rest-fatigue/
-
-**The soccer analytics experts aiming to transform a club in Portugal's fourth division**\
-`Sport Uniao Sintrense have never featured in their nation's top-flight before, but four men are aiming to change that`\
-https://nytimes.com/athletic/7018483/2026/02/12/sintrense-data-revolution-analytics-portugal-kruger-rb-leipzig/
 
