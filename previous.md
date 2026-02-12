@@ -1,3 +1,11 @@
+**California Asks if Civil Rights of Black Residents Were Violated During Eaton Fire**\
+`The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
+https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
+
+**Trump Administration Announces End to Surge of Immigration Agents in Minnesota**\
+`Tom Homan, the White House border czar, says the Trump administration is ending its monthslong surge of immigration agents in Minnesota. Roughly 3,000 agents flooded into the state for Operation Metro Surge. Gov. Tim Walz criticized the administration’s actions but shared cautious optimism.`\
+https://nytimes.com/video/us/100000010708886/minnesota-immigration-agents-homan-trump.html
+
 **Judge Says U.S. Must Help Return Venezuelans Detained in El Salvador**\
 `The ruling was one of the most robust steps taken so far to force the Trump administration to give due process to the Venezuelan immigrants deported under the Alien Enemies Act.`\
 https://nytimes.com/2026/02/12/us/politics/venezuela-immigrants-el-salvador-return-ruling.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7042335/2026/02/12/nba-cleveland-cavs-luka-doncic-c
 **Trump’s Actions Test the Fragile World of Air Travel**\
 `Last minute announcements and abrupt changes by the Trump administration have caused confusion in an already strained U.S. aviation system.`\
 https://nytimes.com/2026/02/12/business/air-travel-trump-el-paso.html
-
-**Padres' A.J. Preller on potential extension: 'We're either going to do it or not'**\
-`Preller said that the prospect of reporting to a new owner later this year isn't holding up negotiations to stay beyond the 2026 season.`\
-https://nytimes.com/athletic/7042388/2026/02/12/aj-preller-padres-extension-ownership-change/
-
-**Homeland Security Shutdown Draws Nearer as Democrats Block Funding**\
-`Senate Democrats refused to move ahead with a spending bill needed to keep the Department of Homeland Security running because it lacked limits they have demanded on federal immigration agents.`\
-https://nytimes.com/2026/02/12/us/politics/homeland-security-shutdown-funding.html
 

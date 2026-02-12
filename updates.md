@@ -1,3 +1,11 @@
+**California Asks if Civil Rights of Black Residents Were Violated During Eaton Fire**\
+`The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
+https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
+
+**Trump Administration Announces End to Surge of Immigration Agents in Minnesota**\
+`Tom Homan, the White House border czar, says the Trump administration is ending its monthslong surge of immigration agents in Minnesota. Roughly 3,000 agents flooded into the state for Operation Metro Surge. Gov. Tim Walz criticized the administration’s actions but shared cautious optimism.`\
+https://nytimes.com/video/us/100000010708886/minnesota-immigration-agents-homan-trump.html
+
 **Judge Says U.S. Must Help Return Venezuelans Detained in El Salvador**\
 `The ruling was one of the most robust steps taken so far to force the Trump administration to give due process to the Venezuelan immigrants deported under the Alien Enemies Act.`\
 https://nytimes.com/2026/02/12/us/politics/venezuela-immigrants-el-salvador-return-ruling.html
