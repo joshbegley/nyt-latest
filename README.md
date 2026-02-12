@@ -1,8 +1,24 @@
+**Judge Says U.S. Must Help Return Venezuelans Detained in El Salvador**\
+`The ruling was one of the most robust steps taken so far to force the Trump administration to give due process to the Venezuelan immigrants deported under the Alien Enemies Act.`\
+https://nytimes.com/2026/02/12/us/politics/venezuela-immigrants-el-salvador-return-ruling.html
+
+**Phillies release Nick Castellanos with 1 year, $20 million remaining on contract**\
+`The Phillies decided to part ways with Castellanos after a season in which he struggled to perform and complained about his playing time. `\
+https://nytimes.com/athletic/6758055/2026/02/12/phillies-release-nick-castellanos-contract/
+
+**De'Aaron Fox to replace Giannis at All-Star Game; Powell switching teams**\
+`This year's game is a round-robin tournament featuring three teams.`\
+https://nytimes.com/athletic/7042472/2026/02/12/deaaron-fox-all-star-giannis-replacement-nba/
+
+**How England moved fast to secure Tuchel's future and why he wanted to sign**\
+`The FA wanted to avoid a sideshow around the coach's future at the World Cup, with big clubs searching for managers`\
+https://nytimes.com/athletic/7041771/2026/02/12/england-thomas-tuchel-renewal-explained/
+
 **Mamdani Taps Prosecutor in R. Kelly Case to Run Anti-Corruption Agency**\
 `Nadia Shihata was picked to run the Department of Investigation, an independent city agency that has been weakened in recent years.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-investigations-nadia-shihata.html
 
-**Search for Nancy Guthrie enters a 12th day.**\
+**Investigators return to Nancy Guthrie’s house.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nancy-guthrie-enters-a-12th-day
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7042388/2026/02/12/aj-preller-padres-extension-owne
 **Homeland Security Shutdown Draws Nearer as Democrats Block Funding**\
 `Senate Democrats refused to move ahead with a spending bill needed to keep the Department of Homeland Security running because it lacked limits they have demanded on federal immigration agents.`\
 https://nytimes.com/2026/02/12/us/politics/homeland-security-shutdown-funding.html
-
-**Bar Punts on Ethics Complaint Over Application to Search Reporter’s Home**\
-`A press freedom group accused a prosecutor of violating an ethics rule by not telling a judge about a law limiting searches for journalistic work product.`\
-https://nytimes.com/2026/02/12/us/politics/virginia-bar-ethics-prosecutor-reporter.html
-
-**An Elephant Is Blind Without Its Whiskers**\
-`There are about 1,000 tiny hairs on an elephant’s rugged trunk, all designed to help the animal feel, a new study found.`\
-https://nytimes.com/2026/02/12/science/elephant-whiskers.html
-
-**PEN America Names New Leadership After Gaza Fallout**\
-`After a 16-month search, the free speech group has chosen two longtime employees, Summer Lopez and Clarisse Rosaz Shariyf, as co-chief executives.`\
-https://nytimes.com/2026/02/12/arts/pen-america-new-ceo-gaza.html
-
-**Mainoo 'absolutely back in the frame' for England selection, says Tuchel**\
-`Mainoo's team-mates Luke Shaw and Harry Maguire are also in the plans of Tuchel, who cited Manchester United's return to a back four.`\
-https://nytimes.com/athletic/7042389/2026/02/12/mainoo-manchester-united-england-return-tuchel/
 
