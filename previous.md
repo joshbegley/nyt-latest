@@ -1,3 +1,11 @@
+**Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
+`Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
+https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/
+
+**Four States Sue Administration Over Loss of Public Health Funds**\
+`The states, all led by Democrats, claim the cuts were intended as retribution and will harm efforts to control H.I.V. and other sexually transmitted infections.`\
+https://nytimes.com/2026/02/11/health/hhs-california-public-health-lawsuit.html
+
 **‘Dawson’s Creek’ Heartthrob James Van Der Beek Dies at 48**\
 `James Van Der Beek, who played the wide-eyed, overly sensitive main character on the popular turn-of-the-millennium TV drama series “Dawson’s Creek,” died on Wednesday at age 48.`\
 https://nytimes.com/video/obituaries/archives/100000010706343/james-van-der-beek-obituary.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7037727/2026/02/11/guardians-luis-ortiz-emmanuel-cl
 **How Super Bowl announcer Alan Roach made it to the Milan Olympics in time for hockey**\
 `A PA announcer at every Colorado Avalanche and Minnesota Vikings home game, Roach is a familiar voice of the Super Bowl and Winter Olympics.`\
 https://nytimes.com/athletic/7040263/2026/02/11/alan-roach-super-bowl-announcer-olympics-hockey-milan/
-
-**In His Second Act, James Van Der Beek Starred Online as a Proud Papa**\
-`The actor, who died on Wednesday, was most famous for “Dawson’s Creek,” but as he got older, he let fans into his real life as a father of six.`\
-https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-dad-kids.html
-
-**Scoop City: Eight burning offseason questions**\
-`Pressing offseason questions, from Daniel Jones' payday to rule changes, plus what history tells us about Klint Kubiak's exit`\
-https://nytimes.com/athletic/7040235/2026/02/11/nfl-offseason-questions-2026-scoop-city/
 

@@ -1,3 +1,11 @@
+**Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
+`Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
+https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/
+
+**Four States Sue Administration Over Loss of Public Health Funds**\
+`The states, all led by Democrats, claim the cuts were intended as retribution and will harm efforts to control H.I.V. and other sexually transmitted infections.`\
+https://nytimes.com/2026/02/11/health/hhs-california-public-health-lawsuit.html
+
 **‘Dawson’s Creek’ Heartthrob James Van Der Beek Dies at 48**\
 `James Van Der Beek, who played the wide-eyed, overly sensitive main character on the popular turn-of-the-millennium TV drama series “Dawson’s Creek,” died on Wednesday at age 48.`\
 https://nytimes.com/video/obituaries/archives/100000010706343/james-van-der-beek-obituary.html
