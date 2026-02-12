@@ -1,3 +1,11 @@
+**Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
+`Governor Tim Walz said`\
+https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
+
+**Luisangel Acuña isn't a switch hitter, but White Sox GM says he loves him anyway**\
+`GM Chris Getz has a reputation for making news with his comments. This time, his overstatement of his new player's skills went viral.`\
+https://nytimes.com/athletic/7042027/2026/02/12/white-sox-luisangel-acuna-gm-switch-hitter/
+
 **‘Cold Storage’ Review: It’s a Gross Green Threat. Who You Gonna Call?**\
 `In this goofy B-movie throwback, it’s Liam Neeson to the rescue as a weary, tough-talking bioterror operative.`\
 https://nytimes.com/2026/02/12/movies/cold-storage-review-liam-neeson.html
