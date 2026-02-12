@@ -1,3 +1,7 @@
+**Building Cities from Scratch**\
+`We explore one possibility for relieving the U.S. housing crisis.`\
+https://nytimes.com/2026/02/12/briefing/building-cities-from-scratch.html
+
 **Neuer rules out reversing Germany retirement for the World Cup**\
 `The 39-year-old ended his international career following the 2024 European Championship after 124 appearances and a World Cup win in 2014.`\
 https://nytimes.com/athletic/7041136/2026/02/12/manuel-neuer-germany-world-cup-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040014/2026/02/12/luke-kuechly-hall-of-fame-drew-b
 **Anti-Drone Laser Is Said to Have Caused El Paso Airport Chaos, and Bondi Refuses to Apologize to Epstein Victims**\
 `Plus, how the ultra-rich are changing the travel industry.`\
 https://nytimes.com/2026/02/12/podcasts/the-headlines/el-paso-anti-drone-laser-pam-bondi-epstein.html
-
-**What to know about the 2026 Pebble Beach Pro-Am**\
-`The PGA's scenic first signature event runs Thursday through Sunday. We got you covered with how to watch and bet on it.`\
-https://nytimes.com/athletic/7037353/2026/02/12/pebble-beach-pro-am-odds-how-to-watch-2026/
 

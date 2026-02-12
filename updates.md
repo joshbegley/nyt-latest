@@ -1,3 +1,7 @@
+**Building Cities from Scratch**\
+`We explore one possibility for relieving the U.S. housing crisis.`\
+https://nytimes.com/2026/02/12/briefing/building-cities-from-scratch.html
+
 **Neuer rules out reversing Germany retirement for the World Cup**\
 `The 39-year-old ended his international career following the 2024 European Championship after 124 appearances and a World Cup win in 2014.`\
 https://nytimes.com/athletic/7041136/2026/02/12/manuel-neuer-germany-world-cup-retirement/
