@@ -1,40 +1,40 @@
+**Former Steeler Joey Porter Sr. criticizes Ben Roethlisberger: 'Not a good teammate'**\
+`Porter criticized Roethlisberger and James Harrison for their criticism of Mike Tomlin last season.`\
+https://nytimes.com/athletic/7041836/2026/02/12/joey-porter-sr-ben-roethlisberger-james-harrison-pittsburgh-steelers/
+
+**The Windup: Who isn't in pain?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7042066/2026/02/12/who-isnt-in-pain-plus-luisangel-acuna-is-not-a-switch-hitter/
+
+**Colorectal Cancer Has Become More Common Among Younger People**\
+`The actor James Van Der Beek, who died on Wednesday at 48, was among a growing number of adults under 50 diagnosed with the disease.`\
+https://nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html
+
+**On Trump’s Tariffs, Supreme Court Hurries Up and Waits**\
+`The justices put the case on a fast track at the administration’s urging. But they don’t seem in a rush to rule on the president’s signature economic program.`\
+https://nytimes.com/2026/02/12/us/the-docket-tariffs-wait-game.html
+
+**Senate Questions Health Care Firm for Profiting Off Program Meant for Poor**\
+`The program was meant to help hospitals provide for poor patients by offering drug savings. But critics say a Texas company has turned it into a big business, driving up costs for patients and insurers.`\
+https://nytimes.com/2026/02/12/us/health-care-apexus-340b.html
+
+**Flexibility and Rising Costs Are Keeping Mothers at Work**\
+`Labor force participation for women with small children continues to float above prepandemic levels, thanks to flexible work setups — and rising costs.`\
+https://nytimes.com/2026/02/12/business/economy/mothers-labor-force-participation.html
+
+**Crypto Industry Targets Al Green, a Texas Democrat Who Voiced Concerns**\
+`A crypto-backed super PAC plans to spend $1.5 million against Mr. Green, a member of the House Financial Services Committee who has expressed concerns about cryptocurrency.`\
+https://nytimes.com/2026/02/12/us/politics/crypto-super-pac-fairshake-green-menefee-texas.html
+
+**The Republican Party’s Advantage on Immigration Shrinks, Poll Finds**\
+`The new poll from The Associated Press and the NORC Center for Public Affairs Research found the G.O.P. edge on the issue, once in the double digits, had dropped to 4 percent.`\
+https://nytimes.com/2026/02/12/us/politics/immigration-poll-republicans-democrats.html
+
+**Americans Are Paying the Bill for Tariffs, Despite Trump’s Claims**\
+`Research from the New York Fed confirms that U.S. companies and consumers are bearing tariff costs, despite the president’s assertions otherwise.`\
+https://nytimes.com/2026/02/12/business/economy/americans-pay-tariffs-trump-fed.html
+
 **Ohio State Professor Put on Leave After Wrestling Filmmaker to the Ground**\
 `After another journalist interviewed the university’s former president about Jeffrey Epstein, a professor physically intervened when a documentarian wanted to ask more questions.`\
 https://nytimes.com/2026/02/12/us/ohio-state-professor-wrestles-down-filmmaker.html
-
-**NCAA affirms rulings in Connor Stalions case at Michigan after appeal**\
-`Stalions’ appeal was the last lingering thread from an investigation that dates back to Michigan’s 2023 national championship season.`\
-https://nytimes.com/athletic/7041953/2026/02/12/connor-stalions-michigan-ncaa-appeal-ruling/
-
-**How Are Curling Stones Made?**\
-`The Athletic’s Matt Slater visited the factory where curling stones for the Olympic games are made. For the past 20 years, the granite for the stones has comes from Ailsa Craig, an uninhabited island off the Scottish coast.`\
-https://nytimes.com/video/the-athletic/100000010705748/how-are-curling-stones-made.html
-
-**In Ohio City, Officials Take Heat Over Residents’ Lack of It**\
-`An insolvent, broken utility left downtown buildings in Youngstown freezing in recent weeks. Gov. Mike DeWine has attributed the problems to an archaic system.`\
-https://nytimes.com/2026/02/12/us/youngstown-ohio-cold-utilities.html
-
-**Why Ilia Malinian Performs Moves no Other Skater Can**\
-`Why has the American figure skater Ilia Malinin become such a sensation at the 2026 Olympics? Marcus Thompson II, a senior columnist for The Athletic, explains the hype.`\
-https://nytimes.com/video/the-athletic/100000010708272/why-ilia-malinian-performs-moves-no-other-skater-can.html
-
-**Verstappen: New 2026 F1 cars are ‘anti-racing’ and ‘not a lot of fun’**\
-`F1 overhauled its car designs for the 2026 campaign, with the new engines placing a greater emphasis on energy management and usage.`\
-https://nytimes.com/athletic/7041903/2026/02/12/max-verstappen-2026-f1-cars/
-
-**Trump’s Disdain for Borders Is Triggering Alarms Over Financial and Tech Sovereignty**\
-`European leaders have been compelled to address the possibility of once-remote risks to the financial networks and technology that undergird their economies.`\
-https://nytimes.com/2026/02/12/business/economy/trump-europe-sovereignty.html
-
-**Bompastor: Green exit 'sad' but Chelsea 'in a good place to be successful'**\
-`Chelsea parted company with head of women's football Green on Monday.`\
-https://nytimes.com/athletic/7041879/2026/02/12/sonia-bompastor-paul-green-chelsea/
-
-**Disqualification of Ukraine's Heraskevych includes dismissal of his sport by Olympic leaders**\
-`IOC comments that they wanted Heraskevych to hold back for "one minute" run was reductive of his sport, our columnist Steve Buckley writes.`\
-https://nytimes.com/athletic/7041670/2026/02/12/olympics-ukraine-helmet-ioc-disqualified-skeleton/
-
-**Gail Slater Leaves Role as Justice Dept.’s Antitrust Chief**\
-`Her departure comes after months of mounting tension over her division’s work to determine whether companies violated antitrust laws.`\
-https://nytimes.com/2026/02/12/technology/gail-slater-antittrust-justice-department.html
 
