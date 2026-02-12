@@ -1,3 +1,19 @@
+**Five things we can learn about the Giants' PECOTA projections**\
+`PECOTA isn't exactly bullish on the 2026 San Francisco Giants, but the projection system isn't counting them out either.`\
+https://nytimes.com/athletic/7042168/2026/02/12/sf-giants-pecota-projections-analysis/
+
+**Nations League 2026-27 draw: England to play Spain, France face Italy**\
+`England last played Spain in the final of Euro 2024, with Spain winning 2-1 and lifting the trophy for a fourth time.`\
+https://nytimes.com/athletic/7041811/2026/02/12/nations-league-draw-england-spain-france-italy-portugal/
+
+**Talking Cabbage Heads**\
+`Cabbage Parm, cabbage rolls, cabbage stir-fry, cabbage pesto, cabbage soup. It’s cabbage time.`\
+https://nytimes.com/2026/02/12/dining/talking-cabbage-heads.html
+
+**The Docket**\
+`Adam Liptak helps you make sense of legal developments in a turbulent time.`\
+https://nytimes.com/column/the-docket
+
 **K-State coach Tang slams team after 29-point loss: 'Embarrassed for our fans'**\
 `Kansas State students showed up to the game with paper bags on their heads, and Tang said, "I'd wear a paper bag too if I was them."`\
 https://nytimes.com/athletic/7042236/2026/02/12/kansas-state-basketball-jerome-tang-loss-embarrassed/

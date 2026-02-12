@@ -1,3 +1,15 @@
+**Guardians Opening Day roster projection 2.0: Sorting through a crowded infield and outfield**\
+`With most of the players having reported to camp, who has the inside track on an Opening Day roster spot?`\
+https://nytimes.com/athletic/7038849/2026/02/12/guardians-opening-day-roster-projection-2-0-sorting-through-a-crowded-infield-and-outfield/
+
+**Bottega Veneta’s New Creative Director Puts Her Spin on a Classic Bag**\
+`For her debut, Louise Trotter reinterprets a signature woven leather accessory.`\
+https://nytimes.com/2026/02/12/t-magazine/bottega-veneta-bag-louise-trotter.html
+
+** It’s a Date: 7 NYC Destinations to Fall in Love**\
+`FX’s “Love Story: John F.`\
+https://nytimes.com/paidpost/fx-love-story/-its-a-date-7-nyc-destinations-to-fall-in-love.html
+
 **Five things we can learn about the Giants' PECOTA projections**\
 `PECOTA isn't exactly bullish on the 2026 San Francisco Giants, but the projection system isn't counting them out either.`\
 https://nytimes.com/athletic/7042168/2026/02/12/sf-giants-pecota-projections-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/12/us/judge-blocks-kelly-punishment-hegseth.html
 **Dodgers and Kiké Hernández run it back again, agree to 1-year, $4.5 million deal**\
 `The Dodgers have acquired Kiké Hernández via free agency or trade five previous times. `\
 https://nytimes.com/athletic/6943799/2026/02/12/mlb-free-agency-kike-hernandez-signs-dodgers/
-
-**Pam Bondi’s Performance Before Congress**\
-`Readers react to the attorney general’s appearance before the House Judiciary Committee. Also: “Freedom from fear”; the Melania Trump movie; humor that’s not funny.`\
-https://nytimes.com/2026/02/12/opinion/pam-bondi-congress.html
-
-**Canada begins quest for gold with decisive win over Czechia in Olympic men's hockey**\
-`Canada routed the Czech Republic on Thursday in its Olympic opener. The Canadians face Switzerland on Friday.`\
-https://nytimes.com/athletic/7041938/2026/02/12/olympic-mens-hockey-canada-czechia-results/
-
-**Man Is Fatally Shot at 7-Eleven Near Times Square**\
-`The man was shot in the neck inside the convenience store on Thursday morning, the police said. The 7-Eleven is about two blocks from the Port Authority Bus Terminal.`\
-https://nytimes.com/2026/02/12/nyregion/midtown-7-eleven-shooting.html
 
