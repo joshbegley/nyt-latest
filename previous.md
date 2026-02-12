@@ -1,3 +1,7 @@
+**Breezy Johnson adds engagement to gold medal in a memorable Olympic week**\
+`The downhill gold medal champion on Sunday, Johnson followed it up by getting engaged following Thursday's super-G.`\
+https://nytimes.com/athletic/7041348/2026/02/12/breezy-johnson-engaged-winter-olympics-downhill-gold/
+
 **TAFC: From Europe to four head coaches in five months. Plus: What now for Tottenham?**\
 `Today in TAFC: Forest sack Dyche and eye Pereira. Plus: What now for Spurs after Pochettino sticks with USMNT for the World Cup?`\
 https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-pochettino/
@@ -11,7 +15,7 @@ https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-th
 https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
 
 **Tuchel's new England contract makes sense but it's still a risk**\
-`The decision to extend Tuchel's tenure until 2028 quashes immediate speculation but he still needs a good World Cup`\
+`The decision to extend the head coach's tenure until 2028 quashes immediate club-job speculation but he still needs a good World Cup`\
 https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
 
 **How a blue-chip Utah signing day flip ended up at Michigan a month later**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039448/2026/02/12/rangers-liam-greentree-artemi-pa
 **College baseball NCAA Tournament projections: SEC, ACC dominate at-large pool**\
 `Last year, the SEC set a record by sending 13 teams to Regionals. Could that record fall in 2026?`\
 https://nytimes.com/athletic/7018152/2026/02/12/college-baseball-ncaa-tournament-projections-2026/
-
-**WNBA mock draft: Lauren Betts leads five first-round picks from UCLA**\
-`Who will go No. 1 in the 2026 WNBA draft? `\
-https://nytimes.com/athletic/7039088/2026/02/12/wnba-mock-draft-2026-ucla-lauren-betts/
 

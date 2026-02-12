@@ -1,3 +1,11 @@
+**Breezy Johnson adds engagement to gold medal in a memorable Olympic week**\
+`The downhill gold medal champion on Sunday, Johnson followed it up by getting engaged following Thursday's super-G.`\
+https://nytimes.com/athletic/7041348/2026/02/12/breezy-johnson-engaged-winter-olympics-downhill-gold/
+
+**Tuchel's new England contract makes sense but it's still a risk**\
+`The decision to extend the head coach's tenure until 2028 quashes immediate club-job speculation but he still needs a good World Cup`\
+https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
+
 **TAFC: From Europe to four head coaches in five months. Plus: What now for Tottenham?**\
 `Today in TAFC: Forest sack Dyche and eye Pereira. Plus: What now for Spurs after Pochettino sticks with USMNT for the World Cup?`\
 https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-pochettino/
