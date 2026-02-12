@@ -1,3 +1,7 @@
+**Norgaard, Arsenal's selfless 'spare man' and his important role in Arteta's squad**\
+`The Dane has played just 22 minutes in the league this season, but his professionalism and dedication has helped set standards`\
+https://nytimes.com/athletic/7038284/2026/02/12/christian-norgaard-arsenal-squad/
+
 **35 shots and a late-night sacking: Sean Dyche's final game in charge of Nottingham Forest**\
 `Forest were unfortunate not to score against Wolves – but it was not just this result that decided the manager's fate`\
 https://nytimes.com/athletic/7040670/2026/02/12/forest-wolves-dyche-sacked-35-shots/
