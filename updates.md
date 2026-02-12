@@ -1,3 +1,7 @@
+**Neuer rules out reversing Germany retirement for the World Cup**\
+`The 39-year-old ended his international career following the 2024 European Championship after 124 appearances and a World Cup win in 2014.`\
+https://nytimes.com/athletic/7041136/2026/02/12/manuel-neuer-germany-world-cup-retirement/
+
 **The Pulse: The NBA’s yucky tanking problem**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7038703/2026/02/12/nba-tank-jazz-wizards-the-pulse/

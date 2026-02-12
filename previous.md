@@ -1,3 +1,7 @@
+**Neuer rules out reversing Germany retirement for the World Cup**\
+`The 39-year-old ended his international career following the 2024 European Championship after 124 appearances and a World Cup win in 2014.`\
+https://nytimes.com/athletic/7041136/2026/02/12/manuel-neuer-germany-world-cup-retirement/
+
 **The Pulse: The NBA’s yucky tanking problem**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7038703/2026/02/12/nba-tank-jazz-wizards-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/podcasts/the-headlines/el-paso-anti-drone-laser-p
 **What to know about the 2026 Pebble Beach Pro-Am**\
 `The PGA's scenic first signature event runs Thursday through Sunday. We got you covered with how to watch and bet on it.`\
 https://nytimes.com/athletic/7037353/2026/02/12/pebble-beach-pro-am-odds-how-to-watch-2026/
-
-**Which men's college basketball coaches are on the hot seat? Adrian Autry, Bobby Hurley and more**\
-`Fifteen high-major college basketball jobs opened last offseason, and this year could be busy, too.`\
-https://nytimes.com/athletic/7040257/2026/02/12/college-basketball-hot-seat-coaches-autry-hurley-moser/
 
