@@ -1,3 +1,7 @@
+**A trip to the Scottish factory where Olympic (and all other) curling stones are made**\
+`Every stone thrown at the Olympic curling tournaments comes from the same place — the remote island of Ailsa Craig, off the Scottish coast.`\
+https://nytimes.com/athletic/6961880/2026/02/12/winter-olympics-curling-stones-scotland-island-factory/
+
 **Crystal Palace's season was back on track – then came seven minutes of madness**\
 `Just as it looked like they had turned a corner, Oliver Glasner's side were reminded this is a season where little has gone right`\
 https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-glasner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040446/2026/02/12/wolves-squad-depth-edwards-summe
 **Liverpool haven't given up hope on Konate signing new deal – again he proved why he's worth it**\
 `Konate is popular in the dressing room and the kind of personality you want to keep around. He's put a torrid spell firmly behind him`\
 https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-contract-future/
-
-**Why doesn't La Masia produce strikers for Barcelona?**\
-`The Catalan club's celebrated youth academy turns out scores of players for their first team, so why don't centre-forwards break through?`\
-https://nytimes.com/athletic/7038697/2026/02/12/barcelona-la-masia-strikers-lewandowski-yamal/
 
