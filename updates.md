@@ -1,3 +1,7 @@
+**Close-knit Pistons soar into the All-Star break with East's best record**\
+`After beating Toronto on the road Wednesday, Detroit sits at 40-13 — the franchise's second-best record at the All-Star break.`\
+https://nytimes.com/athletic/7041181/2026/02/12/pistons-all-star-break-best-record-east/
+
 **Building Cities from Scratch**\
 `We explore one possibility for relieving the U.S. housing crisis.`\
 https://nytimes.com/2026/02/12/briefing/building-cities-from-scratch.html

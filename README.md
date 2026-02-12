@@ -1,40 +1,40 @@
-**Close-knit Pistons soar into the All-Star break with East's best record**\
-`After beating Toronto on the road Wednesday, Detroit sits at 40-13 — the franchise's second-best record at the All-Star break.`\
-https://nytimes.com/athletic/7041181/2026/02/12/pistons-all-star-break-best-record-east/
+**Who is David Jimenez, the Real Madrid right-back who started ahead of Carvajal and Trent?**\
+`He was a surprise starter against Valencia, but the 21-year-old Jimenez impressed with his composed performance at Mestalla`\
+https://nytimes.com/athletic/7041155/2026/02/12/real-madrid-david-jimenez-trent-carvajal/
 
-**Building Cities from Scratch**\
-`We explore one possibility for relieving the U.S. housing crisis.`\
-https://nytimes.com/2026/02/12/briefing/building-cities-from-scratch.html
+**Brazilian club Guarani hold half-time 'funeral' for relegated rivals Ponte Preta**\
+`Guarani fans' celebrations during the interval of the game were recorded and have gone viral on social media.`\
+https://nytimes.com/athletic/7041139/2026/02/12/brazil-team-funeral-relegation-guarani-ponte-preta/
 
-**Neuer rules out reversing Germany retirement for the World Cup**\
-`The 39-year-old ended his international career following the 2024 European Championship after 124 appearances and a World Cup win in 2014.`\
-https://nytimes.com/athletic/7041136/2026/02/12/manuel-neuer-germany-world-cup-retirement/
+**What do the Rangers have in prospect Liam Greentree?**\
+`Though they were in a tough spot with Panarin, the Rangers did well to get Greentree from Los Angeles. Here's what he brings to the table.`\
+https://nytimes.com/athletic/7039448/2026/02/12/rangers-liam-greentree-artemi-panarin-trade/
 
-**The Pulse: The NBA’s yucky tanking problem**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7038703/2026/02/12/nba-tank-jazz-wizards-the-pulse/
+**College baseball NCAA Tournament projections: SEC, ACC dominate at-large pool**\
+`Last year, the SEC set a record by sending 13 teams to Regionals. Could that record fall in 2026?`\
+https://nytimes.com/athletic/7018152/2026/02/12/college-baseball-ncaa-tournament-projections-2026/
 
-**A message to Sir Jim Ratcliffe: You are a custodian of Man Utd, your words matter**\
-`Ratcliffe is the man in charge of a club that is beloved by millions around the world. With that comes responsibility`\
-https://nytimes.com/athletic/7041105/2026/02/12/sir-jim-ratcliffe-immigrants-manchester-united/
+**WNBA mock draft: Lauren Betts leads five first-round picks from UCLA**\
+`Who will go No. 1 in the 2026 WNBA draft? `\
+https://nytimes.com/athletic/7039088/2026/02/12/wnba-mock-draft-2026-ucla-lauren-betts/
 
-**Forest have plenty to be grateful to Marinakis for - but this mess is on him**\
-`Forest's owner has brought them a long way since taking over, but four managers in one season tells its own story of missteps.`\
-https://nytimes.com/athletic/7040959/2026/02/12/nottingham-forest-evangelos-marinakis-four-managers/
+**NFL Draft rankings roundtable: What stands out on Dane Brugler's updated top 100?**\
+`Were there any surprises in the top 10? What does the updated board tell us about this rather uncertain QB class? `\
+https://nytimes.com/athletic/7039316/2026/02/12/nfl-draft-2026-rankings-top-100-reactions/
 
-**Bears mock draft 1.0: Defense is clear priority, starting with front 7**\
-`In our first look at some options for the Bears in the 2026 draft, the focus is on the defensive line with the first two rounds.`\
-https://nytimes.com/athletic/7039577/2026/02/12/bears-mock-draft-kayden-mcdonald/
+**Fred Warner's guarantee caps off busy Super Bowl week for 49ers players, coach**\
+`Warner made a big prediction, George Kittle hinted at a possible Deebo Samuel return and the 49ers are going to Australia.`\
+https://nytimes.com/athletic/7040010/2026/02/12/fred-warner-49ers-super-bowl-guarantee/
 
-**Chiefs NFL mock draft 1.0: A first-round pivot — then a local pick in Round 2**\
-`Yes, the Chiefs should target defensive line or receiver in the first round ... unless the draft falls like this.`\
-https://nytimes.com/athletic/7039095/2026/02/12/chiefs-mock-draft-francis-mauigoa/
+**How to watch the U.S. men's hockey team at the 2026 Winter Olympics**\
+`The United States takes aim at its first gold medal since 1980 and its third ever in men's hockey.`\
+https://nytimes.com/athletic/7002676/2026/02/12/usa-mens-hockey-2026-winter-olympics-schedule-games/
 
-**How does a NASCAR team dazzle sponsors at Daytona? 'Magic, gritty creativity'**\
-`Powered by the spirit of "Chopped" and a Wyndham timeshare kitchen, Legacy Motor Club elevated its VIP catering performance.`\
-https://nytimes.com/athletic/7034416/2026/02/12/legacy-motor-club-daytona-500-jimmie-johnson/
+**College hoops' last undefeated team still has something to prove, but feels 'zero pressure'**\
+`Despite the best start in program history, Miami might have to win the MAC tournament and secure the automatic berth to make the NCAAs.`\
+https://nytimes.com/athletic/7039671/2026/02/12/ncaa-tournament-mens-basketball-miami-of-ohio/
 
-**One-on-one with HOFer Luke Kuechly: Drew Brees, Cam Newton's candidacy and nerves**\
-`The former Panthers linebacker discusses the case for Newton in the Hall of Fame and what it was like going against Brees.`\
-https://nytimes.com/athletic/7040014/2026/02/12/luke-kuechly-hall-of-fame-drew-brees-cam-newton/
+**Italy's Federica Brignone wins Olympic super-G gold, 10 months after bad injury**\
+`The Italian star completed a remarkable comeback to the sport, winning gold in the super-G on Thursday 10 months after a brutal injury.`\
+https://nytimes.com/athletic/7041178/2026/02/12/winter-olympics-federica-brignone-gold-super-g-alpine-skiing-italy/
 

@@ -1,3 +1,7 @@
+**Close-knit Pistons soar into the All-Star break with East's best record**\
+`After beating Toronto on the road Wednesday, Detroit sits at 40-13 — the franchise's second-best record at the All-Star break.`\
+https://nytimes.com/athletic/7041181/2026/02/12/pistons-all-star-break-best-record-east/
+
 **Building Cities from Scratch**\
 `We explore one possibility for relieving the U.S. housing crisis.`\
 https://nytimes.com/2026/02/12/briefing/building-cities-from-scratch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7034416/2026/02/12/legacy-motor-club-daytona-500-ji
 **One-on-one with HOFer Luke Kuechly: Drew Brees, Cam Newton's candidacy and nerves**\
 `The former Panthers linebacker discusses the case for Newton in the Hall of Fame and what it was like going against Brees.`\
 https://nytimes.com/athletic/7040014/2026/02/12/luke-kuechly-hall-of-fame-drew-brees-cam-newton/
-
-**Anti-Drone Laser Is Said to Have Caused El Paso Airport Chaos, and Bondi Refuses to Apologize to Epstein Victims**\
-`Plus, how the ultra-rich are changing the travel industry.`\
-https://nytimes.com/2026/02/12/podcasts/the-headlines/el-paso-anti-drone-laser-pam-bondi-epstein.html
 
