@@ -1,3 +1,7 @@
+**The soccer analytics experts aiming to transform a club in Portugal's fourth division**\
+`Sport Uniao Sintrense have never featured in their nation's top-flight before, but four men are aiming to change that`\
+https://nytimes.com/athletic/7018483/2026/02/12/sintrense-data-revolution-analytics-portugal-kruger-rb-leipzig/
+
 **Olympic Figure Skaters Are on Thin Ice Over Copyright Rules**\
 `Several athletes have found themselves caught up in controversies over musical choices before and during one of the biggest competitions of their careers.`\
 https://nytimes.com/2026/02/12/world/europe/winter-olympics-figure-skating-music-copyright.html
