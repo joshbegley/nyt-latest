@@ -1,3 +1,11 @@
+**Top prospect Carson Benge giving Mets something to think about**\
+`Former All-Star Matt Holliday expects Benge to thrive in New York: "He has the right mentality and the right makeup."`\
+https://nytimes.com/athletic/7042587/2026/02/12/mets-prospect-carson-benge-spring-training/
+
+**Canada's dazzling forward depth on display in Olympic opener: 'All 4 lines were humming'**\
+`Canada dominated a very good Czech team Thursday to open its Olympic tournament, and it felt like a continuation of what began at 4 Nations.`\
+https://nytimes.com/athletic/7042768/2026/02/12/olympics-mens-hockey-canada-scoring-depth/
+
 **Heraskevych, Ukrainian DQed over skeleton helmet, files appeal to CAS**\
 `Heraskevych is asking to be immediately reinstated or given the chance to compete in provisional runs until the court rules.`\
 https://nytimes.com/athletic/7042600/2026/02/12/olympics-vladyslav-heraskevych-ukrainian-helmet-skeleton-appeal/

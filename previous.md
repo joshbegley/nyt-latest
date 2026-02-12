@@ -1,3 +1,11 @@
+**Top prospect Carson Benge giving Mets something to think about**\
+`Former All-Star Matt Holliday expects Benge to thrive in New York: "He has the right mentality and the right makeup."`\
+https://nytimes.com/athletic/7042587/2026/02/12/mets-prospect-carson-benge-spring-training/
+
+**Canada's dazzling forward depth on display in Olympic opener: 'All 4 lines were humming'**\
+`Canada dominated a very good Czech team Thursday to open its Olympic tournament, and it felt like a continuation of what began at 4 Nations.`\
+https://nytimes.com/athletic/7042768/2026/02/12/olympics-mens-hockey-canada-scoring-depth/
+
 **Heraskevych, Ukrainian DQed over skeleton helmet, files appeal to CAS**\
 `Heraskevych is asking to be immediately reinstated or given the chance to compete in provisional runs until the court rules.`\
 https://nytimes.com/athletic/7042600/2026/02/12/olympics-vladyslav-heraskevych-ukrainian-helmet-skeleton-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/12/obituaries/clifford-brown-overlooked.html
 **Fantasy basketball hot topic of the week: Need-to-knows from the NBA's likely tanking teams**\
 `Stan Son identifies the players who could benefit most on the NBA teams likely to tank the rest of the season.`\
 https://nytimes.com/athletic/7042461/2026/02/12/fantasy-basketball-hot-topic-tanking/
-
-**How Did Trump Become Morally Acceptable?**\
-`In his final appearance on The Conversation, the Opinion columnist David Brooks says goodbye to The Times and reflects on how “moral ruination” in America paved the way for Trump.`\
-https://nytimes.com/video/opinion/100000010702582/how-did-trump-become-morally-acceptable.html
-
-**In Munich, Europe’s Leaders Wonder if They Can Ever Trust America Again**\
-`Officials gather on Friday for Europe’s biggest annual security summit, where a speech by Vice President JD Vance last year started an unraveling of trans-Atlantic relations.`\
-https://nytimes.com/2026/02/12/world/europe/munich-conference-europe-trump-vance-trust-rubio.html
 
