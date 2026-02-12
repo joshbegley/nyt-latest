@@ -1,3 +1,7 @@
+**Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
+`Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
+https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
+
 **Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
 `Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
 https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-mo
 **James Van Der Beek: A Life in Pictures**\
 `The actor was best known for his early roles in “Dawson’s Creek” and “Varsity Blues.”`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-photos.html
-
-**Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
-`Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
-https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/
 
