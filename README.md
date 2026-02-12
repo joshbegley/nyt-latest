@@ -1,3 +1,11 @@
+**Search for Nancy Guthrie enters a 12th day.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nancy-guthrie-enters-a-12th-day
+
+**Cavaliers change court due to safety concerns after Luka Dončić's injury**\
+`After Luka Dončić injured his ankle falling off of the Cavaliers' raised court, the team and NBA said they would address the issue.`\
+https://nytimes.com/athletic/7042335/2026/02/12/nba-cleveland-cavs-luka-doncic-court-fix/
+
 **Trump’s Actions Test the Fragile World of Air Travel**\
 `Last minute announcements and abrupt changes by the Trump administration have caused confusion in an already strained U.S. aviation system.`\
 https://nytimes.com/2026/02/12/business/air-travel-trump-el-paso.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7042389/2026/02/12/mainoo-manchester-united-england
 **The Meals Chefs Make When They’re Feeling Sick**\
 `Adaptable recipes for dishes that offer comfort and nourishment.`\
 https://nytimes.com/2026/02/12/t-magazine/sick-comfort-recipes.html
-
-**Read the document**\
-`A federal judge temporarily blocked Defense Secretary Pete Hegseth from punishing Senator Mark Kelly, Democrat of Arizona, for participating in a video that warned active-duty service members not to follow illegal orders.`\
-https://nytimes.com/interactive/2026/02/12/us/politics/kellyruling021226.html
-
-**As U.S. Bombs Somalia, Israel Shakes Status Quo on Horn of Africa**\
-`The region has become a critical theater for global rivalries amid Israel’s recognition of breakaway Somaliland and Washington’s counterterrorism efforts.`\
-https://nytimes.com/2026/02/12/world/africa/israel-somaliland-mideast-trump.html
 
