@@ -1,3 +1,7 @@
+**Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
+`The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html
+
 **Knicks sign Jeremy Sochan to minimum deal for remainder of season: Sources**\
 `Sochan will fill New York's 15th roster spot after he asked for a buyout and the Spurs waived him on Wednesday.`\
 https://nytimes.com/athletic/7042966/2026/02/12/knicks-jeremy-sochan-spurs-deal-minimum/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010708249/is-ai-coming-for-your-job.html
 **Top Republican Ends Bid for Arizona Governor, Showing MAGA’s Power**\
 `Karrin Taylor Robson, a wealthy businesswoman, dropped out after trailing in polls to Representative Andy Biggs, who is more aligned with supporters of President Trump.`\
 https://nytimes.com/2026/02/12/us/politics/karrin-taylor-robson-andy-biggs-arizona-governor.html
-
-**Trump Rejects E.P.A.’s Ability to Regulate Greenhouse Gases**\
-`The Environmental Protection Agency repealed the bedrock scientific finding that greenhouse gases threaten human life and well being. This ends the federal government’s legal authority to control the pollution that is dangerously heating the planet.`\
-https://nytimes.com/video/us/politics/100000010708250/trump-epa-environment-climate.html
 

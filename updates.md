@@ -1,3 +1,7 @@
+**Knicks sign Jeremy Sochan to minimum deal for remainder of season: Sources**\
+`Sochan will fill New York's 15th roster spot after he asked for a buyout and the Spurs waived him on Wednesday.`\
+https://nytimes.com/athletic/7042966/2026/02/12/knicks-jeremy-sochan-spurs-deal-minimum/
+
 **A Love Letter to the Grand Romantic Gesture**\
 `In honor of Valentine’s Day, our readers shared moments when they felt truly swept off their feet.`\
 https://nytimes.com/interactive/2026/02/12/well/romantic-gestures-valentines-day.html
