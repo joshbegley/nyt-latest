@@ -1,3 +1,7 @@
+**Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
+`Governor Tim Walz said`\
+https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
+
 **‘Cold Storage’ Review: It’s a Gross Green Threat. Who You Gonna Call?**\
 `In this goofy B-movie throwback, it’s Liam Neeson to the rescue as a weary, tough-talking bioterror operative.`\
 https://nytimes.com/2026/02/12/movies/cold-storage-review-liam-neeson.html
@@ -6,8 +10,8 @@ https://nytimes.com/2026/02/12/movies/cold-storage-review-liam-neeson.html
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7042099/2026/02/12/vladyslav-heraskevych-skeleton-olympics-games-briefing/
 
-**Luisangel Acuña isn't a switch hitter but White Sox GM says he loves him anyway**\
-`Getz has a reputation for making news with his comments. This time, his overstatement of his new player's skills went viral.`\
+**Luisangel Acuña isn't a switch hitter, but White Sox GM says he loves him anyway**\
+`GM Chris Getz has a reputation for making news with his comments. This time, his overstatement of his new player's skills went viral.`\
 https://nytimes.com/athletic/7042027/2026/02/12/white-sox-luisangel-acuna-gm-switch-hitter/
 
 **‘Kramer/Fauci’ Revisits a Sparring Match During the AIDS Crisis**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042044/2026/02/12/dodgers-max-muncy-extension-2027
 **Helmuth Rilling, Who Recorded Huge Swaths of Bach, Dies at 92**\
 `He was the first to record all of J.S. Bach’s nearly 200 sacred cantatas, a project that stood out not only for its range but also for its steadfast style.`\
 https://nytimes.com/2026/02/12/arts/music/helmuth-rilling-dead.html
-
-**Former Steeler Joey Porter Sr. criticizes Ben Roethlisberger: 'Not a good teammate'**\
-`Porter criticized Roethlisberger and James Harrison for their criticism of Mike Tomlin last season.`\
-https://nytimes.com/athletic/7041836/2026/02/12/joey-porter-sr-ben-roethlisberger-james-harrison-pittsburgh-steelers/
 
