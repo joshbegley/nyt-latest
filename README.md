@@ -1,3 +1,7 @@
+**Montana has a player entering his 9th season of football. Will it be his last?**\
+`A host of injuries have tested the patience of the 25-year-old married father of two, but he keeps coming back to the sport he loves.`\
+https://nytimes.com/athletic/7040551/2026/02/12/solomon-tuliaupupu-montana-ninth-season/
+
 **Two athletes finished with the same score. Only one won gold.**\
 `Cooper Woods and Mikaël Kingsbury both finished with 83.71 points but the gold medal was decided by a tiebreak.`\
 https://nytimes.com/athletic/7041204/2026/02/12/mikael-kingsbury-cooper-woods-mens-moguls-2026-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-po
 **Should Schools Limit the Number of A’s That Teachers Can Give?**\
 `Harvard is proposing to curb grade inflation by cutting back on how many A grades its professors can award. What do you think of this plan?`\
 https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-that-teachers-can-give.html
-
-**Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
-`A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
-https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
 
