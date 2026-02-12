@@ -1,3 +1,7 @@
+**Montana has a player entering his 9th season of football. Will it be his last?**\
+`A host of injuries have tested the patience of the 25-year-old married father of two, but he keeps coming back to the sport he loves.`\
+https://nytimes.com/athletic/7040551/2026/02/12/solomon-tuliaupupu-montana-ninth-season/
+
 **Two athletes finished with the same score. Only one won gold.**\
 `Cooper Woods and Mikaël Kingsbury both finished with 83.71 points but the gold medal was decided by a tiebreak.`\
 https://nytimes.com/athletic/7041204/2026/02/12/mikael-kingsbury-cooper-woods-mens-moguls-2026-winter-olympics/
