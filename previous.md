@@ -1,4 +1,8 @@
-**The Orlando Magic are underachieving. Will they recover in time to avoid the East Play-In?**\
+**35 shots and a late-night sacking: Sean Dyche's final game in charge of Nottingham Forest**\
+`Forest were unfortunate not to score against Wolves – but it was not just this result that decided the manager's fate`\
+https://nytimes.com/athletic/7040670/2026/02/12/forest-wolves-dyche-sacked-35-shots/
+
+**The Magic are underachieving. Will they recover in time?**\
 `The Magic will enter the All-Star break with a winning record, but they have lost their mojo. Wednesday offered more proof of that.`\
 https://nytimes.com/athletic/7040858/2026/02/12/orlando-magic-struggling-paolo-banchero-bucks/
 
@@ -18,7 +22,7 @@ https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-fi
 `Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
 https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
 
-**Liverpool haven't given up hope on Konate signing new deal — again he proved why he's worth it**\
+**Liverpool haven't given up hope on Konate signing new deal – again he proved why he's worth it**\
 `Konate is popular in the dressing room and the kind of personality you want to keep around. He's put a torrid spell firmly behind him`\
 https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-contract-future/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038369/2026/02/12/hurzeler-brighton-villa/
 **Aston Villa are grinding out wins again - just like when they last reached the Champions League**\
 `It is a skill that Villa, battling injuries, weariness and a jagged nature in performance, can churn out points.`\
 https://nytimes.com/athletic/7039930/2026/02/12/aston-villa-are-grinding-out-wins-again-just-like-when-they-last-reached-the-champions-league/
-
-**Norgaard, Arsenal's selfless 'spare man' and his important role in Arteta's squad**\
-`The Dane has played just 22 minutes in the league this season, but his professionalism and dedication has helped set standards`\
-https://nytimes.com/athletic/7038284/2026/02/12/christian-norgaard-arsenal-squad/
 
