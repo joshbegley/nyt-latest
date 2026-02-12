@@ -1,3 +1,19 @@
+**Fantasy basketball hot topic of the week: Need-to-knows from the NBA's likely tanking teams**\
+`Stan Son identifies the players who could benefit most on the NBA teams likely to tank the rest of the season.`\
+https://nytimes.com/athletic/7042461/2026/02/12/fantasy-basketball-hot-topic-tanking/
+
+**How Did Trump Become Morally Acceptable?**\
+`In his final appearance on The Conversation, the Opinion columnist David Brooks says goodbye to The Times and reflects on how “moral ruination” in America paved the way for Trump.`\
+https://nytimes.com/video/opinion/100000010702582/how-did-trump-become-morally-acceptable.html
+
+**In Munich, Europe’s Leaders Wonder if They Can Ever Trust America Again**\
+`Officials gather on Friday for Europe’s biggest annual security summit, where a speech by Vice President JD Vance last year started an unraveling of trans-Atlantic relations.`\
+https://nytimes.com/2026/02/12/world/europe/munich-conference-europe-trump-vance-trust-rubio.html
+
+**Chloe Kim, once a teenage phenom, loses to a new one.**\
+`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe.`\
+https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
+
 **Chloe Kim, once a teenage phenom, loses to a new one.**\
 `Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe. `\
 https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
