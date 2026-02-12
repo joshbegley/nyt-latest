@@ -1,3 +1,7 @@
+**How to watch Texas A&M vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7041902/2026/02/12/texas-a-m-vs-kentucky-stream-how-to-watch-feb-12/
+
 **Canucks trade targets: 7 prospects that Vancouver could add to fuel the rebuild**\
 `Let's take a look at a handful of players outside of the NHL that Vancouver could consider attempting to acquire.`\
 https://nytimes.com/athletic/7041046/2026/02/12/canucks-trade-targets-3/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7041893/2026/02/12/florida-vs-oklahoma-stream-how-t
 `Activists and officials plan to re-raise the flag on Thursday, setting up a defiant response to the Trump administration’s assault on diversity initiatives.`\
 https://nytimes.com/2026/02/12/nyregion/stonewall-flag-protest-nyc.html
 
-**Gary Bettman: NHL has no plans to reintegrate Russia ahead of 2028 World Cup**\
+**Gary Bettman: NHL has no current plans to reintegrate Russia ahead of 2028 World Cup**\
 `Eager to avoid taking a political stand, the NHL will defer to the International Olympic Committee on Russia.`\
 https://nytimes.com/athletic/7041697/2026/02/12/gary-bettman-nhl-russia-world-cup-hockey/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041869/2026/02/12/missouri-vs-tennessee-stream-how
 **How to watch Wake Forest vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wake Forest Demon Deacons play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7041864/2026/02/12/wake-forest-vs-louisville-stream-how-to-watch-feb-12/
-
-**How to watch SMU vs. North Carolina women's basketball: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7041862/2026/02/12/smu-vs-north-carolina-stream-how-to-watch-feb-12/
 
