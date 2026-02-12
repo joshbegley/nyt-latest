@@ -1,3 +1,7 @@
+**Overlooked No More: Clifford Brown, Trumpeter Whose Brief Life Left a Lasting Mark**\
+`He was one of the most talked-about jazz musicians in the 1950s. After he died in a car accident at 25, his influence grew.`\
+https://nytimes.com/2026/02/12/obituaries/clifford-brown-overlooked.html
+
 **Fantasy basketball hot topic of the week: Need-to-knows from the NBA's likely tanking teams**\
 `Stan Son identifies the players who could benefit most on the NBA teams likely to tank the rest of the season.`\
 https://nytimes.com/athletic/7042461/2026/02/12/fantasy-basketball-hot-topic-tanking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-n
 **Guard Troops Fully Withdraw From Chicago, Portland and Los Angeles**\
 `President Trump initially deployed the troops in those cities to support law enforcement efforts to tamp down protests against immigration raids and protecting buildings.`\
 https://nytimes.com/2026/02/12/us/national-guard-chicago-portland-los-angeles.html
-
-**How to watch Trail Blazers vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042732/2026/02/12/trail-blazers-vs-jazz-stream-how-to-watch-feb-12/
 
