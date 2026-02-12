@@ -1,3 +1,5 @@
+
+
 **The High-Stakes Fight Over Masked Federal Agents**\
 `The debate over whether federal agents should be allowed to cover their faces with masks has become a flashpoint as the government heads for a partial shutdown.`\
 https://nytimes.com/2026/02/12/us/politics/congress-trump-ice-masked-agents.html
