@@ -1,3 +1,15 @@
+**Students Won a Revolution in Bangladesh. They Want So Much More.**\
+`At the vanguard of Gen Z movements, protesters in Bangladesh ousted the prime minister in 2024. They now face the hard reality of winning change through elections.`\
+https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
+
+**Orioles improve upon rotation, ink Chris Bassitt to one-year deal: Source**\
+`A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
+
+**How Trump Sees the World: It’s Personal**\
+`Historical relationships play little if any role in the second-term worldview of the president, who holds himself as the constant center of global events.`\
+https://nytimes.com/interactive/2026/02/11/us/trump-foreign-policy-world-quotes.html
+
 **Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
 `Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
 https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-park
 **Dyche sacked by Forest after four months in charge**\
 `It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
 https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
-
-**Meet Caleb Durbin: How new Red Sox infielder fits and his connection to Dustin Pedroia**\
-`Durbin, a right-handed hitter, balances the lineup and could hit in the six-hole after lefty hitter Wilyer Abreu, manager Alex Cora said.`\
-https://nytimes.com/athletic/7039856/2026/02/11/caleb-durbin-red-sox-spring-training-mlb/
-
-**Kyle Larson signs 5-year extension with Hendrick Motorsports**\
-`The move solidifies one of the elite driver-crew chief pairings in the garage.`\
-https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-motorsports/
-
-**James Van Der Beek: A Life in Pictures**\
-`The actor was best known for his early roles in “Dawson’s Creek” and “Varsity Blues.”`\
-https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-photos.html
 
