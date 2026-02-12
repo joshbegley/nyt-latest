@@ -1,3 +1,7 @@
+**C.I.A. Video Appeals to Potential Spies in China’s Military**\
+`The agency is seeking Chinese officials who are frustrated with corruption in the People’s Liberation Army.`\
+https://nytimes.com/2026/02/12/us/politics/cia-china-spies.html
+
 **Trump Repeals the Government’s Power to Regulate Climate**\
 `Also, an end to the surge of immigration agents in Minnesota. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/12/briefing/trump-climate-regulations-tv-for-pets.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/12/well/romantic-gestures-valentines-day
 **‘We Don’t Know if the Models Are Conscious’**\
 `Have A.I. models already reached consciousness? Dario Amodei, the chief executive of Anthropic, is open to that possibility. He hopes for a relationship between humans and A.I. where “they want the best for you” but you still have your freedom and your will.`\
 https://nytimes.com/video/opinion/100000010695663/we-dont-know-if-the-models-are-conscious.html
-
-**Greg Brown, Guitarist Who Wrote Cake’s Biggest Hit, Dies at 56**\
-`His song “The Distance,” released in 1996, became an anthem for the disaffected members of Generation X.`\
-https://nytimes.com/2026/02/12/arts/music/greg-brown-dead.html
 
