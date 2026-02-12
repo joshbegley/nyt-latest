@@ -31,7 +31,7 @@ https://nytimes.com/2026/02/11/theater/other-place-review-zeldin-menzies-darcy.h
 https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
 
 **Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
-`A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+`A one-time All-Star, Chris Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
 https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
 
 **How Trump Sees the World: It’s Personal**\

@@ -1,3 +1,7 @@
+**Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
+`A one-time All-Star, Chris Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
+
 **Why Nancy Guthrie’s Disappearance Is Breaking Through the Noise**\
 `A vulnerable victim, an unknown perpetrator and a recognizable celebrity are all factors in a case that has captivated the public.`\
 https://nytimes.com/2026/02/11/style/nancy-guthrie-missing-savannah.html
