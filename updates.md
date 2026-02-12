@@ -1,3 +1,11 @@
+**Daniel Cathiard Dies at 81; Turned Bordeaux Estate Into Champion Winery**\
+`He came to winemaking late, after a career in retail, and turned the 18th-century Chateau Smith Haut Lafitte into one of France’s most esteemed vineyards.`\
+https://nytimes.com/2026/02/12/dining/drinks/daniel-cathiard-dead.html
+
+**Josh Morrissey leaves Canada's Olympic hockey opener, won't return: Sources**\
+`Morrissey was unable to finish the opening game of the Olympics.`\
+https://nytimes.com/athletic/7042198/2026/02/12/josh-morrissey-canadas-olympics-injury/
+
 **Minnesota leaders praise residents for standing up to ‘bullies’ during Trump crackdown.**\
 `By Sonia A. Rao`\
 https://nytimes.com/live/2026/02/12/us/trump-news/minnesota-leaders-praise-residents-for-standing-up-to-bullies-during-trump-crackdown
