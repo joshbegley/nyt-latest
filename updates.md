@@ -1,3 +1,7 @@
+**Could Bears, Colts or Giants be next season's Patriots, Seahawks?**\
+`Doug Kezirian spoke to pro bettors and oddsmakers to identify sleeper teams with potential to make some noise in the upcoming NFL season.`\
+https://nytimes.com/athletic/7038808/2026/02/12/super-bowl-nfl-long-shots-odds-chargers-falcons-saints/
+
 **Mass Detention Gets a Lift From the Courts**\
 `A very dangerous ruling in New Orleans.`\
 https://nytimes.com/2026/02/12/opinion/mass-detention-immigration-court-ruling.html
