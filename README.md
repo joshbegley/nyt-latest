@@ -1,3 +1,7 @@
+**Judge Ends Deportation Case for Mexican Father of 3 U.S. Marines**\
+`The arrest of Narciso Barranco, who was detained by federal agents while landscaping outside an IHOP in Southern California last June, garnered national attention.`\
+https://nytimes.com/2026/02/12/us/deportation-case-us-mexico-marines-barranco.html
+
 **Help! JetBlue Mangled My Vintage Louis Vuitton Bag and Won’t Pay Up.**\
 `A treasured 1970s heirloom left Florida intact, and arrived on Long Island ripped apart. Why wouldn’t the airline compensate her for the $600 in repairs?`\
 https://nytimes.com/2026/02/12/travel/jetblue-luggage-damage-repairs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041345/2026/02/12/sec-football-mailbag-submit-ques
 **Court Vision: Where do Kansas, Illinois rank in national title contender tiers?**\
 `Purdue, Texas Tech, Gonzaga and UNC are among teams with glaring vulnerabilities, but they also have great wins.`\
 https://nytimes.com/athletic/7039637/2026/02/12/college-basketball-tiers-selection-sunday/
-
-**Twins spring training guide: 30 thoughts on all 30 pitchers in major-league camp**\
-`Stars like Pablo López and Joe Ryan are joined by top prospects and Triple-A journeymen in competing for 13 spots on the Opening Day roster.`\
-https://nytimes.com/athletic/6999263/2026/02/12/twins-spring-training-roster-pitchers-analysis/
 
