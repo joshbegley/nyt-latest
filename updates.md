@@ -1,3 +1,11 @@
+**Why are Forest going for Pereira and what went wrong under Dyche?**\
+`Forest are moving on to their fourth head coach of the season after sacking Dyche — why did they do it, and what does Vitor Pereira offer?`\
+https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-new-manager/
+
+**Guard Troops Fully Withdraw From Chicago, Portland and Los Angeles**\
+`President Trump initially deployed the troops in those cities to support law enforcement efforts to tamp down protests against immigration raids and protecting buildings.`\
+https://nytimes.com/2026/02/12/us/national-guard-chicago-portland-los-angeles.html
+
 **How to watch Trail Blazers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7042732/2026/02/12/trail-blazers-vs-jazz-stream-how-to-watch-feb-12/

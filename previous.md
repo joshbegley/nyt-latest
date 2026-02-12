@@ -1,3 +1,11 @@
+**Why are Forest going for Pereira and what went wrong under Dyche?**\
+`Forest are moving on to their fourth head coach of the season after sacking Dyche — why did they do it, and what does Vitor Pereira offer?`\
+https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-new-manager/
+
+**Guard Troops Fully Withdraw From Chicago, Portland and Los Angeles**\
+`President Trump initially deployed the troops in those cities to support law enforcement efforts to tamp down protests against immigration raids and protecting buildings.`\
+https://nytimes.com/2026/02/12/us/national-guard-chicago-portland-los-angeles.html
+
 **How to watch Trail Blazers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7042732/2026/02/12/trail-blazers-vs-jazz-stream-how-to-watch-feb-12/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7042705/2026/02/12/arkansas-vs-ole-miss-stream-how-
 **How to watch Michigan vs. Northwestern women's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Northwestern Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7042701/2026/02/12/michigan-vs-northwestern-stream-how-to-watch-feb-12/
-
-**How to watch Texas vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042698/2026/02/12/texas-vs-vanderbilt-stream-how-to-watch-feb-12/
-
-**How the Phillies' $100 million marriage with Nick Castellanos ended in divorce**\
-`When the Phillies ate $20 million on Thursday and released Castellanos, it was an admission that the relationship was irrevocably broken.`\
-https://nytimes.com/athletic/6852239/2026/02/12/nick-castellanos-phillies-divorce/
 
