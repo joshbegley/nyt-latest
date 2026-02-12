@@ -1,3 +1,7 @@
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates
+
 **Awards Watch: Flagg, Knueppel locked in Rookie of the Year showdown**\
 `Odds are one thing, but actual voting is another. And the award for this season's top rookie seems certain to be a close call.`\
 https://nytimes.com/athletic/7032335/2026/02/12/nba-awards-watch-cooper-flagg-kon-knueppel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040477/2026/02/12/pittsburgh-steelers-seven-round-
 **Looking Down at This Winter’s Big Freeze**\
 `For much of North America, the last month has been an icy, frozen trudge. But from the right vantage point, it had a certain beauty.`\
 https://nytimes.com/2026/02/12/weather/ice-great-lakes-satellite-winter.html
-
-**The 'Harvard of umpire schools' closes as changing times favor tech over tradition**\
-`An umpiring tradition born in 1938 reflects on its legacy as robo umps and other advancements usher in a new era. `\
-https://nytimes.com/athletic/7040293/2026/02/12/harry-wendelstedt-umpire-school-closes-mlb-tech/
 
