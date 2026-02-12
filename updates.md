@@ -1,3 +1,7 @@
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates
+
 **Awards Watch: Flagg, Knueppel locked in Rookie of the Year showdown**\
 `Odds are one thing, but actual voting is another. And the award for this season's top rookie seems certain to be a close call.`\
 https://nytimes.com/athletic/7032335/2026/02/12/nba-awards-watch-cooper-flagg-kon-knueppel/
