@@ -1,3 +1,19 @@
+**L.A. Olympics organizers back Casey Wasserman despite outcry over Epstein ties**\
+`Despite calls for Wasserman to resign, the LA28 board sticks with its committee chairman overseeing the 2028 Summer Games in Los Angeles.`\
+https://nytimes.com/athletic/7040906/2026/02/12/casey-wasserman-epstein-los-angeles-olympics/
+
+**Trump and the Death of Shared Morality in America**\
+`In this installment of The Conversation, David Brooks says goodbye to The Times, and offers his parting thoughts.`\
+https://nytimes.com/video/opinion/100000010702568/trump-and-the-death-of-shared-morality-in-america.html
+
+**Bad Bunny and the Art of Protest**\
+`Wesley Morris and Sasha Weiss, discuss Bad Bunny’s Super Bowl LX halftime show and protest art, more broadly.`\
+https://nytimes.com/video/podcasts/100000010702536/bad-bunny-and-the-art-of-protest.html
+
+**Ukrainian Olympian Is Disqualified Over Helmet With Images of War Dead**\
+`Olympic officials had told Vladyslav Heraskevych that the helmet, featuring images of Ukrainian athletes killed in the war with Russia, violated the Games’ ban on political speech.`\
+https://nytimes.com/2026/02/12/world/olympics/ukraine-skeleton-olympics-banned-helmet-heraskevych.html
+
 **Would You Leave Your Bag Unattended at a Starbucks? They Did. For Hours.**\
 `It is common for people to leave their belongings when they step away in South Korea. But some customers created a minor furor by occupying seats at a store without physically being there.`\
 https://nytimes.com/2026/02/12/world/asia/south-korea-cafe-culture.html
