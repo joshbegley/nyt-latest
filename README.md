@@ -1,3 +1,7 @@
+**Crystal Palace's season was back on track – then came seven minutes of madness**\
+`Just as it looked like they had turned a corner, Oliver Glasner's side have been reminded this is a season where little has gone right`\
+https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-glasner/
+
 **Word of the Day: ubiquitous**\
 `This word has appeared in 576 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038697/2026/02/12/barcelona-la-masia-strikers-lewa
 **Another defeat, but Fabian Hurzeler still has support of Brighton players and board**\
 `The bad run goes on for Brighton and the scrutiny on Fabian Hurzeler's position as head coach will intensify. But he is still safe for now`\
 https://nytimes.com/athletic/7038369/2026/02/12/hurzeler-brighton-villa/
-
-**Aston Villa are grinding out wins again - just like when they last reached the Champions League**\
-`It is a skill that Villa, battling injuries, weariness and a jagged nature in performance, can churn out points.`\
-https://nytimes.com/athletic/7039930/2026/02/12/aston-villa-are-grinding-out-wins-again-just-like-when-they-last-reached-the-champions-league/
 

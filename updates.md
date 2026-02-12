@@ -1,3 +1,7 @@
+**Word of the Day: ubiquitous**\
+`This word has appeared in 576 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
+
 **Norgaard, Arsenal's selfless 'spare man' and his important role in Arteta's squad**\
 `The Dane has played just 22 minutes in the league this season, but his professionalism and dedication has helped set standards`\
 https://nytimes.com/athletic/7038284/2026/02/12/christian-norgaard-arsenal-squad/
