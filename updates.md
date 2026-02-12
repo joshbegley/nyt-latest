@@ -1,3 +1,11 @@
+**Kyle Larson signs 5-year extension with Hendrick Motorsports**\
+`The move solidifies one of the elite driver-crew chief pairings in the garage.`\
+https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-motorsports/
+
+**James Van Der Beek: A Life in Pictures**\
+`The actor was best known for his early roles in “Dawson’s Creek” and “Varsity Blues.”`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-photos.html
+
 **Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
 `Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
 https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/

@@ -1,3 +1,11 @@
+**Kyle Larson signs 5-year extension with Hendrick Motorsports**\
+`The move solidifies one of the elite driver-crew chief pairings in the garage.`\
+https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-motorsports/
+
+**James Van Der Beek: A Life in Pictures**\
+`The actor was best known for his early roles in “Dawson’s Creek” and “Varsity Blues.”`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-photos.html
+
 **Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
 `Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
 https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7040186/2026/02/11/nottingham-forest-dyche-marinaki
 **Bud Cort, Who Starred in 1971’s ‘Harold and Maude,’ Dies at 77**\
 `The role, one of his first, made him a household name and a film idol of the anti-establishment 1970s. But it also limited his growth as an actor.`\
 https://nytimes.com/2026/02/11/movies/bud-cort-dead.html
-
-**In pitch-rigging case, Guardians pitcher seeks to shift more blame onto teammate**\
-`A lawyer for pitcher Luis Ortiz characterized his client as a “victim” of his teammate, All-Star closer Emmanuel Clase.`\
-https://nytimes.com/athletic/7037727/2026/02/11/guardians-luis-ortiz-emmanuel-clase-gambling-case-update/
-
-**How Super Bowl announcer Alan Roach made it to the Milan Olympics in time for hockey**\
-`A PA announcer at every Colorado Avalanche and Minnesota Vikings home game, Roach is a familiar voice of the Super Bowl and Winter Olympics.`\
-https://nytimes.com/athletic/7040263/2026/02/11/alan-roach-super-bowl-announcer-olympics-hockey-milan/
 
