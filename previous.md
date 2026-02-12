@@ -1,3 +1,11 @@
+**Games Briefing: Vladyslav Heraskevych disqualified over helmet controversy**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7042099/2026/02/12/vladyslav-heraskevych-skeleton-olympics-games-briefing/
+
+**Luisangel Acuña isn't a switch hitter but White Sox GM says he loves him anyway**\
+`Getz has a reputation for making news with his comments. This time, his overstatement of his new player's skills went viral.`\
+https://nytimes.com/athletic/7042027/2026/02/12/white-sox-luisangel-acuna-gm-switch-hitter/
+
 **‘Kramer/Fauci’ Revisits a Sparring Match During the AIDS Crisis**\
 `At the heart of Daniel Fish’s verbatim staging of a C-SPAN segment is a complex relationship, between Larry Kramer and Anthony Fauci, that “goes from ‘I hate you’ to ‘I love you’ and back.”`\
 https://nytimes.com/2026/02/12/theater/larry-kramer-anthony-fauci-daniel-fish-aids.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7041836/2026/02/12/joey-porter-sr-ben-roethlisberge
 **The Windup: Who isn't in pain?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7042066/2026/02/12/who-isnt-in-pain-plus-luisangel-acuna-is-not-a-switch-hitter/
-
-**Colorectal Cancer Has Become More Common Among Younger People**\
-`The actor James Van Der Beek, who died on Wednesday at 48, was among a growing number of adults under 50 diagnosed with the disease.`\
-https://nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html
-
-**On Trump’s Tariffs, Supreme Court Hurries Up and Waits**\
-`The justices put the case on a fast track at the administration’s urging. But they don’t seem in a rush to rule on the president’s signature economic program.`\
-https://nytimes.com/2026/02/12/us/the-docket-tariffs-wait-game.html
 
