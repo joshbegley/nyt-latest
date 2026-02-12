@@ -1,3 +1,7 @@
+**Judge Halts Transfer of Former Death Row Inmates to Federal ‘Supermax’ Facility**\
+`A judge ruled that the Trump administration’s plan to send the men to the nation’s harshest prison rendered their attempts to challenge the transfer a “sham” process.`\
+https://nytimes.com/2026/02/11/us/politics/judge-halts-transfer-inmates.html
+
 **Twins, Liam Hendriks reunite on minor-league deal with invite to camp: Sources**\
 `Hendriks first signed with the organization in 2007 and pitched for the Twins from 2011-13.`\
 https://nytimes.com/athletic/7040637/2026/02/11/minnesota-twins-liam-hendriks-sign-camp/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/11/nyregion/donald-kinsella-ndny-sarcone-trump.html
 **New-look Pac-12's 2026 football schedule features unique 'flex' games**\
 `Each school will have a “flex” rematch game on the final weekend that will not count toward conference standings but serve league interests.`\
 https://nytimes.com/athletic/7040154/2026/02/11/pac-12-football-schedule-2026-flex/
-
-**Why Nancy Guthrie’s Disappearance Is Breaking Through the Noise**\
-`A vulnerable victim, an unknown perpetrator and a recognizable celebrity are all factors in a case that has captivated the public.`\
-https://nytimes.com/2026/02/11/style/nancy-guthrie-missing-savannah.html
 
