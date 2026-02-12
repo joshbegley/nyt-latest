@@ -1,3 +1,7 @@
+**‘Kramer/Fauci’ Revisits a Sparring Match During the AIDS Crisis**\
+`At the heart of Daniel Fish’s verbatim staging of a C-SPAN segment is a complex relationship, between Larry Kramer and Anthony Fauci, that “goes from ‘I hate you’ to ‘I love you’ and back.”`\
+https://nytimes.com/2026/02/12/theater/larry-kramer-anthony-fauci-daniel-fish-aids.html
+
 **Italy's Francesca Lollobrigida wins 5000m to claim second gold**\
 `The 35-year-old, who took time off after the Beijing Games to have her son, returned to international competition just six months later.`\
 https://nytimes.com/athletic/7042098/2026/02/12/francesca-lollobrigida-wins-5000m-olympics-gold-italy/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html
 **On Trump’s Tariffs, Supreme Court Hurries Up and Waits**\
 `The justices put the case on a fast track at the administration’s urging. But they don’t seem in a rush to rule on the president’s signature economic program.`\
 https://nytimes.com/2026/02/12/us/the-docket-tariffs-wait-game.html
-
-**Senate Questions Health Care Firm for Profiting Off Program Meant for Poor**\
-`The program was meant to help hospitals provide for poor patients by offering drug savings. But critics say a Texas company has turned it into a big business, driving up costs for patients and insurers.`\
-https://nytimes.com/2026/02/12/us/health-care-apexus-340b.html
 

@@ -1,3 +1,7 @@
+**‘Kramer/Fauci’ Revisits a Sparring Match During the AIDS Crisis**\
+`At the heart of Daniel Fish’s verbatim staging of a C-SPAN segment is a complex relationship, between Larry Kramer and Anthony Fauci, that “goes from ‘I hate you’ to ‘I love you’ and back.”`\
+https://nytimes.com/2026/02/12/theater/larry-kramer-anthony-fauci-daniel-fish-aids.html
+
 **Italy's Francesca Lollobrigida wins 5000m to claim second gold**\
 `The 35-year-old, who took time off after the Beijing Games to have her son, returned to international competition just six months later.`\
 https://nytimes.com/athletic/7042098/2026/02/12/francesca-lollobrigida-wins-5000m-olympics-gold-italy/
