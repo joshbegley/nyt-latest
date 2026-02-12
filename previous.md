@@ -1,3 +1,7 @@
+**Doc Rivers compares Cam Thomas to Jamal Crawford, Lou Williams after 34-point night**\
+`The late 3 gave Thomas a game-high 34 points in only 25 minutes in his second game with the Bucks.`\
+https://nytimes.com/athletic/7040575/2026/02/11/cam-thomas-stats-bucks-magic-bench/
+
 **Judge Halts Transfer of Former Death Row Inmates to Federal ‘Supermax’ Facility**\
 `A judge ruled that the Trump administration’s plan to send the men to the nation’s harshest prison rendered their attempts to challenge the transfer a “sham” process.`\
 https://nytimes.com/2026/02/11/us/politics/judge-halts-transfer-inmates.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7040533/2026/02/11/michigan-state-guard-kur-teng-to
 **U.S. Attorney Chosen to Replace Trump Pick Is Quickly Fired by White House**\
 `Federal judges had appointed Donald Kinsella, a veteran litigator, as top prosecutor in the Northern District of New York after the Trump administration’s nominee was found to be serving unlawfully.`\
 https://nytimes.com/2026/02/11/nyregion/donald-kinsella-ndny-sarcone-trump.html
-
-**New-look Pac-12's 2026 football schedule features unique 'flex' games**\
-`Each school will have a “flex” rematch game on the final weekend that will not count toward conference standings but serve league interests.`\
-https://nytimes.com/athletic/7040154/2026/02/11/pac-12-football-schedule-2026-flex/
 

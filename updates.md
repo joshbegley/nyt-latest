@@ -1,3 +1,7 @@
+**Doc Rivers compares Cam Thomas to Jamal Crawford, Lou Williams after 34-point night**\
+`The late 3 gave Thomas a game-high 34 points in only 25 minutes in his second game with the Bucks.`\
+https://nytimes.com/athletic/7040575/2026/02/11/cam-thomas-stats-bucks-magic-bench/
+
 **Judge Halts Transfer of Former Death Row Inmates to Federal ‘Supermax’ Facility**\
 `A judge ruled that the Trump administration’s plan to send the men to the nation’s harshest prison rendered their attempts to challenge the transfer a “sham” process.`\
 https://nytimes.com/2026/02/11/us/politics/judge-halts-transfer-inmates.html
