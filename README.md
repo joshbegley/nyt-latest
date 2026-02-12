@@ -1,3 +1,11 @@
+**Where to Stream James Van Der Beek’s Best Performances**\
+`The actor seemed to understand early on that his lasting legacy would be the title character of “Dawson’s Creek.” But he found ways to subvert his all-American persona.`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-streaming-movies-tv.html
+
+**This Comet Stopped Spinning. Then It Started Rotating Backward.**\
+`The unusual event, never seen before, might be a way small comets are “blown to bits” in the solar system.`\
+https://nytimes.com/2026/02/11/science/comet-spinning-backwards.html
+
 **Trump Says He Will Now Invite Democrats to Governors’ Meeting**\
 `Even as he reversed course on excluding Democrats, the president repeatedly attacked a Republican governor who had planned to oversee the meeting.`\
 https://nytimes.com/2026/02/11/us/politics/trump-governors-meeting-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/11/us/trump-foreign-policy-world-quotes.
 **Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
 `Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
 https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
-
-**Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
-`Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
-https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
-
-**BYU receiver Parker Kingston charged with felony rape**\
-`The Washington County (Utah) Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
-https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
 
