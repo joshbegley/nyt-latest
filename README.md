@@ -1,3 +1,7 @@
+**The High-Stakes Fight Over Masked Federal Agents**\
+`The debate over whether federal agents should be allowed to cover their faces with masks has become a flashpoint as the government heads for a partial shutdown.`\
+https://nytimes.com/2026/02/12/us/politics/congress-trump-ice-masked-agents.html
+
 **In an Upset, Analilia Mejia, a Progressive, Wins a Democratic House Race**\
 `Ms. Mejia, a political organizer, beat her main opponent in the New Jersey primary, Tom Malinowski, by a narrow margin after he was battered by negative ads from a pro-Israel group.`\
 https://nytimes.com/2026/02/12/nyregion/analilia-mejia-new-jersey-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042890/2026/02/12/hockey-fan-showers-oshawa-genera
 **Anthropic Pushes Its Valuation to $380 Billion With New Funding Round**\
 `The artificial intelligence start-up raised another $30 billion, and its valuation more than doubled since its last funding round in September.`\
 https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-funding.html
-
-**Christian Walker wants to play every day. Can the Astros make that happen?**\
-`The first baseman is at peace after becoming a first-time father, and dropped some weight after a poor defensive season in 2025.`\
-https://nytimes.com/athletic/7042894/2026/02/12/astros-christian-walker-everyday-first-baseman/
 
