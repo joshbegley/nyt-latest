@@ -1,3 +1,11 @@
+**The Orlando Magic are underachieving. Will they recover in time to avoid the East Play-In?**\
+`The Magic will enter the All-Star break with a winning record, but they have lost their mojo. Wednesday offered more proof of that.`\
+https://nytimes.com/athletic/7040858/2026/02/12/orlando-magic-struggling-paolo-banchero-bucks/
+
+**Liverpool haven't given up hope on Konate signing new deal — again he proved why he's worth it**\
+`Konate is popular in the dressing room and the kind of personality you want to keep around. He's put a torrid spell firmly behind him`\
+https://nytimes.com/athletic/7039558/2026/02/12/liverpool-konate-performance-contract-future/
+
 **The New York Times in Print for Thursday, Feb. 12, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/12/todays-new-york-times
