@@ -1,40 +1,40 @@
-**El Paso Incident Highlights Gaps in America’s Drone Defense Industry**\
-`The U.S. has spent billions of dollars developing counter-drone technology, but much of it needs more testing in the real world.`\
-https://nytimes.com/2026/02/12/business/el-paso-drone-technology.html
+**Christian Walker wants to play every day. Can the Astros make that happen?**\
+`The first baseman is at peace after becoming a first-time father and dropped some weight after a poor defensive season in 2025.`\
+https://nytimes.com/athletic/7042894/2026/02/12/astros-christian-walker-everyday-first-baseman/
 
-**‘Love Story’ Recreates a Tragic Romance**\
-`The series dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, who married in 1996 and died a few years later. Here’s what to know.`\
-https://nytimes.com/2026/02/12/arts/television/love-story-john-f-kennedy-jr-carolyn-bessette.html
+**Is A.I. Coming for Your Job?**\
+`This isn’t your grandparents’ revolution. Anthropic’s chief executive, Dario Amodei, says artificial intelligence will change our world faster than anything we’ve experienced before.`\
+https://nytimes.com/video/opinion/100000010708249/is-ai-coming-for-your-job.html
 
-**Ontario Lifts Tuition Freeze at Public Universities**\
-`The move will allow the schools to raise tuition for the first time since 2019 as part of a broader plan to boost funding for higher education in the Canadian province.`\
-https://nytimes.com/2026/02/12/world/canada/ontario-post-secondary-tuition-freeze-lifted.html
+**Top Republican Ends Bid for Arizona Governor, Showing MAGA’s Power**\
+`Karrin Taylor Robson, a wealthy businesswoman, dropped out after trailing in polls to Representative Andy Biggs, who is more aligned with supporters of President Trump.`\
+https://nytimes.com/2026/02/12/us/politics/karrin-taylor-robson-andy-biggs-arizona-governor.html
 
-**Top prospect Carson Benge giving Mets something to think about**\
-`Former All-Star Matt Holliday expects Benge to thrive in New York: "He has the right mentality and the right makeup."`\
-https://nytimes.com/athletic/7042587/2026/02/12/mets-prospect-carson-benge-spring-training/
+**Trump Rejects E.P.A.’s Ability to Regulate Greenhouse Gases**\
+`The Environmental Protection Agency repealed the bedrock scientific finding that greenhouse gases threaten human life and well being. This ends the federal government’s legal authority to control the pollution that is dangerously heating the planet.`\
+https://nytimes.com/video/us/politics/100000010708250/trump-epa-environment-climate.html
 
-**Canada's dazzling forward depth on display in Olympic opener: 'All 4 lines were humming'**\
-`Canada dominated a very good Czech team Thursday to open its Olympic tournament, and it felt like a continuation of what began at 4 Nations.`\
-https://nytimes.com/athletic/7042768/2026/02/12/olympics-mens-hockey-canada-scoring-depth/
+**Now That It’s Been Unleashed, Can A.I. Be Controlled?**\
+`Could A.I. go rogue? Dario Amodei, the chief executive of Anthropic, says “something will go wrong,” but he believes “there is a science of how to control” the technology.`\
+https://nytimes.com/video/opinion/100000010695660/now-that-its-been-unleashed-can-ai-be-controlled.html
 
-**Heraskevych, Ukrainian DQed over skeleton helmet, files appeal to CAS**\
-`Heraskevych is asking to be immediately reinstated or given the chance to compete in provisional runs until the court rules.`\
-https://nytimes.com/athletic/7042600/2026/02/12/olympics-vladyslav-heraskevych-ukrainian-helmet-skeleton-appeal/
+**The Briefing: Brentford 1 Arsenal 1 - How important could Martinelli missed chance be?**\
+`Arsenal were held to a 1-1 draw at Brentford that leaves them just four points clear at the top of the Premier League`\
+https://nytimes.com/athletic/7036649/2026/02/12/brentford-arsenal-report-result-score-analysis/
 
-**Your 35 (New! Crowdsourced!) Dating Rules**\
-`On Valentine’s Day 31 years ago, the book “The Rules” provided 35 decidedly retro “rules” for dating. We thought it was time for a refresh, so we asked people what rules they rely on today. Here are the best.`\
-https://nytimes.com/2026/02/12/style/modern-dating-rules.html
+**Atletico Madrid 4 Barcelona 0 - How good were Atleti? Was Flick's high line to blame?**\
+`Diego Simeone's side raced into a big first-leg advantage in their Copa del Rey semi-final with Barcelona `\
+https://nytimes.com/athletic/7036323/2026/02/12/barcelona-atletico-madrid-copa-del-rey-result-analysis/
 
-**How Europe Woke Up to Trump**\
-`European leaders are wondering if they can ever trust the U.S. again.`\
-https://nytimes.com/2026/02/12/world/europe-trump-munich-security-canada-minnesota.html
+**Do Drug Cartels Actually Use Drones at the Border?**\
+`U.S. officials warn that cartel-operated drones on the border pose a major threat. Mexican officials are less certain. Analysts say the answer is likely in between.`\
+https://nytimes.com/2026/02/12/world/americas/mexico-drone-border-cartels.html
 
-**The nature and nurture behind Macklin Celebrini’s seamless arrival on the Olympic stage**\
-`Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
-https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
+**Here’s How a Homeland Security Shutdown Could Affect ICE, Travelers and the Coast Guard**\
+`A lapse in funding probably won’t bring immigration enforcement operations to a screeching halt, but the department is also home to other agencies, including the Coast Guard and FEMA.`\
+https://nytimes.com/2026/02/12/us/politics/dhs-shutdown-impact-ice-tsa-coast-guard.html
 
-**Ancelotti set to sign new four-year Brazil contract**\
-`The new deal will keep Ancelotti, Brazil's first ever foreign coach, in post until 2030.`\
-https://nytimes.com/athletic/7041549/2026/02/12/brazil-carlo-ancelotti-contract-extension/
+**Teenagers on What Books and Reading Mean to Them**\
+`Students respond to a guest essay about the many roles books play in our lives.`\
+https://nytimes.com/2026/02/12/learning/teenagers-on-what-books-and-reading-mean-to-them.html
 

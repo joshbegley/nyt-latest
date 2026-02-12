@@ -1,5 +1,17 @@
+**Greg Brown, Guitarist Who Wrote Cake’s Biggest Hit, Dies at 56**\
+`His song “The Distance,” released in 1996, became an anthem for the disaffected members of Generation X.`\
+https://nytimes.com/2026/02/12/arts/music/greg-brown-dead.html
+
+**Junior hockey team encourages fans to shower before arrival — then tries to 'wash this one off'**\
+`The Oshawa Generals' director of ticket sales said the team has had increased complaints about hygiene.`\
+https://nytimes.com/athletic/7042890/2026/02/12/hockey-fan-showers-oshawa-generals/
+
+**Anthropic Pushes Its Valuation to $380 Billion With New Funding Round**\
+`The artificial intelligence start-up raised another $30 billion and its valuation more than doubled since its last funding round in September.`\
+https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-funding.html
+
 **Christian Walker wants to play every day. Can the Astros make that happen?**\
-`The first baseman is at peace after becoming a first-time father and dropped some weight after a poor defensive season in 2025.`\
+`The first baseman is at peace after becoming a first-time father, and dropped some weight after a poor defensive season in 2025.`\
 https://nytimes.com/athletic/7042894/2026/02/12/astros-christian-walker-everyday-first-baseman/
 
 **Is A.I. Coming for Your Job?**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7036649/2026/02/12/brentford-arsenal-report-result-
 **Atletico Madrid 4 Barcelona 0 - How good were Atleti? Was Flick's high line to blame?**\
 `Diego Simeone's side raced into a big first-leg advantage in their Copa del Rey semi-final with Barcelona `\
 https://nytimes.com/athletic/7036323/2026/02/12/barcelona-atletico-madrid-copa-del-rey-result-analysis/
-
-**Do Drug Cartels Actually Use Drones at the Border?**\
-`U.S. officials warn that cartel-operated drones on the border pose a major threat. Mexican officials are less certain. Analysts say the answer is likely in between.`\
-https://nytimes.com/2026/02/12/world/americas/mexico-drone-border-cartels.html
-
-**Here’s How a Homeland Security Shutdown Could Affect ICE, Travelers and the Coast Guard**\
-`A lapse in funding probably won’t bring immigration enforcement operations to a screeching halt, but the department is also home to other agencies, including the Coast Guard and FEMA.`\
-https://nytimes.com/2026/02/12/us/politics/dhs-shutdown-impact-ice-tsa-coast-guard.html
-
-**Teenagers on What Books and Reading Mean to Them**\
-`Students respond to a guest essay about the many roles books play in our lives.`\
-https://nytimes.com/2026/02/12/learning/teenagers-on-what-books-and-reading-mean-to-them.html
 
