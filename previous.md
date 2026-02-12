@@ -1,3 +1,7 @@
+**Thomas Partey charged with two new counts of rape against further woman**\
+`The former Arsenal midfielder, 32, will appear at Westminster Magistrates’ Court on March 13 for a first hearing.`\
+https://nytimes.com/athletic/7038882/2026/02/12/thomas-partey-rape-new-charges/
+
 **In a photo finish, Alessandro Hämmerle wins men's snowboard cross gold**\
 `Hämmerle beat Canada's Éliot Grondin by the slenderest of margins to win snowboard cross Olympic gold. `\
 https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboard-cross-2026-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/business/dealbook/anthropic-super-pacs-ai.html
 **Montana has a player entering his 9th season of football. Will it be his last?**\
 `A host of injuries have tested the patience of the 25-year-old married father of two, but he keeps coming back to the sport he loves.`\
 https://nytimes.com/athletic/7040551/2026/02/12/solomon-tuliaupupu-montana-ninth-season/
-
-**Two athletes finished with the same score. Only one won gold.**\
-`Cooper Woods and Mikaël Kingsbury both finished with 83.71 points but the gold medal was decided by a tiebreak.`\
-https://nytimes.com/athletic/7041204/2026/02/12/mikael-kingsbury-cooper-woods-mens-moguls-2026-winter-olympics/
 

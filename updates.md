@@ -1,3 +1,7 @@
+**Thomas Partey charged with two new counts of rape against further woman**\
+`The former Arsenal midfielder, 32, will appear at Westminster Magistrates’ Court on March 13 for a first hearing.`\
+https://nytimes.com/athletic/7038882/2026/02/12/thomas-partey-rape-new-charges/
+
 **In a photo finish, Alessandro Hämmerle wins men's snowboard cross gold**\
 `Hämmerle beat Canada's Éliot Grondin by the slenderest of margins to win snowboard cross Olympic gold. `\
 https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboard-cross-2026-winter-olympics/
