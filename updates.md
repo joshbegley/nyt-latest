@@ -1,3 +1,5 @@
+
+
 **Trump Repeals the Government’s Power to Regulate Climate**\
 `Also, an end to the surge of immigration agents in Minnesota. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/12/briefing/trump-climate-regulations-tv-for-pets.html
