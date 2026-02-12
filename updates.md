@@ -1,3 +1,15 @@
+**Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
+`Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
+https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
+
+**Zion's health, rookie development and more questions for rest of Pelicans' season**\
+`New Orleans won't make the playoffs and doesn't have a first-round pick, so it has to focus on getting better and getting ready for 2026-27.`\
+https://nytimes.com/athletic/7041101/2026/02/12/zion-williamson-pelicans-derik-queen/
+
+**The Giant Super PACs Fighting Over A.I. Safety**\
+`Anthropic is pouring millions of dollars into a political action committee that will most likely face off against OpenAI.`\
+https://nytimes.com/2026/02/12/business/dealbook/anthropic-super-pacs-ai.html
+
 **Montana has a player entering his 9th season of football. Will it be his last?**\
 `A host of injuries have tested the patience of the 25-year-old married father of two, but he keeps coming back to the sport he loves.`\
 https://nytimes.com/athletic/7040551/2026/02/12/solomon-tuliaupupu-montana-ninth-season/
