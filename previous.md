@@ -1,3 +1,11 @@
+**Swedish skier Elis Lundholm becomes first transgender Winter Olympian**\
+`Lundholm competed in the women's moguls event on Wednesday.`\
+https://nytimes.com/athletic/7041531/2026/02/12/olympics-transgender-athlete-swedish-skier-elis-lundholm/
+
+**Canada routs Finland in women's hockey to conclude adversity-filled preliminary round**\
+`Thursday’s game was supposed to be played on Day 1 of the tournament, but it was postponed due to a norovirus outbreak on the Finnish team.`\
+https://nytimes.com/athletic/7041424/2026/02/12/canada-finland-olympics-womens-hockey-results/
+
 **‘Nirvanna the Band the Show the Movie’ Review: Canadian Fakin’**\
 `Two longtime friends time-travel back to 2008 to pursue their performing dreams in this likably daft comedy.`\
 https://nytimes.com/2026/02/12/movies/nirvanna-the-band-the-show-the-movie-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/12/us/minnesota-immigration-crackdown.html
 **Thomas Partey charged with two new counts of rape against further woman**\
 `The former Arsenal midfielder, 32, will appear at Westminster Magistrates’ Court on March 13 for a first hearing.`\
 https://nytimes.com/athletic/7038882/2026/02/12/thomas-partey-rape-new-charges/
-
-**In a photo finish, Alessandro Hämmerle wins men's snowboard cross gold**\
-`Hämmerle beat Canada's Éliot Grondin by 0.03 seconds to win snowboard cross Olympic gold. `\
-https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboard-cross-2026-winter-olympics/
-
-**Rewriting the Fashion Rules**\
-`With her first show for Proenza Schouler, Rachel Scott was trying to pull off more than a reinvention.`\
-https://nytimes.com/2026/02/12/style/proenza-schouler-rachel-scott-new-york-fashion-week.html
 

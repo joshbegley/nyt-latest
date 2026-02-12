@@ -1,3 +1,11 @@
+**Swedish skier Elis Lundholm becomes first transgender Winter Olympian**\
+`Lundholm competed in the women's moguls event on Wednesday.`\
+https://nytimes.com/athletic/7041531/2026/02/12/olympics-transgender-athlete-swedish-skier-elis-lundholm/
+
+**Canada routs Finland in women's hockey to conclude adversity-filled preliminary round**\
+`Thursday’s game was supposed to be played on Day 1 of the tournament, but it was postponed due to a norovirus outbreak on the Finnish team.`\
+https://nytimes.com/athletic/7041424/2026/02/12/canada-finland-olympics-womens-hockey-results/
+
 **‘Nirvanna the Band the Show the Movie’ Review: Canadian Fakin’**\
 `Two longtime friends time-travel back to 2008 to pursue their performing dreams in this likably daft comedy.`\
 https://nytimes.com/2026/02/12/movies/nirvanna-the-band-the-show-the-movie-review.html
