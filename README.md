@@ -1,3 +1,11 @@
+**‘Love Story’ Recreates a Tragic Romance**\
+`The series dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, who married in 1996 and died a few years later. Here’s what to know.`\
+https://nytimes.com/2026/02/12/arts/television/love-story-john-f-kennedy-jr-carolyn-bessette.html
+
+**Ontario Lifts Tuition Freeze at Public Universities**\
+`The move will allow the schools to raise tuition for the first time since 2019 as part of a broader plan to boost funding for higher education in the Canadian province.`\
+https://nytimes.com/2026/02/12/world/canada/ontario-post-secondary-tuition-freeze-lifted.html
+
 **Top prospect Carson Benge giving Mets something to think about**\
 `Former All-Star Matt Holliday expects Benge to thrive in New York: "He has the right mentality and the right makeup."`\
 https://nytimes.com/athletic/7042587/2026/02/12/mets-prospect-carson-benge-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7041549/2026/02/12/brazil-carlo-ancelotti-contract-
 **Where to Eat Extremely Specific Japanese Foods**\
 `Three destinations for shio pan, torched sweet potatoes and Hamburg steaks with the works.`\
 https://nytimes.com/2026/02/12/dining/where-to-eat-extremely-specific-japanese-foods.html
-
-**Overlooked No More: Clifford Brown, Trumpeter Whose Brief Life Left a Lasting Mark**\
-`He was one of the most talked-about jazz musicians in the 1950s. After he died in a car accident at 25, his influence grew.`\
-https://nytimes.com/2026/02/12/obituaries/clifford-brown-overlooked.html
-
-**Fantasy basketball hot topic of the week: Need-to-knows from the NBA's likely tanking teams**\
-`Stan Son identifies the players who could benefit most on the NBA teams likely to tank the rest of the season.`\
-https://nytimes.com/athletic/7042461/2026/02/12/fantasy-basketball-hot-topic-tanking/
 
