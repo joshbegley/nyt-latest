@@ -1,4 +1,8 @@
-**California Asks if Civil Rights of Black Residents Were Violated During Eaton Fire**\
+**Why Living in China Is Like ‘Living in the Future’**\
+`A Times correspondent talks about life in China as it outpaces the United States in developing clean energy technology, self-driving cars and other innovations.`\
+https://nytimes.com/2026/02/12/climate/china-clean-energy-technology.html
+
+**California Asks if L.A. County Violated Rights of Black Residents in 2025 Fire**\
 `The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
 https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nan
 **Cavaliers change court due to safety concerns after Luka Dončić's injury**\
 `After Luka Dončić injured his ankle falling off of the Cavaliers' raised court, the team and NBA said they would address the issue.`\
 https://nytimes.com/athletic/7042335/2026/02/12/nba-cleveland-cavs-luka-doncic-court-fix/
-
-**Trump’s Actions Test the Fragile World of Air Travel**\
-`Last minute announcements and abrupt changes by the Trump administration have caused confusion in an already strained U.S. aviation system.`\
-https://nytimes.com/2026/02/12/business/air-travel-trump-el-paso.html
 

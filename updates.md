@@ -1,3 +1,11 @@
+**Why Living in China Is Like ‘Living in the Future’**\
+`A Times correspondent talks about life in China as it outpaces the United States in developing clean energy technology, self-driving cars and other innovations.`\
+https://nytimes.com/2026/02/12/climate/china-clean-energy-technology.html
+
+**California Asks if L.A. County Violated Rights of Black Residents in 2025 Fire**\
+`The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
+https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
+
 **California Asks if Civil Rights of Black Residents Were Violated During Eaton Fire**\
 `The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
 https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
