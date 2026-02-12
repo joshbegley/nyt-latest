@@ -1,3 +1,11 @@
+**Your 35 (New! Crowdsourced!) Dating Rules**\
+`On Valentine’s Day 31 years ago, the book “The Rules” provided 35 decidedly retro “rules” for dating. We thought it was time for a refresh, so we asked people what rules they rely on today. Here are the best.`\
+https://nytimes.com/2026/02/12/style/modern-dating-rules.html
+
+**How Europe Woke Up to Trump**\
+`European leaders are wondering if they can ever trust the U.S. again.`\
+https://nytimes.com/2026/02/12/world/europe-trump-munich-security-council-canada-minnesota.html
+
 **The nature and nurture behind Celebrini’s seamless arrival on the Olympic stage**\
 `Macklin Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
 https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
