@@ -1,3 +1,7 @@
+**Cooper Flagg to miss Rising Stars game, NBA All-Star weekend with foot sprain**\
+`The injury was suffered during Dallas' Tuesday matchup against the Phoenix Suns, during which Flagg had 27 points and five rebounds.`\
+https://nytimes.com/athletic/7040613/2026/02/11/cooper-flagg-injury-miss-rising-star-competition-all-star-weekend/
+
 **Stuff With Strands**\
 `Kareem Ayas shows some affection.`\
 https://nytimes.com/2026/02/11/crosswords/daily-puzzle-2026-02-12.html
