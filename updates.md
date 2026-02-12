@@ -1,3 +1,7 @@
+**South Korean Court Rules Against Women in LG Inheritance Lawsuit**\
+`The widow and two daughters of LG’s former chairman sought to invalidate an inheritance agreement, claiming they were deceived into forfeiting their rightful inheritance.`\
+https://nytimes.com/2026/02/12/business/lg-inheritance-lawsuit.html
+
 **Swiss men's hockey team eager to face powerhouse Canada and 'poke the bear'**\
 `The Swiss, who defeated France 4-0 in their first game on Thursday, believe they can do something special in this Olympic hockey tournament.`\
 https://nytimes.com/athletic/7041562/2026/02/12/switzerland-canada-mens-olympic-hockey/
