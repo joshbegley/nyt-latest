@@ -1,3 +1,7 @@
+**Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
+`The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html
+
 **Knicks sign Jeremy Sochan to minimum deal for remainder of season: Sources**\
 `Sochan will fill New York's 15th roster spot after he asked for a buyout and the Spurs waived him on Wednesday.`\
 https://nytimes.com/athletic/7042966/2026/02/12/knicks-jeremy-sochan-spurs-deal-minimum/

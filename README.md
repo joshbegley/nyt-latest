@@ -23,7 +23,7 @@ https://nytimes.com/2026/02/12/arts/music/greg-brown-dead.html
 https://nytimes.com/athletic/7042890/2026/02/12/hockey-fan-showers-oshawa-generals/
 
 **Anthropic Pushes Its Valuation to $380 Billion With New Funding Round**\
-`The artificial intelligence start-up raised another $30 billion and its valuation more than doubled since its last funding round in September.`\
+`The artificial intelligence start-up raised another $30 billion, and its valuation more than doubled since its last funding round in September.`\
 https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-funding.html
 
 **Christian Walker wants to play every day. Can the Astros make that happen?**\
