@@ -1,3 +1,15 @@
+**Disqualification of Ukraine's Heraskevych includes dismissal of his sport by Olympic leaders**\
+`IOC comments that they wanted Heraskevych to hold back for "one minute" run was reductive of his sport, our columnist Steve Buckley writes.`\
+https://nytimes.com/athletic/7041670/2026/02/12/olympics-ukraine-helmet-ioc-disqualified-skeleton/
+
+**Gail Slater Steps Down as Justice Dept.’s Antitrust Chief**\
+`Her departure comes after months of mounting tension over her division’s work to determine whether companies violated antitrust laws.`\
+https://nytimes.com/2026/02/12/technology/gail-slater-antittrust-justice-department.html
+
+**Jazz's Jaren Jackson Jr. to undergo surgery, will likely miss rest of season**\
+`The growth in Jackson's knee is considered to be benign, according to a league source.`\
+https://nytimes.com/athletic/7041855/2026/02/12/jazz-jaren-jackson-jr-surgery/
+
 **Dutch Prosecutors Fine Louis Vuitton Netherlands in Money Laundering Case**\
 `The Dutch subsidiary of the luxury brand agreed to pay a nearly $600,000 settlement in a money laundering and terrorism financing case.`\
 https://nytimes.com/2026/02/12/world/europe/louis-vuitton-money-laundering-fine.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7041046/2026/02/12/canucks-trade-targets-3/
 **How to watch Florida vs. Oklahoma women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7041893/2026/02/12/florida-vs-oklahoma-stream-how-to-watch-feb-12/
-
-**Elected Officials Condemn Stonewall Pride Flag Removal Ahead of Rally**\
-`Activists and officials plan to re-raise the flag on Thursday, setting up a defiant response to the Trump administration’s assault on diversity initiatives.`\
-https://nytimes.com/2026/02/12/nyregion/stonewall-flag-protest-nyc.html
-
-**Gary Bettman: NHL has no current plans to reintegrate Russia ahead of 2028 World Cup**\
-`Eager to avoid taking a political stand, the NHL will defer to the International Olympic Committee on Russia.`\
-https://nytimes.com/athletic/7041697/2026/02/12/gary-bettman-nhl-russia-world-cup-hockey/
-
-**Family Grieves Daughter Killed in Canada Mass Shooting**\
-`Lance Younge of Tumbler Ridge, British Columbia, urged others to “hold your kids tight” in the wake of Tuesday’s mass shooting. His daughter, 12-year-old Kylie Smith, was one of the victims at a local school.`\
-https://nytimes.com/video/world/americas/100000010708007/canada-shooting-tumbler-ridge-kylie-smith.html
 

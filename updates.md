@@ -1,3 +1,11 @@
+**Dutch Prosecutors Fine Louis Vuitton Netherlands in Money Laundering Case**\
+`The Dutch subsidiary of the luxury brand agreed to pay a nearly $600,000 settlement in a money laundering and terrorism financing case.`\
+https://nytimes.com/2026/02/12/world/europe/louis-vuitton-money-laundering-fine.html
+
+**Raheem Sterling joins Feyenoord after Chelsea exit**\
+`Sterling, 31, left Chelsea at the end of January after a mutual agreement to terminate his contract 18 months early.`\
+https://nytimes.com/athletic/7004559/2026/02/12/raheem-sterling-feyenoord-transfer/
+
 **Ukrainian Olympian Disqualified Over Helmet**\
 `Vladyslav Heraskevyc, a Ukrainian skeleton athlete, was barred from competing in the Winter Olympics over a helmet he planned to wear during the competition, which depicted images of people killed in the war with Ukraine.`\
 https://nytimes.com/video/world/europe/100000010707780/ukraine-skeleton-racer-olympics-disqualified-helmet.html
