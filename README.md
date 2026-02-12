@@ -1,3 +1,7 @@
+**Ohio State Professor Put on Leave After Wrestling Filmmaker to the Ground**\
+`After another journalist interviewed the university’s former president about Jeffrey Epstein, a professor physically intervened when a documentarian wanted to ask more questions.`\
+https://nytimes.com/2026/02/12/us/ohio-state-professor-wrestles-down-filmmaker.html
+
 **NCAA affirms rulings in Connor Stalions case at Michigan after appeal**\
 `Stalions’ appeal was the last lingering thread from an investigation that dates back to Michigan’s 2023 national championship season.`\
 https://nytimes.com/athletic/7041953/2026/02/12/connor-stalions-michigan-ncaa-appeal-ruling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041670/2026/02/12/olympics-ukraine-helmet-ioc-disq
 **Gail Slater Leaves Role as Justice Dept.’s Antitrust Chief**\
 `Her departure comes after months of mounting tension over her division’s work to determine whether companies violated antitrust laws.`\
 https://nytimes.com/2026/02/12/technology/gail-slater-antittrust-justice-department.html
-
-**Jazz's Jaren Jackson Jr. to undergo surgery, will likely miss rest of season**\
-`The growth in Jackson's knee is considered to be benign, according to a league source.`\
-https://nytimes.com/athletic/7041855/2026/02/12/jazz-jaren-jackson-jr-surgery/
 
