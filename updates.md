@@ -1,3 +1,23 @@
+**Judge Says U.S. Must Help Return Venezuelans Detained in El Salvador**\
+`The ruling was one of the most robust steps taken so far to force the Trump administration to give due process to the Venezuelan immigrants deported under the Alien Enemies Act.`\
+https://nytimes.com/2026/02/12/us/politics/venezuela-immigrants-el-salvador-return-ruling.html
+
+**Phillies release Nick Castellanos with 1 year, $20 million remaining on contract**\
+`The Phillies decided to part ways with Castellanos after a season in which he struggled to perform and complained about his playing time. `\
+https://nytimes.com/athletic/6758055/2026/02/12/phillies-release-nick-castellanos-contract/
+
+**De'Aaron Fox to replace Giannis at All-Star Game; Powell switching teams**\
+`This year's game is a round-robin tournament featuring three teams.`\
+https://nytimes.com/athletic/7042472/2026/02/12/deaaron-fox-all-star-giannis-replacement-nba/
+
+**How England moved fast to secure Tuchel's future and why he wanted to sign**\
+`The FA wanted to avoid a sideshow around the coach's future at the World Cup, with big clubs searching for managers`\
+https://nytimes.com/athletic/7041771/2026/02/12/england-thomas-tuchel-renewal-explained/
+
+**Investigators return to Nancy Guthrie’s house.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nancy-guthrie-enters-a-12th-day
+
 **Mamdani Taps Prosecutor in R. Kelly Case to Run Anti-Corruption Agency**\
 `Nadia Shihata was picked to run the Department of Investigation, an independent city agency that has been weakened in recent years.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-investigations-nadia-shihata.html
