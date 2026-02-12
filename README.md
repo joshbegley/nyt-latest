@@ -1,6 +1,14 @@
+**After apologizing for World Series absence, Berríos appears key for Jays rotation**\
+`“I just made maybe one bad decision to go home,” Berríos said. “To keep working on my rehab and stay close to my family.”`\
+https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/
+
+**The challenges facing Tottenham's next manager — and how they can be addressed**\
+`Spurs sacked Frank after a woeful run of league form, and there will be problems to solve for his replacement`\
+https://nytimes.com/athletic/7041203/2026/02/12/tottenham-new-manager-challenges-analysis/
+
 **Guardians Opening Day roster projection 2.0: Sorting through a crowded infield and outfield**\
 `With most of the players having reported to camp, who has the inside track on an Opening Day roster spot?`\
-https://nytimes.com/athletic/7038849/2026/02/12/guardians-opening-day-roster-projection-2-0-sorting-through-a-crowded-infield-and-outfield/
+https://nytimes.com/athletic/7038849/2026/02/12/guardians-opening-day-roster-projection-2-infield-outfield/
 
 **Bottega Veneta’s New Creative Director Puts Her Spin on a Classic Bag**\
 `For her debut, Louise Trotter reinterprets a signature woven leather accessory.`\
@@ -29,12 +37,4 @@ https://nytimes.com/column/the-docket
 **K-State coach Tang slams team after 29-point loss: 'Embarrassed for our fans'**\
 `Kansas State students showed up to the game with paper bags on their heads, and Tang said, "I'd wear a paper bag too if I was them."`\
 https://nytimes.com/athletic/7042236/2026/02/12/kansas-state-basketball-jerome-tang-loss-embarrassed/
-
-**Judge Temporarily Blocks Hegseth from Punishing Kelly for Video**\
-`Judge Richard J. Leon found that attempts to discipline Mark Kelly for a video that warned against following illegal orders would violate the senator’s First Amendment rights.`\
-https://nytimes.com/2026/02/12/us/judge-blocks-kelly-punishment-hegseth.html
-
-**Dodgers and Kiké Hernández run it back again, agree to 1-year, $4.5 million deal**\
-`The Dodgers have acquired Kiké Hernández via free agency or trade five previous times. `\
-https://nytimes.com/athletic/6943799/2026/02/12/mlb-free-agency-kike-hernandez-signs-dodgers/
 
