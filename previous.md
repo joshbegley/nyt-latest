@@ -1,3 +1,7 @@
+**Kyle Busch wins the Daytona 500 pole**\
+`It is Busch’s first Daytona 500 pole and seventh for Richard Childress Racing.`\
+https://nytimes.com/athletic/7040661/2026/02/11/kyle-busch-wins-the-daytona-500-pole/
+
 **Doc Rivers compares Cam Thomas to Jamal Crawford, Lou Williams after 34-point night**\
 `The late 3 gave Thomas a game-high 34 points in only 25 minutes in his second game with the Bucks.`\
 https://nytimes.com/athletic/7040575/2026/02/11/cam-thomas-stats-bucks-magic-bench/
