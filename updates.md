@@ -1,3 +1,15 @@
+**Students Won a Revolution in Bangladesh. They Want So Much More.**\
+`At the vanguard of Gen Z movements, protesters in Bangladesh ousted the prime minister in 2024. They now face the hard reality of winning change through elections.`\
+https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
+
+**Orioles improve upon rotation, ink Chris Bassitt to one-year deal: Source**\
+`A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
+
+**How Trump Sees the World: It’s Personal**\
+`Historical relationships play little if any role in the second-term worldview of the president, who holds himself as the constant center of global events.`\
+https://nytimes.com/interactive/2026/02/11/us/trump-foreign-policy-world-quotes.html
+
 **Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
 `Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
 https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
