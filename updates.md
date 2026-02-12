@@ -1,3 +1,7 @@
+**New-look Pac-12's 2026 football schedule features unique 'flex' games**\
+`Each school will have a “flex” rematch game on the final weekend that will not count toward conference standings but serve league interests.`\
+https://nytimes.com/athletic/7040154/2026/02/11/pac-12-football-schedule-2026-flex/
+
 **Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
 `A one-time All-Star, Chris Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
 https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
