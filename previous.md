@@ -1,40 +1,40 @@
-**Ohio State Professor Put on Leave After Wrestling Filmmaker to the Ground**\
-`After another journalist interviewed the university’s former president about Jeffrey Epstein, a professor physically intervened when a documentarian wanted to ask more questions.`\
-https://nytimes.com/2026/02/12/us/ohio-state-professor-wrestles-down-filmmaker.html
+**Italy's Francesca Lollobrigida wins 5000m to claim second gold**\
+`The 35-year-old, who took time off after the Beijing Games to have her son, returned to international competition just six months later.`\
+https://nytimes.com/athletic/7042098/2026/02/12/francesca-lollobrigida-wins-5000m-olympics-gold-italy/
 
-**NCAA affirms rulings in Connor Stalions case at Michigan after appeal**\
-`Stalions’ appeal was the last lingering thread from an investigation that dates back to Michigan’s 2023 national championship season.`\
-https://nytimes.com/athletic/7041953/2026/02/12/connor-stalions-michigan-ncaa-appeal-ruling/
+**4 Months Trapped in a Hospital for an Obsolete Way of Treating Their Disease**\
+`Health workers in developing countries know that isolating tuberculosis patients is an outdated and potentially harmful practice, but lack the resources to move away from it.`\
+https://nytimes.com/2026/02/12/health/tb-sanitarium-cameroon.html
 
-**How Are Curling Stones Made?**\
-`The Athletic’s Matt Slater visited the factory where curling stones for the Olympic games are made. For the past 20 years, the granite for the stones has comes from Ailsa Craig, an uninhabited island off the Scottish coast.`\
-https://nytimes.com/video/the-athletic/100000010705748/how-are-curling-stones-made.html
+**Another Storm Takes Aim at the South. Here’s What’s Coming.**\
+`It’s finally warming up, which means the storm will most likely bring rain instead of more dreaded ice. But forecasters warned that there may be a lot of it.`\
+https://nytimes.com/2026/02/12/weather/us-south-rain-storm-forecast.html
 
-**In Ohio City, Officials Take Heat Over Residents’ Lack of It**\
-`An insolvent, broken utility left downtown buildings in Youngstown freezing in recent weeks. Gov. Mike DeWine has attributed the problems to an archaic system.`\
-https://nytimes.com/2026/02/12/us/youngstown-ohio-cold-utilities.html
+**Dodgers guarantee Max Muncy $10 million in new extension through at least 2027**\
+`With another extension signed, Muncy has again signaled he’s exactly where he wants to be.`\
+https://nytimes.com/athletic/7042044/2026/02/12/dodgers-max-muncy-extension-2027/
 
-**Why Ilia Malinian Performs Moves no Other Skater Can**\
-`Why has the American figure skater Ilia Malinin become such a sensation at the 2026 Olympics? Marcus Thompson II, a senior columnist for The Athletic, explains the hype.`\
-https://nytimes.com/video/the-athletic/100000010708272/why-ilia-malinian-performs-moves-no-other-skater-can.html
+**Helmuth Rilling, Who Recorded Huge Swaths of Bach, Dies at 92**\
+`He was the first to record all of J.S. Bach’s nearly 200 sacred cantatas, a project that stood out not only for its range but also for its steadfast style.`\
+https://nytimes.com/2026/02/12/arts/music/helmuth-rilling-dead.html
 
-**Verstappen: New 2026 F1 cars are ‘anti-racing’ and ‘not a lot of fun’**\
-`F1 overhauled its car designs for the 2026 campaign, with the new engines placing a greater emphasis on energy management and usage.`\
-https://nytimes.com/athletic/7041903/2026/02/12/max-verstappen-2026-f1-cars/
+**Former Steeler Joey Porter Sr. criticizes Ben Roethlisberger: 'Not a good teammate'**\
+`Porter criticized Roethlisberger and James Harrison for their criticism of Mike Tomlin last season.`\
+https://nytimes.com/athletic/7041836/2026/02/12/joey-porter-sr-ben-roethlisberger-james-harrison-pittsburgh-steelers/
 
-**Trump’s Disdain for Borders Is Triggering Alarms Over Financial and Tech Sovereignty**\
-`European leaders have been compelled to address the possibility of once-remote risks to the financial networks and technology that undergird their economies.`\
-https://nytimes.com/2026/02/12/business/economy/trump-europe-sovereignty.html
+**The Windup: Who isn't in pain?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7042066/2026/02/12/who-isnt-in-pain-plus-luisangel-acuna-is-not-a-switch-hitter/
 
-**Bompastor: Green exit 'sad' but Chelsea 'in a good place to be successful'**\
-`Chelsea parted company with head of women's football Green on Monday.`\
-https://nytimes.com/athletic/7041879/2026/02/12/sonia-bompastor-paul-green-chelsea/
+**Colorectal Cancer Has Become More Common Among Younger People**\
+`The actor James Van Der Beek, who died on Wednesday at 48, was among a growing number of adults under 50 diagnosed with the disease.`\
+https://nytimes.com/2026/02/12/well/james-vanderbeek-colorectal-cancer.html
 
-**Disqualification of Ukraine's Heraskevych includes dismissal of his sport by Olympic leaders**\
-`IOC comments that they wanted Heraskevych to hold back for "one minute" run was reductive of his sport, our columnist Steve Buckley writes.`\
-https://nytimes.com/athletic/7041670/2026/02/12/olympics-ukraine-helmet-ioc-disqualified-skeleton/
+**On Trump’s Tariffs, Supreme Court Hurries Up and Waits**\
+`The justices put the case on a fast track at the administration’s urging. But they don’t seem in a rush to rule on the president’s signature economic program.`\
+https://nytimes.com/2026/02/12/us/the-docket-tariffs-wait-game.html
 
-**Gail Slater Leaves Role as Justice Dept.’s Antitrust Chief**\
-`Her departure comes after months of mounting tension over her division’s work to determine whether companies violated antitrust laws.`\
-https://nytimes.com/2026/02/12/technology/gail-slater-antittrust-justice-department.html
+**Senate Questions Health Care Firm for Profiting Off Program Meant for Poor**\
+`The program was meant to help hospitals provide for poor patients by offering drug savings. But critics say a Texas company has turned it into a big business, driving up costs for patients and insurers.`\
+https://nytimes.com/2026/02/12/us/health-care-apexus-340b.html
 
