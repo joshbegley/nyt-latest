@@ -1,3 +1,19 @@
+**Chloe Kim, once a teenage phenom, loses to a new one.**\
+`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe. `\
+https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
+
+**Your A–Z Guide to All Things Romance**\
+`From cinnamon rolls to stern brunch daddies, here are 101 terms you should know to understand the popular literary genre.`\
+https://nytimes.com/interactive/2026/02/12/books/romance-book-tropes-themes-glossary.html
+
+**Israeli Army Reservists Are Suspected of Using Inside Knowledge to Bet**\
+`The authorities said several reservists and a civilian were arrested, and two were charged, after an investigation into the use of classified information to bet on military operations.`\
+https://nytimes.com/2026/02/12/world/middleeast/israel-army-reservists-classified-information-bets.html
+
+**How to watch Bucks vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7042761/2026/02/12/bucks-vs-thunder-stream-how-to-watch-feb-12/
+
 **Why are Forest going for Pereira and what went wrong under Dyche?**\
 `Forest are moving on to their fourth head coach of the season after sacking Dyche — why did they do it, and what does Vitor Pereira offer?`\
 https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-new-manager/
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/7042690/2026/02/12/unc-basketball-caleb-wilson-inju
 **Intelligence Dispute Centers on Kushner Reference in Intercepted Communication**\
 `A whistle-blower has accused Tulsi Gabbard, the director of national intelligence, of blocking distribution of a report that Jared Kushner’s name came up in an intercepted communication about Iran.`\
 https://nytimes.com/2026/02/12/us/politics/kushner-gabbard-iran-intelligence.html
-
-**Formula 1 promised an exciting new era. But are the cars actually fun to drive?**\
-`Max Verstappen doesn't love the new cars yet. But his 2025 title rival, Lando Norris, is a vocal defender`\
-https://nytimes.com/athletic/7042522/2026/02/12/f1-max-verstappen-new-cars-fun-anti-racing-drivers/
-
-**How to watch Arkansas vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042705/2026/02/12/arkansas-vs-ole-miss-stream-how-to-watch-feb-12/
-
-**How to watch Michigan vs. Northwestern women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042701/2026/02/12/michigan-vs-northwestern-stream-how-to-watch-feb-12/
 

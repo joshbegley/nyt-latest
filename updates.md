@@ -1,3 +1,19 @@
+**Chloe Kim, once a teenage phenom, loses to a new one.**\
+`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe. `\
+https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
+
+**Your A–Z Guide to All Things Romance**\
+`From cinnamon rolls to stern brunch daddies, here are 101 terms you should know to understand the popular literary genre.`\
+https://nytimes.com/interactive/2026/02/12/books/romance-book-tropes-themes-glossary.html
+
+**Israeli Army Reservists Are Suspected of Using Inside Knowledge to Bet**\
+`The authorities said several reservists and a civilian were arrested, and two were charged, after an investigation into the use of classified information to bet on military operations.`\
+https://nytimes.com/2026/02/12/world/middleeast/israel-army-reservists-classified-information-bets.html
+
+**How to watch Bucks vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7042761/2026/02/12/bucks-vs-thunder-stream-how-to-watch-feb-12/
+
 **Why are Forest going for Pereira and what went wrong under Dyche?**\
 `Forest are moving on to their fourth head coach of the season after sacking Dyche — why did they do it, and what does Vitor Pereira offer?`\
 https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-new-manager/

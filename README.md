@@ -1,5 +1,5 @@
 **Chloe Kim, once a teenage phenom, loses to a new one.**\
-`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe. `\
+`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe.`\
 https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
 
 **Your A–Z Guide to All Things Romance**\
