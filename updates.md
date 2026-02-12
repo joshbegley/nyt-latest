@@ -1,3 +1,15 @@
+**MLB to enforce rules around base coach boxes to combat pitch tipping**\
+`MLB heard allegations throughout 2025 — including during the World Series — that coaches were trying to sneak a peek at pitchers’ grips.`\
+https://nytimes.com/athletic/7042579/2026/02/12/mlb-rule-enforcement-base-coach-boxes-pitch-tipping/
+
+**U.S. Forces Leave Base in Syria Used in Fight Against ISIS**\
+`The military base at Al-Tanf had hosted U.S. troops fighting against the Islamic State since 2016. Some of the troops are expected to be repositioned at a Jordanian military base across the border.`\
+https://nytimes.com/2026/02/12/us/politics/military-syria-islamic-state.html
+
+**Chloe Kim’s bid for Olympic history falters as American takes silver in snowboard halfpipe**\
+`Kim takes silver as 17-year-old Gaon Choi wins halfpipe gold on her Olympic debut. `\
+https://nytimes.com/athletic/7042428/2026/02/12/chloe-kim-womens-halfpipe-2026-winter-olympics/
+
 **Chloe Kim’s bid for history falters as American takes silver in snowboard halfpipe**\
 `Kim takes silver as 17-year-old Gaon Choi wins halfpipe gold on her Olympic debut. `\
 https://nytimes.com/athletic/7042428/2026/02/12/chloe-kim-womens-halfpipe-2026-winter-olympics/
