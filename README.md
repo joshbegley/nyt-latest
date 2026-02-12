@@ -1,3 +1,27 @@
+**Two athletes finished with the same score. Only one won gold.**\
+`Cooper Woods and Mikaël Kingsbury both finished with 83.71 points but the gold medal was decided by a tiebreak.`\
+https://nytimes.com/athletic/7041204/2026/02/12/mikael-kingsbury-cooper-woods-mens-moguls-2026-winter-olympics/
+
+**Submit your questions for Seth Emerson's SEC football mailbag**\
+`In a lull between the transfer portal window and spring practices, let's talk SEC football.`\
+https://nytimes.com/athletic/7041345/2026/02/12/sec-football-mailbag-submit-questions/
+
+**Court Vision: Where do Kansas, Illinois rank in national title contender tiers?**\
+`Purdue, Texas Tech, Gonzaga and UNC are among teams with glaring vulnerabilities, but they also have great wins.`\
+https://nytimes.com/athletic/7039637/2026/02/12/college-basketball-tiers-selection-sunday/
+
+**Twins spring training guide: 30 thoughts on all 30 pitchers in major-league camp**\
+`Stars like Pablo López and Joe Ryan are joined by top prospects and Triple-A journeymen in competing for 13 spots on the Opening Day roster.`\
+https://nytimes.com/athletic/6999263/2026/02/12/twins-spring-training-roster-pitchers-analysis/
+
+**Trump Administration Live Updates: Top Officials Face More Questions Over Immigration Crackdown**\
+``\
+https://nytimes.com/live/2026/02/12/us/trump-news
+
+**Ratcliffe sorry 'choice of language' in UK 'colonisation' comments offended people**\
+`UK Prime Minister Keir Starmer called on Ratcliffe to apologise and described his comments as "offensive and wrong".`\
+https://nytimes.com/athletic/7041315/2026/02/12/jim-ratcliffe-immigrants-sorry-manchester-united/
+
 **Breezy Johnson adds engagement to gold medal in a memorable Olympic week**\
 `The downhill gold medal champion on Sunday, Johnson followed it up by getting engaged following Thursday's super-G.`\
 https://nytimes.com/athletic/7041348/2026/02/12/breezy-johnson-engaged-winter-olympics-downhill-gold/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-th
 **Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
 `A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
 https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
-
-**Tuchel's new England contract makes sense but it's still a risk**\
-`The decision to extend the head coach's tenure until 2028 quashes immediate club-job speculation but he still needs a good World Cup`\
-https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
-
-**How a blue-chip Utah signing day flip ended up at Michigan a month later**\
-`Salesi Moa flipped from Tennessee to Utah in December, only to follow Kyle Whittingham to Michigan in January. Here's what happened.`\
-https://nytimes.com/athletic/7039315/2026/02/12/salesi-moa-michigan-utah-kyle-whittingham/
-
-**Who is David Jimenez, the Real Madrid right-back who started ahead of Carvajal and Trent?**\
-`He was a surprise starter against Valencia, but the 21-year-old Jimenez impressed with his composed performance at Mestalla`\
-https://nytimes.com/athletic/7041155/2026/02/12/real-madrid-david-jimenez-trent-carvajal/
-
-**Brazilian club Guarani hold half-time 'funeral' for relegated rivals Ponte Preta**\
-`Guarani fans' celebrations during the interval of the game were recorded and have gone viral on social media.`\
-https://nytimes.com/athletic/7041139/2026/02/12/brazil-team-funeral-relegation-guarani-ponte-preta/
-
-**What do the Rangers have in prospect Liam Greentree?**\
-`Though they were in a tough spot with Panarin, the Rangers did well to get Greentree from Los Angeles. Here's what he brings to the table.`\
-https://nytimes.com/athletic/7039448/2026/02/12/rangers-liam-greentree-artemi-panarin-trade/
-
-**College baseball NCAA Tournament projections: SEC, ACC dominate at-large pool**\
-`Last year, the SEC set a record by sending 13 teams to Regionals. Could that record fall in 2026?`\
-https://nytimes.com/athletic/7018152/2026/02/12/college-baseball-ncaa-tournament-projections-2026/
 
