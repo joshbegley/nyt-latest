@@ -1,3 +1,15 @@
+**Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
+`A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
+https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
+
+**Tuchel's new England contract makes sense but it's still a risk**\
+`The decision to extend Tuchel's tenure until 2028 quashes immediate speculation but he still needs a good World Cup`\
+https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
+
+**How a blue-chip Utah signing day flip ended up at Michigan a month later**\
+`Salesi Moa flipped from Tennessee to Utah in December, only to follow Kyle Whittingham to Michigan in January. Here's what happened.`\
+https://nytimes.com/athletic/7039315/2026/02/12/salesi-moa-michigan-utah-kyle-whittingham/
+
 **Who is David Jimenez, the Real Madrid right-back who started ahead of Carvajal and Trent?**\
 `He was a surprise starter against Valencia, but the 21-year-old Jimenez impressed with his composed performance at Mestalla`\
 https://nytimes.com/athletic/7041155/2026/02/12/real-madrid-david-jimenez-trent-carvajal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7039316/2026/02/12/nfl-draft-2026-rankings-top-100-
 **Fred Warner's guarantee caps off busy Super Bowl week for 49ers players, coach**\
 `Warner made a big prediction, George Kittle hinted at a possible Deebo Samuel return and the 49ers are going to Australia.`\
 https://nytimes.com/athletic/7040010/2026/02/12/fred-warner-49ers-super-bowl-guarantee/
-
-**How to watch the U.S. men's hockey team at the 2026 Winter Olympics**\
-`The United States takes aim at its first gold medal since 1980 and its third ever in men's hockey.`\
-https://nytimes.com/athletic/7002676/2026/02/12/usa-mens-hockey-2026-winter-olympics-schedule-games/
-
-**College hoops' last undefeated team still has something to prove, but feels 'zero pressure'**\
-`Despite the best start in program history, Miami might have to win the MAC tournament and secure the automatic berth to make the NCAAs.`\
-https://nytimes.com/athletic/7039671/2026/02/12/ncaa-tournament-mens-basketball-miami-of-ohio/
-
-**Italy's Federica Brignone wins Olympic super-G gold, 10 months after bad injury**\
-`The Italian star completed a remarkable comeback to the sport, winning gold in the super-G on Thursday 10 months after a brutal injury.`\
-https://nytimes.com/athletic/7041178/2026/02/12/winter-olympics-federica-brignone-gold-super-g-alpine-skiing-italy/
 

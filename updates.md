@@ -1,3 +1,15 @@
+**Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
+`A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
+https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
+
+**Tuchel's new England contract makes sense but it's still a risk**\
+`The decision to extend Tuchel's tenure until 2028 quashes immediate speculation but he still needs a good World Cup`\
+https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
+
+**How a blue-chip Utah signing day flip ended up at Michigan a month later**\
+`Salesi Moa flipped from Tennessee to Utah in December, only to follow Kyle Whittingham to Michigan in January. Here's what happened.`\
+https://nytimes.com/athletic/7039315/2026/02/12/salesi-moa-michigan-utah-kyle-whittingham/
+
 **Who is David Jimenez, the Real Madrid right-back who started ahead of Carvajal and Trent?**\
 `He was a surprise starter against Valencia, but the 21-year-old Jimenez impressed with his composed performance at Mestalla`\
 https://nytimes.com/athletic/7041155/2026/02/12/real-madrid-david-jimenez-trent-carvajal/
