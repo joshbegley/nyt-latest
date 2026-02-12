@@ -1,3 +1,11 @@
+**A Love Letter to the Grand Romantic Gesture**\
+`In honor of Valentine’s Day, our readers shared moments when they felt truly swept off their feet.`\
+https://nytimes.com/interactive/2026/02/12/well/romantic-gestures-valentines-day.html
+
+**‘We Don’t Know if the Models Are Conscious’**\
+`Have A.I. models already reached consciousness? Dario Amodei, the chief executive of Anthropic, is open to that possibility. He hopes for a relationship between humans and A.I. where “they want the best for you” but you still have your freedom and your will.`\
+https://nytimes.com/video/opinion/100000010695663/we-dont-know-if-the-models-are-conscious.html
+
 **Greg Brown, Guitarist Who Wrote Cake’s Biggest Hit, Dies at 56**\
 `His song “The Distance,” released in 1996, became an anthem for the disaffected members of Generation X.`\
 https://nytimes.com/2026/02/12/arts/music/greg-brown-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010708250/trump-epa-environment-clim
 **Now That It’s Been Unleashed, Can A.I. Be Controlled?**\
 `Could A.I. go rogue? Dario Amodei, the chief executive of Anthropic, says “something will go wrong,” but he believes “there is a science of how to control” the technology.`\
 https://nytimes.com/video/opinion/100000010695660/now-that-its-been-unleashed-can-ai-be-controlled.html
-
-**The Briefing: Brentford 1 Arsenal 1 - How important could Martinelli missed chance be?**\
-`Arsenal were held to a 1-1 draw at Brentford that leaves them just four points clear at the top of the Premier League`\
-https://nytimes.com/athletic/7036649/2026/02/12/brentford-arsenal-report-result-score-analysis/
-
-**Atletico Madrid 4 Barcelona 0 - How good were Atleti? Was Flick's high line to blame?**\
-`Diego Simeone's side raced into a big first-leg advantage in their Copa del Rey semi-final with Barcelona `\
-https://nytimes.com/athletic/7036323/2026/02/12/barcelona-atletico-madrid-copa-del-rey-result-analysis/
 
