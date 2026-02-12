@@ -1,3 +1,15 @@
+**Stuff With Strands**\
+`Kareem Ayas shows some affection.`\
+https://nytimes.com/2026/02/11/crosswords/daily-puzzle-2026-02-12.html
+
+**Michigan State guard Kur Teng gets posterized … by Tom Izzo’s 99-year-old mom**\
+`Izzo was caught by FS1 cameras in a Jan. 20 win at Oregon telling Teng in a huddle: "Kur, you can’t guard my mother."`\
+https://nytimes.com/athletic/7040533/2026/02/11/michigan-state-guard-kur-teng-tom-izzos-mom/
+
+**U.S. Attorney Chosen to Replace Trump Pick Is Quickly Fired by White House**\
+`Federal judges had appointed Donald Kinsella, a veteran litigator, as top prosecutor in the Northern District of New York after the Trump administration’s nominee was found to be serving unlawfully.`\
+https://nytimes.com/2026/02/11/nyregion/donald-kinsella-ndny-sarcone-trump.html
+
 **New-look Pac-12's 2026 football schedule features unique 'flex' games**\
 `Each school will have a “flex” rematch game on the final weekend that will not count toward conference standings but serve league interests.`\
 https://nytimes.com/athletic/7040154/2026/02/11/pac-12-football-schedule-2026-flex/
