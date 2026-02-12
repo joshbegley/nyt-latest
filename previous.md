@@ -1,3 +1,7 @@
+**BYU receiver Parker Kingston charged with felony rape**\
+`The Washington County Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
+https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
+
 **Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
 `At Montefiore and Mount Sinai hospitals, health care workers ratified a deal to end the walkout, but nurses remain on the picket line at NewYork-Presbyterian/Columbia.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-nurses-strike-vote.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-o
 **Four States Sue Administration Over Loss of Public Health Funds**\
 `The states, all led by Democrats, claim the cuts were intended as retribution and will harm efforts to control H.I.V. and other sexually transmitted infections.`\
 https://nytimes.com/2026/02/11/health/hhs-california-public-health-lawsuit.html
-
-**‘Dawson’s Creek’ Heartthrob James Van Der Beek Dies at 48**\
-`James Van Der Beek, who played the wide-eyed, overly sensitive main character on the popular turn-of-the-millennium TV drama series “Dawson’s Creek,” died on Wednesday at age 48.`\
-https://nytimes.com/video/obituaries/archives/100000010706343/james-van-der-beek-obituary.html
 

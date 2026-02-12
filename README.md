@@ -1,5 +1,5 @@
 **BYU receiver Parker Kingston charged with felony rape**\
-`The Washington County Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
+`The Washington County (Utah) Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
 https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
 
 **Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\

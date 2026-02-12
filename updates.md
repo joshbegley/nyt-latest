@@ -1,3 +1,7 @@
+**BYU receiver Parker Kingston charged with felony rape**\
+`The Washington County Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
+https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
+
 **Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
 `At Montefiore and Mount Sinai hospitals, health care workers ratified a deal to end the walkout, but nurses remain on the picket line at NewYork-Presbyterian/Columbia.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-nurses-strike-vote.html
