@@ -1,3 +1,15 @@
+**Judge Ends Deportation Case for Mexican Father of 3 U.S. Marines**\
+`The arrest of Narciso Barranco, who was detained by federal agents while landscaping outside an IHOP in Southern California last June, garnered national attention.`\
+https://nytimes.com/2026/02/12/us/deportation-case-us-mexico-marines-barranco.html
+
+**Help! JetBlue Mangled My Vintage Louis Vuitton Bag and Won’t Pay Up.**\
+`A treasured 1970s heirloom left Florida intact, and arrived on Long Island ripped apart. Why wouldn’t the airline compensate her for the $600 in repairs?`\
+https://nytimes.com/2026/02/12/travel/jetblue-luggage-damage-repairs.html
+
+**Three burning Dodgers questions as spring training opens**\
+`How will the Dodgers handle Shohei Ohtani's workload? Where do the new guys fit in? The back-to-back champs are about to find out.`\
+https://nytimes.com/athletic/7037984/2026/02/12/dodgers-spring-training-key-questions/
+
 **Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
 `Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
 https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
