@@ -1,3 +1,7 @@
+**Dillon Brooks picks up 16th technical foul of season, faces one-game suspension**\
+`After getting called for a foul, Brooks exchanged words with official James Williams. Williams called the technical foul.`\
+https://nytimes.com/athletic/7040636/2026/02/11/dillon-brooks-suns-16th-technical-foul-faces-suspension/
+
 **Jose Alvarado knocks down eight 3s, adds fuel to Knicks' blowout win vs. 76ers**\
 `As the pro-Knicks crowd drowned out the sadness of the 76ers faithful, each 3 New York's newest guard tossed up was met with loud applause.`\
 https://nytimes.com/athletic/7040587/2026/02/11/jose-alvarado-stats-knicks-76ers/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/11/style/nancy-guthrie-missing-savannah.html
 **Where to Stream James Van Der Beek’s Best Performances**\
 `The actor seemed to understand early on that his lasting legacy would be the title character of “Dawson’s Creek.” But he found ways to subvert his all-American persona.`\
 https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-streaming-movies-tv.html
-
-**This Comet Stopped Spinning. Then It Started Rotating Backward.**\
-`The unusual event, never seen before, might be a way small comets are “blown to bits” in the solar system.`\
-https://nytimes.com/2026/02/11/science/comet-spinning-backwards.html
 

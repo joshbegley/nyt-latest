@@ -1,3 +1,7 @@
+**Jose Alvarado knocks down eight 3s, adds fuel to Knicks' blowout win vs. 76ers**\
+`As the pro-Knicks crowd drowned out the sadness of the 76ers faithful, each 3 New York's newest guard tossed up was met with loud applause.`\
+https://nytimes.com/athletic/7040587/2026/02/11/jose-alvarado-stats-knicks-76ers/
+
 **Cooper Flagg to miss Rising Stars game, NBA All-Star weekend with foot sprain**\
 `The injury was suffered during Dallas' Tuesday matchup against the Phoenix Suns, during which Flagg had 27 points and five rebounds.`\
 https://nytimes.com/athletic/7040613/2026/02/11/cooper-flagg-injury-miss-rising-star-competition-all-star-weekend/
