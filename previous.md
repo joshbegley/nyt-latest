@@ -1,8 +1,32 @@
+**Where to Stream James Van Der Beek’s Best Performances**\
+`The actor seemed to understand early on that his lasting legacy would be the title character of “Dawson’s Creek.” But he found ways to subvert his all-American persona.`\
+https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-streaming-movies-tv.html
+
+**This Comet Stopped Spinning. Then It Started Rotating Backward.**\
+`The unusual event, never seen before, might be a way small comets are “blown to bits” in the solar system.`\
+https://nytimes.com/2026/02/11/science/comet-spinning-backwards.html
+
+**Trump Says He Will Now Invite Democrats to Governors’ Meeting**\
+`Even as he reversed course on excluding Democrats, the president repeatedly attacked a Republican governor who had planned to oversee the meeting.`\
+https://nytimes.com/2026/02/11/us/politics/trump-governors-meeting-democrats.html
+
+**Eyeing the Midterms, Kennedy Pivots Toward Food and Away From Vaccines**\
+`Health Secretary Robert F. Kennedy Jr., who focused heavily on vaccine policy in 2025, will spend this year talking up healthy eating.`\
+https://nytimes.com/2026/02/11/us/politics/rfk-pivot-food-vaccines.html
+
+**2026 Olympics, Day 5 recap: Stolz wins gold, Lemley tops moguls, Chock, Bates take silver**\
+`We’ve picked out some of the top highlights from an Olympic Wednesday.`\
+https://nytimes.com/athletic/7039772/2026/02/11/olympics-day-5-recap-stoltz-lemley-kauf-chock-bates/
+
+**‘The Other Place’ Review: A Psychosexual Update for a Sophocles Tragedy**\
+`In Alexander Zeldin’s naturalistic adaptation of “Antigone,” Tobias Menzies and Emma D’Arcy star as a feuding uncle and niece.`\
+https://nytimes.com/2026/02/11/theater/other-place-review-zeldin-menzies-darcy.html
+
 **Students Won a Revolution in Bangladesh. They Want So Much More.**\
 `At the vanguard of Gen Z movements, protesters in Bangladesh ousted the prime minister in 2024. They now face the hard reality of winning change through elections.`\
 https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
 
-**Orioles improve upon rotation, ink Chris Bassitt to one-year deal: Source**\
+**Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
 `A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
 https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
 
@@ -13,28 +37,4 @@ https://nytimes.com/interactive/2026/02/11/us/trump-foreign-policy-world-quotes.
 **Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
 `Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
 https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
-
-**Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
-`Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
-https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
-
-**BYU receiver Parker Kingston charged with felony rape**\
-`The Washington County (Utah) Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
-https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
-
-**Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
-`At Montefiore and Mount Sinai hospitals, health care workers ratified a deal to end the walkout, but nurses remain on the picket line at NewYork-Presbyterian/Columbia.`\
-https://nytimes.com/2026/02/11/nyregion/nyc-nurses-strike-vote.html
-
-**Artforum’s Top Editor Will Step Down**\
-`The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
-https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
-
-**Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists**\
-`The Naismith Hall of Fame is a step closer to adding to its esteemed roster of myriad basketball legends.`\
-https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-parker-griffin-rivers/
-
-**Dyche sacked by Forest after four months in charge**\
-`It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
-https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
 
