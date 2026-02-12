@@ -1,3 +1,15 @@
+**The nature and nurture behind Celebrini’s seamless arrival on the Olympic stage**\
+`Macklin Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
+https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
+
+**Ancelotti set to sign new four-year Brazil contract**\
+`The new deal will keep Ancelotti, Brazil's first ever foreign coach, in post until 2030.`\
+https://nytimes.com/athletic/7041549/2026/02/12/brazil-carlo-ancelotti-contract-extension/
+
+**Where to Eat Extremely Specific Japanese Foods**\
+`Three destinations for shio pan, torched sweet potatoes and Hamburg steaks with the works.`\
+https://nytimes.com/2026/02/12/dining/where-to-eat-extremely-specific-japanese-foods.html
+
 **Overlooked No More: Clifford Brown, Trumpeter Whose Brief Life Left a Lasting Mark**\
 `He was one of the most talked-about jazz musicians in the 1950s. After he died in a car accident at 25, his influence grew.`\
 https://nytimes.com/2026/02/12/obituaries/clifford-brown-overlooked.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/02/12/books/romance-book-tropes-themes-glos
 **Israeli Army Reservists Are Suspected of Using Inside Knowledge to Bet**\
 `The authorities said several reservists and a civilian were arrested, and two were charged, after an investigation into the use of classified information to bet on military operations.`\
 https://nytimes.com/2026/02/12/world/middleeast/israel-army-reservists-classified-information-bets.html
-
-**How to watch Bucks vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042761/2026/02/12/bucks-vs-thunder-stream-how-to-watch-feb-12/
-
-**Why are Forest going for Pereira and what went wrong under Dyche?**\
-`Forest are moving on to their fourth head coach of the season after sacking Dyche — why did they do it, and what does Vitor Pereira offer?`\
-https://nytimes.com/athletic/7042262/2026/02/12/forest-pereira-dyche-marinakis-new-manager/
-
-**Guard Troops Fully Withdraw From Chicago, Portland and Los Angeles**\
-`President Trump initially deployed the troops in those cities to support law enforcement efforts to tamp down protests against immigration raids and protecting buildings.`\
-https://nytimes.com/2026/02/12/us/national-guard-chicago-portland-los-angeles.html
 
