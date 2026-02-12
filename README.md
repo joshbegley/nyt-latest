@@ -1,3 +1,23 @@
+**‘Hot Girls for Zohran’ Co-Founder Floated Conspiracy Theories About Israel**\
+`Kaif Gilani was fired from Brad Lander’s House campaign after his social media history, which included praise for Hamas and virulent attacks on the police, emerged.`\
+https://nytimes.com/2026/02/11/nyregion/kaif-gilani-hot-girls-zohran.html
+
+**House Passes Strict Voter ID Bill, Amplifying Trump’s Claims of Fraud**\
+`The measure had no path forward in the Senate, where Democrats are all but certain to block it and Republicans have said they will not try to skirt filibuster rules to ram it through.`\
+https://nytimes.com/2026/02/11/us/politics/house-passes-voter-id-bill.html
+
+**Mexico Risks Losing Its Measles-Free Status, Months Before Millions Arrive for World Cup**\
+`The country’s confirmed cases have topped 9,000 since last year, raising fears that a high-stakes evaluation in April could lead to its status being revoked.`\
+https://nytimes.com/2026/02/11/world/americas/mexico-measles-elimination-world-cup.html
+
+**Dyche on Forest future: 'If the owner wants to make a change, that's up to him'**\
+`Forest had 35 shots against Wolves but were held to a 0-0 draw at the City Ground.`\
+https://nytimes.com/athletic/7040186/2026/02/11/nottingham-forest-dyche-marinakis-wolves/
+
+**Bud Cort, Who Starred in 1971’s ‘Harold and Maude,’ Dies at 77**\
+`The role, one of his first, made him a household name and a film idol of the anti-establishment 1970s. But it also limited his growth as an actor.`\
+https://nytimes.com/2026/02/11/movies/bud-cort-dead.html
+
 **In pitch-rigging case, Guardians pitcher seeks to shift more blame onto teammate**\
 `A lawyer for pitcher Luis Ortiz characterized his client as a “victim” of his teammate, All-Star closer Emmanuel Clase.`\
 https://nytimes.com/athletic/7037727/2026/02/11/guardians-luis-ortiz-emmanuel-clase-gambling-case-update/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7040235/2026/02/11/nfl-offseason-questions-2026-sco
 **Stopping Antidepressants During Pregnancy Can Be a Health Risk, Research Shows**\
 `Confusion about the safety of taking the drugs during pregnancy has led to mental health emergencies for some expectant mothers, experts say.`\
 https://nytimes.com/2026/02/11/well/mind/ssri-pregnancy-antidepressants.html
-
-**Despite any Olympic fallout, Ukrainian skeleton athlete has delivered his message**\
-`Should he be disallowed from competing on Thursday, he will be remembered in Ukraine as an athlete who took a bold stand.`\
-https://nytimes.com/athletic/7039783/2026/02/11/olympics-ukraine-helmet-war-russia-ioc-rules/
-
-**Trump Orders the Pentagon to Buy More Coal-Fired Electricity**\
-`Mr. Trump is trying to revive coal, the dirtiest fossil fuel. At the White House, coal executives awarded him a trophy as the “Undisputed Champion of Beautiful Clean Coal.”`\
-https://nytimes.com/2026/02/11/climate/trump-coal-pentagon-electricity.html
-
-**Tamas Vasary, Pianist of Power and Sensitivity, Dies at 92**\
-`He bought technical brilliance and stylistic authority to Romantic-era music, particularly the works of Chopin and Liszt.`\
-https://nytimes.com/2026/02/11/arts/music/tamas-vasary-dead.html
-
-**Senate Hopefuls From Michigan Jostle for Union Support**\
-`Can Democrats win back working-class voters? These candidates are trying.`\
-https://nytimes.com/2026/02/11/us/politics/democrats-michigan-senate-working-class-voters.html
-
-**Former Colombo Boss Is Going Back to Prison for Meeting With Mob Members**\
-`Theodore Persico Jr., once picked to lead one of New York’s five crime families, was supposed to stay away from his former associates. But he nonetheless attended a Christmas party in Brooklyn.`\
-https://nytimes.com/2026/02/11/nyregion/columbo-family-mafia-sentencing.html
 
