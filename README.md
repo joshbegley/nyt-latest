@@ -1,3 +1,11 @@
+**Help! JetBlue Mangled My Vintage Louis Vuitton Bag and Won’t Pay Up.**\
+`A treasured 1970s heirloom left Florida intact, and arrived on Long Island ripped apart. Why wouldn’t the airline compensate her for the $600 in repairs?`\
+https://nytimes.com/2026/02/12/travel/jetblue-luggage-damage-repairs.html
+
+**Three burning Dodgers questions as spring training opens**\
+`How will the Dodgers handle Shohei Ohtani's workload? Where do the new guys fit in? The back-to-back champs are about to find out.`\
+https://nytimes.com/athletic/7037984/2026/02/12/dodgers-spring-training-key-questions/
+
 **Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
 `Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
 https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039637/2026/02/12/college-basketball-tiers-selecti
 **Twins spring training guide: 30 thoughts on all 30 pitchers in major-league camp**\
 `Stars like Pablo López and Joe Ryan are joined by top prospects and Triple-A journeymen in competing for 13 spots on the Opening Day roster.`\
 https://nytimes.com/athletic/6999263/2026/02/12/twins-spring-training-roster-pitchers-analysis/
-
-**Trump Administration Live Updates: Top Officials Face More Questions Over Immigration Crackdown**\
-``\
-https://nytimes.com/live/2026/02/12/us/trump-news
-
-**Ratcliffe sorry 'choice of language' in UK 'colonisation' comments offended people**\
-`UK Prime Minister Keir Starmer called on Ratcliffe to apologise and described his comments as "offensive and wrong".`\
-https://nytimes.com/athletic/7041315/2026/02/12/jim-ratcliffe-immigrants-sorry-manchester-united/
 
