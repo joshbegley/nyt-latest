@@ -1,3 +1,15 @@
+**Fantasy basketball hot topic of the week: Need-to-knows from the NBA's likely tanking teams**\
+`Stan Son identifies the players who could benefit most on the NBA teams likely to tank the rest of the season.`\
+https://nytimes.com/athletic/7042461/2026/02/12/fantasy-basketball-hot-topic-tanking/
+
+**How Did Trump Become Morally Acceptable?**\
+`In his final appearance on The Conversation, the Opinion columnist David Brooks says goodbye to The Times and reflects on how “moral ruination” in America paved the way for Trump.`\
+https://nytimes.com/video/opinion/100000010702582/how-did-trump-become-morally-acceptable.html
+
+**In Munich, Europe’s Leaders Wonder if They Can Ever Trust America Again**\
+`Officials gather on Friday for Europe’s biggest annual security summit, where a speech by Vice President JD Vance last year started an unraveling of trans-Atlantic relations.`\
+https://nytimes.com/2026/02/12/world/europe/munich-conference-europe-trump-vance-trust-rubio.html
+
 **Chloe Kim, once a teenage phenom, loses to a new one.**\
 `Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe.`\
 https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/12/us/national-guard-chicago-portland-los-angeles.ht
 **How to watch Trail Blazers vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7042732/2026/02/12/trail-blazers-vs-jazz-stream-how-to-watch-feb-12/
-
-**How to watch Mavericks vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7042729/2026/02/12/mavericks-vs-lakers-stream-how-to-watch-feb-12/
-
-**UNC star Caleb Wilson out indefinitely with fractured hand**\
-`Wilson is a projected top-five pick in the upcoming 2026 NBA Draft.`\
-https://nytimes.com/athletic/7042690/2026/02/12/unc-basketball-caleb-wilson-injury/
-
-**Intelligence Dispute Centers on Kushner Reference in Intercepted Communication**\
-`A whistle-blower has accused Tulsi Gabbard, the director of national intelligence, of blocking distribution of a report that Jared Kushner’s name came up in an intercepted communication about Iran.`\
-https://nytimes.com/2026/02/12/us/politics/kushner-gabbard-iran-intelligence.html
 
