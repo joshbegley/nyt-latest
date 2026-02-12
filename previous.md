@@ -1,3 +1,19 @@
+**Artforum’s Top Editor Will Step Down**\
+`The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
+https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
+
+**Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists**\
+`The Naismith Hall of Fame is a step closer to adding to its esteemed roster of myriad basketball legends.`\
+https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-parker-griffin-rivers/
+
+**Dyche sacked by Forest after four months in charge**\
+`It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
+https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
+
+**Meet Caleb Durbin: How new Red Sox infielder fits and his connection to Dustin Pedroia**\
+`Durbin, a right-handed hitter, balances the lineup and could hit in the six-hole after lefty hitter Wilyer Abreu, manager Alex Cora said.`\
+https://nytimes.com/athletic/7039856/2026/02/11/caleb-durbin-red-sox-spring-training-mlb/
+
 **Kyle Larson signs 5-year extension with Hendrick Motorsports**\
 `The move solidifies one of the elite driver-crew chief pairings in the garage.`\
 https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-motorsports/
@@ -21,20 +37,4 @@ https://nytimes.com/video/obituaries/archives/100000010706343/james-van-der-beek
 **‘Hot Girls for Zohran’ Co-Founder Floated Conspiracy Theories About Israel**\
 `Kaif Gilani was fired from Brad Lander’s House campaign after his social media history, which included praise for Hamas and virulent attacks on the police, emerged.`\
 https://nytimes.com/2026/02/11/nyregion/kaif-gilani-hot-girls-zohran.html
-
-**House Passes Strict Voter ID Bill, Amplifying Trump’s Claims of Fraud**\
-`The measure had no path forward in the Senate, where Democrats are all but certain to block it and Republicans have said they will not try to skirt filibuster rules to ram it through.`\
-https://nytimes.com/2026/02/11/us/politics/house-passes-voter-id-bill.html
-
-**Mexico Risks Losing Its Measles-Free Status, Months Before Millions Arrive for World Cup**\
-`The country’s confirmed cases have topped 9,000 since last year, raising fears that a high-stakes evaluation in April could lead to its status being revoked.`\
-https://nytimes.com/2026/02/11/world/americas/mexico-measles-elimination-world-cup.html
-
-**Dyche on Forest future: 'If the owner wants to make a change, that's up to him'**\
-`Forest had 35 shots against Wolves but were held to a 0-0 draw at the City Ground.`\
-https://nytimes.com/athletic/7040186/2026/02/11/nottingham-forest-dyche-marinakis-wolves/
-
-**Bud Cort, Who Starred in 1971’s ‘Harold and Maude,’ Dies at 77**\
-`The role, one of his first, made him a household name and a film idol of the anti-establishment 1970s. But it also limited his growth as an actor.`\
-https://nytimes.com/2026/02/11/movies/bud-cort-dead.html
 

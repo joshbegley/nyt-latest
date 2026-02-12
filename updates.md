@@ -1,3 +1,19 @@
+**Artforum’s Top Editor Will Step Down**\
+`The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
+https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
+
+**Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists**\
+`The Naismith Hall of Fame is a step closer to adding to its esteemed roster of myriad basketball legends.`\
+https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-parker-griffin-rivers/
+
+**Dyche sacked by Forest after four months in charge**\
+`It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
+https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
+
+**Meet Caleb Durbin: How new Red Sox infielder fits and his connection to Dustin Pedroia**\
+`Durbin, a right-handed hitter, balances the lineup and could hit in the six-hole after lefty hitter Wilyer Abreu, manager Alex Cora said.`\
+https://nytimes.com/athletic/7039856/2026/02/11/caleb-durbin-red-sox-spring-training-mlb/
+
 **Kyle Larson signs 5-year extension with Hendrick Motorsports**\
 `The move solidifies one of the elite driver-crew chief pairings in the garage.`\
 https://nytimes.com/athletic/7038970/2026/02/11/kyle-larson-contract-hendrick-motorsports/
