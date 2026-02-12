@@ -1,3 +1,7 @@
+**Rewriting the Fashion Rules**\
+`With her first show for Proenza Schouler, Rachel Scott was trying to pull off more than a reinvention.`\
+https://nytimes.com/2026/02/12/style/proenza-schouler-rachel-scott-new-york-fashion-week.html
+
 **Judge Ends Deportation Case for Mexican Father of 3 U.S. Marines**\
 `The arrest of Narciso Barranco, who was detained by federal agents while landscaping outside an IHOP in Southern California last June, garnered national attention.`\
 https://nytimes.com/2026/02/12/us/deportation-case-us-mexico-marines-barranco.html
