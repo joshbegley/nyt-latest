@@ -15,7 +15,7 @@ https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-th
 https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
 
 **Tuchel's new England contract makes sense but it's still a risk**\
-`The decision to extend Tuchel's tenure until 2028 quashes immediate speculation but he still needs a good World Cup`\
+`The decision to extend the head coach's tenure until 2028 quashes immediate club-job speculation but he still needs a good World Cup`\
 https://nytimes.com/athletic/7041051/2026/02/12/thomas-tuchel-england-contract-risk/
 
 **How a blue-chip Utah signing day flip ended up at Michigan a month later**\
