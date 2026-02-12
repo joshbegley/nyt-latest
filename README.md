@@ -1,3 +1,15 @@
+**Bears mock draft 1.0: Defense is clear priority, starting with front 7**\
+`In our first look at some options for the Bears in the 2026 draft, the focus is on the defensive line with the first two rounds.`\
+https://nytimes.com/athletic/7039577/2026/02/12/bears-mock-draft-kayden-mcdonald/
+
+**Chiefs NFL mock draft 1.0: A first-round pivot — then a local pick in Round 2**\
+`Yes, the Chiefs should target defensive line or receiver in the first round ... unless the draft falls like this.`\
+https://nytimes.com/athletic/7039095/2026/02/12/chiefs-mock-draft-francis-mauigoa/
+
+**How does a NASCAR team dazzle sponsors at Daytona? 'Magic, gritty creativity'**\
+`Powered by the spirit of "Chopped" and a Wyndham timeshare kitchen, Legacy Motor Club elevated its VIP catering performance.`\
+https://nytimes.com/athletic/7034416/2026/02/12/legacy-motor-club-daytona-500-jimmie-johnson/
+
 **One-on-one with HOFer Luke Kuechly: Drew Brees, Cam Newton's candidacy and nerves**\
 `The former Panthers linebacker discusses the case for Newton in the Hall of Fame and what it was like going against Brees.`\
 https://nytimes.com/athletic/7040014/2026/02/12/luke-kuechly-hall-of-fame-drew-brees-cam-newton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7040065/2026/02/12/fifa-world-cup-ice-immigration-s
 **Scottie Barnes has exceeded expectations this season, but they'll only continue to rise**\
 `"Scottie is defensive player of the year," Darko Rajaković said Sunday. "Scottie's an All-Star. Scottie is gonna be … Finals MVP one day."`\
 https://nytimes.com/athletic/7040657/2026/02/12/raptors-pistons-scottie-barnes-expectations/
-
-**What’s the future best case and worst case for Juraj Slafkovský and Shane Wright?**\
-`Two players who battled for the No. 1 pick spot in 2022 are heading in opposite directions. What is their future outlook?`\
-https://nytimes.com/athletic/7036274/2026/02/12/nhl-best-case-worst-case-juraj-slafkovsky-shane-wright/
-
-**Why Mercedes' engine loophole dispute suddenly has eight F1 cars at risk**\
-`Mercedes found an advantage with its new engine – but F1 politics are already threatening to undo it`\
-https://nytimes.com/athletic/7039024/2026/02/12/mercedes-f1-engine-loophole-politics/
-
-**Vikings mock draft 1.0: Why Minnesota should bolster the secondary in Round 1**\
-`One reason the Vikings fired GM Kwesi Adofo-Mensah was the team's struggles in the draft. They're hoping that changes in April.`\
-https://nytimes.com/athletic/7039190/2026/02/12/vikings-nfl-mock-draft-cornerback-jermod-mccoy/
 
