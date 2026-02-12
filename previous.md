@@ -1,5 +1,9 @@
+**Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
+`Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
+https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
+
 **BYU receiver Parker Kingston charged with felony rape**\
-`The Washington County Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
+`The Washington County (Utah) Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
 https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
 
 **Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/11/arts/television/james-van-der-beek-photos.html
 **Camp intrigue: Giants' top prospect Bryce Eldridge grabs an outfielder's glove**\
 `Giants manager Tony Vitello requested that Eldridge spend a little time in the outfield grass.`\
 https://nytimes.com/athletic/7040128/2026/02/11/giants-prospect-bryce-eldridge-outfield/
-
-**Four States Sue Administration Over Loss of Public Health Funds**\
-`The states, all led by Democrats, claim the cuts were intended as retribution and will harm efforts to control H.I.V. and other sexually transmitted infections.`\
-https://nytimes.com/2026/02/11/health/hhs-california-public-health-lawsuit.html
 

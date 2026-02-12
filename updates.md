@@ -1,3 +1,11 @@
+**Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
+`Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
+https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
+
+**BYU receiver Parker Kingston charged with felony rape**\
+`The Washington County (Utah) Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
+https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
+
 **BYU receiver Parker Kingston charged with felony rape**\
 `The Washington County Attorney’s Office's charge stems from a reported sexual assault in February 2025 in St. George, Utah.`\
 https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-charge/
