@@ -18,6 +18,10 @@ https://nytimes.com/athletic/7038942/2026/02/12/nfl-2026-power-rankings-non-play
 `Minnesota Aurora has taken multiple actions to oppose ICE in the Twin Cities and support its community.`\
 https://nytimes.com/athletic/7034705/2026/02/12/minnesota-womens-soccer-team-community-ice-raids/
 
+**What would MLB look like with a salary cap? Examining the wide-ranging, game-changing effects**\
+`From free agency to guaranteed contracts to franchise values, a salary cap would completely remake the MLB landscape.`\
+https://nytimes.com/athletic/7040560/2026/02/12/mlb-salary-cap-impacts-explained/
+
 **Joy Dunne, U.S. women's hockey's youngest player, is making her mark at the Olympics**\
 `Dunne, in her Olympic debut, is part of a young, dominant American team on a quest for gold in Milan.`\
 https://nytimes.com/athletic/7036326/2026/02/12/joy-dunne-us-olympics-womens-hockey-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/weather/ice-great-lakes-satellite-winter.html
 **The 'Harvard of umpire schools' closes as changing times favor tech over tradition**\
 `An umpiring tradition born in 1938 reflects on its legacy as robo umps and other advancements usher in a new era. `\
 https://nytimes.com/athletic/7040293/2026/02/12/harry-wendelstedt-umpire-school-closes-mlb-tech/
-
-**New York Jets seven-round mock draft: A desperate search for defensive playmakers**\
-`Plus, a developmental quarterback on Day 2 in our first projection of the offseason.`\
-https://nytimes.com/athletic/7037539/2026/02/12/new-york-jets-seven-round-mock-draft/
 
