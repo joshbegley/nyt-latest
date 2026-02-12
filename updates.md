@@ -1,3 +1,7 @@
+**Baby, 17 Days Old, Found Dead From Fire That Killed Her Mother**\
+`Two days after a fatal house fire in Queens, firefighters returned to the wreckage and found Emma Alcantara’s body. She and her mother, Miguelina, lived in an illegal basement apartment.`\
+https://nytimes.com/2026/02/11/nyregion/fire-deaths-infant-mother-queens.html
+
 **Top U.S. Energy Official Presses Venezuela to Do More to Spur Investment**\
 `Energy Secretary Chris Wright is one of the highest ranking American officials to visit Venezuela in nearly 30 years, marking warmer ties between Washington and Caracas.`\
 https://nytimes.com/2026/02/11/world/americas/us-venezuela-foreign-investment-oil.html
