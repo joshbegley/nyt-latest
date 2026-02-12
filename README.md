@@ -1,3 +1,27 @@
+**Canucks trade targets: 7 prospects that Vancouver could add to fuel the rebuild**\
+`Let's take a look at a handful of players outside of the NHL that Vancouver could consider attempting to acquire.`\
+https://nytimes.com/athletic/7041046/2026/02/12/canucks-trade-targets-3/
+
+**How to watch Florida vs. Oklahoma women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7041893/2026/02/12/florida-vs-oklahoma-stream-how-to-watch-feb-12/
+
+**Elected Officials Condemn Stonewall Pride Flag Removal Ahead of Rally**\
+`Activists and officials plan to re-raise the flag on Thursday, setting up a defiant response to the Trump administration’s assault on diversity initiatives.`\
+https://nytimes.com/2026/02/12/nyregion/stonewall-flag-protest-nyc.html
+
+**Gary Bettman: NHL has no plans to reintegrate Russia ahead of 2028 World Cup**\
+`Eager to avoid taking a political stand, the NHL will defer to the International Olympic Committee on Russia.`\
+https://nytimes.com/athletic/7041697/2026/02/12/gary-bettman-nhl-russia-world-cup-hockey/
+
+**Family Grieves Daughter Killed in Canada Mass Shooting**\
+`Lance Younge of Tumbler Ridge, British Columbia, urged other to “hold your kids tight” in the wake of Tuesday’s mass shooting. His daughter, 12-year-old Kylie Smith, was one of the victims at a local school.`\
+https://nytimes.com/video/world/americas/100000010708007/canada-shooting-tumbler-ridge-kylie-smith.html
+
+**How to watch TCU vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7041878/2026/02/12/tcu-vs-baylor-stream-how-to-watch-feb-12/
+
 **How to watch Penn State vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Penn State Lady Lions play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7041874/2026/02/12/penn-state-vs-maryland-stream-how-to-watch-feb-12/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7041864/2026/02/12/wake-forest-vs-louisville-stream
 **How to watch SMU vs. North Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the SMU Mustangs play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7041862/2026/02/12/smu-vs-north-carolina-stream-how-to-watch-feb-12/
-
-**Share Your Memories and Photos of Six Flags Over the Years**\
-`We’re asking readers about their memories of trips to their local amusement parks for an upcoming story.`\
-https://nytimes.com/2026/02/12/us/six-flags-closings-memories-photos.html
-
-**Curler Rich Ruohonen, 54, becomes oldest American to compete at Winter Olympics**\
-`Ruohonen is the alternate on skip Danny Casper's team. He was called in to play for one end in a loss to Switzerland.`\
-https://nytimes.com/athletic/7041666/2026/02/12/rich-ruohonen-winter-olympics-curling-oldest-american/
-
-**What the odds sheet tells us about 2026 Topps Baseball Series 1**\
-`Series 1 is a massive set with a lot to offer, but figuring out the best configuration to buy can be hard. We're here to help. `\
-https://nytimes.com/athletic/7041529/2026/02/12/2026-topps-baseball-series-1-odds-analysis/
-
-**The Young Lives Lost and Upended in Canada’s Mass Shooting**\
-`The attack at a secondary school and a private residence in the small, remote community in British Columbia has left families stunned and grief-stricken.`\
-https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-victims-canada.html
-
-**Giannis on Chelsea investment: ‘Opportunity came and I was like, ‘Say less. I want to do it’**\
-`The NBA superstar has spoken about his love of football, but what does he and the club get from the association?`\
-https://nytimes.com/athletic/7039176/2026/02/12/giannis-antetokounmpo-chelsea-investment/
-
-**Easy Chocolate Cake and More Reader Favorites**\
-`“My pregnant girlfriend saw this recipe on the front page today and demanded we make it at once. Now we are lying in a food coma.”`\
-https://nytimes.com/2026/02/12/dining/easy-chocolate-cake-and-more-reader-favorites.html
 
