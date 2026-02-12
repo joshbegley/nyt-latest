@@ -1,3 +1,7 @@
+**Anthropic Pushes Its Valuation to $380 Billion With New Funding Round**\
+`The artificial intelligence start-up raised another $30 billion, and its valuation more than doubled since its last funding round in September.`\
+https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-funding.html
+
 **Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
 `The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html

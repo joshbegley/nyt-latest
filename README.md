@@ -1,3 +1,11 @@
+**In an Upset, Analilia Mejia, a Progressive, Wins a Democratic House Race**\
+`Ms. Mejia, a political organizer, beat her main opponent in the New Jersey primary, Tom Malinowski, by a narrow margin after he was battered by negative ads from a pro-Israel group.`\
+https://nytimes.com/2026/02/12/nyregion/analilia-mejia-new-jersey-congress.html
+
+**Team USA gets rolling in men's hockey, beating up Latvia on Day 2 of Olympic tournament**\
+`The Americans opened their Olympic hockey tournament with a 5-1 win over Latvia on Thursday.`\
+https://nytimes.com/athletic/7042530/2026/02/12/olympics-mens-hockey-united-states-latvia/
+
 **Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
 `The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-fundin
 **Christian Walker wants to play every day. Can the Astros make that happen?**\
 `The first baseman is at peace after becoming a first-time father, and dropped some weight after a poor defensive season in 2025.`\
 https://nytimes.com/athletic/7042894/2026/02/12/astros-christian-walker-everyday-first-baseman/
-
-**Is A.I. Coming for Your Job?**\
-`This isn’t your grandparents’ revolution. Anthropic’s chief executive, Dario Amodei, says artificial intelligence will change our world faster than anything we’ve experienced before.`\
-https://nytimes.com/video/opinion/100000010708249/is-ai-coming-for-your-job.html
-
-**Top Republican Ends Bid for Arizona Governor, Showing MAGA’s Power**\
-`Karrin Taylor Robson, a wealthy businesswoman, dropped out after trailing in polls to Representative Andy Biggs, who is more aligned with supporters of President Trump.`\
-https://nytimes.com/2026/02/12/us/politics/karrin-taylor-robson-andy-biggs-arizona-governor.html
 
