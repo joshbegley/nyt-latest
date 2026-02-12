@@ -1,3 +1,7 @@
+**Could Bears, Colts or Giants be next season's Patriots, Seahawks?**\
+`Doug Kezirian spoke to pro bettors and oddsmakers to identify sleeper teams with potential to make some noise in the upcoming NFL season.`\
+https://nytimes.com/athletic/7038808/2026/02/12/super-bowl-nfl-long-shots-odds-chargers-falcons-saints/
+
 **Mass Detention Gets a Lift From the Courts**\
 `A very dangerous ruling in New Orleans.`\
 https://nytimes.com/2026/02/12/opinion/mass-detention-immigration-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/realestate/homes-apartments-for-sale-nyc.html
 **Trump and the Death of Shared Morality in America**\
 `In this installment of The Conversation, David Brooks says goodbye to The Times, and offers his parting thoughts.`\
 https://nytimes.com/2026/02/12/opinion/trump-morality-david-brooks-farewell.html
-
-**End ICE Lawlessness**\
-`Congress must stand firm against President Trump’s assault on the rule of law.`\
-https://nytimes.com/2026/02/12/opinion/ice-congress-trump-dhs.html
 
