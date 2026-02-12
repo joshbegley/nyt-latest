@@ -1,3 +1,7 @@
+**Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
+`At Montefiore and Mount Sinai hospitals, health care workers ratified a deal to end the walkout, but nurses remain on the picket line at NewYork-Presbyterian/Columbia.`\
+https://nytimes.com/2026/02/11/nyregion/nyc-nurses-strike-vote.html
+
 **Artforum’s Top Editor Will Step Down**\
 `The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
 https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
