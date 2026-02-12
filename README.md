@@ -1,3 +1,19 @@
+**The Young Lives Lost and Upended in Canada’s Mass Shooting**\
+`The attack at a secondary school and a private residence in the small, remote community in British Columbia has left families stunned and grief-stricken.`\
+https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-victims-canada.html
+
+**Giannis on Chelsea investment: ‘Opportunity came and I was like, ‘Say less. I want to do it’**\
+`The NBA superstar has spoken about his love of football, but what does he and the club get from the association?`\
+https://nytimes.com/athletic/7039176/2026/02/12/giannis-antetokounmpo-chelsea-investment/
+
+**Easy Chocolate Cake and More Reader Favorites**\
+`“My pregnant girlfriend saw this recipe on the front page today and demanded we make it at once. Now we are lying in a food coma.”`\
+https://nytimes.com/2026/02/12/dining/easy-chocolate-cake-and-more-reader-favorites.html
+
+**Grief Doesn’t Follow a Script**\
+`A death doula reflects on the many ways people process loss — even when tears don’t come.`\
+https://nytimes.com/2026/02/12/well/live/grieving-process.html
+
 **From the chaos of snowboard cross, a repeat champ.**\
 `Alessandro Hämmerle of  Austria came from behind to claim another gold medal in the men’s event.`\
 https://nytimes.com/2026/02/12/world/from-the-chaos-of-snowboard-cross-a-repeat-champ.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/12/movies/nirvanna-the-band-the-show-the-movie-revie
 **Little Houses on the Icelandic Prairie**\
 `Plus: Martin Parr’s visual memoir, a deep dive into macaroni and cheese and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/12/t-magazine/iceland-cabin-retreat-travel.html
-
-**The Bounce: What can the NBA learn from the NHL's 4 Nations Face-Off?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7039520/2026/02/12/nba-all-star-game-nhl-the-bounce/
-
-**South Korean Court Rules Against Women in LG Inheritance Lawsuit**\
-`The widow and two daughters of LG’s former chairman sought to invalidate an inheritance agreement, claiming they were deceived into forfeiting their rightful inheritance.`\
-https://nytimes.com/2026/02/12/business/lg-inheritance-lawsuit.html
-
-**Swiss men's hockey team eager to face powerhouse Canada and 'poke the bear'**\
-`The Swiss, who defeated France 4-0 in their first game on Thursday, believe they can do something special in this Olympic hockey tournament.`\
-https://nytimes.com/athletic/7041562/2026/02/12/switzerland-canada-mens-olympic-hockey/
-
-**The Snow Sure Was Beautiful. Now Here Comes the River of Yuck.**\
-`Melting mega-piles of grimy road snow can release weeks worth of salt, oils (and dog poop) in what one scientist called a “triple whammy.”`\
-https://nytimes.com/2026/02/12/climate/toxic-melting-snow-dog-poop.html
 

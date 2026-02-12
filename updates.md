@@ -1,3 +1,11 @@
+**From the chaos of snowboard cross, a repeat champ.**\
+`Alessandro Hämmerle of  Austria came from behind to claim another gold medal in the men’s event.`\
+https://nytimes.com/2026/02/12/world/from-the-chaos-of-snowboard-cross-a-repeat-champ.html
+
+**Beethoven’s ‘Egmont,’ by Way of Cate Blanchett and Jeremy O. Harris**\
+`Gustavo Dudamel, Blanchett and Harris sit down to discuss their new version of Beethoven’s classic, premiering in Los Angeles this week.`\
+https://nytimes.com/2026/02/12/arts/music/cate-blanchet-jeremy-o-harris-gustavo-dudamel-egmont-los-angeles.html
+
 **Swedish skier Elis Lundholm becomes first transgender Winter Olympian**\
 `Lundholm competed in the women's moguls event on Wednesday.`\
 https://nytimes.com/athletic/7041531/2026/02/12/olympics-transgender-athlete-swedish-skier-elis-lundholm/
