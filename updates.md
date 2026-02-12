@@ -1,3 +1,15 @@
+**Canada begins quest for gold with decisive win over Czechia in Olympic men's hockey**\
+`Canada routed the Czech Republic on Thursday in its Olympic opener. The Canadians face Switzerland on Friday.`\
+https://nytimes.com/athletic/7041938/2026/02/12/olympic-mens-hockey-canada-czechia-results/
+
+**Man Is Fatally Shot at 7-Eleven Near Times Square**\
+`The man was shot in the neck inside the convenience store on Thursday morning, the police said. The 7-Eleven is about two blocks from the Port Authority Bus Terminal.`\
+https://nytimes.com/2026/02/12/nyregion/midtown-7-eleven-shooting.html
+
+**Why Tech Giants Are Accused of Causing Social Media Addiction**\
+`In a series of landmark trials, plaintiffs are alleging that Meta, TikTok, Snap and YouTube caused personal injury through addictive products. Our technology reporter Cecilia Kang describes what’s at stake for tech giants and social media users.`\
+https://nytimes.com/video/technology/100000010701326/why-tech-giants-are-accused-of-causing-social-media-addiction.html
+
 **Daniel Cathiard Dies at 81; Turned Bordeaux Estate Into Champion Winery**\
 `He came to winemaking late, after a career in retail, and turned the 18th-century Chateau Smith Haut Lafitte into one of France’s most esteemed vineyards.`\
 https://nytimes.com/2026/02/12/dining/drinks/daniel-cathiard-dead.html
