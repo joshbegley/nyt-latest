@@ -1,3 +1,11 @@
+**The Meals Chefs Make When They’re Feeling Sick**\
+`Adaptable recipes for dishes that offer comfort and nourishment.`\
+https://nytimes.com/2026/02/12/t-magazine/sick-comfort-recipes.html
+
+**Read the document**\
+`A federal judge temporarily blocked Defense Secretary Pete Hegseth from punishing Senator Mark Kelly, Democrat of Arizona, for participating in a video that warned active-duty service members not to follow illegal orders.`\
+https://nytimes.com/interactive/2026/02/12/us/politics/kellyruling021226.html
+
 **As U.S. Bombs Somalia, Israel Shakes Status Quo on Horn of Africa**\
 `The region has become a critical theater for global rivalries amid Israel’s recognition of breakaway Somaliland and Washington’s counterterrorism efforts.`\
 https://nytimes.com/2026/02/12/world/africa/israel-somaliland-mideast-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/
 **The challenges facing Tottenham's next manager — and how they can be addressed**\
 `Spurs sacked Frank after a woeful run of league form, and there will be problems to solve for his replacement`\
 https://nytimes.com/athletic/7041203/2026/02/12/tottenham-new-manager-challenges-analysis/
-
-**Guardians Opening Day roster projection 2.0: Sorting through a crowded infield and outfield**\
-`With most of the players having reported to camp, who has the inside track on an Opening Day roster spot?`\
-https://nytimes.com/athletic/7038849/2026/02/12/guardians-opening-day-roster-projection-2-infield-outfield/
-
-**Bottega Veneta’s New Creative Director Puts Her Spin on a Classic Bag**\
-`For her debut, Louise Trotter reinterprets a signature woven leather accessory.`\
-https://nytimes.com/2026/02/12/t-magazine/bottega-veneta-bag-louise-trotter.html
 
