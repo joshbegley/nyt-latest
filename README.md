@@ -1,3 +1,7 @@
+**Mamdani Taps Prosecutor in R. Kelly Case to Run Anti-Corruption Agency**\
+`Nadia Shihata was picked to run the Department of Investigation, an independent city agency that has been weakened in recent years.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-investigations-nadia-shihata.html
+
 **Search for Nancy Guthrie enters a 12th day.**\
 `By Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nancy-guthrie-enters-a-12th-day
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/arts/pen-america-new-ceo-gaza.html
 **Mainoo 'absolutely back in the frame' for England selection, says Tuchel**\
 `Mainoo's team-mates Luke Shaw and Harry Maguire are also in the plans of Tuchel, who cited Manchester United's return to a back four.`\
 https://nytimes.com/athletic/7042389/2026/02/12/mainoo-manchester-united-england-return-tuchel/
-
-**The Meals Chefs Make When They’re Feeling Sick**\
-`Adaptable recipes for dishes that offer comfort and nourishment.`\
-https://nytimes.com/2026/02/12/t-magazine/sick-comfort-recipes.html
 
