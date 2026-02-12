@@ -1,3 +1,7 @@
+**In a photo finish, Alessandro Hämmerle wins men's snowboard cross gold**\
+`Hämmerle beat Canada's Éliot Grondin by the slenderest of margins to win snowboard cross Olympic gold. `\
+https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboard-cross-2026-winter-olympics/
+
 **Rewriting the Fashion Rules**\
 `With her first show for Proenza Schouler, Rachel Scott was trying to pull off more than a reinvention.`\
 https://nytimes.com/2026/02/12/style/proenza-schouler-rachel-scott-new-york-fashion-week.html
