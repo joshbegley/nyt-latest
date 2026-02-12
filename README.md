@@ -1,3 +1,7 @@
+**El Paso Incident Highlights Gaps in America’s Drone Defense Industry**\
+`The U.S. has spent billions of dollars developing counter-drone technology, but much of it needs more testing in the real world.`\
+https://nytimes.com/2026/02/12/business/el-paso-drone-technology.html
+
 **‘Love Story’ Recreates a Tragic Romance**\
 `The series dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, who married in 1996 and died a few years later. Here’s what to know.`\
 https://nytimes.com/2026/02/12/arts/television/love-story-john-f-kennedy-jr-carolyn-bessette.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-mackli
 **Ancelotti set to sign new four-year Brazil contract**\
 `The new deal will keep Ancelotti, Brazil's first ever foreign coach, in post until 2030.`\
 https://nytimes.com/athletic/7041549/2026/02/12/brazil-carlo-ancelotti-contract-extension/
-
-**Where to Eat Extremely Specific Japanese Foods**\
-`Three destinations for shio pan, torched sweet potatoes and Hamburg steaks with the works.`\
-https://nytimes.com/2026/02/12/dining/where-to-eat-extremely-specific-japanese-foods.html
 
