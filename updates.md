@@ -1,3 +1,19 @@
+**The Young Lives Lost and Upended in Canada’s Mass Shooting**\
+`The attack at a secondary school and a private residence in the small, remote community in British Columbia has left families stunned and grief-stricken.`\
+https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-victims-canada.html
+
+**Giannis on Chelsea investment: ‘Opportunity came and I was like, ‘Say less. I want to do it’**\
+`The NBA superstar has spoken about his love of football, but what does he and the club get from the association?`\
+https://nytimes.com/athletic/7039176/2026/02/12/giannis-antetokounmpo-chelsea-investment/
+
+**Easy Chocolate Cake and More Reader Favorites**\
+`“My pregnant girlfriend saw this recipe on the front page today and demanded we make it at once. Now we are lying in a food coma.”`\
+https://nytimes.com/2026/02/12/dining/easy-chocolate-cake-and-more-reader-favorites.html
+
+**Grief Doesn’t Follow a Script**\
+`A death doula reflects on the many ways people process loss — even when tears don’t come.`\
+https://nytimes.com/2026/02/12/well/live/grieving-process.html
+
 **From the chaos of snowboard cross, a repeat champ.**\
 `Alessandro Hämmerle of  Austria came from behind to claim another gold medal in the men’s event.`\
 https://nytimes.com/2026/02/12/world/from-the-chaos-of-snowboard-cross-a-repeat-champ.html
