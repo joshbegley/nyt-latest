@@ -1,3 +1,23 @@
+**After apologizing for World Series absence, Berríos appears key for Jays rotation**\
+`“I just made maybe one bad decision to go home,” Berríos said. “To keep working on my rehab and stay close to my family.”`\
+https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/
+
+**The challenges facing Tottenham's next manager — and how they can be addressed**\
+`Spurs sacked Frank after a woeful run of league form, and there will be problems to solve for his replacement`\
+https://nytimes.com/athletic/7041203/2026/02/12/tottenham-new-manager-challenges-analysis/
+
+**Guardians Opening Day roster projection 2.0: Sorting through a crowded infield and outfield**\
+`With most of the players having reported to camp, who has the inside track on an Opening Day roster spot?`\
+https://nytimes.com/athletic/7038849/2026/02/12/guardians-opening-day-roster-projection-2-infield-outfield/
+
+**Bottega Veneta’s New Creative Director Puts Her Spin on a Classic Bag**\
+`For her debut, Louise Trotter reinterprets a signature woven leather accessory.`\
+https://nytimes.com/2026/02/12/t-magazine/bottega-veneta-bag-louise-trotter.html
+
+** It’s a Date: 7 NYC Destinations to Fall in Love**\
+`FX’s “Love Story: John F.`\
+https://nytimes.com/paidpost/fx-love-story/-its-a-date-7-nyc-destinations-to-fall-in-love.html
+
 **Five things we can learn about the Giants' PECOTA projections**\
 `PECOTA isn't exactly bullish on the 2026 San Francisco Giants, but the projection system isn't counting them out either.`\
 https://nytimes.com/athletic/7042168/2026/02/12/sf-giants-pecota-projections-analysis/
