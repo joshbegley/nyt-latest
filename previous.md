@@ -1,13 +1,17 @@
+**Heraskevych, Ukrainian DQed over skeleton helmet, files appeal to CAS**\
+`Heraskevych is asking to be immediately reinstated or given the chance to compete in provisional runs until the court rules.`\
+https://nytimes.com/athletic/7042600/2026/02/12/olympics-vladyslav-heraskevych-ukrainian-helmet-skeleton-appeal/
+
 **Your 35 (New! Crowdsourced!) Dating Rules**\
 `On Valentine’s Day 31 years ago, the book “The Rules” provided 35 decidedly retro “rules” for dating. We thought it was time for a refresh, so we asked people what rules they rely on today. Here are the best.`\
 https://nytimes.com/2026/02/12/style/modern-dating-rules.html
 
 **How Europe Woke Up to Trump**\
 `European leaders are wondering if they can ever trust the U.S. again.`\
-https://nytimes.com/2026/02/12/world/europe-trump-munich-security-council-canada-minnesota.html
+https://nytimes.com/2026/02/12/world/europe-trump-munich-security-canada-minnesota.html
 
-**The nature and nurture behind Celebrini’s seamless arrival on the Olympic stage**\
-`Macklin Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
+**The nature and nurture behind Macklin Celebrini’s seamless arrival on the Olympic stage**\
+`Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
 https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
 
 **Ancelotti set to sign new four-year Brazil contract**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010702582/how-did-trump-become-morally-a
 **In Munich, Europe’s Leaders Wonder if They Can Ever Trust America Again**\
 `Officials gather on Friday for Europe’s biggest annual security summit, where a speech by Vice President JD Vance last year started an unraveling of trans-Atlantic relations.`\
 https://nytimes.com/2026/02/12/world/europe/munich-conference-europe-trump-vance-trust-rubio.html
-
-**Chloe Kim, once a teenage phenom, loses to a new one.**\
-`Kim was upset in heavy snow by a new star, 17-year-old, Choi Gaon of South Korea, in the women’s halfpipe.`\
-https://nytimes.com/2026/02/12/world/chloe-kim-snowboard-halfpipe.html
 

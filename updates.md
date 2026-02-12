@@ -1,3 +1,15 @@
+**Heraskevych, Ukrainian DQed over skeleton helmet, files appeal to CAS**\
+`Heraskevych is asking to be immediately reinstated or given the chance to compete in provisional runs until the court rules.`\
+https://nytimes.com/athletic/7042600/2026/02/12/olympics-vladyslav-heraskevych-ukrainian-helmet-skeleton-appeal/
+
+**How Europe Woke Up to Trump**\
+`European leaders are wondering if they can ever trust the U.S. again.`\
+https://nytimes.com/2026/02/12/world/europe-trump-munich-security-canada-minnesota.html
+
+**The nature and nurture behind Macklin Celebrini’s seamless arrival on the Olympic stage**\
+`Celebrini's background may have helped him integrate Team Canada with unusual ease, but his natural gifts allow him to shine.`\
+https://nytimes.com/athletic/7042756/2026/02/12/olympics-mens-hockey-2026-macklin-celebrini-canada-czechia/
+
 **Your 35 (New! Crowdsourced!) Dating Rules**\
 `On Valentine’s Day 31 years ago, the book “The Rules” provided 35 decidedly retro “rules” for dating. We thought it was time for a refresh, so we asked people what rules they rely on today. Here are the best.`\
 https://nytimes.com/2026/02/12/style/modern-dating-rules.html
