@@ -1,3 +1,7 @@
+**American Nathan Pare celebrated victory. Then came controversy: 'It’s hard to deal with'**\
+`Nathan Pare thought he had won his quarterfinal snowboard cross race, but the American was 'Ranked as Last' for making contact with a rival.`\
+https://nytimes.com/athletic/7042214/2026/02/12/nathan-pare-usa-mens-snowboard-cross-2026-winter-olympics/
+
 **After apologizing for World Series absence, Berríos appears key for Jays rotation**\
 `“I just made maybe one bad decision to go home,” Berríos said. “To keep working on my rehab and stay close to my family.”`\
 https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/

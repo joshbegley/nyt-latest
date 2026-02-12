@@ -1,3 +1,7 @@
+**American Nathan Pare celebrated victory. Then came controversy: 'It’s hard to deal with'**\
+`Nathan Pare thought he had won his quarterfinal snowboard cross race, but the American was 'Ranked as Last' for making contact with a rival.`\
+https://nytimes.com/athletic/7042214/2026/02/12/nathan-pare-usa-mens-snowboard-cross-2026-winter-olympics/
+
 **After apologizing for World Series absence, Berríos appears key for Jays rotation**\
 `“I just made maybe one bad decision to go home,” Berríos said. “To keep working on my rehab and stay close to my family.”`\
 https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/dining/talking-cabbage-heads.html
 **The Docket**\
 `Adam Liptak helps you make sense of legal developments in a turbulent time.`\
 https://nytimes.com/column/the-docket
-
-**K-State coach Tang slams team after 29-point loss: 'Embarrassed for our fans'**\
-`Kansas State students showed up to the game with paper bags on their heads, and Tang said, "I'd wear a paper bag too if I was them."`\
-https://nytimes.com/athletic/7042236/2026/02/12/kansas-state-basketball-jerome-tang-loss-embarrassed/
 
