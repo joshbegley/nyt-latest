@@ -1,3 +1,15 @@
+**The Pulse: The NBA’s yucky tanking problem**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7038703/2026/02/12/nba-tank-jazz-wizards-the-pulse/
+
+**A message to Sir Jim Ratcliffe: You are a custodian of Man Utd, your words matter**\
+`Ratcliffe is the man in charge of a club that is beloved by millions around the world. With that comes responsibility`\
+https://nytimes.com/athletic/7041105/2026/02/12/sir-jim-ratcliffe-immigrants-manchester-united/
+
+**Forest have plenty to be grateful to Marinakis for - but this mess is on him**\
+`Forest's owner has brought them a long way since taking over, but four managers in one season tells its own story of missteps.`\
+https://nytimes.com/athletic/7040959/2026/02/12/nottingham-forest-evangelos-marinakis-four-managers/
+
 **Bears mock draft 1.0: Defense is clear priority, starting with front 7**\
 `In our first look at some options for the Bears in the 2026 draft, the focus is on the defensive line with the first two rounds.`\
 https://nytimes.com/athletic/7039577/2026/02/12/bears-mock-draft-kayden-mcdonald/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7037353/2026/02/12/pebble-beach-pro-am-odds-how-to-
 **Which men's college basketball coaches are on the hot seat? Adrian Autry, Bobby Hurley and more**\
 `Fifteen high-major college basketball jobs opened last offseason, and this year could be busy, too.`\
 https://nytimes.com/athletic/7040257/2026/02/12/college-basketball-hot-seat-coaches-autry-hurley-moser/
-
-**For Framber Valdez and the all-in Tigers, timing is everything**\
-`After a year embroiled in controversy, the next chapter in Framber Valdez's story comes with a Tigers team built to compete. `\
-https://nytimes.com/athletic/7040157/2026/02/12/framber-valdez-timing-tigers-free-agent-signing/
-
-**ICE at the 2026 World Cup: Explaining the agency’s security role, fan concerns**\
-`ICE's involvement and impact on the 2026 World Cup has been the subject of conjecture and confusion`\
-https://nytimes.com/athletic/7040065/2026/02/12/fifa-world-cup-ice-immigration-security/
-
-**Scottie Barnes has exceeded expectations this season, but they'll only continue to rise**\
-`"Scottie is defensive player of the year," Darko Rajaković said Sunday. "Scottie's an All-Star. Scottie is gonna be … Finals MVP one day."`\
-https://nytimes.com/athletic/7040657/2026/02/12/raptors-pistons-scottie-barnes-expectations/
 
