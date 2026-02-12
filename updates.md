@@ -1,3 +1,11 @@
+**Yankees' Cam Schlittler suffers back 'tweak,' will continue throwing**\
+`Manager Aaron Boone called the injury "minor," but noted that testing on Schlittler "kind of came back bad news."`\
+https://nytimes.com/athletic/7042537/2026/02/12/yankees-cam-schlittler-back-injury/
+
+**El Niño May Be Back This Summer, Bringing Drought and Floods**\
+`The powerful weather pattern is expected to shift into gear again around June, NOAA said, though its strength this time remains a question.`\
+https://nytimes.com/2026/02/12/climate/el-nino-weather-pattern-returning-noaa.html
+
 **Why Living in China Is Like ‘Living in the Future’**\
 `A Times correspondent talks about life in China as it outpaces the United States in developing clean energy technology, self-driving cars and other innovations.`\
 https://nytimes.com/2026/02/12/climate/china-clean-energy-technology.html
