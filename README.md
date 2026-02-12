@@ -1,3 +1,7 @@
+**Ukrainian Olympic athlete disqualified over helmet commemorating Russian invasion victims**\
+`The IOC announced its decision before Heraskevych's first heats in Cortina d'Ampezzo.`\
+https://nytimes.com/athletic/7041012/2026/02/12/olympics-ukranian-helmet-disqualified/
+
 **Ukrainian Olympian Is Disqualified Over Helmet With Images of War Dead**\
 `Olympic officials had told Vladyslav Heraskevych that the helmet, featuring images of people killed in the war with Russia, violated the Games’ ban on political speech.`\
 https://nytimes.com/2026/02/12/world/olympics/ukraine-skeleton-olympics-banned-helmet-heraskevych.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/crosswords/spelling-bee-forum.html
 **A trip to the Scottish factory where Olympic (and all other) curling stones are made**\
 `Every stone thrown at the Olympic curling tournaments comes from the same place — the remote island of Ailsa Craig, off the Scottish coast.`\
 https://nytimes.com/athletic/6961880/2026/02/12/winter-olympics-curling-stones-scotland-island-factory/
-
-**Crystal Palace's season was back on track – then came seven minutes of madness**\
-`Just as it looked like they had turned a corner, Oliver Glasner's side were reminded this is a season where little has gone right`\
-https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-glasner/
 
