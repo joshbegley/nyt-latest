@@ -1,3 +1,19 @@
+**Ohio State Professor Put on Leave After Wrestling Filmmaker to the Ground**\
+`After another journalist interviewed the university’s former president about Jeffrey Epstein, a professor physically intervened when a documentarian wanted to ask more questions.`\
+https://nytimes.com/2026/02/12/us/ohio-state-professor-wrestles-down-filmmaker.html
+
+**NCAA affirms rulings in Connor Stalions case at Michigan after appeal**\
+`Stalions’ appeal was the last lingering thread from an investigation that dates back to Michigan’s 2023 national championship season.`\
+https://nytimes.com/athletic/7041953/2026/02/12/connor-stalions-michigan-ncaa-appeal-ruling/
+
+**How Are Curling Stones Made?**\
+`The Athletic’s Matt Slater visited the factory where curling stones for the Olympic games are made. For the past 20 years, the granite for the stones has comes from Ailsa Craig, an uninhabited island off the Scottish coast.`\
+https://nytimes.com/video/the-athletic/100000010705748/how-are-curling-stones-made.html
+
+**In Ohio City, Officials Take Heat Over Residents’ Lack of It**\
+`An insolvent, broken utility left downtown buildings in Youngstown freezing in recent weeks. Gov. Mike DeWine has attributed the problems to an archaic system.`\
+https://nytimes.com/2026/02/12/us/youngstown-ohio-cold-utilities.html
+
 **Why Ilia Malinian Performs Moves no Other Skater Can**\
 `Why has the American figure skater Ilia Malinin become such a sensation at the 2026 Olympics? Marcus Thompson II, a senior columnist for The Athletic, explains the hype.`\
 https://nytimes.com/video/the-athletic/100000010708272/why-ilia-malinian-performs-moves-no-other-skater-can.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7041670/2026/02/12/olympics-ukraine-helmet-ioc-disq
 **Gail Slater Leaves Role as Justice Dept.’s Antitrust Chief**\
 `Her departure comes after months of mounting tension over her division’s work to determine whether companies violated antitrust laws.`\
 https://nytimes.com/2026/02/12/technology/gail-slater-antittrust-justice-department.html
-
-**Jazz's Jaren Jackson Jr. to undergo surgery, will likely miss rest of season**\
-`The growth in Jackson's knee is considered to be benign, according to a league source.`\
-https://nytimes.com/athletic/7041855/2026/02/12/jazz-jaren-jackson-jr-surgery/
-
-**Dutch Prosecutors Fine Louis Vuitton Netherlands in Money Laundering Case**\
-`The Dutch subsidiary of the luxury brand agreed to pay a nearly $600,000 settlement in a money laundering and terrorism financing case.`\
-https://nytimes.com/2026/02/12/world/europe/louis-vuitton-money-laundering-fine.html
-
-**Raheem Sterling joins Feyenoord after Chelsea exit**\
-`Sterling, 31, left Chelsea at the end of January after a mutual agreement to terminate his contract 18 months early.`\
-https://nytimes.com/athletic/7004559/2026/02/12/raheem-sterling-feyenoord-transfer/
-
-**Ukrainian Olympian Disqualified Over Helmet**\
-`Vladyslav Heraskevyc, a Ukrainian skeleton athlete, was barred from competing in the Winter Olympics over a helmet he planned to wear during the competition, which depicted images of people killed in the war with Ukraine.`\
-https://nytimes.com/video/world/europe/100000010707780/ukraine-skeleton-racer-olympics-disqualified-helmet.html
 
