@@ -1,4 +1,12 @@
-**Chloe Kim’s bid for history falters as American takes silver in snowboard halfpipe**\
+**MLB to enforce rules around base coach boxes to combat pitch tipping**\
+`MLB heard allegations throughout 2025 — including during the World Series — that coaches were trying to sneak a peek at pitchers’ grips.`\
+https://nytimes.com/athletic/7042579/2026/02/12/mlb-rule-enforcement-base-coach-boxes-pitch-tipping/
+
+**U.S. Forces Leave Base in Syria Used in Fight Against ISIS**\
+`The military base at Al-Tanf had hosted U.S. troops fighting against the Islamic State since 2016. Some of the troops are expected to be repositioned at a Jordanian military base across the border.`\
+https://nytimes.com/2026/02/12/us/politics/military-syria-islamic-state.html
+
+**Chloe Kim’s bid for Olympic history falters as American takes silver in snowboard halfpipe**\
 `Kim takes silver as 17-year-old Gaon Choi wins halfpipe gold on her Olympic debut. `\
 https://nytimes.com/athletic/7042428/2026/02/12/chloe-kim-womens-halfpipe-2026-winter-olympics/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7042537/2026/02/12/yankees-cam-schlittler-back-inju
 **El Niño May Be Back This Summer, Bringing Drought and Floods**\
 `The powerful weather pattern is expected to shift into gear again around June, NOAA said, though its strength this time remains a question.`\
 https://nytimes.com/2026/02/12/climate/el-nino-weather-pattern-returning-noaa.html
-
-**Why Living in China Is Like ‘Living in the Future’**\
-`A Times correspondent talks about life in China as it outpaces the United States in developing clean energy technology, self-driving cars and other innovations.`\
-https://nytimes.com/2026/02/12/climate/china-clean-energy-technology.html
-
-**California Asks if L.A. County Violated Rights of Black Residents in 2025 Fire**\
-`The state’s attorney general will examine whether emergency responders failed to adequately warn the residents of West Altadena, a Black middle-class neighborhood that was devastated in a 2025 blaze.`\
-https://nytimes.com/2026/02/12/us/los-angeles-eaton-fire-california-investigation.html
 
