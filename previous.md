@@ -1,20 +1,8 @@
-**Eyeing the Midterms, Kennedy Pivots Toward Food and Away From Vaccines**\
-`Health Secretary Robert F. Kennedy Jr., who focused heavily on vaccine policy in 2025, will spend this year talking up healthy eating.`\
-https://nytimes.com/2026/02/11/us/politics/rfk-pivot-food-vaccines.html
-
-**2026 Olympics, Day 5 recap: Stolz wins gold, Lemley tops moguls, Chock, Bates take silver**\
-`We’ve picked out some of the top highlights from an Olympic Wednesday.`\
-https://nytimes.com/athletic/7039772/2026/02/11/olympics-day-5-recap-stoltz-lemley-kauf-chock-bates/
-
-**‘The Other Place’ Review: A Psychosexual Update for a Sophocles Tragedy**\
-`In Alexander Zeldin’s naturalistic adaptation of “Antigone,” Tobias Menzies and Emma D’Arcy star as a feuding uncle and niece.`\
-https://nytimes.com/2026/02/11/theater/other-place-review-zeldin-menzies-darcy.html
-
 **Students Won a Revolution in Bangladesh. They Want So Much More.**\
 `At the vanguard of Gen Z movements, protesters in Bangladesh ousted the prime minister in 2024. They now face the hard reality of winning change through elections.`\
 https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
 
-**Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
+**Orioles improve upon rotation, ink Chris Bassitt to one-year deal: Source**\
 `A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
 https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
 
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/7040441/2026/02/11/parker-kingston-byu-felony-rape-
 **Nurses at 4 N.Y.C. Hospitals Vote to End Strike, but It Continues at One**\
 `At Montefiore and Mount Sinai hospitals, health care workers ratified a deal to end the walkout, but nurses remain on the picket line at NewYork-Presbyterian/Columbia.`\
 https://nytimes.com/2026/02/11/nyregion/nyc-nurses-strike-vote.html
+
+**Artforum’s Top Editor Will Step Down**\
+`The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
+https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
+
+**Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists**\
+`The Naismith Hall of Fame is a step closer to adding to its esteemed roster of myriad basketball legends.`\
+https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-parker-griffin-rivers/
+
+**Dyche sacked by Forest after four months in charge**\
+`It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
+https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
 

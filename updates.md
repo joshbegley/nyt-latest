@@ -1,3 +1,19 @@
+**Orioles improve upon rotation, ink Chris Bassitt to one-year deal: Source**\
+`A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
+
+**Artforum’s Top Editor Will Step Down**\
+`The magazine announced that two other editors there will jointly replace Tina Rivers Ryan, who has been in the role since 2024.`\
+https://nytimes.com/2026/02/11/arts/design/artforum-editor-tina-rivers-ryan.html
+
+**Candace Parker, Doc Rivers among 2026 Naismith Basketball Hall of Fame finalists**\
+`The Naismith Hall of Fame is a step closer to adding to its esteemed roster of myriad basketball legends.`\
+https://nytimes.com/athletic/7040122/2026/02/11/2026-naismith-hof-finalists-parker-griffin-rivers/
+
+**Dyche sacked by Forest after four months in charge**\
+`It is the third time Forest have dismissed a coach this season after the sackings of Nuno Espirito Santo and Ange Postecoglou.`\
+https://nytimes.com/athletic/7039987/2026/02/11/nottingham-forest-sean-dyche-sacked/
+
 **Eyeing the Midterms, Kennedy Pivots Toward Food and Away From Vaccines**\
 `Health Secretary Robert F. Kennedy Jr., who focused heavily on vaccine policy in 2025, will spend this year talking up healthy eating.`\
 https://nytimes.com/2026/02/11/us/politics/rfk-pivot-food-vaccines.html
