@@ -1,3 +1,7 @@
+**The Snow Sure Was Beautiful. Now Here Comes the River of Yuck.**\
+`Melting mega-piles of grimy road snow can release weeks worth of salt, oils (and dog poop) in what one scientist called a “triple whammy.”`\
+https://nytimes.com/2026/02/12/climate/toxic-melting-snow-dog-poop.html
+
 **Trump Administration to End Surge of Immigration Agents in Minnesota**\
 `The announcement came more than two months into an operation that has led to tense protests, thousands of arrests and three shootings in the Democratic-led state.`\
 https://nytimes.com/2026/02/12/us/minnesota-immigration-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-b
 **Zion's health, rookie development and more questions for rest of Pelicans' season**\
 `New Orleans won't make the playoffs and doesn't have a first-round pick, so it has to focus on getting better and getting ready for 2026-27.`\
 https://nytimes.com/athletic/7041101/2026/02/12/zion-williamson-pelicans-derik-queen/
-
-**The Giant Super PACs Fighting Over A.I. Safety**\
-`Anthropic is pouring millions of dollars into a political action committee that will most likely face off against OpenAI.`\
-https://nytimes.com/2026/02/12/business/dealbook/anthropic-super-pacs-ai.html
 
