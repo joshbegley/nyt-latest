@@ -1,3 +1,15 @@
+**Bears mock draft 1.0: Defense is clear priority, starting with front 7**\
+`In our first look at some options for the Bears in the 2026 draft, the focus is on the defensive line with the first two rounds.`\
+https://nytimes.com/athletic/7039577/2026/02/12/bears-mock-draft-kayden-mcdonald/
+
+**Chiefs NFL mock draft 1.0: A first-round pivot — then a local pick in Round 2**\
+`Yes, the Chiefs should target defensive line or receiver in the first round ... unless the draft falls like this.`\
+https://nytimes.com/athletic/7039095/2026/02/12/chiefs-mock-draft-francis-mauigoa/
+
+**How does a NASCAR team dazzle sponsors at Daytona? 'Magic, gritty creativity'**\
+`Powered by the spirit of "Chopped" and a Wyndham timeshare kitchen, Legacy Motor Club elevated its VIP catering performance.`\
+https://nytimes.com/athletic/7034416/2026/02/12/legacy-motor-club-daytona-500-jimmie-johnson/
+
 **One-on-one with HOFer Luke Kuechly: Drew Brees, Cam Newton's candidacy and nerves**\
 `The former Panthers linebacker discusses the case for Newton in the Hall of Fame and what it was like going against Brees.`\
 https://nytimes.com/athletic/7040014/2026/02/12/luke-kuechly-hall-of-fame-drew-brees-cam-newton/
