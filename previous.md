@@ -1,3 +1,7 @@
+**What to watch on Day 6 at Winter Olympics: Chloe Kim, U.S., Canada men's hockey start**\
+`Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
+https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
+
 **Why doesn't La Masia produce strikers for Barcelona?**\
 `The Catalan club's celebrated youth academy turns out scores of players for their first team, so why don't centre-forwards break through?`\
 https://nytimes.com/athletic/7038697/2026/02/12/barcelona-la-masia-strikers-lewandowski-yamal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040049/2026/02/12/erling-haaland-manchester-city-r
 **The soccer analytics experts aiming to transform a club in Portugal's fourth division**\
 `Sport Uniao Sintrense have never featured in their nation's top-flight before, but four men are aiming to change that`\
 https://nytimes.com/athletic/7018483/2026/02/12/sintrense-data-revolution-analytics-portugal-kruger-rb-leipzig/
-
-**Olympic Figure Skaters Are on Thin Ice Over Copyright Rules**\
-`Several athletes have found themselves caught up in controversies over musical choices before and during one of the biggest competitions of their careers.`\
-https://nytimes.com/2026/02/12/world/europe/winter-olympics-figure-skating-music-copyright.html
 

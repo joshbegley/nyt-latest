@@ -1,3 +1,7 @@
+**What to watch on Day 6 at Winter Olympics: Chloe Kim, U.S., Canada men's hockey start**\
+`Chloe Kim will attempt for another gold medal and ice hockey will begin.`\
+https://nytimes.com/athletic/6944144/2026/02/12/milan-cortina-olympics-what-to-watch-day-6/
+
 **Why doesn't La Masia produce strikers for Barcelona?**\
 `The Catalan club's celebrated youth academy turns out scores of players for their first team, so why don't centre-forwards break through?`\
 https://nytimes.com/athletic/7038697/2026/02/12/barcelona-la-masia-strikers-lewandowski-yamal/
