@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Feb. 12, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/12/todays-new-york-times
+
+**Spain’s Approach to Migration Is Overrated and Harmful**\
+`It appears democratically unworkable and may be stoking populism.`\
+https://nytimes.com/2026/02/12/opinion/spain-amnesty-immigration.html
+
 **Lawmakers Spar with Bondi Over Epstein Files**\
 `Attorney General Pam Bondi, sitting in a room with survivors of the convicted sex offender Jeffrey Epstein, refused to apologize for the Justice Department’s handling of the Epstein files during a House Judiciary Committee hearing.`\
 https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-files.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7038847/2026/02/12/thomas-frank-tottenham-pr-disast
 **Ryan Cochran-Siegle has guts. Once again, it put him on an Olympic podium**\
 `Cochran-Siegle won silver in the men's super-G in Bormio to add to the silver he won in the same event in Beijing four years ago.`\
 https://nytimes.com/athletic/7039794/2026/02/12/ryan-cochran-siegle-mens-super-g-2026-winter-olympics/
-
-**Fulham 0-20 Man City: Inside the longest losing run in English football history**\
-`City have beaten Fulham 20 times in a row over the past 14 years - and one 'superfan' has been there for almost every one of those defeats`\
-https://nytimes.com/athletic/7020692/2026/02/12/manchester-city-fulham-games-won-succession/
-
-**Erling Haaland is feeling the wear and tear, but can Manchester City really afford to rest him?**\
-`The striker made it two goals in two games on Wednesday after a recent scoring drought but was then taken off at half-time by Pep Guardiola`\
-https://nytimes.com/athletic/7040049/2026/02/12/erling-haaland-manchester-city-rest-fatigue/
 

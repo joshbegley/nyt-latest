@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Feb. 12, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/12/todays-new-york-times
+
+**Spain’s Approach to Migration Is Overrated and Harmful**\
+`It appears democratically unworkable and may be stoking populism.`\
+https://nytimes.com/2026/02/12/opinion/spain-amnesty-immigration.html
+
 **Lawmakers Spar with Bondi Over Epstein Files**\
 `Attorney General Pam Bondi, sitting in a room with survivors of the convicted sex offender Jeffrey Epstein, refused to apologize for the Justice Department’s handling of the Epstein files during a House Judiciary Committee hearing.`\
 https://nytimes.com/video/us/politics/100000010707264/bondi-testimony-epstein-files.html
