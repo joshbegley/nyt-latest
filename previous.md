@@ -1,3 +1,11 @@
+**TAFC: From Europe to four head coaches in five months. Plus: What now for Tottenham?**\
+`Today in TAFC: Forest sack Dyche and eye Pereira. Plus: What now for Spurs after Pochettino sticks with USMNT for the World Cup?`\
+https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-pochettino/
+
+**Should Schools Limit the Number of A’s That Teachers Can Give?**\
+`Harvard is proposing to curb grade inflation by cutting back on how many A grades its professors can award. What do you think of this plan?`\
+https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-that-teachers-can-give.html
+
 **Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
 `A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
 https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7018152/2026/02/12/college-baseball-ncaa-tournament
 **WNBA mock draft: Lauren Betts leads five first-round picks from UCLA**\
 `Who will go No. 1 in the 2026 WNBA draft? `\
 https://nytimes.com/athletic/7039088/2026/02/12/wnba-mock-draft-2026-ucla-lauren-betts/
-
-**NFL Draft rankings roundtable: What stands out on Dane Brugler's updated top 100?**\
-`Were there any surprises in the top 10? What does the updated board tell us about this rather uncertain QB class? `\
-https://nytimes.com/athletic/7039316/2026/02/12/nfl-draft-2026-rankings-top-100-reactions/
-
-**Fred Warner's guarantee caps off busy Super Bowl week for 49ers players, coach**\
-`Warner made a big prediction, George Kittle hinted at a possible Deebo Samuel return and the 49ers are going to Australia.`\
-https://nytimes.com/athletic/7040010/2026/02/12/fred-warner-49ers-super-bowl-guarantee/
 

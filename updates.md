@@ -1,3 +1,11 @@
+**TAFC: From Europe to four head coaches in five months. Plus: What now for Tottenham?**\
+`Today in TAFC: Forest sack Dyche and eye Pereira. Plus: What now for Spurs after Pochettino sticks with USMNT for the World Cup?`\
+https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-pochettino/
+
+**Should Schools Limit the Number of A’s That Teachers Can Give?**\
+`Harvard is proposing to curb grade inflation by cutting back on how many A grades its professors can award. What do you think of this plan?`\
+https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-that-teachers-can-give.html
+
 **Looking at ‘The Goldfinch,’ and Thinking About Extinction**\
 `A new exhibition about birds ranges from old masters paintings to contemporary art. The show is “a mad sprawl of instincts and intuitions,” says its curator, Simon Schama.`\
 https://nytimes.com/2026/02/12/arts/design/simon-schama-birds-maurtishuis-goldfinch.html
