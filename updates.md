@@ -1,3 +1,7 @@
+**Quote of the Day: G.O.P.’S CASH LEAD GIVES DEMOCRATS MIDTERM ANXIETY**\
+`Quotation of the Day for Thursday, February 12, 2026.`\
+https://nytimes.com/2026/02/11/pageoneplus/quote-of-the-day-gops-cash-lead-gives-democrats-midterm-anxiety.html
+
 **Kyle Busch wins the Daytona 500 pole**\
 `It is Busch’s first Daytona 500 pole and seventh for Richard Childress Racing.`\
 https://nytimes.com/athletic/7040661/2026/02/11/kyle-busch-wins-the-daytona-500-pole/

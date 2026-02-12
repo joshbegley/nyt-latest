@@ -1,3 +1,23 @@
+**Olympic Figure Skaters Are on Thin Ice Over Copyright Rules**\
+`Several athletes have found themselves caught up in controversies over musical choices before and during one of the biggest competitions of their careers.`\
+https://nytimes.com/2026/02/12/world/europe/winter-olympics-figure-skating-music-copyright.html
+
+**Nobel Novelist Orhan Pamuk Finally Gets the Netflix Series He Wanted**\
+`After publishing more than 20 books and winning a Nobel Prize, the Turkish author fought to bring a celebrated novel to the screen — on his own terms.`\
+https://nytimes.com/2026/02/12/world/europe/orhan-pamuk-istanbul-turkey-museum-of-innocence.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 12, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7040554/2026/02/12/connections-sports-edition-hints-answers-feb-12-2026/
+
+**Trump’s Trade Deal With India Has Become a Headache for Modi**\
+`Prime Minister Narendra Modi won a big reduction of sky-high tariffs, but critics say he undermined Indian sovereignty and undercut the nation’s farmers.`\
+https://nytimes.com/2026/02/12/business/modi-india-trump-trade-deal-blowback.html
+
+**Corrections: Feb. 12, 2026**\
+`Corrections that appeared in print on Thursday, Feb. 12, 2026.`\
+https://nytimes.com/2026/02/12/pageoneplus/corrections-feb-12-2026.html
+
 **Quote of the Day: G.O.P.’S CASH LEAD GIVES DEMOCRATS MIDTERM ANXIETY**\
 `Quotation of the Day for Thursday, February 12, 2026.`\
 https://nytimes.com/2026/02/11/pageoneplus/quote-of-the-day-gops-cash-lead-gives-democrats-midterm-anxiety.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/11/us/politics/judge-halts-transfer-inmates.html
 **Twins, Liam Hendriks reunite on minor-league deal with invite to camp: Sources**\
 `Hendriks first signed with the organization in 2007 and pitched for the Twins from 2011-13.`\
 https://nytimes.com/athletic/7040637/2026/02/11/minnesota-twins-liam-hendriks-sign-camp/
-
-**Dillon Brooks picks up 16th technical foul of season, faces one-game suspension**\
-`After getting called for a foul, Brooks exchanged words with official James Williams. Williams called the technical foul.`\
-https://nytimes.com/athletic/7040636/2026/02/11/dillon-brooks-suns-16th-technical-foul-faces-suspension/
-
-**Jose Alvarado knocks down eight 3s, adds fuel to Knicks' blowout win vs. 76ers**\
-`As the pro-Knicks crowd drowned out the sadness of the 76ers faithful, each 3 New York's newest guard tossed up was met with loud applause.`\
-https://nytimes.com/athletic/7040587/2026/02/11/jose-alvarado-stats-knicks-76ers/
-
-**Cooper Flagg to miss Rising Stars game, NBA All-Star weekend with foot sprain**\
-`The injury was suffered during Dallas' Tuesday matchup against the Phoenix Suns, during which Flagg had 27 points and five rebounds.`\
-https://nytimes.com/athletic/7040613/2026/02/11/cooper-flagg-injury-miss-rising-star-competition-all-star-weekend/
-
-**Stuff With Strands**\
-`Kareem Ayas shows some affection.`\
-https://nytimes.com/2026/02/11/crosswords/daily-puzzle-2026-02-12.html
-
-**Michigan State guard Kur Teng gets posterized … by Tom Izzo’s 99-year-old mom**\
-`Izzo was caught by FS1 cameras in a Jan. 20 win at Oregon telling Teng in a huddle: "Kur, you can’t guard my mother."`\
-https://nytimes.com/athletic/7040533/2026/02/11/michigan-state-guard-kur-teng-tom-izzos-mom/
 
