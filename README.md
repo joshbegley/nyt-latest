@@ -1,3 +1,19 @@
+**Bar Punts on Ethics Complaint Over Application to Search Reporter’s Home**\
+`A press freedom group accused a prosecutor of violating an ethics rule by not telling a judge about a law limiting searches for journalistic work product.`\
+https://nytimes.com/2026/02/12/us/politics/virginia-bar-ethics-prosecutor-reporter.html
+
+**An Elephant Is Blind Without Its Whiskers**\
+`There are about 1,000 tiny hairs on an elephant’s rugged trunk, all designed to help the animal feel, a new study found.`\
+https://nytimes.com/2026/02/12/science/elephant-whiskers.html
+
+**PEN America Names New Leadership After Gaza Fallout**\
+`After a 16-month search, the free speech group has chosen two longtime employees, Summer Lopez and Clarisse Rosaz Shariyf, as co-chief executives.`\
+https://nytimes.com/2026/02/12/arts/pen-america-new-ceo-gaza.html
+
+**Mainoo 'absolutely back in the frame' for England selection, says Tuchel**\
+`Mainoo's team-mates Luke Shaw and Harry Maguire are also in the plans of Tuchel, who cited Manchester United's return to a back four.`\
+https://nytimes.com/athletic/7042389/2026/02/12/mainoo-manchester-united-england-return-tuchel/
+
 **The Meals Chefs Make When They’re Feeling Sick**\
 `Adaptable recipes for dishes that offer comfort and nourishment.`\
 https://nytimes.com/2026/02/12/t-magazine/sick-comfort-recipes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/12/climate/trump-epa-greenhouse-gases-climate-change
 **Brooklyn Diocese Agrees to Mediation to Settle Over 1,000 Abuse Claims**\
 `The diocese, which also includes Queens, also said it would set aside hundreds of millions of dollars to settle accusations of child sexual abuse.`\
 https://nytimes.com/2026/02/12/nyregion/brooklyn-diocese-church-sex-abuse-mediation.html
-
-**In Ukrainian skeleton athlete's Olympic ban, IOC's arguments don't add up**\
-`The IOC had its reasons for barring Vladsylav Heraskevych from the Olympics. On Thursday at the Cortina Sliding Centre, they felt hollow.`\
-https://nytimes.com/athletic/7041333/2026/02/12/ukraine-skeleton-athlete-disqualification-olympics-protest/
-
-**American Nathan Pare celebrated victory. Then came controversy: 'It’s hard to deal with'**\
-`Nathan Pare thought he had won his quarterfinal snowboard cross race, but the American was 'Ranked as Last' for making contact with a rival.`\
-https://nytimes.com/athletic/7042214/2026/02/12/nathan-pare-usa-mens-snowboard-cross-2026-winter-olympics/
-
-**After apologizing for World Series absence, Berríos appears key for Jays rotation**\
-`“I just made maybe one bad decision to go home,” Berríos said. “To keep working on my rehab and stay close to my family.”`\
-https://nytimes.com/athletic/7042211/2026/02/12/blue-jays-jose-berrios-rotation/
-
-**The challenges facing Tottenham's next manager — and how they can be addressed**\
-`Spurs sacked Frank after a woeful run of league form, and there will be problems to solve for his replacement`\
-https://nytimes.com/athletic/7041203/2026/02/12/tottenham-new-manager-challenges-analysis/
 
