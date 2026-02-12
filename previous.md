@@ -1,3 +1,7 @@
+**Late Night Boos Pam Bondi’s ‘Bratty’ Behavior**\
+`“If downplaying international sex rings were an Olympic sport, Bondi would take home the gold,” Jordan Klepper said on “The Daily Show.”`\
+https://nytimes.com/2026/02/12/arts/television/late-night-pam-bondi.html
+
 **The Figure Skaters Making Murder Wholesome**\
 `On “The Traitors,” two American Olympians turned skating commentators have become fan favorites by embracing the roles of lovable fools.`\
 https://nytimes.com/2026/02/12/style/traitors-tara-lipinski-johnny-weir-skating.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-
 **Word of the Day: ubiquitous**\
 `This word has appeared in 576 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
-
-**The Magic are underachieving. Will they recover in time?**\
-`The Magic will enter the All-Star break with a winning record, but they have lost their mojo. Wednesday offered more proof of that.`\
-https://nytimes.com/athletic/7040858/2026/02/12/orlando-magic-struggling-paolo-banchero-bucks/
 

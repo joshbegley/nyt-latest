@@ -1,3 +1,7 @@
+**Late Night Boos Pam Bondi’s ‘Bratty’ Behavior**\
+`“If downplaying international sex rings were an Olympic sport, Bondi would take home the gold,” Jordan Klepper said on “The Daily Show.”`\
+https://nytimes.com/2026/02/12/arts/television/late-night-pam-bondi.html
+
 **The Figure Skaters Making Murder Wholesome**\
 `On “The Traitors,” two American Olympians turned skating commentators have become fan favorites by embracing the roles of lovable fools.`\
 https://nytimes.com/2026/02/12/style/traitors-tara-lipinski-johnny-weir-skating.html
