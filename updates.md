@@ -1,3 +1,19 @@
+**Eyeing the Midterms, Kennedy Pivots Toward Food and Away From Vaccines**\
+`Health Secretary Robert F. Kennedy Jr., who focused heavily on vaccine policy in 2025, will spend this year talking up healthy eating.`\
+https://nytimes.com/2026/02/11/us/politics/rfk-pivot-food-vaccines.html
+
+**2026 Olympics, Day 5 recap: Stolz wins gold, Lemley tops moguls, Chock, Bates take silver**\
+`We’ve picked out some of the top highlights from an Olympic Wednesday.`\
+https://nytimes.com/athletic/7039772/2026/02/11/olympics-day-5-recap-stoltz-lemley-kauf-chock-bates/
+
+**‘The Other Place’ Review: A Psychosexual Update for a Sophocles Tragedy**\
+`In Alexander Zeldin’s naturalistic adaptation of “Antigone,” Tobias Menzies and Emma D’Arcy star as a feuding uncle and niece.`\
+https://nytimes.com/2026/02/11/theater/other-place-review-zeldin-menzies-darcy.html
+
+**Orioles improve rotation, ink Chris Bassitt to one-year deal: Source**\
+`A one-time All-Star, Christ Bassitt has shown an adaptability that can enhance a pitching staff in a variety of ways. `\
+https://nytimes.com/athletic/6792670/2026/02/11/mlb-chris-bassitt-free-agency-signing/
+
 **Students Won a Revolution in Bangladesh. They Want So Much More.**\
 `At the vanguard of Gen Z movements, protesters in Bangladesh ousted the prime minister in 2024. They now face the hard reality of winning change through elections.`\
 https://nytimes.com/2026/02/11/world/asia/bangladesh-election-students.html
