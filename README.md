@@ -1,3 +1,7 @@
+**Cooper Flagg to miss Rising Stars game, NBA All-Star weekend with foot sprain**\
+`The injury was suffered during Dallas' Tuesday matchup against the Phoenix Suns, during which Flagg had 27 points and five rebounds.`\
+https://nytimes.com/athletic/7040613/2026/02/11/cooper-flagg-injury-miss-rising-star-competition-all-star-weekend/
+
 **Stuff With Strands**\
 `Kareem Ayas shows some affection.`\
 https://nytimes.com/2026/02/11/crosswords/daily-puzzle-2026-02-12.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/11/science/comet-spinning-backwards.html
 **Trump Says He Will Now Invite Democrats to Governors’ Meeting**\
 `Even as he reversed course on excluding Democrats, the president repeatedly attacked a Republican governor who had planned to oversee the meeting.`\
 https://nytimes.com/2026/02/11/us/politics/trump-governors-meeting-democrats.html
-
-**Eyeing the Midterms, Kennedy Pivots Toward Food and Away From Vaccines**\
-`Health Secretary Robert F. Kennedy Jr., who focused heavily on vaccine policy in 2025, will spend this year talking up healthy eating.`\
-https://nytimes.com/2026/02/11/us/politics/rfk-pivot-food-vaccines.html
 
