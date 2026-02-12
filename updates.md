@@ -1,3 +1,15 @@
+**El Paso Incident Highlights Gaps in America’s Drone Defense Industry**\
+`The U.S. has spent billions of dollars developing counter-drone technology, but much of it needs more testing in the real world.`\
+https://nytimes.com/2026/02/12/business/el-paso-drone-technology.html
+
+**‘Love Story’ Recreates a Tragic Romance**\
+`The series dramatizes the relationship between John F. Kennedy Jr. and Carolyn Bessette, who married in 1996 and died a few years later. Here’s what to know.`\
+https://nytimes.com/2026/02/12/arts/television/love-story-john-f-kennedy-jr-carolyn-bessette.html
+
+**Ontario Lifts Tuition Freeze at Public Universities**\
+`The move will allow the schools to raise tuition for the first time since 2019 as part of a broader plan to boost funding for higher education in the Canadian province.`\
+https://nytimes.com/2026/02/12/world/canada/ontario-post-secondary-tuition-freeze-lifted.html
+
 **Top prospect Carson Benge giving Mets something to think about**\
 `Former All-Star Matt Holliday expects Benge to thrive in New York: "He has the right mentality and the right makeup."`\
 https://nytimes.com/athletic/7042587/2026/02/12/mets-prospect-carson-benge-spring-training/
