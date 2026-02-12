@@ -1,3 +1,7 @@
+**‘Nirvanna the Band the Show the Movie’ Review: Canadian Fakin’**\
+`Two longtime friends time-travel back to 2008 to pursue their performing dreams in this likably daft comedy.`\
+https://nytimes.com/2026/02/12/movies/nirvanna-the-band-the-show-the-movie-review.html
+
 **Little Houses on the Icelandic Prairie**\
 `Plus: Martin Parr’s visual memoir, a deep dive into macaroni and cheese and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/12/t-magazine/iceland-cabin-retreat-travel.html

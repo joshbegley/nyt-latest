@@ -1,3 +1,7 @@
+**‘Nirvanna the Band the Show the Movie’ Review: Canadian Fakin’**\
+`Two longtime friends time-travel back to 2008 to pursue their performing dreams in this likably daft comedy.`\
+https://nytimes.com/2026/02/12/movies/nirvanna-the-band-the-show-the-movie-review.html
+
 **Little Houses on the Icelandic Prairie**\
 `Plus: Martin Parr’s visual memoir, a deep dive into macaroni and cheese and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/12/t-magazine/iceland-cabin-retreat-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboa
 **Rewriting the Fashion Rules**\
 `With her first show for Proenza Schouler, Rachel Scott was trying to pull off more than a reinvention.`\
 https://nytimes.com/2026/02/12/style/proenza-schouler-rachel-scott-new-york-fashion-week.html
-
-**Judge Ends Deportation Case for Mexican Father of 3 U.S. Marines**\
-`The arrest of Narciso Barranco, who was detained by federal agents while landscaping outside an IHOP in Southern California last June, garnered national attention.`\
-https://nytimes.com/2026/02/12/us/deportation-case-us-mexico-marines-barranco.html
 
