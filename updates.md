@@ -1,3 +1,11 @@
+**Trump Administration to End Surge of Immigration Agents in Minnesota**\
+`The announcement came more than two months into an operation that has led to tense protests, thousands of arrests and three shootings in the Democratic-led state.`\
+https://nytimes.com/2026/02/12/us/minnesota-immigration-crackdown.html
+
+**In a photo finish, Alessandro Hämmerle wins men's snowboard cross gold**\
+`Hämmerle beat Canada's Éliot Grondin by 0.03 seconds to win snowboard cross Olympic gold. `\
+https://nytimes.com/athletic/7041483/2026/02/12/alessandro-hammerle-mens-snowboard-cross-2026-winter-olympics/
+
 **Thomas Partey charged with two new counts of rape against further woman**\
 `The former Arsenal midfielder, 32, will appear at Westminster Magistrates’ Court on March 13 for a first hearing.`\
 https://nytimes.com/athletic/7038882/2026/02/12/thomas-partey-rape-new-charges/
