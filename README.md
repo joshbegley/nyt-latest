@@ -1,3 +1,15 @@
+**Rangers' top prospect Sebastian Walcott likely out for the year with torn UCL**\
+`Walcott, the No. 16 prospect in baseball, will miss at least nine months while recovering from Tommy John surgery.`\
+https://nytimes.com/athletic/7042993/2026/02/12/texas-rangers-sebastian-walcott-torn-ucl/
+
+**How Brayan Bello is reinventing his arsenal after trade rumors, fall from top of rotation**\
+`Plus notes on Sonny Gray spinning it, Caleb Durbin's October elbow surgery, Roman Anthony possibly getting a WBC invite and more.`\
+https://nytimes.com/athletic/7043015/2026/02/12/red-sox-brayan-bello-trade-rumors-reinvention/
+
+**At the Olympics, can Auston Matthews can regain his place in the hockey hierarchy?**\
+`Make no mistake, Matthews is still very, very good. He may even be great. But he’s not what he was. And he hasn’t been for a while now.`\
+https://nytimes.com/athletic/7043077/2026/02/12/auston-matthews-olympics-mens-hockey/
+
 **C.I.A. Video Appeals to Potential Spies in China’s Military**\
 `The agency is seeking Chinese officials who are frustrated with corruption in the People’s Liberation Army.`\
 https://nytimes.com/2026/02/12/us/politics/cia-china-spies.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7042530/2026/02/12/olympics-mens-hockey-united-stat
 **Mamdani to Resurrect Bus and Bike Lanes Killed by Eric Adams**\
 `The new projects, expected to be announced on Friday, will reverse decisions made by the Adams administration, and help the new mayor fulfill his vow to make buses fast and free in New York.`\
 https://nytimes.com/2026/02/12/nyregion/mamdani-bus-bike-lanes.html
-
-**Knicks sign Jeremy Sochan to minimum deal for remainder of season: Sources**\
-`Sochan will fill New York's 15th roster spot after he asked for a buyout and the Spurs waived him on Wednesday.`\
-https://nytimes.com/athletic/7042966/2026/02/12/knicks-jeremy-sochan-spurs-deal-minimum/
-
-**A Love Letter to the Grand Romantic Gesture**\
-`In honor of Valentine’s Day, our readers shared moments when they felt truly swept off their feet.`\
-https://nytimes.com/interactive/2026/02/12/well/romantic-gestures-valentines-day.html
-
-**‘We Don’t Know if the Models Are Conscious’**\
-`Have A.I. models already reached consciousness? Dario Amodei, the chief executive of Anthropic, is open to that possibility. He hopes for a relationship between humans and A.I. where “they want the best for you” but you still have your freedom and your will.`\
-https://nytimes.com/video/opinion/100000010695663/we-dont-know-if-the-models-are-conscious.html
 
