@@ -1,3 +1,15 @@
+**The High-Stakes Fight Over Masked Federal Agents**\
+`The debate over whether federal agents should be allowed to cover their faces with masks has become a flashpoint as the government heads for a partial shutdown.`\
+https://nytimes.com/2026/02/12/us/politics/congress-trump-ice-masked-agents.html
+
+**In an Upset, Analilia Mejia, a Progressive, Wins a Democratic House Race**\
+`Ms. Mejia, a political organizer, beat her main opponent in the New Jersey primary, Tom Malinowski, by a narrow margin after he was battered by negative ads from a pro-Israel group.`\
+https://nytimes.com/2026/02/12/nyregion/analilia-mejia-new-jersey-congress.html
+
+**Team USA gets rolling in men's hockey, beating up Latvia on Day 2 of Olympic tournament**\
+`The Americans opened their Olympic hockey tournament with a 5-1 win over Latvia on Thursday.`\
+https://nytimes.com/athletic/7042530/2026/02/12/olympics-mens-hockey-united-states-latvia/
+
 **Anthropic Pushes Its Valuation to $380 Billion With New Funding Round**\
 `The artificial intelligence start-up raised another $30 billion, and its valuation more than doubled since its last funding round in September.`\
 https://nytimes.com/2026/02/12/technology/anthropic-valuation-380-billion-funding.html
