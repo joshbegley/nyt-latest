@@ -1,3 +1,11 @@
+**Thomas Tuchel set to stay on as England head coach after World Cup**\
+`The German's contract was set to expire following the summer tournament but he is now expected to sign an extension to 2028.`\
+https://nytimes.com/athletic/7041000/2026/02/12/thomas-tuchel-england-manager-stay/
+
+**Ukrainian Olympic athlete disqualified over helmet commemorating Russian invasion victims**\
+`The IOC announced its decision to remove his accreditation before Heraskevych's first heats Thursday in Cortina d'Ampezzo.`\
+https://nytimes.com/athletic/7041012/2026/02/12/olympics-ukranian-helmet-disqualified/
+
 **Ukrainian Olympic athlete disqualified over helmet commemorating Russian invasion victims**\
 `The IOC announced its decision before Heraskevych's first heats in Cortina d'Ampezzo.`\
 https://nytimes.com/athletic/7041012/2026/02/12/olympics-ukranian-helmet-disqualified/
