@@ -1,3 +1,7 @@
+**Crystal Palace's season was back on track – then came seven minutes of madness**\
+`Just as it looked like they had turned a corner, Oliver Glasner's side were reminded this is a season where little has gone right`\
+https://nytimes.com/athletic/7031100/2026/02/12/crystal-palace-burnley-collapse-glasner/
+
 **Word of the Day: ubiquitous**\
 `This word has appeared in 576 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/12/learning/word-of-the-day-ubiquitous.html
