@@ -1,3 +1,15 @@
+**Mamdani Taps Prosecutor in R. Kelly Case to Run Anti-Corruption Agency**\
+`Nadia Shihata was picked to run the Department of Investigation, an independent city agency that has been weakened in recent years.`\
+https://nytimes.com/2026/02/12/nyregion/mamdani-investigations-nadia-shihata.html
+
+**Search for Nancy Guthrie enters a 12th day.**\
+`By Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2026/02/12/us/nancy-guthrie-case-updates/search-for-nancy-guthrie-enters-a-12th-day
+
+**Cavaliers change court due to safety concerns after Luka Dončić's injury**\
+`After Luka Dončić injured his ankle falling off of the Cavaliers' raised court, the team and NBA said they would address the issue.`\
+https://nytimes.com/athletic/7042335/2026/02/12/nba-cleveland-cavs-luka-doncic-court-fix/
+
 **Trump’s Actions Test the Fragile World of Air Travel**\
 `Last minute announcements and abrupt changes by the Trump administration have caused confusion in an already strained U.S. aviation system.`\
 https://nytimes.com/2026/02/12/business/air-travel-trump-el-paso.html
