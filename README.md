@@ -1,3 +1,15 @@
+**Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
+`Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
+https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
+
+**Zion's health, rookie development and more questions for rest of Pelicans' season**\
+`New Orleans won't make the playoffs and doesn't have a first-round pick, so it has to focus on getting better and getting ready for 2026-27.`\
+https://nytimes.com/athletic/7041101/2026/02/12/zion-williamson-pelicans-derik-queen/
+
+**The Giant Super PACs Fighting Over A.I. Safety**\
+`Anthropic is pouring millions of dollars into a political action committee that will most likely face off against OpenAI.`\
+https://nytimes.com/2026/02/12/business/dealbook/anthropic-super-pacs-ai.html
+
 **Montana has a player entering his 9th season of football. Will it be his last?**\
 `A host of injuries have tested the patience of the 25-year-old married father of two, but he keeps coming back to the sport he loves.`\
 https://nytimes.com/athletic/7040551/2026/02/12/solomon-tuliaupupu-montana-ninth-season/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/12/us/trump-news
 **Ratcliffe sorry 'choice of language' in UK 'colonisation' comments offended people**\
 `UK Prime Minister Keir Starmer called on Ratcliffe to apologise and described his comments as "offensive and wrong".`\
 https://nytimes.com/athletic/7041315/2026/02/12/jim-ratcliffe-immigrants-sorry-manchester-united/
-
-**Breezy Johnson adds engagement to gold medal in a memorable Olympic week**\
-`The downhill gold medal champion on Sunday, Johnson followed it up by getting engaged following Thursday's super-G.`\
-https://nytimes.com/athletic/7041348/2026/02/12/breezy-johnson-engaged-winter-olympics-downhill-gold/
-
-**TAFC: From Europe to four head coaches in five months. Plus: What now for Tottenham?**\
-`Today in TAFC: Forest sack Dyche and eye Pereira. Plus: What now for Spurs after Pochettino sticks with USMNT for the World Cup?`\
-https://nytimes.com/athletic/7041078/2026/02/12/dyche-forest-sacked-tottenham-pochettino/
-
-**Should Schools Limit the Number of A’s That Teachers Can Give?**\
-`Harvard is proposing to curb grade inflation by cutting back on how many A grades its professors can award. What do you think of this plan?`\
-https://nytimes.com/2026/02/12/learning/should-schools-limit-the-number-of-as-that-teachers-can-give.html
 
