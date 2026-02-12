@@ -1,3 +1,11 @@
+**Swiss men's hockey team eager to face powerhouse Canada and 'poke the bear'**\
+`The Swiss, who defeated France 4-0 in their first game on Thursday, believe they can do something special in this Olympic hockey tournament.`\
+https://nytimes.com/athletic/7041562/2026/02/12/switzerland-canada-mens-olympic-hockey/
+
+**The Snow Sure Was Beautiful. Now Here Comes the River of Yuck.**\
+`Melting mega-piles of grimy road snow can release weeks worth of salt, oils (and dog poop) in what one scientist called a “triple whammy.”`\
+https://nytimes.com/2026/02/12/climate/toxic-melting-snow-dog-poop.html
+
 **Trump Administration to End Surge of Immigration Agents in Minnesota**\
 `The announcement came more than two months into an operation that has led to tense protests, thousands of arrests and three shootings in the Democratic-led state.`\
 https://nytimes.com/2026/02/12/us/minnesota-immigration-crackdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7037984/2026/02/12/dodgers-spring-training-key-ques
 **Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
 `Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
 https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
-
-**Zion's health, rookie development and more questions for rest of Pelicans' season**\
-`New Orleans won't make the playoffs and doesn't have a first-round pick, so it has to focus on getting better and getting ready for 2026-27.`\
-https://nytimes.com/athletic/7041101/2026/02/12/zion-williamson-pelicans-derik-queen/
-
-**The Giant Super PACs Fighting Over A.I. Safety**\
-`Anthropic is pouring millions of dollars into a political action committee that will most likely face off against OpenAI.`\
-https://nytimes.com/2026/02/12/business/dealbook/anthropic-super-pacs-ai.html
 

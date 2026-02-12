@@ -1,3 +1,7 @@
+**South Korean Court Rules Against Women in LG Inheritance Lawsuit**\
+`The widow and two daughters of LG’s former chairman sought to invalidate an inheritance agreement, claiming they were deceived into forfeiting their rightful inheritance.`\
+https://nytimes.com/2026/02/12/business/lg-inheritance-lawsuit.html
+
 **Swiss men's hockey team eager to face powerhouse Canada and 'poke the bear'**\
 `The Swiss, who defeated France 4-0 in their first game on Thursday, believe they can do something special in this Olympic hockey tournament.`\
 https://nytimes.com/athletic/7041562/2026/02/12/switzerland-canada-mens-olympic-hockey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/travel/jetblue-luggage-damage-repairs.html
 **Three burning Dodgers questions as spring training opens**\
 `How will the Dodgers handle Shohei Ohtani's workload? Where do the new guys fit in? The back-to-back champs are about to find out.`\
 https://nytimes.com/athletic/7037984/2026/02/12/dodgers-spring-training-key-questions/
-
-**Jessie Diggins, skiing through rib injury, wins a bronze in her final Olympics**\
-`Diggins clinched the bronze after an especially painful push to the finish line Thursday at the Olympics, her final Games.`\
-https://nytimes.com/athletic/7041387/2026/02/12/jessie-diggins-winter-olympics-bronze-medal-10km-freestyle/
 
