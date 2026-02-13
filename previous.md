@@ -1,3 +1,11 @@
+**Romance Roulette**\
+`“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
+https://nytimes.com/video/books/100000010711389/romance-roulette.html
+
+**Around Olympic hockey: Early men's chaos while women's knockout rounds begin**\
+`At this point, we can’t rule out a do-or-die game between Sweden and either Canada or the U.S. to start the men's knockout rounds.`\
+https://nytimes.com/athletic/7044748/2026/02/13/olympics-hockey-mens-upsets-womens-schedule/
+
 **International Order ‘No Longer Exists,’ Germany’s Merz Says**\
 `Chancellor Friedrich Merz of Germany told the Munich Security Conference that the rules-based international order had collapsed as President Trump rapidly reorients American foreign policy.`\
 https://nytimes.com/video/world/europe/100000010711319/germany-us-munich-world-order.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7041002/2026/02/13/vitor-pereira-nottingham-forest-
 **How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
 `Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
-
-**Patriots' Stefon Diggs pleads not guilty to felony assault charges**\
-`The arraignment had been postponed to allow Diggs to play in the Super Bowl.`\
-https://nytimes.com/athletic/7044605/2026/02/13/stefon-diggs-assault-allegations-denied-not-guilty/
-
-**Handsome at Any Cost**\
-`Braden Peters, known as Clavicular, has emerged as a beacon for a group of narcissistic, status-obsessed young men. He wants to take his fixation with “looksmaxxing” mainstream.`\
-https://nytimes.com/2026/02/13/style/clavicular-looksmaxxing-braden-peters.html
 

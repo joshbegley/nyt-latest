@@ -1,3 +1,7 @@
+**Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
+`A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
+https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
+
 **Romance Roulette**\
 `“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
 https://nytimes.com/video/books/100000010711389/romance-roulette.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-squad
 **Pereira agrees to take Forest head coach job**\
 `Forest dismissed Sean Dyche on Thursday after less than four months in charge.`\
 https://nytimes.com/athletic/7041002/2026/02/13/vitor-pereira-nottingham-forest-head-coach-agree/
-
-**How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
 

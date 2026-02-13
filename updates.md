@@ -1,3 +1,11 @@
+**Romance Roulette**\
+`“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
+https://nytimes.com/video/books/100000010711389/romance-roulette.html
+
+**Around Olympic hockey: Early men's chaos while women's knockout rounds begin**\
+`At this point, we can’t rule out a do-or-die game between Sweden and either Canada or the U.S. to start the men's knockout rounds.`\
+https://nytimes.com/athletic/7044748/2026/02/13/olympics-hockey-mens-upsets-womens-schedule/
+
 **International Order ‘No Longer Exists,’ Germany’s Merz Says**\
 `Chancellor Friedrich Merz of Germany told the Munich Security Conference that the rules-based international order had collapsed as President Trump rapidly reorients American foreign policy.`\
 https://nytimes.com/video/world/europe/100000010711319/germany-us-munich-world-order.html
