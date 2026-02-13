@@ -1,3 +1,11 @@
+**Blue Jays drawn to Jesús Sánchez’s power potential in trade with Astros**\
+`Sánchez hasn’t flashed the 40-homer upside of sidelined Anthony Santander but the Jays think he's a better option against righties for now.`\
+https://nytimes.com/athletic/7044552/2026/02/13/blue-jays-jesus-sanchez-trade-analysis/
+
+**2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
+`The case underlines how the Islamic State has seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
+https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html
+
 **2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
 `The case underlined how the Islamic State had seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
 https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html

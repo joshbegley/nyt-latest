@@ -1,5 +1,9 @@
+**Blue Jays drawn to Jesús Sánchez’s power potential in trade with Astros**\
+`Sánchez hasn’t flashed the 40-homer upside of sidelined Anthony Santander but the Jays think he's a better option against righties for now.`\
+https://nytimes.com/athletic/7044552/2026/02/13/blue-jays-jesus-sanchez-trade-analysis/
+
 **2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
-`The case underlined how the Islamic State had seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
+`The case underlines how the Islamic State has seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
 https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html
 
 **F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue
 **The Bounce: Will USA vs. USA vs. the World work?**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
-
-**Real Madrid's Mbappe fit for Real Sociedad match despite knee discomfort**\
-`The France international has been struggling with discomfort in his left knee since December.`\
-https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
 
