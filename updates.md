@@ -1,3 +1,11 @@
+**Why Did the Courts Do That? Let Him Explain.**\
+`Adam Liptak, The Times’s chief legal affairs correspondent, is writing a new weekly newsletter, The Docket, to help demystify the justice system.`\
+https://nytimes.com/2026/02/13/insider/adam-liptak-the-docket.html
+
+**President Trump pardons Hall of Famer Joe Klecko, four other ex-NFL players**\
+`Trump pardoned Klecko, Nate Newton, Jamal Lewis, Travis Henry and the late Billy Cannon for crimes ranging from perjury to drug trafficking.`\
+https://nytimes.com/athletic/7043795/2026/02/13/trump-pardons-nfl-players-klecko-newton-lewis-henry-cannon/
+
 **President Trump pardons Hall of Famer Joe Klecko and 4 other ex-NFL players**\
 `Trump pardoned Klecko, Nate Newton, Jamal Lewis, Travis Henry and the late Billy Cannon for crimes ranging from perjury to drug trafficking.`\
 https://nytimes.com/athletic/7043795/2026/02/13/trump-pardons-nfl-players-klecko-newton-lewis-henry-cannon/
