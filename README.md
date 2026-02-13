@@ -1,3 +1,31 @@
+**U.K. Ban on Pro-Palestinian Group is Unlawful, Court Finds**\
+`The High Court ruling, which can be appealed, said the British government had overstepped when it banned Palestine Action as a terrorist group.`\
+https://nytimes.com/2026/02/13/world/europe/uk-palestine-action-ban-court-ruling.html
+
+**5 Unofficial Love Languages**\
+`For Valentine’s Day, relationship experts share a few ways to show our partners that we care.`\
+https://nytimes.com/2026/02/13/well/valentines-day-new-love-languages.html
+
+**The New York Times News Quiz, Feb. 13, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/02/13/briefing/bad-bunny-super-bowl-olympics-news-quiz.html
+
+**The Infrastructure of Jeffrey Epstein’s Power**\
+`The journalist Anand Giridharadas examines the power and influence that Jeffrey Epstein brokered, and which the latest batch of Epstein files puts on display.`\
+https://nytimes.com/2026/02/13/opinion/ezra-klein-podcast-anand-giridharadas.html
+
+**Does Your Wife Have to Buy Groceries That Disgust Her?**\
+`A ruling on a dispute over deli-case tuna salad.`\
+https://nytimes.com/interactive/2026/02/13/magazine/disgusting-groceries-hodgman-quiz.html
+
+**Bondi Suggests Culver City Has a Crime Problem. Culver City Has a Problem With That.**\
+`The attorney general’s viral remarks befuddled many Angelenos, who know Culver City for its Hollywood history and chill vibes.`\
+https://nytimes.com/2026/02/13/us/bondi-culver-city-crime.html
+
+**Falcons mock draft: Atlanta goes after big man to fill hole on defensive line**\
+`The Falcons are slated to have five picks in April's draft, but new general manager Ian Cunningham would love to add more.`\
+https://nytimes.com/athletic/7041614/2026/02/13/falcons-nfl-mock-draft-christen-miller-defensive-line/
+
 **Ukraine Says U.S. Is Increasing Pressure for a Deal as the Midterms Loom**\
 `It is unclear what the Trump administration is prepared to do if it does not get the concessions it wants from Kyiv on issues like territory and elections.`\
 https://nytimes.com/2026/02/13/world/europe/russia-ukraine-peace-talks.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/02/13/travel/government-shutdown-what-to-know.html
 **‘Neighbors’ Review: One Battle After Another**\
 `A quirky HBO docuseries about small-scale feuds is the latest pop-culture portrait of a country full of tiny civil wars.`\
 https://nytimes.com/2026/02/13/arts/television/neighbors-review-one-battle-after-another.html
-
-**Elephant Bone in Spain May Be Proof of Hannibal’s Tanks With Trunks**\
-`Archaeologists say a 2,200-year-old specimen is the first direct evidence of how the Carthaginian war machine used the giant mammals in the Punic Wars.`\
-https://nytimes.com/2026/02/13/science/hannibal-war-elephants-carthage.html
-
-**My Dinner Date With A.I.**\
-`Eating a burger in front of a virtual companion comes with its challenges.`\
-https://nytimes.com/2026/02/13/dining/ai-dinner-date-restaurant.html
-
-**10 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/02/13/movies/new-movies-this-week-critics.html
-
-**The Transformative Power of the White ‘Race Traitor’**\
-`From Schwerner and Goodman to Good and Pretti, white people putting themselves in harm’s way has helped galvanize Americans for justice.`\
-https://nytimes.com/2026/02/13/magazine/minneapolis-good-pretti-race-traitors.html
-
-**To Recap to Not to Recap**\
-`How do we decide which television shows to write about, episode by episode? Our TV editor reveals his strategy.`\
-https://nytimes.com/2026/02/13/insider/tv-recaps-the-pitt-game-of-thrones.html
-
-**The Infrastructure of Jeffrey Epstein’s Power**\
-`The journalist Anand Giridharadas examines the power and influence that Jeffrey Epstein brokered, and which the latest batch of Epstein files puts on display.`\
-https://nytimes.com/video/opinion/100000010705735/the-infrastructure-of-jeffrey-epsteins-power.html
-
-**A D.H.S. Shutdown Looms. Bruised Minnesotans Urge Their Parties to Dig In.**\
-`Congressional Democrats say they will approve no money for the Department of Homeland Security without guardrails on immigration agents. Their voters in Minnesota are demanding no less.`\
-https://nytimes.com/2026/02/13/us/politics/government-shutdown-minnesota.html
 
