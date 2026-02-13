@@ -1,3 +1,7 @@
+**Goldman’s Top Lawyer Departs Amid Revelations About Her Ties to Epstein**\
+`Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed a friendship with the sex offender Jeffrey Epstein spanning many years.`\
+https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.html
+
 **Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
 `The suspect in the British Columbia shooting had long been posting about mental health problems, substance abuse and a fascination with weapons and online violence.`\
 https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-suspect-social-media.html
