@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-wh
 `The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
 https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
 
-**Arsenal got 'Arsenaled'. Brentford delivered Arteta's side their own dose of set-piece hell**\
+**Arsenal got 'Arsenaled'. Brentford deliver Arteta's side their own dose of set-piece hell**\
 `Brentford made Arsenal pay from a long throw which meant two dropped points in the Premier League title race`\
 https://nytimes.com/athletic/7043392/2026/02/13/arsenal-brentford-kayode-throw-set-pieces/
 

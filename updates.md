@@ -1,3 +1,11 @@
+**‘The Daily Show’ Gives President Trump Yet Another Inaugural Award**\
+`Jordan Klepper congratulated the president, the sole nominee for “the Inaugural Award for Winning the Most Inaugural Awards.”`\
+https://nytimes.com/2026/02/13/arts/television/the-daily-show-trump-inaugural-award.html
+
+**Arsenal got 'Arsenaled'. Brentford delivered Arteta's side their own dose of set-piece hell**\
+`Brentford made Arsenal pay from a long throw which meant two dropped points in the Premier League title race`\
+https://nytimes.com/athletic/7043392/2026/02/13/arsenal-brentford-kayode-throw-set-pieces/
+
 **De Zerbi? Pochettino? Iraola? Heitinga? Analysing Tottenham's short- and long-term manager options**\
 `Analysing the styles of coaches Spurs could turn to as they look to replace the sacked Thomas Frank`\
 https://nytimes.com/athletic/7041808/2026/02/13/de-zerbi-pochettino-iraola-heitinga-analysing-tottenhams-short-and-long-term-manager-options/
