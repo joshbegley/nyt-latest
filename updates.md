@@ -1,3 +1,11 @@
+**As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
+`Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
+https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
+
+**FPL: Patience required as FA Cup and double gameweeks complicate plans**\
+`Before reacting to green or red arrows, remember that the FA Cup and ongoing double gameweek means patience is the most valuable asset`\
+https://nytimes.com/athletic/7043250/2026/02/13/fantasy-premier-league-patience-required-as-fa-cup-and-double-gameweeks-complicate-plans/
+
 **Upamecano extends Bayern contract through to 2030**\
 `The 27-year-old has been a mainstay in Bayern's team since his 2021 transfer from RB Leipzig and his existing deal was to expire this year.`\
 https://nytimes.com/athletic/6957060/2026/02/13/upamecano-bayern-munich-contract-new/

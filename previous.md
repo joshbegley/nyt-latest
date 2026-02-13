@@ -1,3 +1,11 @@
+**As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
+`Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
+https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
+
+**FPL: Patience required as FA Cup and double gameweeks complicate plans**\
+`Before reacting to green or red arrows, remember that the FA Cup and ongoing double gameweek means patience is the most valuable asset`\
+https://nytimes.com/athletic/7043250/2026/02/13/fantasy-premier-league-patience-required-as-fa-cup-and-double-gameweeks-complicate-plans/
+
 **Upamecano extends Bayern contract through to 2030**\
 `The 27-year-old has been a mainstay in Bayern's team since his 2021 transfer from RB Leipzig and his existing deal was to expire this year.`\
 https://nytimes.com/athletic/6957060/2026/02/13/upamecano-bayern-munich-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039940/2026/02/13/49ers-nfl-mock-draft-needs/
 **Mailbag: Comparing the Blackhawks and Sharks' rebuilds**\
 `I had originally planned two Blackhawks mailbags during the NHL&#8217;s Olympic break.`\
 https://nytimes.com/athletic/7037136/2026/02/13/blackhawks-rebuld-sharks-nhl-mailbag/
-
-**Forest legend Robertson to be honoured with street name near childhood home**\
-`Council bosses have decided to create ‘John Robertson Way’ at Viewpark, on the edge of Glasgow.`\
-https://nytimes.com/athletic/7041986/2026/02/13/john-robertson-nottingham-forest-news/
-
-**Remembering the 1933 Rangers: Bill Cook's heroics and revenge over Conn Smythe**\
-`The Rangers' second Stanley Cup title featured a very different team and a very different hockey rule set.`\
-https://nytimes.com/athletic/7042191/2026/02/13/new-york-rangers-1933-stanley-cup-centennial-season/
 
