@@ -1,3 +1,7 @@
+**A nervous Europe awaits Rubio’s speech in Munich.**\
+`After a fiery speech by Vice President JD Vance turned heads in 2026, Europeans are nervous about what the Secretary of State might say.`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference/a-nervous-europe-awaits-rubios-speech-in-munich
+
 **First look at Boston Legacy's inaugural NWSL kits**\
 `The expansion team will kick off its 2026 NWSL season March 14 at Gillette Stadium.`\
 https://nytimes.com/athletic/7041508/2026/02/13/boston-legacy-inaugural-kits/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042356/2026/02/13/nba-all-star-weekend-durant-wemb
 **Yankees' Paul Goldschmidt eager to mentor Ben Rice, pay it forward at first base**\
 `Goldschmidt is embracing his new role and looking forward to helping coach Rice, as other veterans helped him early in his career. `\
 https://nytimes.com/athletic/7043182/2026/02/13/yankees-ben-rice-paul-goldschmidt/
-
-**Australia shocked by Zimbabwe to cast T20 World Cup progress into doubt**\
-`The 2021 winners fell 23 runs short in Colombo and face a daunting game against co-hosts Sri Lanka in Pallekele as they battle to qualify`\
-https://nytimes.com/athletic/7044140/2026/02/13/australia-zimbabwe-t20-world-cup-shock/
 
