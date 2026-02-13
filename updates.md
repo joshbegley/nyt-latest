@@ -1,3 +1,15 @@
+**TAFC: Don't look down in PL relegation battle. Plus: How Ratcliffe set off a political storm**\
+`Today in TAFC: Which team would relegation hurt most? Plus: Fallout from Ratcliffe's comments and some sublime trolling in Brazil`\
+https://nytimes.com/athletic/7044138/2026/02/13/premier-league-relegation-battle-tottenham/
+
+**At the Winter Olympics**\
+`We look at what life is like on the ground in Milan and Cortina.`\
+https://nytimes.com/2026/02/13/briefing/at-the-winter-olympics.html
+
+**U.S. Ski once cut Paula Moltzan. Now she's one of their Olympic bright spots**\
+`Once deemed expendable, Moltzan is now an Olympic bronze medalist. And she might have more medals ahead at these Milan Cortina Games.`\
+https://nytimes.com/athletic/7042430/2026/02/13/paula-moltzan-winter-olympics-us-ski-cut-slalom/
+
 **Bangladeshis Vote in Droves for Constitutional Change**\
 `Eight out of 10 voters backed reforms intended to safeguard democracy and increase women’s participation in politics.`\
 https://nytimes.com/2026/02/13/world/asia/bangladesh-election-referendum-constitution.html

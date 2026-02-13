@@ -1,3 +1,15 @@
+**TAFC: Don't look down in PL relegation battle. Plus: How Ratcliffe set off a political storm**\
+`Today in TAFC: Which team would relegation hurt most? Plus: Fallout from Ratcliffe's comments and some sublime trolling in Brazil`\
+https://nytimes.com/athletic/7044138/2026/02/13/premier-league-relegation-battle-tottenham/
+
+**At the Winter Olympics**\
+`We look at what life is like on the ground in Milan and Cortina.`\
+https://nytimes.com/2026/02/13/briefing/at-the-winter-olympics.html
+
+**U.S. Ski once cut Paula Moltzan. Now she's one of their Olympic bright spots**\
+`Once deemed expendable, Moltzan is now an Olympic bronze medalist. And she might have more medals ahead at these Milan Cortina Games.`\
+https://nytimes.com/athletic/7042430/2026/02/13/paula-moltzan-winter-olympics-us-ski-cut-slalom/
+
 **Bangladeshis Vote in Droves for Constitutional Change**\
 `Eight out of 10 voters backed reforms intended to safeguard democracy and increase women’s participation in politics.`\
 https://nytimes.com/2026/02/13/world/asia/bangladesh-election-referendum-constitution.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-le
 **Picking three potential FA Cup upsets: Wrexham eyeing another win**\
 `The FA Cup is back this weekend for the fourth round - could there be another classic cupset on the cards?`\
 https://nytimes.com/athletic/7044151/2026/02/13/fa-cup-fourth-round-upset-watch-potential-surprises-include-wrexham-and-birmingham/
-
-**The Pulse: The Randy Moss of figure skating**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7042416/2026/02/13/ilia-malinin-gold-medal-the-pulse/
-
-**NASCAR changed its championship format. Now the racing could change, too**\
-`In the old system, drivers were highly incentivized to do whatever it took to win a race. Now, consistency matters more.`\
-https://nytimes.com/athletic/7037052/2026/02/13/nascar-cup-championship-chase-2026/
-
-**Wemby? Ant? KD? Let's settle NBA one-on-one supremacy at All-Star Weekend**\
-`Taking inspiration from the Australian Open and Unrivaled, let's add a fun comp to NBA All-Star weekend.`\
-https://nytimes.com/athletic/7042356/2026/02/13/nba-all-star-weekend-durant-wembanyama/
 
