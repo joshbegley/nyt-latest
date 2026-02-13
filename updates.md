@@ -1,3 +1,15 @@
+**How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
+
+**Patriots' Stefon Diggs pleads not guilty to felony assault charges**\
+`The arraignment had been postponed to allow Diggs to play in the Super Bowl.`\
+https://nytimes.com/athletic/7044605/2026/02/13/stefon-diggs-assault-allegations-denied-not-guilty/
+
+**Handsome at Any Cost**\
+`Braden Peters, known as Clavicular, has emerged as a beacon for a group of narcissistic, status-obsessed young men. He wants to take his fixation with “looksmaxxing” mainstream.`\
+https://nytimes.com/2026/02/13/style/clavicular-looksmaxxing-braden-peters.html
+
 **In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
 `An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
 https://nytimes.com/2026/02/13/arts/neighbors-hbo.html

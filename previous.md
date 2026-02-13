@@ -1,3 +1,15 @@
+**How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
+
+**Patriots' Stefon Diggs pleads not guilty to felony assault charges**\
+`The arraignment had been postponed to allow Diggs to play in the Super Bowl.`\
+https://nytimes.com/athletic/7044605/2026/02/13/stefon-diggs-assault-allegations-denied-not-guilty/
+
+**Handsome at Any Cost**\
+`Braden Peters, known as Clavicular, has emerged as a beacon for a group of narcissistic, status-obsessed young men. He wants to take his fixation with “looksmaxxing” mainstream.`\
+https://nytimes.com/2026/02/13/style/clavicular-looksmaxxing-braden-peters.html
+
 **In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
 `An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
 https://nytimes.com/2026/02/13/arts/neighbors-hbo.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7044552/2026/02/13/blue-jays-jesus-sanchez-trade-an
 **2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
 `The case underlines how the Islamic State has seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
 https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html
-
-**F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
-`Aiming for what women actually want to wear, the team is prioritizing fit and style over sponsor logos and team branding`\
-https://nytimes.com/athletic/7043537/2026/02/13/f1-women-fanwear-cadillac/
-
-**Indian Man Expected to Plead Guilty to Orchestrating Failed Murder Plot**\
-`Nikhil Gupta is accused of plotting to assassinate an American citizen. Prosecutors have argued it mirrors similar efforts against Sikhs, including the killing of one in Canada.`\
-https://nytimes.com/2026/02/13/nyregion/nikhil-gupta-assasination-india-sikh-plea.html
-
-**Josie Baff wins women's snowboard cross Olympic gold to make history for Australia**\
-`Josie Baff's Olympic gold was the first by an Australian woman in snowboard cross.`\
-https://nytimes.com/athletic/7044422/2026/02/13/josie-baff-snowboard-cross-gold-2026-winter-olympics/
 
