@@ -1,3 +1,15 @@
+**We just saw why Finland-Sweden is of one of the greatest rivalries in international hockey**\
+`Finland earned a big win against Sweden on Friday. How does that impact the pressure both teams feel at this early stage of the tournament?`\
+https://nytimes.com/athletic/7044633/2026/02/13/finland-sweden-olympics-mens-hockey/
+
+**Justice Department Sues Harvard for Admissions Records**\
+`The Trump administration appears to have renewed its pressure campaign against Harvard since President Trump backtracked this month on a possible settlement with the Ivy League school.`\
+https://nytimes.com/2026/02/13/us/politics/harvard-lawsuit-admissions-doj-trump.html
+
+**Meet the squad of graduate students supporting this expedition.**\
+`By Raymond Zhong and Chang W. Lee`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-squad-of-graduate-students-supporting-this-expedition
+
 **Pereira agrees to take Forest head coach job**\
 `Forest dismissed Sean Dyche on Thursday after less than four months in charge.`\
 https://nytimes.com/athletic/7041002/2026/02/13/vitor-pereira-nottingham-forest-head-coach-agree/

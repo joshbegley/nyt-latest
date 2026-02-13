@@ -1,3 +1,11 @@
+**The Bad Bunny Super Bowl merchandise that's been in big demand**\
+`So much Bad Bunny Super Bowl merchandise has hit the market this week you'd think he won the game. `\
+https://nytimes.com/athletic/7044690/2026/02/13/bad-bunny-super-bowl-adidas/
+
+**Campbell Wright 12th in best U.S. shot at elusive Olympic biathlon medal**\
+`There are still events left on the program, but Friday was likely the Americans' best chance to win their first ever Olympic biathlon medal.`\
+https://nytimes.com/athletic/7044294/2026/02/13/campbell-wright-winter-olympics-team-usa-biathlon-medals/
+
 **We just saw why Finland-Sweden is of one of the greatest rivalries in international hockey**\
 `Finland earned a big win against Sweden on Friday. How does that impact the pressure both teams feel at this early stage of the tournament?`\
 https://nytimes.com/athletic/7044633/2026/02/13/finland-sweden-olympics-mens-hockey/
@@ -28,13 +36,5 @@ https://nytimes.com/2026/02/13/style/clavicular-looksmaxxing-braden-peters.html
 
 **In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
 `An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
-https://nytimes.com/2026/02/13/arts/neighbors-hbo.html
-
-**Chicken and Sausage Gumbo, Let’s Go**\
-`Our best Mardi Gras recipes, and reader favorites from this week.`\
-https://nytimes.com/2026/02/13/dining/chicken-and-sausage-gumbo-lets-go.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, avengers of the toxic variety and princesses of the cosmic variety.`\
-https://nytimes.com/2026/02/13/movies/science-fiction-movies-streaming.html
+https://nytimes.com/2026/02/13/arts/television/neighbors-hbo.html
 
