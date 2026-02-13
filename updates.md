@@ -1,3 +1,7 @@
+**Quad God stumbles: Ilia Malinin falters on Olympic stage on night of spills**\
+`MILAN — When it was over, Ilia Malinin put his face in his hands.`\
+https://nytimes.com/athletic/7045481/2026/02/13/ilia-malinin-figure-skating-quad-god-loses/
+
 **Shohei Ohtani returns for a full season on the mound amid Cy Young talk**\
 `Can the Dodgers' star maintain his prolific offensive pace while returning to the rotation?`\
 https://nytimes.com/athletic/7045153/2026/02/13/dodgers-shohei-ohtani-two-way/

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7045153/2026/02/13/dodgers-shohei-ohtani-two-way/
 
 **Quad God stumbles: Ilia Malinin falters on Olympic stage on night of spills**\
-`MILAN — When it was over, Iia Malinin put his face in his hands.`\
+`MILAN — When it was over, Ilia Malinin put his face in his hands.`\
 https://nytimes.com/athletic/7045481/2026/02/13/ilia-malinin-figure-skating-quad-god-loses/
 
 **Four Killed in Plane Crash Near Steamboat Springs, Colo.**\
