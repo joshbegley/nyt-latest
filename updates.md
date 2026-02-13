@@ -1,3 +1,7 @@
+**The Hidden Number Driving U.S. Job Growth**\
+`After a year of just 181,000 new jobs, January’s 131,000 increase in the U.S. workforce was surprisingly positive. Ben Casselman, The New York Times’ chief economic correspondent, explains the numbers.`\
+https://nytimes.com/video/business/economy/100000010706277/explaining-us-job-growth-healthcare-ai-trump.html
+
 **As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
 `Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
 https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
