@@ -1,3 +1,7 @@
+**Ireland commits to Israel matches due to 'potential disqualification'**\
+`In November, the FAI voted to submit a formal motion to UEFA seeking to ban Israel from continental competition.`\
+https://nytimes.com/athletic/7044264/2026/02/13/ireland-israel-uefa-nations-league/
+
 **More Epstein Fallout for Goldman, and Beyond**\
 `The Wall Street giant’s top lawyer, whose ties to Jeffrey Epstein had raised questions at the firm, has resigned. Other corporate leaders are also facing blowback.`\
 https://nytimes.com/2026/02/13/business/dealbook/epstein-ruemmler-goldman-sachs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/business/economy/100000010706277/explaining-us-job-gro
 **As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
 `Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
 https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
-
-**FPL: Patience required as FA Cup and double gameweeks complicate plans**\
-`Before reacting to green or red arrows, remember that the FA Cup and ongoing double gameweek means patience is the most valuable asset`\
-https://nytimes.com/athletic/7043250/2026/02/13/fantasy-premier-league-patience-required-as-fa-cup-and-double-gameweeks-complicate-plans/
 
