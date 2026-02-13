@@ -1,3 +1,11 @@
+**U.S. Inflation Eased at Start of the Year**\
+`The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
+https://nytimes.com/2026/02/13/business/us-inflation-eased-at-start-of-the-year.html
+
+**U.S. Transfers Thousands of ISIS Prisoners to Iraq From Syria**\
+`The moves appear to highlight lingering doubts in Washington about the new Syrian government’s ability to ensure security.`\
+https://nytimes.com/2026/02/13/us/politics/us-isis-prisoners.html
+
 **Ireland commits to Israel matches due to 'potential disqualification'**\
 `In November, the FAI voted to submit a formal motion to UEFA seeking to ban Israel from continental competition.`\
 https://nytimes.com/athletic/7044264/2026/02/13/ireland-israel-uefa-nations-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7040204/2026/02/13/nba-all-star-weekend-2026-schedu
 **Lowetide: McDavid, Draisaitl make their long-awaited Olympic debuts memorable**\
 `Both Oilers stars started their Olympics with a win, with Josh Samanski also playing a huge role for Germany alongside Draisaitl.`\
 https://nytimes.com/athletic/7041939/2026/02/13/oilers-mcdavid-draisaitl-olympics-debut-trade-deadline/
-
-**The Hidden Number Driving U.S. Job Growth**\
-`After a year of just 181,000 new jobs, January’s 131,000 increase in the U.S. workforce was surprisingly positive. Ben Casselman, The New York Times’ chief economic correspondent, explains the numbers.`\
-https://nytimes.com/video/business/economy/100000010706277/explaining-us-job-growth-healthcare-ai-trump.html
-
-**As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
-`Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
-https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
 
