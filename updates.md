@@ -1,3 +1,7 @@
+**Measles Outbreak Hits Florida College**\
+`More than 40 people have fallen ill at Ave Maria University, raising fears that college campuses may soon experience more measles outbreaks.`\
+https://nytimes.com/2026/02/13/well/measles-florida-ave-maria-university.html
+
 **Four Reasons for the Exodus From Congress**\
 `For many senators and House members, the job isn’t what it used to be.`\
 https://nytimes.com/2026/02/13/us/politics/congress-retirements-house-senate.html
