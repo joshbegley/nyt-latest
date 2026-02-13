@@ -1,3 +1,7 @@
+**Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
+`The suspect in the British Columbia shooting had long been posting about mental health problems, substance abuse and a fascination with weapons and online violence.`\
+https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-suspect-social-media.html
+
 **Here’s the latest.**\
 `By Anupreeta Das and Saif Hasnat`\
 https://nytimes.com/live/2026/02/12/world/bangladesh-election-results/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.htm
 **Senate Democrats Block Funding for D.H.S.**\
 `After a heated Senate hearing that highlighted the partisan divide over immigration enforcement, Democrats voted to block funding for the Department of Homeland Security.`\
 https://nytimes.com/video/us/politics/100000010708789/dhs-funding-senate-democrats.html
-
-**New details emerge in felony rape case against BYU receiver Parker Kingston**\
-`According to affidavit of probable cause, woman told a forensic interviewer that she "set clear boundaries" ahead of meeting.`\
-https://nytimes.com/athletic/7043310/2026/02/12/parker-kingston-byu-arrest-details/
 

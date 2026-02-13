@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Anupreeta Das and Saif Hasnat`\
+https://nytimes.com/live/2026/02/12/world/bangladesh-election-results/heres-the-latest
+
+**Live Updates: Bangladesh Nationalist Party Claims Victory in Pivotal Election**\
+`The B.N.P., led by Tarique Rahman, was heavily favored to win the first election in the country since a student-led revolution toppled the last government in 2024.`\
+https://nytimes.com/live/2026/02/12/world/bangladesh-election-results
+
 **Scoop City: Offseason needs and NFL draft notes**\
 `The critical offseason needs for playoff and non-playoff teams, and where the top five teams among the latter rank in bounce-back potential`\
 https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
