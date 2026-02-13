@@ -1,3 +1,11 @@
+**NASCAR changed its championship format. Now the racing could change, too**\
+`In the old system, drivers were highly incentivized to do whatever it took to win a race. Now, consistency matters more.`\
+https://nytimes.com/athletic/7037052/2026/02/13/nascar-cup-championship-chase-2026/
+
+**Wemby? Ant? KD? Let's settle NBA one-on-one supremacy at All-Star Weekend**\
+`Taking inspiration from the Australian Open and Unrivaled, let's add a fun comp to NBA All-Star weekend.`\
+https://nytimes.com/athletic/7042356/2026/02/13/nba-all-star-weekend-durant-wembanyama/
+
 **Yankees' Paul Goldschmidt eager to mentor Ben Rice, pay it forward at first base**\
 `Goldschmidt is embracing his new role and looking forward to helping coach Rice, as other veterans helped him early in his career. `\
 https://nytimes.com/athletic/7043182/2026/02/13/yankees-ben-rice-paul-goldschmidt/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7041331/2026/02/13/f1-movie-sequel-plans/
 **Men's college basketball bubble watch: Wisconsin, Miami and the bubblers strike back**\
 `With four weeks until Selection Sunday, here's where the bubble stands — and which teams have the most work to do.`\
 https://nytimes.com/athletic/7044016/2026/02/13/mens-college-basketball-bubble-watch-ncaa-tournament/
-
-**The Government Shutdown Fight Over Immigration**\
-`Senate Democrats blocked funding for the Department of Homeland Security because it lacked limits they have demanded on federal immigration agents.`\
-https://nytimes.com/2026/02/13/podcasts/the-daily/government-shutdown-ice-homeland-security-department.html
-
-**A Surge of Children in ICE Detention, and Meta’s Plans for Facial Recognition**\
-`Plus, your Friday news quiz.`\
-https://nytimes.com/2026/02/13/podcasts/the-headlines/kids-ice-detention-meta-facial-recognition.html
 
