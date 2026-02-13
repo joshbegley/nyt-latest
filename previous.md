@@ -1,40 +1,40 @@
-**TAFC: Don't look down in PL relegation battle. Plus: How Ratcliffe set off a political storm**\
-`Today in TAFC: Which team would relegation hurt most? Plus: Fallout from Ratcliffe's comments and some sublime trolling in Brazil`\
-https://nytimes.com/athletic/7044138/2026/02/13/premier-league-relegation-battle-tottenham/
+**Upamecano extends Bayern contract through to 2030**\
+`The 27-year-old has been a mainstay in Bayern's team since his 2021 transfer from RB Leipzig and his existing deal was to expire this year.`\
+https://nytimes.com/athletic/6957060/2026/02/13/upamecano-bayern-munich-contract-new/
 
-**At the Winter Olympics**\
-`We look at what life is like on the ground in Milan and Cortina.`\
-https://nytimes.com/2026/02/13/briefing/at-the-winter-olympics.html
+**What to know about NBA All-Star Celebrity Game: Simu Liu returns, GloRilla and Shams debut**\
+`Friday's NBA All-Star Celebrity Game ranges from the Marvel universe to Olympic podiums to "The Bachelorette."`\
+https://nytimes.com/athletic/7043047/2026/02/13/nba-celebrity-game-2026-roster-how-to-watch/
 
-**U.S. Ski once cut Paula Moltzan. Now she's one of their Olympic bright spots**\
-`Once deemed expendable, Moltzan is now an Olympic bronze medalist. And she might have more medals ahead at these Milan Cortina Games.`\
-https://nytimes.com/athletic/7042430/2026/02/13/paula-moltzan-winter-olympics-us-ski-cut-slalom/
+**‘The Headlines’ News Quiz: Feb. 13, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/02/13/podcasts/the-headlines/the-headlines-news-quiz-feb-13-2026.html
 
-**Bangladeshis Vote in Droves for Constitutional Change**\
-`Eight out of 10 voters backed reforms intended to safeguard democracy and increase women’s participation in politics.`\
-https://nytimes.com/2026/02/13/world/asia/bangladesh-election-referendum-constitution.html
+**College basketball coaches are hot, as in mad, as in roasting their players in public**\
+`Emotional post-loss news conferences from embattled coaches are not new, but they feel more frequent and fiery than ever before.`\
+https://nytimes.com/athletic/7043164/2026/02/13/jerome-tang-tad-boyle-college-basketball-coaches-press-conference/
 
-**A nervous Europe awaits Rubio’s speech in Munich.**\
-`After a fiery speech by Vice President JD Vance turned heads in 2026, Europeans are nervous about what the Secretary of State might say.`\
-https://nytimes.com/live/2026/02/13/world/munich-security-conference/a-nervous-europe-awaits-rubios-speech-in-munich
+**From Bryce Underwood to Mason Heintschel: How did the Class of 2025 QBs fare in Year 1**\
+`Five true freshman quarterbacks started at Power 4 schools in 2025. Several more are in line to take over next fall.`\
+https://nytimes.com/athletic/7042177/2026/02/13/college-football-recruiting-2025-quarterback-rankings-class/
 
-**First look at Boston Legacy's inaugural NWSL kits**\
-`The expansion team will kick off its 2026 NWSL season March 14 at Gillette Stadium.`\
-https://nytimes.com/athletic/7041508/2026/02/13/boston-legacy-inaugural-kits/
+**Who would make a college basketball all-star team? Here's how the West takes shape**\
+`Ahead of NBA All-Star Weekend, we unveil our West and East college basketball all-star squads.`\
+https://nytimes.com/athletic/7043243/2026/02/13/college-basketball-all-stars-kingston-flemings-bennett-stirtz/
 
-**Tarik Skubal and Justin Verlander, aces then and now, lead the Tigers forward**\
-`Tarik Skubal and Justin Verlander have become inextricably linked, two Tigers aces who have captivated crowds and won major awards.`\
-https://nytimes.com/athletic/7043130/2026/02/13/tigers-tarik-skubal-justin-verlander-teammates/
+**49ers mock draft: A disruptive pass rusher, two big receivers and a young CMC**\
+`The 49ers are expected to have seven picks. Edge rusher and receiver are two big needs and two of the deepest positions in the draft.`\
+https://nytimes.com/athletic/7039940/2026/02/13/49ers-nfl-mock-draft-needs/
 
-**UCLA overtakes UConn as No. 1 seed: Women's NCAA Tournament Bracket Watch**\
-`Head-to-head matchups are proving important as teams fight for the top two seed lines. `\
-https://nytimes.com/athletic/7043744/2026/02/13/womens-basketball-ncaa-tournament-bracket-watch-ucla-uconn/
+**Mailbag: Comparing the Blackhawks and Sharks' rebuilds**\
+`I had originally planned two Blackhawks mailbags during the NHL&#8217;s Olympic break.`\
+https://nytimes.com/athletic/7037136/2026/02/13/blackhawks-rebuld-sharks-nhl-mailbag/
 
-**Sunderland sporting director Speakman leaves club**\
-`The departure is a board of directors’ decision to move forward without him.`\
-https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
+**Forest legend Robertson to be honoured with street name near childhood home**\
+`Council bosses have decided to create ‘John Robertson Way’ at Viewpark, on the edge of Glasgow.`\
+https://nytimes.com/athletic/7041986/2026/02/13/john-robertson-nottingham-forest-news/
 
-**Picking three potential FA Cup upsets: Wrexham eyeing another win**\
-`The FA Cup is back this weekend for the fourth round - could there be another classic cupset on the cards?`\
-https://nytimes.com/athletic/7044151/2026/02/13/fa-cup-fourth-round-upset-watch-potential-surprises-include-wrexham-and-birmingham/
+**Remembering the 1933 Rangers: Bill Cook's heroics and revenge over Conn Smythe**\
+`The Rangers' second Stanley Cup title featured a very different team and a very different hockey rule set.`\
+https://nytimes.com/athletic/7042191/2026/02/13/new-york-rangers-1933-stanley-cup-centennial-season/
 
