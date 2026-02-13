@@ -1,3 +1,15 @@
+**In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
+`An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
+https://nytimes.com/2026/02/13/arts/neighbors-hbo.html
+
+**Chicken and Sausage Gumbo, Let’s Go**\
+`Our best Mardi Gras recipes, and reader favorites from this week.`\
+https://nytimes.com/2026/02/13/dining/chicken-and-sausage-gumbo-lets-go.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, avengers of the toxic variety and princesses of the cosmic variety.`\
+https://nytimes.com/2026/02/13/movies/science-fiction-movies-streaming.html
+
 **The NBA should be embarrassed by fining Utah Jazz and move to finally fix tanking**\
 `The NBA can fine teams for tanking, but it can't avoid the bigger problems the league has created to incentivize losing. `\
 https://nytimes.com/athletic/7043905/2026/02/13/nba-tanking-fines-utah-jazz-adam-silver/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/02/13/nyregion/nikhil-gupta-assasination-india-sikh-ple
 **Josie Baff wins women's snowboard cross Olympic gold to make history for Australia**\
 `Josie Baff's Olympic gold was the first by an Australian woman in snowboard cross.`\
 https://nytimes.com/athletic/7044422/2026/02/13/josie-baff-snowboard-cross-gold-2026-winter-olympics/
-
-**Congress Jets Off as D.H.S. Shuts Down**\
-`Despite a deadlock over funding for the agency, lawmakers left town and left Democratic and White House negotiators to try to work out a deal in their absence.`\
-https://nytimes.com/2026/02/13/us/politics/congress-jets-off-shutdown.html
-
-**Trump’s Minnesota Retreat Points to the Power of Public Anger**\
-`The withdrawal came as polls show Americans opposing the president’s immigration tactics, and as some Republican lawmakers began to find ways to distance themselves.`\
-https://nytimes.com/2026/02/13/us/politics/trump-minneapolis-ice-republicans.html
-
-**San Francisco Teachers End Strike After 4 Days**\
-`Public schools are expected to reopen on Wednesday for 50,000 students in the city. Teachers demanded higher wages and health care benefits.`\
-https://nytimes.com/2026/02/13/us/san-francisco-school-strike-end.html
 

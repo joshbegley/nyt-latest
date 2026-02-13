@@ -1,3 +1,15 @@
+**In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
+`An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
+https://nytimes.com/2026/02/13/arts/neighbors-hbo.html
+
+**Chicken and Sausage Gumbo, Let’s Go**\
+`Our best Mardi Gras recipes, and reader favorites from this week.`\
+https://nytimes.com/2026/02/13/dining/chicken-and-sausage-gumbo-lets-go.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, avengers of the toxic variety and princesses of the cosmic variety.`\
+https://nytimes.com/2026/02/13/movies/science-fiction-movies-streaming.html
+
 **The NBA should be embarrassed by fining Utah Jazz and move to finally fix tanking**\
 `The NBA can fine teams for tanking, but it can't avoid the bigger problems the league has created to incentivize losing. `\
 https://nytimes.com/athletic/7043905/2026/02/13/nba-tanking-fines-utah-jazz-adam-silver/
