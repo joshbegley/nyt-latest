@@ -1,3 +1,15 @@
+**Learning the Ropes, and the Shackles and the Bolts, in Antarctica**\
+`A squad of graduate students aboard the icebreaker Araon is getting a crash course in the slow and physical work of ocean exploration.`\
+https://nytimes.com/card/2026/02/13/climate/antarctica-oceanography-students
+
+**‘The Pitt’ Season 2, Episode 6 Recap: A Sudden Goodbye**\
+`A sudden death rattles the doctors and nurses at the Pitt a little more than usual. Meanwhile, the patients keep steaming in.`\
+https://nytimes.com/2026/02/12/arts/television/the-pitt-recap-season-2-episode-6.html
+
+**Like Some Breath**\
+`Evan Mulvihill opens our solving weekend.`\
+https://nytimes.com/2026/02/12/crosswords/daily-puzzle-2026-02-13.html
+
 **Ex-Prime Minister of Norway Charged With Corruption Linked to Epstein**\
 `Thorbjorn Jagland, who briefly led Norway in the 1990s, had been protected by diplomatic immunity that came with his work with the Council of Europe, but that privilege was waived.`\
 https://nytimes.com/2026/02/12/world/europe/thorbjorn-jagland-epstein-corruption-norway.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanki
 **Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
 `The suspect in the British Columbia shooting had long been posting about mental health problems, substance abuse and a fascination with weapons and online violence.`\
 https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-suspect-social-media.html
-
-**Here’s the latest.**\
-`By Anupreeta Das and Saif Hasnat`\
-https://nytimes.com/live/2026/02/12/world/bangladesh-election-results/heres-the-latest
-
-**Live Updates: Bangladesh Nationalist Party Claims Victory in Pivotal Election**\
-`The B.N.P., led by Tarique Rahman, was heavily favored to win the first election in the country since a student-led revolution toppled the last government in 2024.`\
-https://nytimes.com/live/2026/02/12/world/bangladesh-election-results
-
-**Scoop City: Offseason needs and NFL draft notes**\
-`The critical offseason needs for playoff and non-playoff teams, and where the top five teams among the latter rank in bounce-back potential`\
-https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
 
