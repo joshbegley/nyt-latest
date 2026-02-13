@@ -1,3 +1,7 @@
+**White House Claims Win Amid Strong Economic Data**\
+`Strong jobs data and a soft inflation reading for January are welcome news for President Trump. But the bigger economic picture is less encouraging.`\
+https://nytimes.com/2026/02/13/business/economy-inflation-jobs-trump.html
+
 **How to watch Ohio vs. Miami (OH) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Ohio Bobcats play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7045301/2026/02/13/ohio-vs-miami-oh-stream-how-to-watch-feb-13/
