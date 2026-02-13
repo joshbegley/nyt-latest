@@ -1,3 +1,19 @@
+**The Bounce: Will USA vs. USA vs. the World work?**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
+
+**Real's Mbappe available for Sociedad clash on Saturday after knee discomfort**\
+`The France international has been struggling with discomfort in his left knee since December.`\
+https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
+
+**Bessent Pushes Senate on Fed Confirmation Amid Backlash Over Criminal Inquiry**\
+`President Trump’s effort to get Kevin M. Warsh confirmed as the next Federal Reserve chair has been complicated by a criminal investigation into Jerome H. Powell.`\
+https://nytimes.com/2026/02/13/us/politics/bessent-powell-warsh-fed-chair-confirmation.html
+
+**Rodri charged by FA after questioning referee neutrality vs. Spurs**\
+`Rodri is facing an FA ban following his comments after the draw with Tottenham Hotspur at the start of this month.`\
+https://nytimes.com/athletic/7044446/2026/02/13/rodri-charged-fa-manchester-city-tottenham/
+
 **German Officials Needle Trump at Munich Security Conference**\
 `Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
 https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7044275/2026/02/13/laremy-tunsil-contract-commander
 **Mavericks' GM search a chance for Patrick Dumont to quiet any controversy**\
 `The Mavericks can't afford to make a mistake when it comes to hiring a new GM to run the team.`\
 https://nytimes.com/athletic/7043898/2026/02/13/mavericks-gm-search-patrick-dumont/
-
-**Guardiola defends multiculturalism in UK after Ratcliffe's 'colonised' controversy**\
-`Manchester City manager believes immigrants should not be blamed for society's problems`\
-https://nytimes.com/athletic/7044341/2026/02/13/guardiola-ratcliffe-colonised-comments/
-
-**Tottenham verbally agree deal to appoint Igor Tudor as interim head coach**\
-`The club have moved for a temporary appointment following the dismissal of Thomas Frank on Wednesday.`\
-https://nytimes.com/athletic/7038301/2026/02/13/tottenham-next-manager-igor-tudor/
-
-**AFCON 2027 to be staged in summer months, no change of host nations - CAF president**\
-`Motsepe also suggested the opening game of AFCON 2027 will be held in Tanzania, one of three nations co-hosting the tournament.`\
-https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
-
-**U.S. Inflation Eased at Start of the Year**\
-`The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
-https://nytimes.com/2026/02/13/business/inflation-cpi-report-january.html
 
