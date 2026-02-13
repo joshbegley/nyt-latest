@@ -1,3 +1,15 @@
+**Mavericks' GM search a chance for Patrick Dumont to quiet any controversy**\
+`The Mavericks can't afford to make a mistake when it comes to hiring a new GM to run the team.`\
+https://nytimes.com/athletic/7043898/2026/02/13/mavericks-gm-search-patrick-dumont/
+
+**Guardiola defends multiculturalism in UK after Ratcliffe's 'colonised' controversy**\
+`Manchester City manager believes immigrants should not be blamed for society's problems`\
+https://nytimes.com/athletic/7044341/2026/02/13/guardiola-ratcliffe-colonised-comments/
+
+**Tottenham verbally agree deal to appoint Igor Tudor as interim head coach**\
+`The club have moved for a temporary appointment following the dismissal of Thomas Frank on Wednesday.`\
+https://nytimes.com/athletic/7038301/2026/02/13/tottenham-next-manager-igor-tudor/
+
 **AFCON 2027 to be staged in summer months, no change of host nations - CAF president**\
 `Motsepe also suggested the opening game of AFCON 2027 will be held in Tanzania, one of three nations co-hosting the tournament.`\
 https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
