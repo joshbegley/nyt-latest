@@ -1,3 +1,11 @@
+**Scoop City: Offseason needs and NFL draft notes**\
+`The critical offseason needs for playoff and non-playoff teams, and where the top five teams among the latter rank in bounce-back potential`\
+https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
+
+**Goldman’s Top Lawyer Departs Amid Revelations About Her Ties to Epstein**\
+`Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed she had a friendship with Jeffrey Epstein, the sex offender, spanning many years.`\
+https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.html
+
 **Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\
 `It is the latest court ruling staving off deep cuts to social services that Democratic-led states say are politically motivated and would harm hundreds of thousands of people.`\
 https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html

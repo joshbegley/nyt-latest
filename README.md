@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Anupreeta Das and Saif Hasnat`\
+https://nytimes.com/live/2026/02/12/world/bangladesh-election-results/heres-the-latest
+
+**Live Updates: Bangladesh Nationalist Party Claims Victory in Pivotal Election**\
+`The B.N.P., led by Tarique Rahman, was heavily favored to win the first election in the country since a student-led revolution toppled the last government in 2024.`\
+https://nytimes.com/live/2026/02/12/world/bangladesh-election-results
+
 **Scoop City: Offseason needs and NFL draft notes**\
 `The critical offseason needs for playoff and non-playoff teams, and where the top five teams among the latter rank in bounce-back potential`\
 https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010708789/dhs-funding-senate-democra
 **New details emerge in felony rape case against BYU receiver Parker Kingston**\
 `According to affidavit of probable cause, woman told a forensic interviewer that she "set clear boundaries" ahead of meeting.`\
 https://nytimes.com/athletic/7043310/2026/02/12/parker-kingston-byu-arrest-details/
-
-**The Epstein Files and the Hidden World of an Unaccountable Elite**\
-`The search continues in the documents for ironclad criminal conduct, but the story of a sexual predator given a free ride by the ruling class has already emerged.`\
-https://nytimes.com/2026/02/12/us/politics/epstein-files.html
-
-**See How Gaon Choi Dethroned Chloe Kim in Women’s Halfpipe**\
-`Choi came back after a hard fall during her first run, landing back-to-back 900s and ending Kim’s hopes of a third gold medal.`\
-https://nytimes.com/interactive/2026/02/12/sports/chloe-kim-gaon-choi-snowboarding-halfpipe-olympics.html
 
