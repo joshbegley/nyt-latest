@@ -1,3 +1,7 @@
+**Trump Administration Tells Judge It Will Release Gateway Funding**\
+`Payments for the $16 billion rail tunnel between New York City and New Jersey had been suspended for more than four months.`\
+https://nytimes.com/2026/02/13/nyregion/gateway-tunnel-funding-ny-nj-trump.html
+
 **When Posting Becomes Its Own Style of Politics**\
 `Social media has long been flooded with populist rage and discontent. What happens when the posts become policy?`\
 https://nytimes.com/interactive/2026/02/13/style/slopulism-trump-conservative-social-media.html
