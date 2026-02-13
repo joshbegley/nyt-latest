@@ -1,3 +1,7 @@
+**The Pulse: The Randy Moss of figure skating**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7042416/2026/02/13/ilia-malinin-gold-medal-the-pulse/
+
 **NASCAR changed its championship format. Now the racing could change, too**\
 `In the old system, drivers were highly incentivized to do whatever it took to win a race. Now, consistency matters more.`\
 https://nytimes.com/athletic/7037052/2026/02/13/nascar-cup-championship-chase-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041910/2026/02/13/bills-offseason-needs-wide-recei
 **An F1 movie sequel? Interest is high after success of Brad Pitt film**\
 `"F1 The Movie" producer Jerry Bruckheimer says he's working on a sequel. But the plans aren't advanced just yet`\
 https://nytimes.com/athletic/7041331/2026/02/13/f1-movie-sequel-plans/
-
-**Men's college basketball bubble watch: Wisconsin, Miami and the bubblers strike back**\
-`With four weeks until Selection Sunday, here's where the bubble stands — and which teams have the most work to do.`\
-https://nytimes.com/athletic/7044016/2026/02/13/mens-college-basketball-bubble-watch-ncaa-tournament/
 

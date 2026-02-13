@@ -1,3 +1,11 @@
+**Sunderland sporting director Speakman to leave club**\
+`The departure is a board of directors’ decision to move forward without him.`\
+https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
+
+**Picking three potential FA Cup upsets: Wrexham eyeing another win**\
+`The FA Cup is back this weekend for the fourth round - could there be another classic cupset on the cards?`\
+https://nytimes.com/athletic/7044151/2026/02/13/fa-cup-fourth-round-upset-watch-potential-surprises-include-wrexham-and-birmingham/
+
 **The Pulse: The Randy Moss of figure skating**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7042416/2026/02/13/ilia-malinin-gold-medal-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7043755/2026/02/13/mlb-gambling-prediction-markets-
 **What system changes could come from the Eagles' offensive staff overhaul?**\
 `The new additions to the coaching staff will be tasked with maximizing a Super Bowl-caliber roster.`\
 https://nytimes.com/athletic/7038598/2026/02/13/eagles-offense-staff-overhaul-system/
-
-**Bills offseason needs: Wide receiver and several pieces for a new defensive scheme**\
-`A new scheme brings new needs all over the roster.`\
-https://nytimes.com/athletic/7041910/2026/02/13/bills-offseason-needs-wide-receiver-defense/
-
-**An F1 movie sequel? Interest is high after success of Brad Pitt film**\
-`"F1 The Movie" producer Jerry Bruckheimer says he's working on a sequel. But the plans aren't advanced just yet`\
-https://nytimes.com/athletic/7041331/2026/02/13/f1-movie-sequel-plans/
 

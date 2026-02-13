@@ -1,3 +1,7 @@
+**The Pulse: The Randy Moss of figure skating**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7042416/2026/02/13/ilia-malinin-gold-medal-the-pulse/
+
 **NASCAR changed its championship format. Now the racing could change, too**\
 `In the old system, drivers were highly incentivized to do whatever it took to win a race. Now, consistency matters more.`\
 https://nytimes.com/athletic/7037052/2026/02/13/nascar-cup-championship-chase-2026/
