@@ -1,20 +1,16 @@
-**U.S. district court rules Brian Flores's lawsuit vs. NFL will proceed in open court**\
-`The NFL, which can appeal the decision, has fought to keep Flores's racial discrimination lawsuit in the league's arbitration system.`\
-https://nytimes.com/athletic/7045047/2026/02/13/brian-flores-lawsuit-nfl-arbitration-ruling/
+**Yuto Totsuka wins men's snowboard halfpipe gold, pushing Scotty James to silver**\
+`The 2021 world champion Totsuka scored 95.00 for gold as Australia's Scotty James had to settle for Olympic silver. `\
+https://nytimes.com/athletic/7045172/2026/02/13/yuto-totsuka-mens-snowboard-halfpipe-final/
 
-**Virginia’s Top Court Clears Path for Democratic Push to Redraw House Map**\
-`The State Supreme Court allowed a spring statewide referendum that is necessary for Democrats to redraw Virginia’s congressional map before the midterm elections.`\
-https://nytimes.com/2026/02/13/us/politics/virginia-redistricting-democrats-house-seats.html
+**NFL expects to kick off 2026-27 regular season on a Wednesday for first time: Source**\
+`For the last two decades, the season opener has almost always been on a Thursday, with the defending Super Bowl champion as the host team.`\
+https://nytimes.com/athletic/7045140/2026/02/13/nfl-regular-season-kickoff-2026-wednesday/
 
-**Carter Bryant learned basketball in silence. Now, his game is getting louder**\
-`In an interview, the Spurs' rookie and dunk contest participant explained how growing up in the deaf community made him a better player.`\
-https://nytimes.com/athletic/7043788/2026/02/13/carter-bryant-spurs-deaf-dunk-contest/
+**18-Year-Old Gets Life in Prison for Shooting That Left 5 Dead**\
+`A judge in North Carolina said it was “hard to conceive of a greater display of malice” and that the young man’s actions in the 2022 mass shooting reflected “irreparable corruption.”`\
+https://nytimes.com/2026/02/13/us/austin-thompson-shooting-north-carolina-sentencing.html
 
-**Restaurant Review: Babbo**\
-`This week, Ligaya Mishan, a chief restaurant critic for the New York Times reviews Babbo in Manhattan. Many of the old favorites are back at this hot spot once scorched by scandal, but with smart updates by the chef Mark Ladner.`\
-https://nytimes.com/video/dining/100000010711216/restaurant-review-babbo.html
-
-**Crazy Crust Pizza With Sausage**\
-`Homemade pizza from scratch in just one hour? Crazy! The no-yeast, no-knead recipe for Crazy Crust Pizza was first popularized decades ago when it was published by Pillsbury.`\
-https://nytimes.com/video/dining/100000010711220/crazy-crust-pizza-with-sausage.html
+**2 Dead, One Wounded in Shooting at South Carolina State University**\
+`The violence on Thursday night took place in a residence hall near the site of two other shootings in October.`\
+https://nytimes.com/2026/02/13/us/shooting-south-carolina-state.html
 
