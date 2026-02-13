@@ -1,20 +1,16 @@
-**The Best Ways to Regulate Marijuana**\
-`Readers respond to an editorial about the legalization and regulation of marijuana. Also: The Trump administration’s attack on climate science.`\
-https://nytimes.com/2026/02/13/opinion/marijuana-regulation.html
+**Snoop Dogg’s security reportedly clashes with Dutch speed skating star at Winter Olympics**\
+`Olympic gold medalist Marianne Timmer alleges confrontation with Snoop Dogg’s security at Milan’s speed skating venue.`\
+https://nytimes.com/athletic/7045029/2026/02/13/snoop-dogg-security-marianne-timmer-milan-olympics-incident/
 
-**Moving On From Minnesota, ICE Leaves a Legal Mess Behind**\
-`A surge of immigration arrests in the state sent thousands of people to detention centers in Texas, New Mexico and elsewhere. Federal courts have been overwhelmed with their pleas for release.`\
-https://nytimes.com/2026/02/13/us/ice-arrests-minnesota-courts.html
+**Trump Official Will Leave Top Transit Post — for a State Assembly Seat**\
+`As head of the Federal Transit Administration, Marc Molinaro controls billions of dollars in federal grants. He plans to give it all up to run for a seat in the New York Legislature.`\
+https://nytimes.com/2026/02/13/nyregion/marc-molinaro-assembly-fta-trump.html
 
-**Igor Tudor style of play: Tottenham can expect pressing, organisation and daring football**\
-`Spurs have verbally agreed a deal to appoint Igor Tudor until the end of the end of the season. This is how his teams play`\
-https://nytimes.com/athletic/7044831/2026/02/13/igor-tudor-tottenham-tactics-analysis/
+**Julia Quinn, Author of the ‘Bridgerton’ Novels, Reflects on the Series**\
+`Just in time for Valentine’s Day, the author appeared on the Book Review podcast to speak about her books and the Netflix phenomenon they sparked.`\
+https://nytimes.com/2026/02/13/books/review/podcast-julia-quinn-bridgerton.html
 
-**How Bangladesh Went from Revolution to Elections**\
-`Bangladesh held the first national elections since a student revolution in the summer of 2024. Standing outside the Dhaka university, the epicenter of the student movement, New York Times correspondent Anupreeta Das explains what the recent elections mean for the country’s future.`\
-https://nytimes.com/video/world/100000010700965/how-bangladesh-went-from-revolution-to-fresh-elections.html
-
-**Where Are You, Mysterious Wedding Boots?**\
-`We tracked down some footwear Alan Wyffels wore to exchange vows with his now-husband, Perfume Genius.`\
-https://nytimes.com/2026/02/13/t-magazine/perfume-genius-alan-wyffels-wedding-boots.html
+**Barcelona players and Hansi Flick hold critical talks after Atletico defeat**\
+`The German coach criticised his players' attitude in talks at the training ground. They responded with concerns over his playing style`\
+https://nytimes.com/athletic/7045043/2026/02/13/barcelona-atletico-flick-players-tactics-talks/
 
