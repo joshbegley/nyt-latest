@@ -1,20 +1,20 @@
-**Trump Administration Revokes Deportation Protections for Yemenis**\
-`It is the latest restriction of the Temporary Protected Status program, which has allowed people fleeing unrest in their home countries to live and work in the United States.`\
-https://nytimes.com/2026/02/13/us/politics/trump-administration-revokes-deportation-protections-for-yemenis.html
+**Restaurant Review: Babbo**\
+`This week, Ligaya Mishan, a chief restaurant critic for the New York Times reviews Babbo in Manhattan. Many of the old favorites are back at this hot spot once scorched by scandal, but with smart updates by the chef Mark Ladner.`\
+https://nytimes.com/video/dining/100000010711216/restaurant-review-babbo.html
 
-**Skating federation backs French judge in Olympic Chock and Bates ice dance controversy**\
-`MILAN — Nearly two days after a controversial scoring decision resulted in American ice dancers Madison Chock and Evan Bates taking home silver rather than gold, the noise hasn’t quieted down over whether a French judge helped the French pair Laurence Fournier Beaudry and Guillaume Cizeron stand atop the podium.`\
-https://nytimes.com/athletic/7045141/2026/02/13/olympic-ice-dance-judge-scoring-controversy-chock-bates/
+**Crazy Crust Pizza With Sausage**\
+`Homemade pizza from scratch in just one hour? Crazy! The no-yeast, no-knead recipe for Crazy Crust Pizza was first popularized decades ago when it was published by Pillsbury.`\
+https://nytimes.com/video/dining/100000010711220/crazy-crust-pizza-with-sausage.html
 
-**Texas University Closes Exhibition With Anti-ICE Artwork**\
-`The exhibition at the University of North Texas by a Mexican-born artist included the language “Immigration and Cruelty Enforcement.”`\
-https://nytimes.com/2026/02/13/arts/design/university-north-texas-victor-quinonez-ice.html
+**Creamy Tortellini Soup**\
+`Store-bought, cheese-filled tortellini are immersed in an extra creamy tomato broth alongside Italian sausage and Tuscan (lacinato) kale, creating a hearty and comforting soup that comes together in 30 minutes.`\
+https://nytimes.com/video/dining/100000010711226/creamy-tortellini-soup.html
 
-**Bad Bunny wanted to pay Carlos Correa’s WBC insurance. Officials said ‘it was a bad idea’**\
-`Said Correa: "It hurts because I was envisioning my kids in the stands watching me play in my hometown."`\
-https://nytimes.com/athletic/7045126/2026/02/13/bad-bunny-carlos-correa-world-baseball-classic-insurance/
+**Little Gem Salad With Crispy Halloumi**\
+`Meet halloumi crumbs, a best-of-all-worlds garnish for salads, pastas and more. They’re crisp like toasted breadcrumbs, salty like Parmesan and still maintain some of halloumi’s signature chew.`\
+https://nytimes.com/video/dining/100000010711230/little-gem-salad-with-crispy-halloumi.html
 
-**Lindsey Vonn posts new update after Olympic crash: 'I have a long, long way to go'**\
-`Vonn said she's having another surgery Saturday in Italy before hoping to go home, where she'll face another surgery.`\
-https://nytimes.com/athletic/7045053/2026/02/13/lindsey-vonn-crash-olympics-surgery-update-hospital/
+**Vodka Sauce Tomato Soup**\
+`This soup relies on a layering of flavor from roasting both fresh and canned tomatoes, which each have different levels of sweetness, acidity and tomato-to-water concentrations. Then, a sort of vodka sauce approach enters the picture and contributes bisque-adjacent richness and spice.`\
+https://nytimes.com/video/dining/100000010711234/vodka-sauce-tomato-soup.html
 
