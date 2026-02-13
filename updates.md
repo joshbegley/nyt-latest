@@ -1,3 +1,15 @@
+**NFL wins grievance to halt NFLPA's annual team report cards**\
+`An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
+https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
+
+**United States off the mark at T20 World Cup to keep Super Eight hopes alive**\
+`An emphatic victory over the Netherlands was inspired by Harmeet Singh's 4-21 and an impressive 79 from youngster Saiteja Mukkamalla`\
+https://nytimes.com/athletic/7044692/2026/02/13/united-states-t20-world-cup-netherlands/
+
+**Nebraska football thoughts: Bill Moos' book revelations, an early start to spring and more**\
+`Moos, the former Nebraska AD, revealed he wanted to hire Chip Kelly and Dana Altman as football and men's basketball coach, respectively.`\
+https://nytimes.com/athletic/7043214/2026/02/13/nebraska-football-bill-moos-matt-rhule-spring/
+
 **F.T.C. Chair Warns Apple Against Bias in Apple News**\
 `Andrew Ferguson of the F.T.C. said in a letter to Apple that it might be violating consumer protection law by stifling conservative speech in its news aggregation service.`\
 https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html

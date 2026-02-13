@@ -1,6 +1,18 @@
+**NFL wins grievance to halt NFLPA's annual team report cards**\
+`An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
+https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
+
+**United States off the mark at T20 World Cup to keep Super Eight hopes alive**\
+`An emphatic victory over the Netherlands was inspired by Harmeet Singh's 4-21 and an impressive 79 from youngster Saiteja Mukkamalla`\
+https://nytimes.com/athletic/7044692/2026/02/13/united-states-t20-world-cup-netherlands/
+
 **F.T.C. Chair Warns Apple Against Bias in Apple News**\
 `Andrew Ferguson of the F.T.C. said in a letter to Apple that it might be violating consumer protection law by stifling conservative speech in its news aggregation service.`\
 https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html
+
+**Nebraska football thoughts: Bill Moos' book revelations, an early start to spring and more**\
+`Moos, the former Nebraska AD, revealed he wanted to hire Chip Kelly and Dana Altman as football and men's basketball coach, respectively.`\
+https://nytimes.com/athletic/7043214/2026/02/13/nebraska-football-bill-moos-matt-rhule-spring/
 
 **World No. 1 and No. 2 Aryna Sabalenka and Iga Świątek withdraw from Dubai WTA 1000 tournament**\
 `The world No. 1 and world No. 2 will both be missing from the tournament in the United Arab Emirates which begins Feb. 15.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7041698/2026/02/13/vitor-pereira-nottingham-forest-
 **Can a Brand Reboot Ever Really Work?**\
 `Public School is trying. And perhaps succeeding.`\
 https://nytimes.com/2026/02/13/style/nyfw-public-school.html
-
-**A Friendship Built on Keeping the Dim Sum Carts Rolling**\
-`In Bensonhurst, Brooklyn, these women have forged a friendship while serving baskets of dumplings at a cavernous dim sum restaurant.`\
-https://nytimes.com/2026/02/13/dining/on-the-job-dim-sum.html
-
-**Ukrainian Vladyslav Heraskevych's appeal denied in skeleton 'helmet of memory' case**\
-`Heraskevych had asked to be reinstated immediately or to be allowed to perform supervised provisional runs until CAS ruled on the case.`\
-https://nytimes.com/athletic/7044122/2026/02/13/olympics-vladyslav-heraskevych-helmet-ukrainian-appeal/
-
-**Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
-`A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
-https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
 

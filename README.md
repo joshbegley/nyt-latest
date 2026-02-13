@@ -1,4 +1,12 @@
-**NFL wins grievance to halt NFLPA's annual team report cards**\
+**Tarique Rahman Set to be New Prime Minister of Bangladesh**\
+`The Bangladesh National Party, led by Tarique Rahman, won the first elections in the country since a student-led movement toppled the government in 2024.`\
+https://nytimes.com/video/world/asia/100000010710802/tarique-rahman-bangladesh-elections-win.html
+
+**British Court Rules Ban on Palestine Action Is Unlawful**\
+`Supporters of Palestine Action celebrated in front of the High Court on Friday after it ruled that a government ban on the pro-Palestine group was unlawful.`\
+https://nytimes.com/video/world/europe/100000010710813/uk-palestine-action-ban-high-court.html
+
+**NFL wins grievance to halt NFLPA's public release of team report cards**\
 `An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
 https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7044698/2026/02/13/usa-hockey-denmark-olympics-gree
 **Dubai Ports Boss Resigns Amid Fallout From Epstein Files**\
 `Sultan Ahmed bin Sulayem was credited with turning the state-backed DP World into a global logistics powerhouse. He was recently identified in correspondence with Jeffrey Epstein.`\
 https://nytimes.com/2026/02/13/world/middleeast/epstein-dp-world-ports-ahmed-bin-sulayem.html
-
-**What Forest are getting with Vitor Pereira: Nuno comparisons, volatility, and an unusual career path**\
-`A volatile character is walking into a volatile situation at the City Ground. The end result will be spectacular either way`\
-https://nytimes.com/athletic/7041698/2026/02/13/vitor-pereira-nottingham-forest-profile/
-
-**Can a Brand Reboot Ever Really Work?**\
-`Public School is trying. And perhaps succeeding.`\
-https://nytimes.com/2026/02/13/style/nyfw-public-school.html
 
