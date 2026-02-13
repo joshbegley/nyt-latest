@@ -1,3 +1,7 @@
+**Astros 'not done' after re-acquiring Joey Loperfido in trade of Jesús Sánchez to Jays**\
+`The Astros have been trying to trade Isaac Paredes and Christian Walker.`\
+https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue-jays-jesus-sanchez/
+
 **The Bounce: Will USA vs. USA vs. the World work?**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/

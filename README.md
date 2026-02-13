@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
 
-**Real's Mbappe available for Sociedad clash on Saturday after knee discomfort**\
+**Real Madrid's Mbappe fit for Real Sociedad match despite knee discomfort**\
 `The France international has been struggling with discomfort in his left knee since December.`\
 https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
 
