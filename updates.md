@@ -1,3 +1,11 @@
+**Word of the Day: rife**\
+`This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
+
+**Barcelona have never looked so lost under Hansi Flick. Should we be worried?**\
+`The weaknesses of Hansi Flick's high-risk attacking style were ruthlessly exposed by Atletico Madrid in a 4-0 defeat on Thursday night`\
+https://nytimes.com/athletic/7043114/2026/02/13/barcelona-atletico-copa-result-high-line-flick/
+
 **Arsenal got 'Arsenaled'. Brentford deliver Arteta's side their own dose of set-piece hell**\
 `Brentford made Arsenal pay from a long throw which meant two dropped points in the Premier League title race`\
 https://nytimes.com/athletic/7043392/2026/02/13/arsenal-brentford-kayode-throw-set-pieces/
