@@ -1,3 +1,7 @@
+**Mavericks' GM search a chance for Patrick Dumont to quiet any controversy**\
+`The Mavericks can't afford to make a mistake when it comes to hiring a new GM to run the team.`\
+https://nytimes.com/athletic/7043898/2026/02/13/mavericks-gm-search-patrick-dumont/
+
 **Guardiola defends multiculturalism in UK after Ratcliffe's 'colonised' controversy**\
 `Manchester City manager believes immigrants should not be blamed for society's problems`\
 https://nytimes.com/athletic/7044341/2026/02/13/guardiola-ratcliffe-colonised-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044309/2026/02/13/olympics-johannes-klaebo-gold-re
 **Trump Administration Live Updates: Homeland Security Funding Set to Lapse**\
 ``\
 https://nytimes.com/live/2026/02/13/us/trump-news
-
-**Canada Soccer secures new rights deal with CSME before landmark home World Cup**\
-`The new agreement brings a premature end to the previous deal, which was the subject of much angst and protest`\
-https://nytimes.com/athletic/7043701/2026/02/13/canada-soccer-csme-rights-deal-world-cup/
 
