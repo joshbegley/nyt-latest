@@ -6,8 +6,8 @@ https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
 `In a moment of frayed trans-Atlantic relations, Speaker Mike Johnson abruptly canceled the House delegation to Europe’s biggest annual security summit.`\
 https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
 
-**Prosecutor Seeks Dismissal of Charges Against Two Men in ICE Shooting Incident**\
-`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what federal officials claimed when they had charged the men, one of whom was shot by an agent.`\
+**Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged two men with assaulting an agent.`\
 https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
 
 **Senate Democrats Block Funding for D.H.S.**\
