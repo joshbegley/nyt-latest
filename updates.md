@@ -1,3 +1,19 @@
+**Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
+`In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
+https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
+
+**Partial Federal Shutdown Shrinks Congressional Presence in Munich**\
+`In a moment of frayed trans-Atlantic relations, Speaker Mike Johnson abruptly canceled the House delegation to Europe’s biggest annual security summit.`\
+https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
+
+**Prosecutor Seeks Dismissal of Charges Against Two Men in ICE Shooting Incident**\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what federal officials claimed when they had charged the men, one of whom was shot by an agent.`\
+https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
+
+**Senate Democrats Block Funding for D.H.S.**\
+`After a heated Senate hearing that highlighted the partisan divide over immigration enforcement, Democrats voted to block funding for the Department of Homeland Security.`\
+https://nytimes.com/video/us/politics/100000010708789/dhs-funding-senate-democrats.html
+
 **New details emerge in felony rape case against BYU receiver Parker Kingston**\
 `According to affidavit of probable cause, woman told a forensic interviewer that she "set clear boundaries" ahead of meeting.`\
 https://nytimes.com/athletic/7043310/2026/02/12/parker-kingston-byu-arrest-details/
