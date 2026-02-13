@@ -1,3 +1,11 @@
+**Milan Has an Affordable Housing Crisis. Can the Olympic Village Help?**\
+`The accommodation for athletes includes a video game lounge, massage room and a range of food options. Starting from September, it will house students — or at least those who can afford the rent.`\
+https://nytimes.com/2026/02/13/world/europe/milan-housing-crisis-olympic-village.html
+
+**‘Wuthering Heights’ | Anatomy of a Scene**\
+`The director and screenwriter Emerald Fennell narrates a sequence from her film featuring Margot Robbie, Shazad Latif, Alison Oliver and Hong Chau.`\
+https://nytimes.com/video/movies/100000010705309/wuthering-heights-anatomy-of-a-scene.html
+
 **Igor Thiago signs new Brentford contract to 2031**\
 `Only Erling Haaland has scored more than the Brazilian's 17 Premier League goals this season.`\
 https://nytimes.com/athletic/7044103/2026/02/13/brentford-igor-thiago-contract-new/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/13/nyregion/portal-bridge-njtransit-amtrak.html
 **Floods. Smoke. Soaring Bills. Mamdani’s Climate Czar Has a Full Agenda.**\
 `Louise Yeung relishes the intricacies of policy debates and the magic of rom-coms. She lives in Brooklyn with her cat and two snails.`\
 https://nytimes.com/2026/02/13/nyregion/mamdani-climate-czar-nyc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/13/crosswords/spelling-bee-forum.html
-
-**How Sir Jim Ratcliffe sparked a political storm that engulfed Manchester United**\
-`Sir Jim Ratcliffe's claims that the United Kingdom has been “colonised by immigrants” drew a reaction inside and outside Old Trafford`\
-https://nytimes.com/athletic/7042785/2026/02/13/ratcliffe-manchester-united-political-storm/
 

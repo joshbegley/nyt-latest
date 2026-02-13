@@ -1,3 +1,11 @@
+**Milan Has an Affordable Housing Crisis. Can the Olympic Village Help?**\
+`The accommodation for athletes includes a video game lounge, massage room and a range of food options. Starting from September, it will house students — or at least those who can afford the rent.`\
+https://nytimes.com/2026/02/13/world/europe/milan-housing-crisis-olympic-village.html
+
+**‘Wuthering Heights’ | Anatomy of a Scene**\
+`The director and screenwriter Emerald Fennell narrates a sequence from her film featuring Margot Robbie, Shazad Latif, Alison Oliver and Hong Chau.`\
+https://nytimes.com/video/movies/100000010705309/wuthering-heights-anatomy-of-a-scene.html
+
 **Igor Thiago signs new Brentford contract to 2031**\
 `Only Erling Haaland has scored more than the Brazilian's 17 Premier League goals this season.`\
 https://nytimes.com/athletic/7044103/2026/02/13/brentford-igor-thiago-contract-new/
