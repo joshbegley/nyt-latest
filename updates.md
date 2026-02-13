@@ -1,3 +1,7 @@
+**Trevor Story ready to fill Red Sox's leadership void after choosing to stay in Boston**\
+`The shortstop could've opted out after a strong 2025 campaign. Instead, he plans to lead the infield and take his play to "another level."`\
+https://nytimes.com/athletic/7045445/2026/02/13/red-sox-trevor-story-leadership/
+
 **Undefeated in women's hockey, Team USA advances to semifinals with win over Italy**\
 `The Americans defeated the Italians 6-0 on Friday night. Team USA's shutout streak is now the longest in Olympic women's hockey history.`\
 https://nytimes.com/athletic/7045154/2026/02/13/united-states-italy-olympics-womens-hockey/
