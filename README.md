@@ -1,3 +1,7 @@
+**Watch Choi Gaon and Chloe Kim Go Head to Head in the Halfpipe**\
+`The South Korean snowboarder Choi Gaon pulled off a stunning victory on Thursday in the women’s halfpipe final at the 2026 Olympics, capturing the gold medal and defeating the American Chloe Kim, the two-time defending champion.`\
+https://nytimes.com/video/sports/100000010710159/watch-choi-gaon-and-chloe-kim-go-head-to-head-in-the-halfpipe.html
+
 **Republicans Ask Supreme Court to Intervene in N.Y. Redistricting Case**\
 `Lawyers for Representative Nicole Malliotakis, Republican of New York, asked the Supreme Court to block a ruling that would redraw her district lines.`\
 https://nytimes.com/2026/02/12/nyregion/redistricting-supreme-court-ny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/insider/jeffrey-epstein-files-documents.html
 **Closing of El Paso Airspace Adds to Tension Between F.A.A. and Pentagon**\
 `The Federal Aviation Administration is charged with flight safety, and the Defense Department with national security. Those missions keep colliding.`\
 https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
-
-**Nikola Topić makes NBA debut less than 4 months after cancer diagnosis**\
-`A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
-https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
 
