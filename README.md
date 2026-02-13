@@ -1,3 +1,7 @@
+**Igor Thiago signs new Brentford contract to 2031**\
+`Only Erling Haaland has scored more than the Brazilian's 17 Premier League goals this season.`\
+https://nytimes.com/athletic/7044103/2026/02/13/brentford-igor-thiago-contract-new/
+
 **From Exile to Power: The Rise of Bangladesh’s New Leader**\
 `Tarique Rahman, the scion of a political dynasty, returned to sweep his party into government with a promise of change. Some have doubts.`\
 https://nytimes.com/2026/02/13/world/asia/bangladesh-election-tarique-rahman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/13/crosswords/spelling-bee-forum.html
 **How Sir Jim Ratcliffe sparked a political storm that engulfed Manchester United**\
 `Sir Jim Ratcliffe's claims that the United Kingdom has been “colonised by immigrants” drew a reaction inside and outside Old Trafford`\
 https://nytimes.com/athletic/7042785/2026/02/13/ratcliffe-manchester-united-political-storm/
-
-**Pride Flag Returns to Stonewall, Defying Federal Order**\
-`Hundreds gathered near the historic Stonewall Inn to watch the Pride flag being hoisted at a monument honoring the L.G.B.T.Q. rights movement. The flag had been taken down after the Trump administration issued a new directive for national parks.`\
-https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
 

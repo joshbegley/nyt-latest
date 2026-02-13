@@ -1,3 +1,7 @@
+**From Exile to Power: The Rise of Bangladesh’s New Leader**\
+`Tarique Rahman, the scion of a political dynasty, returned to sweep his party into government with a promise of change. Some have doubts.`\
+https://nytimes.com/2026/02/13/world/asia/bangladesh-election-tarique-rahman.html
+
 **Why Did the Courts Do That? Let Him Explain.**\
 `Adam Liptak, The Times’s chief legal affairs correspondent, is writing a new weekly newsletter, The Docket, to help demystify the justice system.`\
 https://nytimes.com/2026/02/13/insider/adam-liptak-the-docket.html
