@@ -1,3 +1,7 @@
+**Trinidad Chambliss poised to return to Ole Miss after judge grants preliminary injunction**\
+`Chambliss, who led Ole Miss to the College Football Playoff semifinals, sued the NCAA last month after it denied his waiver request.`\
+https://nytimes.com/athletic/7043013/2026/02/12/trinidad-chambliss-eligibility-ole-miss-ncaa-court-case/
+
 **Police Seek 4 People After Teen Killed in Bronx Shooting**\
 `The police said they were seeking three men and one woman in connection with the shooting, which killed Christopher Redding, 16. Two other teenagers were injured.`\
 https://nytimes.com/2026/02/12/nyregion/bronx-fatal-shooting-teens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/briefing/trump-climate-regulations-tv-for-pets.ht
 **Patriots moving Terrell Williams to new role; Zak Kuhr could be promoted to DC: Source**\
 `After Williams left the team early last fall to undergo cancer treatment, Kuhr became the play caller and helped the team to the Super Bowl.`\
 https://nytimes.com/athletic/7043048/2026/02/12/patriots-defensive-coordinator-terrell-williams-zak-kuhr/
-
-**The High-Stakes Fight Over Masked Federal Agents**\
-`The debate over whether federal agents should be allowed to cover their faces with masks has become a flashpoint as the government heads for a partial shutdown.`\
-https://nytimes.com/2026/02/12/us/politics/congress-trump-ice-masked-agents.html
 
