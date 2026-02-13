@@ -1,3 +1,7 @@
+**Astros 'not done' after re-acquiring Joey Loperfido in trade of Jesús Sánchez to Jays**\
+`The Astros have been trying to trade Isaac Paredes and Christian Walker.`\
+https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue-jays-jesus-sanchez/
+
 **The Bounce: Will USA vs. USA vs. the World work?**\
 `The Bounce is The Athletic's free NBA newsletter.`\
 https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/13/business/markets-crisis-trump.html
 **Laremy Tunsil's future, options at No. 7, pressure on Adam Peters and more: Commanders mailbag**\
 `As the Commanders enter a crucial offseason, beat writer Nicki Jhabvala answers some pressing reader questions.`\
 https://nytimes.com/athletic/7044275/2026/02/13/laremy-tunsil-contract-commanders-draft-options/
-
-**Mavericks' GM search a chance for Patrick Dumont to quiet any controversy**\
-`The Mavericks can't afford to make a mistake when it comes to hiring a new GM to run the team.`\
-https://nytimes.com/athletic/7043898/2026/02/13/mavericks-gm-search-patrick-dumont/
 
