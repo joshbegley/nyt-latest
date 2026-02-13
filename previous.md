@@ -1,3 +1,11 @@
+**Trump’s Minnesota Retreat Points to the Power of Public Anger**\
+`The withdrawal came as polls show Americans opposing the president’s immigration tactics, and as some Republican lawmakers began to find ways to distance themselves.`\
+https://nytimes.com/2026/02/13/us/politics/trump-minneapolis-ice-republicans.html
+
+**San Francisco Teachers End Strike After 4 Days**\
+`Public schools are expected to reopen on Wednesday for 50,000 students in the city. Teachers demanded higher wages and health care benefits.`\
+https://nytimes.com/2026/02/13/us/san-francisco-school-strike-end.html
+
 **Astros 'not done' after re-acquiring Joey Loperfido in trade of Jesús Sánchez to Jays**\
 `The Astros have been trying to trade Isaac Paredes and Christian Walker.`\
 https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue-jays-jesus-sanchez/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/13/t-magazine/women-fashion-label-heads.html
 **Want to Cut Monthly Costs? Start With Your Internet and Streaming Bills.**\
 `It’s cold outside — and a fine time to look over your bills and see where you can save.`\
 https://nytimes.com/2026/02/13/your-money/monthly-bills-phone-internet-streaming-subscriptions.html
-
-**Crises Everywhere, but the Markets Don’t Seem to Mind**\
-`Stocks have prospered while the world has plunged into disorder, an economist says. “Keep calm and carry on” may be the best investors can do.`\
-https://nytimes.com/2026/02/13/business/markets-crisis-trump.html
-
-**Laremy Tunsil's future, options at No. 7, pressure on Adam Peters and more: Commanders mailbag**\
-`As the Commanders enter a crucial offseason, beat writer Nicki Jhabvala answers some pressing reader questions.`\
-https://nytimes.com/athletic/7044275/2026/02/13/laremy-tunsil-contract-commanders-draft-options/
 

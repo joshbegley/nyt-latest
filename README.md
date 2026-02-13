@@ -1,3 +1,11 @@
+**Josie Baff wins women's snowboard cross Olympic gold to make history for Australia**\
+`Josie Baff's Olympic gold was the first by an Australian woman in snowboard cross.`\
+https://nytimes.com/athletic/7044422/2026/02/13/josie-baff-snowboard-cross-gold-2026-winter-olympics/
+
+**Congress Jets Off as D.H.S. Shuts Down**\
+`Despite a deadlock over funding for the agency, lawmakers left town and left Democratic and White House negotiators to try to work out a deal in their absence.`\
+https://nytimes.com/2026/02/13/us/politics/congress-jets-off-shutdown.html
+
 **Trump’s Minnesota Retreat Points to the Power of Public Anger**\
 `The withdrawal came as polls show Americans opposing the president’s immigration tactics, and as some Republican lawmakers began to find ways to distance themselves.`\
 https://nytimes.com/2026/02/13/us/politics/trump-minneapolis-ice-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7044446/2026/02/13/rodri-charged-fa-manchester-city
 **German Officials Needle Trump at Munich Security Conference**\
 `Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
 https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
-
-**These Are the Women Changing Fashion**\
-`Five talents who helm independent labels — and lead with craft.`\
-https://nytimes.com/2026/02/13/t-magazine/women-fashion-label-heads.html
-
-**Want to Cut Monthly Costs? Start With Your Internet and Streaming Bills.**\
-`It’s cold outside — and a fine time to look over your bills and see where you can save.`\
-https://nytimes.com/2026/02/13/your-money/monthly-bills-phone-internet-streaming-subscriptions.html
 

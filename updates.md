@@ -1,3 +1,11 @@
+**Trump’s Minnesota Retreat Points to the Power of Public Anger**\
+`The withdrawal came as polls show Americans opposing the president’s immigration tactics, and as some Republican lawmakers began to find ways to distance themselves.`\
+https://nytimes.com/2026/02/13/us/politics/trump-minneapolis-ice-republicans.html
+
+**San Francisco Teachers End Strike After 4 Days**\
+`Public schools are expected to reopen on Wednesday for 50,000 students in the city. Teachers demanded higher wages and health care benefits.`\
+https://nytimes.com/2026/02/13/us/san-francisco-school-strike-end.html
+
 **Real Madrid's Mbappe fit for Real Sociedad match despite knee discomfort**\
 `The France international has been struggling with discomfort in his left knee since December.`\
 https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
