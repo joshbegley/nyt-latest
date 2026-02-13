@@ -1,3 +1,7 @@
+**2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
+`The case underlined how the Islamic State had seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
+https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html
+
 **F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
 `Aiming for what women actually want to wear, the team is prioritizing fit and style over sponsor logos and team branding`\
 https://nytimes.com/athletic/7043537/2026/02/13/f1-women-fanwear-cadillac/
