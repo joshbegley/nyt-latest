@@ -1,3 +1,7 @@
+**F1's 'smoke and mirrors' revs up as teams play games over 2026 engine advantages**\
+`Why are all four leading F1 teams are talking up their rivals' chances for F1 2026? It's all part of the sport's early mind games`\
+https://nytimes.com/athletic/7044764/2026/02/13/f1-testing-engines-red-bull-mercedes-fastest/
+
 **Games Briefing: Malinin's coronation?**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7044845/2026/02/13/ilia-malinin-figure-skating-olympic-games-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010710813/uk-palestine-action-ban-h
 **NFL wins grievance to halt NFLPA's public release of team report cards**\
 `An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
 https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
-
-**United States off the mark at T20 World Cup to keep Super Eight hopes alive**\
-`An emphatic victory over the Netherlands was inspired by Harmeet Singh's 4-21 and an impressive 79 from youngster Saiteja Mukkamalla`\
-https://nytimes.com/athletic/7044692/2026/02/13/united-states-t20-world-cup-netherlands/
 

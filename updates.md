@@ -1,3 +1,11 @@
+**Games Briefing: Malinin's coronation?**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7044845/2026/02/13/ilia-malinin-figure-skating-olympic-games-briefing/
+
+**Unrivaled will bring several postseason games to New York City**\
+`After a hugely successful, record-breaking road debut in Philadelphia, Unrivaled is taking its postseason on the road to New York. `\
+https://nytimes.com/athletic/7043511/2026/02/13/unrivaled-schedules-postseason-games-in-new-york/
+
 **Key Moments in Gisèle Pelicot’s Interview With The Times**\
 `The woman at the center of France’s largest-ever mass-rape trial told us about her life before, during and after the abuse she suffered at the hands of her husband.`\
 https://nytimes.com/2026/02/13/magazine/gisele-pelicot-interview-takeaways.html

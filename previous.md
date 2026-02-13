@@ -1,3 +1,11 @@
+**Games Briefing: Malinin's coronation?**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7044845/2026/02/13/ilia-malinin-figure-skating-olympic-games-briefing/
+
+**Unrivaled will bring several postseason games to New York City**\
+`After a hugely successful, record-breaking road debut in Philadelphia, Unrivaled is taking its postseason on the road to New York. `\
+https://nytimes.com/athletic/7043511/2026/02/13/unrivaled-schedules-postseason-games-in-new-york/
+
 **Key Moments in Gisèle Pelicot’s Interview With The Times**\
 `The woman at the center of France’s largest-ever mass-rape trial told us about her life before, during and after the abuse she suffered at the hands of her husband.`\
 https://nytimes.com/2026/02/13/magazine/gisele-pelicot-interview-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-te
 **United States off the mark at T20 World Cup to keep Super Eight hopes alive**\
 `An emphatic victory over the Netherlands was inspired by Harmeet Singh's 4-21 and an impressive 79 from youngster Saiteja Mukkamalla`\
 https://nytimes.com/athletic/7044692/2026/02/13/united-states-t20-world-cup-netherlands/
-
-**F.T.C. Chair Warns Apple Against Bias in Apple News**\
-`Andrew Ferguson of the F.T.C. said in a letter to Apple that it might be violating consumer protection law by stifling conservative speech in its news aggregation service.`\
-https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html
-
-**Nebraska football thoughts: Bill Moos' book revelations, an early start to spring and more**\
-`Moos, the former Nebraska AD, revealed he wanted to hire Chip Kelly and Dana Altman as football and men's basketball coach, respectively.`\
-https://nytimes.com/athletic/7043214/2026/02/13/nebraska-football-bill-moos-matt-rhule-spring/
 
