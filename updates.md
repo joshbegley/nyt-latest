@@ -1,3 +1,7 @@
+**Republicans Ask Supreme Court to Intervene in N.Y. Redistricting Case**\
+`Lawyers for Representative Nicole Malliotakis, Republican of New York, asked the Supreme Court to block a ruling that would redraw her district lines.`\
+https://nytimes.com/2026/02/12/nyregion/redistricting-supreme-court-ny.html
+
 **2026 Olympics, Day 6 recap: Kim outdone by mentee, Ukrainian skeleton athlete appeals IOC disqualification**\
 `Catch up on the biggest moments from Day 6 of the 2026 Winter Olympic Games. `\
 https://nytimes.com/athletic/7042950/2026/02/12/2026-olympics-kim-ukrainian-skeleton-appeal/

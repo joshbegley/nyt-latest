@@ -1,3 +1,7 @@
+**Republicans Ask Supreme Court to Intervene in N.Y. Redistricting Case**\
+`Lawyers for Representative Nicole Malliotakis, Republican of New York, asked the Supreme Court to block a ruling that would redraw her district lines.`\
+https://nytimes.com/2026/02/12/nyregion/redistricting-supreme-court-ny.html
+
 **2026 Olympics, Day 6 recap: Kim outdone by mentee, Ukrainian skeleton athlete appeals IOC disqualification**\
 `Catch up on the biggest moments from Day 6 of the 2026 Winter Olympic Games. `\
 https://nytimes.com/athletic/7042950/2026/02/12/2026-olympics-kim-ukrainian-skeleton-appeal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
 **Nikola Topić makes NBA debut less than 4 months after cancer diagnosis**\
 `A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
 https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
-
-**NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
-`Utah was fined $500,000 for sitting key players in recent close games, and Indiana was docked $100,000 for violating the rest policy. `\
-https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
 
