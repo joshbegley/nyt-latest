@@ -1,3 +1,7 @@
+**Lindsey Vonn posts new update after Olympic crash: 'I have a long, long way to go'**\
+`Vonn said she's having another surgery Saturday in Italy before hoping to go home, where she'll face another surgery.`\
+https://nytimes.com/athletic/7045053/2026/02/13/lindsey-vonn-crash-olympics-surgery-update-hospital/
+
 **Snoop Dogg’s security reportedly clashes with Dutch speed skating star at Winter Olympics**\
 `Olympic gold medalist Marianne Timmer alleges confrontation with Snoop Dogg’s security at Milan’s speed skating venue.`\
 https://nytimes.com/athletic/7045029/2026/02/13/snoop-dogg-security-marianne-timmer-milan-olympics-incident/
