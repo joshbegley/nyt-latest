@@ -1,3 +1,23 @@
+**What Forest are getting with Vitor Pereira: Nuno comparisons, volatility, and an unusual career path**\
+`A volatile character is walking into a volatile situation at the City Ground. The end result will be spectacular either way`\
+https://nytimes.com/athletic/7041698/2026/02/13/vitor-pereira-nottingham-forest-profile/
+
+**Can a Brand Reboot Ever Really Work?**\
+`Public School is trying. And perhaps succeeding.`\
+https://nytimes.com/2026/02/13/style/nyfw-public-school.html
+
+**A Friendship Built on Keeping the Dim Sum Carts Rolling**\
+`In Bensonhurst, Brooklyn, these women have forged a friendship while serving baskets of dumplings at a cavernous dim sum restaurant.`\
+https://nytimes.com/2026/02/13/dining/on-the-job-dim-sum.html
+
+**Ukrainian Vladyslav Heraskevych's appeal denied in skeleton 'helmet of memory' case**\
+`Heraskevych had asked to be reinstated immediately or to be allowed to perform supervised provisional runs until CAS ruled on the case.`\
+https://nytimes.com/athletic/7044122/2026/02/13/olympics-vladyslav-heraskevych-helmet-ukrainian-appeal/
+
+**Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
+`A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
+https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
+
 **Romance Roulette**\
 `“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
 https://nytimes.com/video/books/100000010711389/romance-roulette.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7044690/2026/02/13/bad-bunny-super-bowl-adidas/
 **Campbell Wright 12th in best U.S. shot at elusive Olympic biathlon medal**\
 `There are still events left on the program, but Friday was likely the Americans' best chance to win their first ever Olympic biathlon medal.`\
 https://nytimes.com/athletic/7044294/2026/02/13/campbell-wright-winter-olympics-team-usa-biathlon-medals/
-
-**We just saw why Finland-Sweden is of one of the greatest rivalries in international hockey**\
-`Finland earned a big win against Sweden on Friday. How does that impact the pressure both teams feel at this early stage of the tournament?`\
-https://nytimes.com/athletic/7044633/2026/02/13/finland-sweden-olympics-mens-hockey/
-
-**Justice Department Sues Harvard for Admissions Records**\
-`The Trump administration appears to have renewed its pressure campaign against Harvard since President Trump backtracked this month on a possible settlement with the Ivy League school.`\
-https://nytimes.com/2026/02/13/us/politics/harvard-lawsuit-admissions-doj-trump.html
-
-**Meet the squad of graduate students supporting this expedition.**\
-`By Raymond Zhong and Chang W. Lee`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-squad-of-graduate-students-supporting-this-expedition
-
-**Pereira agrees to take Forest head coach job**\
-`Forest dismissed Sean Dyche on Thursday after less than four months in charge.`\
-https://nytimes.com/athletic/7041002/2026/02/13/vitor-pereira-nottingham-forest-head-coach-agree/
-
-**How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
 

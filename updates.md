@@ -1,3 +1,23 @@
+**What Forest are getting with Vitor Pereira: Nuno comparisons, volatility, and an unusual career path**\
+`A volatile character is walking into a volatile situation at the City Ground. The end result will be spectacular either way`\
+https://nytimes.com/athletic/7041698/2026/02/13/vitor-pereira-nottingham-forest-profile/
+
+**Can a Brand Reboot Ever Really Work?**\
+`Public School is trying. And perhaps succeeding.`\
+https://nytimes.com/2026/02/13/style/nyfw-public-school.html
+
+**A Friendship Built on Keeping the Dim Sum Carts Rolling**\
+`In Bensonhurst, Brooklyn, these women have forged a friendship while serving baskets of dumplings at a cavernous dim sum restaurant.`\
+https://nytimes.com/2026/02/13/dining/on-the-job-dim-sum.html
+
+**Ukrainian Vladyslav Heraskevych's appeal denied in skeleton 'helmet of memory' case**\
+`Heraskevych had asked to be reinstated immediately or to be allowed to perform supervised provisional runs until CAS ruled on the case.`\
+https://nytimes.com/athletic/7044122/2026/02/13/olympics-vladyslav-heraskevych-helmet-ukrainian-appeal/
+
+**Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
+`A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
+https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
+
 **Romance Roulette**\
 `“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
 https://nytimes.com/video/books/100000010711389/romance-roulette.html
