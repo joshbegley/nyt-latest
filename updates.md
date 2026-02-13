@@ -1,3 +1,7 @@
+**De Zerbi? Pochettino? Iraola? Heitinga? Analysing Tottenham's short- and long-term manager options**\
+`Analysing the styles of coaches Spurs could turn to as they look to replace the sacked Thomas Frank`\
+https://nytimes.com/athletic/7041808/2026/02/13/de-zerbi-pochettino-iraola-heitinga-analysing-tottenhams-short-and-long-term-manager-options/
+
 **The New York Times in Print for Friday, Feb. 13, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/13/todays-new-york-times

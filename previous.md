@@ -30,11 +30,11 @@ https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-wh
 `The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
 https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
 
+**De Zerbi? Pochettino? Iraola? Heitinga? Analysing Tottenham's short- and long-term manager options**\
+`Analysing the styles of coaches Spurs could turn to as they look to replace the sacked Thomas Frank`\
+https://nytimes.com/athletic/7041808/2026/02/13/de-zerbi-pochettino-iraola-heitinga-analysing-tottenhams-short-and-long-term-manager-options/
+
 **When Dibling met Rayan: A tale of two teenagers and contrasting opportunities**\
 `The Bournemouth winger has thrived since his mid-season move from Vasco da Gama, but would he have had the same opportunities at Everton?`\
 https://nytimes.com/athletic/7041375/2026/02/13/tyler-dibling-everton-rayan-moyes/
-
-**Leaving the Netherlands helped Summerville, but a World Cup place is motivating his form**\
-`Summerville has recently hit new heights for West Ham, scoring a goal in five consecutive games during the run to the Burnley match`\
-https://nytimes.com/athletic/7029799/2026/02/13/crysencio-summerville-netherlands-west-ham-form-world-cup/
 
