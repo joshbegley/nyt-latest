@@ -1,3 +1,7 @@
+**Trump Pardons Klecko, Jamal Lewis and Other Former N.F.L. Players**\
+`The players included Super Bowl champions and a Hall of Famer who had been charged for crimes ranging from perjury to drug trafficking.`\
+https://nytimes.com/2026/02/12/us/politics/trump-nfl-pardons-klecko-jamal-lewis.html
+
 **‘The Unknown’ Review: Sean Hayes Turns One Man Into a Mystery**\
 `The chameleonic actor takes on several characters in David Cale’s solo play about a writer in pursuit of his stalker. Or is it all in his mind?`\
 https://nytimes.com/2026/02/12/theater/the-unknown-review-sean-hayes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/crosswords/daily-puzzle-2026-02-13.html
 **Ex-Prime Minister of Norway Charged With Corruption Linked to Epstein**\
 `Thorbjorn Jagland, who briefly led Norway in the 1990s, had been protected by diplomatic immunity that came with his work with the Council of Europe, but that privilege was waived.`\
 https://nytimes.com/2026/02/12/world/europe/thorbjorn-jagland-epstein-corruption-norway.html
-
-**U.S. Aircraft Carrier Will Be Sent to the Middle East From Venezuela, Officials Say**\
-`The U.S.S. Gerald R. Ford is not expected to return until late April or early May.`\
-https://nytimes.com/2026/02/12/us/politics/uss-ford-venezuela-oil.html
 
