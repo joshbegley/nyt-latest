@@ -15,7 +15,7 @@ https://nytimes.com/live/2026/02/12/world/bangladesh-election-results
 https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
 
 **Goldman’s Top Lawyer Departs Amid Revelations About Her Ties to Epstein**\
-`Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed she had a friendship with Jeffrey Epstein, the sex offender, spanning many years.`\
+`Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed a friendship with the sex offender Jeffrey Epstein spanning many years.`\
 https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.html
 
 **Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\

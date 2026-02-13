@@ -1,3 +1,7 @@
+**Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
+`The suspect in the British Columbia shooting had long been posting about mental health problems, substance abuse and a fascination with weapons and online violence.`\
+https://nytimes.com/2026/02/12/world/canada/tumbler-ridge-shooting-suspect-social-media.html
+
 **Here’s the latest.**\
 `By Anupreeta Das and Saif Hasnat`\
 https://nytimes.com/live/2026/02/12/world/bangladesh-election-results/heres-the-latest
