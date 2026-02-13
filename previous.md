@@ -1,3 +1,7 @@
+**The Prospects: Charlie Walker-Smith, Crystal Palace**\
+`The young defender is gaining a reputation as a ball-playing centre-half and made his Premier League 2 debut against Middlesbrough`\
+https://nytimes.com/athletic/7036133/2026/02/13/crystal-palace-walker-smith-prospects/
+
 **Heated Rivalry and Marital Bliss: Two Wives Go Head to Head in a Scary Olympic Sport**\
 `One represents Belgium and the other Brazil in skeleton, in which the racer slides near-blind down an ice track at well over 80 miles per hour.`\
 https://nytimes.com/2026/02/13/world/europe/kim-meylemans-nicole-silveira-wives-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/13/style/settled-in-seattle-after-a-long-distance-re
 **I Had Buyer’s Remorse. It Almost Ended My Marriage.**\
 `When you can’t agree on the right city to live in, home can be more hell than haven.`\
 https://nytimes.com/2026/02/13/style/modern-love-i-had-buyers-remorse-it-almost-ended-my-marriage.html
-
-**Phil Castellini takes control of Reds; succeeds father Bob Castellini**\
-`The 84-year old Bob Castellini appeared at Redsfest last month in Cincinnati and is expected to come to Goodyear, Ariz., to visit the team.`\
-https://nytimes.com/athletic/7043784/2026/02/12/cincinnati-reds-phil-castellini-control/
 

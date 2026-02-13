@@ -1,3 +1,7 @@
+**The Prospects: Charlie Walker-Smith, Crystal Palace**\
+`The young defender is gaining a reputation as a ball-playing centre-half and made his Premier League 2 debut against Middlesbrough`\
+https://nytimes.com/athletic/7036133/2026/02/13/crystal-palace-walker-smith-prospects/
+
 **Heated Rivalry and Marital Bliss: Two Wives Go Head to Head in a Scary Olympic Sport**\
 `One represents Belgium and the other Brazil in skeleton, in which the racer slides near-blind down an ice track at well over 80 miles per hour.`\
 https://nytimes.com/2026/02/13/world/europe/kim-meylemans-nicole-silveira-wives-olympics.html
