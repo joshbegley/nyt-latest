@@ -1,3 +1,19 @@
+**The Bounce: Will USA vs. USA vs. the World work?**\
+`The Bounce is The Athletic's free NBA newsletter.`\
+https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
+
+**Real's Mbappe available for Sociedad clash on Saturday after knee discomfort**\
+`The France international has been struggling with discomfort in his left knee since December.`\
+https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
+
+**Bessent Pushes Senate on Fed Confirmation Amid Backlash Over Criminal Inquiry**\
+`President Trump’s effort to get Kevin M. Warsh confirmed as the next Federal Reserve chair has been complicated by a criminal investigation into Jerome H. Powell.`\
+https://nytimes.com/2026/02/13/us/politics/bessent-powell-warsh-fed-chair-confirmation.html
+
+**Rodri charged by FA after questioning referee neutrality vs. Spurs**\
+`Rodri is facing an FA ban following his comments after the draw with Tottenham Hotspur at the start of this month.`\
+https://nytimes.com/athletic/7044446/2026/02/13/rodri-charged-fa-manchester-city-tottenham/
+
 **German Officials Needle Trump at Munich Security Conference**\
 `Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
 https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
