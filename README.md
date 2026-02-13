@@ -1,3 +1,15 @@
+**The New York Times in Print for Friday, Feb. 13, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/13/todays-new-york-times
+
+**Even Suspected ISIS Members Deserve Justice**\
+`The U.S. is sending thousands of men accused of belonging to the Islamic State from Syria to Iraq, where they face potential mistreatment.`\
+https://nytimes.com/2026/02/13/opinion/syria-iraq-isis-syrian-democratic-forces-us.html
+
+**It Is Decision Time for NATO**\
+`The U.S. and Europe can save the trans-Atlantic alliance. They probably won’t.`\
+https://nytimes.com/2026/02/13/opinion/nato-munich-conference.html
+
 **Anthony Alfredo disqualified from Daytona 500 after car fails inspection**\
 `"I was on top of the world, and now it feels like I'm at the bottom of it," a gutted Alfredo told The Athletic after learning of the news.`\
 https://nytimes.com/athletic/7043776/2026/02/13/anthony-alfredo-daytona-500-car-inspection-fail/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7041375/2026/02/13/tyler-dibling-everton-rayan-moye
 **Leaving the Netherlands helped Summerville, but a World Cup place is motivating his form**\
 `Summerville has recently hit new heights for West Ham, scoring a goal in five consecutive games during the run to the Burnley match`\
 https://nytimes.com/athletic/7029799/2026/02/13/crysencio-summerville-netherlands-west-ham-form-world-cup/
-
-**Choi Gaon made Olympic history. The 17-year-old 'force' is the future of snowboarding: 'No one else deserves it more'**\
-`Choi Gaon is Chloe Kim's protégé. The 17-year-old's Olympic success made the American great feel like a "proud mom."`\
-https://nytimes.com/athletic/7043411/2026/02/13/choi-gaon-snowboard-halfpipe-gold-2026-winter-olympics/
-
-**Kemar Roofe interview: On his iconic goal against Aston Villa and his love for 'the Bielsa way'**\
-`The 33-year-old striker speaks to The Athletic about his role in the exhilarating 2018-19 season under legendary coach Marcelo Bielsa`\
-https://nytimes.com/athletic/7041658/2026/02/13/kemar-roofe-interview-leeds-bielsa/
-
-**Jacob Ramsey cost Newcastle £39million – he is starting to show his value**\
-`The 24-year-old midfielder is in encouraging form as he prepares to face his former club, Aston Villa, in the fourth round of the FA Cup`\
-https://nytimes.com/athletic/7038320/2026/02/13/jacob-ramsey-showing-value-newcastle-aston-villa/
 
