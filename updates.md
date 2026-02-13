@@ -1,3 +1,7 @@
+**Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged two men with assaulting an agent.`\
+https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
+
 **Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
 `In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
 https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
