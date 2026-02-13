@@ -1,3 +1,7 @@
+**Word of the Day: rife**\
+`This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
+
 **Barcelona have never looked so lost under Hansi Flick. Should we be worried?**\
 `The weaknesses of Hansi Flick's high-risk attacking style were ruthlessly exposed by Atletico Madrid in a 4-0 defeat on Thursday night`\
 https://nytimes.com/athletic/7043114/2026/02/13/barcelona-atletico-copa-result-high-line-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041041/2026/02/13/cricket-ukraine-war-academy-pole
 **What to watch on Day 7 at Winter Olympics: 'Quad God' seeks gold, women's hockey playoffs, more**\
 `Ilia Malinin can secure his second gold medal in figure skating as the American competes in the free skate at the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-what-to-watch-day-7/
-
-**Arne Slot says Liverpool's opponents always change tactics. Is he right – and does it matter?**\
-`The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
-https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
 
