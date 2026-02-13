@@ -1,9 +1,13 @@
-**Nikola Topić makes NBA debut for Thunder less than 4 months after cancer diagnosis**\
+**Closing of El Paso Airspace Adds to Tension Between F.A.A. and Pentagon**\
+`The Federal Aviation Administration is charged with flight safety, and the Defense Department with national security. Those missions keep colliding.`\
+https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
+
+**Nikola Topić makes NBA debut less than 4 months after cancer diagnosis**\
 `A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
 https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
 
 **NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
-`The league also fined the Indiana Pacers $100,000 for violating the league's rest policy. `\
+`Utah was fined $500,000 for sitting key players in recent close games, while Indiana was docked $100,000 for violating the rest policy. `\
 https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
 
 **Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html
 **Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
 `In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
 https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
-
-**Partial Federal Shutdown Shrinks Congressional Presence in Munich**\
-`In a moment of frayed trans-Atlantic relations, Speaker Mike Johnson abruptly canceled the House delegation to Europe’s biggest annual security summit.`\
-https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
 

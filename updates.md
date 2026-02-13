@@ -1,3 +1,15 @@
+**Closing of El Paso Airspace Adds to Tension Between F.A.A. and Pentagon**\
+`The Federal Aviation Administration is charged with flight safety, and the Defense Department with national security. Those missions keep colliding.`\
+https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
+
+**Nikola Topić makes NBA debut less than 4 months after cancer diagnosis**\
+`A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
+https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
+
+**NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
+`Utah was fined $500,000 for sitting key players in recent close games, while Indiana was docked $100,000 for violating the rest policy. `\
+https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
+
 **Nikola Topić makes NBA debut for Thunder less than 4 months after cancer diagnosis**\
 `A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
 https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
