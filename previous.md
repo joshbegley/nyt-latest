@@ -1,3 +1,7 @@
+**How The Times Is Digging Into Millions of Pages of Epstein Files**\
+`Two dozen journalists. A pile of pages that would reach the top of the Empire State Building. And an effort to find the next revelation in a sprawling case.`\
+https://nytimes.com/2026/02/12/insider/jeffrey-epstein-files-documents.html
+
 **Closing of El Paso Airspace Adds to Tension Between F.A.A. and Pentagon**\
 `The Federal Aviation Administration is charged with flight safety, and the Defense Department with national security. Those missions keep colliding.`\
 https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.
 **Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\
 `It is the latest court ruling staving off deep cuts to social services that Democratic-led states say are politically motivated and would harm hundreds of thousands of people.`\
 https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html
-
-**Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
-`In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
-https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
 

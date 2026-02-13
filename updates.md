@@ -1,3 +1,7 @@
+**How The Times Is Digging Into Millions of Pages of Epstein Files**\
+`Two dozen journalists. A pile of pages that would reach the top of the Empire State Building. And an effort to find the next revelation in a sprawling case.`\
+https://nytimes.com/2026/02/12/insider/jeffrey-epstein-files-documents.html
+
 **Closing of El Paso Airspace Adds to Tension Between F.A.A. and Pentagon**\
 `The Federal Aviation Administration is charged with flight safety, and the Defense Department with national security. Those missions keep colliding.`\
 https://nytimes.com/2026/02/12/us/politics/faa-pentagon-el-paso-airspace.html
