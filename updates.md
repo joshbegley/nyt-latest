@@ -1,3 +1,7 @@
+**New details emerge in felony rape case against BYU receiver Parker Kingston**\
+`According to affidavit of probable cause, woman told a forensic interviewer that she "set clear boundaries" ahead of meeting.`\
+https://nytimes.com/athletic/7043310/2026/02/12/parker-kingston-byu-arrest-details/
+
 **The Epstein Files and the Hidden World of an Unaccountable Elite**\
 `The search continues in the documents for ironclad criminal conduct, but the story of a sexual predator given a free ride by the ruling class has already emerged.`\
 https://nytimes.com/2026/02/12/us/politics/epstein-files.html

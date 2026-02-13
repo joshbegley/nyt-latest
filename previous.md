@@ -1,3 +1,7 @@
+**New details emerge in felony rape case against BYU receiver Parker Kingston**\
+`According to affidavit of probable cause, woman told a forensic interviewer that she "set clear boundaries" ahead of meeting.`\
+https://nytimes.com/athletic/7043310/2026/02/12/parker-kingston-byu-arrest-details/
+
 **The Epstein Files and the Hidden World of an Unaccountable Elite**\
 `The search continues in the documents for ironclad criminal conduct, but the story of a sexual predator given a free ride by the ruling class has already emerged.`\
 https://nytimes.com/2026/02/12/us/politics/epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042993/2026/02/12/texas-rangers-sebastian-walcott-
 **How Brayan Bello is reinventing his arsenal after trade rumors, fall from top of rotation**\
 `Plus notes on Sonny Gray spinning it, Caleb Durbin's October elbow surgery, Roman Anthony possibly getting a WBC invite and more.`\
 https://nytimes.com/athletic/7043015/2026/02/12/red-sox-brayan-bello-trade-rumors-reinvention/
-
-**At the Olympics, can Auston Matthews regain his place in the hockey hierarchy?**\
-`Make no mistake, Matthews is still very, very good. He may even be great. But he’s not what he was. And he hasn’t been for a while now.`\
-https://nytimes.com/athletic/7043077/2026/02/12/auston-matthews-olympics-mens-hockey/
 
