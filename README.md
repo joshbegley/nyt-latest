@@ -1,3 +1,7 @@
+**How Sir Jim Ratcliffe sparked a political storm that engulfed Manchester United**\
+`Sir Jim Ratcliffe's claims that the United Kingdom has been “colonised by immigrants” drew a reaction inside and outside Old Trafford`\
+https://nytimes.com/athletic/7042785/2026/02/13/ratcliffe-manchester-united-political-storm/
+
 **Pride Flag Returns to Stonewall, Defying Federal Order**\
 `Hundreds gathered near the historic Stonewall Inn to watch the Pride flag being hoisted at a monument honoring the L.G.B.T.Q. rights movement. The flag had been taken down after the Trump administration issued a new directive for national parks.`\
 https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043776/2026/02/13/anthony-alfredo-daytona-500-car-
 **LeBron James, at 41, becomes oldest NBA player to record a triple-double**\
 `James broke a record previously held by Karl Malone, who was 40 years and 127 days old when he had a triple-double for the Lakers in 2003.`\
 https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
-
-**The South African, the professional pole-dancer and how cricket is offering hope in Ukraine**\
-`Kobus Olivier and Olena Kravchenko are coaching cricket in Kyiv in a bid to bring some 'normality' to children and teenagers`\
-https://nytimes.com/athletic/7041041/2026/02/13/cricket-ukraine-war-academy-pole-dancing/
 

@@ -1,3 +1,7 @@
+**Pride Flag Returns to Stonewall, Defying Federal Order**\
+`Hundreds gathered near the historic Stonewall Inn to watch the Pride flag being hoisted at a monument honoring the L.G.B.T.Q. rights movement. The flag had been taken down after the Trump administration issued a new directive for national parks.`\
+https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
+
 **Word of the Day: rife**\
 `This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
