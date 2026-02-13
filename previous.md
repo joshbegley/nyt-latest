@@ -1,4 +1,20 @@
-**Sunderland sporting director Speakman to leave club**\
+**A nervous Europe awaits Rubio’s speech in Munich.**\
+`After a fiery speech by Vice President JD Vance turned heads in 2026, Europeans are nervous about what the Secretary of State might say.`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference/a-nervous-europe-awaits-rubios-speech-in-munich
+
+**First look at Boston Legacy's inaugural NWSL kits**\
+`The expansion team will kick off its 2026 NWSL season March 14 at Gillette Stadium.`\
+https://nytimes.com/athletic/7041508/2026/02/13/boston-legacy-inaugural-kits/
+
+**Tarik Skubal and Justin Verlander, aces then and now, lead the Tigers forward**\
+`Tarik Skubal and Justin Verlander have become inextricably linked, two Tigers aces who have captivated crowds and won major awards.`\
+https://nytimes.com/athletic/7043130/2026/02/13/tigers-tarik-skubal-justin-verlander-teammates/
+
+**UCLA overtakes UConn as No. 1 seed: Women's NCAA Tournament Bracket Watch**\
+`Head-to-head matchups are proving important as teams fight for the top two seed lines. `\
+https://nytimes.com/athletic/7043744/2026/02/13/womens-basketball-ncaa-tournament-bracket-watch-ucla-uconn/
+
+**Sunderland sporting director Speakman leaves club**\
 `The departure is a board of directors’ decision to move forward without him.`\
 https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7042356/2026/02/13/nba-all-star-weekend-durant-wemb
 **Yankees' Paul Goldschmidt eager to mentor Ben Rice, pay it forward at first base**\
 `Goldschmidt is embracing his new role and looking forward to helping coach Rice, as other veterans helped him early in his career. `\
 https://nytimes.com/athletic/7043182/2026/02/13/yankees-ben-rice-paul-goldschmidt/
-
-**Australia shocked by Zimbabwe to cast T20 World Cup progress into doubt**\
-`The 2021 winners fell 23 runs short in Colombo and face a daunting game against co-hosts Sri Lanka in Pallekele as they battle to qualify`\
-https://nytimes.com/athletic/7044140/2026/02/13/australia-zimbabwe-t20-world-cup-shock/
-
-**Reds' Hunter Greene: 'I don't care about trade rumors'**\
-`MLB Network recently ranked the Cincinnati veteran as the 10th-best starting pitcher in Major League Baseball.`\
-https://nytimes.com/athletic/7043602/2026/02/13/hunter-greene-reds-trade-rumors/
-
-**Could MLB be next league to partner up with prediction markets like Kalshi, Polymarket?**\
-`MLB argues that partnering with prediction markets will give it greater knowledge of potential sports betting weak spots. `\
-https://nytimes.com/athletic/7043755/2026/02/13/mlb-gambling-prediction-markets-kalshi-polymarket-partnerships/
-
-**What system changes could come from the Eagles' offensive staff overhaul?**\
-`The new additions to the coaching staff will be tasked with maximizing a Super Bowl-caliber roster.`\
-https://nytimes.com/athletic/7038598/2026/02/13/eagles-offense-staff-overhaul-system/
 

@@ -1,3 +1,23 @@
+**A nervous Europe awaits Rubio’s speech in Munich.**\
+`After a fiery speech by Vice President JD Vance turned heads in 2026, Europeans are nervous about what the Secretary of State might say.`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference/a-nervous-europe-awaits-rubios-speech-in-munich
+
+**First look at Boston Legacy's inaugural NWSL kits**\
+`The expansion team will kick off its 2026 NWSL season March 14 at Gillette Stadium.`\
+https://nytimes.com/athletic/7041508/2026/02/13/boston-legacy-inaugural-kits/
+
+**Tarik Skubal and Justin Verlander, aces then and now, lead the Tigers forward**\
+`Tarik Skubal and Justin Verlander have become inextricably linked, two Tigers aces who have captivated crowds and won major awards.`\
+https://nytimes.com/athletic/7043130/2026/02/13/tigers-tarik-skubal-justin-verlander-teammates/
+
+**UCLA overtakes UConn as No. 1 seed: Women's NCAA Tournament Bracket Watch**\
+`Head-to-head matchups are proving important as teams fight for the top two seed lines. `\
+https://nytimes.com/athletic/7043744/2026/02/13/womens-basketball-ncaa-tournament-bracket-watch-ucla-uconn/
+
+**Sunderland sporting director Speakman leaves club**\
+`The departure is a board of directors’ decision to move forward without him.`\
+https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
+
 **Sunderland sporting director Speakman to leave club**\
 `The departure is a board of directors’ decision to move forward without him.`\
 https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
