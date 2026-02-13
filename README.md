@@ -1,3 +1,11 @@
+**Guardiola defends multiculturalism in UK after Ratcliffe's 'colonised' controversy**\
+`Manchester City manager believes immigrants should not be blamed for society's problems`\
+https://nytimes.com/athletic/7044341/2026/02/13/guardiola-ratcliffe-colonised-comments/
+
+**Tottenham verbally agree deal to appoint Igor Tudor as interim head coach**\
+`The club have moved for a temporary appointment following the dismissal of Thomas Frank on Wednesday.`\
+https://nytimes.com/athletic/7038301/2026/02/13/tottenham-next-manager-igor-tudor/
+
 **AFCON 2027 to be staged in summer months, no change of host nations - CAF president**\
 `Motsepe also suggested the opening game of AFCON 2027 will be held in Tanzania, one of three nations co-hosting the tournament.`\
 https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/13/us/trump-news
 **Canada Soccer secures new rights deal with CSME before landmark home World Cup**\
 `The new agreement brings a premature end to the previous deal, which was the subject of much angst and protest`\
 https://nytimes.com/athletic/7043701/2026/02/13/canada-soccer-csme-rights-deal-world-cup/
-
-**The Satchel: Bills' weird offseason, salary cap decisions, Joe Brady play caller**\
-`A messy start to the offseason makes for uncertainty about the road ahead. `\
-https://nytimes.com/athletic/7042862/2026/02/13/buffalo-bills-offseason-questions-satchel/
-
-**NBA All-Star Weekend watch guide: TV schedule, events and participants to know**\
-`Ever-evolving in format and style, undeniable in talent and shine. NBA All-Star Weekend returns to the L.A. area.`\
-https://nytimes.com/athletic/7040204/2026/02/13/nba-all-star-weekend-2026-schedule-how-to-watch/
 
