@@ -1,3 +1,11 @@
+**Sunderland sporting director Speakman to leave club**\
+`The departure is a board of directors’ decision to move forward without him.`\
+https://nytimes.com/athletic/7044218/2026/02/13/kristjaan-speakman-sunderland-leave/
+
+**Picking three potential FA Cup upsets: Wrexham eyeing another win**\
+`The FA Cup is back this weekend for the fourth round - could there be another classic cupset on the cards?`\
+https://nytimes.com/athletic/7044151/2026/02/13/fa-cup-fourth-round-upset-watch-potential-surprises-include-wrexham-and-birmingham/
+
 **The Pulse: The Randy Moss of figure skating**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7042416/2026/02/13/ilia-malinin-gold-medal-the-pulse/
