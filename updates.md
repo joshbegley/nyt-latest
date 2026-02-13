@@ -1,3 +1,7 @@
+**Pereira agrees to take Forest head coach job**\
+`Forest dismissed Sean Dyche on Thursday after less than four months in charge.`\
+https://nytimes.com/athletic/7041002/2026/02/13/vitor-pereira-nottingham-forest-head-coach-agree/
+
 **How to watch Princeton vs. Columbia women's basketball: Time, TV, streaming**\
 `Find out how to watch the Princeton Tigers play the Columbia Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7044689/2026/02/13/princeton-vs-columbia-stream-how-to-watch-feb-13/
