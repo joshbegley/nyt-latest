@@ -1,3 +1,7 @@
+**NASCAR 2026 season expert predictions: Driver of the Year and more superlatives**\
+`Consistent excellence will trump brief hot streaks as the reliable way to win a Cup title.`\
+https://nytimes.com/athletic/7043499/2026/02/13/nascar-cup-series-chase-2026-season-predictions/
+
 **One thought on every New York Giants defensive player ahead of free agency**\
 `Taking a look at the parts of what could be an elite defense in John Harbaugh's first season.`\
 https://nytimes.com/athletic/7043576/2026/02/13/new-york-giants-defensive-roster/

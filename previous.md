@@ -1,3 +1,7 @@
+**NASCAR 2026 season expert predictions: Driver of the Year and more superlatives**\
+`Consistent excellence will trump brief hot streaks as the reliable way to win a Cup title.`\
+https://nytimes.com/athletic/7043499/2026/02/13/nascar-cup-series-chase-2026-season-predictions/
+
 **One thought on every New York Giants defensive player ahead of free agency**\
 `Taking a look at the parts of what could be an elite defense in John Harbaugh's first season.`\
 https://nytimes.com/athletic/7043576/2026/02/13/new-york-giants-defensive-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029029/2026/02/13/laura-stacey-olympics-womens-hoc
 **Colts NFL mock draft: Getting younger, faster on defense is the priority**\
 `The Colts don't own a first-round pick because of the Sauce Gardner trade. We start this mock draft by moving down two spots in Round 2.`\
 https://nytimes.com/athletic/7042962/2026/02/13/colts-2026-mock-draft-r-mason-thomas/
-
-**Steve Tisch is embroiled in the Epstein scandal. What's his role with the Giants?**\
-`The co-owner has been embroiled in controversy after being connected to Jeffrey Epstein.`\
-https://nytimes.com/athletic/7042708/2026/02/13/steve-tisch-jeffrey-epstein-new-york-giants-role/
 
