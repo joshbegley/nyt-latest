@@ -1,3 +1,23 @@
+**F.T.C. Chair Warns Apple Against Bias in Apple News**\
+`Andrew Ferguson of the F.T.C. said in a letter to Apple that it might be violating consumer protection law by stifling conservative speech in its news aggregation service.`\
+https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html
+
+**World No. 1 and No. 2 Aryna Sabalenka and Iga Świątek withdraw from Dubai WTA 1000 tournament**\
+`The world No. 1 and world No. 2 will both be missing from the tournament in the United Arab Emirates which begins Feb. 15.`\
+https://nytimes.com/athletic/7044598/2026/02/13/aryna-sabalenka-iga-swiatek-dubai-tennis-championships-withdraw-out/
+
+**As Diplomats Talk, Pentagon Prepares for Possible War With Iran**\
+`President Trump threatened to strike Iran, but the military has needed time to build up its forces in the region.`\
+https://nytimes.com/2026/02/13/us/politics/trump-iran-pentagon.html
+
+**As USA and Denmark meet on Olympic ice amid political tension, don't expect fans to boo**\
+`The uneasy relations between Denmark and the United States will manifest in, of all places, a hockey game on Saturday night.`\
+https://nytimes.com/athletic/7044698/2026/02/13/usa-hockey-denmark-olympics-greenland-tension/
+
+**Dubai Ports Boss Resigns Amid Fallout From Epstein Files**\
+`Sultan Ahmed bin Sulayem was credited with turning the state-backed DP World into a global logistics powerhouse. He was recently identified in correspondence with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/13/world/middleeast/epstein-dp-world-ports-ahmed-bin-sulayem.html
+
 **What Forest are getting with Vitor Pereira: Nuno comparisons, volatility, and an unusual career path**\
 `A volatile character is walking into a volatile situation at the City Ground. The end result will be spectacular either way`\
 https://nytimes.com/athletic/7041698/2026/02/13/vitor-pereira-nottingham-forest-profile/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7044122/2026/02/13/olympics-vladyslav-heraskevych-h
 **Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
 `A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
 https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
-
-**Romance Roulette**\
-`“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
-https://nytimes.com/video/books/100000010711389/romance-roulette.html
-
-**Around Olympic hockey: Early men's chaos while women's knockout rounds begin**\
-`At this point, we can’t rule out a do-or-die game between Sweden and either Canada or the U.S. to start the men's knockout rounds.`\
-https://nytimes.com/athletic/7044748/2026/02/13/olympics-hockey-mens-upsets-womens-schedule/
-
-**International Order ‘No Longer Exists,’ Germany’s Merz Says**\
-`Chancellor Friedrich Merz of Germany told the Munich Security Conference that the rules-based international order had collapsed as President Trump rapidly reorients American foreign policy.`\
-https://nytimes.com/video/world/europe/100000010711319/germany-us-munich-world-order.html
-
-**The Bad Bunny Super Bowl merchandise that's been in big demand**\
-`So much Bad Bunny Super Bowl merchandise has hit the market this week you'd think he won the game. `\
-https://nytimes.com/athletic/7044690/2026/02/13/bad-bunny-super-bowl-adidas/
-
-**Campbell Wright 12th in best U.S. shot at elusive Olympic biathlon medal**\
-`There are still events left on the program, but Friday was likely the Americans' best chance to win their first ever Olympic biathlon medal.`\
-https://nytimes.com/athletic/7044294/2026/02/13/campbell-wright-winter-olympics-team-usa-biathlon-medals/
 
