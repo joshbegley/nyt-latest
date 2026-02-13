@@ -1,3 +1,11 @@
+**F.T.C. Chair Warns Apple Against Bias in Apple News**\
+`Andrew Ferguson of the F.T.C. said in a letter to Apple that it might be violating consumer protection law by stifling conservative speech in its news aggregation service.`\
+https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html
+
+**World No. 1 and No. 2 Aryna Sabalenka and Iga Świątek withdraw from Dubai WTA 1000 tournament**\
+`The world No. 1 and world No. 2 will both be missing from the tournament in the United Arab Emirates which begins Feb. 15.`\
+https://nytimes.com/athletic/7044598/2026/02/13/aryna-sabalenka-iga-swiatek-dubai-tennis-championships-withdraw-out/
+
 **As Diplomats Talk, Pentagon Prepares for Possible War With Iran**\
 `President Trump threatened to strike Iran, but the military has needed time to build up its forces in the region.`\
 https://nytimes.com/2026/02/13/us/politics/trump-iran-pentagon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7044122/2026/02/13/olympics-vladyslav-heraskevych-h
 **Vicki Abt, Who Said TV Talk Shows Coarsened Society, Dies at 83**\
 `A Penn State sociology professor, she warned that hosts like Oprah Winfrey exploited vulnerable guests on television and sensationalized deviancy.`\
 https://nytimes.com/2026/02/13/arts/television/vicki-abt-dead.html
-
-**Romance Roulette**\
-`“Cinnamon roll,” “Oops! there’s only one bed,” “HFN” — how much do you know about romance literature? Jennifer Harlan, an editor at The New York Times Book Review, guides you through her 101-word glossary.`\
-https://nytimes.com/video/books/100000010711389/romance-roulette.html
-
-**Around Olympic hockey: Early men's chaos while women's knockout rounds begin**\
-`At this point, we can’t rule out a do-or-die game between Sweden and either Canada or the U.S. to start the men's knockout rounds.`\
-https://nytimes.com/athletic/7044748/2026/02/13/olympics-hockey-mens-upsets-womens-schedule/
 
