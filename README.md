@@ -1,3 +1,7 @@
+**From Exile to Power: The Rise of Bangladesh’s New Leader**\
+`Tarique Rahman, the scion of a political dynasty, returned to sweep his party into government with a promise of change. Some have doubts.`\
+https://nytimes.com/2026/02/13/world/asia/bangladesh-election-tarique-rahman.html
+
 **Why Did the Courts Do That? Let Him Explain.**\
 `Adam Liptak, The Times’s chief legal affairs correspondent, is writing a new weekly newsletter, The Docket, to help demystify the justice system.`\
 https://nytimes.com/2026/02/13/insider/adam-liptak-the-docket.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042785/2026/02/13/ratcliffe-manchester-united-poli
 **Pride Flag Returns to Stonewall, Defying Federal Order**\
 `Hundreds gathered near the historic Stonewall Inn to watch the Pride flag being hoisted at a monument honoring the L.G.B.T.Q. rights movement. The flag had been taken down after the Trump administration issued a new directive for national parks.`\
 https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
-
-**Word of the Day: rife**\
-`This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
 
