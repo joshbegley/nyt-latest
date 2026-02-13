@@ -1,3 +1,7 @@
+**Pride Flag Returns to Stonewall, Defying Federal Order**\
+`Hundreds gathered near the historic Stonewall Inn to watch the Pride flag being hoisted at a monument honoring the L.G.B.T.Q. rights movement. The flag had been taken down after the Trump administration issued a new directive for national parks.`\
+https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
+
 **Word of the Day: rife**\
 `This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-laker
 **The South African, the professional pole-dancer and how cricket is offering hope in Ukraine**\
 `Kobus Olivier and Olena Kravchenko are coaching cricket in Kyiv in a bid to bring some 'normality' to children and teenagers`\
 https://nytimes.com/athletic/7041041/2026/02/13/cricket-ukraine-war-academy-pole-dancing/
-
-**What to watch on Day 7 at Winter Olympics: 'Quad God' seeks gold, women's hockey playoffs, more**\
-`Ilia Malinin can secure his second gold medal in figure skating as the American competes in the free skate at the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-what-to-watch-day-7/
 
