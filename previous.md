@@ -1,3 +1,15 @@
+**Catching the Light**\
+`Before leaving The Times after 22 years, David Brooks responds to readers’ questions.`\
+https://nytimes.com/2026/02/13/opinion/david-brooks-leaving.html
+
+**Gisèle Pelicot’s Decision to Make the Trial of Her Rapists Public**\
+`In an interview, Ms. Pelicot explained her choice to forgo anonymity in the mass rape trial of her abusers.`\
+https://nytimes.com/video/podcasts/100000010711027/gisele-pelicots-decision-to-make-the-trial-of-her-rapists-public.html
+
+**F1's 'smoke and mirrors' revs up as teams play games over 2026 engine advantages**\
+`Why are all four leading F1 teams are talking up their rivals' chances for F1 2026? It's all part of the sport's early mind games`\
+https://nytimes.com/athletic/7044764/2026/02/13/f1-testing-engines-red-bull-mercedes-fastest/
+
 **Games Briefing: Malinin's coronation?**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7044845/2026/02/13/ilia-malinin-figure-skating-olympic-games-briefing/
@@ -21,20 +33,4 @@ https://nytimes.com/video/podcasts/100000010711035/gisele-pelicot-story-husband-
 **Johannes Høsflot Klæbo just made Olympic history: We watched it with his family**\
 `Watching the Norwegian cross-country great's record-tying eighth gold medal, with his father nervously checking split times.`\
 https://nytimes.com/athletic/7044679/2026/02/13/johannes-hosflot-klaebo-winter-olympics-10-kilometre-gold-father-family/
-
-**Tarique Rahman Set to be New Prime Minister of Bangladesh**\
-`The Bangladesh National Party, led by Tarique Rahman, won the first elections in the country since a student-led movement toppled the government in 2024.`\
-https://nytimes.com/video/world/asia/100000010710802/tarique-rahman-bangladesh-elections-win.html
-
-**British Court Rules Ban on Palestine Action Is Unlawful**\
-`Supporters of Palestine Action celebrated in front of the High Court on Friday after it ruled that a government ban on the pro-Palestine group was unlawful.`\
-https://nytimes.com/video/world/europe/100000010710813/uk-palestine-action-ban-high-court.html
-
-**NFL wins grievance to halt NFLPA's public release of team report cards**\
-`An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
-https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
-
-**United States off the mark at T20 World Cup to keep Super Eight hopes alive**\
-`An emphatic victory over the Netherlands was inspired by Harmeet Singh's 4-21 and an impressive 79 from youngster Saiteja Mukkamalla`\
-https://nytimes.com/athletic/7044692/2026/02/13/united-states-t20-world-cup-netherlands/
 

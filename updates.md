@@ -1,3 +1,15 @@
+**Catching the Light**\
+`Before leaving The Times after 22 years, David Brooks responds to readers’ questions.`\
+https://nytimes.com/2026/02/13/opinion/david-brooks-leaving.html
+
+**Gisèle Pelicot’s Decision to Make the Trial of Her Rapists Public**\
+`In an interview, Ms. Pelicot explained her choice to forgo anonymity in the mass rape trial of her abusers.`\
+https://nytimes.com/video/podcasts/100000010711027/gisele-pelicots-decision-to-make-the-trial-of-her-rapists-public.html
+
+**F1's 'smoke and mirrors' revs up as teams play games over 2026 engine advantages**\
+`Why are all four leading F1 teams are talking up their rivals' chances for F1 2026? It's all part of the sport's early mind games`\
+https://nytimes.com/athletic/7044764/2026/02/13/f1-testing-engines-red-bull-mercedes-fastest/
+
 **Games Briefing: Malinin's coronation?**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7044845/2026/02/13/ilia-malinin-figure-skating-olympic-games-briefing/

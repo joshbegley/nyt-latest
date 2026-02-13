@@ -1,3 +1,7 @@
+**Oakland Roots, Oakland Soul adding Bay Area hip-hop artist to ownership group**\
+`The West Coast rapper will join a large ownership group of the Oakland Roots and Oakland Soul soccer clubs.`\
+https://nytimes.com/athletic/7042556/2026/02/13/oakland-roots-soul-e-40-ownership-hip-hop/
+
 **Catching the Light**\
 `Before leaving The Times after 22 years, David Brooks responds to readers’ questions.`\
 https://nytimes.com/2026/02/13/opinion/david-brooks-leaving.html
@@ -25,12 +29,4 @@ https://nytimes.com/2026/02/13/magazine/gisele-pelicot-interview-takeaways.html
 **‘They All Tried to Break Me’: Gisèle Pelicot Shares Her Story**\
 `In her first interview with an American media outlet, Pelicot opens up about surviving years of secret abuse — and a trial that shocked the world.`\
 https://nytimes.com/2026/02/13/magazine/gisele-pelicot-france-rape-case-story.html
-
-**Watch: Gisèle Pelicot on the Rape Trial That Shocked the World**\
-`In her first interview with an American media outlet, Gisèle Pelicot opened up about surviving years of secret abuse and deciding to go public with her story.`\
-https://nytimes.com/video/podcasts/100000010711035/gisele-pelicot-story-husband-rape.html
-
-**Johannes Høsflot Klæbo just made Olympic history: We watched it with his family**\
-`Watching the Norwegian cross-country great's record-tying eighth gold medal, with his father nervously checking split times.`\
-https://nytimes.com/athletic/7044679/2026/02/13/johannes-hosflot-klaebo-winter-olympics-10-kilometre-gold-father-family/
 
