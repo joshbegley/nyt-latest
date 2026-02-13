@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2026/02/13/upshot/flashback.html
 
 **Chris Paul retires after 21 seasons, leaving lasting 'Point God' legacy**\
-`Chris Paul announced last year that this season would be his last.`\
+`Chris Paul was the first player in NBA history to score at least 20,000 points and record 10,000 assists.`\
 https://nytimes.com/athletic/7044861/2026/02/13/chris-paul-retires-nba/
 
 **Au Pair Sentenced to 10 Years in Banfield Double Murder Case**\
@@ -17,8 +17,4 @@ https://nytimes.com/athletic/7044964/2026/02/13/sweden-czechia-olympics-womens-h
 **The Winter Olympics condom supply ran out in 3 days. Athletes have thoughts**\
 `According to Italian newspaper La Stampa, free condoms at the Winter Olympics ran out in just three days.`\
 https://nytimes.com/athletic/7044539/2026/02/13/winter-olympics-condom-shortage-reactions/
-
-**Scoop City: Terrible timing for Tyler Lockett, other former stars**\
-`The three greatest moments from the playoffs, plus unfortunate situations for former stars like Logan Mankins, Wes Welker`\
-https://nytimes.com/athletic/7044959/2026/02/13/terrible-timing-for-tyler-lockett-brings-to-mind-other-stars/
 
