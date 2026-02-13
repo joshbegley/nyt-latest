@@ -1,3 +1,7 @@
+**Bangladeshis Vote in Droves for Constitutional Change**\
+`Eight out of 10 voters backed reforms intended to safeguard democracy and increase women’s participation in politics.`\
+https://nytimes.com/2026/02/13/world/asia/bangladesh-election-referendum-constitution.html
+
 **A nervous Europe awaits Rubio’s speech in Munich.**\
 `After a fiery speech by Vice President JD Vance turned heads in 2026, Europeans are nervous about what the Secretary of State might say.`\
 https://nytimes.com/live/2026/02/13/world/munich-security-conference/a-nervous-europe-awaits-rubios-speech-in-munich
