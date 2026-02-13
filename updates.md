@@ -1,3 +1,15 @@
+**International Order ‘No Longer Exists,’ Germany’s Merz Says**\
+`Chancellor Friedrich Merz of Germany told the Munich Security Conference that the rules-based international order had collapsed as President Trump rapidly reorients American foreign policy.`\
+https://nytimes.com/video/world/europe/100000010711319/germany-us-munich-world-order.html
+
+**The Bad Bunny Super Bowl merchandise that's been in big demand**\
+`So much Bad Bunny Super Bowl merchandise has hit the market this week you'd think he won the game. `\
+https://nytimes.com/athletic/7044690/2026/02/13/bad-bunny-super-bowl-adidas/
+
+**Campbell Wright 12th in best U.S. shot at elusive Olympic biathlon medal**\
+`There are still events left on the program, but Friday was likely the Americans' best chance to win their first ever Olympic biathlon medal.`\
+https://nytimes.com/athletic/7044294/2026/02/13/campbell-wright-winter-olympics-team-usa-biathlon-medals/
+
 **We just saw why Finland-Sweden is of one of the greatest rivalries in international hockey**\
 `Finland earned a big win against Sweden on Friday. How does that impact the pressure both teams feel at this early stage of the tournament?`\
 https://nytimes.com/athletic/7044633/2026/02/13/finland-sweden-olympics-mens-hockey/
