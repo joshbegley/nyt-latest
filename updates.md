@@ -1,3 +1,7 @@
+**Real Madrid's Mbappe fit for Real Sociedad match despite knee discomfort**\
+`The France international has been struggling with discomfort in his left knee since December.`\
+https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
+
 **Astros 'not done' after re-acquiring Joey Loperfido in trade of Jesús Sánchez to Jays**\
 `The Astros have been trying to trade Isaac Paredes and Christian Walker.`\
 https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue-jays-jesus-sanchez/
