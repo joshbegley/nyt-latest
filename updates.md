@@ -1,3 +1,15 @@
+**Learning the Ropes, and the Shackles and the Bolts, in Antarctica**\
+`A squad of graduate students aboard the icebreaker Araon is getting a crash course in the slow and physical work of ocean exploration.`\
+https://nytimes.com/card/2026/02/13/climate/antarctica-oceanography-students
+
+**‘The Pitt’ Season 2, Episode 6 Recap: A Sudden Goodbye**\
+`A sudden death rattles the doctors and nurses at the Pitt a little more than usual. Meanwhile, the patients keep steaming in.`\
+https://nytimes.com/2026/02/12/arts/television/the-pitt-recap-season-2-episode-6.html
+
+**Like Some Breath**\
+`Evan Mulvihill opens our solving weekend.`\
+https://nytimes.com/2026/02/12/crosswords/daily-puzzle-2026-02-13.html
+
 **Ex-Prime Minister of Norway Charged With Corruption Linked to Epstein**\
 `Thorbjorn Jagland, who briefly led Norway in the 1990s, had been protected by diplomatic immunity that came with his work with the Council of Europe, but that privilege was waived.`\
 https://nytimes.com/2026/02/12/world/europe/thorbjorn-jagland-epstein-corruption-norway.html
