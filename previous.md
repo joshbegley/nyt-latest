@@ -1,40 +1,40 @@
-**Trump Pardons Klecko, Jamal Lewis and Other Former N.F.L. Players**\
-`The players included Super Bowl champions and a Hall of Famer who had been charged for crimes ranging from perjury to drug trafficking.`\
-https://nytimes.com/2026/02/12/us/politics/trump-nfl-pardons-klecko-jamal-lewis.html
+**Heated Rivalry and Marital Bliss: Two Wives Go Head to Head in a Scary Olympic Sport**\
+`One represents Belgium and the other Brazil in skeleton, in which the racer slides near-blind down an ice track at well over 80 miles per hour.`\
+https://nytimes.com/2026/02/13/world/europe/kim-meylemans-nicole-silveira-wives-olympics.html
 
-**‘The Unknown’ Review: Sean Hayes Turns One Man Into a Mystery**\
-`The chameleonic actor takes on several characters in David Cale’s solo play about a writer in pursuit of his stalker. Or is it all in his mind?`\
-https://nytimes.com/2026/02/12/theater/the-unknown-review-sean-hayes.html
+**'I was horrified to see him go' – Rosenior, a Hull homecoming, and one narrow miss**\
+`Less than two years after he was sacked as Hull boss, Rosenior will be back at the MKM Stadium as Chelsea manager in tonight’s FA Cup tie`\
+https://nytimes.com/athletic/7041511/2026/02/13/liam-rosenior-chelsea-hull-city/
 
-**Vanderbilt beats fourth-ranked Texas as Mikayla Blakes' streak continues**\
-`The win was massive for the Commodores’ NCAA Tournament resume as Texas and Vanderbilt could go head-to-head for the fourth No. 1 seed.`\
-https://nytimes.com/athletic/7043512/2026/02/12/vanderbilt-texas-womens-basketball-sec-recap-game/
+**Connections: Sports Edition Coach: Hints and answers for Feb. 13, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7043714/2026/02/13/connections-sports-edition-hints-answers-feb-13-2026/
 
-**Watch Choi Gaon and Chloe Kim Go Head to Head in the Halfpipe**\
-`The South Korean snowboarder Choi Gaon pulled off a stunning victory on Thursday in the women’s halfpipe final at the 2026 Olympics, capturing the gold medal and defeating the American Chloe Kim, the two-time defending champion.`\
-https://nytimes.com/video/sports/100000010710159/watch-choi-gaon-and-chloe-kim-go-head-to-head-in-the-halfpipe.html
+**Corrections: Feb. 13, 2026**\
+`Corrections that appeared in print on Friday, Feb. 13, 2026.`\
+https://nytimes.com/2026/02/13/pageoneplus/corrections-feb-13-2026.html
 
-**Republicans Ask Supreme Court to Intervene in N.Y. Redistricting Case**\
-`Lawyers for Representative Nicole Malliotakis, Republican of New York, asked the Supreme Court to block a ruling that would redraw her district lines.`\
-https://nytimes.com/2026/02/12/nyregion/redistricting-supreme-court-ny.html
+**They Waited Until They Didn’t Have to Anymore**\
+`Jeff Melsheimer and Izzie Shea both had to be patient in their journey to find each other.`\
+https://nytimes.com/2026/02/13/style/jeff-melsheimer-izzie-shea-wedding.html
 
-**2026 Olympics, Day 6 recap: Kim outdone by mentee, Ukrainian skeleton athlete appeals IOC disqualification**\
-`Catch up on the biggest moments from Day 6 of the 2026 Winter Olympic Games. `\
-https://nytimes.com/athletic/7042950/2026/02/12/2026-olympics-kim-ukrainian-skeleton-appeal/
+**He Came With a Hearty Endorsement from His Ex-Fiancée**\
+`Danielle Garonce first noticed Daniel Grossman as “the fiancé who grows eggplants” on her friend’s Instagram. Once that engagement was over, they made their own match.`\
+https://nytimes.com/2026/02/13/style/danielle-garonce-daniel-grossman-wedding.html
 
-**Learning the Ropes, and the Shackles and the Bolts, in Antarctica**\
-`A squad of graduate students aboard the icebreaker Araon is getting a crash course in the slow and physical work of ocean exploration.`\
-https://nytimes.com/card/2026/02/13/climate/antarctica-oceanography-students
+**They Took a Swing at Dating Again**\
+`Ryan Smith and Andrea Gallo were both newly single when they met on an intramural softball league in New Jersey.`\
+https://nytimes.com/2026/02/13/style/andrea-gallo-ryan-smith-wedding.html
 
-**‘The Pitt’ Season 2, Episode 6 Recap: A Sudden Goodbye**\
-`A sudden death rattles the doctors and nurses at the Pitt a little more than usual. Meanwhile, the patients keep steaming in.`\
-https://nytimes.com/2026/02/12/arts/television/the-pitt-recap-season-2-episode-6.html
+**Settled in Seattle After a Long-Distance Relationship**\
+`Samantha Smith and Aaron Davis fell in love with the city and each other while she was working as a traveling nurse.`\
+https://nytimes.com/2026/02/13/style/settled-in-seattle-after-a-long-distance-relationship.html
 
-**Like Some Breath**\
-`Evan Mulvihill opens our solving weekend.`\
-https://nytimes.com/2026/02/12/crosswords/daily-puzzle-2026-02-13.html
+**I Had Buyer’s Remorse. It Almost Ended My Marriage.**\
+`When you can’t agree on the right city to live in, home can be more hell than haven.`\
+https://nytimes.com/2026/02/13/style/modern-love-i-had-buyers-remorse-it-almost-ended-my-marriage.html
 
-**Ex-Prime Minister of Norway Charged With Corruption Linked to Epstein**\
-`Thorbjorn Jagland, who briefly led Norway in the 1990s, had been protected by diplomatic immunity that came with his work with the Council of Europe, but that privilege was waived.`\
-https://nytimes.com/2026/02/12/world/europe/thorbjorn-jagland-epstein-corruption-norway.html
+**Phil Castellini takes control of Reds; succeeds father Bob Castellini**\
+`The 84-year old Bob Castellini appeared at Redsfest last month in Cincinnati and is expected to come to Goodyear, Ariz., to visit the team.`\
+https://nytimes.com/athletic/7043784/2026/02/12/cincinnati-reds-phil-castellini-control/
 
