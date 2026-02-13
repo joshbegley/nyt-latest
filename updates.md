@@ -1,3 +1,7 @@
+**Arsenal got 'Arsenaled'. Brentford deliver Arteta's side their own dose of set-piece hell**\
+`Brentford made Arsenal pay from a long throw which meant two dropped points in the Premier League title race`\
+https://nytimes.com/athletic/7043392/2026/02/13/arsenal-brentford-kayode-throw-set-pieces/
+
 **‘The Daily Show’ Gives President Trump Yet Another Inaugural Award**\
 `Jordan Klepper congratulated the president, the sole nominee for “the Inaugural Award for Winning the Most Inaugural Awards.”`\
 https://nytimes.com/2026/02/13/arts/television/the-daily-show-trump-inaugural-award.html
