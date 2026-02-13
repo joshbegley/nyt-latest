@@ -1,3 +1,7 @@
+**F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
+`Aiming for what women actually want to wear, the team is prioritizing fit and style over sponsor logos and team branding`\
+https://nytimes.com/athletic/7043537/2026/02/13/f1-women-fanwear-cadillac/
+
 **Indian Man Expected to Plead Guilty to Orchestrating Failed Murder Plot**\
 `Nikhil Gupta is accused of plotting to assassinate an American citizen. Prosecutors have argued it mirrors similar efforts against Sikhs, including the killing of one in Canada.`\
 https://nytimes.com/2026/02/13/nyregion/nikhil-gupta-assasination-india-sikh-plea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-mad
 **Bessent Pushes Senate on Fed Confirmation Amid Backlash Over Criminal Inquiry**\
 `President Trump’s effort to get Kevin M. Warsh confirmed as the next Federal Reserve chair has been complicated by a criminal investigation into Jerome H. Powell.`\
 https://nytimes.com/2026/02/13/us/politics/bessent-powell-warsh-fed-chair-confirmation.html
-
-**Rodri charged by FA after questioning referee neutrality vs. Spurs**\
-`Rodri is facing an FA ban following his comments after the draw with Tottenham Hotspur at the start of this month.`\
-https://nytimes.com/athletic/7044446/2026/02/13/rodri-charged-fa-manchester-city-tottenham/
 
