@@ -1,3 +1,7 @@
+**The Hidden Number Driving U.S. Job Growth**\
+`After a year of just 181,000 new jobs, January’s 131,000 increase in the U.S. workforce was surprisingly positive. Ben Casselman, The New York Times’ chief economic correspondent, explains the numbers.`\
+https://nytimes.com/video/business/economy/100000010706277/explaining-us-job-growth-healthcare-ai-trump.html
+
 **As expectations heighten, so does Jed Hoyer's need to obsess over every detail**\
 `Last year’s postseason appearance is just the start. That’s the hope in Cubs camp, at least. Now the goals are loftier.`\
 https://nytimes.com/athletic/7042828/2026/02/13/chicago-cubs-jed-hoyer-details-expectations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043243/2026/02/13/college-basketball-all-stars-kin
 **49ers mock draft: A disruptive pass rusher, two big receivers and a young CMC**\
 `The 49ers are expected to have seven picks. Edge rusher and receiver are two big needs and two of the deepest positions in the draft.`\
 https://nytimes.com/athletic/7039940/2026/02/13/49ers-nfl-mock-draft-needs/
-
-**Mailbag: Comparing the Blackhawks and Sharks' rebuilds**\
-`I had originally planned two Blackhawks mailbags during the NHL&#8217;s Olympic break.`\
-https://nytimes.com/athletic/7037136/2026/02/13/blackhawks-rebuld-sharks-nhl-mailbag/
 
