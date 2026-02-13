@@ -2,7 +2,7 @@
 `Lying on a couch, his legs covered in a fuzzy blanket, Guerrero spoke candidly in Spanish about a number of baseball topics.`\
 https://nytimes.com/athletic/7043430/2026/02/13/vladimir-guerrero-jr-interview/
 
-**U.K. Ban on Pro-Palestinian Group is Unlawful, Court Finds**\
+**U.K. Ban on Pro-Palestinian Group Is Unlawful, Court Finds**\
 `The High Court ruling, which can be appealed, said the British government had overstepped when it banned Palestine Action as a terrorist group.`\
 https://nytimes.com/2026/02/13/world/europe/uk-palestine-action-ban-court-ruling.html
 
