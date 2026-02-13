@@ -1,3 +1,11 @@
+**Nikola Topić makes NBA debut for Thunder less than 4 months after cancer diagnosis**\
+`A first-round pick in 2024, Topić scored his first NBA points on Thursday night against the Bucks.`\
+https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
+
+**NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
+`The league also fined the Indiana Pacers $100,000 for violating the league's rest policy. `\
+https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
+
 **Goldman’s Top Lawyer Departs Amid Revelations About Her Ties to Epstein**\
 `Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed a friendship with the sex offender Jeffrey Epstein spanning many years.`\
 https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.html

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7043485/2026/02/12/nikola-topic-okc-thunder-cancer-first-points/
 
 **NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
-`The league also fined the Indiana Pacers $100,000 for violating the league's rest policy. `\
+`Utah was fined $500,000 for sitting key players in recent close games, while Indiana was docked $100,000 for violating the rest policy. `\
 https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
 
 **Before Mass Killing, Mental Breakdowns and Online Violent Extremism**\
