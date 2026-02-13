@@ -1,3 +1,7 @@
+**Indian Man Expected to Plead Guilty to Orchestrating Failed Murder Plot**\
+`Nikhil Gupta is accused of plotting to assassinate an American citizen. Prosecutors have argued it mirrors similar efforts against Sikhs, including the killing of one in Canada.`\
+https://nytimes.com/2026/02/13/nyregion/nikhil-gupta-assasination-india-sikh-plea.html
+
 **Josie Baff wins women's snowboard cross Olympic gold to make history for Australia**\
 `Josie Baff's Olympic gold was the first by an Australian woman in snowboard cross.`\
 https://nytimes.com/athletic/7044422/2026/02/13/josie-baff-snowboard-cross-gold-2026-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/13/us/politics/bessent-powell-warsh-fed-chair-confir
 **Rodri charged by FA after questioning referee neutrality vs. Spurs**\
 `Rodri is facing an FA ban following his comments after the draw with Tottenham Hotspur at the start of this month.`\
 https://nytimes.com/athletic/7044446/2026/02/13/rodri-charged-fa-manchester-city-tottenham/
-
-**German Officials Needle Trump at Munich Security Conference**\
-`Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
-https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
 
