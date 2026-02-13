@@ -1,3 +1,19 @@
+**LeBron James, at 41, becomes oldest NBA player to record a triple double**\
+`James, 41, set a record previously owned by Karl Malone, who was 40 years and 127 days old when he posted a triple double. `\
+https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
+
+**The South African, the professional pole-dancer and how cricket is offering hope in Ukraine**\
+`Kobus Olivier and Olena Kravchenko are coaching cricket in Kyiv in a bid to bring some 'normality' to children and teenagers`\
+https://nytimes.com/athletic/7041041/2026/02/13/cricket-ukraine-war-academy-pole-dancing/
+
+**What to watch on Day 7 at Winter Olympics: 'Quad God' seeks gold, women's hockey playoffs, more**\
+`Ilia Malinin can secure his second gold medal in figure skating as the American competes in the free skate at the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-what-to-watch-day-7/
+
+**Arne Slot says Liverpool's opponents always change tactics. Is he right – and does it matter?**\
+`The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
+https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
+
 **When Dibling met Rayan: A tale of two teenagers and contrasting opportunities**\
 `The Bournemouth winger has thrived since his mid-season move from Vasco da Gama, but would he have had the same opportunities at Everton?`\
 https://nytimes.com/athletic/7041375/2026/02/13/tyler-dibling-everton-rayan-moyes/

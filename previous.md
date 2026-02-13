@@ -1,3 +1,19 @@
+**LeBron James, at 41, becomes oldest NBA player to record a triple double**\
+`James, 41, set a record previously owned by Karl Malone, who was 40 years and 127 days old when he posted a triple double. `\
+https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
+
+**The South African, the professional pole-dancer and how cricket is offering hope in Ukraine**\
+`Kobus Olivier and Olena Kravchenko are coaching cricket in Kyiv in a bid to bring some 'normality' to children and teenagers`\
+https://nytimes.com/athletic/7041041/2026/02/13/cricket-ukraine-war-academy-pole-dancing/
+
+**What to watch on Day 7 at Winter Olympics: 'Quad God' seeks gold, women's hockey playoffs, more**\
+`Ilia Malinin can secure his second gold medal in figure skating as the American competes in the free skate at the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-what-to-watch-day-7/
+
+**Arne Slot says Liverpool's opponents always change tactics. Is he right – and does it matter?**\
+`The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
+https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
+
 **When Dibling met Rayan: A tale of two teenagers and contrasting opportunities**\
 `The Bournemouth winger has thrived since his mid-season move from Vasco da Gama, but would he have had the same opportunities at Everton?`\
 https://nytimes.com/athletic/7041375/2026/02/13/tyler-dibling-everton-rayan-moyes/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7038320/2026/02/13/jacob-ramsey-showing-value-newca
 **How do sports broadcasters cover serious injuries like the one suffered by Lindsey Vonn?**\
 `When competitors suffer horrific, or even life-threatening, injuries, broadcasters are faced with making difficult ethical choices `\
 https://nytimes.com/athletic/7041909/2026/02/13/lindsey-vonn-injury-coverage-broadcaster/
-
-**Which of the Premier League strugglers can least afford to be relegated?**\
-`West Ham United's recent revival has left big clubs with bigger concerns and the prospect of a proper relegation battle `\
-https://nytimes.com/athletic/7041846/2026/02/13/relegation-premier-league-finances-tottenham-leeds-forest-west-ham/
-
-**The greatest Premier League goals no one remembers**\
-`From long-distance strikes from unfashionable teams to half-volleys in relegation seasons - what is the goal you think gets forgotten about?`\
-https://nytimes.com/athletic/7038692/2026/02/13/great-premier-league-goals-adam-kulusevski-van-persie/
-
-**Japan Detains a Chinese Boat and Its Captain Amid Rift With Beijing**\
-`The seizure of the trawler, which Japan said was sailing in its waters in the East China Sea, is likely to add to tensions between Tokyo and Beijing.`\
-https://nytimes.com/2026/02/13/world/asia/japan-seizes-chinese-boat.html
-
-**The Prospects: Charlie Walker-Smith, Crystal Palace**\
-`The young defender is gaining a reputation as a ball-playing centre-half and made his Premier League 2 debut against Middlesbrough`\
-https://nytimes.com/athletic/7036133/2026/02/13/crystal-palace-walker-smith-prospects/
 
