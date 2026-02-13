@@ -1,3 +1,19 @@
+**These Are the Women Changing Fashion**\
+`Five talents who helm independent labels — and lead with craft.`\
+https://nytimes.com/2026/02/13/t-magazine/women-fashion-label-heads.html
+
+**Want to Cut Monthly Costs? Start With Your Internet and Streaming Bills.**\
+`It’s cold outside — and a fine time to look over your bills and see where you can save.`\
+https://nytimes.com/2026/02/13/your-money/monthly-bills-phone-internet-streaming-subscriptions.html
+
+**Crises Everywhere, but the Markets Don’t Seem to Mind**\
+`Stocks have prospered while the world has plunged into disorder, an economist says. “Keep calm and carry on” may be the best investors can do.`\
+https://nytimes.com/2026/02/13/business/markets-crisis-trump.html
+
+**Laremy Tunsil's future, options at No. 7, pressure on Adam Peters and more: Commanders mailbag**\
+`As the Commanders enter a crucial offseason, beat writer Nicki Jhabvala answers some pressing reader questions.`\
+https://nytimes.com/athletic/7044275/2026/02/13/laremy-tunsil-contract-commanders-draft-options/
+
 **Mavericks' GM search a chance for Patrick Dumont to quiet any controversy**\
 `The Mavericks can't afford to make a mistake when it comes to hiring a new GM to run the team.`\
 https://nytimes.com/athletic/7043898/2026/02/13/mavericks-gm-search-patrick-dumont/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/13/business/us-inflation-eased-at-start-of-the-year.
 **U.S. Transfers Thousands of ISIS Prisoners to Iraq From Syria**\
 `The moves appear to highlight lingering doubts in Washington about the new Syrian government’s ability to ensure security.`\
 https://nytimes.com/2026/02/13/us/politics/us-isis-prisoners.html
-
-**Ireland commits to Israel matches due to 'potential disqualification'**\
-`In November, the FAI voted to submit a formal motion to UEFA seeking to ban Israel from continental competition.`\
-https://nytimes.com/athletic/7044264/2026/02/13/ireland-israel-uefa-nations-league/
-
-**More Epstein Fallout for Goldman, and Beyond**\
-`The Wall Street giant’s top lawyer, whose ties to Jeffrey Epstein had raised questions at the firm, has resigned. Other corporate leaders are also facing blowback.`\
-https://nytimes.com/2026/02/13/business/dealbook/epstein-ruemmler-goldman-sachs.html
-
-**Johannes Klæbo wins eighth gold, ties all-time Winter Olympics record with 10km free victory**\
-`Klæbo joins cross-country skiers Marit Bjørgen and Bjørn Dæhlie and biathlete Ole Einar Bjørndalen on the all-time list.`\
-https://nytimes.com/athletic/7044309/2026/02/13/olympics-johannes-klaebo-gold-record/
-
-**Trump Administration Live Updates: Homeland Security Funding Set to Lapse**\
-``\
-https://nytimes.com/live/2026/02/13/us/trump-news
 
