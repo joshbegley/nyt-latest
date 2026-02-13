@@ -1,3 +1,7 @@
+**Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
+`In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
+https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
+
 **Partial Federal Shutdown Shrinks Congressional Presence in Munich**\
 `In a moment of frayed trans-Atlantic relations, Speaker Mike Johnson abruptly canceled the House delegation to Europe’s biggest annual security summit.`\
 https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043013/2026/02/12/trinidad-chambliss-eligibility-o
 **Police Seek 4 People After Teen Killed in Bronx Shooting**\
 `The police said they were seeking three men and one woman in connection with the shooting, which killed Christopher Redding, 16. Two other teenagers were injured.`\
 https://nytimes.com/2026/02/12/nyregion/bronx-fatal-shooting-teens.html
-
-**Former N.Y.P.D. Official Is Charged With Soliciting Bribes**\
-`Kevin Taylor, who ran the School Safety Division, received cash, luxury hotel lodging and a helicopter ride for promising to help steer city contracts to a Florida businessman, prosecutors said.`\
-https://nytimes.com/2026/02/12/nyregion/nypd-school-safety-bribes.html
 
