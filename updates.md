@@ -1,3 +1,19 @@
+**Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
+`In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
+https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
+
+**Partial Federal Shutdown Shrinks Congressional Presence in Munich**\
+`In a moment of frayed trans-Atlantic relations, Speaker Mike Johnson abruptly canceled the House delegation to Europe’s biggest annual security summit.`\
+https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
+
+**Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged the immigrant and another man with assaulting an agent.`\
+https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
+
+**Senate Democrats Block Funding for D.H.S.**\
+`After a heated Senate hearing that highlighted the partisan divide over immigration enforcement, Democrats voted to block funding for the Department of Homeland Security.`\
+https://nytimes.com/video/us/politics/100000010708789/dhs-funding-senate-democrats.html
+
 **How The Times Is Digging Into Millions of Pages of Epstein Files**\
 `Two dozen journalists. A pile of pages that would reach the top of the Empire State Building. And an effort to find the next revelation in a sprawling case.`\
 https://nytimes.com/2026/02/12/insider/jeffrey-epstein-files-documents.html
