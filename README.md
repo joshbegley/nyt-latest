@@ -1,3 +1,7 @@
+**After a Harrowing Water Rescue, Baby Is Delivered on Mother’s Birthday**\
+`Shedly Apollon was on her way to a prenatal massage when she started to feel faint while on the road. Her car veered off the highway and into a lake.`\
+https://nytimes.com/2026/02/13/us/shedly-appollon-birthday-emergency-c-section-florida.html
+
 **Homeland Security Wants Social Media Sites to Expose Anti-ICE Accounts**\
 `The department has sent Google, Meta and other companies hundreds of subpoenas for information on accounts that track or comment on Immigration and Customs Enforcement, officials and tech workers said.`\
 https://nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/13/world/americas/trump-oil-un-cuba-venezuela.html
 **Wrexham reach FA Cup fifth round for first time since 1997**\
 `Josh Windass' first half goal was enough to beat their Championship promotion rivals in north Wales on Friday.  `\
 https://nytimes.com/athletic/7045478/2026/02/13/wrexham-fa-cup-ipswich-win/
-
-**The Briefing: Hull 0 Chelsea 4 – How good was Neto? How did Delap redeem himself?**\
-`Dissecting the major talking points as Chelsea booked their place in the FA Cup fifth round`\
-https://nytimes.com/athletic/7038716/2026/02/13/hull-chelsea-fa-cup-result-analysis/
 
