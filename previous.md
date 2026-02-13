@@ -1,3 +1,7 @@
+**Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\
+`It is the latest court ruling staving off deep cuts to social services that Democratic-led states say are politically motivated and would harm hundreds of thousands of people.`\
+https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html
+
 **Judge Says Immigrant Detainees Near Minneapolis Must Have Proper Access to Lawyers**\
 `In a rebuke to the government, a federal judge in Minnesota said “the government failed to plan for the constitutional rights of its civil detainees” during its immigration crackdown in the state.`\
 https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/02/12/us/minnesota-immigration-detainees-lawyers.html
 https://nytimes.com/2026/02/12/us/politics/munich-security-conference-lawmakers.html
 
 **Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
-`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged two men with assaulting an agent.`\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged the immigrant and another man with assaulting an agent.`\
 https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
 
 **Senate Democrats Block Funding for D.H.S.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/12/us/minnesota-trump-crackdown-immigration-takeaway
 **Trinidad Chambliss poised to return to Ole Miss after judge grants preliminary injunction**\
 `Chambliss, who led Ole Miss to the College Football Playoff semifinals, sued the NCAA last month after it denied his waiver request.`\
 https://nytimes.com/athletic/7043013/2026/02/12/trinidad-chambliss-eligibility-ole-miss-ncaa-court-case/
-
-**Police Seek 4 People After Teen Killed in Bronx Shooting**\
-`The police said they were seeking three men and one woman in connection with the shooting, which killed Christopher Redding, 16. Two other teenagers were injured.`\
-https://nytimes.com/2026/02/12/nyregion/bronx-fatal-shooting-teens.html
 

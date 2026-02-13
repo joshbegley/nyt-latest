@@ -1,3 +1,11 @@
+**Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\
+`It is the latest court ruling staving off deep cuts to social services that Democratic-led states say are politically motivated and would harm hundreds of thousands of people.`\
+https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html
+
+**Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
+`The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged the immigrant and another man with assaulting an agent.`\
+https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
+
 **Prosecutor Seeks to Drop Charges Against Immigrant Shot by ICE Agent**\
 `The top federal prosecutor in Minnesota said new evidence was “materially inconsistent” with what officials claimed when they charged two men with assaulting an agent.`\
 https://nytimes.com/2026/02/12/us/prosecutor-dismiss-charges-men-shot-by-ice.html
