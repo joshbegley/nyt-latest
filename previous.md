@@ -1,3 +1,7 @@
+**The Epstein Files and the Hidden World of an Unaccountable Elite**\
+`The search continues in the documents for ironclad criminal conduct, but the story of a sexual predator given a free ride by the ruling class has already emerged.`\
+https://nytimes.com/2026/02/12/us/politics/epstein-files.html
+
 **See How Gaon Choi Dethroned Chloe Kim in Women’s Halfpipe**\
 `Choi came back after a hard fall during her first run, landing back-to-back 900s and ending Kim’s hopes of a third gold medal.`\
 https://nytimes.com/interactive/2026/02/12/sports/chloe-kim-gaon-choi-snowboarding-halfpipe-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043015/2026/02/12/red-sox-brayan-bello-trade-rumor
 **At the Olympics, can Auston Matthews regain his place in the hockey hierarchy?**\
 `Make no mistake, Matthews is still very, very good. He may even be great. But he’s not what he was. And he hasn’t been for a while now.`\
 https://nytimes.com/athletic/7043077/2026/02/12/auston-matthews-olympics-mens-hockey/
-
-**C.I.A. Video Appeals to Potential Spies in China’s Military**\
-`The agency is seeking Chinese officials who are frustrated with corruption in the People’s Liberation Army.`\
-https://nytimes.com/2026/02/12/us/politics/cia-china-spies.html
 
