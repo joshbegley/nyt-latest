@@ -1,5 +1,9 @@
-**LeBron James, at 41, becomes oldest NBA player to record a triple double**\
-`James, 41, set a record previously owned by Karl Malone, who was 40 years and 127 days old when he posted a triple double. `\
+**Anthony Alfredo disqualified from Daytona 500 after car fails inspection**\
+`"I was on top of the world, and now it feels like I'm at the bottom of it," a gutted Alfredo told The Athletic after learning of the news.`\
+https://nytimes.com/athletic/7043776/2026/02/13/anthony-alfredo-daytona-500-car-inspection-fail/
+
+**LeBron James, at 41, becomes oldest NBA player to record a triple-double**\
+`James broke a record previously held by Karl Malone, who was 40 years and 127 days old when he had a triple-double for the Lakers in 2003.`\
 https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
 
 **The South African, the professional pole-dancer and how cricket is offering hope in Ukraine**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041658/2026/02/13/kemar-roofe-interview-leeds-biel
 **Jacob Ramsey cost Newcastle £39million – he is starting to show his value**\
 `The 24-year-old midfielder is in encouraging form as he prepares to face his former club, Aston Villa, in the fourth round of the FA Cup`\
 https://nytimes.com/athletic/7038320/2026/02/13/jacob-ramsey-showing-value-newcastle-aston-villa/
-
-**How do sports broadcasters cover serious injuries like the one suffered by Lindsey Vonn?**\
-`When competitors suffer horrific, or even life-threatening, injuries, broadcasters are faced with making difficult ethical choices `\
-https://nytimes.com/athletic/7041909/2026/02/13/lindsey-vonn-injury-coverage-broadcaster/
 
