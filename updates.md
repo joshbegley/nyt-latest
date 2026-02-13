@@ -1,3 +1,11 @@
+**2026 Olympics, Day 6 recap: Kim outdone by mentee, Ukrainian skeleton athlete appeals IOC disqualification**\
+`Catch up on the biggest moments from Day 6 of the 2026 Winter Olympic Games. `\
+https://nytimes.com/athletic/7042950/2026/02/12/2026-olympics-kim-ukrainian-skeleton-appeal/
+
+**NBA fines Jazz, Pacers for tanking 'behavior' after questions raised over resting players**\
+`Utah was fined $500,000 for sitting key players in recent close games, and Indiana was docked $100,000 for violating the rest policy. `\
+https://nytimes.com/athletic/7043496/2026/02/12/utah-jazz-pacers-fined-nba-tanking-markkanen-jackson/
+
 **Learning the Ropes, and the Shackles and the Bolts, in Antarctica**\
 `A squad of graduate students aboard the icebreaker Araon is getting a crash course in the slow and physical work of ocean exploration.`\
 https://nytimes.com/card/2026/02/13/climate/antarctica-oceanography-students
