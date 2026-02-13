@@ -1,3 +1,7 @@
+**Jet2 Flight Diverted Following Midair Brawl**\
+`The fight, captured on videos shared to social media, involved multiple passengers crowding into the aisle of the plane.`\
+https://nytimes.com/2026/02/13/travel/jet2-flight-diverted-passengers-fight.html
+
 **Alex Vesia speaks after death of daughter: 'We’re carrying her with us every day'**\
 `Vesia wore a new custom Marucci glove, baby blue with pink accents. Written in script: “Sterling Sol.”`\
 https://nytimes.com/athletic/7045218/2026/02/13/dodgers-alex-vesia-daughter-statement/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7045239/2026/02/13/emmanuel-clase-guardians-rigging
 **Prime Tire: Drivers are confused. Here's why**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7045078/2026/02/13/overtake-mode-boost-mode-f1-new-rules-regulations-prime-tire/
-
-**White House Claims Win Amid Strong Economic Data**\
-`Strong jobs data and a soft inflation reading for January are welcome news for President Trump. But the bigger economic picture is less encouraging.`\
-https://nytimes.com/2026/02/13/business/economy-inflation-jobs-trump.html
 
