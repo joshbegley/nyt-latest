@@ -1,3 +1,27 @@
+**President Trump pardons Hall of Famer Joe Klecko and 4 other ex-NFL players**\
+`Trump pardoned Klecko, Nate Newton, Jamal Lewis, Travis Henry and the late Billy Cannon for crimes ranging from perjury to drug trafficking.`\
+https://nytimes.com/athletic/7043795/2026/02/13/trump-pardons-nfl-players-klecko-newton-lewis-henry-cannon/
+
+**Cresting Wave**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/02/13/learning/cresting-wave.html
+
+**‘Tax the Rich’ Rally Is Expected to Draw a Big Crowd. But Not Mamdani.**\
+`Mayor Zohran Mamdani has told organizers of the Feb. 25 rally that he is unlikely to attend because he does not want to antagonize Gov. Kathy Hochul.`\
+https://nytimes.com/2026/02/13/nyregion/mamdani-tax-rich-rally-dsa.html
+
+**New Jersey Bridge Project Could Snarl Rail Traffic for a Month**\
+`Construction on the new Portal North Bridge is expected to disrupt commutes into Manhattan on NJ Transit, PATH and Amtrak trains beginning on Sunday.`\
+https://nytimes.com/2026/02/13/nyregion/portal-bridge-njtransit-amtrak.html
+
+**Floods. Smoke. Soaring Bills. Mamdani’s Climate Czar Has a Full Agenda.**\
+`Louise Yeung relishes the intricacies of policy debates and the magic of rom-coms. She lives in Brooklyn with her cat and two snails.`\
+https://nytimes.com/2026/02/13/nyregion/mamdani-climate-czar-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/13/crosswords/spelling-bee-forum.html
+
 **How Sir Jim Ratcliffe sparked a political storm that engulfed Manchester United**\
 `Sir Jim Ratcliffe's claims that the United Kingdom has been “colonised by immigrants” drew a reaction inside and outside Old Trafford`\
 https://nytimes.com/athletic/7042785/2026/02/13/ratcliffe-manchester-united-political-storm/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
 **Barcelona have never looked so lost under Hansi Flick. Should fans be worried?**\
 `The weaknesses of Hansi Flick's high-risk attacking style were ruthlessly exposed by Atletico Madrid in a 4-0 defeat on Thursday night`\
 https://nytimes.com/athletic/7043114/2026/02/13/barcelona-atletico-copa-result-high-line-flick/
-
-**‘The Daily Show’ Gives President Trump Yet Another Inaugural Award**\
-`Jordan Klepper congratulated the president, the sole nominee for “the Inaugural Award for Winning the Most Inaugural Awards.”`\
-https://nytimes.com/2026/02/13/arts/television/the-daily-show-trump-inaugural-award.html
-
-**The New York Times in Print for Friday, Feb. 13, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/13/todays-new-york-times
-
-**Even Suspected ISIS Members Deserve Justice**\
-`The U.S. is sending thousands of men accused of belonging to the Islamic State from Syria to Iraq, where they face potential mistreatment.`\
-https://nytimes.com/2026/02/13/opinion/syria-iraq-isis-syrian-democratic-forces-us.html
-
-**It Is Decision Time for NATO**\
-`The U.S. and Europe can save the trans-Atlantic alliance. They probably won’t.`\
-https://nytimes.com/2026/02/13/opinion/nato-munich-conference.html
-
-**Anthony Alfredo disqualified from Daytona 500 after car fails inspection**\
-`"I was on top of the world, and now it feels like I'm at the bottom of it," a gutted Alfredo told The Athletic after learning of the news.`\
-https://nytimes.com/athletic/7043776/2026/02/13/anthony-alfredo-daytona-500-car-inspection-fail/
-
-**LeBron James, at 41, becomes oldest NBA player to record a triple-double**\
-`James broke a record previously held by Karl Malone, who was 40 years and 127 days old when he had a triple-double for the Lakers in 2003.`\
-https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
 
