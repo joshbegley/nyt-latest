@@ -1,3 +1,11 @@
+**The Best Ways to Regulate Marijuana**\
+`Readers respond to an editorial about the legalization and regulation of marijuana. Also: The Trump administration’s attack on climate science.`\
+https://nytimes.com/2026/02/13/opinion/marijuana-regulation.html
+
+**Moving On From Minnesota, ICE Leaves a Legal Mess Behind**\
+`A surge of immigration arrests in the state sent thousands of people to detention centers in Texas, New Mexico and elsewhere. Federal courts have been overwhelmed with their pleas for release.`\
+https://nytimes.com/2026/02/13/us/ice-arrests-minnesota-courts.html
+
 **Igor Tudor style of play: Tottenham can expect pressing, organisation and daring football**\
 `Spurs have verbally agreed a deal to appoint Igor Tudor until the end of the end of the season. This is how his teams play`\
 https://nytimes.com/athletic/7044831/2026/02/13/igor-tudor-tottenham-tactics-analysis/
@@ -9,12 +17,4 @@ https://nytimes.com/video/world/100000010700965/how-bangladesh-went-from-revolut
 **Where Are You, Mysterious Wedding Boots?**\
 `We tracked down some footwear Alan Wyffels wore to exchange vows with his now-husband, Perfume Genius.`\
 https://nytimes.com/2026/02/13/t-magazine/perfume-genius-alan-wyffels-wedding-boots.html
-
-**Reds' Nick Krall says ownership move changes little for front office**\
-`Nick Krall said he always speaks with both Castellinis about the team's baseball decisions.`\
-https://nytimes.com/athletic/7044779/2026/02/13/reds-phil-castellini-role-nick-krall-comments/
-
-**We Tested Dozens of Lipsticks and Found 6 Standouts**\
-`Text by Ayanna Redwood-Crawford`\
-https://nytimes.com/card/2026/02/13/smarter-living/wirecutter/
 
