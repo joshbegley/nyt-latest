@@ -1,3 +1,7 @@
+**German Officials Needle Trump at Munich Security Conference**\
+`Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
+https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
+
 **These Are the Women Changing Fashion**\
 `Five talents who helm independent labels — and lead with craft.`\
 https://nytimes.com/2026/02/13/t-magazine/women-fashion-label-heads.html
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
 
 **U.S. Inflation Eased at Start of the Year**\
 `The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
-https://nytimes.com/2026/02/13/business/us-inflation-eased-at-start-of-the-year.html
-
-**U.S. Transfers Thousands of ISIS Prisoners to Iraq From Syria**\
-`The moves appear to highlight lingering doubts in Washington about the new Syrian government’s ability to ensure security.`\
-https://nytimes.com/2026/02/13/us/politics/us-isis-prisoners.html
+https://nytimes.com/2026/02/13/business/inflation-cpi-report-january.html
 

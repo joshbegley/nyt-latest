@@ -1,3 +1,11 @@
+**German Officials Needle Trump at Munich Security Conference**\
+`Friedrich Merz, the chancellor of Germany, said that under President Trump, the United States’ claim to global leadership “has been challenged, and possibly squandered.”`\
+https://nytimes.com/2026/02/13/world/europe/germany-merz-trump-munich.html
+
+**U.S. Inflation Eased at Start of the Year**\
+`The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
+https://nytimes.com/2026/02/13/business/inflation-cpi-report-january.html
+
 **These Are the Women Changing Fashion**\
 `Five talents who helm independent labels — and lead with craft.`\
 https://nytimes.com/2026/02/13/t-magazine/women-fashion-label-heads.html
