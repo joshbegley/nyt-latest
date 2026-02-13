@@ -1,3 +1,11 @@
+**Ex-Prime Minister of Norway Charged With Corruption Linked to Epstein**\
+`Thorbjorn Jagland, who briefly led Norway in the 1990s, had been protected by diplomatic immunity that came with his work with the Council of Europe, but that privilege was waived.`\
+https://nytimes.com/2026/02/12/world/europe/thorbjorn-jagland-epstein-corruption-norway.html
+
+**U.S. Aircraft Carrier Will Be Sent to the Middle East From Venezuela, Officials Say**\
+`The U.S.S. Gerald R. Ford is not expected to return until late April or early May.`\
+https://nytimes.com/2026/02/12/us/politics/uss-ford-venezuela-oil.html
+
 **How The Times Is Digging Into Millions of Pages of Epstein Files**\
 `Two dozen journalists. A pile of pages that would reach the top of the Empire State Building. And an effort to find the next revelation in a sprawling case.`\
 https://nytimes.com/2026/02/12/insider/jeffrey-epstein-files-documents.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/12/world/bangladesh-election-results
 **Scoop City: Offseason needs and NFL draft notes**\
 `The critical offseason needs for playoff and non-playoff teams, and where the top five teams among the latter rank in bounce-back potential`\
 https://nytimes.com/athletic/7043458/2026/02/12/nfl-draft-notes-offseason-needs-scoop-city/
-
-**Goldman’s Top Lawyer Departs Amid Revelations About Her Ties to Epstein**\
-`Kathryn Ruemmler, a former top Obama administration lawyer, is out at Goldman Sachs after emails showed a friendship with the sex offender Jeffrey Epstein spanning many years.`\
-https://nytimes.com/2026/02/12/business/goldman-lawyer-kathryn-ruemmler-resigns.html
-
-**Federal Judge Blocks Trump Plan to Cut $600 Million in Health Funds**\
-`It is the latest court ruling staving off deep cuts to social services that Democratic-led states say are politically motivated and would harm hundreds of thousands of people.`\
-https://nytimes.com/2026/02/12/us/politics/trump-health-funding-cuts-ruling.html
 
