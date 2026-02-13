@@ -1,3 +1,7 @@
+**Vanderbilt beats fourth-ranked Texas as Mikayla Blakes' streak continues**\
+`The win was massive for the Commodores’ NCAA Tournament resume as Texas and Vanderbilt could go head-to-head for the fourth No. 1 seed.`\
+https://nytimes.com/athletic/7043512/2026/02/12/vanderbilt-texas-womens-basketball-sec-recap-game/
+
 **Watch Choi Gaon and Chloe Kim Go Head to Head in the Halfpipe**\
 `The South Korean snowboarder Choi Gaon pulled off a stunning victory on Thursday in the women’s halfpipe final at the 2026 Olympics, capturing the gold medal and defeating the American Chloe Kim, the two-time defending champion.`\
 https://nytimes.com/video/sports/100000010710159/watch-choi-gaon-and-chloe-kim-go-head-to-head-in-the-halfpipe.html
