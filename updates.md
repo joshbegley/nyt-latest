@@ -1,3 +1,11 @@
+**F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
+`Aiming for what women actually want to wear, the team is prioritizing fit and style over sponsor logos and team branding`\
+https://nytimes.com/athletic/7043537/2026/02/13/f1-women-fanwear-cadillac/
+
+**Indian Man Expected to Plead Guilty to Orchestrating Failed Murder Plot**\
+`Nikhil Gupta is accused of plotting to assassinate an American citizen. Prosecutors have argued it mirrors similar efforts against Sikhs, including the killing of one in Canada.`\
+https://nytimes.com/2026/02/13/nyregion/nikhil-gupta-assasination-india-sikh-plea.html
+
 **Josie Baff wins women's snowboard cross Olympic gold to make history for Australia**\
 `Josie Baff's Olympic gold was the first by an Australian woman in snowboard cross.`\
 https://nytimes.com/athletic/7044422/2026/02/13/josie-baff-snowboard-cross-gold-2026-winter-olympics/

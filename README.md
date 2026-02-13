@@ -1,3 +1,7 @@
+**2 ISIS Supporters Who Planned Attack on Jews in U.K. Get Life Sentences**\
+`The case underlined how the Islamic State had seized on rising antisemitism provoked by the Gaza war to radicalize and encourage would-be assailants.`\
+https://nytimes.com/2026/02/13/world/europe/isis-jewish-attack-uk-manchester.html
+
 **F1 teams struggle to design merch for women. Cadillac is trying a new approach**\
 `Aiming for what women actually want to wear, the team is prioritizing fit and style over sponsor logos and team branding`\
 https://nytimes.com/athletic/7043537/2026/02/13/f1-women-fanwear-cadillac/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bou
 **Real Madrid's Mbappe fit for Real Sociedad match despite knee discomfort**\
 `The France international has been struggling with discomfort in his left knee since December.`\
 https://nytimes.com/athletic/7044303/2026/02/13/mbappe-injury-news-knee-real-madrid-sociedad/
-
-**Bessent Pushes Senate on Fed Confirmation Amid Backlash Over Criminal Inquiry**\
-`President Trump’s effort to get Kevin M. Warsh confirmed as the next Federal Reserve chair has been complicated by a criminal investigation into Jerome H. Powell.`\
-https://nytimes.com/2026/02/13/us/politics/bessent-powell-warsh-fed-chair-confirmation.html
 
