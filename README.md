@@ -36,5 +36,5 @@ https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
 
 **U.S. Inflation Eased at Start of the Year**\
 `The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
-https://nytimes.com/2026/02/13/business/us-inflation-eased-at-start-of-the-year.html
+https://nytimes.com/2026/02/13/business/inflation-cpi-report-january.html
 
