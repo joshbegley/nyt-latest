@@ -1,3 +1,7 @@
+**Vladimir Guerrero Jr. on his $500 million deal, a World Series truth and the father who changed him**\
+`Lying on a couch, his legs covered in a fuzzy blanket, Guerrero spoke candidly in Spanish about a number of baseball topics.`\
+https://nytimes.com/athletic/7043430/2026/02/13/vladimir-guerrero-jr-interview/
+
 **U.K. Ban on Pro-Palestinian Group is Unlawful, Court Finds**\
 `The High Court ruling, which can be appealed, said the British government had overstepped when it banned Palestine Action as a terrorist group.`\
 https://nytimes.com/2026/02/13/world/europe/uk-palestine-action-ban-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/13/world/europe/russia-ukraine-peace-talks.html
 **Another Shutdown? Here’s What Travelers Should Know.**\
 `It was not immediately clear whether passengers would face delays at airport security checkpoints in the coming days if a government shutdown does occur.`\
 https://nytimes.com/2026/02/13/travel/government-shutdown-what-to-know.html
-
-**‘Neighbors’ Review: One Battle After Another**\
-`A quirky HBO docuseries about small-scale feuds is the latest pop-culture portrait of a country full of tiny civil wars.`\
-https://nytimes.com/2026/02/13/arts/television/neighbors-review-one-battle-after-another.html
 
