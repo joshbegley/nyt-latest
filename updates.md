@@ -1,3 +1,7 @@
+**How to watch Ohio vs. Miami (OH) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio Bobcats play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7045301/2026/02/13/ohio-vs-miami-oh-stream-how-to-watch-feb-13/
+
 **How to watch Michigan State vs. Wisconsin men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7045299/2026/02/13/michigan-state-vs-wisconsin-stream-how-to-watch-feb-13/
