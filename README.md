@@ -1,3 +1,7 @@
+**AFCON 2027 to be staged in summer months, no change of host nations - CAF president**\
+`Motsepe also suggested the opening game of AFCON 2027 will be held in Tanzania, one of three nations co-hosting the tournament.`\
+https://nytimes.com/athletic/7044312/2026/02/13/afcon-2027-when-hosts-who/
+
 **U.S. Inflation Eased at Start of the Year**\
 `The Consumer Price Index fell in January to 2.4 percent from 2.7 percent a month`\
 https://nytimes.com/2026/02/13/business/us-inflation-eased-at-start-of-the-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042862/2026/02/13/buffalo-bills-offseason-question
 **NBA All-Star Weekend watch guide: TV schedule, events and participants to know**\
 `Ever-evolving in format and style, undeniable in talent and shine. NBA All-Star Weekend returns to the L.A. area.`\
 https://nytimes.com/athletic/7040204/2026/02/13/nba-all-star-weekend-2026-schedule-how-to-watch/
-
-**Lowetide: McDavid, Draisaitl make their long-awaited Olympic debuts memorable**\
-`Both Oilers stars started their Olympics with a win, with Josh Samanski also playing a huge role for Germany alongside Draisaitl.`\
-https://nytimes.com/athletic/7041939/2026/02/13/oilers-mcdavid-draisaitl-olympics-debut-trade-deadline/
 
