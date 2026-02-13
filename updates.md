@@ -1,3 +1,7 @@
+**Igor Thiago signs new Brentford contract to 2031**\
+`Only Erling Haaland has scored more than the Brazilian's 17 Premier League goals this season.`\
+https://nytimes.com/athletic/7044103/2026/02/13/brentford-igor-thiago-contract-new/
+
 **From Exile to Power: The Rise of Bangladesh’s New Leader**\
 `Tarique Rahman, the scion of a political dynasty, returned to sweep his party into government with a promise of change. Some have doubts.`\
 https://nytimes.com/2026/02/13/world/asia/bangladesh-election-tarique-rahman.html
