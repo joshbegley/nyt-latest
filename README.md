@@ -1,3 +1,19 @@
+**Key Moments in Gisèle Pelicot’s Interview With The Times**\
+`The woman at the center of France’s largest-ever mass-rape trial told us about her life before, during and after the abuse she suffered at the hands of her husband.`\
+https://nytimes.com/2026/02/13/magazine/gisele-pelicot-interview-takeaways.html
+
+**‘They All Tried to Break Me’: Gisèle Pelicot Shares Her Story**\
+`In her first interview with an American media outlet, Pelicot opens up about surviving years of secret abuse — and a trial that shocked the world.`\
+https://nytimes.com/2026/02/13/magazine/gisele-pelicot-france-rape-case-story.html
+
+**Watch: Gisèle Pelicot on the Rape Trial That Shocked the World**\
+`In her first interview with an American media outlet, Gisèle Pelicot opened up about surviving years of secret abuse and deciding to go public with her story.`\
+https://nytimes.com/video/podcasts/100000010711035/gisele-pelicot-story-husband-rape.html
+
+**Johannes Høsflot Klæbo just made Olympic history: We watched it with his family**\
+`Watching the Norwegian cross-country great's record-tying eighth gold medal, with his father nervously checking split times.`\
+https://nytimes.com/athletic/7044679/2026/02/13/johannes-hosflot-klaebo-winter-olympics-10-kilometre-gold-father-family/
+
 **Tarique Rahman Set to be New Prime Minister of Bangladesh**\
 `The Bangladesh National Party, led by Tarique Rahman, won the first elections in the country since a student-led movement toppled the government in 2024.`\
 https://nytimes.com/video/world/asia/100000010710802/tarique-rahman-bangladesh-elections-win.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/13/technology/ftc-chair-bias-apple-news.html
 **Nebraska football thoughts: Bill Moos' book revelations, an early start to spring and more**\
 `Moos, the former Nebraska AD, revealed he wanted to hire Chip Kelly and Dana Altman as football and men's basketball coach, respectively.`\
 https://nytimes.com/athletic/7043214/2026/02/13/nebraska-football-bill-moos-matt-rhule-spring/
-
-**World No. 1 and No. 2 Aryna Sabalenka and Iga Świątek withdraw from Dubai WTA 1000 tournament**\
-`The world No. 1 and world No. 2 will both be missing from the tournament in the United Arab Emirates which begins Feb. 15.`\
-https://nytimes.com/athletic/7044598/2026/02/13/aryna-sabalenka-iga-swiatek-dubai-tennis-championships-withdraw-out/
-
-**As Diplomats Talk, Pentagon Prepares for Possible War With Iran**\
-`President Trump threatened to strike Iran, but the military has needed time to build up its forces in the region.`\
-https://nytimes.com/2026/02/13/us/politics/trump-iran-pentagon.html
-
-**As USA and Denmark meet on Olympic ice amid political tension, don't expect fans to boo**\
-`The uneasy relations between Denmark and the United States will manifest in, of all places, a hockey game on Saturday night.`\
-https://nytimes.com/athletic/7044698/2026/02/13/usa-hockey-denmark-olympics-greenland-tension/
-
-**Dubai Ports Boss Resigns Amid Fallout From Epstein Files**\
-`Sultan Ahmed bin Sulayem was credited with turning the state-backed DP World into a global logistics powerhouse. He was recently identified in correspondence with Jeffrey Epstein.`\
-https://nytimes.com/2026/02/13/world/middleeast/epstein-dp-world-ports-ahmed-bin-sulayem.html
 

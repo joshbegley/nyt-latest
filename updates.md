@@ -1,3 +1,15 @@
+**Tarique Rahman Set to be New Prime Minister of Bangladesh**\
+`The Bangladesh National Party, led by Tarique Rahman, won the first elections in the country since a student-led movement toppled the government in 2024.`\
+https://nytimes.com/video/world/asia/100000010710802/tarique-rahman-bangladesh-elections-win.html
+
+**British Court Rules Ban on Palestine Action Is Unlawful**\
+`Supporters of Palestine Action celebrated in front of the High Court on Friday after it ruled that a government ban on the pro-Palestine group was unlawful.`\
+https://nytimes.com/video/world/europe/100000010710813/uk-palestine-action-ban-high-court.html
+
+**NFL wins grievance to halt NFLPA's public release of team report cards**\
+`An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
+https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
+
 **NFL wins grievance to halt NFLPA's annual team report cards**\
 `An arbitrator ruled that the annual report cards were disparaging toward clubs and individuals.`\
 https://nytimes.com/athletic/7044869/2026/02/13/nfl-wins-grievance-halt-nflpa-team-report-cards/
