@@ -1,3 +1,7 @@
+**International Order ‘No Longer Exists,’ Germany’s Merz Says**\
+`Chancellor Friedrich Merz of Germany told the Munich Security Conference that the rules-based international order had collapsed as President Trump rapidly reorients American foreign policy.`\
+https://nytimes.com/video/world/europe/100000010711319/germany-us-munich-world-order.html
+
 **The Bad Bunny Super Bowl merchandise that's been in big demand**\
 `So much Bad Bunny Super Bowl merchandise has hit the market this week you'd think he won the game. `\
 https://nytimes.com/athletic/7044690/2026/02/13/bad-bunny-super-bowl-adidas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044605/2026/02/13/stefon-diggs-assault-allegations
 **Handsome at Any Cost**\
 `Braden Peters, known as Clavicular, has emerged as a beacon for a group of narcissistic, status-obsessed young men. He wants to take his fixation with “looksmaxxing” mainstream.`\
 https://nytimes.com/2026/02/13/style/clavicular-looksmaxxing-braden-peters.html
-
-**In ‘Neighbors,’ the Golden Rule Is ‘Get Off My Lawn’**\
-`An HBO docuseries explores neighborly drama in a well-armed and hyper-online America. In an interview, the directors considered what it all means.`\
-https://nytimes.com/2026/02/13/arts/television/neighbors-hbo.html
 
