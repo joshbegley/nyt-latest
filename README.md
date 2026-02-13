@@ -10,7 +10,7 @@ https://nytimes.com/video/us/100000010709797/stonewall-flag-protest-nyc.html
 `This word has appeared in 276 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/13/learning/word-of-the-day-rife.html
 
-**Barcelona have never looked so lost under Hansi Flick. Should we be worried?**\
+**Barcelona have never looked so lost under Hansi Flick. Should fans be worried?**\
 `The weaknesses of Hansi Flick's high-risk attacking style were ruthlessly exposed by Atletico Madrid in a 4-0 defeat on Thursday night`\
 https://nytimes.com/athletic/7043114/2026/02/13/barcelona-atletico-copa-result-high-line-flick/
 
