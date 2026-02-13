@@ -1,3 +1,7 @@
+**See How Gaon Choi Dethroned Chloe Kim in Women’s Halfpipe**\
+`Choi came back after a hard fall during her first run, landing back-to-back 900s and ending Kim’s hopes of a third gold medal.`\
+https://nytimes.com/interactive/2026/02/12/sports/chloe-kim-gaon-choi-snowboarding-halfpipe-olympics.html
+
 **5 Takeaways From Trump’s Immigration Crackdown in Minnesota**\
 `Some 3,000 agents took part in the federal operation that started late last year around the Twin Cities. On Thursday, officials said the surge would wind down.`\
 https://nytimes.com/2026/02/12/us/minnesota-trump-crackdown-immigration-takeaways.html
