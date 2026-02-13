@@ -1,3 +1,7 @@
+**Carter Bryant learned basketball in silence. Now, his game is getting louder**\
+`In an interview, the Spurs' rookie and dunk contest participant explained how growing up in the deaf community made him a better player.`\
+https://nytimes.com/athletic/7043788/2026/02/13/carter-bryant-spurs-deaf-dunk-contest/
+
 **Restaurant Review: Babbo**\
 `This week, Ligaya Mishan, a chief restaurant critic for the New York Times reviews Babbo in Manhattan. Many of the old favorites are back at this hot spot once scorched by scandal, but with smart updates by the chef Mark Ladner.`\
 https://nytimes.com/video/dining/100000010711216/restaurant-review-babbo.html

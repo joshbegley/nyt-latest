@@ -1,3 +1,7 @@
+**Carter Bryant learned basketball in silence. Now, his game is getting louder**\
+`In an interview, the Spurs' rookie and dunk contest participant explained how growing up in the deaf community made him a better player.`\
+https://nytimes.com/athletic/7043788/2026/02/13/carter-bryant-spurs-deaf-dunk-contest/
+
 **Restaurant Review: Babbo**\
 `This week, Ligaya Mishan, a chief restaurant critic for the New York Times reviews Babbo in Manhattan. Many of the old favorites are back at this hot spot once scorched by scandal, but with smart updates by the chef Mark Ladner.`\
 https://nytimes.com/video/dining/100000010711216/restaurant-review-babbo.html
@@ -13,8 +17,4 @@ https://nytimes.com/video/dining/100000010711226/creamy-tortellini-soup.html
 **Little Gem Salad With Crispy Halloumi**\
 `Meet halloumi crumbs, a best-of-all-worlds garnish for salads, pastas and more. They’re crisp like toasted breadcrumbs, salty like Parmesan and still maintain some of halloumi’s signature chew.`\
 https://nytimes.com/video/dining/100000010711230/little-gem-salad-with-crispy-halloumi.html
-
-**Vodka Sauce Tomato Soup**\
-`This soup relies on a layering of flavor from roasting both fresh and canned tomatoes, which each have different levels of sweetness, acidity and tomato-to-water concentrations. Then, a sort of vodka sauce approach enters the picture and contributes bisque-adjacent richness and spice.`\
-https://nytimes.com/video/dining/100000010711234/vodka-sauce-tomato-soup.html
 
