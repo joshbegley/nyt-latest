@@ -1,3 +1,7 @@
+**Barcelona have never looked so lost under Hansi Flick. Should we be worried?**\
+`The weaknesses of Hansi Flick's high-risk attacking style were ruthlessly exposed by Atletico Madrid in a 4-0 defeat on Thursday night`\
+https://nytimes.com/athletic/7043114/2026/02/13/barcelona-atletico-copa-result-high-line-flick/
+
 **‘The Daily Show’ Gives President Trump Yet Another Inaugural Award**\
 `Jordan Klepper congratulated the president, the sole nominee for “the Inaugural Award for Winning the Most Inaugural Awards.”`\
 https://nytimes.com/2026/02/13/arts/television/the-daily-show-trump-inaugural-award.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7040431/2026/02/13/milan-cortina-winter-olympics-wh
 **Arne Slot says Liverpool's opponents always change tactics. Is he right – and does it matter?**\
 `The Dutch coach has regularly suggested he has been surprised by rival sides, but why is it even an issue?`\
 https://nytimes.com/athletic/7041357/2026/02/13/arne-slot-liverpool-opponents-tactics/
-
-**Arsenal got 'Arsenaled'. Brentford deliver Arteta's side their own dose of set-piece hell**\
-`Brentford made Arsenal pay from a long throw which meant two dropped points in the Premier League title race`\
-https://nytimes.com/athletic/7043392/2026/02/13/arsenal-brentford-kayode-throw-set-pieces/
 
