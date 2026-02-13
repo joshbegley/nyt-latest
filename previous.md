@@ -1,3 +1,7 @@
+**The NBA should be embarrassed by fining Utah Jazz and move to finally fix tanking**\
+`The NBA can fine teams for tanking, but it can't avoid the bigger problems the league has created to incentivize losing. `\
+https://nytimes.com/athletic/7043905/2026/02/13/nba-tanking-fines-utah-jazz-adam-silver/
+
 **Blue Jays drawn to Jesús Sánchez’s power potential in trade with Astros**\
 `Sánchez hasn’t flashed the 40-homer upside of sidelined Anthony Santander but the Jays think he's a better option against righties for now.`\
 https://nytimes.com/athletic/7044552/2026/02/13/blue-jays-jesus-sanchez-trade-analysis/
@@ -29,12 +33,4 @@ https://nytimes.com/2026/02/13/us/politics/trump-minneapolis-ice-republicans.htm
 **San Francisco Teachers End Strike After 4 Days**\
 `Public schools are expected to reopen on Wednesday for 50,000 students in the city. Teachers demanded higher wages and health care benefits.`\
 https://nytimes.com/2026/02/13/us/san-francisco-school-strike-end.html
-
-**Astros 'not done' after re-acquiring Joey Loperfido in trade of Jesús Sánchez to Jays**\
-`The Astros have been trying to trade Isaac Paredes and Christian Walker.`\
-https://nytimes.com/athletic/7044471/2026/02/13/astros-trade-joey-loperfido-blue-jays-jesus-sanchez/
-
-**The Bounce: Will USA vs. USA vs. the World work?**\
-`The Bounce is The Athletic's free NBA newsletter.`\
-https://nytimes.com/athletic/7044480/2026/02/13/nba-all-star-game-format-the-bounce/
 

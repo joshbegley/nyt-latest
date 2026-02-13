@@ -1,3 +1,7 @@
+**The NBA should be embarrassed by fining Utah Jazz and move to finally fix tanking**\
+`The NBA can fine teams for tanking, but it can't avoid the bigger problems the league has created to incentivize losing. `\
+https://nytimes.com/athletic/7043905/2026/02/13/nba-tanking-fines-utah-jazz-adam-silver/
+
 **Blue Jays drawn to Jesús Sánchez’s power potential in trade with Astros**\
 `Sánchez hasn’t flashed the 40-homer upside of sidelined Anthony Santander but the Jays think he's a better option against righties for now.`\
 https://nytimes.com/athletic/7044552/2026/02/13/blue-jays-jesus-sanchez-trade-analysis/
