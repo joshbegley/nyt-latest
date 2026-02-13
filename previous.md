@@ -1,3 +1,23 @@
+**Tips Flood In, Prompted by Video of Suspect in Guthrie Kidnapping**\
+`Law enforcement agencies have fielded thousands of phone calls as they seek a pivotal break in the case. Nancy Guthrie, mother of a “Today” show host, disappeared Feb. 1.`\
+https://nytimes.com/2026/02/13/us/phone-tips-guthrie-kidnapping.html
+
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/13/us/nancy-guthrie-case-updates
+
+**Here’s the latest.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference/heres-the-latest
+
+**Live Updates: Munich Security Conference Begins Amid Trans-Atlantic Turmoil**\
+`Some are hoping for a reprieve of President Trump’s blunt-force diplomacy. Others fear new disdain and recriminations.`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference
+
+**When Pakistan and India Play Cricket, It’s Never Just a Game**\
+`The cricket-mad South Asian neighbors have a bitter history, punctuated by violence and wars. It makes this one of the fiercest, and most financially lucrative, rivalries in sports.`\
+https://nytimes.com/2026/02/13/world/asia/india-pakistan-boycott-cricket-world-cup.html
+
 **NASCAR 2026 season expert predictions: Driver of the Year and more superlatives**\
 `Consistent excellence will trump brief hot streaks as the reliable way to win a Cup title.`\
 https://nytimes.com/athletic/7043499/2026/02/13/nascar-cup-series-chase-2026-season-predictions/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7043218/2026/02/13/james-harden-jaden-ivey-nba-tren
 **Ilia Malinin, figure skating's 'Quad God,' has an NHL connection — through skate laces**\
 `Malinin got a gift from NHL star Alex Ovechkin before he left for the Olympics.`\
 https://nytimes.com/athletic/7039204/2026/02/13/olympics-skating-hockey-malinin-ovechkin-laces/
-
-**The Keith Tkachuk School of Hard Knocks: Inside the Quinn Hughes-Brady Tkachuk friendship**\
-`Before they were NHLers and Olympians, Quinn Hughes and Brady Tkachuk were teenage roommates who soon became inseparable.`\
-https://nytimes.com/athletic/7040071/2026/02/13/olympics-mens-hockey-usa-quinn-hughes-brady-tkachuk/
-
-**How the Jets' new-look coaching staff stacks up under Aaron Glenn**\
-`There was significant turnover after Glenn's first season with the Jets.`\
-https://nytimes.com/athletic/7043429/2026/02/13/new-york-jets-aaron-glenn-new-coaching-staff/
-
-**Before the Super Bowl, Seahawks kicker Jason Myers was so calm he felt nervous. Here's why**\
-`“Dude,” Myers told his teammate, “I feel kind of nervous because I feel so calm right now.” What he experienced was the power of routine.`\
-https://nytimes.com/athletic/7041544/2026/02/13/seahawks-jason-myers-super-bowl-routine/
-
-**She's married to Marie-Philip Poulin. But Laura Stacey has emerged as a star of her own for Canada**\
-`She was a fourth-liner at the last Olympics and nearly hung up her skates. Now Stacey is playing on Canada's top line in Milan.`\
-https://nytimes.com/athletic/7029029/2026/02/13/laura-stacey-olympics-womens-hockey-canada-marie-philip-poulin/
-
-**Colts NFL mock draft: Getting younger, faster on defense is the priority**\
-`The Colts don't own a first-round pick because of the Sauce Gardner trade. We start this mock draft by moving down two spots in Round 2.`\
-https://nytimes.com/athletic/7042962/2026/02/13/colts-2026-mock-draft-r-mason-thomas/
 

@@ -1,3 +1,23 @@
+**Tips Flood In, Prompted by Video of Suspect in Guthrie Kidnapping**\
+`Law enforcement agencies have fielded thousands of phone calls as they seek a pivotal break in the case. Nancy Guthrie, mother of a “Today” show host, disappeared Feb. 1.`\
+https://nytimes.com/2026/02/13/us/phone-tips-guthrie-kidnapping.html
+
+**Latest Updates: The Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/13/us/nancy-guthrie-case-updates
+
+**Here’s the latest.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference/heres-the-latest
+
+**Live Updates: Munich Security Conference Begins Amid Trans-Atlantic Turmoil**\
+`Some are hoping for a reprieve of President Trump’s blunt-force diplomacy. Others fear new disdain and recriminations.`\
+https://nytimes.com/live/2026/02/13/world/munich-security-conference
+
+**When Pakistan and India Play Cricket, It’s Never Just a Game**\
+`The cricket-mad South Asian neighbors have a bitter history, punctuated by violence and wars. It makes this one of the fiercest, and most financially lucrative, rivalries in sports.`\
+https://nytimes.com/2026/02/13/world/asia/india-pakistan-boycott-cricket-world-cup.html
+
 **NASCAR 2026 season expert predictions: Driver of the Year and more superlatives**\
 `Consistent excellence will trump brief hot streaks as the reliable way to win a Cup title.`\
 https://nytimes.com/athletic/7043499/2026/02/13/nascar-cup-series-chase-2026-season-predictions/
