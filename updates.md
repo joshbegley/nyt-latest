@@ -1,3 +1,23 @@
+**The New York Times in Print for Friday, Feb. 13, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/13/todays-new-york-times
+
+**Even Suspected ISIS Members Deserve Justice**\
+`The U.S. is sending thousands of men accused of belonging to the Islamic State from Syria to Iraq, where they face potential mistreatment.`\
+https://nytimes.com/2026/02/13/opinion/syria-iraq-isis-syrian-democratic-forces-us.html
+
+**It Is Decision Time for NATO**\
+`The U.S. and Europe can save the trans-Atlantic alliance. They probably won’t.`\
+https://nytimes.com/2026/02/13/opinion/nato-munich-conference.html
+
+**Anthony Alfredo disqualified from Daytona 500 after car fails inspection**\
+`"I was on top of the world, and now it feels like I'm at the bottom of it," a gutted Alfredo told The Athletic after learning of the news.`\
+https://nytimes.com/athletic/7043776/2026/02/13/anthony-alfredo-daytona-500-car-inspection-fail/
+
+**LeBron James, at 41, becomes oldest NBA player to record a triple-double**\
+`James broke a record previously held by Karl Malone, who was 40 years and 127 days old when he had a triple-double for the Lakers in 2003.`\
+https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
+
 **LeBron James, at 41, becomes oldest NBA player to record a triple double**\
 `James, 41, set a record previously owned by Karl Malone, who was 40 years and 127 days old when he posted a triple double. `\
 https://nytimes.com/athletic/7043831/2026/02/13/lebron-james-triple-double-lakers-oldest-nba/
