@@ -1,3 +1,7 @@
+**How to watch Ohio vs. Miami (OH) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio Bobcats play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7045301/2026/02/13/ohio-vs-miami-oh-stream-how-to-watch-feb-13/
+
 **How to watch Michigan State vs. Wisconsin men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7045299/2026/02/13/michigan-state-vs-wisconsin-stream-how-to-watch-feb-13/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7045212/2026/02/13/olympic-games-t-shirt-controvers
 **Department of Homeland Security Faces an Impending Shutdown**\
 `Though funding for the department is set to run out early Saturday, officials said its essential functions would continue.`\
 https://nytimes.com/2026/02/13/us/politics/department-of-homeland-security-faces-an-impending-shutdown.html
-
-**Phillies ready to move on without Nick Castellanos, but there's no escaping sunken salary**\
-`This is the harsh reality: The Phillies will devote $30 million to right field between Castellanos and his replacement, Adolis García.`\
-https://nytimes.com/athletic/7045195/2026/02/13/nick-castellanos-phillies-reaction-salary/
 
