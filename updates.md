@@ -1,3 +1,11 @@
+**Domen Prevc, ski jumping star, delivers a signature Olympic moment and eyes history**\
+`After his second gold of these Games, Prevc has a shot to tie Matti Nykänen's record of three in a single Olympics.`\
+https://nytimes.com/athletic/7046889/2026/02/14/olympics-domen-prevc-ski-jumping-large-hill-gold/
+
+**Not promised anything, Nathaniel Lowe will compete for job with Reds**\
+`If the veteran first baseman makes the roster, Lowe could provide Cincinnati with another, much-needed left-handed bat.`\
+https://nytimes.com/athletic/7046833/2026/02/14/not-promised-anything-nathaniel-lowe-to-compete-for-a-job-with-the-reds/
+
 **Not promised anything, Nathaniel Lowe to compete for a job with the Reds**\
 `If the veteran first baseman makes the roster, Lowe could provide Cincinnati with another, much-needed left-handed bat.`\
 https://nytimes.com/athletic/7046833/2026/02/14/not-promised-anything-nathaniel-lowe-to-compete-for-a-job-with-the-reds/

@@ -1,4 +1,8 @@
-**Not promised anything, Nathaniel Lowe to compete for a job with the Reds**\
+**Domen Prevc, ski jumping star, delivers a signature Olympic moment and eyes history**\
+`After his second gold of these Games, Prevc has a shot to tie Matti Nykänen's record of three in a single Olympics.`\
+https://nytimes.com/athletic/7046889/2026/02/14/olympics-domen-prevc-ski-jumping-large-hill-gold/
+
+**Not promised anything, Nathaniel Lowe will compete for job with Reds**\
 `If the veteran first baseman makes the roster, Lowe could provide Cincinnati with another, much-needed left-handed bat.`\
 https://nytimes.com/athletic/7046833/2026/02/14/not-promised-anything-nathaniel-lowe-to-compete-for-a-job-with-the-reds/
 
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/14/us/king-leatherbury-trainer-and-trader-of-horses-
 **How to watch Auburn vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046888/2026/02/14/auburn-vs-arkansas-stream-how-to-watch-feb-14/
-
-**How to watch South Carolina vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7046885/2026/02/14/south-carolina-vs-lsu-stream-how-to-watch-feb-14/
 
