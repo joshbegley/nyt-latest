@@ -1,3 +1,11 @@
+**Watford's Edoardo Bove makes first appearance since on-pitch cardiac arrest**\
+`Bove, 23, collapsed while playing for Fiorentina against Inter Milan, leading the Serie A game to be abandoned.`\
+https://nytimes.com/athletic/7047000/2026/02/14/edoardo-bove-watford-cardiac-arrest/
+
+**Ring Ends Deal to Link Neighborhood Cameras After Super Bowl Ad Backlash**\
+`A commercial about a lost dog being reunited with his family ignited concerns that a “Search Party” feature posed privacy risks. Ring parted ways with the tech company Flock Safety.`\
+https://nytimes.com/2026/02/14/business/amazon-ring-flock-partnership-super-bowl.html
+
 **Lindsey Vonn has another surgery after Olympic crash, says she's returning to U.S.**\
 `Vonn posted the latest update Saturday night, saying "thankfully I will be able to finally go" home after nearly a week in the hospital.`\
 https://nytimes.com/athletic/7046955/2026/02/14/lindsey-vonn-fourth-leg-surgery-olympics-crash-downhill/
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7046899/2026/02/14/kansas-basketball-darryn-peterso
 **Eileen Gu crashes in second run but progresses to women's freeski big air final**\
 `Gu recovers from a second-run fall to qualify in second place for Monday's women's freeski big air final. `\
 https://nytimes.com/athletic/7046793/2026/02/14/eileen-gu-womens-freeski-big-air-qualification-2026-winter-olympics/
-
-**Domen Prevc, ski jumping star, delivers a signature Olympic moment and eyes history**\
-`After his second gold of these Games, Prevc has a shot to tie Matti Nykänen's record of three in a single Olympics.`\
-https://nytimes.com/athletic/7046889/2026/02/14/olympics-domen-prevc-ski-jumping-large-hill-gold/
-
-**Not promised anything, Nathaniel Lowe will compete for job with Reds**\
-`If the veteran first baseman makes the roster, Lowe could provide Cincinnati with another, much-needed left-handed bat.`\
-https://nytimes.com/athletic/7046833/2026/02/14/not-promised-anything-nathaniel-lowe-to-compete-for-a-job-with-the-reds/
 
