@@ -1,3 +1,7 @@
+**Hard foul in St. John's-Providence leads to melee, 6 players ejected**\
+`That contact rose above the level of a common foul and set off a hotly contested skirmish under the St. John’s basket.`\
+https://nytimes.com/athletic/7046832/2026/02/14/providence-st-johns-fight-bryce-hopkins/
+
 **The Briefing: Aston Villa 1 Newcastle 3 - Tonali steps up with double - but where was VAR?**\
 `Newcastle United staged a brilliant comeback to beat Aston Villa in the FA Cup fourth round. Here are the key talking points...`\
 https://nytimes.com/athletic/7039143/2026/02/14/aston-villa-1-newcastle-3-tonali-var-fa-cup/

@@ -1,3 +1,11 @@
+**How to watch South Carolina vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046885/2026/02/14/south-carolina-vs-lsu-stream-how-to-watch-feb-14/
+
+**How to watch Gonzaga vs. Santa Clara men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the Santa Clara Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046883/2026/02/14/gonzaga-vs-santa-clara-stream-how-to-watch-feb-14/
+
 **Hard foul in St. John's-Providence leads to melee, 6 players ejected**\
 `That contact rose above the level of a common foul and set off a hotly contested skirmish under the St. John’s basket.`\
 https://nytimes.com/athletic/7046832/2026/02/14/providence-st-johns-fight-bryce-hopkins/
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7046797/2026/02/14/ilia-malinin-olympic-fall-games-
 **Once the Americans Warned of the Russian Threat. Now, It’s the Europeans’ Turn.**\
 `In Munich, European leaders were also talking about “de-risking” from the United States, citing President Trump’s unpredictability.`\
 https://nytimes.com/2026/02/14/world/europe/europe-munich-rubio-russia.html
-
-**The Briefing: Aston Villa 1 Newcastle 3 - Tonali steps up with double - but where was VAR?**\
-`Newcastle United staged a brilliant comeback to beat Aston Villa in the FA Cup fourth round. Here are the key talking points...`\
-https://nytimes.com/athletic/7039143/2026/02/14/aston-villa-1-newcastle-3-tonali-var-fa-cup/
-
-**Ronaldo scores on return to Al Nassr side after two-game absence**\
-`Ronaldo, 41, has sat out Al-Nassr's wins over Al Riyadh and Al Ittihad following the end of the transfer window.`\
-https://nytimes.com/athletic/7046781/2026/02/14/cristiano-ronaldo-al-nassr-goal/
 
