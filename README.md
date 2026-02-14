@@ -1,3 +1,7 @@
+**Pam Bondi’s ‘Cage Match’ and Trump’s Fraying Coalition**\
+`The round table reflects on a chaotic week of incompetence and meltdowns.`\
+https://nytimes.com/video/opinion/100000010709864/pam-bondis-cage-match-and-trumps-fraying-coalition.html
+
 **Marco Rubio Calls a World Without Borders a ‘Foolish Idea’**\
 `Speaking at the Munich Security Conference, Secretary of State Marco Rubio denounced the idea of a united, global citizenship but also said the United States and Europe “belong together” as a civilization.`\
 https://nytimes.com/video/world/europe/100000010713230/marco-rubio-munich-borders-citizenship.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046220/2026/02/14/uconn-vs-marquette-stream-how-to
 **How to watch Texas A&M vs. Vanderbilt men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046218/2026/02/14/texas-a-m-vs-vanderbilt-stream-how-to-watch-feb-14/
-
-**How to watch Kansas vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7046216/2026/02/14/kansas-vs-iowa-state-stream-how-to-watch-feb-14/
 
