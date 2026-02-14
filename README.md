@@ -1,3 +1,7 @@
+**Jamelle Bouie on Pam Bondi’s Meltdown**\
+`On “The Opinions,” the columnist Jamelle Bouie says he thinks Pam Bondi’s combative testimony made her look like a “raving lunatic” — a reaction that Democrats were able to evoke for political gain.`\
+https://nytimes.com/video/opinion/100000010710004/jamelle-bouie-on-pam-bondis-meltdown.html
+
 **Jury Deadlocked in Trial of Pro-Palestinian Demonstrators at Stanford**\
 `A judge declared a mistrial after a jury could not reach a verdict in a case in which five current and former students were charged with felonies.`\
 https://nytimes.com/2026/02/13/us/stanford-students-protests-trial.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7045721/2026/02/13/mlb-umpires-ball-strike-calls-fe
 **Judge Orders ICE to Let Clergy Give Communion to Detained Migrants on Ash Wednesday**\
 `A Catholic nonprofit and several clergy said immigration authorities had unlawfully blocked its members for months from providing pastoral care at an ICE facility in Broadview, Ill.`\
 https://nytimes.com/2026/02/13/us/politics/ice-detention-catholics-ash-wednesday.html
-
-**Florida Couple Arrested After Pickleball Match Turns Into a Brawl**\
-`The couple, who were banned for life from a country club in Port Orange, Fla., face felony battery charges after the fight, which involved 20 people, the authorities said.`\
-https://nytimes.com/2026/02/13/us/pickleball-brawl-florida-arrests.html
 
