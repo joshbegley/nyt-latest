@@ -1,3 +1,7 @@
+**Wasserman Will Sell Powerhouse L.A. Agency Amid Epstein Fallout**\
+`Casey Wasserman, a Los Angeles entertainment executive and the head of the 2028 Olympic Games, has lost clients since his emails with Ghislaine Maxwell surfaced.`\
+https://nytimes.com/2026/02/13/us/casey-wasserman-agency-epstein.html
+
 **See the Biggest Tricks From the Olympic Halfpipe, in Miniature**\
 `These animations show how the halfpipe competitions again raised the bar for what’s possible on a snowboard.`\
 https://nytimes.com/interactive/2026/02/13/sports/olympics-snowboard-halfpipe-tricks-milan-cortina.html
