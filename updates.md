@@ -1,3 +1,7 @@
+**What's next for World Series hero Yoshinobu Yamamoto? Dodgers are excited**\
+`No Japanese pitcher has ever won a Cy Young Award. Yamamoto hopes to become the first.`\
+https://nytimes.com/athletic/7046923/2026/02/14/yoshinobu-yamamoto-dodgers-spring-training-next/
+
 **Kevin Durant challenges claim that past stars played harder in NBA All-Star Games**\
 `Viewership for the 2025 All-Star Game was reportedly down 13 percent from 2024 at 4.7 million viewers, the second-lowest since 2000.`\
 https://nytimes.com/athletic/7046933/2026/02/14/kevin-durant-all-star-game-effort-luka-jokic-old-games/
