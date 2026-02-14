@@ -1,3 +1,7 @@
+**Questions and answers about Trinidad Chambliss’, Joey Aguilar’s eligibility cases**\
+`Answering your questions about the latest challenges to college football eligibility. `\
+https://nytimes.com/athletic/7045406/2026/02/14/trinidad-chambliss-ole-miss-eligibility-joey-aguilar-tennessee/
+
 **NBA All-Star Saturday watch guide: 3-point, slam dunk contest and Shooting Stars event**\
 `Here's how to tune in for "money ball" treys, perfect-50 dunks and other revelry at All-Star Saturday.`\
 https://nytimes.com/athletic/7042726/2026/02/14/nba-3-point-contest-slam-dunk-how-to-watch/
