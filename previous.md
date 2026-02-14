@@ -1,6 +1,6 @@
 **Rubio stresses shared history and defense goals to Europeans but also warns of ‘civilizational erasure’**\
 `The U.S. secretary of state`\
-https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/rubio-stresses-shared-history-and-defense-goals-to-europeans-but-also-warns-of-civilizational-erasure
+https://nytimes.com/2026/02/14/world/europe/rubio-stresses-shared-history-and-defense-goals-to-europeans-but-also-warns-of-civilizational-erasure.html
 
 **Juraj Slafkovský has resurrected Slovak hockey, but is success sustainable?**\
 `Is Slovak hockey back? Or is this a fluke, a once-in-a-lifetime group of young stars?`\

@@ -1,6 +1,6 @@
-**Rubio stresses shared history and defense goals to Europeans but also warns of ‘civilizational erasure’**\
-`The U.S. secretary of state`\
-https://nytimes.com/2026/02/14/world/europe/rubio-stresses-shared-history-and-defense-goals-to-europeans-but-also-warns-of-civilizational-erasure.html
+**Rubio Stresses Shared History to Europeans but Also Warns of ‘Civilizational Erasure’**\
+`In his speech at the Munich Security Conference, Secretary of State Marco Rubio voiced some far-right ideas, but his diplomatic tone came as a relief to the audience.`\
+https://nytimes.com/2026/02/14/world/europe/rubio-munich-security-conference-speech.html
 
 **Juraj Slafkovský has resurrected Slovak hockey, but is success sustainable?**\
 `Is Slovak hockey back? Or is this a fluke, a once-in-a-lifetime group of young stars?`\
