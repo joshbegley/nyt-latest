@@ -1,3 +1,7 @@
+**The Sea Took Her Prosthetic Leg. Months Later, It Gave It Back.**\
+`Brenda Ogden lost her waterproof prosthetic leg 10 months ago, and with it, her zest for swimming. Then a local fossil hunter stumbled upon it.`\
+https://nytimes.com/2026/02/14/world/europe/sea-prosthetic-leg-limb.html
+
 **Detention Doesn’t Begin to Describe It**\
 `The president’s immigration dragnet is vicious but not surprising.`\
 https://nytimes.com/2026/02/14/opinion/columnists/trump-immigrant-detention.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046462/2026/02/14/slovakia-sweden-olympic-group-ho
 **Mamdani Surprises Couples at the Manhattan Marriage Bureau**\
 `Mayor Zohran Mamdani stopped by City Hall last Thursday, stepping in to officiate weddings and shocking couples as they arrived for their appointments.`\
 https://nytimes.com/2026/02/14/style/mamdani-city-hall-weddings-nyc.html
-
-**Classic Shrimp Scampi, Roast Chicken and Chocolate-Covered Strawberries**\
-`It’s Feb. 14. Let’s do this.`\
-https://nytimes.com/2026/02/14/dining/classic-shrimp-scampi-roast-chicken-and-chocolate-covered-strawberries.html
 
