@@ -1,3 +1,7 @@
+**Wasserman Will Sell Powerhouse L.A. Agency Amid Epstein Fallout**\
+`Casey Wasserman, a Los Angeles entertainment executive and the head of the 2028 Olympic Games, has lost clients since his emails with Ghislaine Maxwell surfaced.`\
+https://nytimes.com/2026/02/13/us/casey-wasserman-agency-epstein.html
+
 **See the Biggest Tricks From the Olympic Halfpipe, in Miniature**\
 `These animations show how the halfpipe competitions again raised the bar for what’s possible on a snowboard.`\
 https://nytimes.com/interactive/2026/02/13/sports/olympics-snowboard-halfpipe-tricks-milan-cortina.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/13/us/politics/dhs-ice-agents-injured.html
 **Baylor's Tyce Armstrong hits three grand slams in 'coolest night of my life'**\
 `Armstrong, batting cleanup, cleared the bases in the third, fourth and seventh innings and finished the game with 12 RBIs.`\
 https://nytimes.com/athletic/7045947/2026/02/13/college-baseball-baylor-3-grand-slams-tyce-armstrong/
-
-**Short Rows**\
-`David Karp’s puzzle is a lovely affair.`\
-https://nytimes.com/2026/02/13/crosswords/daily-puzzle-2026-02-14.html
 
