@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7046797/2026/02/14/ilia-malinin-olympic-fall-games-
 `In Munich, European leaders were also talking about “de-risking” from the United States, citing President Trump’s unpredictability.`\
 https://nytimes.com/2026/02/14/world/europe/europe-munich-rubio-russia.html
 
-**The Briefing: Aston Villa 1 Newcastle 3 - Tonali steps up with double, where was VAR?**\
+**The Briefing: Aston Villa 1 Newcastle 3 - Tonali steps up with double - but where was VAR?**\
 `Newcastle United staged a brilliant comeback to beat Aston Villa in the FA Cup fourth round. Here are the key talking points...`\
 https://nytimes.com/athletic/7039143/2026/02/14/aston-villa-1-newcastle-3-tonali-var-fa-cup/
 
