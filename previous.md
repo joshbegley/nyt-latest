@@ -1,3 +1,7 @@
+**Japan Releases Chinese Boat Captain After Detaining Him for 30 Hours**\
+`The captain’s arrest had raised fears of a broader diplomatic confrontation between Japan and China, which have been at odds for months.`\
+https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
+
 **Here’s the latest.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7041054/2026/02/14/wrexham-ipswich-fa-cup-premier-l
 **Team Vince edges Team Melo in Rising Stars game as VJ Edgecombe captures MVP**\
 `"It feels great, obviously, to win MVP of the Rising Stars," Edgecombe said. "But my next focus is this push after the All-Star break."`\
 https://nytimes.com/athletic/7046036/2026/02/14/nba-all-star-rising-stars-game-2026/
-
-**The New York Times in Print for Saturday, Feb. 14, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/14/todays-new-york-times
 

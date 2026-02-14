@@ -1,3 +1,7 @@
+**Japan Releases Chinese Boat Captain After Detaining Him for 30 Hours**\
+`The captain’s arrest had raised fears of a broader diplomatic confrontation between Japan and China, which have been at odds for months.`\
+https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
+
 **Here’s the latest.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
