@@ -1,3 +1,7 @@
+**New U.S. Boat Strike Kills 3 in the Caribbean**\
+`The attacks since early November had specifically targeted suspected drug smuggling boats in the Pacific Ocean.`\
+https://nytimes.com/2026/02/14/us/politics/boat-strike-kills-3.html
+
 **Chewy Cookies and Bowl Scrapers Forever**\
 `Sue Li takes the Bake Time questionnaire.`\
 https://nytimes.com/2026/02/14/dining/chewy-cookies-and-bowl-scrapers-forever.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/14/style/the-magic-ring-hanging-from-sasha-calles-ne
 **Padres to sign RHP Griffin Canning: Sources**\
 `The 29-year-old is coming off a solid season with the New York Mets that was ended by an Achilles injury in June.`\
 https://nytimes.com/athletic/7046372/2026/02/14/griffin-canning-padres-signing/
-
-**After split with Phillies, Nick Castellanos nears deal with Padres: Sources**\
-`Castellanos, who turns 34 next month, is expected to see time at first base, outfield and designated hitter with the Padres.`\
-https://nytimes.com/athletic/7046059/2026/02/14/nick-castellanos-padres-signing-phillies/
 
