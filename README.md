@@ -1,3 +1,7 @@
+**Classic Shrimp Scampi, Roast Chicken and Chocolate-Covered Strawberries**\
+`It’s Feb. 14. Let’s do this.`\
+https://nytimes.com/2026/02/14/dining/classic-shrimp-scampi-roast-chicken-and-chocolate-covered-strawberries.html
+
 **‘Hate Radio’ and Other Transmissions From the Theater of the Real**\
 `Milo Rau’s examination of the infamous broadcast that preceded the Rwandan genocide is onstage now. Two other works, including “The Pelicot Trial,” arrive in March.`\
 https://nytimes.com/2026/02/14/theater/milo-rau-hate-radio-pelicot-trial.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046151/2026/02/14/bay-fc-claire-hutton-emma-coates
 **Casey Wasserman in the eye of a firestorm with his LA28 future in question**\
 `Wasserman continues to face pressure over his ties to Jeffrey Epstein and appears set to sell his agency.`\
 https://nytimes.com/athletic/7046279/2026/02/14/casey-wasserman-la28-olympics-company-agency-sale-future/
-
-**New U.S. Boat Strike Kills 3 in the Caribbean**\
-`The attacks since early November had specifically targeted suspected drug smuggling boats in the Pacific Ocean.`\
-https://nytimes.com/2026/02/14/us/politics/boat-strike-kills-3.html
 
