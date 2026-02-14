@@ -1,3 +1,11 @@
+**Thousands Gather Around the World to Protest Iran’s Government**\
+`Thousands of protesters in several cities across the world took to the streets to demand regime change in Iran on Saturday. The demonstrations came after security forces in Iran violently crushed antigovernment protests in the country, killing thousands of people.`\
+https://nytimes.com/video/world/europe/100000010713585/protests-iran-regime-world-munich.html
+
+**NBA commissioner Adam Silver 'not ready to set a drop-dead date' on union negotiations**\
+`The clock is ticking for the WNBA and its players' union to agree on a contract, and Silver is calling for a "next-level sense of urgency."`\
+https://nytimes.com/athletic/7047115/2026/02/14/adam-silver-wnbpa-cba-all-star-weekend-2026/
+
 **Rosenthal: What's next for D-Backs and Orioles, plus the Boras scoreboard and more notes**\
 `Salvador Perez gave his mother a gift, the Rockies are showing signs of life and the Brewers made an interesting choice for their infield.`\
 https://nytimes.com/athletic/7047128/2026/02/14/diamondbacks-zac-gallen-scott-boras-contracts/
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7047210/2026/02/14/damian-lillard-wins-3-point-cont
 **Oklahoma popcorn machine catches fire, delays basketball game**\
 `No one was injured during the incident that delayed Saturday's game for a few minutes early in the first half.`\
 https://nytimes.com/athletic/7047160/2026/02/14/oklahoma-basketball-game-fire-georgia/
-
-**Lawsuit aims to halt Trump administration's takeover of D.C. golf course**\
-`The DC Preservation League filed a lawsuit aiming to protect East Potomac Golf Links from the Trump administration.`\
-https://nytimes.com/athletic/7046638/2026/02/14/lawsuit-trump-takeover-dc-golf-course/
-
-**Good to the Last Drop**\
-`Michael Lieberman and Rebecca Goldstein’s puzzle looks beyond the horizon.`\
-https://nytimes.com/2026/02/14/crosswords/daily-puzzle-2026-02-15.html
 
