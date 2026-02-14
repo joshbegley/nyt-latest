@@ -1,3 +1,7 @@
+**USA escapes Denmark in men's Olympic hockey but Jeremy Swayman struggles**\
+`The United States defeated Denmark 6-3 on Saturday in a game that was closer than it should have been.`\
+https://nytimes.com/athletic/7046791/2026/02/14/usa-denmark-olympics-mens-hockey/
+
 **Padres, pitcher Germán Márquez agree to one-year deal: Source**\
 `Márquez, who turns 31 this month, offers San Diego another back-end option for its starting rotation.`\
 https://nytimes.com/athletic/7047124/2026/02/14/german-marquez-padres-free-agent-contract-mlb/
