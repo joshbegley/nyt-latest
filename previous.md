@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7045675/2026/02/14/lucas-bergvall-tottenham-transfer-enquiries/
 
 **Karen Carney: Without Paul Green, Chelsea are unrecognisable and face a tough summer**\
-`Alongside Emma Hayes, the club's head of women's football built Chelsea Women as we know it. Without them, the future is unclear.`\
+`Alongside Emma Hayes, the club's head of women's football built Chelsea Women as we know it. Without them, the future is unclear`\
 https://nytimes.com/athletic/7045099/2026/02/14/karen-carney-paul-green-chelsea/
 
 **For Chelsea to succeed this season, Pedro Neto will have a big role to play**\
