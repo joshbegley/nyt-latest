@@ -1,3 +1,7 @@
+**Not promised anything, Nathaniel Lowe to compete for a job with the Reds**\
+`If the veteran first baseman makes the roster, Lowe could provide Cincinnati with another, much-needed left-handed bat.`\
+https://nytimes.com/athletic/7046833/2026/02/14/not-promised-anything-nathaniel-lowe-to-compete-for-a-job-with-the-reds/
+
 **One day later, Canada and Sweden's Olympic curling beef is still simmering**\
 `A day after their on-ice dispute at the Olympics was the talk of the curling world, Canada and Sweden weren't entirely ready to move on.`\
 https://nytimes.com/athletic/7046505/2026/02/14/winter-olympics-2026-curling-canada-sweden-controversy-cheating/
