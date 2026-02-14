@@ -1,3 +1,7 @@
+**Hard foul in St. John's-Providence leads to melee, 6 players ejected**\
+`That contact rose above the level of a common foul and set off a hotly contested skirmish under the St. John’s basket.`\
+https://nytimes.com/athletic/7046832/2026/02/14/providence-st-johns-fight-bryce-hopkins/
+
 **Games Briefing: Malinin’s shocking fall**\
 `Welcome to the Games Briefing, The Athletic's daily Olympics newsletter.`\
 https://nytimes.com/athletic/7046797/2026/02/14/ilia-malinin-olympic-fall-games-briefing/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7039143/2026/02/14/aston-villa-1-newcastle-3-tonali
 **Ronaldo scores on return to Al Nassr side after two-game absence**\
 `Ronaldo, 41, has sat out Al-Nassr's wins over Al Riyadh and Al Ittihad following the end of the transfer window.`\
 https://nytimes.com/athletic/7046781/2026/02/14/cristiano-ronaldo-al-nassr-goal/
-
-**An Olympics of Firsts: Brazil and Kazakhstan Claim Surprise Golds**\
-`A Brazilian skier secured South America’s maiden medal at a Winter Games the day after a Kazakh figure skater won his nation’s first gold in 32 years.`\
-https://nytimes.com/2026/02/14/world/olympics/brazil-kazakhstan-gold-medals-winter-olympics.html
 
