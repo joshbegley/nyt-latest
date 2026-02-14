@@ -1,3 +1,11 @@
+**18 Days, 20 Lives: New Yorkers Who Didn’t Survive the Cold**\
+`Freezing days and nights claimed the lives of a grandmother, a dancer, a dispatcher and a man who lived among a colony of feral cats.`\
+https://nytimes.com/interactive/2026/02/13/nyregion/nyc-winter-snow-storm-cold-deaths.html
+
+**Zac Gallen agrees to re-sign with Diamondbacks on 1-year, $22.025 million deal: Source**\
+`Gallen rejected the qualifying offer in November. He can reenter the open market next winter without a qualifying offer attached.`\
+https://nytimes.com/athletic/6815101/2026/02/13/mlb-zac-gallen-free-agency-signing-diamondbacks/
+
 **Former NFL linebacker Darron Lee denied bond in first-degree murder case**\
 `Lee also faces a charge of tampering with or fabricating evidence, and a hearing is scheduled for March 9.`\
 https://nytimes.com/athletic/7039994/2026/02/13/darron-lee-jets-murder-trial-bond-nfl/
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7045852/2026/02/13/parker-kingston-byu-expelled-rap
 **Kings star Zach LaVine to undergo season-ending hand surgery: Source**\
 `LaVine's injury is a blow for the Kings as he leads the team with 19.2 points per game. Sacramento is last in the Western Conference.`\
 https://nytimes.com/athletic/7045809/2026/02/13/zach-lavine-kings-hand-surgery-injury-season/
-
-**Mets owner Steve Cohen calls Edwin Díaz's decision to join Dodgers 'perplexing'**\
-`Cohen also discussed losing several longtime Mets players to free agency, and the team's pivot from Kyle Tucker to Bo Bichette.`\
-https://nytimes.com/athletic/7045704/2026/02/13/mets-owner-steve-cohen-edwin-diazs-dodgers-free-agency-perplexing/
-
-**Trump Files Final Plans for White House Ballroom**\
-`The president is seeking quick approval despite legal challenges and backlash over his demolition of the East Wing.`\
-https://nytimes.com/2026/02/13/us/politics/trump-files-final-plans-for-white-house-ballroom.html
 
