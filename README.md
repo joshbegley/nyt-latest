@@ -1,3 +1,7 @@
+**Spurs rebuffed Bergvall transfer enquiries over winter window**\
+`The north London club could face a battle to keep the 20-year-old this summer after Chelsea and Aston Villa made contact over his situation.`\
+https://nytimes.com/athletic/7045675/2026/02/14/lucas-bergvall-tottenham-transfer-enquiries/
+
 **Karen Carney: Without Paul Green, Chelsea are unrecognisable and face a tough summer**\
 `Alongside Emma Hayes, the club's head of women's football built Chelsea Women as we know it. Without them, the future is unclear.`\
 https://nytimes.com/athletic/7045099/2026/02/14/karen-carney-paul-green-chelsea/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046128/2026/02/14/newcastle-bruno-guimaraes-injury
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/14/crosswords/spelling-bee-forum.html
-
-**Japan Releases Chinese Boat Captain After Detaining Him for 30 Hours**\
-`The captain’s arrest had raised fears of a broader diplomatic confrontation between Japan and China, which have been at odds for months.`\
-https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
 
