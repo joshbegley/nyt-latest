@@ -1,3 +1,7 @@
+**King Leatherbury, Trainer and Trader of Horses, Dies at 92**\
+`He trained mostly lesser-known, cheaper thoroughbreds in Maryland and was the fifth-winningest trainer in North American history.`\
+https://nytimes.com/2026/02/14/us/king-leatherbury-trainer-and-trader-of-horses-dies-at-92.html
+
 **How to watch Auburn vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046888/2026/02/14/auburn-vs-arkansas-stream-how-to-watch-feb-14/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046883/2026/02/14/gonzaga-vs-santa-clara-stream-ho
 **Hard foul in St. John's-Providence leads to melee, 6 players ejected**\
 `That contact rose above the level of a common foul and set off a hotly contested skirmish under the St. John’s basket.`\
 https://nytimes.com/athletic/7046832/2026/02/14/providence-st-johns-fight-bryce-hopkins/
-
-**Games Briefing: Malinin’s shocking fall**\
-`Welcome to the Games Briefing, The Athletic's daily Olympics newsletter.`\
-https://nytimes.com/athletic/7046797/2026/02/14/ilia-malinin-olympic-fall-games-briefing/
 
