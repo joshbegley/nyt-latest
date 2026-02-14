@@ -1,3 +1,7 @@
+**MLB umpires can request real-time feedback on ball-strike calls during 2026 season**\
+`The automated ball-strike (ABS) challenge system will also allow umpires to flag a specific pitch to see if they got the call correct. `\
+https://nytimes.com/athletic/7045721/2026/02/13/mlb-umpires-ball-strike-calls-feedback-abs/
+
 **Judge Orders ICE to Let Clergy Give Communion to Detained Migrants on Ash Wednesday**\
 `A Catholic nonprofit and several clergy said immigration authorities had unlawfully blocked its members for months from providing pastoral care at an ICE facility in Broadview, Ill.`\
 https://nytimes.com/2026/02/13/us/politics/ice-detention-catholics-ash-wednesday.html
