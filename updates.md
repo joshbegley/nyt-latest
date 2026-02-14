@@ -1,3 +1,11 @@
+**Deadly Poison Detected in Navalny’s Body, Joint Analysis Finds**\
+`Analysis by the governments of Britain, France, Germany, Sweden and the Netherlands revealed the presence of a toxin found in the poison dart frog, a species native to South America.`\
+https://nytimes.com/2026/02/14/world/europe/russia-navalny-poison.html
+
+**Latest Updates: Authorities Investigate Street Near Nancy Guthrie's Home**\
+``\
+https://nytimes.com/live/2026/02/14/us/nancy-guthrie-case-updates
+
 **Zelensky rules out holding elections until there is a cease-fire with Russia.**\
 `By Kim Barker`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/zelensky-rules-out-holding-elections-until-there-is-a-cease-fire-with-russia
