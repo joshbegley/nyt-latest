@@ -1,3 +1,7 @@
+**For Chelsea to succeed this season, Pedro Neto will have a big role to play**\
+`Pedro Neto has come under more criticism from supporters than most - but has a key role to play for Chelsea in this campaign`\
+https://nytimes.com/athletic/7046003/2026/02/14/chelsea-pedro-neto-facup-hull/
+
 **Guimaraes expected to be out 6-10 weeks with hamstring injury**\
 `The Brazil international is set to miss at least eight fixtures across all competitions, including the Tyne-Wear derby against Sunderland.`\
 https://nytimes.com/athletic/7046128/2026/02/14/newcastle-bruno-guimaraes-injury-how-long/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
 **Here’s the latest.**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
-
-**Live Updates: Rubio Emphasizes Shared History With Europe at Munich Security Conference**\
-`Secretary of State Marco Rubio echoed the Trump administration’s talking points on the threat of Western decline but also seemed to strike a constructive tone.`\
-https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
 
