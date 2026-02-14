@@ -1,5 +1,5 @@
 **Jordan Stolz wins gold in men's 500-meter speedskating with another Olympic record**\
-`MILAN — When the United States badly needed a Winter Olympic hero, speedskater Jordan Stolz delivered.`\
+`Stolz used a push at the end to take his second gold medal of the Milan Cortina Games.`\
 https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-500-meter-speedskating-with-another-olympic-record/
 
 **The Sea Took Her Prosthetic Leg. Months Later, It Gave It Back.**\

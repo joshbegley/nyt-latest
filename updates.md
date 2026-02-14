@@ -1,3 +1,7 @@
+**Jordan Stolz wins gold in men's 500-meter speedskating with another Olympic record**\
+`MILAN — When the United States badly needed a Winter Olympic hero, speedskater Jordan Stolz delivered.`\
+https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-500-meter-speedskating-with-another-olympic-record/
+
 **The Sea Took Her Prosthetic Leg. Months Later, It Gave It Back.**\
 `Brenda Ogden lost her waterproof prosthetic leg 10 months ago, and with it, her zest for swimming. Then a local fossil hunter stumbled upon it.`\
 https://nytimes.com/2026/02/14/world/europe/sea-prosthetic-leg-limb.html
