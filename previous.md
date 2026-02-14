@@ -1,3 +1,7 @@
+**Guimaraes expected to be out 6-10 weeks with hamstring injury**\
+`The Brazil international is set to miss at least eight fixtures across all competitions, including the Tyne-Wear derby against Sunderland.`\
+https://nytimes.com/athletic/7046128/2026/02/14/newcastle-bruno-guimaraes-injury-how-long/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/14/crosswords/spelling-bee-forum.html
@@ -10,11 +14,7 @@ https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
 `By Jim Tankersley`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
 
-**Live Updates: Marco Rubio Addresses Munich Security Conference**\
-`European leaders were hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
+**Live Updates: Rubio Emphasizes Shared History With Europe at Munich Security Conference**\
+`Secretary of State Marco Rubio echoed the Trump administration’s talking points on the threat of Western decline but also seemed to strike a constructive tone.`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
-
-**'Greedy' Wrexham hoping for a Premier League club at home in the FA Cup fifth round**\
-`The Welsh club will also play Ipswich Town again in the league next week with both sides hoping for promotion to the Premier League`\
-https://nytimes.com/athletic/7041054/2026/02/14/wrexham-ipswich-fa-cup-premier-league/
 

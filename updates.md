@@ -1,3 +1,11 @@
+**Guimaraes expected to be out 6-10 weeks with hamstring injury**\
+`The Brazil international is set to miss at least eight fixtures across all competitions, including the Tyne-Wear derby against Sunderland.`\
+https://nytimes.com/athletic/7046128/2026/02/14/newcastle-bruno-guimaraes-injury-how-long/
+
+**Live Updates: Rubio Emphasizes Shared History With Europe at Munich Security Conference**\
+`Secretary of State Marco Rubio echoed the Trump administration’s talking points on the threat of Western decline but also seemed to strike a constructive tone.`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
+
 **Live Updates: Marco Rubio Addresses Munich Security Conference**\
 `European leaders were hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
