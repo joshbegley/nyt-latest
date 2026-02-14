@@ -1,20 +1,20 @@
-**Quote of the Day: 30 Grand Romantic Gestures to Sweep You Off Your Feet**\
-`Quotation of the Day for February, 14, 2026.`\
-https://nytimes.com/2026/02/13/pageoneplus/quote-of-the-day-30-grand-romantic-gestures-to-sweep-you-off-your-feet.html
+**The Peace Activist Who Was Caught Plotting a Coup**\
+`Peter Biar Ajak, a democracy advocate, was convicted of conspiring to buy and export weapons for a revolt in South Sudan.`\
+https://nytimes.com/2026/02/14/world/africa/south-sudan-peace-activist-coup-plot.html
 
-**Wasserman Will Sell Powerhouse L.A. Agency Amid Epstein Fallout**\
-`Casey Wasserman, a Los Angeles entertainment executive and the head of the 2028 Olympic Games, has lost clients since his emails with Ghislaine Maxwell surfaced.`\
-https://nytimes.com/2026/02/13/us/casey-wasserman-agency-epstein.html
+**New Research Absolves the Woman Blamed for a Dynasty’s Ruin**\
+`A Chinese king’s infatuation with a woman was seen as the reason that a golden age collapsed. Evidence suggests climate change and internal strife played bigger roles.`\
+https://nytimes.com/2026/02/14/world/asia/china-zhou-dynasty-king-climate-change.html
 
-**See the Biggest Tricks From the Olympic Halfpipe, in Miniature**\
-`These animations show how the halfpipe competitions again raised the bar for what’s possible on a snowboard.`\
-https://nytimes.com/interactive/2026/02/13/sports/olympics-snowboard-halfpipe-tricks-milan-cortina.html
+**Connections: Sports Edition Coach: Hints and answers for Feb. 14, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7045911/2026/02/14/connections-sports-edition-hints-answers-feb-14-2026/
 
-**Canadian curler curses out Swedish opponent after cheating accusations at Olympics**\
-`The Canadian men's team beat the U.S. earlier in the day, with the victory against Sweden putting its record at 3-0.`\
-https://nytimes.com/athletic/7045743/2026/02/13/curling-canada-sweden-marc-kennedy-cheating/
+**How China Built a Chip Industry, and Why It’s Still Not Enough**\
+`More than a decade into Beijing’s push for self sufficiency, Chinese firms are producing fewer, lower-performing chips than their foreign competitors.`\
+https://nytimes.com/2026/02/14/business/china-chips-nvidia-huawei.html
 
-**Three Federal Officers Injured in Los Angeles Protests, D.H.S. Says**\
-`One Immigration and Customs Enforcement officer was injured after being hit in the head with a rock, and two Federal Protective Services officers were also injured, the department said.`\
-https://nytimes.com/2026/02/13/us/politics/dhs-ice-agents-injured.html
+**Corrections: Feb. 14, 2026**\
+`Corrections that appeared in print on Saturday, Feb. 14, 2026.`\
+https://nytimes.com/2026/02/14/pageoneplus/corrections-feb-14-2026.html
 
