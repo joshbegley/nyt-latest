@@ -1,3 +1,7 @@
+**David J. Farber, ‘Grandfather of the Internet,’ Dies at 91**\
+`A researcher, professor and federal policy adviser, he guided students who went on to do groundbreaking work in connecting the world online.`\
+https://nytimes.com/2026/02/14/technology/david-farber-dead.html
+
 **Three relievers looking to bounce back as the Cubs look for their next surprise**\
 `As the Cubs continue to build their reputation as a good spot for pitchers, it only helps their case as they search for their next one.`\
 https://nytimes.com/athletic/7045862/2026/02/14/three-relievers-cubs-bounce-back/
