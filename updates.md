@@ -1,3 +1,15 @@
+**The Briefing: Man City 2 Salford 0 - Why Guardiola's side struggled to seal fifth-round berth**\
+`Sam Lee breaks down the key talking points as Manchester City beat Salford City in the FA Cup fourth round.`\
+https://nytimes.com/athletic/7039096/2026/02/14/man-city-2-salford-0-fa-cup-fourth-round-result/
+
+**Jordan Stolz wins gold in men's 500-meter speedskating with another Olympic record**\
+`Stolz used a push at the end to take his second gold medal of the Milan Cortina Games.`\
+https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-500-meter-speedskating-with-another-olympic-record/
+
+**Investigators focus overnight on car and residence near Nancy Guthrie’s home.**\
+`It wasn’t fully`\
+https://nytimes.com/live/2026/02/14/us/nancy-guthrie-case-updates/investigators-focus-overnight-on-car-and-residence-near-nancy-guthries-home
+
 **Jordan Stolz wins gold in men's 500-meter speedskating with another Olympic record**\
 `MILAN — When the United States badly needed a Winter Olympic hero, speedskater Jordan Stolz delivered.`\
 https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-500-meter-speedskating-with-another-olympic-record/
