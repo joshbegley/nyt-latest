@@ -1,3 +1,7 @@
+**Eileen Gu crashes in second run but progresses to women's freeski big air final**\
+`Gu recovers from a second-run fall to qualify in second place for Monday's women's freeski big air final. `\
+https://nytimes.com/athletic/7046793/2026/02/14/eileen-gu-womens-freeski-big-air-qualification-2026-winter-olympics/
+
 **Domen Prevc, ski jumping star, delivers a signature Olympic moment and eyes history**\
 `After his second gold of these Games, Prevc has a shot to tie Matti Nykänen's record of three in a single Olympics.`\
 https://nytimes.com/athletic/7046889/2026/02/14/olympics-domen-prevc-ski-jumping-large-hill-gold/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046505/2026/02/14/winter-olympics-2026-curling-can
 **King Leatherbury, Trainer and Trader of Horses, Dies at 92**\
 `He trained mostly lesser-known, cheaper thoroughbreds in Maryland and was the fifth-winningest trainer in North American history.`\
 https://nytimes.com/2026/02/14/us/king-leatherbury-trainer-and-trader-of-horses-dies-at-92.html
-
-**How to watch Auburn vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7046888/2026/02/14/auburn-vs-arkansas-stream-how-to-watch-feb-14/
 
