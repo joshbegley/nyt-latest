@@ -1,3 +1,7 @@
+**Canadian curler curses out Swedish opponent after cheating accusations at Olympics**\
+`The Canadian men's team beat the U.S. earlier in the day, with the victory against Sweden putting its record at 3-0.`\
+https://nytimes.com/athletic/7045743/2026/02/13/curling-canada-sweden-marc-kennedy-cheating/
+
 **Canadian curler curses out Swedish opponent after cheating accusations**\
 `The Canadian men's team beat the U.S. earlier in the day, with the victory against Sweden putting its record at 3-0.`\
 https://nytimes.com/athletic/7045743/2026/02/13/curling-canada-sweden-marc-kennedy-cheating/
