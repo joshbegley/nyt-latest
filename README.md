@@ -6,8 +6,8 @@ https://nytimes.com/athletic/7046523/2026/02/14/mikaela-shiffrin-winter-olympics
 `Sweden will now have to play a do-or-die game in the qualification playoffs on Tuesday in order to reach the semifinals on Wednesday.`\
 https://nytimes.com/athletic/7046460/2026/02/14/sweden-olympics-mens-hockey-tie-breaker-finland-slovakia/
 
-**Canada advances to women’s Olympic hockey semifinals as Marie-Philip Poulin returns**\
-`Team Canada beat Germany 5-1 in the quarterfinals of the Olympic women’s hockey tournament.`\
+**Canada advances to women’s Olympic hockey semifinals as Marie-Philip Poulin makes history**\
+`Poulin tied Hockey Hall of Fame forward Hayley Wickenheiser for most goals at an Olympics in women's hockey history.`\
 https://nytimes.com/athletic/7046633/2026/02/14/canada-olympic-hockey-semifinals-marie-philip-poulin/
 
 **How ICE Is Pushing Tech Companies to Identify Protesters**\
