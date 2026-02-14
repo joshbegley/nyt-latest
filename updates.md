@@ -1,3 +1,11 @@
+**Northern Iowa announces death of freshman football player**\
+`It is unclear how Parker Sutherland died, and the university declined to release details. `\
+https://nytimes.com/athletic/7046564/2026/02/14/northern-iowa-football-player-dies-parker-sutherland/
+
+**ElRoy Face, Ace Forkballer and Effective Closer for Pirates, Dies at 97**\
+`Face was one of the first major-league hurlers to make the closer job a specialty. Not an overpowering pitcher, he finagled outs with a tricky forkball.`\
+https://nytimes.com/2026/02/14/us/roy-face-dead.html
+
 **NBPA elects David Kelly as union's next executive director**\
 `Kelly will succeed former NBA player Andre Iguodala, who plans on stepping down from the role at the end of his term in July.`\
 https://nytimes.com/athletic/7046464/2026/02/14/nba-players-association-executive-director/
