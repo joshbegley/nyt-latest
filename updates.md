@@ -1,3 +1,7 @@
+**Marco Rubio Calls a World Without Borders a ‘Foolish Idea’**\
+`Speaking at the Munich Security Conference, Secretary of State Marco Rubio denounced the idea of a united, global citizenship but also said the United States and Europe “belong together” as a civilization.`\
+https://nytimes.com/video/world/europe/100000010713230/marco-rubio-munich-borders-citizenship.html
+
 **Open Road**\
 `On Valentine’s Day, consider the ways in which we’re sticking to established paths — and the places where we yearn to deviate.`\
 https://nytimes.com/2026/02/14/briefing/open-road.html
