@@ -1,20 +1,20 @@
-**Thousands Rally for Iran Regime Change in Cities Around the World**\
-`Demonstrators opposed to the Iranian government gathered near the Munich Security Conference and in other European cities. Another round of U.S.-Iran talks are expected to happen on Tuesday.`\
-https://nytimes.com/2026/02/14/world/europe/iran-regime-rallies-munich.html
+**How to watch Texas Tech vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046585/2026/02/14/texas-tech-vs-arizona-stream-how-to-watch-feb-14/
 
-**At the Winter Olympics, Covering the Piste and Big Parma**\
-`What are a food reporter, the Miami bureau chief and a presidential photographer doing at the Games?`\
-https://nytimes.com/2026/02/14/insider/at-the-winter-olympics-covering-the-piste-and-big-parma.html
+**How to watch Georgetown vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046583/2026/02/14/georgetown-vs-uconn-stream-how-to-watch-feb-14/
 
-**The Briefing: Man City 2 Salford 0 - Why Guardiola's side struggled to seal fifth-round berth**\
-`Sam Lee breaks down the key talking points as Manchester City beat Salford City in the FA Cup fourth round.`\
-https://nytimes.com/athletic/7039096/2026/02/14/man-city-2-salford-0-fa-cup-fourth-round-result/
+**How to watch Virginia vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046581/2026/02/14/virginia-vs-ohio-state-stream-how-to-watch-feb-14/
 
-**Jordan Stolz wins gold in men's 500-meter speedskating with another Olympic record**\
-`Stolz used a push at the end to take his second gold medal of the Milan Cortina Games.`\
-https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-500-meter-speedskating-with-another-olympic-record/
+**Pakistan Accused of Denying Treatment for Imran Khan’s Failing Eyesight**\
+`The lawyer for the former prime minister claimed he had lost 85 percent of the vision in his right eye because of delayed treatment in prison.`\
+https://nytimes.com/2026/02/14/world/asia/pakistan-imran-khan-eyesight.html
 
-**The Sea Took Her Prosthetic Leg. Months Later, It Gave It Back.**\
-`Brenda Ogden lost her waterproof prosthetic leg 10 months ago, and with it, her zest for swimming. Then a local fossil hunter stumbled upon it.`\
-https://nytimes.com/2026/02/14/world/europe/sea-prosthetic-leg-limb.html
+**NASCAR moves up Daytona 500 start time due to expected rain**\
+`This marks the second year in a row NASCAR and Daytona International Speedway have had to adjust the race's start time.`\
+https://nytimes.com/athletic/7046534/2026/02/14/daytona-500-2026-start-time-change/
 

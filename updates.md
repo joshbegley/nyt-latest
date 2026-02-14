@@ -1,3 +1,7 @@
+**Thousands Rally for Iran Regime Change in Cities Around the World**\
+`Demonstrators opposed to the Iranian government gathered near the Munich Security Conference and in other European cities. Another round of U.S.-Iran talks are expected to happen on Tuesday.`\
+https://nytimes.com/2026/02/14/world/europe/iran-regime-rallies-munich.html
+
 **At the Winter Olympics, Covering the Piste and Big Parma**\
 `What are a food reporter, the Miami bureau chief and a presidential photographer doing at the Games?`\
 https://nytimes.com/2026/02/14/insider/at-the-winter-olympics-covering-the-piste-and-big-parma.html
