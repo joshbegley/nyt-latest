@@ -1,3 +1,7 @@
+**One day later, Canada and Sweden's Olympic curling beef is still simmering**\
+`A day after their on-ice dispute at the Olympics was the talk of the curling world, Canada and Sweden weren't entirely ready to move on.`\
+https://nytimes.com/athletic/7046505/2026/02/14/winter-olympics-2026-curling-canada-sweden-controversy-cheating/
+
 **King Leatherbury, Trainer and Trader of Horses, Dies at 92**\
 `He trained mostly lesser-known, cheaper thoroughbreds in Maryland and was the fifth-winningest trainer in North American history.`\
 https://nytimes.com/2026/02/14/us/king-leatherbury-trainer-and-trader-of-horses-dies-at-92.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046885/2026/02/14/south-carolina-vs-lsu-stream-how
 **How to watch Gonzaga vs. Santa Clara men's basketball: Time, TV, streaming**\
 `Find out how to watch the Gonzaga Bulldogs play the Santa Clara Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046883/2026/02/14/gonzaga-vs-santa-clara-stream-how-to-watch-feb-14/
-
-**Hard foul in St. John's-Providence leads to melee, 6 players ejected**\
-`That contact rose above the level of a common foul and set off a hotly contested skirmish under the St. John’s basket.`\
-https://nytimes.com/athletic/7046832/2026/02/14/providence-st-johns-fight-bryce-hopkins/
 
