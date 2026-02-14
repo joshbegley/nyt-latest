@@ -1,3 +1,7 @@
+**Eileen Gu says her Olympic schedule is ‘really unfair’ and 'doesn't make sense'**\
+`Two-time Olympic champion Gu is competing in all three freeski events at Milan Cortina. `\
+https://nytimes.com/athletic/7047102/2026/02/14/eileen-gu-olympic-schedule-unfair/
+
 **No miracle, but feisty Denmark gives U.S. a test.**\
 `The Americans trailed Denmark after one period, but fought back to cruise to a 6-3 victory.`\
 https://nytimes.com/2026/02/14/world/no-miracle-but-fedenmark-gives-us-a-test.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047124/2026/02/14/german-marquez-padres-free-agent
 **Dodgers closer Edwin Díaz ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
 `Díaz is ready to embrace his new Dodgers team as well as a leadership role for Puerto Rico in the upcoming World Baseball Classic. `\
 https://nytimes.com/athletic/7046804/2026/02/14/edwin-diaz-dodgers-world-baseball-classic-puerto-rico/
-
-**What's next for World Series hero Yoshinobu Yamamoto? Dodgers are excited**\
-`No Japanese pitcher has ever won a Cy Young Award. Yamamoto hopes to become the first.`\
-https://nytimes.com/athletic/7046923/2026/02/14/yoshinobu-yamamoto-dodgers-spring-training-next/
 

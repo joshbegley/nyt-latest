@@ -1,3 +1,7 @@
+**No miracle, but feisty Denmark gives U.S. a test.**\
+`The Americans trailed Denmark after one period, but fought back to cruise to a 6-3 victory.`\
+https://nytimes.com/2026/02/14/world/no-miracle-but-fedenmark-gives-us-a-test.html
+
 **USA escapes Denmark in men's Olympic hockey but Jeremy Swayman struggles**\
 `The United States defeated Denmark 6-3 on Saturday in a game that was closer than it should have been.`\
 https://nytimes.com/athletic/7046791/2026/02/14/usa-denmark-olympics-mens-hockey/
