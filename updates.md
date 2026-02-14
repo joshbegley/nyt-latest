@@ -1,3 +1,7 @@
+**After a bad night for U.S. figure skating, here's Max Naumov, looking to tomorrow**\
+`Ilia Malinin's stumble will be obsessed over for a long time. But U.S. Figure Skating doesn't have to look far for a bright spot in Naumov.`\
+https://nytimes.com/athletic/7045749/2026/02/13/maxim-naumov-winter-olympics-us-figure-skating-ilia-malinin/
+
 **How Ilia Malinin's night to forget at the Olympics unfolded**\
 `Malinin started off clean in Friday's free skate, but the errors soon piled up in a stunning defeat at the Olympics.`\
 https://nytimes.com/athletic/7045661/2026/02/13/ilia-malinin-winter-olympics-free-skate-falls/

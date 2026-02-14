@@ -1,3 +1,7 @@
+**Man Shot by N.Y.P.D. Charged With Attempted Assault as Mamdani Objects**\
+`Police have said that Jabez Chakraborty wielded a knife as they responded to a 911 call. His family has disputed parts of the account, insisting their son was not a threat and needed help.`\
+https://nytimes.com/2026/02/13/nyregion/chakraborty-nypd-shooting-mental-health.html
+
 **After a bad night for U.S. figure skating, here's Max Naumov, looking to tomorrow**\
 `Ilia Malinin's stumble will be obsessed over for a long time. But U.S. Figure Skating doesn't have to look far for a bright spot in Naumov.`\
 https://nytimes.com/athletic/7045749/2026/02/13/maxim-naumov-winter-olympics-us-figure-skating-ilia-malinin/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/13/us/after-a-misstep-sheriff-says-persistence-will-
 **Consultants Offered Epstein Access to Top N.Y. Democrats if He Donated**\
 `Dynamic SRG repeatedly, and apparently unsuccessfully, asked the sex offender Jeffrey Epstein to donate to House races, Justice Department records show.`\
 https://nytimes.com/2026/02/13/nyregion/epstein-donations-democrats-hochul-jeffries.html
-
-**2026 Olympics, Day 7 recap: ‘Quad God’ proves mortal, U.S. and Canada cruise in hockey**\
-`Norwegian cross-country skier joins gold medal royalty, and an outcome in Ukrainian's quest to honor compatriots with a special helmet.`\
-https://nytimes.com/athletic/7045754/2026/02/13/olympics-quad-god-malinin-us-canada-hockey/
 
