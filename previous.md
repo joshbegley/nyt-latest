@@ -1,20 +1,20 @@
+**How ICE Is Pushing Tech Companies to Identify Protesters**\
+`The DHS is flooding social media companies with administrative subpoenas to identify accounts that are protesting ICE. Social media companies have pushed back but are largely complying. Our tech reporter, Sheera Frenkel, explains.`\
+https://nytimes.com/video/business/100000010709300/how-ice-is-pushing-tech-companies-to-identify-protesters.html
+
+**When Hot Pot Meets Potluck**\
+`To mark Lunar New Year and the publication of Natasha Pickowicz’s latest cookbook, guests brought the fixings, and she and Sue Chan supplied the broth.`\
+https://nytimes.com/2026/02/14/t-magazine/natasha-pickowicz-hot-pot.html
+
+**Burton Albion 0-1 West Ham: A banner in the sky, Potts' strange red card and another Summerville goal**\
+`The Athletic analyses West Ham's FA Cup fourth round victory at Burton Albion `\
+https://nytimes.com/athletic/7046542/2026/02/14/burton-west-ham-fa-cup-protest-potts-summerville/
+
+**Masataka Yoshida says time with Red Sox hasn't been what he expected**\
+`There isn't a clear role for Yoshida, who has two years remaining on his five-year, $90 million contract.`\
+https://nytimes.com/athletic/7046612/2026/02/14/masataka-yoshida-red-sox-trade-rumors/
+
 **Neighbor Recalls Investigators Searching Home Next Door in Guthrie Disappearance**\
 `David Curl, a retired lawyer, said the woman who lived there was distraught and did not know why investigators were focusing on her home.`\
 https://nytimes.com/2026/02/14/us/nancy-guthrie-case-search-warrant.html
-
-**Northern Iowa announces death of freshman football player**\
-`It is unclear how Parker Sutherland died, and the university declined to release details. `\
-https://nytimes.com/athletic/7046564/2026/02/14/northern-iowa-football-player-dies-parker-sutherland/
-
-**ElRoy Face, Ace Forkballer and Effective Closer for Pirates, Dies at 97**\
-`Face was one of the first major-league hurlers to make the closer job a specialty. Not an overpowering pitcher, he finagled outs with a tricky forkball.`\
-https://nytimes.com/2026/02/14/us/elroy-face-dead.html
-
-**NBPA elects David Kelly as union's next executive director**\
-`Kelly will succeed former NBA player Andre Iguodala, who plans on stepping down from the role at the end of his term in July.`\
-https://nytimes.com/athletic/7046464/2026/02/14/nba-players-association-executive-director/
-
-**Why the U.S., Canada or Sweden could be eliminated early from Olympic men's hockey**\
-`It's now highly likely that two of the best three teams in the event will face one another in a do-or-die quarterfinal next week.`\
-https://nytimes.com/athletic/7046409/2026/02/14/mens-hockey-olympics-early-elimination/
 
