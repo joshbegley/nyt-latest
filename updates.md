@@ -1,3 +1,11 @@
+**Rosenthal: What's next for D-Backs and Orioles, plus the Boras scoreboard and more notes**\
+`Salvador Perez gave his mother a gift, the Rockies are showing signs of life and the Brewers made an interesting choice for their infield.`\
+https://nytimes.com/athletic/7047128/2026/02/14/diamondbacks-zac-gallen-scott-boras-contracts/
+
+**Damian Lillard edges Devin Booker, wins 3-point contest while still rehabbing torn Achilles**\
+`The Blazers superstar won the event for the third time, triumphing despite not fully recovering from last season's torn Achilles.`\
+https://nytimes.com/athletic/7047210/2026/02/14/damian-lillard-wins-3-point-contest-all-star-weekend/
+
 **Damian Lillard edges out Devin Booker, wins 3-point contest while still rehabbing torn Achilles**\
 `The Blazers' superstar won the event for the third time, triumphing despite not fully recovering from last season's torn Achilles.`\
 https://nytimes.com/athletic/7047210/2026/02/14/damian-lillard-wins-3-point-contest-all-star-weekend/
