@@ -1,3 +1,7 @@
+**Bay FC is ready for its next chapter with a young squad, new head coach and plenty to prove**\
+`The team signed USWNT midfielder Claire Hutton for $1.1 million and is rebuilding with a young English coach leading the way.`\
+https://nytimes.com/athletic/7046151/2026/02/14/bay-fc-claire-hutton-emma-coates-next-chapter/
+
 **Casey Wasserman in the eye of a firestorm with his LA28 future in question**\
 `Wasserman continues to face pressure over his ties to Jeffrey Epstein and appears set to sell his agency.`\
 https://nytimes.com/athletic/7046279/2026/02/14/casey-wasserman-la28-olympics-company-agency-sale-future/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/14/dining/chewy-cookies-and-bowl-scrapers-forever.ht
 **Roy Medvedev, Soviet Era Historian and Dissident, Is Dead at 100**\
 `His score of books and hundreds of essays documented Stalinist executions, Communist repressions and censorship, and the transition to post-Soviet Russia.`\
 https://nytimes.com/2026/02/14/world/europe/roy-medvedev-dead.html
-
-**The Magic Ring Hanging From Sasha Calle’s Neck**\
-`The actress from Netflix’s “The Rip” doesn’t allow anyone else to touch the ring, one of the rules that keep its magic alive.`\
-https://nytimes.com/2026/02/14/style/the-magic-ring-hanging-from-sasha-calles-neck.html
 
