@@ -1,3 +1,7 @@
+**Kings star Zach LaVine to undergo season-ending hand surgery: Source**\
+`LaVine's injury is a blow for the Kings as he leads the team with 19.2 points per game. Sacramento is last in the Western Conference.`\
+https://nytimes.com/athletic/7045809/2026/02/13/zach-lavine-kings-hand-surgery-injury-season/
+
 **Mets owner Steve Cohen calls Edwin Díaz's decision to join Dodgers 'perplexing'**\
 `Cohen also discussed losing several longtime Mets players to free agency, and the team's pivot from Kyle Tucker to Bo Bichette.`\
 https://nytimes.com/athletic/7045704/2026/02/13/mets-owner-steve-cohen-edwin-diazs-dodgers-free-agency-perplexing/
