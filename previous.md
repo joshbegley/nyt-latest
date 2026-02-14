@@ -1,3 +1,7 @@
+**Dodgers closer Edwin Díaz ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
+`Díaz is ready to embrace his new Dodgers team as well as a leadership role for Puerto Rico in the upcoming World Baseball Classic. `\
+https://nytimes.com/athletic/7046804/2026/02/14/edwin-diaz-dodgers-world-baseball-classic-puerto-rico/
+
 **What's next for World Series hero Yoshinobu Yamamoto? Dodgers are excited**\
 `No Japanese pitcher has ever won a Cy Young Award. Yamamoto hopes to become the first.`\
 https://nytimes.com/athletic/7046923/2026/02/14/yoshinobu-yamamoto-dodgers-spring-training-next/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046866/2026/02/14/red-sox-willson-contreras-first-
 **Navalny Killed By Frog Toxin, European Governments Say**\
 `Aleksei Navalny was most likely poisoned by a toxin found in a South American frog, five European countries said on Saturday, making the most concrete Western accusation yet that Russia’s leading opposition figure was murdered by his government in 2024.`\
 https://nytimes.com/video/world/europe/100000010713683/russia-navalny-poison.html
-
-**The Briefing: Liverpool 3 Brighton 0 - Szoboszlai with goal of the weekend? Is Slot targeting FA Cup this season?**\
-`Analysis of Liverpool's victory against Brighton in the FA Cup fourth round `\
-https://nytimes.com/athletic/7039153/2026/02/14/liverpool-brighton-fa-cup-analysis/
 
