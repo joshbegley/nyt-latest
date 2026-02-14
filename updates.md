@@ -1,3 +1,7 @@
+**What a Speech Reveals About Trump’s Plans for Nuclear Weapons**\
+`A top arms diplomat at the State Department recently laid out what might come next as Washington upends decades of federal policies on nuclear proliferation.`\
+https://nytimes.com/interactive/2026/02/14/science/trump-nuclear-bomb-testing-speech.html
+
 **ICE Tried to Justify a Minneapolis Shooting. Its Story Unraveled.**\
 `The collapse of the Trump administration’s version of events in the case was only the most recent instance in which officials gave an account of a shooting that was later contradicted.`\
 https://nytimes.com/2026/02/14/us/julio-sosa-celis-ice-minneapolis-shooting.html
