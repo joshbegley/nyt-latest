@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
+
+**Live Updates: Marco Rubio to Address Munich Security Conference**\
+`European leaders are hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
+
 **'Greedy' Wrexham hoping for a Premier League club at home in the FA Cup fifth round**\
 `The Welsh club will also play Ipswich Town again in the league next week with both sides hoping for promotion to the Premier League`\
 https://nytimes.com/athletic/7041054/2026/02/14/wrexham-ipswich-fa-cup-premier-league/
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7046036/2026/02/14/nba-all-star-rising-stars-game-2
 **The New York Times in Print for Saturday, Feb. 14, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/14/todays-new-york-times
-
-**The 2.15.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/02/14/the-21526-issue
-
-**What to watch on Day 8 at Winter Olympics: Skiing galore, women's hockey**\
-`Women's hockey quarterfinals and skiing of various types are among the marquee events on Day 8.`\
-https://nytimes.com/athletic/7043407/2026/02/14/milan-cortina-olympics-skiing-womens-hockey-what-to-watch-day-8/
 

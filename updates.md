@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
+
+**Live Updates: Marco Rubio to Address Munich Security Conference**\
+`European leaders are hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
+
 **'Greedy' Wrexham hoping for a Premier League club at home in the FA Cup fifth round**\
 `The Welsh club will also play Ipswich Town again in the league next week with both sides hoping for promotion to the Premier League`\
 https://nytimes.com/athletic/7041054/2026/02/14/wrexham-ipswich-fa-cup-premier-league/
