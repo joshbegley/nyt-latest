@@ -1,3 +1,7 @@
+**Live Updates: Marco Rubio Addresses Munich Security Conference**\
+`European leaders were hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/14/crosswords/spelling-bee-forum.html

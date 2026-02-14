@@ -10,8 +10,8 @@ https://nytimes.com/2026/02/14/world/asia/japan-china-boat-captain-release.html
 `By Jim Tankersley`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/munich-conference-europe-trump-day-two
 
-**Live Updates: Marco Rubio to Address Munich Security Conference**\
-`European leaders are hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
+**Live Updates: Marco Rubio Addresses Munich Security Conference**\
+`European leaders were hoping for a relatively friendly speech from the secretary of state, whom they largely praise as a constructive partner on security issues.`\
 https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio
 
 **'Greedy' Wrexham hoping for a Premier League club at home in the FA Cup fifth round**\
