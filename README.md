@@ -1,3 +1,7 @@
+**USA escapes Denmark in men's Olympic hockey but Jeremy Swayman struggles**\
+`The United States defeated Denmark 6-3 on Saturday in a game that was closer than it should have been.`\
+https://nytimes.com/athletic/7046791/2026/02/14/usa-denmark-olympics-mens-hockey/
+
 **Padres, pitcher Germán Márquez agree to one-year deal: Source**\
 `Márquez, who turns 31 this month, offers San Diego another back-end option for its starting rotation.`\
 https://nytimes.com/athletic/7047124/2026/02/14/german-marquez-padres-free-agent-contract-mlb/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046923/2026/02/14/yoshinobu-yamamoto-dodgers-sprin
 **Kevin Durant challenges claim that past stars played harder in NBA All-Star Games**\
 `Viewership for the 2025 All-Star Game was reportedly down 13 percent from 2024 at 4.7 million viewers, the second-lowest since 2000.`\
 https://nytimes.com/athletic/7046933/2026/02/14/kevin-durant-all-star-game-effort-luka-jokic-old-games/
-
-**Willson Contreras could give Red Sox's porous defense a boost**\
-`Contreras credits one of the best defensive shortstops ever for helping him make the transition from catcher to first base.`\
-https://nytimes.com/athletic/7046866/2026/02/14/red-sox-willson-contreras-first-base-defense-ozzie-smith/
 
