@@ -1,20 +1,20 @@
-**Deadly Poison Detected in Navalny’s Body, Joint Analysis Finds**\
-`Analysis by the governments of Britain, France, Germany, Sweden and the Netherlands revealed the presence of a toxin found in the poison dart frog, a species native to South America.`\
-https://nytimes.com/2026/02/14/world/europe/russia-navalny-poison.html
+**How to watch Kentucky vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046352/2026/02/14/kentucky-vs-florida-stream-how-to-watch-feb-14/
 
-**Latest Updates: Authorities Investigate Street Near Nancy Guthrie's Home**\
-``\
-https://nytimes.com/live/2026/02/14/us/nancy-guthrie-case-updates
+**How to watch Louisville vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046350/2026/02/14/louisville-vs-baylor-stream-how-to-watch-feb-14/
 
-**Zelensky rules out holding elections until there is a cease-fire with Russia.**\
-`By Kim Barker`\
-https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/zelensky-rules-out-holding-elections-until-there-is-a-cease-fire-with-russia
+**How to watch Purdue vs. Iowa men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046348/2026/02/14/purdue-vs-iowa-stream-how-to-watch-feb-14/
 
-**Charlie McAvoy's Olympic diary: On the Quad God, a Latvian apology and my family**\
-`McAvoy sees what happened to Ilia Malinin as a wake-up call for Team USA. "We know we have to bring our best every single day," he said.`\
-https://nytimes.com/athletic/7046293/2026/02/14/charlie-mcavoy-olympic-diary-sandis-vilmanis/
+**How to watch Texas Tech vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046344/2026/02/14/texas-tech-vs-oklahoma-state-stream-how-to-watch-feb-14/
 
-**Lucas Pinheiro Braathen makes history with gold for Brazil in the men's giant slalom**\
-`Braathen's gold for Brazil is the country's first medal at a Winter Olympics. `\
-https://nytimes.com/athletic/7046275/2026/02/14/lucas-pinheiro-braathen-mens-giant-slalom/
+**What Would Carolyn Bessette Kennedy Have Thought of the New Calvin Klein?**\
+`As Ryan Murphy’s “Love Story” premieres, so does the Calvin Klein show. They don’t have the same style.`\
+https://nytimes.com/2026/02/14/style/calvin-klein-carolyn-bessette-kennedy-love-story.html
 
