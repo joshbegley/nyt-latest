@@ -1,20 +1,20 @@
-**The Peace Activist Who Was Caught Plotting a Coup**\
-`Peter Biar Ajak, a democracy advocate, was convicted of conspiring to buy and export weapons for a revolt in South Sudan.`\
-https://nytimes.com/2026/02/14/world/africa/south-sudan-peace-activist-coup-plot.html
+**Inside Roberto De Zerbi's wild ride at Marseille – TV bust-ups, European highs and a 2.35am exit**\
+`The Italian's tumultuous reign contained big highs and crushing lows before ending on a sour note this week`\
+https://nytimes.com/athletic/7044950/2026/02/14/roberto-de-zerbi-marseille-reign-inside-story/
 
-**New Research Absolves the Woman Blamed for a Dynasty’s Ruin**\
-`A Chinese king’s infatuation with a woman was seen as the reason that a golden age collapsed. Evidence suggests climate change and internal strife played bigger roles.`\
-https://nytimes.com/2026/02/14/world/asia/china-zhou-dynasty-king-climate-change.html
+**Appointing Igor Tudor is the biggest decision Spurs hierarchy will make – it has to pay off**\
+`There is no margin for error here. Five points off the relegation zone, Spurs are effectively walking on a tightrope without a safety net`\
+https://nytimes.com/athletic/7037676/2026/02/14/igor-tudor-tottenham-appointment/
 
-**Connections: Sports Edition Coach: Hints and answers for Feb. 14, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7045911/2026/02/14/connections-sports-edition-hints-answers-feb-14-2026/
+**Luke Matheson is not your typical footballer. An interview on life, legacies, and losing Ethan McLeod**\
+`Our reporter Stuart James spoke to Luke Matheson twice, six months apart. In the time between, his team-mate and friend Ethan McLeod died`\
+https://nytimes.com/athletic/7043985/2026/02/14/luke-matheson-macclesfield-ethan-mcleod-fa-cup/
 
-**How China Built a Chip Industry, and Why It’s Still Not Enough**\
-`More than a decade into Beijing’s push for self sufficiency, Chinese firms are producing fewer, lower-performing chips than their foreign competitors.`\
-https://nytimes.com/2026/02/14/business/china-chips-nvidia-huawei.html
+**Are these the bluntest attacks in Premier League history?**\
+`Nottingham Forest have joined a select group of clubs who have taken 35 shots or more without scoring in a Premier League game`\
+https://nytimes.com/athletic/7044382/2026/02/14/premier-league-bluntest-attacks-nottingham-forest/
 
-**Corrections: Feb. 14, 2026**\
-`Corrections that appeared in print on Saturday, Feb. 14, 2026.`\
-https://nytimes.com/2026/02/14/pageoneplus/corrections-feb-14-2026.html
+**The Winter Olympics infidelity confession that rocked a nation**\
+`Sturla Holm Laegreid confessed to cheating on his girlfriend after winning a bronze medal. This is how it dominated the news in Norway.`\
+https://nytimes.com/athletic/7044320/2026/02/14/laegreid-cheated-infidelity-winter-olympics/
 
