@@ -1,20 +1,20 @@
-**Spurs rebuffed Bergvall transfer enquiries over winter window**\
-`The north London club could face a battle to keep the 20-year-old this summer after Chelsea and Aston Villa made contact over his situation.`\
-https://nytimes.com/athletic/7045675/2026/02/14/lucas-bergvall-tottenham-transfer-enquiries/
+**ICE Tried to Justify a Minneapolis Shooting. Its Story Unraveled.**\
+`The collapse of the Trump administration’s version of events in the case was only the most recent instance in which officials gave an account of a shooting that was later contradicted.`\
+https://nytimes.com/2026/02/14/us/julio-sosa-celis-ice-minneapolis-shooting.html
 
-**Karen Carney: Without Paul Green, Chelsea are unrecognisable and face a tough summer**\
-`Alongside Emma Hayes, the club's head of women's football built Chelsea Women as we know it. Without them, the future is unclear`\
-https://nytimes.com/athletic/7045099/2026/02/14/karen-carney-paul-green-chelsea/
+**Inside the Debacle That Led to the Closure of El Paso’s Airspace**\
+`The F.A.A., citing “a grave risk of fatalities” from a new technology being used on the Mexican border, got caught in a stalemate with the Pentagon, which deemed the weapon “necessary.”`\
+https://nytimes.com/2026/02/14/us/politics/el-paso-airspace-closure-faa-pentagon.html
 
-**For Chelsea to succeed this season, Pedro Neto will have a big role to play**\
-`Pedro Neto has come under more criticism from supporters than most - but has a key role to play for Chelsea in this campaign`\
-https://nytimes.com/athletic/7046003/2026/02/14/chelsea-pedro-neto-facup-hull/
+**How Former N.Y.C. Schools Chief Joel Klein Became Friendly With Epstein**\
+`Mr. Klein, who led an education technology company after running the New York City school system, met with Jeffrey Epstein over a period of several months in 2013.`\
+https://nytimes.com/2026/02/14/us/how-former-nyc-schools-chief-joel-klein-became-friendly-with-epstein.html
 
-**Guimaraes expected to be out 6-10 weeks with hamstring injury**\
-`The Brazil international is set to miss at least eight fixtures across all competitions, including the Tyne-Wear derby against Sunderland.`\
-https://nytimes.com/athletic/7046128/2026/02/14/newcastle-bruno-guimaraes-injury-how-long/
+**T.S.A. Workers Brace for Another Shutdown They Didn’t Cause**\
+`As Congress leaves town without funding their department, airport security officers wonder, “How many more times am I going to be able to do this?”`\
+https://nytimes.com/2026/02/14/us/politics/tsa-homeland-security-shutdown.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/14/crosswords/spelling-bee-forum.html
+**Constant Sexual Aggression Drives Female Tortoises to Walk Off Cliffs**\
+`On a remote island in North Macedonia, male Hermann’s tortoises outnumber females 19 to 1, an imbalance driving the population to extinction.`\
+https://nytimes.com/2026/02/14/science/tortoises-island-sex-cliff.html
 
