@@ -1,3 +1,7 @@
+**At the Winter Olympics, Covering the Piste and Big Parma**\
+`What are a food reporter, the Miami bureau chief and a presidential photographer doing at the Games?`\
+https://nytimes.com/2026/02/14/insider/at-the-winter-olympics-covering-the-piste-and-big-parma.html
+
 **The Briefing: Man City 2 Salford 0 - Why Guardiola's side struggled to seal fifth-round berth**\
 `Sam Lee breaks down the key talking points as Manchester City beat Salford City in the FA Cup fourth round.`\
 https://nytimes.com/athletic/7039096/2026/02/14/man-city-2-salford-0-fa-cup-fourth-round-result/

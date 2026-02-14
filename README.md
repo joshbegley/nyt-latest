@@ -1,3 +1,7 @@
+**Thousands Rally for Iran Regime Change in Cities Around the World**\
+`Demonstrators opposed to the Iranian government gathered near the Munich Security Conference and in other European cities. Another round of U.S.-Iran talks are expected to happen on Tuesday.`\
+https://nytimes.com/2026/02/14/world/europe/iran-regime-rallies-munich.html
+
 **At the Winter Olympics, Covering the Piste and Big Parma**\
 `What are a food reporter, the Miami bureau chief and a presidential photographer doing at the Games?`\
 https://nytimes.com/2026/02/14/insider/at-the-winter-olympics-covering-the-piste-and-big-parma.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046491/2026/02/14/jordan-stolz-wins-gold-in-mens-5
 **The Sea Took Her Prosthetic Leg. Months Later, It Gave It Back.**\
 `Brenda Ogden lost her waterproof prosthetic leg 10 months ago, and with it, her zest for swimming. Then a local fossil hunter stumbled upon it.`\
 https://nytimes.com/2026/02/14/world/europe/sea-prosthetic-leg-limb.html
-
-**Detention Doesn’t Begin to Describe It**\
-`The president’s immigration dragnet is vicious but not surprising.`\
-https://nytimes.com/2026/02/14/opinion/columnists/trump-immigrant-detention.html
 
