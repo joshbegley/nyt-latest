@@ -1,3 +1,7 @@
+**Adam Silver: 'Every possible remedy' on table to stop tanking**\
+`The NBA commissioner also addressed an expected discussion on expansion next month and said relocating a team is not being considered.`\
+https://nytimes.com/athletic/7046875/2026/02/14/adam-silver-nba-all-star-game-tanking-draft/
+
 **Watford's Edoardo Bove makes first appearance since on-pitch cardiac arrest**\
 `Bove, 23, collapsed while playing for Fiorentina against Inter Milan, leading the Serie A game to be abandoned.`\
 https://nytimes.com/athletic/7047000/2026/02/14/edoardo-bove-watford-cardiac-arrest/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046955/2026/02/14/lindsey-vonn-fourth-leg-surgery-
 **Kansas’ Darryn Peterson situation is weird, but has anyone asked, ‘Why?’ **\
 `The last thing anyone should want to do in a pre-draft scenario is exaggerate the reality of a health situation.`\
 https://nytimes.com/athletic/7046899/2026/02/14/kansas-basketball-darryn-peterson-situation/
-
-**Eileen Gu crashes in second run but progresses to women's freeski big air final**\
-`Gu recovers from a second-run fall to qualify in second place for Monday's women's freeski big air final. `\
-https://nytimes.com/athletic/7046793/2026/02/14/eileen-gu-womens-freeski-big-air-qualification-2026-winter-olympics/
 

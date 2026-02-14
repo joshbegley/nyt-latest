@@ -1,3 +1,7 @@
+**Adam Silver: 'Every possible remedy' on table to stop tanking**\
+`The NBA commissioner also addressed an expected discussion on expansion next month and said relocating a team is not being considered.`\
+https://nytimes.com/athletic/7046875/2026/02/14/adam-silver-nba-all-star-game-tanking-draft/
+
 **Watford's Edoardo Bove makes first appearance since on-pitch cardiac arrest**\
 `Bove, 23, collapsed while playing for Fiorentina against Inter Milan, leading the Serie A game to be abandoned.`\
 https://nytimes.com/athletic/7047000/2026/02/14/edoardo-bove-watford-cardiac-arrest/
