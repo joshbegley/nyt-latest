@@ -1,3 +1,7 @@
+**See the Biggest Tricks From the Olympic Halfpipe, in Miniature**\
+`These animations show how the halfpipe competitions again raised the bar for what’s possible on a snowboard.`\
+https://nytimes.com/interactive/2026/02/13/sports/olympics-snowboard-halfpipe-tricks-milan-cortina.html
+
 **Canadian curler curses out Swedish opponent after cheating accusations at Olympics**\
 `The Canadian men's team beat the U.S. earlier in the day, with the victory against Sweden putting its record at 3-0.`\
 https://nytimes.com/athletic/7045743/2026/02/13/curling-canada-sweden-marc-kennedy-cheating/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7045947/2026/02/13/college-baseball-baylor-3-grand-
 **Short Rows**\
 `David Karp’s puzzle is a lovely affair.`\
 https://nytimes.com/2026/02/13/crosswords/daily-puzzle-2026-02-14.html
-
-**18 Days, 20 Lives: New Yorkers Who Didn’t Survive the Cold**\
-`Freezing days and nights claimed the lives of a grandmother, a dancer, a dispatcher and a man who lived among a colony of feral cats.`\
-https://nytimes.com/interactive/2026/02/13/nyregion/nyc-winter-snow-storm-cold-deaths.html
 
