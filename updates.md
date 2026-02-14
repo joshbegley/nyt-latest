@@ -1,3 +1,7 @@
+**Jamelle Bouie on Pam Bondi’s Meltdown**\
+`On “The Opinions,” the columnist Jamelle Bouie says he thinks Pam Bondi’s combative testimony made her look like a “raving lunatic” — a reaction that Democrats were able to evoke for political gain.`\
+https://nytimes.com/video/opinion/100000010710004/jamelle-bouie-on-pam-bondis-meltdown.html
+
 **Jury Deadlocked in Trial of Pro-Palestinian Demonstrators at Stanford**\
 `A judge declared a mistrial after a jury could not reach a verdict in a case in which five current and former students were charged with felonies.`\
 https://nytimes.com/2026/02/13/us/stanford-students-protests-trial.html
