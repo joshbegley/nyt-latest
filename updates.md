@@ -1,3 +1,11 @@
+**Mamdani Surprises Couples at the Manhattan Marriage Bureau**\
+`Mayor Zohran Mamdani stopped by City Hall last Thursday, stepping in to officiate weddings and shocking couples as they arrived for their appointments.`\
+https://nytimes.com/2026/02/14/style/mamdani-city-hall-weddings-nyc.html
+
+**Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
+`The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
+https://nytimes.com/athletic/7004343/2026/02/14/harry-kane-500-goals-bayern-tottenham-england/
+
 **Classic Shrimp Scampi, Roast Chicken and Chocolate-Covered Strawberries**\
 `It’s Feb. 14. Let’s do this.`\
 https://nytimes.com/2026/02/14/dining/classic-shrimp-scampi-roast-chicken-and-chocolate-covered-strawberries.html
