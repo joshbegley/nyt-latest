@@ -1,3 +1,7 @@
+**Quote of the Day: 30 Grand Romantic Gestures to Sweep You Off Your Feet**\
+`Quotation of the Day for February, 14, 2026.`\
+https://nytimes.com/2026/02/13/pageoneplus/quote-of-the-day-30-grand-romantic-gestures-to-sweep-you-off-your-feet.html
+
 **Wasserman Will Sell Powerhouse L.A. Agency Amid Epstein Fallout**\
 `Casey Wasserman, a Los Angeles entertainment executive and the head of the 2028 Olympic Games, has lost clients since his emails with Ghislaine Maxwell surfaced.`\
 https://nytimes.com/2026/02/13/us/casey-wasserman-agency-epstein.html
