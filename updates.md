@@ -1,3 +1,7 @@
+**Spurs rebuffed Bergvall transfer enquiries over winter window**\
+`The north London club could face a battle to keep the 20-year-old this summer after Chelsea and Aston Villa made contact over his situation.`\
+https://nytimes.com/athletic/7045675/2026/02/14/lucas-bergvall-tottenham-transfer-enquiries/
+
 **Karen Carney: Without Paul Green, Chelsea are unrecognisable and face a tough summer**\
 `Alongside Emma Hayes, the club's head of women's football built Chelsea Women as we know it. Without them, the future is unclear.`\
 https://nytimes.com/athletic/7045099/2026/02/14/karen-carney-paul-green-chelsea/
