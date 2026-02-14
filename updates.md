@@ -1,3 +1,7 @@
+**New U.S. Boat Strike Kills 3 in the Caribbean**\
+`The attacks since early November had specifically targeted suspected drug smuggling boats in the Pacific Ocean.`\
+https://nytimes.com/2026/02/14/us/politics/boat-strike-kills-3.html
+
 **Chewy Cookies and Bowl Scrapers Forever**\
 `Sue Li takes the Bake Time questionnaire.`\
 https://nytimes.com/2026/02/14/dining/chewy-cookies-and-bowl-scrapers-forever.html
