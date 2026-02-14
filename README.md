@@ -1,20 +1,20 @@
-**Rubio Stresses Shared History to Europeans but Also Warns of ‘Civilizational Erasure’**\
-`In his speech at the Munich Security Conference, Secretary of State Marco Rubio voiced some far-right ideas, but his diplomatic tone came as a relief to the audience.`\
-https://nytimes.com/2026/02/14/world/europe/rubio-munich-security-conference-speech.html
+**Brad Keller found success as a reliever, but embraces starters' arsenal**\
+`Keller and the Phillies plan to maintain his five-pitch arsenal — fastball, slider, sweeper, changeup and sinker — to maximize his options.`\
+https://nytimes.com/athletic/7045249/2026/02/14/phillies-brad-keller-reliever-starter/
 
-**Juraj Slafkovský has resurrected Slovak hockey, but is success sustainable?**\
-`Is Slovak hockey back? Or is this a fluke, a once-in-a-lifetime group of young stars?`\
-https://nytimes.com/athletic/7044353/2026/02/14/juraj-slafkovsky-slovakia-olympics-mens-hockey/
+**Who would make a college basketball all-star game? Here's how the East takes shape**\
+`Who else will make a loaded East region roster that involved some very difficult cuts?`\
+https://nytimes.com/athletic/7042661/2026/02/14/college-basketball-all-stars-braden-smith-yaxel-lendeborg-cameron-boozer/
 
-**The Rockies try something new: Signing starters who want to pitch at Coors Field**\
-`The Rockies signed two free-agent starters in the previous 10 years. This winter, they signed three, and they're all of a certain type. `\
-https://nytimes.com/athletic/7045955/2026/02/14/colorado-rockies-lorenzen-quintana-sugano-free-agent-signing/
+**In the Tigers' loaded rotation, don’t overlook Jack Flaherty and Casey Mize**\
+`In 2025, Jack Flaherty was inconsistent and Casey Mize struggled in the second half. Could the pitchers have more left in the tank for 2026?`\
+https://nytimes.com/athletic/7045428/2026/02/14/detroit-tigers-jack-flaherty-casey-mize/
 
-**Blue Jays bullpen bites: Brendon Little’s lessons, Tyler Rogers to WBC and more**\
-`Little led the American League with 79 outings last year but learned the hard way about ramping up too fast in the bullpen.`\
-https://nytimes.com/athletic/7045610/2026/02/14/blue-jays-tyler-rogers-wbc/
+**Team Japan shows up in force at the men’s halfpipe.**\
+`Scotty James of Australia laid down a strong run, but was outdone by Japan’s Yuto Totsuka.`\
+https://nytimes.com/2026/02/14/world/scotty-james-halfpipe-snowboard-highlight.html
 
-**Who is our favorite, and favorite long-shot, to win the Daytona 500?**\
-`Our experts have predictions for a major-reset NASCAR season, and picks for Sunday's iconic race.`\
-https://nytimes.com/athletic/7044935/2026/02/14/nascar-daytona-500-odds-predictions-blaney-logano/
+**Sam Vincent's 1990 Hoops card and the one night Michael Jordan wore No. 12**\
+`An attempted Valentine's Day heist in Orlando that lives on in cardboard form. `\
+https://nytimes.com/athletic/7045522/2026/02/14/michael-jordan-sam-vincent-jersey-stolen/
 
