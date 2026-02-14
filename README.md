@@ -1,3 +1,7 @@
+**How ICE Is Pushing Tech Companies to Identify Protesters**\
+`The DHS is flooding social media companies with administrative subpoenas to identify accounts that are protesting ICE. Social media companies have pushed back but are largely complying. Our tech reporter, Sheera Frenkel, explains.`\
+https://nytimes.com/video/business/100000010709300/how-ice-is-pushing-tech-companies-to-identify-protesters.html
+
 **When Hot Pot Meets Potluck**\
 `To mark Lunar New Year and the publication of Natasha Pickowicz’s latest cookbook, guests brought the fixings, and she and Sue Chan supplied the broth.`\
 https://nytimes.com/2026/02/14/t-magazine/natasha-pickowicz-hot-pot.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046612/2026/02/14/masataka-yoshida-red-sox-trade-r
 **Neighbor Recalls Investigators Searching Home Next Door in Guthrie Disappearance**\
 `David Curl, a retired lawyer, said the woman who lived there was distraught and did not know why investigators were focusing on her home.`\
 https://nytimes.com/2026/02/14/us/nancy-guthrie-case-search-warrant.html
-
-**Northern Iowa announces death of freshman football player**\
-`It is unclear how Parker Sutherland died, and the university declined to release details. `\
-https://nytimes.com/athletic/7046564/2026/02/14/northern-iowa-football-player-dies-parker-sutherland/
 
