@@ -1,3 +1,7 @@
+**Pam Bondi’s ‘Cage Match’ and Trump’s Fraying Coalition**\
+`The round table reflects on a chaotic week of incompetence and meltdowns.`\
+https://nytimes.com/video/opinion/100000010709864/pam-bondis-cage-match-and-trumps-fraying-coalition.html
+
 **Marco Rubio Calls a World Without Borders a ‘Foolish Idea’**\
 `Speaking at the Munich Security Conference, Secretary of State Marco Rubio denounced the idea of a united, global citizenship but also said the United States and Europe “belong together” as a civilization.`\
 https://nytimes.com/video/world/europe/100000010713230/marco-rubio-munich-borders-citizenship.html
