@@ -1,3 +1,7 @@
+**Mamdani Surprises Couples at the Manhattan Marriage Bureau**\
+`Mayor Zohran Mamdani stopped by City Hall last Thursday, stepping in to officiate weddings and shocking couples as they arrived for their appointments.`\
+https://nytimes.com/2026/02/14/style/mamdani-city-hall-weddings-nyc.html
+
 **Classic Shrimp Scampi, Roast Chicken and Chocolate-Covered Strawberries**\
 `It’s Feb. 14. Let’s do this.`\
 https://nytimes.com/2026/02/14/dining/classic-shrimp-scampi-roast-chicken-and-chocolate-covered-strawberries.html
@@ -10,11 +14,7 @@ https://nytimes.com/2026/02/14/theater/milo-rau-hate-radio-pelicot-trial.html
 `Destanee Aiava made the announcement that the coming year would be her last in the game in an explosive post to Instagram on Saturday.`\
 https://nytimes.com/athletic/7046331/2026/02/14/tennis-destanee-aiava-retirement-instagram/
 
-**Bay FC is ready for its next chapter with a young squad, new head coach and plenty to prove**\
-`The team signed USWNT midfielder Claire Hutton for $1.1 million and is rebuilding with a young English coach leading the way.`\
-https://nytimes.com/athletic/7046151/2026/02/14/bay-fc-claire-hutton-emma-coates-next-chapter/
-
-**Casey Wasserman in the eye of a firestorm with his LA28 future in question**\
-`Wasserman continues to face pressure over his ties to Jeffrey Epstein and appears set to sell his agency.`\
-https://nytimes.com/athletic/7046279/2026/02/14/casey-wasserman-la28-olympics-company-agency-sale-future/
+**Harry Kane's 500 goals: The numbers behind a record-breaking milestone**\
+`The Bayern Munich striker has become the first Englishman to hit 500 goals for club and country`\
+https://nytimes.com/athletic/7004343/2026/02/14/harry-kane-500-goals-bayern-tottenham-england/
 
