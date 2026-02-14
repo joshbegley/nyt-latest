@@ -1,4 +1,8 @@
 **Ronaldo scores on return to Al Nassr side after two-game absence**\
+`Ronaldo, 41, has sat out Al-Nassr's wins over Al Riyadh and Al Ittihad following the end of the transfer window.`\
+https://nytimes.com/athletic/7046781/2026/02/14/cristiano-ronaldo-al-nassr-goal/
+
+**Ronaldo scores on return to Al Nassr side after two-game absence**\
 `Ronaldo, 41, has sat out Al-Nassr's wins over Al Riyadh and Al Ittihad following the end of the transfer window due to a dispute over how th`\
 https://nytimes.com/athletic/7046781/2026/02/14/cristiano-ronaldo-al-nassr-goal/
 
