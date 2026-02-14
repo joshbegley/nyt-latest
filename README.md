@@ -1,20 +1,20 @@
-**Lucas Pinheiro Braathen makes history with gold for Brazil in the men's giant slalom**\
-`Braathen's gold for Brazil is the country's first medal at a Winter Olympics. `\
-https://nytimes.com/athletic/7046275/2026/02/14/lucas-pinheiro-braathen-mens-giant-slalom/
+**How to watch Kentucky vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046352/2026/02/14/kentucky-vs-florida-stream-how-to-watch-feb-14/
 
-**David J. Farber, ‘Grandfather of the Internet,’ Dies at 91**\
-`A researcher, professor and federal policy adviser, he guided students who went on to do groundbreaking work in connecting the world online.`\
-https://nytimes.com/2026/02/14/technology/david-farber-dead.html
+**How to watch Louisville vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046350/2026/02/14/louisville-vs-baylor-stream-how-to-watch-feb-14/
 
-**Three relievers looking to bounce back as the Cubs look for their next surprise**\
-`As the Cubs continue to build their reputation as a good spot for pitchers, it only helps their case as they search for their next one.`\
-https://nytimes.com/athletic/7045862/2026/02/14/three-relievers-cubs-bounce-back/
+**How to watch Purdue vs. Iowa men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046348/2026/02/14/purdue-vs-iowa-stream-how-to-watch-feb-14/
 
-**Software? No Way. We’re an A.I. Company Now!**\
-`As their stocks tank, software makers are rebranding themselves as A.I. innovators. Sparkle emojis are everywhere, but some efforts have been more successful than others.`\
-https://nytimes.com/2026/02/14/business/dealbook/software-companies-ai.html
+**How to watch Texas Tech vs. Oklahoma State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Oklahoma State Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7046344/2026/02/14/texas-tech-vs-oklahoma-state-stream-how-to-watch-feb-14/
 
-**Norway wins women's cross-country skiing relay gold, Sweden rallies for silver**\
-`Sweden came back after Ebba Andersson fell multiple times during the second leg while Finland took bronze.`\
-https://nytimes.com/athletic/7046248/2026/02/14/olympics-2026-cross-country-norway-sweden/
+**What Would Carolyn Bessette Kennedy Have Thought of the New Calvin Klein?**\
+`As Ryan Murphy’s “Love Story” premieres, so does the Calvin Klein show. They don’t have the same style.`\
+https://nytimes.com/2026/02/14/style/calvin-klein-carolyn-bessette-kennedy-love-story.html
 
