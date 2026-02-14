@@ -1,3 +1,7 @@
+**Tumbler Ridge Is Forever Changed**\
+`The mass shooting in the remote British Columbia mining town has shocked and saddened the nation.`\
+https://nytimes.com/2026/02/14/world/canada/tumbler-ridge-mass-shooting-canada.html
+
 **Questions and answers about Trinidad Chambliss’, Joey Aguilar’s eligibility cases**\
 `Answering your questions about the latest challenges to college football eligibility. `\
 https://nytimes.com/athletic/7045406/2026/02/14/trinidad-chambliss-ole-miss-eligibility-joey-aguilar-tennessee/
