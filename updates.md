@@ -1,3 +1,11 @@
+**'Everyone is going to realize it': Canada's Thomas Harley silencing critics at Olympics**\
+`Harley reminded those who were questioning his inclusion on Canada's roster that the Olympic stage is exactly where he belongs.`\
+https://nytimes.com/athletic/7045774/2026/02/14/canada-olympics-mens-hockey-thomas-harley/
+
+**Major crash between New Zealand, France boats forces halt to SailGP Auckland racing**\
+`Black Foils grinder Louis Sinclair is in a stable condition in Auckland Hospital after suffering injuries to both legs during the collision.`\
+https://nytimes.com/athletic/7046156/2026/02/14/sailgp-auckland-crash-race-abandoned/
+
 **What a Speech Reveals About Trump’s Plans for Nuclear Weapons**\
 `A top arms diplomat at the State Department recently laid out what might come next as Washington upends decades of federal policies on nuclear proliferation.`\
 https://nytimes.com/interactive/2026/02/14/science/trump-nuclear-bomb-testing-speech.html
