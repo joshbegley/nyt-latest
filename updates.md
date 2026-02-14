@@ -1,3 +1,7 @@
+**Team Vince edges Team Melo in Rising Stars game as VJ Edgecombe captures MVP**\
+`"It feels great, obviously, to win MVP of the Rising Stars," Edgecombe said. "But my next focus is this push after the All-Star break."`\
+https://nytimes.com/athletic/7046036/2026/02/14/nba-all-star-rising-stars-game-2026/
+
 **The New York Times in Print for Saturday, Feb. 14, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/14/todays-new-york-times
