@@ -1,4 +1,4 @@
-**Dodgers closer Edwin Díaz is ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
+**Dodgers closer Edwin Díaz ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
 `Díaz is ready to embrace his new Dodgers team as well as a leadership role for Puerto Rico in the upcoming World Baseball Classic. `\
 https://nytimes.com/athletic/7046804/2026/02/14/edwin-diaz-dodgers-world-baseball-classic-puerto-rico/
 
