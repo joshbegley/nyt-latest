@@ -1,3 +1,7 @@
+**The Briefing: Aston Villa 1 Newcastle 3 - Tonali steps up with double - but where was VAR?**\
+`Newcastle United staged a brilliant comeback to beat Aston Villa in the FA Cup fourth round. Here are the key talking points...`\
+https://nytimes.com/athletic/7039143/2026/02/14/aston-villa-1-newcastle-3-tonali-var-fa-cup/
+
 **Games Briefing: Malinin’s shocking fall**\
 `Welcome to the Games Briefing, The Athletic's daily Olympics newsletter.`\
 https://nytimes.com/athletic/7046797/2026/02/14/ilia-malinin-olympic-fall-games-briefing/
