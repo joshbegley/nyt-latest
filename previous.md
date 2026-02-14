@@ -1,3 +1,15 @@
+**NBPA elects David Kelly as union's next executive director**\
+`Kelly will succeed former NBA player Andre Iguodala, who plans on stepping down from the role at the end of his term in July.`\
+https://nytimes.com/athletic/7046464/2026/02/14/nba-players-association-executive-director/
+
+**Why the U.S., Canada or Sweden could be eliminated early from Olympic men's hockey**\
+`It's now highly likely that two of the best three teams in the event will face one another in a do-or-die quarterfinal next week.`\
+https://nytimes.com/athletic/7046409/2026/02/14/mens-hockey-olympics-early-elimination/
+
+**FA Cup: League One Mansfield beat Burnley to increase pressure on Parker**\
+`A late goal from Louis Reed completed Mansfield's comeback from a goal down at Turf Moor.`\
+https://nytimes.com/athletic/7046532/2026/02/14/mansfield-town-burnley-fa-cup-scott-parker/
+
 **How to watch Texas Tech vs. Arizona men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046585/2026/02/14/texas-tech-vs-arizona-stream-how-to-watch-feb-14/
@@ -5,16 +17,4 @@ https://nytimes.com/athletic/7046585/2026/02/14/texas-tech-vs-arizona-stream-how
 **How to watch Georgetown vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the Georgetown Hoyas play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7046583/2026/02/14/georgetown-vs-uconn-stream-how-to-watch-feb-14/
-
-**How to watch Virginia vs. Ohio State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7046581/2026/02/14/virginia-vs-ohio-state-stream-how-to-watch-feb-14/
-
-**Pakistan Accused of Denying Treatment for Imran Khan’s Failing Eyesight**\
-`The lawyer for the former prime minister claimed he had lost 85 percent of the vision in his right eye because of delayed treatment in prison.`\
-https://nytimes.com/2026/02/14/world/asia/pakistan-imran-khan-eyesight.html
-
-**NASCAR moves up Daytona 500 start time due to expected rain**\
-`This marks the second year in a row NASCAR and Daytona International Speedway have had to adjust the race's start time.`\
-https://nytimes.com/athletic/7046534/2026/02/14/daytona-500-2026-start-time-change/
 
