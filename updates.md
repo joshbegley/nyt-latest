@@ -1,3 +1,7 @@
+**One day later, Canada and Sweden's Olympic curling beef is still simmering**\
+`A day after their on-ice dispute at the Olympics was the talk of the curling world, Canada and Sweden weren't entirely ready to move on.`\
+https://nytimes.com/athletic/7046505/2026/02/14/winter-olympics-2026-curling-canada-sweden-controversy-cheating/
+
 **King Leatherbury, Trainer and Trader of Horses, Dies at 92**\
 `He trained mostly lesser-known, cheaper thoroughbreds in Maryland and was the fifth-winningest trainer in North American history.`\
 https://nytimes.com/2026/02/14/us/king-leatherbury-trainer-and-trader-of-horses-dies-at-92.html
