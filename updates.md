@@ -1,3 +1,7 @@
+**Mikaela Shiffrin vs. the giant slalom: Can the U.S. star end her Olympic drought?**\
+`Shiffrin is the greatest giant slalom skier ever. She's also been struggling with it ever since an injury in November 2024. `\
+https://nytimes.com/athletic/7046523/2026/02/14/mikaela-shiffrin-winter-olympics-giant-slalom-medal-chances/
+
 **Canada advances to women’s Olympic hockey semifinals as Marie-Philip Poulin makes history**\
 `Poulin tied Hockey Hall of Fame forward Hayley Wickenheiser for most goals at an Olympics in women's hockey history.`\
 https://nytimes.com/athletic/7046633/2026/02/14/canada-olympic-hockey-semifinals-marie-philip-poulin/
