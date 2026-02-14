@@ -1,3 +1,7 @@
+**Zelensky rules out holding elections until there is a cease-fire with Russia.**\
+`By Kim Barker`\
+https://nytimes.com/live/2026/02/14/world/munich-security-conference-rubio/zelensky-rules-out-holding-elections-until-there-is-a-cease-fire-with-russia
+
 **Charlie McAvoy's Olympic diary: On the Quad God, a Latvian apology and my family**\
 `McAvoy sees what happened to Ilia Malinin as a wake-up call for Team USA. "We know we have to bring our best every single day," he said.`\
 https://nytimes.com/athletic/7046293/2026/02/14/charlie-mcavoy-olympic-diary-sandis-vilmanis/
