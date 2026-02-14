@@ -1,3 +1,7 @@
+**Trump Files Final Plans for White House Ballroom**\
+`The president is seeking quick approval despite legal challenges and backlash over his demolition of the East Wing.`\
+https://nytimes.com/2026/02/13/us/politics/trump-files-final-plans-for-white-house-ballroom.html
+
 **See the Jumps That Knocked Ilia Malinin Off the Podium**\
 `Ilia Malinin took first place in the short program, but his error-filled routine in the free skate dropped him to eighth overall.`\
 https://nytimes.com/interactive/2026/02/13/sports/olympics-figure-skating-results-malinin.html

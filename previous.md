@@ -1,3 +1,7 @@
+**Trump Files Final Plans for White House Ballroom**\
+`The president is seeking quick approval despite legal challenges and backlash over his demolition of the East Wing.`\
+https://nytimes.com/2026/02/13/us/politics/trump-files-final-plans-for-white-house-ballroom.html
+
 **See the Jumps That Knocked Ilia Malinin Off the Podium**\
 `Ilia Malinin took first place in the short program, but his error-filled routine in the free skate dropped him to eighth overall.`\
 https://nytimes.com/interactive/2026/02/13/sports/olympics-figure-skating-results-malinin.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/13/nyregion/chakraborty-nypd-shooting-mental-health.
 **After a bad night for U.S. figure skating, here's Max Naumov, looking to tomorrow**\
 `Ilia Malinin's stumble will be obsessed over for a long time. But U.S. Figure Skating doesn't have to look far for a bright spot in Naumov.`\
 https://nytimes.com/athletic/7045749/2026/02/13/maxim-naumov-winter-olympics-us-figure-skating-ilia-malinin/
-
-**How Ilia Malinin's night to forget at the Olympics unfolded**\
-`Malinin started off clean in Friday's free skate, but the errors soon piled up in a stunning defeat at the Olympics.`\
-https://nytimes.com/athletic/7045661/2026/02/13/ilia-malinin-winter-olympics-free-skate-falls/
 
