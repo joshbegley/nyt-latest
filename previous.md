@@ -1,3 +1,7 @@
+**Padres, pitcher Germán Márquez agree to one-year deal: Source**\
+`Márquez, who turns 31 this month, offers San Diego another back-end option for its starting rotation.`\
+https://nytimes.com/athletic/7047124/2026/02/14/german-marquez-padres-free-agent-contract-mlb/
+
 **Dodgers closer Edwin Díaz ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
 `Díaz is ready to embrace his new Dodgers team as well as a leadership role for Puerto Rico in the upcoming World Baseball Classic. `\
 https://nytimes.com/athletic/7046804/2026/02/14/edwin-diaz-dodgers-world-baseball-classic-puerto-rico/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7046933/2026/02/14/kevin-durant-all-star-game-effor
 **Willson Contreras could give Red Sox's porous defense a boost**\
 `Contreras credits one of the best defensive shortstops ever for helping him make the transition from catcher to first base.`\
 https://nytimes.com/athletic/7046866/2026/02/14/red-sox-willson-contreras-first-base-defense-ozzie-smith/
-
-**Navalny Killed By Frog Toxin, European Governments Say**\
-`Aleksei Navalny was most likely poisoned by a toxin found in a South American frog, five European countries said on Saturday, making the most concrete Western accusation yet that Russia’s leading opposition figure was murdered by his government in 2024.`\
-https://nytimes.com/video/world/europe/100000010713683/russia-navalny-poison.html
 

@@ -1,3 +1,7 @@
+**Padres, pitcher Germán Márquez agree to one-year deal: Source**\
+`Márquez, who turns 31 this month, offers San Diego another back-end option for its starting rotation.`\
+https://nytimes.com/athletic/7047124/2026/02/14/german-marquez-padres-free-agent-contract-mlb/
+
 **Dodgers closer Edwin Díaz ready for 2026 season, World Baseball Classic: 'I'm here to win'**\
 `Díaz is ready to embrace his new Dodgers team as well as a leadership role for Puerto Rico in the upcoming World Baseball Classic. `\
 https://nytimes.com/athletic/7046804/2026/02/14/edwin-diaz-dodgers-world-baseball-classic-puerto-rico/
