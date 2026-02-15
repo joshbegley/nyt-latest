@@ -1,3 +1,7 @@
+**Newcastle need Sandro Tonali to step up in Bruno Guimaraes' absence. This was an excellent start**\
+`Newcastle's dream of winning the FA Cup for the first time since 1955 is alive after a gritty performance against Aston Villa`\
+https://nytimes.com/athletic/7046134/2026/02/15/newcastle-sandro-tonali-fa-cup-guimaraes/
+
 **Anthony Kim completes comeback with shocking win at LIV Golf Adelaide**\
 `Injuries and substance issues robbed Kim of much of his prime. After two forgettable years on LIV, he won in Australia.`\
 https://nytimes.com/athletic/7047551/2026/02/15/anthony-kim-liv-golf-adelaide-winner-comeback/
