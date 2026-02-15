@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7047888/2026/02/15/federica-brignone-wins-giant-sla
 https://nytimes.com/athletic/7047165/2026/02/15/mohamed-salah-liverpool-form-future/
 
 **Mikaela Shiffrin misses podium in giant slalom as Olympic drought continues**\
-`Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo.`\
+`Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo in 11th place.`\
 https://nytimes.com/athletic/7047832/2026/02/15/mikaela-shiffrin-winter-olympics-giant-slalom-medal-drought/
 
 **How to watch Ole Miss vs. Kentucky women's basketball: Time, TV, streaming**\

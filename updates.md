@@ -1,3 +1,7 @@
+**Mikaela Shiffrin misses podium in giant slalom as Olympic drought continues**\
+`Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo in 11th place.`\
+https://nytimes.com/athletic/7047832/2026/02/15/mikaela-shiffrin-winter-olympics-giant-slalom-medal-drought/
+
 **Federica Brignone wins giant slalom for second Olympic gold in stunning comeback**\
 `The Italian Alpine skiing star, who returned to competition a month ago after a bad injury last April, won her second gold of these Games.`\
 https://nytimes.com/athletic/7047888/2026/02/15/federica-brignone-wins-giant-slalom-for-second-olympic-gold-in-stunning-comeback/
