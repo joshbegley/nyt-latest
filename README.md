@@ -2,7 +2,7 @@
 `At Anfield on Saturday night Brighton failed to find the net for the third match in succession and have now gone six games without a win`\
 https://nytimes.com/athletic/7046750/2026/02/15/brighton-scoring-issues-fa-cup-liverpool/
 
-**Newcastle need Sandro Tonali to step up in Bruno Guimaraes' absence. This was an excellent start**\
+**Newcastle need Tonali to step up in Guimaraes' absence. This was an excellent start**\
 `Newcastle's dream of winning the FA Cup for the first time since 1955 is alive after a gritty performance against Aston Villa`\
 https://nytimes.com/athletic/7046134/2026/02/15/newcastle-sandro-tonali-fa-cup-guimaraes/
 
