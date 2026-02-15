@@ -1,3 +1,23 @@
+**How to watch speedskater Erin Jackson race the 500m at the Olympics**\
+`Competing against a stacked field, Jackson is aiming to repeat as the winner of the women's 500-meter speedskating event. `\
+https://nytimes.com/athletic/7043045/2026/02/15/erin-jackson-speedskating-usa-olympics-how-to-watch/
+
+**Inside Giants coach John Harbaugh's frantic first 30 days in office**\
+`After a nonstop blur of meetings, interviews, hires and texts, Harbaugh is confident things are taking shape, saying, "This feels right."`\
+https://nytimes.com/athletic/7047459/2026/02/15/giants-john-harbaugh-frantic-first-30-days/
+
+**Boos, Rivalries and Records: Inside the 2026 Olympics**\
+`A look at the tensions and triumphs shaping this year’s Winter Games.`\
+https://nytimes.com/2026/02/15/podcasts/the-daily/boos-rivalries-and-records-inside-the-2026-olympics.html
+
+**Wordle Review No. 1,703**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 16, 2026.`\
+https://nytimes.com/2026/02/15/crosswords/wordle-review-1703.html
+
+**Strands Sidekick No. 715**\
+`Scroll down for hints and conversation about the puzzle for Monday, Feb. 16, 2026.`\
+https://nytimes.com/2026/02/15/crosswords/strands-sidekick-715.html
+
 **How to watch North Carolina vs. Duke women's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7047649/2026/02/15/north-carolina-vs-duke-stream-how-to-watch-feb-15/
