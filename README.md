@@ -1,3 +1,7 @@
+**Should Canada start MacKinnon-McDavid-Celebrini line in Olympic quarterfinals?**\
+`Canada's coaching staff will be mulling whether to start its Wednesday quarterfinal game with the nuclear option.`\
+https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinals-canada-mackinnon-mcdavid-celebrini/
+
 **Canada Gives U.S. Arms Makers Cold Shoulder on Military Spending**\
 `Canada plans to unveil a new strategy that will shift its current reliance on American companies to Canadian military suppliers.`\
 https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048487/2026/02/15/bryce-harper-manny-machado-dodge
 **Ohio State squanders 19-point lead, falls to Maryland in upset**\
 `Oluchi Okananwa and Yarden Garzon each had 17 points, and the Terrapins defense turned things up in the second half to stun Ohio State.`\
 https://nytimes.com/athletic/7048723/2026/02/15/ohio-state-maryland-womens-basketball-upset/
-
-**Japan's Ikuma Horishima finishes Olympic dual moguls run backward, wins silver**\
-`Nick Page, the 23-year-old American, reached the final eight after finishing first in the previous round.`\
-https://nytimes.com/athletic/7048550/2026/02/15/olympics-horishima-dual-moguls-backward-finish/
 
