@@ -1,3 +1,7 @@
+**Raiders to hire Seahawks QBs coach Andrew Janocko as offensive coordinator: Source**\
+`New Raiders head coach is bringing a familiar face from Seattle to join his staff in Las Vegas in Janocko.`\
+https://nytimes.com/athletic/7048829/2026/02/15/raiders-to-hire-seahawks-qbs-coach-andrew-janocko-as-offensive-coordinator-source/
+
 **Something to Noodle On**\
 `Ian Livengood gives us a sense of direction.`\
 https://nytimes.com/2026/02/15/crosswords/daily-puzzle-2026-02-16.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-b
 **Should Canada start MacKinnon-McDavid-Celebrini line in Olympic quarterfinals?**\
 `Canada's coaching staff will be mulling whether to start its Wednesday quarterfinal game with the nuclear option.`\
 https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinals-canada-mackinnon-mcdavid-celebrini/
-
-**Canada Gives U.S. Arms Makers the Cold Shoulder on Military Spending**\
-`Canada plans to unveil a new strategy that will shift its current reliance on American companies to Canadian military suppliers.`\
-https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
 
