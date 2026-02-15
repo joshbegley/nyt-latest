@@ -1,3 +1,11 @@
+**The Briefing: Birmingham 1 Leeds 1 (2-4 pens) - Perri the hero as Farke's side sneak through to FA Cup fifth round**\
+`Analysis of Leeds United's penalty shootout victory against Birmingham City `\
+https://nytimes.com/athletic/7041906/2026/02/15/birmingham-leeds-fa-cup-analysis/
+
+**For Brock Nelson, a third-generation USA hockey Olympian, Milan is a full-circle moment**\
+`Nelson’s uncle and grandfather won Olympic hockey gold. Now they're watching Nelson on his own quest for the medal with Team USA in Milan.`\
+https://nytimes.com/athletic/7047828/2026/02/15/brock-nelson-usa-hockey-2026-winter-olympics-family/
+
 **Brignone defies age, and Shiffrin, to win gold again.**\
 `At 35, Federica Brignone of Italy became the oldest Olympic Alpine gold medalist. Mikaela Shiffrin of the U.S. finished a disappointing 11th.`\
 https://nytimes.com/2026/02/15/world/federica-brignone-mikaela-shiffrin-giant-slalom.html
@@ -9,12 +17,4 @@ https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
 **Neuer set for three-week injury layoff, to miss Bayern-Dortmund**\
 `Neuer, 39, was withdrawn at half-time of Bayern's three-goal victory at Werder Bremen on Saturday.`\
 https://nytimes.com/athletic/7047948/2026/02/15/manuel-neuer-injury-bayern-dortmund/
-
-**Latest Updates: Search for Nancy Guthrie Still Yields Nothing**\
-``\
-https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates
-
-**In First Public Comments Since Trump’s Racist Video, Obama Laments Lost Decorum**\
-`In a podcast interview, former President Barack Obama did not directly address the video posted by Mr. Trump but denounced a “clown show” on social media.`\
-https://nytimes.com/2026/02/15/us/politics/obama-trump-video.html
 
