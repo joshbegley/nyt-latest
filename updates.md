@@ -1,3 +1,7 @@
+**Alfred Blumstein, Who Transformed the Study of Crime, Dies at 95**\
+`An engineer by training, he used systems theory and quantitative analysis to examine criminal behavior, revealing the systemic patterns of crime.`\
+https://nytimes.com/2026/02/14/science/alfred-blumstein-dead.html
+
 **Keshad Johnson soars past Carter Bryant to win underwhelming NBA Slam Dunk contest**\
 `Johnson tried to bring the energy throughout the contest, dancing before and after his dunks.`\
 https://nytimes.com/athletic/7047351/2026/02/14/keshad-johnson-nba-slam-dunk-contest/

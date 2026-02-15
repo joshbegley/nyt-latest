@@ -1,3 +1,7 @@
+**Alfred Blumstein, Who Transformed the Study of Crime, Dies at 95**\
+`An engineer by training, he used systems theory and quantitative analysis to examine criminal behavior, revealing the systemic patterns of crime.`\
+https://nytimes.com/2026/02/14/science/alfred-blumstein-dead.html
+
 **Keshad Johnson soars past Carter Bryant to win underwhelming NBA Slam Dunk contest**\
 `Johnson tried to bring the energy throughout the contest, dancing before and after his dunks.`\
 https://nytimes.com/athletic/7047351/2026/02/14/keshad-johnson-nba-slam-dunk-contest/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047254/2026/02/14/olympics-jordan-stolz-brazil-gia
 **French Prosecutors to Investigate Diplomat as Part of Epstein Probe**\
 `The Paris prosecutor’s office said it was looking into three new complaints with links to the files and revisiting an earlier investigation into an Epstein associate who died in 2022.`\
 https://nytimes.com/2026/02/14/world/europe/france-epstein-files.html
-
-**Brady Tkachuk, as he always does, jumps into the fray and drags Team USA into the fight**\
-`A 6-3 victory over Denmark isn't terribly impressive, but it's a hell of a lot better than a loss — and Tkachuk was the catalyst.`\
-https://nytimes.com/athletic/7047269/2026/02/14/brady-tkachuk-usa-olympics-mens-hockey/
 
