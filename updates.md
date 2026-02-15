@@ -1,3 +1,7 @@
+**Horrific crash overshadows Australia's SailGP win in New Zealand**\
+`Australia wins the second grand prix of the season, beating Spain and Great Britain in the three-boat final.`\
+https://nytimes.com/athletic/7047631/2026/02/15/sail-grand-prix-new-zealand-australia/
+
 **Manhattan’s Only Wild Turkey Has Her Own Entourage**\
 `Astoria, first spotted in Queens last spring, is now a resident of Lower Manhattan, where three devoted women watch over her.`\
 https://nytimes.com/2026/02/15/nyregion/astoria-wild-turkey-caretakers-nyc.html
