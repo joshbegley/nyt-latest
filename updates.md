@@ -1,3 +1,7 @@
+**Tennis’s Latest Controversy: Are the Balls Round?**\
+`Tennis players at the Rotterdam Open in the Netherlands expressed frustration this week with the balls that are being used at the tournament. Charlie Eccleshare, a senior tennis writer for The Athletic, takes us inside the controversy.`\
+https://nytimes.com/video/the-athletic/100000010713378/tenniss-latest-controversy-are-the-balls-round.html
+
 **College basketball observations: Texas Tech's top 1-2 punch, bubble winners and losers**\
 `Here’s what else you might have missed from a jam-packed Saturday of men’s college hoops.`\
 https://nytimes.com/athletic/7047655/2026/02/15/college-basketball-texas-tech-arizona-duke/
