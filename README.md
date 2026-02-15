@@ -1,3 +1,7 @@
+**Latest Updates: Search for Nancy Guthrie Still Yields Nothing**\
+``\
+https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates
+
 **In First Public Comments Since Trump’s Racist Video, Obama Laments Lost Decorum**\
 `In a podcast interview, former President Barack Obama did not directly address the video posted by Mr. Trump but denounced a “clown show” on social media.`\
 https://nytimes.com/2026/02/15/us/politics/obama-trump-video.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047460/2026/02/15/nba-all-star-weekend-crowd-buzz/
 **How Feeding the Baby Can Affect Your Marriage**\
 `Readers discuss a guest essay asserting that formula promotes marriage equality. Also: Ethics and the Supreme Court.`\
 https://nytimes.com/2026/02/15/opinion/baby-formula-marriage-equality.html
-
-**Amid Turmoil, the Past Gives You Something to Hold Onto**\
-`Learning about our family’s past can connect us to the turmoil and difference that have always been America’s story.`\
-https://nytimes.com/2026/02/15/opinion/family-history-identity.html
 
