@@ -1,20 +1,20 @@
-**Lowetide: Fixing the outrageous drag of the Oilers' third and fourth lines**\
-`A third line that could punish the opposition's lesser players during the playoffs would be key for the Oilers.`\
-https://nytimes.com/athletic/7046428/2026/02/15/edmonton-oilers-stats-lines-forwards-2026/
+**How to watch Indiana vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047868/2026/02/15/indiana-vs-ucla-stream-how-to-watch-feb-15/
 
-**Tigers' Riley Greene is among MLB's best young hitters. Can he overcome his flaws?**\
-`Riley Greene is making only subtle changes after a 36-homer season also plagued with strikeouts and defensive decline. `\
-https://nytimes.com/athletic/7046916/2026/02/15/riley-greene-tigers-spring-training-flaws/
+**How to watch Michigan State vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047866/2026/02/15/michigan-state-vs-michigan-stream-how-to-watch-feb-15/
 
-**MAC plans to add FCS Sacramento State for 2026 season: Source**\
-`Sacramento State, which has desired to move up for years, makes its move after the Mountain West announced it's adding North Dakota State.`\
-https://nytimes.com/athletic/7047451/2026/02/15/mac-sacramento-state-college-football-realignment/
+**How to watch Maryland vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047857/2026/02/15/maryland-vs-ohio-state-stream-how-to-watch-feb-15/
 
-**Johannes Høsflot Klæbo sets Winter Olympic gold record as Norway wins cross-country relay**\
-`Klæbo broke the all-time Winter Olympic gold medal record with his ninth career gold, as France finished second and Italy took third.`\
-https://nytimes.com/athletic/7047780/2026/02/15/olympics-johannes-hosflot-klaebo-gold-medal-record/
+**How to watch Oklahoma vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047855/2026/02/15/oklahoma-vs-alabama-stream-how-to-watch-feb-15/
 
-**Everybody’s Mom**\
-`We explore why we care so much about the disappearance of Nancy Guthrie.`\
-https://nytimes.com/2026/02/15/briefing/nancy-guthrie-disappearance.html
+**How to watch Texas vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047844/2026/02/15/texas-vs-tennessee-stream-how-to-watch-feb-15/
 
