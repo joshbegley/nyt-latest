@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/15/theater/stream-irish-rep-national-theater.html
 `The muscles were more memorable than the clothes.`\
 https://nytimes.com/2026/02/15/style/bicepmaxxing-at-calvin-klein.html
 
-**Bryce Harper didn't have the year he wanted. Still, he found 'elite' comment 'wild'**\
+**Bryce Harper didn't have year he wanted. Still, he found Dombrowski's 'elite' comment 'wild'**\
 `Nearly four months after Dave Dombrowski initially made the comment about the Phillies star, they are again at the forefront.`\
 https://nytimes.com/athletic/7048130/2026/02/15/bryce-harper-dave-dombrowski-elite/
 
