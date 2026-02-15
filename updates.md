@@ -1,3 +1,7 @@
+**Raiders promote Rob Leonard to defensive coordinator: Source**\
+`Leonard spent last year as the Raiders’ run game coordinator/defensive line coach`\
+https://nytimes.com/athletic/7047276/2026/02/14/raiders-rob-leonard-defensive-coordinator-hire/
+
 **Thousands Gather Around the World to Protest Iran’s Government**\
 `Thousands of protesters in several cities across the world took to the streets to demand regime change in Iran on Saturday. The demonstrations came after security forces in Iran violently crushed antigovernment protests in the country, killing thousands of people.`\
 https://nytimes.com/video/world/europe/100000010713585/protests-iran-regime-world-munich.html
