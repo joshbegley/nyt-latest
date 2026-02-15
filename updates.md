@@ -1,3 +1,7 @@
+**Neuer set for three-week injury layoff, to miss Bayern-Dortmund**\
+`Neuer, 39, was withdrawn at half-time of Bayern's three-goal victory at Werder Bremen on Saturday.`\
+https://nytimes.com/athletic/7047948/2026/02/15/manuel-neuer-injury-bayern-dortmund/
+
 **Latest Updates: Search for Nancy Guthrie Still Yields Nothing**\
 ``\
 https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates

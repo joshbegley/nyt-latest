@@ -1,3 +1,7 @@
+**Neuer set for three-week injury layoff, to miss Bayern-Dortmund**\
+`Neuer, 39, was withdrawn at half-time of Bayern's three-goal victory at Werder Bremen on Saturday.`\
+https://nytimes.com/athletic/7047948/2026/02/15/manuel-neuer-injury-bayern-dortmund/
+
 **Latest Updates: Search for Nancy Guthrie Still Yields Nothing**\
 ``\
 https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates
@@ -13,8 +17,4 @@ https://nytimes.com/live/2026/02/15/us/trump-news
 **NBA All-Star Weekend shows what happens when sporting events become too corporate**\
 `There is a buzz at All-Star Weekend. Unfortunately, it doesn't often make it into the arena. `\
 https://nytimes.com/athletic/7047460/2026/02/15/nba-all-star-weekend-crowd-buzz/
-
-**How Feeding the Baby Can Affect Your Marriage**\
-`Readers discuss a guest essay asserting that formula promotes marriage equality. Also: Ethics and the Supreme Court.`\
-https://nytimes.com/2026/02/15/opinion/baby-formula-marriage-equality.html
 
