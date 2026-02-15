@@ -1,20 +1,20 @@
-**Federica Brignone wins giant slalom for second Olympic gold in stunning comeback**\
-`The Italian Alpine skiing star, who returned to competition a month ago after a bad injury last April, won her second gold of these Games.`\
-https://nytimes.com/athletic/7047888/2026/02/15/federica-brignone-wins-giant-slalom-for-second-olympic-gold-in-stunning-comeback/
+**In First Public Comments Since Trump’s Racist Video, Obama Laments Lost Decorum**\
+`In a podcast interview, former President Barack Obama did not directly address the video posted by Mr. Trump but denounced a “clown show” on social media.`\
+https://nytimes.com/2026/02/15/us/politics/obama-trump-video.html
 
-**Mohamed Salah is making a difference again**\
-`The Egyptian’s powers are inevitably waning, but his contribution post-AFCON shows that he can adapt and that he still has plenty to offer`\
-https://nytimes.com/athletic/7047165/2026/02/15/mohamed-salah-liverpool-form-future/
+**Trump Administration Live Updates: Partial D.H.S. Shutdown Piles Pressure on Airports**\
+``\
+https://nytimes.com/live/2026/02/15/us/trump-news
 
-**Mikaela Shiffrin misses podium in giant slalom as Olympic drought continues**\
-`Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo, ending in 11th place.`\
-https://nytimes.com/athletic/7047832/2026/02/15/mikaela-shiffrin-winter-olympics-giant-slalom-medal-drought/
+**NBA All-Star Weekend shows what happens when sporting events become too corporate**\
+`There is a buzz at All-Star Weekend. Unfortunately, it doesn't often make it into the arena. `\
+https://nytimes.com/athletic/7047460/2026/02/15/nba-all-star-weekend-crowd-buzz/
 
-**How to watch Ole Miss vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7047871/2026/02/15/ole-miss-vs-kentucky-stream-how-to-watch-feb-15/
+**How Feeding the Baby Can Affect Your Marriage**\
+`Readers discuss a guest essay asserting that formula promotes marriage equality. Also: Ethics and the Supreme Court.`\
+https://nytimes.com/2026/02/15/opinion/baby-formula-marriage-equality.html
 
-**How to watch Indiana vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7047868/2026/02/15/indiana-vs-ucla-stream-how-to-watch-feb-15/
+**Amid Turmoil, the Past Gives You Something to Hold Onto**\
+`Learning about our family’s past can connect us to the turmoil and difference that have always been America’s story.`\
+https://nytimes.com/2026/02/15/opinion/family-history-identity.html
 

@@ -1,4 +1,8 @@
 **Mikaela Shiffrin misses podium in giant slalom as Olympic drought continues**\
+`Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo, ending in 11th place.`\
+https://nytimes.com/athletic/7047832/2026/02/15/mikaela-shiffrin-winter-olympics-giant-slalom-medal-drought/
+
+**Mikaela Shiffrin misses podium in giant slalom as Olympic drought continues**\
 `Shiffrin completed the race but finished well out of the medal picture in Cortina d'Ampezzo in 11th place.`\
 https://nytimes.com/athletic/7047832/2026/02/15/mikaela-shiffrin-winter-olympics-giant-slalom-medal-drought/
 
