@@ -1,3 +1,7 @@
+**Isaac Paredes arrives at Astros camp amid trade rumors, Yordan Alvarez makes case for LF**\
+`The Astros' roster situation got a little more complicated as Yordan Alvarez voiced his thoughts about being the everyday designated hitter.`\
+https://nytimes.com/athletic/7048607/2026/02/15/astros-isaac-paredes-trade-rumors-yordan-alvarez-dh/
+
 **Three American Speeches at Munich, and Plenty of Confusion**\
 `As the U.S. message veered from shared heritage and values to shared interests and back again, Europeans wondered what kind of alliance they were left with.`\
 https://nytimes.com/2026/02/15/world/europe/three-american-speeches-at-munich-and-plenty-of-confusion.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/obituaries/jerry-kennedy-dead.html
 **See the Looks From the 2026 Film Independent Spirit Awards**\
 `The awards show, which celebrates independent film and television, moves to a new venue for this year’s awards show.`\
 https://nytimes.com/2026/02/15/style/see-the-looks-from-the-2026-film-independent-spirit-awards.html
-
-**Vanderbilt's NCAA resume takes hit with upset loss at Georgia**\
-`Less than 24 hours after the women’s basketball committee ranked Vanderbilt No. 4 overall, the Commodores fell at unranked Georgia.`\
-https://nytimes.com/athletic/7048592/2026/02/15/vanderbilts-georgia-upset-ncaa-womens-basketball/
 

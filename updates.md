@@ -1,3 +1,7 @@
+**Three American Speeches at Munich, and Plenty of Confusion**\
+`As the U.S. message veered from shared heritage and values to shared interests and back again, Europeans wondered what kind of alliance they were left with.`\
+https://nytimes.com/2026/02/15/world/europe/three-american-speeches-at-munich-and-plenty-of-confusion.html
+
 **Winter Storms Could Bring 8 Feet of Snow to Parts of California**\
 `The greatest impact is expected across Northern California, where a pair of powerful storms are expected to begin on Sunday night and last into the week.`\
 https://nytimes.com/2026/02/15/weather/sierra-nevada-storm-snow-california.html
