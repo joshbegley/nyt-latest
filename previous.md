@@ -1,3 +1,11 @@
+**Winter Storms Could Bring 8 Feet of Snow to Parts of California**\
+`The greatest impact is expected across Northern California, where a pair of powerful storms are expected to begin on Sunday night and last into the week.`\
+https://nytimes.com/2026/02/15/weather/sierra-nevada-storm-snow-california.html
+
+**Jerry Kennedy, Who Helped Define Music in Nashville, Dies at 85**\
+`A guitarist and record producer, he played a role in creating hits by popular singers like Roger Miller, Roy Orbison, Tom T. Hall and Tammy Wynette.`\
+https://nytimes.com/2026/02/15/obituaries/jerry-kennedy-dead.html
+
 **See the Looks From the 2026 Film Independent Spirit Awards**\
 `The awards show, which celebrates independent film and television, moves to a new venue for this year’s awards show.`\
 https://nytimes.com/2026/02/15/style/see-the-looks-from-the-2026-film-independent-spirit-awards.html
@@ -9,12 +17,4 @@ https://nytimes.com/athletic/7048592/2026/02/15/vanderbilts-georgia-upset-ncaa-w
 **Francisco Lindor talks hamate injury, Mets' clubhouse, Bad Bunny's insurance offer**\
 `Lindor, who thinks he'll be ready for Opening Day after undergoing surgery, feels like the current Mets roster is better than last season's.`\
 https://nytimes.com/athletic/7048521/2026/02/15/francisco-lindor-hamate-injury-mets-clubhouse-bad-bunny-wbc/
-
-**Pat Tillman’s Brother Pleads Guilty to Setting Post Office Fire**\
-`Richard Tillman, brother of the N.F.L. star turned Army Ranger who died in a case of friendly fire in Afghanistan, drove a vehicle into a California post office while it was closed.`\
-https://nytimes.com/2026/02/15/us/richard-tillman-post-office-fire.html
-
-**In Olympic debut of women's large hill ski jumping, Anna Odine Strøm makes history**\
-`The Norwegian became the first woman to win two individual ski jumping golds in the same Olympics.`\
-https://nytimes.com/athletic/7048587/2026/02/15/anna-odine-strom-winter-olympics-large-hill-ski-jumping-gold/
 
