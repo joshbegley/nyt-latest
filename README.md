@@ -1,3 +1,7 @@
+**Brignone defies age, and Shiffrin, to win gold again.**\
+`At 35, Federica Brignone of Italy became the oldest Olympic Alpine gold medalist. Mikaela Shiffrin of the U.S. finished a disappointing 11th.`\
+https://nytimes.com/2026/02/15/world/federica-brignone-mikaela-shiffrin-giant-slalom.html
+
 **How to Pay Attention**\
 `“Attention, taken to its highest degree, is the same thing as prayer,” the philosopher and mystic Simone Weil wrote.`\
 https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
@@ -13,8 +17,4 @@ https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates
 **In First Public Comments Since Trump’s Racist Video, Obama Laments Lost Decorum**\
 `In a podcast interview, former President Barack Obama did not directly address the video posted by Mr. Trump but denounced a “clown show” on social media.`\
 https://nytimes.com/2026/02/15/us/politics/obama-trump-video.html
-
-**Trump Administration Live Updates: Partial D.H.S. Shutdown Piles Pressure on Airports**\
-``\
-https://nytimes.com/live/2026/02/15/us/trump-news
 
