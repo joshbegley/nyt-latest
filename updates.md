@@ -1,3 +1,7 @@
+**How to Pay Attention**\
+`“Attention, taken to its highest degree, is the same thing as prayer,” the philosopher and mystic Simone Weil wrote.`\
+https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
+
 **Neuer set for three-week injury layoff, to miss Bayern-Dortmund**\
 `Neuer, 39, was withdrawn at half-time of Bayern's three-goal victory at Werder Bremen on Saturday.`\
 https://nytimes.com/athletic/7047948/2026/02/15/manuel-neuer-injury-bayern-dortmund/
