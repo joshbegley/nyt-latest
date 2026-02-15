@@ -1,3 +1,7 @@
+**USA beats Germany to take No. 2 seed but likely draws tough opponent in quarterfinals**\
+`As the winner of Group C and the No. 2 seed, the United States gets a bye into the quarterfinals but is expected to face Sweden.`\
+https://nytimes.com/athletic/7048566/2026/02/15/usa-germany-olympics-mens-hockey/
+
 **Seahawks hiring Brian Fleury to replace Klint Kubiak as offensive coordinator: Reports**\
 `Kubiak left to become the Las Vegas Raiders' head coach after helping the Seahawks win the Super Bowl in one season in Seattle.`\
 https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-brian-fleury-klint-kubiak/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
 **No fighting at the Olympics? Canada's Tom Wilson doesn't care**\
 `Wilson got into a fight with Pierre Crinon as retribution for a dirty hit the French defenseman laid on Nathan MacKinnon.`\
 https://nytimes.com/athletic/7048734/2026/02/15/canada-hockey-olympics-tom-wilson-fight-pierre-crinon/
-
-**Bryce Harper, Manny Machado laud Dodgers' spending amid expiring CBA concerns**\
-`Machado said more teams should adopt the Dodgers' model: "There should not be a cap. I think our game is very good at what we’re doing." `\
-https://nytimes.com/athletic/7048487/2026/02/15/bryce-harper-manny-machado-dodgers-cba/
 

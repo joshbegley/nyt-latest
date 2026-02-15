@@ -1,3 +1,7 @@
+**Canada Gives U.S. Arms Makers the Cold Shoulder on Military Spending**\
+`Canada plans to unveil a new strategy that will shift its current reliance on American companies to Canadian military suppliers.`\
+https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
+
 **Seahawks hiring Brian Fleury to replace Klint Kubiak as offensive coordinator: Reports**\
 `Kubiak left to become the Las Vegas Raiders' head coach after helping the Seahawks win the Super Bowl in one season in Seattle.`\
 https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-brian-fleury-klint-kubiak/
