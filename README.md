@@ -1,3 +1,7 @@
+**Could an Electronic Coach Help Ski Jumpers Leap Farther?**\
+`Future Olympic prospects are testing a device that can give them corrective advice in real time as they hurtle into the air.`\
+https://nytimes.com/2026/02/15/science/olympics-technology-ski-jump.html
+
 **The Pulse: The NBA vs. apathy**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7047544/2026/02/15/the-nba-vs-apathy-plus-stolz-makes-it-two/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047366/2026/02/15/caroline-harvey-olympics-us-wome
 **He was a Yankees trade disappointment. Now he's looking 'nasty' early in spring**\
 `Bird said a full offseason working with the Yankees’ pitching department has helped.`\
 https://nytimes.com/athletic/7047207/2026/02/15/jake-bird-yankees-trade-disappointment-looking-nasty-spring/
-
-**How to watch pairs figure skating medal events at the 2026 Winter Olympics**\
-`Japan's Riku Miura and Ryuichi Kihara are the favorites. The U.S. hasn't medaled in pairs since 1988.`\
-https://nytimes.com/athletic/7045184/2026/02/15/pairs-figure-skating-medal-usa-2026-olympics-how-to-watch/
 
