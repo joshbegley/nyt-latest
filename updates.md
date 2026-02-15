@@ -1,3 +1,7 @@
+**USA beats Germany to take No. 2 seed but likely draws tough opponent in quarterfinals**\
+`As the winner of Group C and the No. 2 seed, the United States gets a bye into the quarterfinals but is expected to face Sweden.`\
+https://nytimes.com/athletic/7048566/2026/02/15/usa-germany-olympics-mens-hockey/
+
 **Canada Gives U.S. Arms Makers the Cold Shoulder on Military Spending**\
 `Canada plans to unveil a new strategy that will shift its current reliance on American companies to Canadian military suppliers.`\
 https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
