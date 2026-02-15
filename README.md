@@ -1,3 +1,7 @@
+**NCAA's top 16 field: UConn women take the overall No. 1 spot**\
+`The rankings reveal that the committee seems to favor head-to-head results over strength of schedule and Quad 1 wins. `\
+https://nytimes.com/athletic/7047401/2026/02/14/ncaa-top-16-uconn-no-1-spot-womens-basketball-2026/
+
 **Alfred Blumstein, Who Transformed the Study of Crime, Dies at 95**\
 `An engineer by training, he used systems theory and quantitative analysis to examine criminal behavior, revealing the systemic patterns of crime.`\
 https://nytimes.com/2026/02/14/science/alfred-blumstein-dead.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/14/world/africa/us-secret-deportation-cameroon.html
 **2026 Olympics, Day 8 recap: Stolz speeds to second gold, Brazilian wins giant slalom**\
 `Canada's Marie-Philip Poulin scores a goal in her return from injury, and did that Danish player really score from the middle of the rink? `\
 https://nytimes.com/athletic/7047254/2026/02/14/olympics-jordan-stolz-brazil-giant-slalom-swayman/
-
-**French Prosecutors to Investigate Diplomat as Part of Epstein Probe**\
-`The Paris prosecutor’s office said it was looking into three new complaints with links to the files and revisiting an earlier investigation into an Epstein associate who died in 2022.`\
-https://nytimes.com/2026/02/14/world/europe/france-epstein-files.html
 
