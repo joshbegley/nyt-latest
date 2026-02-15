@@ -1,3 +1,7 @@
+**Something to Noodle On**\
+`Ian Livengood gives us a sense of direction.`\
+https://nytimes.com/2026/02/15/crosswords/daily-puzzle-2026-02-16.html
+
 **USA beats Germany to take No. 2 seed but likely draws tough opponent in quarterfinals**\
 `As the winner of Group C and the No. 2 seed, the United States gets a bye into the quarterfinals but is expected to face Sweden.`\
 https://nytimes.com/athletic/7048566/2026/02/15/usa-germany-olympics-mens-hockey/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinal
 **Canada Gives U.S. Arms Makers the Cold Shoulder on Military Spending**\
 `Canada plans to unveil a new strategy that will shift its current reliance on American companies to Canadian military suppliers.`\
 https://nytimes.com/2026/02/15/world/canada/canada-military-spending.html
-
-**No fighting at the Olympics? Canada's Tom Wilson doesn't care**\
-`Wilson got into a fight with Pierre Crinon as retribution for a dirty hit the French defenseman laid on Nathan MacKinnon.`\
-https://nytimes.com/athletic/7048734/2026/02/15/canada-hockey-olympics-tom-wilson-fight-pierre-crinon/
 
