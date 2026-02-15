@@ -1,5 +1,9 @@
+**College basketball observations: Texas Tech's top 1-2 punch, bubble winners and losers**\
+`Here’s what else you might have missed from a jam-packed Saturday of men’s college hoops.`\
+https://nytimes.com/athletic/7047655/2026/02/15/college-basketball-texas-tech-arizona-duke/
+
 **Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
-`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold n the inaugural men's dual moguls competition. `\
+`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold in the inaugural men's dual moguls competition. `\
 https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
 
 **How to watch speedskater Erin Jackson race the 500m at the Olympics**\
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047459/2026/02/15/giants-john-harbaugh-frantic-fir
 **Boos, Rivalries and Records: Inside the 2026 Olympics**\
 `A look at the tensions and triumphs shaping this year’s Winter Games.`\
 https://nytimes.com/2026/02/15/podcasts/the-daily/boos-rivalries-and-records-inside-the-2026-olympics.html
-
-**Wordle Review No. 1,703**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 16, 2026.`\
-https://nytimes.com/2026/02/15/crosswords/wordle-review-1703.html
 

@@ -1,3 +1,11 @@
+**College basketball observations: Texas Tech's top 1-2 punch, bubble winners and losers**\
+`Here’s what else you might have missed from a jam-packed Saturday of men’s college hoops.`\
+https://nytimes.com/athletic/7047655/2026/02/15/college-basketball-texas-tech-arizona-duke/
+
+**Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
+`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold in the inaugural men's dual moguls competition. `\
+https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
+
 **Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
 `Mikaël Kingsbury beat Japan's Ikuma Horishima to gold n the inaugural men's dual moguls competition. `\
 https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
