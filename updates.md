@@ -1,3 +1,11 @@
+**Three Olympic Athletes Were Just Disqualified for a Novel Reason: PFAS**\
+`Their skis and snowboards tested positive for “forever chemicals,” slippery-but-dangerous chemicals now banned in the Games.`\
+https://nytimes.com/2026/02/15/climate/olympics-ski-snowboard-wax-pfas-forever-chemicals.html
+
+**Trump’s Stinging Attack on Israel’s President Touches a Nerve**\
+`President Trump called President Isaac Herzog of Israel “disgraceful” because he has not yet pardoned Prime Minister Benjamin Netanyahu in his corruption trial.`\
+https://nytimes.com/2026/02/15/world/middleeast/trump-israel-herzog-attacks.html
+
 **Long Live Longevity Noodles**\
 `Grace Young’s classic recipe adds chicken and mushrooms to this must-have Lunar New Year dish.`\
 https://nytimes.com/2026/02/15/dining/long-live-longevity-noodles.html
