@@ -1,3 +1,7 @@
+**Trump Administration Ends Credit for Start-Stop Feature in Vehicles**\
+`Manufacturers will no longer get a credit toward vehicle emissions standards by installing engines that automatically stop at red lights.`\
+https://nytimes.com/2026/02/15/business/energy-environment/epa-tax-credits-stop-start-ignition-cars.html
+
 **Like Trump, U.S. Embassies Are Raising Cash for Lavish July Fourth Parties**\
 `Some of Washington’s diplomatic outposts in Asia are raising millions for events to mark the 250th independence anniversary. One ambassador offered to sing and dance.`\
 https://nytimes.com/2026/02/15/business/trump-july-fourth-singapore-japan.html
@@ -13,8 +17,4 @@ https://nytimes.com/video/sports/100000010714597/the-biggest-tricks-from-the-oly
 **How to watch West Virginia vs. TCU women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7048512/2026/02/15/west-virginia-vs-tcu-stream-how-to-watch-feb-15/
-
-**Manny Machado lobbies for Padres to extend A.J. Preller**\
-`The third baseman said he's "very" surprised that the Padres haven't extended their president of baseball operations.`\
-https://nytimes.com/athletic/7048418/2026/02/15/manny-machado-aj-preller-extension-padres/
 
