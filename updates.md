@@ -1,3 +1,7 @@
+**Trump Administration Ends Credit for Start-Stop Feature in Vehicles**\
+`Manufacturers will no longer get a credit toward vehicle emissions standards by installing engines that automatically stop at red lights.`\
+https://nytimes.com/2026/02/15/business/energy-environment/epa-tax-credits-stop-start-ignition-cars.html
+
 **Like Trump, U.S. Embassies Are Raising Cash for Lavish July Fourth Parties**\
 `Some of Washington’s diplomatic outposts in Asia are raising millions for events to mark the 250th independence anniversary. One ambassador offered to sing and dance.`\
 https://nytimes.com/2026/02/15/business/trump-july-fourth-singapore-japan.html
