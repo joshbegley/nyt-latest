@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 4 Wigan 0 - What does Madueke form mean for Arteta? How did Eze, Saka perform in the middle?**\
+`Arsenal breezed into the fifth round of the FA Cup with a dominant victory over third-tier Wigan - our writer breaks down the talking points`\
+https://nytimes.com/athletic/7041907/2026/02/15/arsenal-saka-madueke-eze-arteta/
+
 **Canada remains undefeated in men's hockey at Olympics after cruising past France**\
 `Canada is a perfect 3-0 at the Olympics after routing France 10-2 in its preliminary round finale.`\
 https://nytimes.com/athletic/7048079/2026/02/15/canada-france-olympic-hockey-mens/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048264/2026/02/15/red-sox-ceo-sam-kennedy-alex-bre
 **In Munich, Lawmakers Concede Scars Remain After Trump’s Greenland Threat**\
 `Congress members said that President Trump’s coveting of Greenland had left a mark, even as they expressed hope for a less bellicose approach to foreign relations.`\
 https://nytimes.com/2026/02/15/us/politics/munich-democrats-cortez-greenland-trump.html
-
-**‘The Honey Trap’, and More Theater to Stream**\
-`Other picks include the National Theater’s “Inter Alia,” a successor to the acclaimed “Prima Facie”; Anne Gridley’s “Watch Me Walk”; and a Jodi Picoult stage adaptation.`\
-https://nytimes.com/2026/02/15/theater/stream-irish-rep-national-theater.html
 
