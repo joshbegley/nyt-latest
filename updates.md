@@ -1,3 +1,7 @@
+**Brignone defies age, and Shiffrin, to win gold again.**\
+`At 35, Federica Brignone of Italy became the oldest Olympic Alpine gold medalist. Mikaela Shiffrin of the U.S. finished a disappointing 11th.`\
+https://nytimes.com/2026/02/15/world/federica-brignone-mikaela-shiffrin-giant-slalom.html
+
 **How to Pay Attention**\
 `“Attention, taken to its highest degree, is the same thing as prayer,” the philosopher and mystic Simone Weil wrote.`\
 https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
