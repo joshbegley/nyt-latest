@@ -1,3 +1,7 @@
+**How to watch North Carolina vs. Duke women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7047649/2026/02/15/north-carolina-vs-duke-stream-how-to-watch-feb-15/
+
 **Islamist Party’s Rise Overshadows Student Revolution in Bangladesh**\
 `The party is dedicated to running the country under Islamic law, but ran on a more moderate platform. It gained far more seats in last week’s election than it ever had before.`\
 https://nytimes.com/2026/02/15/world/asia/bangladesh-election-students-islam.html
