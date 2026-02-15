@@ -1,3 +1,7 @@
+**A Singles Mixer Where You Can Body-Slam Your Crush**\
+`At a wrestling speed dating event in Brooklyn, young people spent Valentine’s Day getting physical with strangers in hopes of finding love.`\
+https://nytimes.com/2026/02/15/style/wrestling-speed-dating-valentines-day-brooklyn.html
+
 **Red Sox CEO Sam Kennedy: 'If Alex Bregman wanted to be here, ultimately, he’d be here'**\
 `Kennedy also said the decision to trade Rafael Devers, whom Bregman replaced at third base, was "among the hardest in 25 years here."`\
 https://nytimes.com/athletic/7048264/2026/02/15/red-sox-ceo-sam-kennedy-alex-bregman-free-agency-cubs/
