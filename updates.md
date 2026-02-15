@@ -1,3 +1,7 @@
+**Raiders to hire Seahawks QBs coach Andrew Janocko as offensive coordinator: Source**\
+`New Raiders head coach is bringing a familiar face from Seattle to join his staff in Las Vegas in Janocko.`\
+https://nytimes.com/athletic/7048829/2026/02/15/raiders-to-hire-seahawks-qbs-coach-andrew-janocko-as-offensive-coordinator-source/
+
 **Something to Noodle On**\
 `Ian Livengood gives us a sense of direction.`\
 https://nytimes.com/2026/02/15/crosswords/daily-puzzle-2026-02-16.html
