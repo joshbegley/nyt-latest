@@ -1,3 +1,7 @@
+**Latest Updates: Search for Nancy Guthrie Still Yields Nothing**\
+``\
+https://nytimes.com/live/2026/02/15/us/nancy-guthrie-case-updates
+
 **In First Public Comments Since Trump’s Racist Video, Obama Laments Lost Decorum**\
 `In a podcast interview, former President Barack Obama did not directly address the video posted by Mr. Trump but denounced a “clown show” on social media.`\
 https://nytimes.com/2026/02/15/us/politics/obama-trump-video.html
