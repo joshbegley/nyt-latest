@@ -1,20 +1,20 @@
-**NCAA's top 16 field: UConn women take the overall No. 1 spot**\
-`The rankings reveal that the committee seems to favor head-to-head results over strength of schedule and Quad 1 wins. `\
-https://nytimes.com/athletic/7047401/2026/02/14/ncaa-top-16-uconn-no-1-spot-womens-basketball-2026/
+**Meet the Crew That Makes Dancing Lions for the Lunar New Year**\
+`In a San Francisco garage, Corey Chan and his team create giant, spectacular lions that will lead the festivities.`\
+https://nytimes.com/2026/02/15/arts/design/lion-dancing-chinese-lunar-new-years-san-francisco.html
 
-**Alfred Blumstein, Who Transformed the Study of Crime, Dies at 95**\
-`An engineer by training, he used systems theory and quantitative analysis to examine criminal behavior, revealing the systemic patterns of crime.`\
-https://nytimes.com/2026/02/14/science/alfred-blumstein-dead.html
+**Quote of the Day: Love Without Limits: Brazil’s Flirtation With Polyamory**\
+`Quotation of the Day for Sunday, February 15, 2026.`\
+https://nytimes.com/2026/02/15/pageoneplus/quote-of-the-day-love-without-limits-brazils-flirtation-with-polyamory.html
 
-**Keshad Johnson soars past Carter Bryant to win underwhelming NBA Slam Dunk contest**\
-`Johnson tried to bring the energy throughout the contest, dancing before and after his dunks.`\
-https://nytimes.com/athletic/7047351/2026/02/14/keshad-johnson-nba-slam-dunk-contest/
+**Deep in China’s Mountains, a Nuclear Revival Takes Shape**\
+`Satellite imagery of secretive nuclear facilities reveal Beijing’s efforts to expand its arsenal, just as the last global guardrails on nuclear weapons vanish.`\
+https://nytimes.com/interactive/2026/02/15/world/asia/china-nuclear.html
 
-**U.S. Deports Nine Migrants in Secret, Ignoring Legal Protections**\
-`Most had court orders protecting them from removal to their home countries, so they were sent to detention in Cameroon.`\
-https://nytimes.com/2026/02/14/world/africa/us-secret-deportation-cameroon.html
+**How $40-a-Pack Cigarettes Pushed Australians to the Black Market**\
+`Tax hikes made cigarettes in Australia the most expensive in the world. They have also helped fuel a multibillion-dollar criminal enterprise in bootleg tobacco.`\
+https://nytimes.com/2026/02/15/world/asia/how-40-a-pack-cigarettes-pushed-australians-to-the-black-market.html
 
-**2026 Olympics, Day 8 recap: Stolz speeds to second gold, Brazilian wins giant slalom**\
-`Canada's Marie-Philip Poulin scores a goal in her return from injury, and did that Danish player really score from the middle of the rink? `\
-https://nytimes.com/athletic/7047254/2026/02/14/olympics-jordan-stolz-brazil-giant-slalom-swayman/
+**What French Romance Novels Could Tell Us About A.I. and Translation Jobs**\
+`Popular paperbacks are being translated with the help of machines, raising anxiety among professionals in the field.`\
+https://nytimes.com/2026/02/15/world/europe/artificial-intelligence-language-translation.html
 
