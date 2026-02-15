@@ -1,3 +1,7 @@
+**Ohio State squanders 19-point lead, falls to Maryland in upset**\
+`Oluchi Okananwa and Yarden Garzon each had 17 points, and the Terrapins defense turned things up in the second half to stun Ohio State.`\
+https://nytimes.com/athletic/7048723/2026/02/15/ohio-state-maryland-womens-basketball-upset/
+
 **Japan's Ikuma Horishima finishes Olympic dual moguls run backward, wins silver**\
 `Nick Page, the 23-year-old American, reached the final eight after finishing first in the previous round.`\
 https://nytimes.com/athletic/7048550/2026/02/15/olympics-horishima-dual-moguls-backward-finish/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/world/gisele-pelicot-bangladesh-china-nuclear.htm
 **Isaac Paredes arrives at Astros camp amid trade rumors, Yordan Alvarez makes case for LF**\
 `The Astros' roster situation got a little more complicated as Alvarez voiced his thoughts about being the everyday designated hitter.`\
 https://nytimes.com/athletic/7048607/2026/02/15/astros-isaac-paredes-trade-rumors-yordan-alvarez-dh/
-
-**Three American Speeches at Munich, and Plenty of Confusion**\
-`As the U.S. message veered from shared heritage and values to shared interests and back again, Europeans wondered what kind of alliance they were left with.`\
-https://nytimes.com/2026/02/15/world/europe/three-american-speeches-at-munich-and-plenty-of-confusion.html
 
