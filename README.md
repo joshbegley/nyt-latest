@@ -1,3 +1,7 @@
+**Swiss men's hockey team, inspired by Kevin Fiala, grab easier path to Olympic quarterfinals**\
+`Switzerland defeated the Czech Republic in overtime on Sunday, finishing second in Group A.`\
+https://nytimes.com/athletic/7048038/2026/02/15/swiss-mens-hockey-team-inspired-by-kevin-fiala-grab-easier-path-to-olympic-quarterfinals/
+
 **The Briefing: Birmingham 1 Leeds 1 (2-4 pens) - Perri the hero as Farke's side sneak through to FA Cup fifth round**\
 `Analysis of Leeds United's penalty shootout victory against Birmingham City `\
 https://nytimes.com/athletic/7041906/2026/02/15/birmingham-leeds-fa-cup-analysis/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/world/federica-brignone-mikaela-shiffrin-giant-sl
 **How to Pay Attention**\
 `“Attention, taken to its highest degree, is the same thing as prayer,” the philosopher and mystic Simone Weil wrote.`\
 https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
-
-**Neuer set for three-week injury layoff, to miss Bayern-Dortmund**\
-`Neuer, 39, was withdrawn at half-time of Bayern's three-goal victory at Werder Bremen on Saturday.`\
-https://nytimes.com/athletic/7047948/2026/02/15/manuel-neuer-injury-bayern-dortmund/
 
