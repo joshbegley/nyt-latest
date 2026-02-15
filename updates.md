@@ -1,3 +1,7 @@
+**Islamist Party’s Rise Overshadows Student Revolution in Bangladesh**\
+`The party is dedicated to running the country under Islamic law, but ran on a more moderate platform. It gained far more seats in last week’s election than it ever had before.`\
+https://nytimes.com/2026/02/15/world/asia/bangladesh-election-students-islam.html
+
 **The 'Spidercam' is reinventing the way fans watch hockey at the Winter Olympics**\
 `Suspended over the ice by four retractable wires, the mobile camera is giving fans a new vantage of the fastest game on Earth.`\
 https://nytimes.com/athletic/7046567/2026/02/15/winter-olympics-hockey-2026-spidercam/
