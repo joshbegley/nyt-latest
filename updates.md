@@ -1,3 +1,7 @@
+**Bryce Harper didn't have the year he wanted. Still, he found 'elite' comment 'wild'**\
+`Nearly four months after Dave Dombrowski initially made the comment about the Phillies star, they are again at the forefront.`\
+https://nytimes.com/athletic/7048130/2026/02/15/bryce-harper-dave-dombrowski-elite/
+
 **Games Briefing: A stunning gold record with a chance for more**\
 `Welcome to the Games Briefing, The Athletic's daily Olympics newsletter.`\
 https://nytimes.com/athletic/7048199/2026/02/15/olympics-gold-medal-record-games-briefing/
