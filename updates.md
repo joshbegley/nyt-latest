@@ -1,3 +1,7 @@
+**Johannes Høsflot Klæbo sets Winter Olympic gold record as Norway wins cross-country relay**\
+`Klæbo broke the all-time Winter Olympic gold medal record with his ninth career gold, as France finished second and Italy took third.`\
+https://nytimes.com/athletic/7047780/2026/02/15/olympics-johannes-hosflot-klaebo-gold-medal-record/
+
 **Everybody’s Mom**\
 `We explore why we care so much about the disappearance of Nancy Guthrie.`\
 https://nytimes.com/2026/02/15/briefing/nancy-guthrie-disappearance.html

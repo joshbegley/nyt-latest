@@ -1,3 +1,7 @@
+**Johannes Høsflot Klæbo sets Winter Olympic gold record as Norway wins cross-country relay**\
+`Klæbo broke the all-time Winter Olympic gold medal record with his ninth career gold, as France finished second and Italy took third.`\
+https://nytimes.com/athletic/7047780/2026/02/15/olympics-johannes-hosflot-klaebo-gold-medal-record/
+
 **Everybody’s Mom**\
 `We explore why we care so much about the disappearance of Nancy Guthrie.`\
 https://nytimes.com/2026/02/15/briefing/nancy-guthrie-disappearance.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047544/2026/02/15/the-nba-vs-apathy-plus-stolz-mak
 **Biathlon legends get reallocated Olympic medals in wake of Russian doping scandal**\
 `"It's about giving back and justice," said France's Martin Fourcade, now the gold medalist in the mass start from the 2010 Games.`\
 https://nytimes.com/athletic/7044946/2026/02/15/biathlon-winter-olympics-medal-reallocation-russia-doping/
-
-**Caroline Harvey is having a star-making run at the Olympics for U.S. women's hockey**\
-`Harvey, who is expected to go first overall at this year's PWHL draft, might be the best offensive defender to ever play women's hockey.`\
-https://nytimes.com/athletic/7047366/2026/02/15/caroline-harvey-olympics-us-womens-hockey/
 
