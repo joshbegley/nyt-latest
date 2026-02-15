@@ -1,3 +1,11 @@
+**India, Pakistan and how no handshake set the tone for a T20 World Cup game filled with tension**\
+`India won again but nothing that happened in Colombo, Sri Lanka, reflected that well on India, Pakistan or the game in general`\
+https://nytimes.com/athletic/7048316/2026/02/15/india-pakistan-t20-handshake-tension/
+
+**Mets' new pitching coach on plans for Sean Manaea, Kodai Senga and beyond**\
+`Justin Willard offers an overriding philosophy for a staff in need of a tune-up: "I am a firm believer in throwing nasty stuff in the zone."`\
+https://nytimes.com/athletic/7048088/2026/02/15/mets-rotation-pitching-coach-justin-willard/
+
 **Mets' new pitching coach on his plans for Sean Manaea, Kodai Senga and beyond**\
 `Justin Willard offers an overriding philosophy for a staff in need of a tune-up: "I am a firm believer in throwing nasty stuff in the zone."`\
 https://nytimes.com/athletic/7048088/2026/02/15/mets-rotation-pitching-coach-justin-willard/
