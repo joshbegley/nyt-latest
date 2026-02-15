@@ -1,3 +1,7 @@
+**NCAA's top 16 field: UConn women take the overall No. 1 spot**\
+`The rankings reveal that the committee seems to favor head-to-head results over strength of schedule and Quad 1 wins. `\
+https://nytimes.com/athletic/7047401/2026/02/14/ncaa-top-16-uconn-no-1-spot-womens-basketball-2026/
+
 **Alfred Blumstein, Who Transformed the Study of Crime, Dies at 95**\
 `An engineer by training, he used systems theory and quantitative analysis to examine criminal behavior, revealing the systemic patterns of crime.`\
 https://nytimes.com/2026/02/14/science/alfred-blumstein-dead.html
