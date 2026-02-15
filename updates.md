@@ -1,3 +1,7 @@
+**Something to Noodle On**\
+`Ian Livengood gives us a sense of direction.`\
+https://nytimes.com/2026/02/15/crosswords/daily-puzzle-2026-02-16.html
+
 **USA beats Germany to take No. 2 seed but likely draws tough opponent in quarterfinals**\
 `As the winner of Group C and the No. 2 seed, the United States gets a bye into the quarterfinals but is expected to face Sweden.`\
 https://nytimes.com/athletic/7048566/2026/02/15/usa-germany-olympics-mens-hockey/
