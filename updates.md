@@ -1,3 +1,11 @@
+**French Prosecutors to Investigate Diplomat as Part of Epstein Probe**\
+`The Paris prosecutor’s office said it was looking into three new complaints with links to the files and revisiting an earlier investigation into an Epstein associate who died in 2022.`\
+https://nytimes.com/2026/02/14/world/europe/france-epstein-files.html
+
+**Brady Tkachuk, as he always does, jumps into the fray and drags Team USA into the fight**\
+`A 6-3 victory over Denmark isn't terribly impressive, but it's a hell of a lot better than a loss — and Tkachuk was the catalyst.`\
+https://nytimes.com/athletic/7047269/2026/02/14/brady-tkachuk-usa-olympics-mens-hockey/
+
 **Raiders promote Rob Leonard to defensive coordinator: Source**\
 `Leonard spent last year as the Raiders’ run game coordinator/defensive line coach`\
 https://nytimes.com/athletic/7047276/2026/02/14/raiders-rob-leonard-defensive-coordinator-hire/
