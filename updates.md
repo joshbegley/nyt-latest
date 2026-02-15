@@ -1,3 +1,7 @@
+**Anthony Kim completes comeback with shocking win at LIV Golf Adelaide**\
+`Injuries and substance issues robbed Kim of much of his prime. After two forgettable years on LIV, he won in Australia.`\
+https://nytimes.com/athletic/7047551/2026/02/15/anthony-kim-liv-golf-adelaide-winner-comeback/
+
 **The New York Times in Print for Sunday, Feb. 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/15/todays-new-york-times
