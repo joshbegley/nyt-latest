@@ -1,3 +1,7 @@
+**Tyler Reddick lifts Michael Jordan's 23XI Racing to Daytona 500 win**\
+`Takeaways from The Athletic's reporters from an "only in NASCAR!" finish at the Daytona 500.`\
+https://nytimes.com/athletic/7048917/2026/02/15/tyler-reddick-michael-jordan-daytona-500/
+
 **Raiders to hire Seahawks QBs coach Andrew Janocko as offensive coordinator: Source**\
 `New Raiders head coach is bringing a familiar face from Seattle to join his staff in Las Vegas in Janocko.`\
 https://nytimes.com/athletic/7048829/2026/02/15/raiders-to-hire-seahawks-qbs-coach-andrew-janocko-as-offensive-coordinator-source/

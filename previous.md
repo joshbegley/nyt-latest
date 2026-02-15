@@ -1,3 +1,7 @@
+**Tyler Reddick lifts Michael Jordan's 23XI Racing to Daytona 500 win**\
+`Takeaways from The Athletic's reporters from an "only in NASCAR!" finish at the Daytona 500.`\
+https://nytimes.com/athletic/7048917/2026/02/15/tyler-reddick-michael-jordan-daytona-500/
+
 **Raiders to hire Seahawks QBs coach Andrew Janocko as offensive coordinator: Source**\
 `New Raiders head coach is bringing a familiar face from Seattle to join his staff in Las Vegas in Janocko.`\
 https://nytimes.com/athletic/7048829/2026/02/15/raiders-to-hire-seahawks-qbs-coach-andrew-janocko-as-offensive-coordinator-source/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048566/2026/02/15/usa-germany-olympics-mens-hockey
 **Seahawks hiring Brian Fleury to replace Klint Kubiak as offensive coordinator: Reports**\
 `Kubiak left to become the Las Vegas Raiders' head coach after helping the Seahawks win the Super Bowl in one season in Seattle.`\
 https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-brian-fleury-klint-kubiak/
-
-**Should Canada start MacKinnon-McDavid-Celebrini line in Olympic quarterfinals?**\
-`Canada's coaching staff will be mulling whether to start its Wednesday quarterfinal game with the nuclear option.`\
-https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinals-canada-mackinnon-mcdavid-celebrini/
 
