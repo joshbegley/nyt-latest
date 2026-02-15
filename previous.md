@@ -1,3 +1,7 @@
+**Serie A referee chief hits out at 'cheating' players**\
+`Kalulu was shown a second yellow card in the 42nd minute of Saturday night's league match, which Inter won 3-2, when the score was 1-1.`\
+https://nytimes.com/athletic/7047976/2026/02/15/inter-juventus-red-card-var-kalulu/
+
 **Swiss men's hockey team, inspired by Kevin Fiala, grab easier path to Olympic quarterfinals**\
 `Switzerland defeated the Czech Republic in overtime on Sunday, finishing second in Group A.`\
 https://nytimes.com/athletic/7048038/2026/02/15/swiss-mens-hockey-olympics-czechia/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7047828/2026/02/15/brock-nelson-usa-hockey-2026-win
 **Brignone defies age, and Shiffrin, to win gold again.**\
 `At 35, Federica Brignone of Italy became the oldest Olympic Alpine gold medalist. Mikaela Shiffrin of the U.S. finished a disappointing 11th.`\
 https://nytimes.com/2026/02/15/world/federica-brignone-mikaela-shiffrin-giant-slalom.html
-
-**How to Pay Attention**\
-`“Attention, taken to its highest degree, is the same thing as prayer,” the philosopher and mystic Simone Weil wrote.`\
-https://nytimes.com/2026/02/15/briefing/how-to-pay-attention.html
 
