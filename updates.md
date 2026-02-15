@@ -1,3 +1,7 @@
+**U.S. Deports Nine Migrants in Secret, Ignoring Legal Protections**\
+`Most had court orders protecting them from removal to their home countries, so they were sent to detention in Cameroon.`\
+https://nytimes.com/2026/02/14/world/africa/us-secret-deportation-cameroon.html
+
 **2026 Olympics, Day 8 recap: Stolz speeds to second gold, Brazilian wins giant slalom**\
 `Canada's Marie-Philip Poulin scores a goal in her return from injury, and did that Danish player really score from the middle of the rink? `\
 https://nytimes.com/athletic/7047254/2026/02/14/olympics-jordan-stolz-brazil-giant-slalom-swayman/
