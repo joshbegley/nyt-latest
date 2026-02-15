@@ -1,3 +1,7 @@
+**Games Briefing: A stunning gold record with a chance for more**\
+`Welcome to the Games Briefing, The Athletic's daily Olympics newsletter.`\
+https://nytimes.com/athletic/7048199/2026/02/15/olympics-gold-medal-record-games-briefing/
+
 **Europe Today Looks Different From the One Trump’s Team Describes**\
 `Secretary of State Marco Rubio appealed to European leaders in Munich by stressing Christian and cultural bonds that are no longer universal.`\
 https://nytimes.com/2026/02/15/world/europe/europe-rubio-munich.html
