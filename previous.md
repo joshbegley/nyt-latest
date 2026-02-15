@@ -1,3 +1,7 @@
+**Canada remains undefeated in men's hockey at Olympics after cruising past France**\
+`Canada is a perfect 3-0 at the Olympics after routing France 10-2 in its preliminary round finale.`\
+https://nytimes.com/athletic/7048079/2026/02/15/canada-france-olympic-hockey-mens/
+
 **A Singles Mixer Where You Can Body-Slam Your Crush**\
 `At a wrestling speed dating event in Brooklyn, young people spent Valentine’s Day getting physical with strangers in hopes of finding love.`\
 https://nytimes.com/2026/02/15/style/wrestling-speed-dating-valentines-day-brooklyn.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/us/politics/munich-democrats-cortez-greenland-tru
 **‘The Honey Trap’, and More Theater to Stream**\
 `Other picks include the National Theater’s “Inter Alia,” a successor to the acclaimed “Prima Facie”; Anne Gridley’s “Watch Me Walk”; and a Jodi Picoult stage adaptation.`\
 https://nytimes.com/2026/02/15/theater/stream-irish-rep-national-theater.html
-
-**Bicepmaxxing at Calvin Klein**\
-`The muscles were more memorable than the clothes.`\
-https://nytimes.com/2026/02/15/style/bicepmaxxing-at-calvin-klein.html
 
