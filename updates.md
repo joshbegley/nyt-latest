@@ -1,3 +1,7 @@
+**Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
+`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold n the inaugural men's dual moguls competition. `\
+https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
+
 **How to watch speedskater Erin Jackson race the 500m at the Olympics**\
 `Competing against a stacked field, Jackson is aiming to repeat as the winner of the women's 500-meter speedskating event. `\
 https://nytimes.com/athletic/7043045/2026/02/15/erin-jackson-speedskating-usa-olympics-how-to-watch/

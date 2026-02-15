@@ -1,5 +1,5 @@
 **Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
-`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold n the inaugural men's dual moguls competition. `\
+`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold in the inaugural men's dual moguls competition. `\
 https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
 
 **How to watch speedskater Erin Jackson race the 500m at the Olympics**\
