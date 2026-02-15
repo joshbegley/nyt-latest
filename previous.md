@@ -1,3 +1,7 @@
+**Seahawks hiring Brian Fleury to replace Klint Kubiak as offensive coordinator: Reports**\
+`Kubiak left to become the Las Vegas Raiders' head coach after helping the Seahawks win the Super Bowl in one season in Seattle.`\
+https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-brian-fleury-klint-kubiak/
+
 **Should Canada start MacKinnon-McDavid-Celebrini line in Olympic quarterfinals?**\
 `Canada's coaching staff will be mulling whether to start its Wednesday quarterfinal game with the nuclear option.`\
 https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinals-canada-mackinnon-mcdavid-celebrini/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048734/2026/02/15/canada-hockey-olympics-tom-wilso
 **Bryce Harper, Manny Machado laud Dodgers' spending amid expiring CBA concerns**\
 `Machado said more teams should adopt the Dodgers' model: "There should not be a cap. I think our game is very good at what we’re doing." `\
 https://nytimes.com/athletic/7048487/2026/02/15/bryce-harper-manny-machado-dodgers-cba/
-
-**Ohio State squanders 19-point lead, falls to Maryland in upset**\
-`Oluchi Okananwa and Yarden Garzon each had 17 points, and the Terrapins defense turned things up in the second half to stun Ohio State.`\
-https://nytimes.com/athletic/7048723/2026/02/15/ohio-state-maryland-womens-basketball-upset/
 

@@ -1,3 +1,7 @@
+**Seahawks hiring Brian Fleury to replace Klint Kubiak as offensive coordinator: Reports**\
+`Kubiak left to become the Las Vegas Raiders' head coach after helping the Seahawks win the Super Bowl in one season in Seattle.`\
+https://nytimes.com/athletic/7034194/2026/02/15/seahawks-offensive-coordinator-brian-fleury-klint-kubiak/
+
 **Should Canada start MacKinnon-McDavid-Celebrini line in Olympic quarterfinals?**\
 `Canada's coaching staff will be mulling whether to start its Wednesday quarterfinal game with the nuclear option.`\
 https://nytimes.com/athletic/7048687/2026/02/15/olympic-mens-hockey-quarterfinals-canada-mackinnon-mcdavid-celebrini/
