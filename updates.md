@@ -1,3 +1,7 @@
+**Could an Electronic Coach Help Ski Jumpers Leap Farther?**\
+`Future Olympic prospects are testing a device that can give them corrective advice in real time as they hurtle into the air.`\
+https://nytimes.com/2026/02/15/science/olympics-technology-ski-jump.html
+
 **The Pulse: The NBA vs. apathy**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7047544/2026/02/15/the-nba-vs-apathy-plus-stolz-makes-it-two/

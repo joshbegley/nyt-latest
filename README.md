@@ -1,3 +1,7 @@
+**Everybody’s Mom**\
+`We explore why we care so much about the disappearance of Nancy Guthrie.`\
+https://nytimes.com/2026/02/15/briefing/nancy-guthrie-disappearance.html
+
 **Could an Electronic Coach Help Ski Jumpers Leap Farther?**\
 `Future Olympic prospects are testing a device that can give them corrective advice in real time as they hurtle into the air.`\
 https://nytimes.com/2026/02/15/science/olympics-technology-ski-jump.html
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7044946/2026/02/15/biathlon-winter-olympics-medal-r
 **Caroline Harvey is having a star-making run at the Olympics for U.S. women's hockey**\
 `Harvey, who is expected to go first overall at this year's PWHL draft, might be the best offensive defender to ever play women's hockey.`\
 https://nytimes.com/athletic/7047366/2026/02/15/caroline-harvey-olympics-us-womens-hockey/
-
-**He was a Yankees trade disappointment. Now he's looking 'nasty' early in spring**\
-`Bird said a full offseason working with the Yankees’ pitching department has helped.`\
-https://nytimes.com/athletic/7047207/2026/02/15/jake-bird-yankees-trade-disappointment-looking-nasty-spring/
 
