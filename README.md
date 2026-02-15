@@ -1,3 +1,7 @@
+**A Singles Mixer Where You Can Body-Slam Your Crush**\
+`At a wrestling speed dating event in Brooklyn, young people spent Valentine’s Day getting physical with strangers in hopes of finding love.`\
+https://nytimes.com/2026/02/15/style/wrestling-speed-dating-valentines-day-brooklyn.html
+
 **Red Sox CEO Sam Kennedy: 'If Alex Bregman wanted to be here, ultimately, he’d be here'**\
 `Kennedy also said the decision to trade Rafael Devers, whom Bregman replaced at third base, was "among the hardest in 25 years here."`\
 https://nytimes.com/athletic/7048264/2026/02/15/red-sox-ceo-sam-kennedy-alex-bregman-free-agency-cubs/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/theater/stream-irish-rep-national-theater.html
 **Bicepmaxxing at Calvin Klein**\
 `The muscles were more memorable than the clothes.`\
 https://nytimes.com/2026/02/15/style/bicepmaxxing-at-calvin-klein.html
-
-**Bryce Harper didn't have year he wanted. Still, he found Dombrowski's 'elite' comment 'wild'**\
-`Nearly four months after Dave Dombrowski initially made the comment about the Phillies star, the issue is again at the forefront.`\
-https://nytimes.com/athletic/7048130/2026/02/15/bryce-harper-dave-dombrowski-elite/
 
