@@ -1,3 +1,7 @@
+**Europe Today Looks Different From the One Trump’s Team Describes**\
+`Secretary of State Marco Rubio appealed to European leaders in Munich by stressing Christian and cultural bonds that are no longer universal.`\
+https://nytimes.com/2026/02/15/world/europe/europe-rubio-munich.html
+
 **How to watch Florida State vs. Louisville women's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida State Seminoles play the Louisville Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7048168/2026/02/15/florida-state-vs-louisville-stream-how-to-watch-feb-15/
