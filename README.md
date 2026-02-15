@@ -1,20 +1,20 @@
-**Tennis’s Latest Controversy: Are the Balls Round?**\
-`Tennis players at the Rotterdam Open in the Netherlands expressed frustration this week with the balls that are being used at the tournament. Charlie Eccleshare, a senior tennis writer for The Athletic, takes us inside the controversy.`\
-https://nytimes.com/video/the-athletic/100000010713378/tenniss-latest-controversy-are-the-balls-round.html
+**Caroline Harvey is having a star-making run at the Olympics for U.S. women's hockey**\
+`Harvey, who is expected to go first overall at this year's PWHL draft, might be the best offensive defender to ever play women's hockey.`\
+https://nytimes.com/athletic/7047366/2026/02/15/caroline-harvey-olympics-us-womens-hockey/
 
-**College basketball observations: Texas Tech's top 1-2 punch, bubble winners and losers**\
-`Here’s what else you might have missed from a jam-packed Saturday of men’s college hoops.`\
-https://nytimes.com/athletic/7047655/2026/02/15/college-basketball-texas-tech-arizona-duke/
+**He was a Yankees trade disappointment. Now he's looking 'nasty' early in spring**\
+`Bird said a full offseason working with the Yankees’ pitching department has helped.`\
+https://nytimes.com/athletic/7047207/2026/02/15/jake-bird-yankees-trade-disappointment-looking-nasty-spring/
 
-**Mikaël Kingsbury wins Canada's first gold at Milan Cortina Games with dual moguls victory**\
-`Mikaël Kingsbury beat Japan's Ikuma Horishima to gold in the inaugural men's dual moguls competition. `\
-https://nytimes.com/athletic/7047668/2026/02/15/mikael-kingsbury-mens-dual-moguls-gold-winter-olympics-2026/
+**How to watch pairs figure skating medal events at the 2026 Winter Olympics**\
+`Japan's Riku Miura and Ryuichi Kihara are the favorites. The U.S. hasn't medaled in pairs since 1988.`\
+https://nytimes.com/athletic/7045184/2026/02/15/pairs-figure-skating-medal-usa-2026-olympics-how-to-watch/
 
-**How to watch speedskater Erin Jackson race the 500m at the Olympics**\
-`Competing against a stacked field, Jackson is aiming to repeat as the winner of the women's 500-meter speedskating event. `\
-https://nytimes.com/athletic/7043045/2026/02/15/erin-jackson-speedskating-usa-olympics-how-to-watch/
+**Jose Altuve is back at second base, seeking consistency after a scattered 2025**\
+`Altuve will gain some positional stability that he didn't enjoy in 2025, when he hit for the lowest average of his 15-year career.`\
+https://nytimes.com/athletic/7047131/2026/02/15/astros-jose-altuve-second-base-consistency/
 
-**Inside Giants coach John Harbaugh's frantic first 30 days in office**\
-`After a nonstop blur of meetings, interviews, hires and texts, Harbaugh is confident things are taking shape, saying, "This feels right."`\
-https://nytimes.com/athletic/7047459/2026/02/15/giants-john-harbaugh-frantic-first-30-days/
+**For Giants manager Tony Vitello, hiring Jayce Tingler was the perfect fit**\
+`The two longtime coaches have been close since Vitello was a walk-on at the University of Missouri, where Tingler was the best player.`\
+https://nytimes.com/athletic/7047096/2026/02/15/sf-giants-tony-vitello-jayce-tingler-bench-coach/
 
