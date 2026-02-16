@@ -1,3 +1,11 @@
+**What we'd change about NBA All-Star Weekend: Make stars dunk? Hold the event abroad?**\
+`Who is NBA All-Star Weekend truly for at this point? Why don't stars participate in the dunk contest? How we'd change the annual showcase.`\
+https://nytimes.com/athletic/7048827/2026/02/15/nba-all-star-weekend-2026-changes-dunk-contest/
+
+**Grading the new USA vs. the World NBA All-Star format (hint: It's good!)**\
+`How did the new USA vs. the World format play out? Did it make the All-Star Game more watchable? Heighten the level of competition?`\
+https://nytimes.com/athletic/7048817/2026/02/15/nba-all-star-format-grades-2026/
+
 **Grading the new USA vs. the World NBA All-Star format (hint: It's fun!)**\
 `How did the new USA vs. the World format play out? Did it make the All-Star Game more watchable? Heighten the level of competition?`\
 https://nytimes.com/athletic/7048817/2026/02/15/nba-all-star-format-grades-2026/
