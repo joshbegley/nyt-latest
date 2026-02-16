@@ -1,3 +1,7 @@
+**Swedish soccer club asks supporters for donations to re-sign fan favourite**\
+`Ostersund have until Sunday to raise 200,000 SEK ($22,326) to sign Curtis Edwards, who currently plays for English side Gateshead.`\
+https://nytimes.com/athletic/7049780/2026/02/16/ostersund-crowdfunding-transfer-curtis-edwards/
+
 **Indonesia Says It’s Preparing Thousands of Peacekeeping Troops for Trump’s Gaza Plan**\
 `President Prabowo Subianto of Indonesia will be among those meeting with President Trump in Washington this week to discuss his Board of Peace initiative to oversee a cease-fire in Gaza.`\
 https://nytimes.com/2026/02/16/us/politics/indonesia-peacekeeping-troops-trump-gaza.html
