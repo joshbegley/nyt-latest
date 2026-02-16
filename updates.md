@@ -1,3 +1,15 @@
+**Your Brain on Ping Pong, Ilia Malinin’s Dominance and Saving the N.B.A. All Star Game**\
+`The Athletic Show explores why you should trade your running shoes for a paddle and more.`\
+https://nytimes.com/2026/02/16/podcasts/ping-pong-brain-ilia-malinin-nba-all-star-game.html
+
+**At Olympic ski jumping, he has an all-important job: Measure the wind**\
+`We watched Sunday's Olympic women's large hill competition from inside the jury room, where Miran Tepeš works to keep ski jumpers safe.`\
+https://nytimes.com/athletic/7049518/2026/02/16/winter-olympics-ski-jumping-tower-wind-miran-tepes/
+
+**When Did Chicken Become the Most Expensive Thing on the Menu?**\
+`The once-humble plate of poultry has been elevated to luxury status, with prices hitting $50 or more.`\
+https://nytimes.com/2026/02/16/t-magazine/chicken-rising-prices-restaurants.html
+
 **How the U.S. Army helped make Frank Del Duca an Olympic bobsledder**\
 `Del Duca always loved a good adrenaline rush, but track wasn't working out. Then along came bobsled and a special U.S. Army program.`\
 https://nytimes.com/athletic/7047796/2026/02/16/winter-olympics-2026-bobsledding-usa-frank-del-duca/
