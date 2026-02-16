@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown criticizes police for shutting down panel during NBA All-Star Weekend**\
+`Brown said police ended an event held at 7 p.m. at a Beverly Hills mansion Saturday night, costing him “hundreds of thousands of dollars.”`\
+https://nytimes.com/athletic/7049229/2026/02/15/jaylen-brown-beverley-hills-police/
+
 **Jerome Tang out at Kansas State, expected to be fired for cause: Source**\
 `The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
 https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
