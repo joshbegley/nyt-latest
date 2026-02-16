@@ -1,3 +1,11 @@
+**IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
+`The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
+https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
+
+**Hill, Chubb released by Dolphins as roster overhaul begins in Miami**\
+`Hill played in only four games during the 2025 season, his fourth with the Dolphins. Chubb suffered multiple injuries with Miami. `\
+https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
+
 **Vaccine Makers Curtail Research and Cut Jobs**\
 `Federal policies under Robert F. Kennedy Jr. that are hostile to vaccines have “sent a chill through the entire industry,” one scientist said.`\
 https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
