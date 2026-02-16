@@ -1,3 +1,7 @@
+**Hill, Chubb released by Dolphins as roster overhaul begins in Miami**\
+`Injuries have been a factor during his time with the Dolphins.`\
+https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
+
 **Kelvin Sampson griped that UH athletics were 'poor,' so UCLA's Mick Cronin sent him $1 on Venmo**\
 `Despite having the lowest athletics budget of any power conference school, Houston men's basketball remains a national title contender.`\
 https://nytimes.com/athletic/7049990/2026/02/16/houston-basketball-kelvin-sampson-ucla-mick-cronin/

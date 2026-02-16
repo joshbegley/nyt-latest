@@ -1,3 +1,11 @@
+**Vaccine Makers Curtail Research and Cut Jobs**\
+`Federal policies under Robert F. Kennedy Jr. that are hostile to vaccines have “sent a chill through the entire industry,” one scientist said.`\
+https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
+
+**Unbeaten USA women's hockey team advances to Olympic gold medal game after rout of Sweden**\
+`Team USA continued their dominance in the semifinals, steamrolling Sweden. They'll face either Canada or Switzerland for gold on Thursday.`\
+https://nytimes.com/athletic/7049887/2026/02/16/usa-womens-hockey-2026-olympics-sweden-score-results/
+
 **Kelvin Sampson griped that UH athletics were 'poor,' so UCLA's Mick Cronin sent him $1 on Venmo**\
 `Despite having the lowest athletics budget of any power conference school, Houston men's basketball remains a national title contender.`\
 https://nytimes.com/athletic/7049990/2026/02/16/houston-basketball-kelvin-sampson-ucla-mick-cronin/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/richard-ottinger-dead.html
 **Games Briefing: A U.S.-Canada rematch?**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7050328/2026/02/16/us-canada-olympics-hockey-games-briefing/
-
-**The Olympic Toys That Are Almost as Tough to Get as a Medal**\
-`Fans have fallen hard for plush dolls representing Tina and Milo, the mascots of Italy’s Winter Games.`\
-https://nytimes.com/2026/02/16/world/olympics/tina-milo-winter-olympics-plush-toys.html
-
-**Explained: How Barcelona, Spa will work as F1’s new rotating races**\
-`Formula One Management has been looking at getting long-standing races held in Europe to enter into rotation deals for a while `\
-https://nytimes.com/athletic/7050305/2026/02/16/f1-barcelona-spa-rotation-explained/
 
