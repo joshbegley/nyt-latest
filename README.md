@@ -1,8 +1,12 @@
+**Tom Pritzker, Citing Epstein Connection, Steps Down as Hyatt’s Executive Chairman**\
+`The member of a prominent and wealthy family, Mr. Pritzker was in regular contact with the financier and sex offender Jeffrey Epstein.`\
+https://nytimes.com/2026/02/16/us/politics/tom-pritzker-hyatt-epstein.html
+
 **Browns safety Ronnie Hickman assaulted by group in New York**\
 `Hickman suffered minor injuries in the attack and is resting with his family, the Browns said.`\
 https://nytimes.com/athletic/7050831/2026/02/16/browns-safety-ronnie-hickman-assaulted-new-york/
 
-**Elana Meyers Taylor wins monobob for first Olympic gold, sixth career medal**\
+**Elana Meyers Taylor wins monobob for first Olympic gold, record-tying sixth career medal**\
 `The 41-year-old American bobsledder, winner of five previous Olympic medals across the last four Games but never gold, got it done Monday.`\
 https://nytimes.com/athletic/7050927/2026/02/16/elana-meyers-taylor-monobob-gold-medal-winter-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
 **Progress in Guthrie Case Is Fitful as Search Enters Its Third Week**\
 `Late-night bursts of activity have yielded few visible results as investigators hunt for Nancy Guthrie, the mother of a “Today” show host.`\
 https://nytimes.com/2026/02/16/us/nancy-guthrie-search.html
-
-**Where to Watch Robert Duvall’s Top Performances**\
-`He played rugged, capable men drawn from America’s past, present and possible future.`\
-https://nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html
 
