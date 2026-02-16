@@ -1,3 +1,7 @@
+**Kansas State AD says Jerome Tang fired for cause after coach's criticism of players**\
+`The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
+https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
+
 **‘A Knight of the Seven Kingdoms’ Season 1, Episode 5 Recap: ‘Get Up!’**\
 `Duncan takes a serious beating. Egg doesn’t like how things are looking.`\
 https://nytimes.com/2026/02/15/arts/television/a-knight-of-the-seven-kingdoms-recap-season-1-episode-5.html
