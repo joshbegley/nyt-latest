@@ -1,3 +1,7 @@
+**Confessions of a Former Body Positivity Influencer**\
+`Can you love your body and still want to lose weight?`\
+https://nytimes.com/video/opinion/100000010664285/body-positivity-social-media-weight-loss.html
+
 **Your Brain on Ping Pong, Ilia Malinin’s Dominance and Saving the N.B.A. All Star Game**\
 `The Athletic Show explores why you should trade your running shoes for a paddle and more.`\
 https://nytimes.com/2026/02/16/podcasts/ping-pong-brain-ilia-malinin-nba-all-star-game.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7033313/2026/02/16/anatoliy-trubin-benfica-goalkeep
 **Tre' Johnson, former Washington offensive lineman turned teacher, dies at 54**\
 `Johnson, who played eight of his nine seasons with Washington, died on a brief family trip, his wife, Irene, posted on social media.`\
 https://nytimes.com/athletic/7049458/2026/02/16/washington-tre-johnson-dead/
-
-**‘Star Search,’ Plus 7 Things to Watch on TV This Week**\
-`The finale of Netflix’s newest talent competition airs, and the second season of “The Last Thing He Told Me” premieres.`\
-https://nytimes.com/2026/02/16/arts/television/star-search-watch-on-tv-this-week.html
 
