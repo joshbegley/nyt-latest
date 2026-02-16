@@ -1,3 +1,7 @@
+**Ilia Malinin posts first statement since Olympics disappointment**\
+`U.S Olympic figure skater Ilia Malinin releases first public statement since shocking men's singles performance in Winter Olympics `\
+https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/
+
 **NBA Power Rankings post-All-Star Break: A new No. 1 as we head into the second half**\
 `The Thunder started the season as hot as any team could. But at the break, two upstarts have surpassed the defending champs in our rankings.`\
 https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-break-pistons-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/business/economy/jamieson-greer-trump-trade.html
 **How Spain Is Carving a Different Path on Immigration**\
 `The country is hoping its new amnesty for undocumented immigrants will avoid a public backlash.`\
 https://nytimes.com/2026/02/16/world/europe/spain-amnesty-immigration.html
-
-**Mets 'will never' name a team captain under owner Steve Cohen**\
-`Whether the Mets would make someone a team captain was a major storyline during their disappointing 2025 season.`\
-https://nytimes.com/athletic/7050176/2026/02/16/no-mets-captain-steve-cohen/
 

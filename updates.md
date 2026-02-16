@@ -1,3 +1,7 @@
+**Ilia Malinin posts first statement since Olympics disappointment**\
+`U.S Olympic figure skater Ilia Malinin releases first public statement since shocking men's singles performance in Winter Olympics `\
+https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/
+
 **NBA Power Rankings post-All-Star Break: A new No. 1 as we head into the second half**\
 `The Thunder started the season as hot as any team could. But at the break, two upstarts have surpassed the defending champs in our rankings.`\
 https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-break-pistons-spurs/
