@@ -1,3 +1,7 @@
+**The Athletic college baseball Top 25: LSU takes over top spot; Oklahoma cracks top 10**\
+`Oklahoma and Michigan enter the top 25 after strong opening weekends at neutral sites. `\
+https://nytimes.com/athletic/7049988/2026/02/16/college-baseball-ranking-lsu-ucla-arkansas/
+
 **For Team USA, these Winter Olympics have not gone according to plan**\
 `Injuries, freak mishaps and shocking performances have beset Team USA's superstars. But there's still good news.`\
 https://nytimes.com/athletic/7049777/2026/02/16/winter-olympics-team-usa-stars-injuries-medals/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7049892/2026/02/16/college-baseball-oklahoma-sec-ge
 `One of baseball's most aggressive executives signed a multiyear extension with the Padres.`\
 https://nytimes.com/athletic/6790125/2026/02/16/padres-aj-preller-extension/
 
-**9 Arrested Over Suspected $12 Million Louvre Ticket Scam**\
+**Ticket Scam Cost the Louvre $12 Million, Investigators Say**\
 `The Paris prosecutor’s office said that a network involving museum employees and tour guides had been operating for a decade. Investigators also believe the fraud occurred at Versailles Palace.`\
 https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049754/2026/02/16/winter-olympics-atle-lie-mcgrath
 **Packers mailbag: Submit questions for beat writer Matt Schneidman**\
 `Tell us what’s on your mind as the draft and free agency approach.`\
 https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questions-draft/
-
-**No Corrections: Feb. 16, 2026**\
-`No corrections appeared in print on Monday, Feb. 16, 2026.`\
-https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
 

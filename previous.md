@@ -1,3 +1,11 @@
+**For Team USA, these Winter Olympics have not gone according to plan**\
+`Injuries, freak mishaps and shocking performances have beset Team USA's superstars. But there's still good news.`\
+https://nytimes.com/athletic/7049777/2026/02/16/winter-olympics-team-usa-stars-injuries-medals/
+
+**Submit your college basketball questions for our mailbag**\
+`The weekend in college basketball had a little bit of everything, including the No. 1 team losing and a high-major coaching change.`\
+https://nytimes.com/athletic/7050076/2026/02/16/submit-college-basketball-questions-mailbag/
+
 **College baseball week in review: Oklahoma makes an opening statement in Texas**\
 `Arizona opens the season with three losses for the second straight time, while Michigan, Michigan State and Xavier grab fast starts.`\
 https://nytimes.com/athletic/7049892/2026/02/16/college-baseball-oklahoma-sec-georgia-tennessee/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questi
 **No Corrections: Feb. 16, 2026**\
 `No corrections appeared in print on Monday, Feb. 16, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
-
-**Heitinga leaves Tottenham assistant coach role after Tudor appointment**\
-`Fellow assistant coaches Justin Cochrane and Chris Haslam have also left the club following the sacking of Thomas Frank.`\
-https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/
-
-**No Corrections: Feb. 15, 2026**\
-`No corrections appeared in print on Sunday, Feb. 15, 2026.`\
-https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-15-2026.html
 
