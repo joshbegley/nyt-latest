@@ -1,3 +1,11 @@
+**FA Cup fifth-round draw: Wrexham host Chelsea, Arsenal to play Mansfield**\
+`The fifth-round ties will be played over the weekend of March 7-8.`\
+https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
+
+**Dodgers' Tommy Edman will start season on IL due to offseason ankle surgery**\
+`"Just looking as to where his ankle is at, trying to play the long view," manager Dave Roberts said.`\
+https://nytimes.com/athletic/7050491/2026/02/16/dodgers-tommy-edman-injury-ankle-surgery/
+
 **'Superman' catch and dazzling hundred leave Australia facing T20 humiliation**\
 `Pathum Nissanka's stunning performance leave one of cricket's superpowers on the brink of exiting the World T20`\
 https://nytimes.com/athletic/7050378/2026/02/16/australia-sri-lanka-t20-world-cup-nissanka/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
 **Unbeaten USA women's hockey team advances to Olympic gold medal game after rout of Sweden**\
 `Team USA continued their dominance in the semifinals, steamrolling Sweden. They'll face either Canada or Switzerland for gold on Thursday.`\
 https://nytimes.com/athletic/7049887/2026/02/16/usa-womens-hockey-2026-olympics-sweden-score-results/
-
-**Kelvin Sampson griped that UH athletics were 'poor,' so UCLA's Mick Cronin sent him $1 on Venmo**\
-`Despite having the lowest athletics budget of any power conference school, Houston men's basketball remains a national title contender.`\
-https://nytimes.com/athletic/7049990/2026/02/16/houston-basketball-kelvin-sampson-ucla-mick-cronin/
-
-**Hill, Chubb released by Dolphins as roster overhaul begins in Miami**\
-`Hill played in only four games during the 2025 season, his fourth with the Dolphins. Chubb suffered multiple injuries with Miami. `\
-https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
 
