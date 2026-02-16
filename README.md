@@ -1,3 +1,7 @@
+**No Corrections: Feb. 16, 2026**\
+`No corrections appeared in print on Monday, Feb. 16, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
+
 **Heitinga leaves Tottenham assistant coach role after Tudor appointment**\
 `Fellow assistant coaches Justin Cochrane and Chris Haslam have also left the club following the sacking of Thomas Frank.`\
 https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/indonesia-peacekeeping-troops-trump-g
 **Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
 ``\
 https://nytimes.com/live/2026/02/16/us/president-trump-news
-
-**College hoops players from Asia hope to 'open the path' for more to follow**\
-`The number of international players in college basketball has soared since the 2009-10 season, but Asia remains a largely untapped market.`\
-https://nytimes.com/athletic/7048069/2026/02/16/college-basketball-asian-players-seattle-oregon/
 

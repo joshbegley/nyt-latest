@@ -1,3 +1,11 @@
+**Heitinga leaves Tottenham assistant coach role after Tudor appointment**\
+`Fellow assistant coaches Justin Cochrane and Chris Haslam have also left the club following the sacking of Thomas Frank.`\
+https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/
+
+**No Corrections: Feb. 15, 2026**\
+`No corrections appeared in print on Sunday, Feb. 15, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-15-2026.html
+
 **Winter Olympics free speech row over worker's 'Free Palestine' message**\
 `An argument between a group of Israel fans and an employee in an official merchandise store was filmed and shared on social media.`\
 https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-palestine/
