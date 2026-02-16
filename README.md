@@ -1,3 +1,11 @@
+**Japan pair knocks the king and queen off their thrones.**\
+`Riku Miura and Ryuichi Kihara of Japan emerged with the gold medal with a flawless, high-scoring performance after Monday’s free skate.`\
+https://nytimes.com/2026/02/16/world/japan-figure-skating-pairs-gold-medal.html
+
+**Hours after Tom Pohlad inspires Twins, Pablo López's early BP exit shows team's fragility**\
+`Even if López avoids major injury, the team is still fragile enough that a serious setback could upend its hope of contending.`\
+https://nytimes.com/athletic/7050943/2026/02/16/twins-pablo-lopez-batting-practice-tom-pohlad/
+
 **Judge Orders Trump Administration to Restore Displays About Slavery at Washington’s House**\
 `The judge said the government did not have the power to erase or alter historical truths after the administration took down displays about slavery at the President’s House Site in Philadelphia.`\
 https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washington-slavery-injunction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7050927/2026/02/16/elana-meyers-taylor-monobob-gold
 **Kavanagh stood down from PL round after Villa-Newcastle controversy**\
 `The match, which Newcastle won 3-1, was littered with contentious decisions in the absence of VAR.`\
 https://nytimes.com/athletic/7050839/2026/02/16/referee-kavanagh-villa-newcastle-premier-league/
-
-**French hockey player removed from team for violating 'Olympic spirit'**\
-`The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
-https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
-
-**Eileen Gu falls short in defence of freeski big air Olympic title, Megan Oldham wins gold**\
-`Eileen Gu won silver as Megan Oldham won gold with a total score of 180.75.`\
-https://nytimes.com/athletic/7050750/2026/02/16/eileen-gu-womens-freeski-big-air-2026-winter-olympics/
 
