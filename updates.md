@@ -1,3 +1,7 @@
+**Tre' Johnson, former Washington offensive lineman turned teacher, dies at 54**\
+`Johnson, who played eight of his nine seasons with Washington, died on a brief family trip, his wife, Irene, posted on social media.`\
+https://nytimes.com/athletic/7049458/2026/02/16/washington-tre-johnson-dead/
+
 **‘Star Search,’ Plus 7 Things to Watch on TV This Week**\
 `The finale of Netflix’s newest talent competition airs, and the second season of “The Last Thing He Told Me” premieres.`\
 https://nytimes.com/2026/02/16/arts/television/star-search-watch-on-tv-this-week.html
