@@ -1,3 +1,11 @@
+**Why Harry Potter Still Inspires Us**\
+`Reader disagree with a guest essay that argued that the books feel dated and irrelevant today. Also: What A.I. can’t do in medicine.`\
+https://nytimes.com/2026/02/16/opinion/harry-potter.html
+
+**Winter Olympics free speech row over worker's 'Free Palestine' message**\
+`An argument between a group of Israel fans and an employee in an official merchandise store was filmed and shared on social media.`\
+https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-palestine/
+
 **Swedish soccer club asks supporters for donations to re-sign fan favourite**\
 `Ostersund have until Sunday to raise 200,000 SEK ($22,326) to sign Curtis Edwards, who currently plays for English side Gateshead.`\
 https://nytimes.com/athletic/7049780/2026/02/16/ostersund-crowdfunding-transfer-curtis-edwards/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7049776/2026/02/16/savy-king-returns-soccer-cardiac
 **Henrike Naumann, Artist Set to Represent Germany at Venice Biennale, Dies at 41**\
 `Her death from cancer was the second sudden loss for this year’s edition. Naumann’s exhibition will still go ahead in May, according to a statement.`\
 https://nytimes.com/2026/02/16/arts/design/henrike-naumann-dead-venice-biennale.html
-
-**Byron Buxton happy to still be a Twin, but frustrated by team's failure to shut down trade rumors**\
-`Twins star Byron Buxton happy team held onto to core players through an uneasy offseason.`\
-https://nytimes.com/athletic/7048593/2026/02/16/byron-buxton-twins-trade-rumors/
-
-**Mailbag: What does Blackhawks' cap space look like in 5 years?**\
-`The cap could become a problem again for the Blackhawks by the 2032-33 season.`\
-https://nytimes.com/athletic/7039333/2026/02/16/blackhawks-salary-cap-projection-nhl/
 
