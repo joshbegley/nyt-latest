@@ -1,3 +1,7 @@
+**Useful Camera Footage in Guthrie Case Proves Elusive**\
+`The lack of helpful video footage in Nancy Guthrie’s community may be hindered by several factors, experts say.`\
+https://nytimes.com/2026/02/15/us/nancy-guthrie-video-cameras.html
+
 **Nick Castellanos eager for fresh start with Padres after messy Phillies exit**\
 `Castellanos could see some time at first base, a position he's never played professionally but worked on during the offseason.`\
 https://nytimes.com/athletic/7048879/2026/02/15/nick-castellanos-padres-phillies-exit/
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/business/netflix-warner-bros-discovery-paramount.
 **Hot mic catches Matthew Tkachuk's taunt of Leon Draisaitl: 'Always the bridesmaid'**\
 `If there’s one thing Tkachuk has learned, it’s to throw everything he has at Draisaitl. Including words.`\
 https://nytimes.com/athletic/7048956/2026/02/15/matthew-tkachuk-hot-mic-leon-draisaitl-olympics-hockey/
-
-**Tyler Reddick lifts Michael Jordan's 23XI Racing to Daytona 500 win**\
-`Takeaways from The Athletic's reporters from an "only in NASCAR!" finish at the Daytona 500.`\
-https://nytimes.com/athletic/7048917/2026/02/15/tyler-reddick-michael-jordan-daytona-500/
 
