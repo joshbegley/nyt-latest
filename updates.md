@@ -1,3 +1,7 @@
+**French hockey player removed from team for violating 'Olympic spirit'**\
+`The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
+https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
+
 **Aaron Judge says right elbow won't need surgery after last year's scare**\
 `Judge suffered a flexor tendon strain last season but said the elbow is now "feeling great" and that he's throwing with confidence. `\
 https://nytimes.com/athletic/7050923/2026/02/16/aaron-judge-yankees-elbow-injury-surgery/
