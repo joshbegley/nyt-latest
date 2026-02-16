@@ -1,3 +1,7 @@
+**MLB TV strike zone box won't indicate balls or strikes due to ABS system**\
+`The strike zone box can still be utilized on TV, but it will be on viewers to guess as to whether or not the pitch was a ball or strike.`\
+https://nytimes.com/athletic/7049182/2026/02/15/mlb-tv-strike-zone-box-balls-strikes-abs/
+
 **Celtics' Jaylen Brown criticizes police for shutting down panel during NBA All-Star Weekend**\
 `Brown said police ended an event held at 7 p.m. at a Beverly Hills mansion Saturday night, costing him “hundreds of thousands of dollars.”`\
 https://nytimes.com/athletic/7049229/2026/02/15/jaylen-brown-beverley-hills-police/
