@@ -1,3 +1,7 @@
+**Browns safety Ronnie Hickman assaulted by group in New York**\
+`Hickman suffered minor injuries in the attack and is resting with his family, the Browns said.`\
+https://nytimes.com/athletic/7050831/2026/02/16/browns-safety-ronnie-hickman-assaulted-new-york/
+
 **Elana Meyers Taylor wins monobob for first Olympic gold, sixth career medal**\
 `The 41-year-old American bobsledder, winner of five previous Olympic medals across the last four Games but never gold, got it done Monday.`\
 https://nytimes.com/athletic/7050927/2026/02/16/elana-meyers-taylor-monobob-gold-medal-winter-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/nancy-guthrie-search.html
 **Where to Watch Robert Duvall’s Top Performances**\
 `He played rugged, capable men drawn from America’s past, present and possible future.`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html
-
-**Mexican Open will not serve meat in player restaurant due to doping contamination concerns**\
-`A document circulated ahead of the 2026 edition offered advice on getting sufficient protein from other sources like fish and eggs.`\
-https://nytimes.com/athletic/7050589/2026/02/16/mexican-open-tennis-meat-doping/
 
