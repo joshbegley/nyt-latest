@@ -1,3 +1,7 @@
+**The Pulse: Baseball is nigh**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7049488/2026/02/16/mlb-spring-training-storylines-the-pulse/
+
 **Panthers big board 1.0: Targeting edge rushers, off-ball LBs, WRs in first round**\
 `The Panthers did well in drafting Tetairoa McMillan in the first round last year. Who are their potential targets — especially on defense?`\
 https://nytimes.com/athletic/7048259/2026/02/16/panthers-nfl-draft-big-board-pass-rusher/
