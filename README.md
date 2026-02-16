@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7049887/2026/02/16/usa-womens-hockey-2026-olympics-
 https://nytimes.com/athletic/7049990/2026/02/16/houston-basketball-kelvin-sampson-ucla-mick-cronin/
 
 **Hill, Chubb released by Dolphins as roster overhaul begins in Miami**\
-`Injuries have been a factor during his time with the Dolphins.`\
+`Hill played in only four games during the 2025 season, his fourth with the Dolphins. Chubb suffered multiple injuries with Miami. `\
 https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
 
 **Superlatives for every new MLS kit: From the most fun to the most haunting**\
