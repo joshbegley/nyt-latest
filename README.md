@@ -1,3 +1,7 @@
+**USMNT Tracker: Agyemang and McKennie turn heads as Pulisic returns**\
+`Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
+https://nytimes.com/athletic/7049789/2026/02/16/usmnt-agyemang-mckennie-pulisic-world-cup/
+
 **The Athletic college baseball Top 25: LSU takes over top spot; Oklahoma cracks top 10**\
 `Oklahoma and Michigan enter the top 25 after strong opening weekends at neutral sites. `\
 https://nytimes.com/athletic/7049988/2026/02/16/college-baseball-ranking-lsu-ucla-arkansas/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
 **Olympic skier throws poles, heads for woods after missing gate with gold in reach**\
 `A heartbroken Atle Lie McGrath walked off the course after failing to finish his second run in the men's slalom. `\
 https://nytimes.com/athletic/7049754/2026/02/16/winter-olympics-atle-lie-mcgrath-slalom-2026/
-
-**Packers mailbag: Submit questions for beat writer Matt Schneidman**\
-`Tell us what’s on your mind as the draft and free agency approach.`\
-https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questions-draft/
 
