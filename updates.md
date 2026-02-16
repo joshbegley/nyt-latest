@@ -1,3 +1,15 @@
+**Meet the coach with his fingerprints over the U.S. women's and men's Olympic hockey teams**\
+`John Wroblewski is guiding the top-ranked women's team in the world. He also helped mold some of the U.S. men's team's brightest players.`\
+https://nytimes.com/athletic/7048133/2026/02/16/john-wroblewski-team-usa-olympics-womens-hockey-men/
+
+**If the NBA is serious about looking at everything to end tanking ... it's about time**\
+`The lottery and draft are corporate welfare for sports teams. How should the NBA go about correcting tanking in efforts to win the lottery?`\
+https://nytimes.com/athletic/7048722/2026/02/16/nba-adam-silver-tanking-draft-solutions/
+
+**Neymar records assist on return from knee injury in 6-0 Santos win**\
+`The 34-year-old came on as a half-time substitute in his first appearance since undergoing arthroscopy surgery on his knee in December.`\
+https://nytimes.com/athletic/7049588/2026/02/16/neymar-injury-return-brazil-santos/
+
 **Syria Crosses a Threshold**\
 `The advance of the Syrian Army into Kurdish regions could put nearly all the country under one authority. But it ends a dream of autonomy for ethnic Kurds.`\
 https://nytimes.com/2026/02/16/world/middleeast/syria-army-kurds-war.html
