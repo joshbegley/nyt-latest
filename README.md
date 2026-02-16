@@ -1,3 +1,7 @@
+**Columbia Punishes 2 Who Helped Epstein’s Girlfriend Enter Dental College**\
+`The release of documents tied to Jeffrey Epstein has sent ripples through the worlds of business, politics and academia, including at Columbia, where he helped his girlfriend gain entry.`\
+https://nytimes.com/2026/02/16/nyregion/columbia-epstein-dental-shuliak.html
+
 **Review: ‘The Tragedy of Coriolanus’ Swerves Off Course**\
 `Theater for a New Audience’s reimagining of the Shakespearean tragedy misses an opportunity to engage the play’s many echoes with our own tense era.`\
 https://nytimes.com/2026/02/16/theater/the-tragedy-of-coriolanus-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figur
 **NBA Power Rankings post-All-Star Break: A new No. 1 as we head into the second half**\
 `The Thunder started the season as hot as any team could. But at the break, two upstarts have surpassed the defending champs in our rankings.`\
 https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-break-pistons-spurs/
-
-**Champions League play-offs: Real Madrid, Newcastle and other games to watch**\
-`Europe's premier club competition is back, but which knockout ties should you be watching?`\
-https://nytimes.com/athletic/7050119/2026/02/16/champions-league-playoffs-odds-real-madrid-and-newcastle/
 
