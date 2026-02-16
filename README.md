@@ -1,3 +1,7 @@
+**Auditioning to Beat Trump**\
+`Democrats like A.O.C. are testing out their messages in Europe before the midterms.`\
+https://nytimes.com/2026/02/16/world/trump-democrats-midterms-aoc-iran.html
+
 **Frederick Wiseman, 96, Penetrating Documentarian of Institutions, Dies**\
 `He exposed abuses in films like “Titicut Follies,” a once-banned portrait of a mental hospital, but ranged widely in subject matter, from a Queens neighborhood to a French restaurant.`\
 https://nytimes.com/2026/02/16/movies/frederick-wiseman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050872/2026/02/16/winter-olympics-ski-jumping-snow
 **Police Respond to Shooting at a Rhode Island Hockey Arena**\
 `The authorities said they were responding on Monday to a shooting at the Dennis M. Lynch Arena in Pawtucket, where a high school hockey game was scheduled.`\
 https://nytimes.com/2026/02/16/us/hockey-game-shooting-pawtucket-rhode-island.html
-
-**Senators Meet Zelensky With Hopeful Message on Sanctions**\
-`During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
-https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
 

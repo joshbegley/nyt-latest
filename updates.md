@@ -1,3 +1,11 @@
+**Frederick Wiseman, 96, Penetrating Documentarian of Institutions, Dies**\
+`He exposed abuses in films like “Titicut Follies,” a once-banned portrait of a mental hospital, but ranged widely in subject matter, from a Queens neighborhood to a French restaurant.`\
+https://nytimes.com/2026/02/16/movies/frederick-wiseman-dead.html
+
+**French hockey player removed from Olympic team for violating 'Olympic spirit' after fight**\
+`The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
+https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
+
 **Tom Pritzker, Citing Epstein Connection, Steps Down as Hyatt’s Executive Chairman**\
 `The member of a prominent and wealthy family, Mr. Pritzker was in regular contact with the financier and sex offender Jeffrey Epstein.`\
 https://nytimes.com/2026/02/16/us/politics/tom-pritzker-hyatt-epstein.html
