@@ -1,3 +1,7 @@
+**Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
+`Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
+https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/
+
 **Teacher Killed in Crash After Man Fled in Car From ICE, Police Say**\
 `The man, who federal officials said had entered the United States illegally, was arrested and charged with first-degree homicide after the crash in Savannah, Ga., according to the county police.`\
 https://nytimes.com/2026/02/16/us/georgia-ice-car-crash-teacher-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/nancy-guthrie-dna-testing.html
 **Canada women's hockey team advances to Olympic gold medal game as Poulin makes history**\
 `Marie-Philip Poulin passed Hayley Wickenheiser for career Olympic goals, and Canada will face the U.S. in Thursday's gold medal game.`\
 https://nytimes.com/athletic/7050704/2026/02/16/canada-womens-hockey-gold-medal-game-usa/
-
-**Japan pair knocks the king and queen off their thrones.**\
-`Riku Miura and Ryuichi Kihara of Japan emerged with the gold medal with a flawless, high-scoring performance after Monday’s free skate.`\
-https://nytimes.com/2026/02/16/world/japan-figure-skating-pairs-gold-medal.html
 
