@@ -1,3 +1,7 @@
+**How to watch Houston vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7050825/2026/02/16/houston-vs-iowa-state-stream-how-to-watch-feb-16/
+
 **Lance McCullers Jr., a figurehead of Astros' golden era, 'content' at a career crossroads**\
 `“I've been in this organization since I was barely 18 years old," he said. "So it would be great to just have a nice last year here."`\
 https://nytimes.com/athletic/7050742/2026/02/16/lance-mccullers-jr-astros-career-crossroads/

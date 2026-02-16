@@ -1,3 +1,7 @@
+**How to watch Houston vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7050825/2026/02/16/houston-vs-iowa-state-stream-how-to-watch-feb-16/
+
 **Lance McCullers Jr., a figurehead of Astros' golden era, 'content' at a career crossroads**\
 `“I've been in this organization since I was barely 18 years old," he said. "So it would be great to just have a nice last year here."`\
 https://nytimes.com/athletic/7050742/2026/02/16/lance-mccullers-jr-astros-career-crossroads/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-
 **Klopp agent claims he rejected interest from Chelsea and Man Utd**\
 `Manchester United and Chelsea both denied they made any enquiry for Klopp when approached by The Athletic.`\
 https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-united/
-
-**Robert Duvall, a Chameleon of an Actor Onscreen and Onstage, Dies at 95**\
-`An Oscar winner, he was known for disappearing into wide-ranging roles in movies like “Apocalypse Now” and “The Godfather” and in the television series “Lonesome Dove.”`\
-https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
 
