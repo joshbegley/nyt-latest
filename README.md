@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7049095/2026/02/15/nba-all-star-saturday-tickets-affordability/
 
 **2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
-`Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
+`Mikaela Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
 https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
 
 **What we'd change about NBA All-Star Weekend: Make stars dunk? Hold the event abroad?**\
