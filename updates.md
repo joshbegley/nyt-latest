@@ -1,3 +1,7 @@
+**Lance McCullers Jr., a figurehead of Astros' golden era, 'content' at a career crossroads**\
+`“I've been in this organization since I was barely 18 years old," he said. "So it would be great to just have a nice last year here."`\
+https://nytimes.com/athletic/7050742/2026/02/16/lance-mccullers-jr-astros-career-crossroads/
+
 **Robert Duvall, a Chameleon of an Actor Onscreen and Onstage, Dies at 95**\
 `An Oscar winner, he was known for disappearing into wide-ranging roles in movies like “Apocalypse Now” and “The Godfather” and in the television series “Lonesome Dove.”`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html

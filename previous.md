@@ -1,3 +1,7 @@
+**Lance McCullers Jr., a figurehead of Astros' golden era, 'content' at a career crossroads**\
+`“I've been in this organization since I was barely 18 years old," he said. "So it would be great to just have a nice last year here."`\
+https://nytimes.com/athletic/7050742/2026/02/16/lance-mccullers-jr-astros-career-crossroads/
+
 **As Guthrie Case Grips Nation, One Police Chief Reflects on His Time in the Spotlight**\
 `“It’s probably something that no one ever expects to happen in their career,” said James Fry, who was the police chief in Moscow, Idaho, when four students were killed there in 2022.`\
 https://nytimes.com/2026/02/16/us/nancy-guthrie-police-idaho-murders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-
 **Robert Duvall, a Chameleon of an Actor Onscreen and Onstage, Dies at 95**\
 `An Oscar winner, he was known for disappearing into wide-ranging roles in movies like “Apocalypse Now” and “The Godfather” and in the television series “Lonesome Dove.”`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
-
-**IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
-`The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
-https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
 
