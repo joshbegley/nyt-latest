@@ -1,3 +1,15 @@
+**Grading the new USA vs. the World NBA All-Star format (hint: It's fun!)**\
+`How did the new USA vs. the World format play out? Did it make the All-Star Game more watchable? Heighten the level of competition?`\
+https://nytimes.com/athletic/7048817/2026/02/15/nba-all-star-format-grades-2026/
+
+**NBA All-Star is fun again? First-of-its-kind format leads to surprisingly competitive event**\
+`The NBA's round-robin tournament on Sunday was a true success: The players actually tried (for the most part) and the event was lively. `\
+https://nytimes.com/athletic/7048839/2026/02/15/team-usa-stars-wins-nba-all-star-game-2026/
+
+**Kansas State to part ways with head coach Jerome Tang: Source**\
+`The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
+https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
+
 **NBA All-Star is fun again? First-of-its-kind format leads to surprisingly competitive event**\
 `The NBA's round-robin tournament on Sunday was a true success: The players actually tried (for the most part) and the event was lively. `\
 https://nytimes.com/athletic/7048839/2026/02/15/team-xxx-wins-nba-all-star-game-2026/
