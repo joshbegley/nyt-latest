@@ -2,7 +2,7 @@
 `Despite having the lowest athletics budget of any power conference school, Houston men's basketball remains a national title contender.`\
 https://nytimes.com/athletic/7049990/2026/02/16/houston-basketball-kelvin-sampson-ucla-mick-cronin/
 
-**Miami Dolphins release Tyreek Hill and Bradley Chubb, among others**\
+**Tyreek Hill, Bradley Chubb released by Dolphins as roster overhaul beings in Miami: Sources**\
 `Injuries have been a factor during his time with the Dolphins.`\
 https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
 
