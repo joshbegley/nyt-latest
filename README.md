@@ -1,3 +1,7 @@
+**The NBA All-Star format was a win. Can it get people to care again?**\
+`More All-Star Sundays like this will bring back a lot of what the NBA is aiming for.`\
+https://nytimes.com/athletic/7049130/2026/02/16/2026-nba-all-star-format-public-opinion/
+
 **New N.B.A. All-Star Game Format Leads to Surprisingly Competitive Play**\
 `There were buzzer beaters and competitive games in a new, round-robin N.B.A. All-Star tournament that pitted American and international basketball stars against one another.`\
 https://nytimes.com/video/sports/basketball/100000010715254/new-nba-all-star-game-format-leads-to-surprisingly-competitive-play.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/upshot/trumps-approval-midterm-elections.html
 **Iran’s Protests Have Ended, but the Anger and Pain Haven’t**\
 `In the aftermath of another wave of antigovernment unrest, Iran is gripped by a mood of collective grief and uncertainty about the future.`\
 https://nytimes.com/2026/02/16/world/middleeast/iran-protests-crackdown-mood.html
-
-**With Latest Rollback, the U.S. Essentially Has No Clean-Car Rules**\
-`The E.P.A.’s killing of the “endangerment finding” caps a year of deregulation that is likely to make cars thirstier for gas and less competitive globally, experts say.`\
-https://nytimes.com/2026/02/16/climate/endangerment-finding-auto-emissions-regulations.html
 
