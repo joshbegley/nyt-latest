@@ -1,3 +1,7 @@
+**Breanna Stewart signing with Euro League team, will join after Unrivaled**\
+`Stewart recently played with the Turkish club in 2023. `\
+https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba-unrivaled/
+
 **Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
 `Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
 https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/

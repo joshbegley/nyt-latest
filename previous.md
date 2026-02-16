@@ -1,3 +1,7 @@
+**Breanna Stewart signing with Euro League team, will join after Unrivaled**\
+`Stewart recently played with the Turkish club in 2023. `\
+https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba-unrivaled/
+
 **Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
 `Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
 https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049922/2026/02/16/padres-john-seidler-sale-team-in
 **Investigators Hope DNA Testing Can Provide Breakthrough in Guthrie Case**\
 `An expert said lab analysis of gloves found near Nancy Guthrie’s home could produce results within days.`\
 https://nytimes.com/2026/02/16/us/nancy-guthrie-dna-testing.html
-
-**Canada women's hockey team advances to Olympic gold medal game as Poulin makes history**\
-`Marie-Philip Poulin passed Hayley Wickenheiser for career Olympic goals, and Canada will face the U.S. in Thursday's gold medal game.`\
-https://nytimes.com/athletic/7050704/2026/02/16/canada-womens-hockey-gold-medal-game-usa/
 

@@ -1,3 +1,7 @@
+**Oscar-Winning Actor Robert Duvall Dies at 95**\
+`Robert Duvall, an Academy Award-winning actor known for playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” died on Sunday.`\
+https://nytimes.com/video/obituaries/100000010716084/godfather-actor-robert-duvall-dies.html
+
 **Breanna Stewart signing with Euro League team, will join after Unrivaled**\
 `Stewart recently played with the Turkish club in 2023. `\
 https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba-unrivaled/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050843/2026/02/16/aaron-judge-team-usa-wbc-captain
 **Padres chairman says club drawing ‘tremendous interest’ in sale process**\
 `The sales process has recently appeared to gain momentum after the resolution of a family fight over control of the franchise.`\
 https://nytimes.com/athletic/7049922/2026/02/16/padres-john-seidler-sale-team-interest/
-
-**Investigators Hope DNA Testing Can Provide Breakthrough in Guthrie Case**\
-`An expert said lab analysis of gloves found near Nancy Guthrie’s home could produce results within days.`\
-https://nytimes.com/2026/02/16/us/nancy-guthrie-dna-testing.html
 
