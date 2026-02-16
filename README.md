@@ -1,3 +1,11 @@
+**New N.B.A. All-Star Game Format Leads to Surprisingly Competitive Play**\
+`There were buzzer beaters and competitive games in a new, round-robin N.B.A. All-Star tournament that pitted American and international basketball stars against one another.`\
+https://nytimes.com/video/sports/basketball/100000010715254/new-nba-all-star-game-format-leads-to-surprisingly-competitive-play.html
+
+**In reviving the All-Star Game, Victor Wembanyama furthers his case as NBA's next face**\
+`We can all see where this thing is going. Victor Wembanyama is taking the reins.`\
+https://nytimes.com/athletic/7049374/2026/02/16/victor-wembanyama-all-star-game-face-of-nba/
+
 **How to watch Iowa vs. Nebraska women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7049593/2026/02/16/iowa-vs-nebraska-stream-how-to-watch-feb-16/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/world/middleeast/iran-protests-crackdown-mood.htm
 **With Latest Rollback, the U.S. Essentially Has No Clean-Car Rules**\
 `The E.P.A.’s killing of the “endangerment finding” caps a year of deregulation that is likely to make cars thirstier for gas and less competitive globally, experts say.`\
 https://nytimes.com/2026/02/16/climate/endangerment-finding-auto-emissions-regulations.html
-
-**Should I Dress Like My Younger Co-Workers?**\
-`Office attire has morphed significantly over the years. Our critic shares her thoughts on sticking to your style versus changing with the times.`\
-https://nytimes.com/2026/02/16/fashion/work-clothes-advice.html
-
-**From One President to Another, a Love Letter With an Edge**\
-`To open a series of essays about U.S. presidents, George W. Bush pays tribute to George Washington, who “ensured America wouldn’t become a monarchy, or worse.”`\
-https://nytimes.com/2026/02/16/arts/george-washington-bush-presidential-essays.html
 
