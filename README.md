@@ -1,3 +1,7 @@
+**The Pulse: Baseball is nigh**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7049488/2026/02/16/mlb-spring-training-storylines-the-pulse/
+
 **Panthers big board 1.0: Targeting edge rushers, off-ball LBs, WRs in first round**\
 `The Panthers did well in drafting Tetairoa McMillan in the first round last year. Who are their potential targets — especially on defense?`\
 https://nytimes.com/athletic/7048259/2026/02/16/panthers-nfl-draft-big-board-pass-rusher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049018/2026/02/16/nhl-weekend-rankings-olympics-me
 **Olympics hockey vibe check: Switzerland and Slovakia surprise, goalie highs and lows**\
 `Plus the mystery of Filip Forsberg's ice time, the young stars leading the American women's team, and the Canadian men's nuclear line.`\
 https://nytimes.com/athletic/7049022/2026/02/16/olympics-hockey-vibe-check-switzerland-slovakia-canada-usa-goalies/
-
-**When A.I. Comes to Town: The Backlash Over Data Centers**\
-`How one county in Indiana has reacted to artificial intelligence projects in its community.`\
-https://nytimes.com/2026/02/16/podcasts/the-daily/ai-data-centers-backlash.html
 
