@@ -1,3 +1,11 @@
+**9 Arrested Over Suspected $12 Million Louvre Ticket Scam**\
+`The Paris prosecutor’s office said that a network involving museum employees and tour guides had been operating for a decade. Investigators also believe the fraud occurred at Versailles Palace.`\
+https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
+
+**Cloudflare Reports Issues as X and Amazon Web Services Are Disrupted**\
+`Cloudflare, the tech company that provides services for a wide range of apps and websites, said it was working to fix an internal issue.`\
+https://nytimes.com/2026/02/16/technology/cloudflare-outage-aws-x-down.html
+
 **Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
 `Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Mr. Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
 https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-pale
 **Bundesliga Briefing: Gruda is back, another Karl stepover and Maye lifts the Meisterschale**\
 `Brajan Gruda looks rejuvenated, Lennart Karl is not affected by his viral moment and credit on and off the field to Borussia Dortmund`\
 https://nytimes.com/athletic/7049678/2026/02/16/bundesliga-gruda-karl-ryerson/
-
-**Latest Updates: In New Video, Savannah Guthrie Calls on Abductor to ‘Do the Right Thing’**\
-``\
-https://nytimes.com/live/2026/02/16/us/nancy-guthrie-case-updates
-
-**Why Harry Potter Still Inspires Us**\
-`Reader disagree with a guest essay that argued that the books feel dated and irrelevant today. Also: What A.I. can’t do in medicine.`\
-https://nytimes.com/2026/02/16/opinion/harry-potter.html
 

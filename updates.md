@@ -1,3 +1,15 @@
+**Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
+`Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Mr. Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
+https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
+
+**Olympic skier throws poles, heads for woods after missing gate with gold in reach**\
+`A heartbroken Atle Lie McGrath walked off the course after failing to finish his second run in the men's slalom. `\
+https://nytimes.com/athletic/7049754/2026/02/16/winter-olympics-atle-lie-mcgrath-slalom-2026/
+
+**Packers mailbag: Submit questions for beat writer Matt Schneidman**\
+`Tell us what’s on your mind as the draft and free agency approach.`\
+https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questions-draft/
+
 **No Corrections: Feb. 16, 2026**\
 `No corrections appeared in print on Monday, Feb. 16, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html

@@ -1,3 +1,15 @@
+**Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
+`Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Mr. Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
+https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
+
+**Olympic skier throws poles, heads for woods after missing gate with gold in reach**\
+`A heartbroken Atle Lie McGrath walked off the course after failing to finish his second run in the men's slalom. `\
+https://nytimes.com/athletic/7049754/2026/02/16/winter-olympics-atle-lie-mcgrath-slalom-2026/
+
+**Packers mailbag: Submit questions for beat writer Matt Schneidman**\
+`Tell us what’s on your mind as the draft and free agency approach.`\
+https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questions-draft/
+
 **No Corrections: Feb. 16, 2026**\
 `No corrections appeared in print on Monday, Feb. 16, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/16/us/nancy-guthrie-case-updates
 **Why Harry Potter Still Inspires Us**\
 `Reader disagree with a guest essay that argued that the books feel dated and irrelevant today. Also: What A.I. can’t do in medicine.`\
 https://nytimes.com/2026/02/16/opinion/harry-potter.html
-
-**Swedish soccer club asks supporters for donations to re-sign fan favourite**\
-`Ostersund have until Sunday to raise 200,000 SEK ($22,326) to sign Curtis Edwards, who currently plays for English side Gateshead.`\
-https://nytimes.com/athletic/7049780/2026/02/16/ostersund-crowdfunding-transfer-curtis-edwards/
-
-**Indonesia Says It’s Preparing Thousands of Peacekeeping Troops for Trump’s Gaza Plan**\
-`President Prabowo Subianto of Indonesia will be among those meeting with President Trump in Washington this week to discuss his Board of Peace initiative to oversee a cease-fire in Gaza.`\
-https://nytimes.com/2026/02/16/us/politics/indonesia-peacekeeping-troops-trump-gaza.html
-
-**Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
-``\
-https://nytimes.com/live/2026/02/16/us/president-trump-news
 
