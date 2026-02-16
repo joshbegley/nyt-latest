@@ -1,3 +1,7 @@
+**Collin Morikawa triumphs at Pebble Beach for first PGA Tour win since 2023**\
+`After claiming the dramatic victory, Morikawa announced that he and his wife are expecting their first child later this year.`\
+https://nytimes.com/athletic/7048960/2026/02/15/collin-morikawa-wins-pebble-beach-pro-am-pga/
+
 **Warner Bros. Is Said to Consider Reopening Talks With Paramount**\
 `Warner Bros. Discovery had agreed to sell itself to Netflix, but its contract allows it to pursue offers that may lead to a superior deal.`\
 https://nytimes.com/2026/02/15/business/netflix-warner-bros-discovery-paramount.html
