@@ -1,8 +1,12 @@
+**NBA All-Star is fun again? First-of-its-kind format leads to surprisingly competitive event**\
+`The NBA's round-robin tournament on Sunday was a true success: The players actually tried (for the most part) and the event was lively. `\
+https://nytimes.com/athletic/7048839/2026/02/15/team-xxx-wins-nba-all-star-game-2026/
+
 **Diplomatic Feud With China Weighs on Japan’s Economy**\
 `A standoff over the security of Taiwan has led to a steep decline in the number of Chinese visitors to Japan, which is heavily dependent on the tourists.`\
 https://nytimes.com/2026/02/15/business/japan-economy-china-tourism.html
 
-**Kansas State to parts ways with head coach Jerome Tang: Sources**\
+**Kansas State to part ways with head coach Jerome Tang: Sources**\
 `The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinatti. `\
 https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
 
