@@ -1,40 +1,40 @@
-**Confessions of a Former Body Positivity Influencer**\
-`Can you love your body and still want to lose weight?`\
-https://nytimes.com/video/opinion/100000010664285/body-positivity-social-media-weight-loss.html
+**I Hold Pam Bondi in Contempt**\
+`Insult everyone. Answer for nothing.`\
+https://nytimes.com/2026/02/16/opinion/pam-bondi-trump.html
 
-**Your Brain on Ping Pong, Ilia Malinin’s Dominance and Saving the N.B.A. All Star Game**\
-`The Athletic Show explores why you should trade your running shoes for a paddle and more.`\
-https://nytimes.com/2026/02/16/podcasts/ping-pong-brain-ilia-malinin-nba-all-star-game.html
+**Abe Lincoln Fans Gather for Mutton Hunks and a Vintage American Flag**\
+`An old Manhattan steakhouse is the new home for the Stars and Stripes that draped the 16th president’s casket.`\
+https://nytimes.com/2026/02/16/style/abraham-lincoln-flag-keens.html
 
-**At Olympic ski jumping, he has an all-important job: Measure the wind**\
-`We watched Sunday's Olympic women's large hill competition from inside the jury room, where Miran Tepeš works to keep ski jumpers safe.`\
-https://nytimes.com/athletic/7049518/2026/02/16/winter-olympics-ski-jumping-tower-wind-miran-tepes/
+**Why an A.I. Video of Tom Cruise Battling Brad Pitt Spooked Hollywood**\
+`A 15-second clip created by an artificial intelligence tool owned by the Chinese technology company ByteDance appears more cinematic than anything so far.`\
+https://nytimes.com/2026/02/16/movies/tom-cruise-brad-pitt-artificial-intelligence-seedance.html
 
-**When Did Chicken Become the Most Expensive Thing on the Menu?**\
-`The once-humble plate of poultry has been elevated to luxury status, with prices hitting $50 or more.`\
-https://nytimes.com/2026/02/16/t-magazine/chicken-rising-prices-restaurants.html
+**How Much Will Trump’s Approval Rating Matter in the Midterms?**\
+`It’s not too early to consider the connection, and readers also have questions about the economy.`\
+https://nytimes.com/2026/02/16/upshot/trumps-approval-midterm-elections.html
 
-**How the U.S. Army helped make Frank Del Duca an Olympic bobsledder**\
-`Del Duca always loved a good adrenaline rush, but track wasn't working out. Then along came bobsled and a special U.S. Army program.`\
-https://nytimes.com/athletic/7047796/2026/02/16/winter-olympics-2026-bobsledding-usa-frank-del-duca/
+**Iran’s Protests Have Ended, but the Anger and Pain Haven’t**\
+`In the aftermath of another wave of antigovernment unrest, Iran is gripped by a mood of collective grief and uncertainty about the future.`\
+https://nytimes.com/2026/02/16/world/middleeast/iran-protests-crackdown-mood.html
 
-**New York Needs Lifeguards. Would These Teens Make the Cut?**\
-`To qualify for a job patrolling the city’s beaches and pools, candidates must swim 50 yards in 50 seconds or less.`\
-https://nytimes.com/2026/02/16/nyregion/nyc-lifeguard-test.html
+**With Latest Rollback, the U.S. Essentially Has No Clean-Car Rules**\
+`The E.P.A.’s killing of the “endangerment finding” caps a year of deregulation that is likely to make cars thirstier for gas and less competitive globally, experts say.`\
+https://nytimes.com/2026/02/16/climate/endangerment-finding-auto-emissions-regulations.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/16/crosswords/spelling-bee-forum.html
+**Should I Dress Like My Younger Co-Workers?**\
+`Office attire has morphed significantly over the years. Our critic shares her thoughts on sticking to your style versus changing with the times.`\
+https://nytimes.com/2026/02/16/fashion/work-clothes-advice.html
 
-**Their town was destroyed 40 years ago. Now, the Olympics have arrived**\
-`In 1985, a dam failed and a lethal wave consumed the Stava valley, killing 268 just a few miles from where the Olympics are now unfolding.`\
-https://nytimes.com/athletic/7042673/2026/02/16/tesero-dam-disaster-winter-olympics-cross-country/
+**From One President to Another, a Love Letter With an Edge**\
+`To open a series of essays about U.S. presidents, George W. Bush pays tribute to George Washington, who “ensured America wouldn’t become a monarchy, or worse.”`\
+https://nytimes.com/2026/02/16/arts/george-washington-bush-presidential-essays.html
 
-**Interview with Benfica's goalkeeper who scored against Madrid: 'It was like I was a striker. It was crazy'**\
-`His 98th-minute goal sent his team into the Champions League playoffs - he discusses that moment and his hopes for his homeland Ukraine`\
-https://nytimes.com/athletic/7033313/2026/02/16/anatoliy-trubin-benfica-goalkeeper-interview/
+**‘A Superstar Is From Here’: Pride of Cleveland Suburb Soars for U.S. Hockey**\
+`The Olympic journey of Laila Edwards, the first Black woman to play for the U.S. hockey team, has captivated her hometown, Cleveland Heights.`\
+https://nytimes.com/2026/02/16/us/laila-edwards-olympics-cleveland-heights.html
 
-**Tre' Johnson, former Washington offensive lineman turned teacher, dies at 54**\
-`Johnson, who played eight of his nine seasons with Washington, died on a brief family trip, his wife, Irene, posted on social media.`\
-https://nytimes.com/athletic/7049458/2026/02/16/washington-tre-johnson-dead/
+**Crotch Fabric, Blue Skin Suits and Other Oddities of Olympic Gear**\
+`Before going for the gold, athletes at the Winter Games must check their apparel and equipment. Or else.`\
+https://nytimes.com/2026/02/16/style/crotch-fabric-blue-skin-suits-and-other-oddities-of-olympic-gear.html
 

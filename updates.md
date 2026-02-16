@@ -1,3 +1,7 @@
+**Confessions of a Former Body Positivity Influencer**\
+`Can you love your body and still want to lose weight?`\
+https://nytimes.com/video/opinion/100000010664285/body-positivity-social-media-weight-loss.html
+
 **Your Brain on Ping Pong, Ilia Malinin’s Dominance and Saving the N.B.A. All Star Game**\
 `The Athletic Show explores why you should trade your running shoes for a paddle and more.`\
 https://nytimes.com/2026/02/16/podcasts/ping-pong-brain-ilia-malinin-nba-all-star-game.html
