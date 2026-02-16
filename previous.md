@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Michigan No. 1 for first time in 13 years; Arizona slips to No. 4**\
+`Arizona's two-month stay atop the poll ended after consecutive losses last week.`\
+https://nytimes.com/athletic/7050575/2026/02/16/ap-mens-basketball-top-25-michigan-houston-arizona/
+
 **FA Cup fifth-round draw: Wrexham host Chelsea, Arsenal to play Mansfield**\
 `The fifth-round ties will be played over the weekend of March 7-8.`\
 https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
 https://nytimes.com/athletic/7050491/2026/02/16/dodgers-tommy-edman-injury-ankle-surgery/
 
 **'Superman' catch and dazzling hundred leave Australia facing T20 humiliation**\
-`Pathum Nissanka's stunning performance leave one of cricket's superpowers on the brink of exiting the World T20`\
+`Pathum Nissanka's stunning performance leaves one of cricket's superpowers on the brink of exiting the World T20`\
 https://nytimes.com/athletic/7050378/2026/02/16/australia-sri-lanka-t20-world-cup-nissanka/
 
 **Scoop City: Tyreek Hill cut, John Harbaugh's schedule & the end of report cards**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-io
 **Vaccine Makers Curtail Research and Cut Jobs**\
 `Federal policies under Robert F. Kennedy Jr. that are hostile to vaccines have “sent a chill through the entire industry,” one scientist said.`\
 https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
-
-**Unbeaten USA women's hockey team advances to Olympic gold medal game after rout of Sweden**\
-`Team USA continued their dominance in the semifinals, steamrolling Sweden. They'll face either Canada or Switzerland for gold on Thursday.`\
-https://nytimes.com/athletic/7049887/2026/02/16/usa-womens-hockey-2026-olympics-sweden-score-results/
 

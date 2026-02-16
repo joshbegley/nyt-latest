@@ -1,3 +1,11 @@
+**AP men's hoops Top 25: Michigan No. 1 for first time in 13 years; Arizona slips to No. 4**\
+`Arizona's two-month stay atop the poll ended after consecutive losses last week.`\
+https://nytimes.com/athletic/7050575/2026/02/16/ap-mens-basketball-top-25-michigan-houston-arizona/
+
+**'Superman' catch and dazzling hundred leave Australia facing T20 humiliation**\
+`Pathum Nissanka's stunning performance leaves one of cricket's superpowers on the brink of exiting the World T20`\
+https://nytimes.com/athletic/7050378/2026/02/16/australia-sri-lanka-t20-world-cup-nissanka/
+
 **FA Cup fifth-round draw: Wrexham host Chelsea, Arsenal to play Mansfield**\
 `The fifth-round ties will be played over the weekend of March 7-8.`\
 https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
