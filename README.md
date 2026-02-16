@@ -1,3 +1,11 @@
+**What to watch on Day 10 at Winter Olympics: Women's hockey semis, curling, pairs skating**\
+`The two best women's hockey teams in the world appear headed toward a showdown for the gold medal.`\
+https://nytimes.com/athletic/7047092/2026/02/16/milan-cortina-winter-olympics-what-to-watch-day-10/
+
+**Wolves have avoided an FA Cup humbling - now they have to make it count**\
+`If ever an FA Cup tie was primed for an upset, it was on Grimsby's mudbath of a pitch, in pouring rain and a biting wind. But...`\
+https://nytimes.com/athletic/7048238/2026/02/16/wolves-grimsby-fa-cup/
+
 **On a day when Leeds’ supporting cast stuttered, Perri stepped into the spotlight**\
 `Farke’s six changes sucked any momentum and rhythm out of the line-up, but Perri’s success was the silver lining on a grey day`\
 https://nytimes.com/athletic/7048285/2026/02/16/leeds-united-fa-cup-penalty-shootout-perri/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7043928/2026/02/16/real-madrid-man-united-manager-j
 **Man Utd hired Omar Berrada to take them back to the top - can he do it?**\
 `The Manchester United chief executive has come under scrutiny following the firing of Ruben Amorim - a coach he fought to hire`\
 https://nytimes.com/athletic/6959660/2026/02/16/manchester-united-omar-berrada/
-
-**'It’s so competitive... it’s ridiculous': Inside the scouting at England vs USA U15s**\
-`The Athletic attends a match in Sotira, Cyprus to find scouts and agencies all attempting to find the next big football talent`\
-https://nytimes.com/athletic/7046780/2026/02/16/inside-scouting-england-u15s-us/
-
-**Serie A Briefing: Inter's Valentine's Day Derby d’Italia comeback delivered heartache to Juventus**\
-`Confrontation, simulation and condemnation, but Inter do not care - they are dominating the Italian league`\
-https://nytimes.com/athletic/7048166/2026/02/16/serie-a-briefing-inter-derby-ditalia/
 
