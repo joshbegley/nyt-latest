@@ -1,3 +1,15 @@
+**Review: ‘The Tragedy of Coriolanus’ Swerves Off Course**\
+`Theater for a New Audience’s reimagining of the Shakespearean tragedy misses an opportunity to engage the play’s many echoes with our own tense era.`\
+https://nytimes.com/2026/02/16/theater/the-tragedy-of-coriolanus-review.html
+
+**Submit your hockey questions for James Mirtle’s next mailbag**\
+`There&#8217;s certainly a lot going on in the hockey world right now.`\
+https://nytimes.com/athletic/7050353/2026/02/16/submit-your-hockey-questions-for-james-mirtles-next-mailbag/
+
+**Richard Ottinger, 97, Dies; Fought for the Environment in Congress**\
+`A New York Democrat, he spent 16 years in the House over two stretches, beginning in 1965, championing the health of the Hudson River and opposing the Vietnam War.`\
+https://nytimes.com/2026/02/16/us/politics/richard-ottinger-dead.html
+
 **Games Briefing: A U.S.-Canada rematch?**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7050328/2026/02/16/us-canada-olympics-hockey-games-briefing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-brea
 **Champions League play-offs: Real Madrid, Newcastle and other games to watch**\
 `Europe's premier club competition is back, but which knockout ties should you be watching?`\
 https://nytimes.com/athletic/7050119/2026/02/16/champions-league-playoffs-odds-real-madrid-and-newcastle/
-
-**How to watch Syracuse vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7050266/2026/02/16/syracuse-vs-duke-stream-how-to-watch-feb-16/
-
-**Should Drug Companies Be Advertising to Consumers?**\
-`Aging means “becoming a target” of the industry, one expert said. After decades of debate, politicians of all stripes are proposing bans.`\
-https://nytimes.com/2026/02/16/health/drug-advertisements-consumers.html
-
-**How the Visa Debate for Foreign Workers Fuels Racism Against South Asians**\
-`A dispute over the impact of H-1B visas on U.S. workers has been overshadowed by racist rhetoric, with troubling echoes of the great replacement conspiracy theory.`\
-https://nytimes.com/2026/02/16/us/politics/h1b-visa-debate-racism-south-asians.html
 
