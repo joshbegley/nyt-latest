@@ -1,3 +1,7 @@
+**Iran Holds Exercises in Strait of Hormuz After Trump Threatens Military Action**\
+`The day before nuclear talks were set to resume, Iran conducted live drills in the Strait of Hormuz, a strategic waterway for oil and gas shipments.`\
+https://nytimes.com/2026/02/16/world/middleeast/iran-strait-hormuz-exercise-talks-geneva-trump.html
+
 **Ilia Malinin posts first statement since Olympics disappointment**\
 `The U.S. star finished eighth in the men's singles in Milan, his first non-first-place finish in two years.`\
 https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/

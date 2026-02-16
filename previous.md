@@ -1,3 +1,7 @@
+**Iran Holds Exercises in Strait of Hormuz After Trump Threatens Military Action**\
+`The day before nuclear talks were set to resume, Iran conducted live drills in the Strait of Hormuz, a strategic waterway for oil and gas shipments.`\
+https://nytimes.com/2026/02/16/world/middleeast/iran-strait-hormuz-exercise-talks-geneva-trump.html
+
 **Ilia Malinin posts first statement since Olympics disappointment**\
 `The U.S. star finished eighth in the men's singles in Milan, his first non-first-place finish in two years.`\
 https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/16/books/review/revolutionary-reads-quiz
 **The Quiet Architect of Trump’s Global Trade War**\
 `Jamieson Greer, a low-key lawyer from a working-class background, is rewriting the rules of the global economy at the president’s behest.`\
 https://nytimes.com/2026/02/16/business/economy/jamieson-greer-trump-trade.html
-
-**How Spain Is Carving a Different Path on Immigration**\
-`The country is hoping its new amnesty for undocumented immigrants will avoid a public backlash.`\
-https://nytimes.com/2026/02/16/world/europe/spain-amnesty-immigration.html
 
