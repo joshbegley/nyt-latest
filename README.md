@@ -1,3 +1,7 @@
+**Why NBA All-Star Saturday looked so empty**\
+`On Sunday, in contrast, fans were standing outside the arena seeking tickets, but struggling to find anything remotely affordable.`\
+https://nytimes.com/athletic/7049095/2026/02/15/nba-all-star-saturday-tickets-affordability/
+
 **2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
 `Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
 https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/15/us/politics/kennedy-health-ultraprocessed-foods.h
 **2025 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home with an Indie Spirit Award on Sunday.`\
 https://nytimes.com/2026/02/15/style/2025-film-independent-spirit-awards-complete-winners-list.html
-
-**Useful Camera Footage in Guthrie Case Proves Elusive**\
-`The lack of helpful video footage in Nancy Guthrie’s community may be hindered by several factors, experts say.`\
-https://nytimes.com/2026/02/15/us/nancy-guthrie-video-cameras.html
 
