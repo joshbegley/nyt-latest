@@ -1,3 +1,19 @@
+**How the U.S. Army helped make Frank Del Duca an Olympic bobsledder**\
+`Del Duca always loved a good adrenaline rush, but track wasn't working out. Then along came bobsled and a special U.S. Army program.`\
+https://nytimes.com/athletic/7047796/2026/02/16/winter-olympics-2026-bobsledding-usa-frank-del-duca/
+
+**New York Needs Lifeguards. Would These Teens Make the Cut?**\
+`To qualify for a job patrolling the city’s beaches and pools, candidates must swim 50 yards in 50 seconds or less.`\
+https://nytimes.com/2026/02/16/nyregion/nyc-lifeguard-test.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/16/crosswords/spelling-bee-forum.html
+
+**Their town was destroyed 40 years ago. Now, the Olympics have arrived**\
+`In 1985, a dam failed and a lethal wave consumed the Stava valley, killing 268 just a few miles from where the Olympics are now unfolding.`\
+https://nytimes.com/athletic/7042673/2026/02/16/tesero-dam-disaster-winter-olympics-cross-country/
+
 **Interview with Benfica's goalkeeper who scored against Madrid: 'It was like I was a striker. It was crazy'**\
 `His 98th-minute goal sent his team into the Champions League playoffs - he discusses that moment and his hopes for his homeland Ukraine`\
 https://nytimes.com/athletic/7033313/2026/02/16/anatoliy-trubin-benfica-goalkeeper-interview/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/16/world/asia/xi-military-zhang-youxia-mao.html
 **What to watch on Day 10 at Winter Olympics: Women's hockey semis, curling, pairs skating**\
 `The two best women's hockey teams in the world appear headed toward a showdown for the gold medal.`\
 https://nytimes.com/athletic/7047092/2026/02/16/milan-cortina-winter-olympics-what-to-watch-day-10/
-
-**Wolves have avoided an FA Cup humbling - now they have to make it count**\
-`If ever an FA Cup tie was primed for an upset, it was on Grimsby's mudbath of a pitch, in pouring rain and a biting wind. But...`\
-https://nytimes.com/athletic/7048238/2026/02/16/wolves-grimsby-fa-cup/
-
-**On a day when Leeds’ supporting cast stuttered, Perri stepped into the spotlight**\
-`Farke’s six changes sucked any momentum and rhythm out of the line-up, but Perri’s success was the silver lining on a grey day`\
-https://nytimes.com/athletic/7048285/2026/02/16/leeds-united-fa-cup-penalty-shootout-perri/
-
-**Women's football clubs need to forge an identity beyond 'family friendly'**\
-`The challenges of growing regular matchgoers are common across the WSL — but Villa's managing director has a distinct plan for the club`\
-https://nytimes.com/athletic/7048468/2026/02/16/womens-football-identity-family-friendly/
-
-**Saka central, Eze deep. Is this the next phase of Arsenal’s attacking evolution?**\
-`The late changes and differences in roles for multiple players brought a sense of the unknown before kick-off, but Arteta's players thrived`\
-https://nytimes.com/athletic/7048321/2026/02/16/arsenal-fa-cup-wigan-saka-eze/
 
