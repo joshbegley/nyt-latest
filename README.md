@@ -1,3 +1,7 @@
+**Tre' Johnson, former Washington offensive lineman turned teacher, dies at 54**\
+`Johnson, who played eight of his nine seasons with Washington, died on a brief family trip, his wife, Irene, posted on social media.`\
+https://nytimes.com/athletic/7049458/2026/02/16/washington-tre-johnson-dead/
+
 **‘Star Search,’ Plus 7 Things to Watch on TV This Week**\
 `The finale of Netflix’s newest talent competition airs, and the second season of “The Last Thing He Told Me” premieres.`\
 https://nytimes.com/2026/02/16/arts/television/star-search-watch-on-tv-this-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7048321/2026/02/16/arsenal-fa-cup-wigan-saka-eze/
 **A new event debuted at these Winter Olympics. It was impossible not to watch**\
 `Dual moguls made its Olympic debut at Milan Cortina, and it proved to be an engrossing competition of mind games and tactics. `\
 https://nytimes.com/athletic/7048222/2026/02/16/dual-moguls-olympic-debut-milan-cortina/
-
-**Sharper finishing, smart runs and a penalty-box presence: Joao Pedro is now a proper No 9**\
-`The Chelsea striker has had a superb first season at the club and has helped fill such a vital position with ease`\
-https://nytimes.com/athletic/7047687/2026/02/16/joao-pedro-chelsea-striker/
 
