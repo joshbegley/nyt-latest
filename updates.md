@@ -1,3 +1,7 @@
+**What Gisèle Pelicot Survived**\
+`We present a story of extraordinary courage.`\
+https://nytimes.com/2026/02/16/briefing/what-gisele-pelicot-survived.html
+
 **Penguins trade tiers: Players and assets most likely to be dealt**\
 `The Penguins, in a playoff spot, are in an interesting position as the March 6 NHL trade deadline approaches.`\
 https://nytimes.com/athletic/7030873/2026/02/16/penguins-nhl-trade-deadline-tiers-dubas/

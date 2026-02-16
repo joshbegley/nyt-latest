@@ -1,3 +1,7 @@
+**What Gisèle Pelicot Survived**\
+`We present a story of extraordinary courage.`\
+https://nytimes.com/2026/02/16/briefing/what-gisele-pelicot-survived.html
+
 **Penguins trade tiers: Players and assets most likely to be dealt**\
 `The Penguins, in a playoff spot, are in an interesting position as the March 6 NHL trade deadline approaches.`\
 https://nytimes.com/athletic/7030873/2026/02/16/penguins-nhl-trade-deadline-tiers-dubas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7037962/2026/02/16/mls-cup-all-time-champions-30-te
 **2026 fantasy baseball Top 40 reliever rankings: From Mason Miller to Kyle Finnegan**\
 `In the ever-evolving ecosystem of MLB bullpens, Greg Jewett offers an initial ranking of his top 40 relievers for fantasy baseball 2026.`\
 https://nytimes.com/athletic/7041889/2026/02/16/2026-fantasy-baseball-top-40-reliever-rankings-from-mason-miller-to-kyle-finnegan/
-
-**Weekend rankings, Olympics edition: Ghosts, bridesmaids, a fight and more**\
-`The Olympics have already served up breakout stars, upset results and way more goal-difference math than expected. What's next?`\
-https://nytimes.com/athletic/7049018/2026/02/16/nhl-weekend-rankings-olympics-mens-hockey/
 
