@@ -1,3 +1,7 @@
+**Aaron Judge says right elbow won't need surgery after last year's scare**\
+`Judge suffered a flexor tendon strain last season but said the elbow is now "feeling great" and that he's throwing with confidence. `\
+https://nytimes.com/athletic/7050923/2026/02/16/aaron-judge-yankees-elbow-injury-surgery/
+
 **Auditioning to Beat Trump**\
 `Democrats like A.O.C. are testing out their messages in Europe before the midterms.`\
 https://nytimes.com/2026/02/16/world/trump-democrats-midterms-aoc-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050750/2026/02/16/eileen-gu-womens-freeski-big-air
 **Snowstorm brings early end, shakes up medals in Olympic ski jumping super team**\
 `The decision was great for Poland, which looked to have slipped off the medal stand in the canceled final round and ended up with silver.`\
 https://nytimes.com/athletic/7050872/2026/02/16/winter-olympics-ski-jumping-snowstorm-final-round-medals-poland/
-
-**Police Respond to Shooting at a Rhode Island Hockey Arena**\
-`The authorities said they were responding on Monday to a shooting at the Dennis M. Lynch Arena in Pawtucket, where a high school hockey game was scheduled.`\
-https://nytimes.com/2026/02/16/us/hockey-game-shooting-pawtucket-rhode-island.html
 
