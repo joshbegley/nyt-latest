@@ -1,3 +1,7 @@
+**Jerome Tang out at Kansas State, expected to be fired for cause: Source**\
+`The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
+https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
+
 **2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
 `Mikaela Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
 https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
