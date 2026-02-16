@@ -1,3 +1,11 @@
+**Heitinga leaves Tottenham assistant coach role after Tudor appointment**\
+`Fellow assistant coaches Justin Cochrane and Chris Haslam have also left the club following the sacking of Thomas Frank.`\
+https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/
+
+**No Corrections: Feb. 15, 2026**\
+`No corrections appeared in print on Sunday, Feb. 15, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-15-2026.html
+
 **Winter Olympics free speech row over worker's 'Free Palestine' message**\
 `An argument between a group of Israel fans and an employee in an official merchandise store was filmed and shared on social media.`\
 https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-palestine/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/16/us/president-trump-news
 **College hoops players from Asia hope to 'open the path' for more to follow**\
 `The number of international players in college basketball has soared since the 2009-10 season, but Asia remains a largely untapped market.`\
 https://nytimes.com/athletic/7048069/2026/02/16/college-basketball-asian-players-seattle-oregon/
-
-**Coco Gauff says people should not be 'dying in the streets just for existing' in U.S.**\
-`Gauff, 21, was asked at the Dubai Tennis Championships about experiencing domestic news as a traveling athlete.`\
-https://nytimes.com/athletic/7049660/2026/02/16/tennis-coco-gauff-us-politics/
-
-**Confessions of a Former Body Positivity Influencer**\
-`GLP1-s have exploded in popularity, and the body positivity movement is at a crossroads.`\
-https://nytimes.com/video/opinion/100000010675137/body-positivity-social-media-weight-loss-feed.html
 
