@@ -1,4 +1,8 @@
 **MLB TV strike zone box won't indicate balls or strikes due to ABS system**\
+`The strike zone box can still be used on TV, but it will be on viewers to guess as to whether the pitch was a ball or a strike.`\
+https://nytimes.com/athletic/7049182/2026/02/15/mlb-tv-strike-zone-box-balls-strikes-abs/
+
+**MLB TV strike zone box won't indicate balls or strikes due to ABS system**\
 `The strike zone box can still be utilized on TV, but it will be on viewers to guess as to whether or not the pitch was a ball or strike.`\
 https://nytimes.com/athletic/7049182/2026/02/15/mlb-tv-strike-zone-box-balls-strikes-abs/
 
