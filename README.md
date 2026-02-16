@@ -1,3 +1,7 @@
+**Teacher Killed in Crash After Man Fled in Car From ICE, Police Say**\
+`The man, who federal officials said had entered the United States illegally, was arrested and charged with first-degree homicide after the crash in Savannah, Ga., according to the county police.`\
+https://nytimes.com/2026/02/16/us/georgia-ice-car-crash-teacher-killed.html
+
 **Assessing Dodgers' options in their main battle of spring: Second base**\
 `The Dodgers don't typically have a lot of intrigue at spring training, but Tommy Edman's injury has created competition on the infield.`\
 https://nytimes.com/athletic/7051041/2026/02/16/dodgers-options-second-base/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050704/2026/02/16/canada-womens-hockey-gold-medal-
 **Japan pair knocks the king and queen off their thrones.**\
 `Riku Miura and Ryuichi Kihara of Japan emerged with the gold medal with a flawless, high-scoring performance after Monday’s free skate.`\
 https://nytimes.com/2026/02/16/world/japan-figure-skating-pairs-gold-medal.html
-
-**Hours after Tom Pohlad inspires Twins, Pablo López's early BP exit shows team's fragility**\
-`Even if López avoids major injury, the team is still fragile enough that a serious setback could upend its hope of contending.`\
-https://nytimes.com/athletic/7050943/2026/02/16/twins-pablo-lopez-batting-practice-tom-pohlad/
 
