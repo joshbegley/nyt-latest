@@ -1,3 +1,11 @@
+**Snowstorm brings early end, shakes up medals in Olympic ski jumping super team**\
+`The decision was great for Poland, which looked to have slipped off the medal stand in the canceled final round and ended up with silver.`\
+https://nytimes.com/athletic/7050872/2026/02/16/winter-olympics-ski-jumping-snowstorm-final-round-medals-poland/
+
+**Police Respond to Shooting at a Rhode Island Hockey Arena**\
+`The authorities said they were responding on Monday to a shooting at the Dennis M. Lynch Arena in Pawtucket, where a high school hockey game was scheduled.`\
+https://nytimes.com/2026/02/16/us/hockey-game-shooting-pawtucket-rhode-island.html
+
 **Senators Meet Zelensky With Hopeful Message on Sanctions**\
 `During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
 https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/us/nancy-guthrie-police-idaho-murders.html
 **AP men's hoops Top 25: Michigan No. 1 for first time in 13 years; Arizona slips to No. 4**\
 `Arizona's two-month stay atop the poll ended after consecutive losses last week.`\
 https://nytimes.com/athletic/7050575/2026/02/16/ap-mens-basketball-top-25-michigan-houston-arizona/
-
-**FA Cup fifth-round draw: Wrexham host Chelsea, Arsenal to play Mansfield**\
-`The fifth-round ties will be played over the weekend of March 7-8.`\
-https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
-
-**Dodgers' Tommy Edman will start season on IL due to offseason ankle surgery**\
-`"Just looking as to where his ankle is at, trying to play the long view," manager Dave Roberts said.`\
-https://nytimes.com/athletic/7050491/2026/02/16/dodgers-tommy-edman-injury-ankle-surgery/
 

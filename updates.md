@@ -1,3 +1,11 @@
+**Snowstorm brings early end, shakes up medals in Olympic ski jumping super team**\
+`The decision was great for Poland, which looked to have slipped off the medal stand in the canceled final round and ended up with silver.`\
+https://nytimes.com/athletic/7050872/2026/02/16/winter-olympics-ski-jumping-snowstorm-final-round-medals-poland/
+
+**Police Respond to Shooting at a Rhode Island Hockey Arena**\
+`The authorities said they were responding on Monday to a shooting at the Dennis M. Lynch Arena in Pawtucket, where a high school hockey game was scheduled.`\
+https://nytimes.com/2026/02/16/us/hockey-game-shooting-pawtucket-rhode-island.html
+
 **Senators Meet Zelensky With Hopeful Message on Sanctions**\
 `During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
 https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
