@@ -1,3 +1,7 @@
+**The NBA All-Star format was a win. Can it get people to care again?**\
+`More All-Star Sundays like this will bring back a lot of what the NBA is aiming for.`\
+https://nytimes.com/athletic/7049130/2026/02/16/2026-nba-all-star-format-public-opinion/
+
 **New N.B.A. All-Star Game Format Leads to Surprisingly Competitive Play**\
 `There were buzzer beaters and competitive games in a new, round-robin N.B.A. All-Star tournament that pitted American and international basketball stars against one another.`\
 https://nytimes.com/video/sports/basketball/100000010715254/new-nba-all-star-game-format-leads-to-surprisingly-competitive-play.html

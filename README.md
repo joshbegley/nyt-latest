@@ -1,40 +1,40 @@
+**Syria Crosses a Threshold**\
+`The advance of the Syrian Army into Kurdish regions could put nearly all the country under one authority. But it ends a dream of autonomy for ethnic Kurds.`\
+https://nytimes.com/2026/02/16/world/middleeast/syria-army-kurds-war.html
+
+**The biggest offseason change for every American League team**\
+`As full-squad workouts begin, some clubs added key players, others blew it up, and for a few of them, the plan is a bit unclear. `\
+https://nytimes.com/athletic/7046465/2026/02/16/american-league-biggest-offseason-changes/
+
+**The buzz at NBA All-Star Weekend: What players, coaches and execs were talking about**\
+`The hottest topic this All-Star Weekend in the Los Angeles area? Tanking, tanking and more tanking. `\
+https://nytimes.com/athletic/7049248/2026/02/16/nba-all-star-weekend-2026-chatter/
+
+**For veteran captains Bellemare, Červenka and Crosby, the goals vary but the pride is universal**\
+`It's about pride. And pride is universal — whether you're on top, stuck in the middle or mired all the way at the bottom.`\
+https://nytimes.com/athletic/7048248/2026/02/16/olympics-mens-hockey-2026-captains-crosby-bellemare/
+
+**Michael Penix Jr. progress will be the key for new Falcons coordinator Tommy Rees**\
+`Rees, who followed Kevin Stefanski from Cleveland to Atlanta, will enter 2026 as the primary play caller for the first time in the NFL.`\
+https://nytimes.com/athletic/7044604/2026/02/16/michael-penix-jr-progress-will-be-the-key-for-new-falcons-coordinator-tommy-rees/
+
+**Celebrini’s Olympic is success surreal even for his accomplished, stoic dad**\
+`It takes a lot to crack Rick Celebrini's composure after years among the best of the best. His son's Olympics journey is more than enough.`\
+https://nytimes.com/athletic/7048070/2026/02/16/macklin-rick-celebrini-olympics-canada-mens-hockey/
+
+**Michael Jordan is a champion again, with nothing but magnanimity for NASCAR**\
+`"It's like winning a championship, a huge championship," Jordan told The Athletic. "Unbelievable."`\
+https://nytimes.com/athletic/7049173/2026/02/16/michael-jordan-nascar-daytona-champion/
+
+**MLB insiders predict the players most likely to get traded in 2026 spring training**\
+`Will there be a good old-fashioned blockbuster deal this spring? Never say never! Our panel weighs in on the players who could get traded. `\
+https://nytimes.com/athletic/7049238/2026/02/16/mlb-players-trade-predictions-2026-spring-training/
+
+**The New York Times International Edition in Print for Tuesday, Feb. 17, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/16/todays-new-york-times-international-edition
+
 **The NBA All-Star format was a win. Can it get people to care again?**\
 `More All-Star Sundays like this will bring back a lot of what the NBA is aiming for.`\
 https://nytimes.com/athletic/7049130/2026/02/16/2026-nba-all-star-format-public-opinion/
-
-**New N.B.A. All-Star Game Format Leads to Surprisingly Competitive Play**\
-`There were buzzer beaters and competitive games in a new, round-robin N.B.A. All-Star tournament that pitted American and international basketball stars against one another.`\
-https://nytimes.com/video/sports/basketball/100000010715254/new-nba-all-star-game-format-leads-to-surprisingly-competitive-play.html
-
-**In reviving the All-Star Game, Victor Wembanyama furthers his case as NBA's next face**\
-`We can all see where this thing is going. Victor Wembanyama is taking the reins.`\
-https://nytimes.com/athletic/7049374/2026/02/16/victor-wembanyama-all-star-game-face-of-nba/
-
-**How to watch Iowa vs. Nebraska women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7049593/2026/02/16/iowa-vs-nebraska-stream-how-to-watch-feb-16/
-
-**Wemby's intensity, Keshad's joy and the game itself: Best moments of NBA All-Star Weekend 2026**\
-`This All-Star Weekend had plenty of highlights. What were some of the best moments? Our staff weighs in on what they'll remember.`\
-https://nytimes.com/athletic/7049249/2026/02/16/nba-all-star-weekend-best-moments-2026/
-
-**I Hold Pam Bondi in Contempt**\
-`Insult everyone. Answer for nothing.`\
-https://nytimes.com/2026/02/16/opinion/pam-bondi-trump.html
-
-**Abe Lincoln Fans Gather for Mutton Hunks and a Vintage American Flag**\
-`An old Manhattan steakhouse is the new home for the Stars and Stripes that draped the 16th president’s casket.`\
-https://nytimes.com/2026/02/16/style/abraham-lincoln-flag-keens.html
-
-**Why an A.I. Video of Tom Cruise Battling Brad Pitt Spooked Hollywood**\
-`A 15-second clip created by an artificial intelligence tool owned by the Chinese technology company ByteDance appears more cinematic than anything so far.`\
-https://nytimes.com/2026/02/16/movies/tom-cruise-brad-pitt-artificial-intelligence-seedance.html
-
-**How Much Will Trump’s Approval Rating Matter in the Midterms?**\
-`It’s not too early to consider the connection, and readers also have questions about the economy.`\
-https://nytimes.com/2026/02/16/upshot/trumps-approval-midterm-elections.html
-
-**Iran’s Protests Have Ended, but the Anger and Pain Haven’t**\
-`In the aftermath of another wave of antigovernment unrest, Iran is gripped by a mood of collective grief and uncertainty about the future.`\
-https://nytimes.com/2026/02/16/world/middleeast/iran-protests-crackdown-mood.html
 
