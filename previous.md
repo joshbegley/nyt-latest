@@ -1,3 +1,7 @@
+**How Spain Is Carving a Different Path on Immigration**\
+`The country is hoping its new amnesty for undocumented immigrants will avoid a public backlash.`\
+https://nytimes.com/2026/02/16/world/europe/spain-amnesty-immigration.html
+
 **Mets 'will never' name a team captain under owner Steve Cohen**\
 `Whether the Mets would make someone a team captain was a major storyline during their disappointing 2025 season.`\
 https://nytimes.com/athletic/7050176/2026/02/16/no-mets-captain-steve-cohen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050010/2026/02/16/olympics-mens-hockey-2026-qualif
 **USMNT Tracker: Agyemang and McKennie turn heads as Pulisic returns**\
 `Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
 https://nytimes.com/athletic/7049789/2026/02/16/usmnt-agyemang-mckennie-pulisic-world-cup/
-
-**The Athletic college baseball Top 25: LSU takes over top spot; Oklahoma cracks top 10**\
-`Oklahoma and Michigan enter the top 25 after strong opening weekends at neutral sites. `\
-https://nytimes.com/athletic/7049988/2026/02/16/college-baseball-ranking-lsu-ucla-arkansas/
 

@@ -1,3 +1,7 @@
+**How Spain Is Carving a Different Path on Immigration**\
+`The country is hoping its new amnesty for undocumented immigrants will avoid a public backlash.`\
+https://nytimes.com/2026/02/16/world/europe/spain-amnesty-immigration.html
+
 **Mets 'will never' name a team captain under owner Steve Cohen**\
 `Whether the Mets would make someone a team captain was a major storyline during their disappointing 2025 season.`\
 https://nytimes.com/athletic/7050176/2026/02/16/no-mets-captain-steve-cohen/
