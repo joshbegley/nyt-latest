@@ -1,3 +1,7 @@
+**2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
+`Mikaela Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
+https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
+
 **2026 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home with an Indie Spirit Award on Sunday.`\
 https://nytimes.com/2026/02/15/style/2025-film-independent-spirit-awards-complete-winners-list.html
