@@ -1,3 +1,7 @@
+**A step too VAR in the FA Cup as Newcastle beat Villa? Plus: Timothee Chalamet - soccer player**\
+`Today in TAFC: Is football better with or without VAR? Plus: Chalamet's soccer years and Ronaldo returns.`\
+https://nytimes.com/athletic/7049598/2026/02/16/a-step-too-var-in-the-fa-cup-as-newcastle-beat-aston-villa-plus-timothee-chalamet-soccer-player/
+
 **Thirty-two thoughts on all the Yankees hitters in major-league camp**\
 `Observations and notes on each of the 32 hitters the Yankees have on their roster as full-squad workouts begin in spring training.`\
 https://nytimes.com/athletic/7047066/2026/02/16/yankees-hitters-spring-training/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7049067/2026/02/16/yankees-ryan-weathers-focus-heal
 `Blame is being pointed in a lot of directions amid the Flyers' recent skid.
  `\
 https://nytimes.com/athletic/7033729/2026/02/16/philadelphia-flyers-olympic-break-standings/
-
-**The Athletic's men's hoops Top 25: Michigan is new No. 1 ahead of epic matchup with Duke**\
-`Michigan and Duke could be a No. 1 vs. No. 2 matchup and Final Four preview this Saturday in Washington, D.C.`\
-https://nytimes.com/athletic/7049389/2026/02/16/mens-college-basketball-top-25-michigan-arizona-duke/
 

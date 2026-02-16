@@ -1,3 +1,12 @@
+**A step too VAR in the FA Cup as Newcastle beat Villa? Plus: Timothee Chalamet - soccer player**\
+`Today in TAFC: Is football better with or without VAR? Plus: Chalamet's soccer years and Ronaldo returns.`\
+https://nytimes.com/athletic/7049598/2026/02/16/a-step-too-var-in-the-fa-cup-as-newcastle-beat-aston-villa-plus-timothee-chalamet-soccer-player/
+
+**Fact or fiction? Examining some of the talking points around this Flyers season**\
+`Blame is being pointed in a lot of directions amid the Flyers' recent skid.
+ `\
+https://nytimes.com/athletic/7033729/2026/02/16/philadelphia-flyers-olympic-break-standings/
+
 **Fact or fiction? Examining some of the talking points around this Flyers season**\
 `Blame is being pointed in a lot of directions amid the Flyers' recent skid.
  `\
