@@ -1,3 +1,11 @@
+**How to watch Iowa vs. Nebraska women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7049593/2026/02/16/iowa-vs-nebraska-stream-how-to-watch-feb-16/
+
+**Wemby's intensity, Keshad's joy and the game itself: Best moments of NBA All-Star Weekend 2026**\
+`This All-Star Weekend had plenty of highlights. What were some of the best moments? Our staff weighs in on what they'll remember.`\
+https://nytimes.com/athletic/7049249/2026/02/16/nba-all-star-weekend-best-moments-2026/
+
 **I Hold Pam Bondi in Contempt**\
 `Insult everyone. Answer for nothing.`\
 https://nytimes.com/2026/02/16/opinion/pam-bondi-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/fashion/work-clothes-advice.html
 **From One President to Another, a Love Letter With an Edge**\
 `To open a series of essays about U.S. presidents, George W. Bush pays tribute to George Washington, who “ensured America wouldn’t become a monarchy, or worse.”`\
 https://nytimes.com/2026/02/16/arts/george-washington-bush-presidential-essays.html
-
-**‘A Superstar Is From Here’: Pride of Cleveland Suburb Soars for U.S. Hockey**\
-`The Olympic journey of Laila Edwards, the first Black woman to play for the U.S. hockey team, has captivated her hometown, Cleveland Heights.`\
-https://nytimes.com/2026/02/16/us/laila-edwards-olympics-cleveland-heights.html
-
-**Crotch Fabric, Blue Skin Suits and Other Oddities of Olympic Gear**\
-`Before going for the gold, athletes at the Winter Games must check their apparel and equipment. Or else.`\
-https://nytimes.com/2026/02/16/style/crotch-fabric-blue-skin-suits-and-other-oddities-of-olympic-gear.html
 
