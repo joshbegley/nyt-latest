@@ -1,3 +1,8 @@
+**Fact or fiction? Examining some of the talking points around this Flyers season**\
+`Blame is being pointed in a lot of directions amid the Flyers' recent skid.
+ `\
+https://nytimes.com/athletic/7033729/2026/02/16/philadelphia-flyers-olympic-break-standings/
+
 **Thirty-two thoughts on all the Yankees hitters in major-league camp**\
 `Observations and notes on each of the 32 hitters the Yankees have on their roster as full-squad workouts begin in spring training.`\
 https://nytimes.com/athletic/7047066/2026/02/16/yankees-hitters-spring-training/
