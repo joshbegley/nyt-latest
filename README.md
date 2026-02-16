@@ -1,5 +1,5 @@
 **Meet the coach with his fingerprints over the U.S. women's and men's Olympic hockey teams**\
-`John Wroblewski is guiding the top-ranked women's team in the world. He also helped mold some of the American men's brightest players.`\
+`John Wroblewski is guiding the top-ranked women's team in the world. He also helped mold some of the U.S. men's team's brightest players.`\
 https://nytimes.com/athletic/7048133/2026/02/16/john-wroblewski-team-usa-olympics-womens-hockey-men/
 
 **If the NBA is serious about looking at everything to end tanking ... it's about time**\
