@@ -1,3 +1,7 @@
+**Henrike Naumann, Artist Set to Represent Germany at Venice Biennale, Dies at 41**\
+`Her death from cancer was the second sudden loss for this year’s edition. Naumann’s exhibition will still go ahead in May, according to a statement.`\
+https://nytimes.com/2026/02/16/arts/design/henrike-naumann-dead-venice-biennale.html
+
 **Byron Buxton happy to still be a Twin, but frustrated by team's failure to shut down trade rumors**\
 `Twins star Byron Buxton happy team held onto to core players through an uneasy offseason.`\
 https://nytimes.com/athletic/7048593/2026/02/16/byron-buxton-twins-trade-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049414/2026/02/16/mlb-dugout-called-pitches-sf-gia
 **After a rookie campaign in which he 'dominated', what can Cade Horton do in Year 2?**\
 `Horton proved in 2025 that he had the full package to be a dominant starter at the highest level.`\
 https://nytimes.com/athletic/7048728/2026/02/16/cubs-cade-horton-year-2-expectations/
-
-**How do Fernando Mendoza, Ty Simpson, Garrett Nussmeier compare as NFL Draft prospects?**\
-`What do Fernando Mendoza, Ty Simpson and Garrett Nussmeier bring to the table as NFL Draft prospects?`\
-https://nytimes.com/athletic/7044384/2026/02/16/nfl-draft-2026-quarterbacks-scouting-reports-mendoza-simpson/
 

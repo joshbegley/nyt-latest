@@ -1,3 +1,15 @@
+**Byron Buxton happy to still be a Twin, but frustrated by team's failure to shut down trade rumors**\
+`Twins star Byron Buxton happy team held onto to core players through an uneasy offseason.`\
+https://nytimes.com/athletic/7048593/2026/02/16/byron-buxton-twins-trade-rumors/
+
+**Mailbag: What does Blackhawks' cap space look like in 5 years?**\
+`The cap could become a problem again for the Blackhawks by the 2032-33 season.`\
+https://nytimes.com/athletic/7039333/2026/02/16/blackhawks-salary-cap-projection-nhl/
+
+**Dana Eden, Co-Creator of ‘Tehran,’ Dies During Filming of Fourth Season**\
+`Ms. Eden, 52, who was also an executive producer of the Emmy-winning show, was found in a hotel room in Athens. Greek police said they did not suspect foul play.`\
+https://nytimes.com/2026/02/16/world/europe/dana-eden-tehran-dead.html
+
 **Twins spring training guide: 33 thoughts on all 33 hitters in major-league camp**\
 `Competing amidst stars for 13 hitting spots on the Opening Day roster are prospects and Triple-A journeymen.`\
 https://nytimes.com/athletic/7009780/2026/02/16/twins-spring-training-roster-hitters-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7048728/2026/02/16/cubs-cade-horton-year-2-expectat
 **How do Fernando Mendoza, Ty Simpson, Garrett Nussmeier compare as NFL Draft prospects?**\
 `What do Fernando Mendoza, Ty Simpson and Garrett Nussmeier bring to the table as NFL Draft prospects?`\
 https://nytimes.com/athletic/7044384/2026/02/16/nfl-draft-2026-quarterbacks-scouting-reports-mendoza-simpson/
-
-**Hot starts by Oklahoma, Ohio State, Texas Tech: Class of 2027 recruiting primer**\
-`The Sooners have two five-stars, five top-150 players and seven blue-chippers among their 13 commits.`\
-https://nytimes.com/athletic/7044607/2026/02/16/college-football-recruiting-2027-class-primer/
-
-**Guardians top prospect Chase DeLauter finally feels at home in the majors**\
-`The Guardians put DeLauter on the postseason roster even though he hadn't played in three months.`\
-https://nytimes.com/athletic/7048551/2026/02/16/chase-delauter-guardians-playoff-debut-john-denver-2026/
-
-**Yankees' Ryan Weathers is already throwing 98 mph, but his focus is on health**\
-`The Yankees need Weathers to be in top form, especially early, as they'll be missing three big arms Opening Day.`\
-https://nytimes.com/athletic/7049067/2026/02/16/yankees-ryan-weathers-focus-health-spring-training/
 
