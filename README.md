@@ -1,3 +1,7 @@
+**Penguins trade tiers: Players and assets most likely to be dealt**\
+`The Penguins, in a playoff spot, are in an interesting position as the March 6 NHL trade deadline approaches.`\
+https://nytimes.com/athletic/7030873/2026/02/16/penguins-nhl-trade-deadline-tiers-dubas/
+
 **The Pulse: Baseball is nigh**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7049488/2026/02/16/mlb-spring-training-storylines-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7041889/2026/02/16/2026-fantasy-baseball-top-40-rel
 **Weekend rankings, Olympics edition: Ghosts, bridesmaids, a fight and more**\
 `The Olympics have already served up breakout stars, upset results and way more goal-difference math than expected. What's next?`\
 https://nytimes.com/athletic/7049018/2026/02/16/nhl-weekend-rankings-olympics-mens-hockey/
-
-**Olympics hockey vibe check: Switzerland and Slovakia surprise, goalie highs and lows**\
-`Plus the mystery of Filip Forsberg's ice time, the young stars leading the American women's team, and the Canadian men's nuclear line.`\
-https://nytimes.com/athletic/7049022/2026/02/16/olympics-hockey-vibe-check-switzerland-slovakia-canada-usa-goalies/
 
