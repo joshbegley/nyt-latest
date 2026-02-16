@@ -1,3 +1,7 @@
+**Henrike Naumann, Artist Set to Represent Germany at Venice Biennale, Dies at 41**\
+`Her death from cancer was the second sudden loss for this year’s edition. Naumann’s exhibition will still go ahead in May, according to a statement.`\
+https://nytimes.com/2026/02/16/arts/design/henrike-naumann-dead-venice-biennale.html
+
 **Byron Buxton happy to still be a Twin, but frustrated by team's failure to shut down trade rumors**\
 `Twins star Byron Buxton happy team held onto to core players through an uneasy offseason.`\
 https://nytimes.com/athletic/7048593/2026/02/16/byron-buxton-twins-trade-rumors/

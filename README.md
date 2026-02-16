@@ -1,3 +1,11 @@
+**Confessions of a Former Body Positivity Influencer**\
+`GLP1-s have exploded in popularity, and the body positivity movement is at a crossroads.`\
+https://nytimes.com/video/opinion/100000010675137/body-positivity-social-media-weight-loss-feed.html
+
+**‘The best feeling in the world’: Savy King returns to soccer 283 days after cardiac incident**\
+`The last time King was seen on a soccer pitch was when she suffered a cardiac incident on May 9.`\
+https://nytimes.com/athletic/7049776/2026/02/16/savy-king-returns-soccer-cardiac-incident/
+
 **Henrike Naumann, Artist Set to Represent Germany at Venice Biennale, Dies at 41**\
 `Her death from cancer was the second sudden loss for this year’s edition. Naumann’s exhibition will still go ahead in May, according to a statement.`\
 https://nytimes.com/2026/02/16/arts/design/henrike-naumann-dead-venice-biennale.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7047066/2026/02/16/yankees-hitters-spring-training/
 **Inside Real Madrid: Trent's return, Arbeloa's Benfica pressure, Mbappe fitness latest**\
 `After a comprehensive La Liga victory over Real Sociedad, confidence is growing before the Champions League play-offs`\
 https://nytimes.com/athletic/7049538/2026/02/16/real-madrid-vinicius-jr-trent-bellingham-arbeloa-mbappe-benfica/
-
-**Dugout-called pitches? Giants under Tony Vitello might give it the old college try**\
-`The Giants plan to call some pitches from the dugout, and the Marlins are all-in on the practice. Will it someday be commonplace in MLB?`\
-https://nytimes.com/athletic/7049414/2026/02/16/mlb-dugout-called-pitches-sf-giants-tony-vitello/
-
-**After a rookie campaign in which he 'dominated', what can Cade Horton do in Year 2?**\
-`Horton proved in 2025 that he had the full package to be a dominant starter at the highest level.`\
-https://nytimes.com/athletic/7048728/2026/02/16/cubs-cade-horton-year-2-expectations/
 
