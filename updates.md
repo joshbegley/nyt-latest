@@ -1,3 +1,7 @@
+**As Guthrie Case Grips Nation, One Police Chief Reflects on His Time in the Spotlight**\
+`“It’s probably something that no one ever expects to happen in their career,” said James Fry, who was the police chief in Moscow, Idaho, when four students were killed there in 2022.`\
+https://nytimes.com/2026/02/16/us/nancy-guthrie-police-idaho-murders.html
+
 **AP men's hoops Top 25: Michigan No. 1 for first time in 13 years; Arizona slips to No. 4**\
 `Arizona's two-month stay atop the poll ended after consecutive losses last week.`\
 https://nytimes.com/athletic/7050575/2026/02/16/ap-mens-basketball-top-25-michigan-houston-arizona/

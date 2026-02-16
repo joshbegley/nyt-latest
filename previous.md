@@ -1,3 +1,7 @@
+**As Guthrie Case Grips Nation, One Police Chief Reflects on His Time in the Spotlight**\
+`“It’s probably something that no one ever expects to happen in their career,” said James Fry, who was the police chief in Moscow, Idaho, when four students were killed there in 2022.`\
+https://nytimes.com/2026/02/16/us/nancy-guthrie-police-idaho-murders.html
+
 **AP men's hoops Top 25: Michigan No. 1 for first time in 13 years; Arizona slips to No. 4**\
 `Arizona's two-month stay atop the poll ended after consecutive losses last week.`\
 https://nytimes.com/athletic/7050575/2026/02/16/ap-mens-basketball-top-25-michigan-houston-arizona/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
 **IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
 `The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
 https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
-
-**Vaccine Makers Curtail Research and Cut Jobs**\
-`Federal policies under Robert F. Kennedy Jr. that are hostile to vaccines have “sent a chill through the entire industry,” one scientist said.`\
-https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
 
