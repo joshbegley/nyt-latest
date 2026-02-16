@@ -1,3 +1,7 @@
+**What to Know About the Homeland Security Shutdown**\
+`Funding for the Department of Homeland Security lapsed on Saturday amid a standoff over restrictions that Democrats have demanded for federal immigration agents. But much of its work continues.`\
+https://nytimes.com/2026/02/15/us/politics/homeland-security-shutdown.html
+
 **Kennedy Promises Action, Though Not Regulation, on Ultraprocessed Foods**\
 `The health secretary said the Food and Drug Administration would “act on” a request from a former F.D.A. commissioner to close a loophole on food safety.`\
 https://nytimes.com/2026/02/15/us/politics/kennedy-health-ultraprocessed-foods.html
@@ -13,8 +17,4 @@ https://nytimes.com/2026/02/15/us/nancy-guthrie-video-cameras.html
 **Nick Castellanos eager for fresh start with Padres after messy Phillies exit**\
 `Castellanos could see some time at first base, a position he's never played professionally but worked on during the offseason.`\
 https://nytimes.com/athletic/7048879/2026/02/15/nick-castellanos-padres-phillies-exit/
-
-**Collin Morikawa triumphs at Pebble Beach for first PGA Tour win since 2023**\
-`After claiming the dramatic victory, Morikawa announced that he and his wife are expecting their first child later this year.`\
-https://nytimes.com/athletic/7048960/2026/02/15/collin-morikawa-wins-pebble-beach-pro-am-pga/
 
