@@ -1,3 +1,11 @@
+**‘Star Search,’ Plus 7 Things to Watch on TV This Week**\
+`The finale of Netflix’s newest talent competition airs, and the second season of “The Last Thing He Told Me” premieres.`\
+https://nytimes.com/2026/02/16/arts/television/star-search-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Feb. 16, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/16/todays-new-york-times
+
 **In Xi’s Purge of the Military, a Search for Absolute Loyalty**\
 `By reaching back to Maoist tactics of “rectification,” the Chinese leader is signaling that control over the gun requires a state of perpetual cleansing.`\
 https://nytimes.com/2026/02/16/world/asia/xi-military-zhang-youxia-mao.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7048222/2026/02/16/dual-moguls-olympic-debut-milan-
 **Sharper finishing, smart runs and a penalty-box presence: Joao Pedro is now a proper No 9**\
 `The Chelsea striker has had a superb first season at the club and has helped fill such a vital position with ease`\
 https://nytimes.com/athletic/7047687/2026/02/16/joao-pedro-chelsea-striker/
-
-**'I blew it': What happens when you fall short on the biggest sporting stage?**\
-`From Lindsey Jacobellis to Ilia Malinin, perceived failure on the world stage is public and permanent - but it's how you react that matters`\
-https://nytimes.com/athletic/7047014/2026/02/16/i-blew-it-what-comes-next-when-you-fall-short-on-the-biggest-sporting-stage/
-
-**Real Madrid, Man Utd and a World Cup: Football's wild coaching landscape and hiring dilemmas**\
-`Big jobs will be available this summer and big names are on the market. But the decision-making of clubs feels more complicated than ever`\
-https://nytimes.com/athletic/7043928/2026/02/16/real-madrid-man-united-manager-jobs-world-cup/
 

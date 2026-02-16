@@ -1,3 +1,11 @@
+**‘Star Search,’ Plus 7 Things to Watch on TV This Week**\
+`The finale of Netflix’s newest talent competition airs, and the second season of “The Last Thing He Told Me” premieres.`\
+https://nytimes.com/2026/02/16/arts/television/star-search-watch-on-tv-this-week.html
+
+**The New York Times in Print for Monday, Feb. 16, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/16/todays-new-york-times
+
 **In Xi’s Purge of the Military, a Search for Absolute Loyalty**\
 `By reaching back to Maoist tactics of “rectification,” the Chinese leader is signaling that control over the gun requires a state of perpetual cleansing.`\
 https://nytimes.com/2026/02/16/world/asia/xi-military-zhang-youxia-mao.html
