@@ -1,3 +1,11 @@
+**Why NBA All-Star Saturday looked so empty**\
+`On Sunday, in contrast, fans were standing outside the arena seeking tickets, but struggling to find anything remotely affordable.`\
+https://nytimes.com/athletic/7049095/2026/02/15/nba-all-star-saturday-tickets-affordability/
+
+**2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
+`Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
+https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
+
 **What we'd change about NBA All-Star Weekend: Make stars dunk? Hold the event abroad?**\
 `Who is NBA All-Star Weekend truly for at this point? Why don't stars participate in the dunk contest? How we'd change the annual showcase.`\
 https://nytimes.com/athletic/7048827/2026/02/15/nba-all-star-weekend-2026-changes-dunk-contest/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/15/us/politics/kennedy-health-ultraprocessed-foods.h
 **2025 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home with an Indie Spirit Award on Sunday.`\
 https://nytimes.com/2026/02/15/style/2025-film-independent-spirit-awards-complete-winners-list.html
-
-**Useful Camera Footage in Guthrie Case Proves Elusive**\
-`The lack of helpful video footage in Nancy Guthrie’s community may be hindered by several factors, experts say.`\
-https://nytimes.com/2026/02/15/us/nancy-guthrie-video-cameras.html
-
-**Nick Castellanos eager for fresh start with Padres after messy Phillies exit**\
-`Castellanos could see some time at first base, a position he's never played professionally but worked on during the offseason.`\
-https://nytimes.com/athletic/7048879/2026/02/15/nick-castellanos-padres-phillies-exit/
 
