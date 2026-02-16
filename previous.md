@@ -1,3 +1,7 @@
+**DNA Found on Gloves as Guthrie Search Enters Third Week**\
+`The F.B.I. said gloves found near Nancy Guthrie’s home carried a man’s DNA. The gloves appeared to match the ones seen in doorbell camera footage.`\
+https://nytimes.com/video/us/100000010715060/nancy-guthrie-gloves-dna.html
+
 **‘A Knight of the Seven Kingdoms’ Season 1, Episode 5 Recap: ‘Get Up!’**\
 `Duncan takes a serious beating. Egg doesn’t like how things are looking.`\
 https://nytimes.com/2026/02/15/arts/television/a-knight-of-the-seven-kingdoms-recap-season-1-episode-5.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7048839/2026/02/15/team-usa-stars-wins-nba-all-star
 **Diplomatic Feud With China Weighs on Japan’s Economy**\
 `A standoff over the security of Taiwan has led to a steep decline in the number of Chinese visitors to Japan, which is heavily dependent on the tourists.`\
 https://nytimes.com/2026/02/15/business/japan-economy-china-tourism.html
-
-**Kansas State AD says Jerome Tang fired for cause after coach's criticism of players**\
-`The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
-https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
 

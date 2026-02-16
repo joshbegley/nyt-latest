@@ -1,3 +1,7 @@
+**DNA Found on Gloves as Guthrie Search Enters Third Week**\
+`The F.B.I. said gloves found near Nancy Guthrie’s home carried a man’s DNA. The gloves appeared to match the ones seen in doorbell camera footage.`\
+https://nytimes.com/video/us/100000010715060/nancy-guthrie-gloves-dna.html
+
 **Kansas State AD says Jerome Tang fired for cause after coach's criticism of players**\
 `The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
 https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
