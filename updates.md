@@ -1,3 +1,11 @@
+**The Athletic college baseball Top 25: LSU takes over top spot; Oklahoma cracks top 10**\
+`Oklahoma and Michigan enter the top 25 after strong opening weekends at neutral sites. `\
+https://nytimes.com/athletic/7049988/2026/02/16/college-baseball-ranking-lsu-ucla-arkansas/
+
+**Ticket Scam Cost the Louvre $12 Million, Investigators Say**\
+`The Paris prosecutor’s office said that a network involving museum employees and tour guides had been operating for a decade. Investigators also believe the fraud occurred at Versailles Palace.`\
+https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
+
 **For Team USA, these Winter Olympics have not gone according to plan**\
 `Injuries, freak mishaps and shocking performances have beset Team USA's superstars. But there's still good news.`\
 https://nytimes.com/athletic/7049777/2026/02/16/winter-olympics-team-usa-stars-injuries-medals/
