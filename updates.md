@@ -1,3 +1,15 @@
+**Miami Dolphins release Tyreek Hill and Bradley Chubb, among others**\
+`Injuries have been a factor during his time with the Dolphins.`\
+https://nytimes.com/athletic/7050247/2026/02/16/tyreek-hill-bradley-chubb-miami-dolphins-release/
+
+**Superlatives for every new MLS kit: From the most fun to the most haunting**\
+`The new MLS kits for 2026 are once again a mix of creativity, blandness and chilling lion eyes. `\
+https://nytimes.com/athletic/7046667/2026/02/16/mls-2026-new-kits-jerseys-uniforms/
+
+**Columbia Punishes 2 Who Helped Epstein’s Girlfriend Enter Dental College**\
+`The release of documents tied to Jeffrey Epstein has sent ripples through the worlds of business, politics and academia, including at Columbia, where he helped his girlfriend gain entry.`\
+https://nytimes.com/2026/02/16/nyregion/columbia-epstein-dental-shuliak.html
+
 **Review: ‘The Tragedy of Coriolanus’ Swerves Off Course**\
 `Theater for a New Audience’s reimagining of the Shakespearean tragedy misses an opportunity to engage the play’s many echoes with our own tense era.`\
 https://nytimes.com/2026/02/16/theater/the-tragedy-of-coriolanus-review.html
