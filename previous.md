@@ -1,3 +1,7 @@
+**Judge Orders Trump Administration to Restore Displays About Slavery at Washington’s House**\
+`The judge said the government did not have the power to erase or alter historical truths after the administration took down displays about slavery at the President’s House Site in Philadelphia.`\
+https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washington-slavery-injunction.html
+
 **Aaron Judge says right elbow won't need surgery after last year's scare**\
 `Judge suffered a flexor tendon strain last season but said the elbow is now "feeling great" and that he's throwing with confidence. `\
 https://nytimes.com/athletic/7050923/2026/02/16/aaron-judge-yankees-elbow-injury-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-h
 **Eileen Gu falls short in defence of freeski big air Olympic title, Megan Oldham wins gold**\
 `Eileen Gu won silver as Megan Oldham won gold with a total score of 180.75.`\
 https://nytimes.com/athletic/7050750/2026/02/16/eileen-gu-womens-freeski-big-air-2026-winter-olympics/
-
-**Snowstorm brings early end, shakes up medals in Olympic ski jumping super team**\
-`The decision was great for Poland, which looked to have slipped off the medal stand in the canceled final round and ended up with silver.`\
-https://nytimes.com/athletic/7050872/2026/02/16/winter-olympics-ski-jumping-snowstorm-final-round-medals-poland/
 

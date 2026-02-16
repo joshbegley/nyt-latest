@@ -1,3 +1,7 @@
+**Judge Orders Trump Administration to Restore Displays About Slavery at Washington’s House**\
+`The judge said the government did not have the power to erase or alter historical truths after the administration took down displays about slavery at the President’s House Site in Philadelphia.`\
+https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washington-slavery-injunction.html
+
 **French hockey player removed from team for violating 'Olympic spirit'**\
 `The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
 https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
