@@ -1,8 +1,12 @@
+**Games Briefing: A U.S.-Canada rematch?**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7050328/2026/02/16/us-canada-olympics-hockey-games-briefing/
+
 **The Olympic Toys That Are Almost as Tough to Get as a Medal**\
 `Fans have fallen hard for plush dolls representing Tina and Milo, the mascots of Italy’s Winter Games.`\
 https://nytimes.com/2026/02/16/world/olympics/tina-milo-winter-olympics-plush-toys.html
 
-**Explained: How Barcelona, Spa will work as F1’s new biennial rotating race events from 2027**\
+**Explained: How Barcelona, Spa will work as F1’s new rotating races**\
 `Formula One Management has been looking at getting long-standing races held in Europe to enter into rotation deals for a while `\
 https://nytimes.com/athletic/7050305/2026/02/16/f1-barcelona-spa-rotation-explained/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/health/drug-advertisements-consumers.html
 **How the Visa Debate for Foreign Workers Fuels Racism Against South Asians**\
 `A dispute over the impact of H-1B visas on U.S. workers has been overshadowed by racist rhetoric, with troubling echoes of the great replacement conspiracy theory.`\
 https://nytimes.com/2026/02/16/us/politics/h1b-visa-debate-racism-south-asians.html
-
-**It’s Dumpling Dinnertime**\
-`By Melissa Clark`\
-https://nytimes.com/2026/02/16/dining/its-dumpling-dinnertime.html
 

@@ -1,3 +1,11 @@
+**The Olympic Toys That Are Almost as Tough to Get as a Medal**\
+`Fans have fallen hard for plush dolls representing Tina and Milo, the mascots of Italy’s Winter Games.`\
+https://nytimes.com/2026/02/16/world/olympics/tina-milo-winter-olympics-plush-toys.html
+
+**Explained: How Barcelona, Spa will work as F1’s new biennial rotating race events from 2027**\
+`Formula One Management has been looking at getting long-standing races held in Europe to enter into rotation deals for a while `\
+https://nytimes.com/athletic/7050305/2026/02/16/f1-barcelona-spa-rotation-explained/
+
 **Iran Holds Exercises in Strait of Hormuz After Trump Threatens Military Action**\
 `The day before nuclear talks were set to resume, Iran conducted live drills in the Strait of Hormuz, a strategic waterway for oil and gas shipments.`\
 https://nytimes.com/2026/02/16/world/middleeast/iran-strait-hormuz-exercise-talks-geneva-trump.html
