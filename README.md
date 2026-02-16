@@ -1,3 +1,11 @@
+**Browns hire Mike Rutenberg as defensive coordinator: Source**\
+`Rutenberg, who has over 15 years of NFL coaching experience, lands his first coordinator job. `\
+https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-coordinator-falcons/
+
+**Klopp agent claims he rejected interest from Chelsea and Man Utd**\
+`Manchester United and Chelsea both denied they made any enquiry for Klopp when approached by The Athletic.`\
+https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-united/
+
 **Robert Duvall, Chameleonlike Actor of Film, Stage and TV, Dies at 95**\
 `The Oscar winner was known for his ability to disappear into roles, playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” and in the television series “Lonesome Dove.”`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7046667/2026/02/16/mls-2026-new-kits-jerseys-unifor
 **Columbia Punishes 2 Who Helped Epstein’s Girlfriend Enter Dental College**\
 `The release of documents tied to Jeffrey Epstein has sent ripples through the worlds of business, politics and academia, including at Columbia, where he helped his girlfriend gain entry.`\
 https://nytimes.com/2026/02/16/nyregion/columbia-epstein-dental-shuliak.html
-
-**Review: ‘The Tragedy of Coriolanus’ Swerves Off Course**\
-`Theater for a New Audience’s reimagining of the Shakespearean tragedy misses an opportunity to engage the play’s many echoes with our own tense era.`\
-https://nytimes.com/2026/02/16/theater/the-tragedy-of-coriolanus-review.html
-
-**Submit your hockey questions for James Mirtle’s next mailbag**\
-`There&#8217;s certainly a lot going on in the hockey world right now.`\
-https://nytimes.com/athletic/7050353/2026/02/16/submit-your-hockey-questions-for-james-mirtles-next-mailbag/
 
