@@ -1,3 +1,11 @@
+**Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
+`Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
+https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/
+
+**Teacher Killed in Crash After Man Fled in Car From ICE, Police Say**\
+`The man, who federal officials said had entered the United States illegally, was arrested and charged with first-degree homicide after the crash in Savannah, Ga., according to the county police.`\
+https://nytimes.com/2026/02/16/us/georgia-ice-car-crash-teacher-killed.html
+
 **Assessing Dodgers' options in their main battle of spring: Second base**\
 `The Dodgers don't typically have a lot of intrigue at spring training, but Tommy Edman's injury has created competition on the infield.`\
 https://nytimes.com/athletic/7051041/2026/02/16/dodgers-options-second-base/
