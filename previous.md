@@ -1,3 +1,7 @@
+**Nick Castellanos eager for fresh start with Padres after messy Phillies exit**\
+`Castellanos could see some time at first base, a position he's never played professionally but worked on during the offseason.`\
+https://nytimes.com/athletic/7048879/2026/02/15/nick-castellanos-padres-phillies-exit/
+
 **Collin Morikawa triumphs at Pebble Beach for first PGA Tour win since 2023**\
 `After claiming the dramatic victory, Morikawa announced that he and his wife are expecting their first child later this year.`\
 https://nytimes.com/athletic/7048960/2026/02/15/collin-morikawa-wins-pebble-beach-pro-am-pga/
@@ -13,8 +17,4 @@ https://nytimes.com/athletic/7048956/2026/02/15/matthew-tkachuk-hot-mic-leon-dra
 **Tyler Reddick lifts Michael Jordan's 23XI Racing to Daytona 500 win**\
 `Takeaways from The Athletic's reporters from an "only in NASCAR!" finish at the Daytona 500.`\
 https://nytimes.com/athletic/7048917/2026/02/15/tyler-reddick-michael-jordan-daytona-500/
-
-**Raiders to hire Seahawks QBs coach Andrew Janocko as offensive coordinator: Source**\
-`New Raiders head coach is bringing a familiar face from Seattle to join his staff in Las Vegas in Janocko.`\
-https://nytimes.com/athletic/7048829/2026/02/15/raiders-to-hire-seahawks-qbs-coach-andrew-janocko-as-offensive-coordinator-source/
 

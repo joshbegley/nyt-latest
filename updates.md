@@ -1,3 +1,7 @@
+**Nick Castellanos eager for fresh start with Padres after messy Phillies exit**\
+`Castellanos could see some time at first base, a position he's never played professionally but worked on during the offseason.`\
+https://nytimes.com/athletic/7048879/2026/02/15/nick-castellanos-padres-phillies-exit/
+
 **Collin Morikawa triumphs at Pebble Beach for first PGA Tour win since 2023**\
 `After claiming the dramatic victory, Morikawa announced that he and his wife are expecting their first child later this year.`\
 https://nytimes.com/athletic/7048960/2026/02/15/collin-morikawa-wins-pebble-beach-pro-am-pga/
