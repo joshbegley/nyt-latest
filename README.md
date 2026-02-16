@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7048839/2026/02/15/team-usa-stars-wins-nba-all-star
 `A standoff over the security of Taiwan has led to a steep decline in the number of Chinese visitors to Japan, which is heavily dependent on the tourists.`\
 https://nytimes.com/2026/02/15/business/japan-economy-china-tourism.html
 
-**Kansas State to part ways with head coach Jerome Tang: Source**\
+**Jerome Tang out at Kansas State, expected to be fired for cause: Source**\
 `The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
 https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
 
