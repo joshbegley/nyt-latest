@@ -1,3 +1,15 @@
+**Senators Meet Zelensky With Hopeful Message on Sanctions**\
+`During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
+https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
+
+**Progress in Guthrie Case Is Fitful as Search Enters Its Third Week**\
+`Late-night bursts of activity have yielded few visible results as investigators hunt for Nancy Guthrie, the mother of a “Today” show host.`\
+https://nytimes.com/2026/02/16/us/nancy-guthrie-search.html
+
+**Where to Watch Robert Duvall’s Top Performances**\
+`He played rugged, capable men drawn from America’s past, present and possible future.`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html
+
 **Mexican Open will not serve meat in player restaurant due to doping contamination concerns**\
 `A document circulated ahead of the 2026 edition offered advice on getting sufficient protein from other sources like fish and eggs.`\
 https://nytimes.com/athletic/7050589/2026/02/16/mexican-open-tennis-meat-doping/
