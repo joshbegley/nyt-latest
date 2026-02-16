@@ -26,7 +26,7 @@ https://nytimes.com/athletic/7050927/2026/02/16/elana-meyers-taylor-monobob-gold
 `The match, which Newcastle won 3-1, was littered with contentious decisions in the absence of VAR.`\
 https://nytimes.com/athletic/7050839/2026/02/16/referee-kavanagh-villa-newcastle-premier-league/
 
-**French hockey player removed from Olympic team for violating 'Olympic spirit' after fight**\
+**French hockey player removed from team for violating 'Olympic spirit'**\
 `The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
 https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
 
