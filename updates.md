@@ -1,3 +1,15 @@
+**Lowetide: Ranking the Oilers' top 10 trade assets for 2026 deadline**\
+`The Oilers may have to surrender some of their enticing young players at this year's deadline.`\
+https://nytimes.com/athletic/7048217/2026/02/16/edmonton-oilers-trade-deadline-2026-ranking-assets/
+
+**Who's next at Kansas State? candidates to replace fired head coach Jerome Tang**\
+`Kansas State could swing at some of the hot mid-major candidates, like Saint Louis' Josh Schertz and Utah State's Jerrod Calhoun.`\
+https://nytimes.com/athletic/7050060/2026/02/16/kansas-state-mens-basketball-coaching-candidates-jerome-tang/
+
+**Zinchenko ruled out for season after sustaining knee injury in second Ajax game**\
+`The full-back, whose contract runs until June 30, has played just 20 minutes for Ajax after joining from Arsenal on February 1.`\
+https://nytimes.com/athletic/7050080/2026/02/16/oleksandr-zinchenko-injury-ajax-ukraine/
+
 **Rubio Stresses Trump’s Support for Leader of Hungary Before Tight Elections**\
 `The U.S. secretary of state said in Budapest that the president was “deeply committed” to the success of Viktor Orban, who has boasted of creating an “illiberal state.”`\
 https://nytimes.com/2026/02/16/world/europe/rubio-hungary-elections-orban-trump.html
