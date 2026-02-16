@@ -1,3 +1,7 @@
+**Assessing Dodgers' options in their main battle of spring: Second base**\
+`The Dodgers don't typically have a lot of intrigue at spring training, but Tommy Edman's injury has created competition on the infield.`\
+https://nytimes.com/athletic/7051041/2026/02/16/dodgers-options-second-base/
+
 **Robert Duvall: A Life in Pictures**\
 `The actor, who had a knack for embodying a wealth of varied characters, had a sprawling and celebrated career.`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-photos.html

@@ -1,3 +1,7 @@
+**Assessing Dodgers' options in their main battle of spring: Second base**\
+`The Dodgers don't typically have a lot of intrigue at spring training, but Tommy Edman's injury has created competition on the infield.`\
+https://nytimes.com/athletic/7051041/2026/02/16/dodgers-options-second-base/
+
 **Robert Duvall: A Life in Pictures**\
 `The actor, who had a knack for embodying a wealth of varied characters, had a sprawling and celebrated career.`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/world/japan-figure-skating-pairs-gold-medal.html
 **Hours after Tom Pohlad inspires Twins, Pablo López's early BP exit shows team's fragility**\
 `Even if López avoids major injury, the team is still fragile enough that a serious setback could upend its hope of contending.`\
 https://nytimes.com/athletic/7050943/2026/02/16/twins-pablo-lopez-batting-practice-tom-pohlad/
-
-**Judge Orders Trump Administration to Restore Displays About Slavery at Washington’s House**\
-`The judge said the government did not have the power to erase or alter historical truths after the administration took down displays about slavery at the President’s House Site in Philadelphia.`\
-https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washington-slavery-injunction.html
 
