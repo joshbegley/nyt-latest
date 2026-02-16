@@ -1,8 +1,20 @@
+**Mets 'will never' name a team captain under owner Steve Cohen**\
+`Whether the Mets would make someone a team captain was a major storyline during their disappointing 2025 season.`\
+https://nytimes.com/athletic/7050176/2026/02/16/no-mets-captain-steve-cohen/
+
+**In First Months as Governor, Abigail Spanberger Kicks Up Heat From the Right**\
+`The new governor of Virginia, who ran as a centrist Democrat and a former intelligence officer, says the attacks are a sign of her success.`\
+https://nytimes.com/2026/02/16/us/politics/spanberger-virginia-governor.html
+
+**Mike Trout among players missing the World Baseball Classic because of insurance issues**\
+`Without insurance coverage, Trout might have risked his $35 million contract.`\
+https://nytimes.com/athletic/7007920/2026/02/16/mike-trout-missing-wbc-insurance/
+
 **Lowetide: Ranking the Oilers' top 10 trade assets for 2026 deadline**\
 `The Oilers may have to surrender some of their enticing young players at this year's deadline.`\
 https://nytimes.com/athletic/7048217/2026/02/16/edmonton-oilers-trade-deadline-2026-ranking-assets/
 
-**Who's next at Kansas State? candidates to replace fired head coach Jerome Tang**\
+**Who's next at Kansas State? 10 candidates to replace fired head coach Jerome Tang**\
 `Kansas State could swing at some of the hot mid-major candidates, like Saint Louis' Josh Schertz and Utah State's Jerrod Calhoun.`\
 https://nytimes.com/athletic/7050060/2026/02/16/kansas-state-mens-basketball-coaching-candidates-jerome-tang/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7049789/2026/02/16/usmnt-agyemang-mckennie-pulisic-
 **The Athletic college baseball Top 25: LSU takes over top spot; Oklahoma cracks top 10**\
 `Oklahoma and Michigan enter the top 25 after strong opening weekends at neutral sites. `\
 https://nytimes.com/athletic/7049988/2026/02/16/college-baseball-ranking-lsu-ucla-arkansas/
-
-**For Team USA, these Winter Olympics have not gone according to plan**\
-`Injuries, freak mishaps and shocking performances have beset Team USA's superstars. But there's still good news.`\
-https://nytimes.com/athletic/7049777/2026/02/16/winter-olympics-team-usa-stars-injuries-medals/
-
-**Submit your college basketball questions for our mailbag**\
-`The weekend in college basketball had a little bit of everything, including the No. 1 team losing and a high-major coaching change.`\
-https://nytimes.com/athletic/7050076/2026/02/16/submit-college-basketball-questions-mailbag/
-
-**College baseball week in review: Oklahoma makes an opening statement in Texas**\
-`Arizona opens the season with three losses for the second straight time, while Michigan, Michigan State and Xavier grab fast starts.`\
-https://nytimes.com/athletic/7049892/2026/02/16/college-baseball-oklahoma-sec-georgia-tennessee/
 
