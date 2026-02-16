@@ -1,3 +1,7 @@
+**‘A Knight of the Seven Kingdoms’ Season 1, Episode 5 Recap: ‘Get Up!’**\
+`Duncan takes a serious beating. Egg doesn’t like how things are looking.`\
+https://nytimes.com/2026/02/15/arts/television/a-knight-of-the-seven-kingdoms-recap-season-1-episode-5.html
+
 **MLB TV strike zone box won't indicate balls or strikes due to ABS system**\
 `The strike zone box can still be used on TV, but it will be on viewers to guess as to whether the pitch was a ball or a strike.`\
 https://nytimes.com/athletic/7049182/2026/02/15/mlb-tv-strike-zone-box-balls-strikes-abs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/15/business/japan-economy-china-tourism.html
 **Jerome Tang out at Kansas State, expected to be fired for cause: Source**\
 `The Wildcats part ways with Jerome Tang a few days after he made headlines criticizing his team following a loss to Cincinnati. `\
 https://nytimes.com/athletic/7049047/2026/02/15/kansas-state-jerome-tang-fired/
-
-**What to Know About the Homeland Security Shutdown**\
-`Funding for the Department of Homeland Security lapsed on Saturday amid a standoff over restrictions that Democrats have demanded for federal immigration agents. But much of its work continues.`\
-https://nytimes.com/2026/02/15/us/politics/homeland-security-shutdown.html
 
