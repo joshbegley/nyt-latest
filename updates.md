@@ -1,3 +1,7 @@
+**No Corrections: Feb. 16, 2026**\
+`No corrections appeared in print on Monday, Feb. 16, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
+
 **Heitinga leaves Tottenham assistant coach role after Tudor appointment**\
 `Fellow assistant coaches Justin Cochrane and Chris Haslam have also left the club following the sacking of Thomas Frank.`\
 https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/

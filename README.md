@@ -1,3 +1,7 @@
+**Packers mailbag: Submit questions for beat writer Matt Schneidman**\
+`Tell us what’s on your mind as the draft and free agency approach.`\
+https://nytimes.com/athletic/7049994/2026/02/16/green-bay-packers-mailbag-questions-draft/
+
 **No Corrections: Feb. 16, 2026**\
 `No corrections appeared in print on Monday, Feb. 16, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-16-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049780/2026/02/16/ostersund-crowdfunding-transfer-
 **Indonesia Says It’s Preparing Thousands of Peacekeeping Troops for Trump’s Gaza Plan**\
 `President Prabowo Subianto of Indonesia will be among those meeting with President Trump in Washington this week to discuss his Board of Peace initiative to oversee a cease-fire in Gaza.`\
 https://nytimes.com/2026/02/16/us/politics/indonesia-peacekeeping-troops-trump-gaza.html
-
-**Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
-``\
-https://nytimes.com/live/2026/02/16/us/president-trump-news
 
