@@ -1,5 +1,17 @@
+**Padres give multiyear extension to A.J. Preller, lifting some uncertainty about GM's future**\
+`One of baseball's most aggressive executives signed a multiyear extension with the Padres.`\
+https://nytimes.com/athletic/6790125/2026/02/16/padres-aj-preller-extension/
+
+**9 Arrested Over Suspected $12 Million Louvre Ticket Scam**\
+`The Paris prosecutor’s office said that a network involving museum employees and tour guides had been operating for a decade. Investigators also believe the fraud occurred at Versailles Palace.`\
+https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
+
+**Cloudflare Reports Issues as X and Amazon Web Services Are Disrupted**\
+`Cloudflare, the tech company that provides services for a wide range of apps and websites, said it was working to fix an internal issue.`\
+https://nytimes.com/2026/02/16/technology/cloudflare-outage-aws-x-down.html
+
 **Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
-`Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Mr. Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
+`Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Jeffrey Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
 https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
 
 **Olympic skier throws poles, heads for woods after missing gate with gold in reach**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-15-2026.html
 **Winter Olympics free speech row over worker's 'Free Palestine' message**\
 `An argument between a group of Israel fans and an employee in an official merchandise store was filmed and shared on social media.`\
 https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-palestine/
-
-**Bundesliga Briefing: Gruda is back, another Karl stepover and Maye lifts the Meisterschale**\
-`Brajan Gruda looks rejuvenated, Lennart Karl is not affected by his viral moment and credit on and off the field to Borussia Dortmund`\
-https://nytimes.com/athletic/7049678/2026/02/16/bundesliga-gruda-karl-ryerson/
-
-**Latest Updates: In New Video, Savannah Guthrie Calls on Abductor to ‘Do the Right Thing’**\
-``\
-https://nytimes.com/live/2026/02/16/us/nancy-guthrie-case-updates
-
-**Why Harry Potter Still Inspires Us**\
-`Reader disagree with a guest essay that argued that the books feel dated and irrelevant today. Also: What A.I. can’t do in medicine.`\
-https://nytimes.com/2026/02/16/opinion/harry-potter.html
 

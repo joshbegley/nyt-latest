@@ -1,3 +1,7 @@
+**College baseball week in review: Oklahoma makes an opening statement in Texas**\
+`Arizona opens the season with three losses for the second straight time, while Michigan, Michigan State and Xavier grab fast starts.`\
+https://nytimes.com/athletic/7049892/2026/02/16/college-baseball-oklahoma-sec-georgia-tennessee/
+
 **Padres give multiyear extension to A.J. Preller, lifting some uncertainty about GM's future**\
 `One of baseball's most aggressive executives signed a multiyear extension with the Padres.`\
 https://nytimes.com/athletic/6790125/2026/02/16/padres-aj-preller-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049906/2026/02/16/tottenham-john-heitinga-leaves/
 **No Corrections: Feb. 15, 2026**\
 `No corrections appeared in print on Sunday, Feb. 15, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-15-2026.html
-
-**Winter Olympics free speech row over worker's 'Free Palestine' message**\
-`An argument between a group of Israel fans and an employee in an official merchandise store was filmed and shared on social media.`\
-https://nytimes.com/athletic/7049713/2026/02/16/winter-olympics-worker-free-palestine/
 
