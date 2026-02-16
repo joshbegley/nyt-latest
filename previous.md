@@ -1,3 +1,7 @@
+**What to watch for as 2026 Olympic men's hockey qualifying round gets started**\
+`It's a do-or-die scenario on Tuesday as teams — including powerhouse Sweden — face off in the Qualifying Playoffs at the Olympics.`\
+https://nytimes.com/athletic/7050010/2026/02/16/olympics-mens-hockey-2026-qualifying-round/
+
 **USMNT Tracker: Agyemang and McKennie turn heads as Pulisic returns**\
 `Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
 https://nytimes.com/athletic/7049789/2026/02/16/usmnt-agyemang-mckennie-pulisic-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/technology/cloudflare-outage-aws-x-down.html
 **Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
 `Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Jeffrey Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
 https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
-
-**Olympic skier throws poles, heads for woods after missing gate with gold in reach**\
-`A heartbroken Atle Lie McGrath walked off the course after failing to finish his second run in the men's slalom. `\
-https://nytimes.com/athletic/7049754/2026/02/16/winter-olympics-atle-lie-mcgrath-slalom-2026/
 

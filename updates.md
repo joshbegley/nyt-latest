@@ -1,3 +1,7 @@
+**What to watch for as 2026 Olympic men's hockey qualifying round gets started**\
+`It's a do-or-die scenario on Tuesday as teams — including powerhouse Sweden — face off in the Qualifying Playoffs at the Olympics.`\
+https://nytimes.com/athletic/7050010/2026/02/16/olympics-mens-hockey-2026-qualifying-round/
+
 **USMNT Tracker: Agyemang and McKennie turn heads as Pulisic returns**\
 `Our round up of the weekend action involving USMNT's Europe-based players and hopefuls also takes in the youngsters who seized their chance`\
 https://nytimes.com/athletic/7049789/2026/02/16/usmnt-agyemang-mckennie-pulisic-world-cup/

@@ -1,3 +1,7 @@
+**Rubio Stresses Trump’s Support for Leader of Hungary Before Tight Elections**\
+`The U.S. secretary of state said in Budapest that the president was “deeply committed” to the success of Viktor Orban, who has boasted of creating an “illiberal state.”`\
+https://nytimes.com/2026/02/16/world/europe/rubio-stresses-trumps-support-for-leader-of-hungary-before-tight-elections.html
+
 **What to watch for as 2026 Olympic men's hockey qualifying round gets started**\
 `It's a do-or-die scenario on Tuesday as teams — including powerhouse Sweden — face off in the Qualifying Playoffs at the Olympics.`\
 https://nytimes.com/athletic/7050010/2026/02/16/olympics-mens-hockey-2026-qualifying-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
 **Cloudflare Reports Issues as X and Amazon Web Services Are Disrupted**\
 `Cloudflare, the tech company that provides services for a wide range of apps and websites, said it was working to fix an internal issue.`\
 https://nytimes.com/2026/02/16/technology/cloudflare-outage-aws-x-down.html
-
-**Despite Epstein’s Toxicity, Steve Bannon Stood by Him, Texts Indicate**\
-`Mr. Bannon, a MAGA podcaster, developed a seemingly chummy relationship with Jeffrey Epstein, who was accused of sex trafficking. He said it was in the name of getting Mr. Epstein to open up.`\
-https://nytimes.com/2026/02/16/us/politics/jeffrey-epstein-steve-bannon.html
 
