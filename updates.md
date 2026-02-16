@@ -1,3 +1,7 @@
+**Twins spring training guide: 33 thoughts on all 33 hitters in major-league camp**\
+`Competing amidst stars for 13 hitting spots on the Opening Day roster are prospects and Triple-A journeymen.`\
+https://nytimes.com/athletic/7009780/2026/02/16/twins-spring-training-roster-hitters-analysis/
+
 **Fact or fiction? Examining some of the talking points around this Flyers season**\
 `Blame is being pointed in a lot of directions amid the Flyers' recent skid.
  `\

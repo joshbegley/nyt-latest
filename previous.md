@@ -1,3 +1,7 @@
+**Twins spring training guide: 33 thoughts on all 33 hitters in major-league camp**\
+`Competing amidst stars for 13 hitting spots on the Opening Day roster are prospects and Triple-A journeymen.`\
+https://nytimes.com/athletic/7009780/2026/02/16/twins-spring-training-roster-hitters-analysis/
+
 **A step too VAR in the FA Cup as Newcastle beat Villa? Plus: Timothee Chalamet - soccer player**\
 `Today in TAFC: Is football better with or without VAR? Plus: Chalamet's soccer years and Ronaldo returns.`\
 https://nytimes.com/athletic/7049598/2026/02/16/a-step-too-var-in-the-fa-cup-as-newcastle-beat-aston-villa-plus-timothee-chalamet-soccer-player/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/7048551/2026/02/16/chase-delauter-guardians-playoff
 **Yankees' Ryan Weathers is already throwing 98 mph, but his focus is on health**\
 `The Yankees need Weathers to be in top form, especially early, as they'll be missing three big arms Opening Day.`\
 https://nytimes.com/athletic/7049067/2026/02/16/yankees-ryan-weathers-focus-health-spring-training/
-
-**Fact or fiction? Examining some of the talking points around this Flyers season**\
-`Blame is being pointed in a lot of directions amid the Flyers' recent skid.
- `\
-https://nytimes.com/athletic/7033729/2026/02/16/philadelphia-flyers-olympic-break-standings/
 
