@@ -1,3 +1,15 @@
+**NBA Power Rankings post-All-Star Break: A new No. 1 as we head into the second half**\
+`The Thunder started the season as hot as any team could. But at the break, two upstarts have surpassed the defending champs in our rankings.`\
+https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-break-pistons-spurs/
+
+**Champions League play-offs: Real Madrid, Newcastle and other games to watch**\
+`Europe's premier club competition is back, but which knockout ties should you be watching?`\
+https://nytimes.com/athletic/7050119/2026/02/16/champions-league-playoffs-odds-real-madrid-and-newcastle/
+
+**How to watch Syracuse vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7050266/2026/02/16/syracuse-vs-duke-stream-how-to-watch-feb-16/
+
 **Should Drug Companies Be Advertising to Consumers?**\
 `Aging means “becoming a target” of the industry, one expert said. After decades of debate, politicians of all stripes are proposing bans.`\
 https://nytimes.com/2026/02/16/health/drug-advertisements-consumers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/16/world/europe/spain-amnesty-immigration.html
 **Mets 'will never' name a team captain under owner Steve Cohen**\
 `Whether the Mets would make someone a team captain was a major storyline during their disappointing 2025 season.`\
 https://nytimes.com/athletic/7050176/2026/02/16/no-mets-captain-steve-cohen/
-
-**In First Months as Governor, Abigail Spanberger Kicks Up Heat From the Right**\
-`The new governor of Virginia, who ran as a centrist Democrat and a former intelligence officer, says the attacks are a sign of her success.`\
-https://nytimes.com/2026/02/16/us/politics/spanberger-virginia-governor.html
-
-**Mike Trout among players missing the World Baseball Classic because of insurance issues**\
-`Without insurance coverage, Trout might have risked his $35 million contract.`\
-https://nytimes.com/athletic/7007920/2026/02/16/mike-trout-missing-wbc-insurance/
-
-**Lowetide: Ranking the Oilers' top 10 trade assets for 2026 deadline**\
-`The Oilers may have to surrender some of their enticing young players at this year's deadline.`\
-https://nytimes.com/athletic/7048217/2026/02/16/edmonton-oilers-trade-deadline-2026-ranking-assets/
 

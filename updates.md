@@ -1,3 +1,15 @@
+**NBA Power Rankings post-All-Star Break: A new No. 1 as we head into the second half**\
+`The Thunder started the season as hot as any team could. But at the break, two upstarts have surpassed the defending champs in our rankings.`\
+https://nytimes.com/athletic/7049901/2026/02/16/nba-power-rankings-all-star-break-pistons-spurs/
+
+**Champions League play-offs: Real Madrid, Newcastle and other games to watch**\
+`Europe's premier club competition is back, but which knockout ties should you be watching?`\
+https://nytimes.com/athletic/7050119/2026/02/16/champions-league-playoffs-odds-real-madrid-and-newcastle/
+
+**How to watch Syracuse vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7050266/2026/02/16/syracuse-vs-duke-stream-how-to-watch-feb-16/
+
 **Should Drug Companies Be Advertising to Consumers?**\
 `Aging means “becoming a target” of the industry, one expert said. After decades of debate, politicians of all stripes are proposing bans.`\
 https://nytimes.com/2026/02/16/health/drug-advertisements-consumers.html
