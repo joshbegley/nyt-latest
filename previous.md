@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
+``\
+https://nytimes.com/live/2026/02/16/us/trump-president-news
+
+**College hoops players from Asia hope to 'open the path' for more to follow**\
+`The number of international players in college basketball has soared since the 2009-10 season, but Asia remains a largely untapped market.`\
+https://nytimes.com/athletic/7048069/2026/02/16/college-basketball-asian-players-seattle-oregon/
+
+**Coco Gauff says people should not be 'dying in the streets just for existing' in U.S.**\
+`Gauff, 21, was asked at the Dubai Tennis Championships about experiencing domestic news as a traveling athlete.`\
+https://nytimes.com/athletic/7049660/2026/02/16/tennis-coco-gauff-us-politics/
+
 **Confessions of a Former Body Positivity Influencer**\
 `GLP1-s have exploded in popularity, and the body positivity movement is at a crossroads.`\
 https://nytimes.com/video/opinion/100000010675137/body-positivity-social-media-weight-loss-feed.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/16/world/europe/dana-eden-tehran-dead.html
 **Twins spring training guide: 33 thoughts on all 33 hitters in major-league camp**\
 `Competing amidst stars for 13 hitting spots on the Opening Day roster are prospects and Triple-A journeymen.`\
 https://nytimes.com/athletic/7009780/2026/02/16/twins-spring-training-roster-hitters-analysis/
-
-**A step too VAR in the FA Cup as Newcastle beat Villa? Plus: Timothee Chalamet - soccer player**\
-`Today in TAFC: Is football better with or without VAR? Plus: Chalamet's soccer years and Ronaldo returns.`\
-https://nytimes.com/athletic/7049598/2026/02/16/a-step-too-var-in-the-fa-cup-as-newcastle-beat-aston-villa-plus-timothee-chalamet-soccer-player/
-
-**Thirty-two thoughts on all the Yankees hitters in major-league camp**\
-`Observations and notes on each of the 32 hitters the Yankees have on their roster as full-squad workouts begin in spring training.`\
-https://nytimes.com/athletic/7047066/2026/02/16/yankees-hitters-spring-training/
-
-**Inside Real Madrid: Trent's return, Arbeloa's Benfica pressure, Mbappe fitness latest**\
-`After a comprehensive La Liga victory over Real Sociedad, confidence is growing before the Champions League play-offs`\
-https://nytimes.com/athletic/7049538/2026/02/16/real-madrid-vinicius-jr-trent-bellingham-arbeloa-mbappe-benfica/
 

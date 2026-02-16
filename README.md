@@ -1,6 +1,6 @@
 **Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
 ``\
-https://nytimes.com/live/2026/02/16/us/trump-president-news
+https://nytimes.com/live/2026/02/16/us/president-trump-news
 
 **College hoops players from Asia hope to 'open the path' for more to follow**\
 `The number of international players in college basketball has soared since the 2009-10 season, but Asia remains a largely untapped market.`\
