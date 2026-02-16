@@ -1,3 +1,15 @@
+**Browns hire Mike Rutenberg as defensive coordinator: Source**\
+`Rutenberg, who has over 15 years of NFL coaching experience, lands his first coordinator job. `\
+https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-coordinator-falcons/
+
+**Klopp agent claims he rejected interest from Chelsea and Man Utd**\
+`Manchester United and Chelsea both denied they made any enquiry for Klopp when approached by The Athletic.`\
+https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-united/
+
+**Robert Duvall, Chameleonlike Actor of Film, Stage and TV, Dies at 95**\
+`The Oscar winner was known for his ability to disappear into roles, playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” and in the television series “Lonesome Dove.”`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
+
 **IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
 `The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
 https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
