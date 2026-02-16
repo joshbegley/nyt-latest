@@ -1,3 +1,15 @@
+**Lowetide: Ranking the Oilers' top 10 trade assets for 2026 deadline**\
+`The Oilers may have to surrender some of their enticing young players at this year's deadline.`\
+https://nytimes.com/athletic/7048217/2026/02/16/edmonton-oilers-trade-deadline-2026-ranking-assets/
+
+**Who's next at Kansas State? candidates to replace fired head coach Jerome Tang**\
+`Kansas State could swing at some of the hot mid-major candidates, like Saint Louis' Josh Schertz and Utah State's Jerrod Calhoun.`\
+https://nytimes.com/athletic/7050060/2026/02/16/kansas-state-mens-basketball-coaching-candidates-jerome-tang/
+
+**Zinchenko ruled out for season after sustaining knee injury in second Ajax game**\
+`The full-back, whose contract runs until June 30, has played just 20 minutes for Ajax after joining from Arsenal on February 1.`\
+https://nytimes.com/athletic/7050080/2026/02/16/oleksandr-zinchenko-injury-ajax-ukraine/
+
 **Rubio Stresses Trump’s Support for Leader of Hungary Before Tight Elections**\
 `The U.S. secretary of state said in Budapest that the president was “deeply committed” to the success of Viktor Orban, who has boasted of creating an “illiberal state.”`\
 https://nytimes.com/2026/02/16/world/europe/rubio-hungary-elections-orban-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7050076/2026/02/16/submit-college-basketball-questi
 **College baseball week in review: Oklahoma makes an opening statement in Texas**\
 `Arizona opens the season with three losses for the second straight time, while Michigan, Michigan State and Xavier grab fast starts.`\
 https://nytimes.com/athletic/7049892/2026/02/16/college-baseball-oklahoma-sec-georgia-tennessee/
-
-**Padres give multiyear extension to A.J. Preller, lifting some uncertainty about GM's future**\
-`One of baseball's most aggressive executives signed a multiyear extension with the Padres.`\
-https://nytimes.com/athletic/6790125/2026/02/16/padres-aj-preller-extension/
-
-**Ticket Scam Cost the Louvre $12 Million, Investigators Say**\
-`The Paris prosecutor’s office said that a network involving museum employees and tour guides had been operating for a decade. Investigators also believe the fraud occurred at Versailles Palace.`\
-https://nytimes.com/2026/02/16/arts/louvre-museum-ticket-scam-arrests.html
-
-**Cloudflare Reports Issues as X and Amazon Web Services Are Disrupted**\
-`Cloudflare, the tech company that provides services for a wide range of apps and websites, said it was working to fix an internal issue.`\
-https://nytimes.com/2026/02/16/technology/cloudflare-outage-aws-x-down.html
 
