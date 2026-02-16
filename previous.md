@@ -30,8 +30,8 @@ https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-
 `Manchester United and Chelsea both denied they made any enquiry for Klopp when approached by The Athletic.`\
 https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-united/
 
-**Robert Duvall, Chameleonlike Actor of Film, Stage and TV, Dies at 95**\
-`The Oscar winner was known for his ability to disappear into roles, playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” and in the television series “Lonesome Dove.”`\
+**Robert Duvall, a Chameleon of an Actor Onscreen and Onstage, Dies at 95**\
+`An Oscar winner, he was known for disappearing into wide-ranging roles in movies like “Apocalypse Now” and “The Godfather” and in the television series “Lonesome Dove.”`\
 https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
 
 **IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\

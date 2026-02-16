@@ -1,3 +1,7 @@
+**Robert Duvall, a Chameleon of an Actor Onscreen and Onstage, Dies at 95**\
+`An Oscar winner, he was known for disappearing into wide-ranging roles in movies like “Apocalypse Now” and “The Godfather” and in the television series “Lonesome Dove.”`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
+
 **As Guthrie Case Grips Nation, One Police Chief Reflects on His Time in the Spotlight**\
 `“It’s probably something that no one ever expects to happen in their career,” said James Fry, who was the police chief in Moscow, Idaho, when four students were killed there in 2022.`\
 https://nytimes.com/2026/02/16/us/nancy-guthrie-police-idaho-murders.html
