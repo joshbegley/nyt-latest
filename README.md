@@ -1,3 +1,7 @@
+**Robert Duvall, Chameleonlike Actor of Film, Stage and TV, Dies at 95**\
+`The Oscar winner was known for his ability to disappear into roles, playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” and in the television series “Lonesome Dove.”`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-dead.html
+
 **IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
 `The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
 https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/theater/the-tragedy-of-coriolanus-review.html
 **Submit your hockey questions for James Mirtle’s next mailbag**\
 `There&#8217;s certainly a lot going on in the hockey world right now.`\
 https://nytimes.com/athletic/7050353/2026/02/16/submit-your-hockey-questions-for-james-mirtles-next-mailbag/
-
-**Richard Ottinger, 97, Dies; Fought for the Environment in Congress**\
-`A New York Democrat, he spent 16 years in the House over two stretches, beginning in 1965, championing the health of the Hudson River and opposing the Vietnam War.`\
-https://nytimes.com/2026/02/16/us/politics/richard-ottinger-dead.html
 
