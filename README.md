@@ -1,3 +1,15 @@
+**Meet the coach with his fingerprints over the U.S. women's and men's Olympic hockey teams**\
+`John Wroblewski is guiding the top-ranked women's team in the world. He also helped mold some of the American men's brightest players.`\
+https://nytimes.com/athletic/7048133/2026/02/16/john-wroblewski-team-usa-olympics-womens-hockey-men/
+
+**If the NBA is serious about looking at everything to end tanking ... it's about time**\
+`The lottery and draft are corporate welfare for sports teams. How should the NBA go about correcting tanking in efforts to win the lottery?`\
+https://nytimes.com/athletic/7048722/2026/02/16/nba-adam-silver-tanking-draft-solutions/
+
+**Neymar records assist on return from knee injury in 6-0 Santos win**\
+`The 34-year-old came on as a half-time substitute in his first appearance since undergoing arthroscopy surgery on his knee in December.`\
+https://nytimes.com/athletic/7049588/2026/02/16/neymar-injury-return-brazil-santos/
+
 **Syria Crosses a Threshold**\
 `The advance of the Syrian Army into Kurdish regions could put nearly all the country under one authority. But it ends a dream of autonomy for ethnic Kurds.`\
 https://nytimes.com/2026/02/16/world/middleeast/syria-army-kurds-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7048070/2026/02/16/macklin-rick-celebrini-olympics-
 **Michael Jordan is a champion again, with nothing but magnanimity for NASCAR**\
 `"It's like winning a championship, a huge championship," Jordan told The Athletic. "Unbelievable."`\
 https://nytimes.com/athletic/7049173/2026/02/16/michael-jordan-nascar-daytona-champion/
-
-**MLB insiders predict the players most likely to get traded in 2026 spring training**\
-`Will there be a good old-fashioned blockbuster deal this spring? Never say never! Our panel weighs in on the players who could get traded. `\
-https://nytimes.com/athletic/7049238/2026/02/16/mlb-players-trade-predictions-2026-spring-training/
-
-**The New York Times International Edition in Print for Tuesday, Feb. 17, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/16/todays-new-york-times-international-edition
-
-**The NBA All-Star format was a win. Can it get people to care again?**\
-`More All-Star Sundays like this will bring back a lot of what the NBA is aiming for.`\
-https://nytimes.com/athletic/7049130/2026/02/16/2026-nba-all-star-format-public-opinion/
 
