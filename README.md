@@ -1,3 +1,19 @@
+**Mid-season managerial changes? Forest and Spurs certainly have form for it**\
+`After a flurry of firings, it’s now four Premier League sackings already in 2026 - the most seen in the first two months of a calendar year`\
+https://nytimes.com/athletic/7045529/2026/02/16/mid-season-managerial-changes-premier-league/
+
+**A 70-Year-Old Curling Stadium Is a Star at the Winter Olympics**\
+`It hosted Olympic hockey in 1956 and James Bond a quarter-century later. Cortina’s beloved Olympic Stadium is now bursting with excitement for curling.`\
+https://nytimes.com/2026/02/16/world/europe/cortina-curling-stadium-winter-olympics.html
+
+**Quote of the Day: Where’s My Olympic Medal? Right Here in the Sock Drawer.**\
+`Quotation of the Day for Monday, February 16, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/quote-of-the-day-wheres-my-olympic-medal-right-here-in-the-sock-drawer.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 16, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7049395/2026/02/16/connections-sports-edition-hints-answers-feb-16-2026/
+
 **DNA Found on Gloves as Guthrie Search Enters Third Week**\
 `The F.B.I. said gloves found near Nancy Guthrie’s home carried a man’s DNA. The gloves appeared to match the ones seen in doorbell camera footage.`\
 https://nytimes.com/video/us/100000010715060/nancy-guthrie-gloves-dna.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7049095/2026/02/15/nba-all-star-saturday-tickets-af
 **2026 Olympics, Day 9 recap: Shiffrin continues Olympic struggles**\
 `Mikaela Shiffrin's Olympic struggles continue, USA men's hockey advances, and other news from Day 9 of the Winter Olympics`\
 https://nytimes.com/athletic/7048644/2026/02/15/olympics-recap-shiffrin-us-mens-hockey-klaebo/
-
-**What we'd change about NBA All-Star Weekend: Make stars dunk? Hold the event abroad?**\
-`Who is NBA All-Star Weekend truly for at this point? Why don't stars participate in the dunk contest? How we'd change the annual showcase.`\
-https://nytimes.com/athletic/7048827/2026/02/15/nba-all-star-weekend-2026-changes-dunk-contest/
-
-**Grading the new USA vs. the World NBA All-Star format (hint: It's good!)**\
-`How did the new USA vs. the World format play out? Did it make the All-Star Game more watchable? Heighten the level of competition?`\
-https://nytimes.com/athletic/7048817/2026/02/15/nba-all-star-format-grades-2026/
-
-**NBA All-Star is fun again? First-of-its-kind format leads to surprisingly competitive event**\
-`The NBA's round-robin tournament on Sunday was a true success: The players actually tried (for the most part) and the event was lively. `\
-https://nytimes.com/athletic/7048839/2026/02/15/team-usa-stars-wins-nba-all-star-game-2026/
-
-**Diplomatic Feud With China Weighs on Japan’s Economy**\
-`A standoff over the security of Taiwan has led to a steep decline in the number of Chinese visitors to Japan, which is heavily dependent on the tourists.`\
-https://nytimes.com/2026/02/15/business/japan-economy-china-tourism.html
 
