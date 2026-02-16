@@ -1,3 +1,7 @@
+**In Xi’s Purge of the Military, a Search for Absolute Loyalty**\
+`By reaching back to Maoist tactics of “rectification,” the Chinese leader is signaling that control over the gun requires a state of perpetual cleansing.`\
+https://nytimes.com/2026/02/16/world/asia/xi-military-zhang-youxia-mao.html
+
 **What to watch on Day 10 at Winter Olympics: Women's hockey semis, curling, pairs skating**\
 `The two best women's hockey teams in the world appear headed toward a showdown for the gold medal.`\
 https://nytimes.com/athletic/7047092/2026/02/16/milan-cortina-winter-olympics-what-to-watch-day-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7047014/2026/02/16/i-blew-it-what-comes-next-when-y
 **Real Madrid, Man Utd and a World Cup: Football's wild coaching landscape and hiring dilemmas**\
 `Big jobs will be available this summer and big names are on the market. But the decision-making of clubs feels more complicated than ever`\
 https://nytimes.com/athletic/7043928/2026/02/16/real-madrid-man-united-manager-jobs-world-cup/
-
-**Man Utd hired Omar Berrada to take them back to the top - can he do it?**\
-`The Manchester United chief executive has come under scrutiny following the firing of Ruben Amorim - a coach he fought to hire`\
-https://nytimes.com/athletic/6959660/2026/02/16/manchester-united-omar-berrada/
 

@@ -1,3 +1,7 @@
+**In Xi’s Purge of the Military, a Search for Absolute Loyalty**\
+`By reaching back to Maoist tactics of “rectification,” the Chinese leader is signaling that control over the gun requires a state of perpetual cleansing.`\
+https://nytimes.com/2026/02/16/world/asia/xi-military-zhang-youxia-mao.html
+
 **What to watch on Day 10 at Winter Olympics: Women's hockey semis, curling, pairs skating**\
 `The two best women's hockey teams in the world appear headed toward a showdown for the gold medal.`\
 https://nytimes.com/athletic/7047092/2026/02/16/milan-cortina-winter-olympics-what-to-watch-day-10/
