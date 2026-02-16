@@ -1,3 +1,7 @@
+**IOC bans Ukraine helmet for political message, but rationalizes 1936 Berlin Games T-shirt**\
+`The IOC disqualified a Ukrainian skeleton racer for his message. Now it faces criticism for its own messaging.`\
+https://nytimes.com/athletic/7049783/2026/02/16/winter-olympics-berlin-tshirt-ioc-milan-cortina/
+
 **Vaccine Makers Curtail Research and Cut Jobs**\
 `Federal policies under Robert F. Kennedy Jr. that are hostile to vaccines have “sent a chill through the entire industry,” one scientist said.`\
 https://nytimes.com/2026/02/16/health/rfk-vaccine-manufacturers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050353/2026/02/16/submit-your-hockey-questions-for
 **Richard Ottinger, 97, Dies; Fought for the Environment in Congress**\
 `A New York Democrat, he spent 16 years in the House over two stretches, beginning in 1965, championing the health of the Hudson River and opposing the Vietnam War.`\
 https://nytimes.com/2026/02/16/us/politics/richard-ottinger-dead.html
-
-**Games Briefing: A U.S.-Canada rematch?**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7050328/2026/02/16/us-canada-olympics-hockey-games-briefing/
 
