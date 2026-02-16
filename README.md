@@ -1,3 +1,7 @@
+**Indonesia Says It’s Preparing Thousands of Peacekeeping Troops for Trump’s Gaza Plan**\
+`President Prabowo Subianto of Indonesia will be among those meeting with President Trump in Washington this week to discuss his Board of Peace initiative to oversee a cease-fire in Gaza.`\
+https://nytimes.com/2026/02/16/us/politics/indonesia-peacekeeping-troops-trump-gaza.html
+
 **Trump Administration Live Updates: D.H.S. Employees Work Without Pay Amid Partial Shutdown**\
 ``\
 https://nytimes.com/live/2026/02/16/us/president-trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039333/2026/02/16/blackhawks-salary-cap-projection
 **Dana Eden, Co-Creator of ‘Tehran,’ Dies During Filming of Fourth Season**\
 `Ms. Eden, 52, who was also an executive producer of the Emmy-winning show, was found in a hotel room in Athens. Greek police said they did not suspect foul play.`\
 https://nytimes.com/2026/02/16/world/europe/dana-eden-tehran-dead.html
-
-**Twins spring training guide: 33 thoughts on all 33 hitters in major-league camp**\
-`Competing amidst stars for 13 hitting spots on the Opening Day roster are prospects and Triple-A journeymen.`\
-https://nytimes.com/athletic/7009780/2026/02/16/twins-spring-training-roster-hitters-analysis/
 
