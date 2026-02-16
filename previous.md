@@ -1,3 +1,15 @@
+**Haji Wright nets hat trick to heat up USMNT World Cup striker competition**\
+`The U.S. men's national team striker broke out of a scoring slump in a big way in arguably his side's biggest match of the season.`\
+https://nytimes.com/athletic/7051114/2026/02/16/haji-wright-hat-trick-video-coventry-usmnt-world-cup/
+
+**Olympic hockey arena to install lighter boards after player feedback**\
+`The boards were always going to be replaced due to wear and tear, but the color adjustment is new.`\
+https://nytimes.com/athletic/7051071/2026/02/16/olympics-hockey-arena-lighter-boards-player-feedback/
+
+**Yankees' Aaron Judge says leading Team USA in World Baseball Classic will be 'powerful'**\
+`Judge will captain Team USA in the World Baseball Classic, hoping to lead the country to its first title since 2017. `\
+https://nytimes.com/athletic/7050843/2026/02/16/aaron-judge-team-usa-wbc-captain-ohtani-japan-finals/
+
 **Padres chairman says club drawing ‘tremendous interest’ in sale process**\
 `The sales process has recently appeared to gain momentum after the resolution of a family fight over control of the franchise.`\
 https://nytimes.com/athletic/7049922/2026/02/16/padres-john-seidler-sale-team-interest/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washing
 **Aaron Judge says right elbow won't need surgery after last year's scare**\
 `Judge suffered a flexor tendon strain last season but said the elbow is now "feeling great" and that he's throwing with confidence. `\
 https://nytimes.com/athletic/7050923/2026/02/16/aaron-judge-yankees-elbow-injury-surgery/
-
-**Auditioning to Beat Trump**\
-`Democrats like A.O.C. are testing out their messages in Europe before the midterms.`\
-https://nytimes.com/2026/02/16/world/trump-democrats-midterms-aoc-iran.html
-
-**Frederick Wiseman, 96, Penetrating Documentarian of Institutions, Dies**\
-`He exposed abuses in films like “Titicut Follies,” a once-banned portrait of a mental hospital, but ranged widely in subject matter, from a Queens neighborhood to a French restaurant.`\
-https://nytimes.com/2026/02/16/movies/frederick-wiseman-dead.html
-
-**Tom Pritzker, Citing Epstein Connection, Steps Down as Hyatt’s Executive Chairman**\
-`The member of a prominent and wealthy family, Mr. Pritzker was in regular contact with the financier and sex offender Jeffrey Epstein.`\
-https://nytimes.com/2026/02/16/us/politics/tom-pritzker-hyatt-epstein.html
 
