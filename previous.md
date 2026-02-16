@@ -1,3 +1,7 @@
+**Interview with Benfica's goalkeeper who scored against Madrid: 'It was like I was a striker. It was crazy'**\
+`His 98th-minute goal sent his team into the Champions League playoffs - he discusses that moment and his hopes for his homeland Ukraine`\
+https://nytimes.com/athletic/7033313/2026/02/16/anatoliy-trubin-benfica-goalkeeper-interview/
+
 **Tre' Johnson, former Washington offensive lineman turned teacher, dies at 54**\
 `Johnson, who played eight of his nine seasons with Washington, died on a brief family trip, his wife, Irene, posted on social media.`\
 https://nytimes.com/athletic/7049458/2026/02/16/washington-tre-johnson-dead/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7048468/2026/02/16/womens-football-identity-family-
 **Saka central, Eze deep. Is this the next phase of Arsenal’s attacking evolution?**\
 `The late changes and differences in roles for multiple players brought a sense of the unknown before kick-off, but Arteta's players thrived`\
 https://nytimes.com/athletic/7048321/2026/02/16/arsenal-fa-cup-wigan-saka-eze/
-
-**A new event debuted at these Winter Olympics. It was impossible not to watch**\
-`Dual moguls made its Olympic debut at Milan Cortina, and it proved to be an engrossing competition of mind games and tactics. `\
-https://nytimes.com/athletic/7048222/2026/02/16/dual-moguls-olympic-debut-milan-cortina/
 
