@@ -1,3 +1,7 @@
+**Robert Duvall: A Life in Pictures**\
+`The actor, who had a knack for embodying a wealth of varied characters, had a sprawling and celebrated career.`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-photos.html
+
 **Haji Wright nets hat trick to heat up USMNT World Cup striker competition**\
 `The U.S. men's national team striker broke out of a scoring slump in a big way in arguably his side's biggest match of the season.`\
 https://nytimes.com/athletic/7051114/2026/02/16/haji-wright-hat-trick-video-coventry-usmnt-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050943/2026/02/16/twins-pablo-lopez-batting-practi
 **Judge Orders Trump Administration to Restore Displays About Slavery at Washington’s House**\
 `The judge said the government did not have the power to erase or alter historical truths after the administration took down displays about slavery at the President’s House Site in Philadelphia.`\
 https://nytimes.com/2026/02/16/us/politics/presidents-house-philadelphia-washington-slavery-injunction.html
-
-**Aaron Judge says right elbow won't need surgery after last year's scare**\
-`Judge suffered a flexor tendon strain last season but said the elbow is now "feeling great" and that he's throwing with confidence. `\
-https://nytimes.com/athletic/7050923/2026/02/16/aaron-judge-yankees-elbow-injury-surgery/
 

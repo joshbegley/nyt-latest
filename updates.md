@@ -1,3 +1,7 @@
+**Robert Duvall: A Life in Pictures**\
+`The actor, who had a knack for embodying a wealth of varied characters, had a sprawling and celebrated career.`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-photos.html
+
 **Haji Wright nets hat trick to heat up USMNT World Cup striker competition**\
 `The U.S. men's national team striker broke out of a scoring slump in a big way in arguably his side's biggest match of the season.`\
 https://nytimes.com/athletic/7051114/2026/02/16/haji-wright-hat-trick-video-coventry-usmnt-world-cup/
