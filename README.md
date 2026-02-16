@@ -1,3 +1,7 @@
+**Frederick Wiseman, 96, Penetrating Documentarian of Institutions, Dies**\
+`He exposed abuses in films like “Titicut Follies,” a once-banned portrait of a mental hospital, but ranged widely in subject matter, from a Queens neighborhood to a French restaurant.`\
+https://nytimes.com/2026/02/16/movies/frederick-wiseman-dead.html
+
 **Tom Pritzker, Citing Epstein Connection, Steps Down as Hyatt’s Executive Chairman**\
 `The member of a prominent and wealthy family, Mr. Pritzker was in regular contact with the financier and sex offender Jeffrey Epstein.`\
 https://nytimes.com/2026/02/16/us/politics/tom-pritzker-hyatt-epstein.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7050927/2026/02/16/elana-meyers-taylor-monobob-gold
 `The match, which Newcastle won 3-1, was littered with contentious decisions in the absence of VAR.`\
 https://nytimes.com/athletic/7050839/2026/02/16/referee-kavanagh-villa-newcastle-premier-league/
 
-**Pierre Crinon suspended by French hockey federation for antics after Wilson fight**\
+**French hockey player removed from Olympic team for violating 'Olympic spirit' after fight**\
 `The incident occurred in the last 10 minutes of the Canada-France preliminary-round game on Sunday.`\
 https://nytimes.com/athletic/7050885/2026/02/16/french-pierre-crinon-suspended-hockey-olympics-fighting/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/hockey-game-shooting-pawtucket-rhode-island.ht
 **Senators Meet Zelensky With Hopeful Message on Sanctions**\
 `During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
 https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
-
-**Progress in Guthrie Case Is Fitful as Search Enters Its Third Week**\
-`Late-night bursts of activity have yielded few visible results as investigators hunt for Nancy Guthrie, the mother of a “Today” show host.`\
-https://nytimes.com/2026/02/16/us/nancy-guthrie-search.html
 
