@@ -1,4 +1,8 @@
 **Ilia Malinin posts first statement since Olympics disappointment**\
+`The U.S. star finished eighth in the men's singles in Milan, his first non-first-place finish in two years.`\
+https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/
+
+**Ilia Malinin posts first statement since Olympics disappointment**\
 `U.S Olympic figure skater Ilia Malinin releases first public statement since shocking men's singles performance in Winter Olympics `\
 https://nytimes.com/athletic/7050146/2026/02/16/ilia-malinin-2026-olympics-figure-skating-results-statement/
 
