@@ -1,40 +1,40 @@
-**Meet the coach with his fingerprints over the U.S. women's and men's Olympic hockey teams**\
-`John Wroblewski is guiding the top-ranked women's team in the world. He also helped mold some of the U.S. men's team's brightest players.`\
-https://nytimes.com/athletic/7048133/2026/02/16/john-wroblewski-team-usa-olympics-womens-hockey-men/
+**Panthers big board 1.0: Targeting edge rushers, off-ball LBs, WRs in first round**\
+`The Panthers did well in drafting Tetairoa McMillan in the first round last year. Who are their potential targets — especially on defense?`\
+https://nytimes.com/athletic/7048259/2026/02/16/panthers-nfl-draft-big-board-pass-rusher/
 
-**If the NBA is serious about looking at everything to end tanking ... it's about time**\
-`The lottery and draft are corporate welfare for sports teams. How should the NBA go about correcting tanking in efforts to win the lottery?`\
-https://nytimes.com/athletic/7048722/2026/02/16/nba-adam-silver-tanking-draft-solutions/
+**A preview of The Athletic’s live coverage this week**\
+`The Athletic's live coverage this week is headlined by more Winter Olympics action and a return of the Champions League knockouts.`\
+https://nytimes.com/athletic/7048145/2026/02/16/winter-olympics-hockey-champions-league-premier-league-f1/
 
-**Neymar records assist on return from knee injury in 6-0 Santos win**\
-`The 34-year-old came on as a half-time substitute in his first appearance since undergoing arthroscopy surgery on his knee in December.`\
-https://nytimes.com/athletic/7049588/2026/02/16/neymar-injury-return-brazil-santos/
+**Phillies' Andrew Painter begins an important spring training with a higher arm slot**\
+`No pitcher in Phillies camp will be more scrutinized this spring than Painter, who is expected to begin the season in the club's rotation. `\
+https://nytimes.com/athletic/7048584/2026/02/16/andrew-painter-phillies-arm-slot/
 
-**Syria Crosses a Threshold**\
-`The advance of the Syrian Army into Kurdish regions could put nearly all the country under one authority. But it ends a dream of autonomy for ethnic Kurds.`\
-https://nytimes.com/2026/02/16/world/middleeast/syria-army-kurds-war.html
+**One potential 2026 salary-cap cut for every NFL team: Kirk Cousins, Tyreek Hill and more**\
+`Who are the prime cut candidates across the NFL this offseason? The Athletic's writers have a list of intriguing names worth watching.`\
+https://nytimes.com/athletic/7046664/2026/02/16/2026-nfl-teams-potential-salary-cap-cousins-hill-mixon/
 
-**The biggest offseason change for every American League team**\
-`As full-squad workouts begin, some clubs added key players, others blew it up, and for a few of them, the plan is a bit unclear. `\
-https://nytimes.com/athletic/7046465/2026/02/16/american-league-biggest-offseason-changes/
+**What I'm seeing at Reds camp: Nick Lodolo, Héctor Rodríguez and more**\
+`The team's pitching is starting off spring incredibly healthy, and other notes from spring training.`\
+https://nytimes.com/athletic/7048865/2026/02/16/reds-camp-hector-rodriguez-nick-lodolo-more/
 
-**The buzz at NBA All-Star Weekend: What players, coaches and execs were talking about**\
-`The hottest topic this All-Star Weekend in the Los Angeles area? Tanking, tanking and more tanking. `\
-https://nytimes.com/athletic/7049248/2026/02/16/nba-all-star-weekend-2026-chatter/
+**Ranking the 30 MLS Cup winners: How does Messi's Miami stack up?**\
+`Before MLS kicks off season No. 31, we look back at three decades of champions and rank them all with their place in league history`\
+https://nytimes.com/athletic/7037962/2026/02/16/mls-cup-all-time-champions-30-teams-ranking/
 
-**For veteran captains Bellemare, Červenka and Crosby, the goals vary but the pride is universal**\
-`It's about pride. And pride is universal — whether you're on top, stuck in the middle or mired all the way at the bottom.`\
-https://nytimes.com/athletic/7048248/2026/02/16/olympics-mens-hockey-2026-captains-crosby-bellemare/
+**2026 fantasy baseball Top 40 reliever rankings: From Mason Miller to Kyle Finnegan**\
+`In the ever-evolving ecosystem of MLB bullpens, Greg Jewett offers an initial ranking of his top 40 relievers for fantasy baseball 2026.`\
+https://nytimes.com/athletic/7041889/2026/02/16/2026-fantasy-baseball-top-40-reliever-rankings-from-mason-miller-to-kyle-finnegan/
 
-**Michael Penix Jr. progress will be the key for new Falcons coordinator Tommy Rees**\
-`Rees, who followed Kevin Stefanski from Cleveland to Atlanta, will enter 2026 as the primary play caller for the first time in the NFL.`\
-https://nytimes.com/athletic/7044604/2026/02/16/michael-penix-jr-progress-will-be-the-key-for-new-falcons-coordinator-tommy-rees/
+**Weekend rankings, Olympics edition: Ghosts, bridesmaids, a fight and more**\
+`The Olympics have already served up breakout stars, upset results and way more goal-difference math than expected. What's next?`\
+https://nytimes.com/athletic/7049018/2026/02/16/nhl-weekend-rankings-olympics-mens-hockey/
 
-**Celebrini’s Olympic is success surreal even for his accomplished, stoic dad**\
-`It takes a lot to crack Rick Celebrini's composure after years among the best of the best. His son's Olympics journey is more than enough.`\
-https://nytimes.com/athletic/7048070/2026/02/16/macklin-rick-celebrini-olympics-canada-mens-hockey/
+**Olympics hockey vibe check: Switzerland and Slovakia surprise, goalie highs and lows**\
+`Plus the mystery of Filip Forsberg's ice time, the young stars leading the American women's team, and the Canadian men's nuclear line.`\
+https://nytimes.com/athletic/7049022/2026/02/16/olympics-hockey-vibe-check-switzerland-slovakia-canada-usa-goalies/
 
-**Michael Jordan is a champion again, with nothing but magnanimity for NASCAR**\
-`"It's like winning a championship, a huge championship," Jordan told The Athletic. "Unbelievable."`\
-https://nytimes.com/athletic/7049173/2026/02/16/michael-jordan-nascar-daytona-champion/
+**When A.I. Comes to Town: The Backlash Over Data Centers**\
+`How one county in Indiana has reacted to artificial intelligence projects in its community.`\
+https://nytimes.com/2026/02/16/podcasts/the-daily/ai-data-centers-backlash.html
 
