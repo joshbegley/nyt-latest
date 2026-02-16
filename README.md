@@ -1,3 +1,15 @@
+**Senators Meet Zelensky With Hopeful Message on Sanctions**\
+`During their visit, a pair of Democratic senators made the case for Congress to impose harsh penalties on Moscow for its continuing offensive.`\
+https://nytimes.com/2026/02/16/us/politics/congress-zelensky-ukraine-russia.html
+
+**Progress in Guthrie Case Is Fitful as Search Enters Its Third Week**\
+`Late-night bursts of activity have yielded few visible results as investigators hunt for Nancy Guthrie, the mother of a “Today” show host.`\
+https://nytimes.com/2026/02/16/us/nancy-guthrie-search.html
+
+**Where to Watch Robert Duvall’s Top Performances**\
+`He played rugged, capable men drawn from America’s past, present and possible future.`\
+https://nytimes.com/2026/02/16/movies/robert-duvall-godfather-apocalypse-now-streaming.html
+
 **Mexican Open will not serve meat in player restaurant due to doping contamination concerns**\
 `A document circulated ahead of the 2026 edition offered advice on getting sufficient protein from other sources like fish and eggs.`\
 https://nytimes.com/athletic/7050589/2026/02/16/mexican-open-tennis-meat-doping/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7050276/2026/02/16/fa-cup-fifth-round-draw-2026/
 **Dodgers' Tommy Edman will start season on IL due to offseason ankle surgery**\
 `"Just looking as to where his ankle is at, trying to play the long view," manager Dave Roberts said.`\
 https://nytimes.com/athletic/7050491/2026/02/16/dodgers-tommy-edman-injury-ankle-surgery/
-
-**'Superman' catch and dazzling hundred leave Australia facing T20 humiliation**\
-`Pathum Nissanka's stunning performance leaves one of cricket's superpowers on the brink of exiting the World T20`\
-https://nytimes.com/athletic/7050378/2026/02/16/australia-sri-lanka-t20-world-cup-nissanka/
-
-**Scoop City: Tyreek Hill cut, John Harbaugh's schedule & the end of report cards**\
-`Inside John Harbaugh's frantic first month, why you might never see an NFLPA report card again and big names who could be too pricy`\
-https://nytimes.com/athletic/7050602/2026/02/16/tyreek-hill-cut-nflpa-report-cards-john-harbaugh-giants/
-
-**Browns to hire Mike Rutenberg as defensive coordinator: Source**\
-`Rutenberg, who has over 15 years of NFL coaching experience, lands his first coordinator job. `\
-https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-coordinator-falcons/
 

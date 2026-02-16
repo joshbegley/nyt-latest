@@ -1,3 +1,7 @@
+**Mexican Open will not serve meat in player restaurant due to doping contamination concerns**\
+`A document circulated ahead of the 2026 edition offered advice on getting sufficient protein from other sources like fish and eggs.`\
+https://nytimes.com/athletic/7050589/2026/02/16/mexican-open-tennis-meat-doping/
+
 **How to watch Houston vs. Iowa State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7050825/2026/02/16/houston-vs-iowa-state-stream-how-to-watch-feb-16/

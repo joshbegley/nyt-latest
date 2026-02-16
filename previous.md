@@ -1,3 +1,7 @@
+**Mexican Open will not serve meat in player restaurant due to doping contamination concerns**\
+`A document circulated ahead of the 2026 edition offered advice on getting sufficient protein from other sources like fish and eggs.`\
+https://nytimes.com/athletic/7050589/2026/02/16/mexican-open-tennis-meat-doping/
+
 **How to watch Houston vs. Iowa State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7050825/2026/02/16/houston-vs-iowa-state-stream-how-to-watch-feb-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050602/2026/02/16/tyreek-hill-cut-nflpa-report-car
 **Browns to hire Mike Rutenberg as defensive coordinator: Source**\
 `Rutenberg, who has over 15 years of NFL coaching experience, lands his first coordinator job. `\
 https://nytimes.com/athletic/7050569/2026/02/16/browns-mike-rutenberg-defensive-coordinator-falcons/
-
-**Klopp agent claims he rejected interest from Chelsea and Man Utd**\
-`Manchester United and Chelsea both denied they made any enquiry for Klopp when approached by The Athletic.`\
-https://nytimes.com/athletic/7050534/2026/02/16/jurgen-klopp-chelsea-manchester-united/
 
