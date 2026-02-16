@@ -1,3 +1,7 @@
+**2026 Film Independent Spirit Awards: Complete Winners List**\
+`Here’s who went home with an Indie Spirit Award on Sunday.`\
+https://nytimes.com/2026/02/15/style/2025-film-independent-spirit-awards-complete-winners-list.html
+
 **Why NBA All-Star Saturday looked so empty**\
 `On Sunday, in contrast, fans were standing outside the arena seeking tickets, but struggling to find anything remotely affordable.`\
 https://nytimes.com/athletic/7049095/2026/02/15/nba-all-star-saturday-tickets-affordability/

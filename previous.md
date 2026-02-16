@@ -34,7 +34,7 @@ https://nytimes.com/2026/02/15/us/politics/homeland-security-shutdown.html
 `The health secretary said the Food and Drug Administration would “act on” a request from a former F.D.A. commissioner to close a loophole on food safety.`\
 https://nytimes.com/2026/02/15/us/politics/kennedy-health-ultraprocessed-foods.html
 
-**2025 Film Independent Spirit Awards: Complete Winners List**\
+**2026 Film Independent Spirit Awards: Complete Winners List**\
 `Here’s who went home with an Indie Spirit Award on Sunday.`\
 https://nytimes.com/2026/02/15/style/2025-film-independent-spirit-awards-complete-winners-list.html
 
