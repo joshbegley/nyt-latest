@@ -1,3 +1,11 @@
+**Frederick Vreeland, Diplomat and Spy Who Served With Style, Dies at 98**\
+`A son of the influential fashion editor Diana Vreeland, he had an upbringing well suited to his overt and covert duties during the Cold War.`\
+https://nytimes.com/2026/02/17/style/frederick-vreeland-dead.html
+
+**A Conveyor Belt of Storms Is Just Going to Keep Slamming into California This Week**\
+`From flood warnings around Los Angeles to heavy snow in the Sierra, the storm systems are an abrupt shift from recent dry weather.`\
+https://nytimes.com/2026/02/17/weather/california-rain-snow-forecast.html
+
 **Palmerston, the Former ‘Chief Mouser’ for Britain’s Foreign Office, Dies**\
 `The cat, who was named after a former prime minister, became a social media star. By the time of his death at about 12, he had more followers than many ambassadors have.`\
 https://nytimes.com/2026/02/17/world/europe/palmerston-britain-diplomat-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/arts/television/jesse-jackson-sesame-street.html
 **The Windup: MLBPA head to shockingly resign**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7052371/2026/02/17/tony-clark-nick-castellanos-mlb-the-windup/
-
-**Surgery on table for Twins' Pablo López after MRI reveals significant UCL tear**\
-`López abruptly exited his live throwing session on Monday.`\
-https://nytimes.com/athletic/7052711/2026/02/17/twins-pablo-lopez-ucl-tear-surgery/
-
-**Yale football coach Tony Reno stepping down for health reasons**\
-`Reno led Yale to five Ivy League championships over his tenure, with an 83-49 record, the second most wins in school history.`\
-https://nytimes.com/athletic/7052671/2026/02/17/tony-reno-yale-coach-steps-down-health/
 
