@@ -1,3 +1,11 @@
+**Jesse Jackson Changed Chicago. And It Changed Him.**\
+`Mr. Jackson, who spent much of his life in the city, died at his home there on Tuesday. “He ushered in new politics in Chicago,” one longtime organizer said.`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-changed-chicago-and-it-changed-him.html
+
+**U.S. Olympic figure skating hopes rest largely on Alysa Liu after Amber Glenn's fumble**\
+`Liu is in third place in the Olympic figure skating competition going into the free skate.`\
+https://nytimes.com/athletic/7053572/2026/02/17/winter-olympics-figure-skating-alysa-liu/
+
 **Police Arrest Man Who Ran Toward the Capitol With a Loaded Gun**\
 `The 18-year-old was wearing a tactical vest and carrying additional rounds of ammunition, the Capitol Police said. Congress was not in session, and no one was hurt.`\
 https://nytimes.com/2026/02/17/us/politics/gunman-arrested-capitol.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7051971/2026/02/17/olympic-hockey-quarterfinals-mat
 https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
 
 **What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
-`Real Madrid's win against Benfica was marred by a 10-minute stoppage following an allegation of racist abuse`\
+`Real Madrid's win against Benfica was marred by a 10-minute stoppage in the second half following an allegation of racist abuse`\
 https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
 
 **Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
 **U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
 `The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
 https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
-
-**Want to Get Over Your Exes? Put Them Through the Shredder.**\
-`On the Monday after Valentine’s Day, guests celebrated not love, but the pain of heartbreak and the cathartic relief of commiseration, at the “Ex Files” party.`\
-https://nytimes.com/2026/02/17/style/anti-valentines-day-party-brooklyn.html
-
-**People Celebrate the Lunar New Year Around the World**\
-`People celebrating Lunar New Year welcomed the Year of the Horse with fireworks, festivals and temple visits.`\
-https://nytimes.com/video/world/100000010717382/lunar-new-year-celebrations.html
 
