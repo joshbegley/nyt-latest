@@ -1,3 +1,7 @@
+**Los Angeles Mayor Says Chairman of 2028 Olympics Should Resign**\
+`The chairman, Casey Wasserman, has faced criticism ever since his name surfaced in the Epstein files. Mayor Karen Bass is the latest official to call on him to step down.`\
+https://nytimes.com/2026/02/16/us/casey-wasserman-karen-bass-olympics.html
+
 **Former top starter Walker Buehler joins Padres on minor-league deal: Sources**\
 `Buehler is one of several low-cost acquisitions procured in the last week by president of baseball operations A.J. Preller. `\
 https://nytimes.com/athletic/7051699/2026/02/16/san-diego-padres-walker-buehler-deal-sources/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-
 **At Least 2 Killed During High School Hockey Game in Rhode Island**\
 `The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
 https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
-
-**After First Big Overseas Trip, Ocasio-Cortez Expresses Frustrations**\
-`The congresswoman argued in an interview that presidential speculation, which included scrutiny of her slip-ups, had overshadowed her anti-authoritarian message at the Munich Security Conference.`\
-https://nytimes.com/2026/02/16/us/politics/aoc-germany-munich-security-conference.html
 

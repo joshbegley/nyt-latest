@@ -1,3 +1,7 @@
+**Los Angeles Mayor Says Chairman of 2028 Olympics Should Resign**\
+`The chairman, Casey Wasserman, has faced criticism ever since his name surfaced in the Epstein files. Mayor Karen Bass is the latest official to call on him to step down.`\
+https://nytimes.com/2026/02/16/us/casey-wasserman-karen-bass-olympics.html
+
 **Former top starter Walker Buehler joins Padres on minor-league deal: Sources**\
 `Buehler is one of several low-cost acquisitions procured in the last week by president of baseball operations A.J. Preller. `\
 https://nytimes.com/athletic/7051699/2026/02/16/san-diego-padres-walker-buehler-deal-sources/
