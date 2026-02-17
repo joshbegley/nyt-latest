@@ -1,3 +1,11 @@
+**Nobody Watched People the Way Frederick Wiseman Did**\
+`For more than 50 years, the influential documentarian found inspiration in filming the ways his ordinary subjects lived their lives.`\
+https://nytimes.com/2026/02/16/movies/frederick-wiseman-documentaries.html
+
+**Three takeaways from Tom Ricketts' spring training media session**\
+`"To pay (the fans) back with an incredible experience ... that just means a lot to me personally, and I want to do that every year."`\
+https://nytimes.com/athletic/7050919/2026/02/16/tom-ricketts-cubs-owner-media-session-spring-training/
+
 **‘Shoresy’ Is Back, a Hockey Sitcom With ‘Heated Rivalry’ Ties**\
 `If you want more Canadian TV series about emotionally complex hockey players, look no further.`\
 https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectati
 **Roman Anthony goes from WBC fan to Team USA roster; Jarren Duran talks trade rumors**\
 `Anthony adds yet another accolade when he plays left field in the WBC tournament, while Duran addresses offseason trade rumors.`\
 https://nytimes.com/athletic/7051153/2026/02/16/roman-anthony-wbc-team-usa-duran-trade-talks/
-
-**Oscar-Winning Actor Robert Duvall Dies at 95**\
-`Robert Duvall, an Academy Award-winning actor known for playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” died on Sunday.`\
-https://nytimes.com/video/obituaries/100000010716084/godfather-actor-robert-duvall-dies.html
-
-**Breanna Stewart signing with EuroLeague team, will join after Unrivaled**\
-`Stewart will sign with Fenerbahçe Opet for the 2026 EuroLeague Final Six, according to the team. She played for the Turkish club in 2022-23.`\
-https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba-unrivaled/
 
