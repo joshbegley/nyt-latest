@@ -1,3 +1,11 @@
+**Frimpong likely out for Liverpool for another week after groin injury**\
+`The right-back has missed the last four games and is expected to also sit out of the trip to Nottingham Forest on Sunday.`\
+https://nytimes.com/athletic/7052797/2026/02/17/jeremie-frimpong-liverpool-injury-update/
+
+**A Conveyor Belt of Storms Is Just Going to Keep Slamming Into California This Week**\
+`From flood warnings around Los Angeles to heavy snow in the Sierra, the storm systems are an abrupt shift from recent dry weather.`\
+https://nytimes.com/2026/02/17/weather/california-rain-snow-forecast.html
+
 **Frederick Vreeland, Diplomat and Spy Who Served With Style, Dies at 98**\
 `A son of the influential fashion editor Diana Vreeland, he had an upbringing well suited to his overt and covert duties during the Cold War.`\
 https://nytimes.com/2026/02/17/style/frederick-vreeland-dead.html
