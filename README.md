@@ -1,3 +1,7 @@
+**Former top starter Walker Buehler joins Padres on minor-league deal: Sources**\
+`Buehler is one of several low-cost acquisitions procured in the last week by president of baseball operations A.J. Preller. `\
+https://nytimes.com/athletic/7051699/2026/02/16/san-diego-padres-walker-buehler-deal-sources/
+
 **At Giants camp, Tony Vitello goes on a tangent about the process that got him there**\
 `The first-time MLB manager started his Monday media session by asking assembled reporters "When did you first think I was taking this job?"`\
 https://nytimes.com/athletic/7051561/2026/02/16/tony-vitello-san-francisco-giants-tennessee-exit/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-
 **After First Big Overseas Trip, Ocasio-Cortez Expresses Frustrations**\
 `The congresswoman argued in an interview that presidential speculation, which included scrutiny of her slip-ups, had overshadowed her anti-authoritarian message at the Munich Security Conference.`\
 https://nytimes.com/2026/02/16/us/politics/aoc-germany-munich-security-conference.html
-
-**Anderson Cooper to Leave ‘60 Minutes’ on CBS**\
-`Mr. Cooper said in a statement that he was leaving as a correspondent for the show to focus on his CNN program and spend more time with his children.`\
-https://nytimes.com/2026/02/16/business/media/anderson-cooper-60-minutes.html
 
