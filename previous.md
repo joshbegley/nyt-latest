@@ -1,3 +1,7 @@
+**‘Shoresy’ Is Back, a Hockey Sitcom With ‘Heated Rivalry’ Ties**\
+`If you want more Canadian TV series about emotionally complex hockey players, look no further.`\
+https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.html
+
 **2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
 `Women's hockey final set, bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics`\
 https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
@@ -33,8 +37,4 @@ https://nytimes.com/video/obituaries/100000010716084/godfather-actor-robert-duva
 **Breanna Stewart signing with EuroLeague team, will join after Unrivaled**\
 `Stewart will sign with Fenerbahçe Opet for the 2026 EuroLeague Final Six, according to the team. She played for the Turkish club in 2022-23.`\
 https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba-unrivaled/
-
-**Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
-`Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
-https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/
 

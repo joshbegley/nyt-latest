@@ -1,3 +1,7 @@
+**‘Shoresy’ Is Back, a Hockey Sitcom With ‘Heated Rivalry’ Ties**\
+`If you want more Canadian TV series about emotionally complex hockey players, look no further.`\
+https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.html
+
 **2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
 `Women's hockey final set, bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics`\
 https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
