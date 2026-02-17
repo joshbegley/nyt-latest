@@ -1,3 +1,11 @@
+**Trump’s ‘Board of Peace’ Presses Hamas on Disarmament, Officials Say**\
+`The direct talks last week came as officials urgently try to find a breakthrough on the issue of Hamas’s weapons, fearing the cease-fire in Gaza could collapse.`\
+https://nytimes.com/2026/02/17/world/middleeast/israel-hamas-board-of-peace-disarmament.html
+
+**Robert Duvall Had a Message for Directors: ‘Get Out of My Way’**\
+`The actor had very particular thoughts on how he should — and shouldn’t — be directed, and he was happy to share them.`\
+https://nytimes.com/2026/02/17/movies/robert-duvall-actors-directors.html
+
 **What we saw at Canada men's Olympic hockey practice: Lineup hints, injuries and more**\
 `Plus, Tom Wilson reflects on his calculated fight against Pierre Crinon and a flashback to 1987 for Rick Tocchet.`\
 https://nytimes.com/athletic/7052783/2026/02/17/canada-olympic-hockey-mens-injury-lineup/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/17/world/europe/palmerston-britain-diplomat-dead.htm
 **‘The Dinosaurs’ Review: Sobriety Seekers, Sisters in Obscurity**\
 `Kathleen Chalfant, Elizabeth Marvel, April Matthis and other actors deliver top-notch performances in a play that leaves questions unanswered.`\
 https://nytimes.com/2026/02/17/theater/the-dinosaurs-review-chalfant-marvel-mathis.html
-
-**Joelinton returning to Newcastle squad for Qarabag trip**\
-`The Brazilian midfielder has missed Newcastle's last five games due to a groin issue.`\
-https://nytimes.com/athletic/7052791/2026/02/17/joelinton-injury-newcastle-qarabag/
-
-**A Deadly Medieval Path in England Claims a Modern Victim: An Amazon Van**\
-`The Broomway in Essex is notoriously treacherous because of the quick-moving waters surrounding it. One delivery vehicle didn’t make it.`\
-https://nytimes.com/2026/02/17/world/europe/broomway-england-amazon-van.html
 
