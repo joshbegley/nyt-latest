@@ -1,3 +1,7 @@
+**Trump Said He’d End the War in a Day, but It’s Worsened for Ukrainians**\
+`Russian attacks and Ukrainian civilian deaths rose as President Trump’s peace talks dragged on during his first year back in the White House.`\
+https://nytimes.com/2026/02/17/world/europe/trump-ukraine-war-putin.html
+
 **For João Lucas Reis da Silva, it was just a couple selfie. For men's tennis, it was bigger than that.**\
 `The first active male professional tennis player to come out publicly wants to be remembered for his tennis as much as advocacy.`\
 https://nytimes.com/athletic/5995939/2026/02/17/joao-lucas-reis-da-silva-out-gay-male-professional-tennis-player/
