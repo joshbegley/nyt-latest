@@ -1,3 +1,19 @@
+**Practical Tips for Understanding A.I. Hype**\
+`How can you prepare for potential changes brought on by artificial intelligence? Kevin Roose and Casey Newton, the hosts of “Hard Fork,” offer some advice.`\
+https://nytimes.com/video/podcasts/100000010717353/practical-tips-for-understanding-ai-hype.html
+
+**Shakhtar president donates $200k to banned Ukrainian skeleton racer**\
+`Vladyslav Heraskevych's "helmet of remembrance" was banned by the IOC, with the Ukrainian losing a subsequent appeal to CAS.`\
+https://nytimes.com/athletic/7053109/2026/02/17/vlad-heraskevych-shakhtar-donetsk-ukraine-olympics/
+
+**Bayer Agrees to Pay $7.25 Billion to Settle Roundup Lawsuits**\
+`The agreement, which still faces legal hurdles, would cover current and future claims that the weedkiller caused non-Hodgkin’s lymphoma.`\
+https://nytimes.com/2026/02/17/business/bayer-roundup-lawsuits-settlement.html
+
+**As Bernie Sanders Comes to California, Wealth Tax Opponents Intensify Efforts**\
+`The opponents’ latest moves include online ads tied to Gov. Gavin Newsom, a crypto-related push to raise money and competing ballot measures.`\
+https://nytimes.com/2026/02/17/us/california-wealth-tax-opposition-bernie-sanders.html
+
 **Shia LaBeouf Charged With Battery in New Orleans**\
 `The actor, best known for his roles in “Transformers” and “Megalopolis,” was arrested early Tuesday after reportedly assaulting two people, the authorities said.`\
 https://nytimes.com/2026/02/17/movies/shia-labeouf-arrested-new-orleans.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/republicans-north-carolina-voter-roll
 **How to watch Wisconsin vs. Ohio State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7053174/2026/02/17/wisconsin-vs-ohio-state-stream-how-to-watch-feb-17/
-
-**How to watch UCLA vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7053172/2026/02/17/ucla-vs-michigan-state-stream-how-to-watch-feb-17/
-
-**How to watch Texas Tech vs. Arizona State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7053167/2026/02/17/texas-tech-vs-arizona-state-stream-how-to-watch-feb-17/
-
-**How to watch Nebraska vs. Iowa men's basketball: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7053165/2026/02/17/nebraska-vs-iowa-stream-how-to-watch-feb-17/
-
-**Republicans, Braced for Losses, Push More Voting Restrictions in Congress**\
-`Legislation that would require proof of citizenship to register to vote was only the beginning as the G.O.P. presses to sharply limit voting in line with President Trump’s false claims of widespread fraud.`\
-https://nytimes.com/2026/02/17/us/politics/republicans-vote-fraud-id-midterms.html
 

@@ -1,3 +1,7 @@
+**Shia LaBeouf Charged With Battery in New Orleans**\
+`The actor, best known for his roles in “Transformers” and “Megalopolis,” was arrested early Tuesday after reportedly assaulting two people, the authorities said.`\
+https://nytimes.com/2026/02/17/movies/shia-labeouf-arrested-new-orleans.html
+
 **Russia, Belarus athletes will compete in Paralympics under national flags**\
 `Russia's time as a Paralympic pariah is ending, as the International Paralympic Committee announced the move Tuesday.`\
 https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belarus-flags-athletes/
