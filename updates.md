@@ -1,3 +1,11 @@
+**Documenting a ‘Drastically Changing’ Scientific Landscape**\
+`In the Lost Science series, scientists whose jobs or funding have been cut by the Trump administration tell their stories.`\
+https://nytimes.com/2026/02/17/insider/lost-science-research-cuts.html
+
+**N.B.A. All-Star Game’s Map of France Leaves Something Out: 800 Years**\
+`Introducing the French player Victor Wembanyama was a map that hearkened back to the Capetian realm of the 12th century.`\
+https://nytimes.com/2026/02/17/us/victor-wembanyama-nba-all-star-game-france-map.html
+
 **How Three Editors Handle the Congressional Hearing Circus**\
 `Members of The Times’s Washington team discuss their approach to coverage of politicians and witnesses who sometimes seem to be performing for the cameras.`\
 https://nytimes.com/2026/02/17/insider/congressional-hearing-insider.html

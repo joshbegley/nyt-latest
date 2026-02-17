@@ -1,3 +1,11 @@
+**Documenting a ‘Drastically Changing’ Scientific Landscape**\
+`In the Lost Science series, scientists whose jobs or funding have been cut by the Trump administration tell their stories.`\
+https://nytimes.com/2026/02/17/insider/lost-science-research-cuts.html
+
+**N.B.A. All-Star Game’s Map of France Leaves Something Out: 800 Years**\
+`Introducing the French player Victor Wembanyama was a map that hearkened back to the Capetian realm of the 12th century.`\
+https://nytimes.com/2026/02/17/us/victor-wembanyama-nba-all-star-game-france-map.html
+
 **How Three Editors Handle the Congressional Hearing Circus**\
 `Members of The Times’s Washington team discuss their approach to coverage of politicians and witnesses who sometimes seem to be performing for the cameras.`\
 https://nytimes.com/2026/02/17/insider/congressional-hearing-insider.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7052929/2026/02/17/canada-olympics-hockey-macklin-c
 **Winter Storms Bring Heavy Snow to the Sierra Nevada**\
 `Heavy snow in the Sierra Nevada created difficult travel conditions with poor visibility.`\
 https://nytimes.com/video/us/100000010718083/winter-storms-sierra-nevada-snow.html
-
-**Peru Ousts President, Again**\
-`Peru’s Congress voted to impeach President José Jerí, four months after he replaced Dina Boluarte, who had also been removed from the presidency.`\
-https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachment.html
-
-**Mikaela Shiffrin arrives at her last stand of these Olympics — her signature slalom**\
-`If the Alpine skiing GOAT is going to break her Olympic medal drought, Wednesday is the last chance to do it.`\
-https://nytimes.com/athletic/7052112/2026/02/17/mikaela-shiffrin-winter-olympics-slalom-last-race/
 
