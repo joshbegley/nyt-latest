@@ -1,3 +1,7 @@
+**Numbers to Know - UCL Play-offs: Newcastle's 2,529 mile journey and Yildiz the creator**\
+`Analysing five Champions League play-off games and one key stat from each that could define the outcome.`\
+https://nytimes.com/athletic/7046318/2026/02/17/champions-league-play-offs-numbers-stats-newcastle/
+
 **Trump Said He’d End the War in a Day, but It’s Worsened for Ukrainians**\
 `Russian attacks and Ukrainian civilian deaths rose as President Trump’s peace talks dragged on during his first year back in the White House.`\
 https://nytimes.com/2026/02/17/world/europe/trump-ukraine-war-putin.html
