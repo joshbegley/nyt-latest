@@ -1,3 +1,7 @@
+**Inside the moments that powered Miguel Rojas into Dodgers postseason lore**\
+`What's it like to hit a crucial World Series home run in Game 7? Pull up a chair as Rojas explains his thought process pitch by pitch.`\
+https://nytimes.com/athletic/7049040/2026/02/17/miguel-rojas-home-run-world-series-game-7-film/
+
 **Inside the re-making of Fernando Mendoza from shaky starter to 2026 NFL first-rounder**\
 `Mendoza's underdog story is well known. Here's how the quarterback worked with Indiana's coaches to make it happen.`\
 https://nytimes.com/athletic/7050416/2026/02/17/fernando-mendoza-2026-nfl-draft-indiana-development/

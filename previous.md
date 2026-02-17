@@ -1,3 +1,7 @@
+**Inside the moments that powered Miguel Rojas into Dodgers postseason lore**\
+`What's it like to hit a crucial World Series home run in Game 7? Pull up a chair as Rojas explains his thought process pitch by pitch.`\
+https://nytimes.com/athletic/7049040/2026/02/17/miguel-rojas-home-run-world-series-game-7-film/
+
 **Inside the re-making of Fernando Mendoza from shaky starter to 2026 NFL first-rounder**\
 `Mendoza's underdog story is well known. Here's how the quarterback worked with Indiana's coaches to make it happen.`\
 https://nytimes.com/athletic/7050416/2026/02/17/fernando-mendoza-2026-nfl-draft-indiana-development/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/movies/robert-duvall-the-godfather-to-kill-a-mock
 **Our Panel of L.A. Chefs Share Their Favorite Local Dishes**\
 `The full list of nominees for the Los Angeles edition of our 25 essential dishes list.`\
 https://nytimes.com/2026/02/17/t-magazine/chefs-favorite-dishes-los-angeles.html
-
-**A Time-Traveling Love Story to Make Kafka and Lynch Proud**\
-`Romeo Is a Dead Man features a Shakespeare-hating shape-shifter and plenty of zombies.`\
-https://nytimes.com/2026/02/17/arts/romeo-dead-man-review.html
 
