@@ -1,3 +1,7 @@
+**Roman Anthony goes from WBC fan to Team USA roster; Jarren Duran talks trade rumors**\
+`Anthony adds yet another accolade when he plays left field in the WBC tournament, while Duran addresses offseason trade rumors.`\
+https://nytimes.com/athletic/7051153/2026/02/16/roman-anthony-wbc-team-usa-duran-trade-talks/
+
 **Oscar-Winning Actor Robert Duvall Dies at 95**\
 `Robert Duvall, an Academy Award-winning actor known for playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” died on Sunday.`\
 https://nytimes.com/video/obituaries/100000010716084/godfather-actor-robert-duvall-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051071/2026/02/16/olympics-hockey-arena-lighter-bo
 **Yankees' Aaron Judge says leading Team USA in World Baseball Classic will be 'powerful'**\
 `Judge will captain Team USA in the World Baseball Classic, hoping to lead the country to its first title since 2017. `\
 https://nytimes.com/athletic/7050843/2026/02/16/aaron-judge-team-usa-wbc-captain-ohtani-japan-finals/
-
-**Padres chairman says club drawing ‘tremendous interest’ in sale process**\
-`The sales process has recently appeared to gain momentum after the resolution of a family fight over control of the franchise.`\
-https://nytimes.com/athletic/7049922/2026/02/16/padres-john-seidler-sale-team-interest/
 
