@@ -1,3 +1,7 @@
+**What to watch on Day 11 of the Winter Olympics: Women's short program, men's hockey, snowboarding**\
+`The "Blade Angels" take to the ice as the U.S. women seek first figure skating singles gold since 2002.`\
+https://nytimes.com/athletic/7047471/2026/02/17/milan-cortina-winter-olympics-what-to-watch-day-11/
+
 **Pereira's task at Forest: What needs to change? Who benefits? Who loses out?**\
 `The Portuguese is tasked with keeping Forest in the Premier League — but he will have to get a lot right to ensure that becomes a reality`\
 https://nytimes.com/athletic/7050107/2026/02/17/vitor-pereira-nottingham-forest-priorities/
