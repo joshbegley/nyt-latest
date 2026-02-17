@@ -1,3 +1,11 @@
+**Jesse Jackson, Civil Rights Leader Who Sought the Presidency, Dies at 84**\
+`An impassioned orator, he was a moral and political force who formed a “rainbow coalition” of poor and working-class people. His mission, he said, was “to transform the mind of America.”`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-dead.html
+
+**Jesse Jackson Dies at 84**\
+`The Rev. Jesse Jackson, the fiery civil rights leader and gifted orator, died on Tuesday at the age of 84. He was recently hospitalized for a rare neurodegenerative condition.`\
+https://nytimes.com/video/us/politics/100000010527381/jesse-jackson-dies-at-84.html
+
 **A Jamaican athlete's Olympics ended in seconds but his journey there should not be missed**\
 `A long, unique family story led 18-year-old to ski for Jamaica. But he didn’t come all this way to be a novelty act. "I'm gonna get there."`\
 https://nytimes.com/athletic/7051190/2026/02/17/henri-rivers-iv-olympics-jamaica-ski/
