@@ -1,10 +1,14 @@
+**Deep Clean a Comforter Every Few Years**\
+`If you set a few reminders to wash your comforter, pillows, and bedding, you can keep your bedroom spiffy all year without an all-day laundry ordeal. (And yes, deep-cleaning your comforter every few years is fine, but please still wash your duvet cover regularly, we’re not that nasty.)`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010717515/deep-clean-a-comforter-every-few-years.html
+
 **Women's tennis tour seeks 'meaningful improvements' to schedule by 2027**\
-`The WTA intends to make calendar changes by the start of the 2027 season, but their scope will be limited by the structure of the sport.`\
+`The WTA intends to make calendar changes after player complaints over the intensity of the calendar and rules on mandatory events.`\
 https://nytimes.com/athletic/7052617/2026/02/17/tennis-calendar-tournament-schedule-wta-council/
 
 **Bernice King and Al Sharpton are among the leaders paying tribute.**\
 `By Isabella Kwai`\
-https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/jesse-jackson-tributes-al-sharpton-hakeem-jeffries-trump
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-tributes-al-sharpton-hakeem-jeffries.html
 
 **Four priority items the Canucks need to address by NHL trade deadline**\
 `There are a few items that we should reasonably expect the Canucks to achieve between now and the deadline.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052655/2026/02/17/saint-louis-vs-rhode-island-stre
 **How to watch North Carolina vs. NC State men's basketball: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7052652/2026/02/17/north-carolina-vs-nc-state-stream-how-to-watch-feb-17/
-
-**How to watch South Carolina vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7052649/2026/02/17/south-carolina-vs-florida-stream-how-to-watch-feb-17/
 
