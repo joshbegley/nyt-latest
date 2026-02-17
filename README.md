@@ -1,3 +1,15 @@
+**How to watch Miami (OH) vs. UMass men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the UMass Minutemen, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052644/2026/02/17/miami-oh-vs-umass-stream-how-to-watch-feb-17/
+
+**How to watch Michigan vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052641/2026/02/17/michigan-vs-purdue-stream-how-to-watch-feb-17/
+
+**Ed Crane, Who Built a Libertarian Stronghold, Dies at 81**\
+`Starting with $500,000 in seed money from Charles Koch, Mr. Crane made the Cato Institute the nation’s pre-eminent libertarian think tank.`\
+https://nytimes.com/2026/02/17/us/politics/ed-crane-dead.html
+
 **New Routes, Long Lines and Uncertainty: A Month of NJ Transit Delays Begins**\
 `Some commuters were able to find alternative routes, while others struggled with delayed trains and longer, unfamiliar commutes.`\
 https://nytimes.com/2026/02/17/nyregion/new-jersey-commuters-hoboken.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7052496/2026/02/17/christian-anderson-texas-tech-nb
 **How tanking impacts NBA playoffs; plus the Swiss prospect who loves 'White Chocolate'**\
 `All schedules are not created equal, and a second-half slate padded with tankers can grease a team’s run into a high playoff seed.`\
 https://nytimes.com/athletic/7051553/2026/02/17/nba-tanking-playoff-swiss-prospect-riethauser/
-
-**Marseille sporting director to remain at club – two days after resigning**\
-`The development caps a chaotic few days after head coach Roberto De Zerbi left the club last week.`\
-https://nytimes.com/athletic/7052212/2026/02/17/marseille-medhi-benatia-sporting-director-stays/
-
-**Are the Olympics headed for double U.S.-Canada gold medal games?**\
-`Seeding could introduce some chaos, but we're on a very familiar collision course.`\
-https://nytimes.com/athletic/7052531/2026/02/17/olympics-hockey-usa-canada-gold-medal/
-
-**Peeking Behind the Scenes of ‘Wallace and Gromit’**\
-`An exhibition at the Young V&A in London reveals the painstaking and devoted practice of the characters’ creators, Aardman Studios.`\
-https://nytimes.com/2026/02/17/arts/design/wallace-and-gromit-aardman-exhibition-london.html
 
