@@ -1,3 +1,11 @@
+**Colbert Slams Trump Administration After CBS Pulls Senate Candidate Interview**\
+`Stephen Colbert said he had to drop an interview with James Talarico from his Monday broadcast because of new F.C.C. guidance that targeted political interviews on late-night shows.`\
+https://nytimes.com/2026/02/17/business/media/colbert-cbs-fcc-talarico-carr.html
+
+**Mamdani Threatens to Raise Property Taxes if There’s No Wealth Tax**\
+`Mayor Zohran Mamdani said his proposal to raise New York City property taxes by 9.5 percent was a “last resort.”`\
+https://nytimes.com/2026/02/17/nyregion/budget-mamdani-property-taxes.html
+
 **Submit your draft and free-agency questions for Kevin Fishbain's Bears mailbag**\
 `Before the NFL world descends on Indianapolis for the combine next week, share your Bears draft and free-agency questions here.`\
 https://nytimes.com/athletic/7052997/2026/02/17/bears-mailbag-questions-54/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/17/dining/nyc-restaurant-news.html
 **Full Time: U.S. SheBelieves Cup roster is here**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/
-
-**U.S. Kills 11 in Boat Strikes in Pacific and Caribbean**\
-`It was the first time in the campaign against people the United States accuses of drug smuggling at sea that American forces blew up boats on both sides of the Panama Canal in the same day.`\
-https://nytimes.com/2026/02/17/us/politics/us-kills-11-in-boat-strikes.html
-
-**Games Briefing: Blade Angels time**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-levito-blade-angels-womens-figure-skating-olympic-games-briefing/
 
