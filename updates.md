@@ -1,3 +1,19 @@
+**Pereira's task at Forest: What needs to change? Who benefits? Who loses out?**\
+`The Portuguese is tasked with keeping Forest in the Premier League — but he will have to get a lot right to ensure that becomes a reality`\
+https://nytimes.com/athletic/7050107/2026/02/17/vitor-pereira-nottingham-forest-priorities/
+
+**Are Fabian Hurzeler's substitutions a plus for Brighton, or too much tinkering?**\
+`No Premier League side has had more goals scored by substitutes this season than Brighton. But that might not necessarily be a positive`\
+https://nytimes.com/athletic/7049575/2026/02/17/brighton-hurzeler-substitutions/
+
+**Uche's Crystal Palace loan is petering out. It has not worked for anyone**\
+`The forward has barely featured and has now been left out of the Conference League squad, the latest setback in a disappointing season`\
+https://nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-loan/
+
+**The return of Idrissa Gueye and Everton's search for midfield balance**\
+`Everton have not found a way to control matches with regularity this season. Could a midfield rejig help?`\
+https://nytimes.com/athletic/7049816/2026/02/17/everton-idrissa-gueye-midfield-analysis/
+
 **Introducing Igor Tudor's new-look Tottenham Hotspur coaching staff**\
 `Spurs now have an imperfect and disjointed backroom team who need to unite with one clear aim over the season's final 12 matches...`\
 https://nytimes.com/athletic/7050321/2026/02/17/igor-tudor-tottenham-coaching-staff/

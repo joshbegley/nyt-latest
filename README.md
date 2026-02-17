@@ -1,3 +1,7 @@
+**What to watch on Day 11 of the Winter Olympics: Women's short program, men's hockey, snowboarding**\
+`The "Blade Angels" take to the ice as the U.S. women seek first figure skating singles gold since 2002.`\
+https://nytimes.com/athletic/7047471/2026/02/17/milan-cortina-winter-olympics-what-to-watch-day-11/
+
 **Pereira's task at Forest: What needs to change? Who benefits? Who loses out?**\
 `The Portuguese is tasked with keeping Forest in the Premier League — but he will have to get a lot right to ensure that becomes a reality`\
 https://nytimes.com/athletic/7050107/2026/02/17/vitor-pereira-nottingham-forest-priorities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049804/2026/02/17/jose-mourinho-benfica-champions-
 **Row Z: Sir Jim is really very sorry. Plus: adding the Tudor details that Spurs missed out**\
 `Tim Spiers shines a light on the weirder football stories from the past week. First up, Manchester United's co-owner talks immigration`\
 https://nytimes.com/athletic/7046182/2026/02/17/sir-jim-ratcliffe-immigrants-tudor-tottenham/
-
-**Nunez's Saudi Arabia move has soured. So what now?**\
-`The Uruguay international finds himself out in the cold at Al Hilal, risking his hopes of shining at the World Cup `\
-https://nytimes.com/athletic/7049934/2026/02/17/darwin-nunez-al-hilal-squad/
 

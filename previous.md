@@ -1,6 +1,22 @@
+**Pereira's task at Forest: What needs to change? Who benefits? Who loses out?**\
+`The Portuguese is tasked with keeping Forest in the Premier League — but he will have to get a lot right to ensure that becomes a reality`\
+https://nytimes.com/athletic/7050107/2026/02/17/vitor-pereira-nottingham-forest-priorities/
+
+**Are Fabian Hurzeler's substitutions a plus for Brighton, or too much tinkering?**\
+`No Premier League side has had more goals scored by substitutes this season than Brighton. But that might not necessarily be a positive`\
+https://nytimes.com/athletic/7049575/2026/02/17/brighton-hurzeler-substitutions/
+
+**Uche's Crystal Palace loan is petering out. It has not worked for anyone**\
+`The forward has barely featured and has now been left out of the Conference League squad, the latest setback in a disappointing season`\
+https://nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-loan/
+
 **Introducing Igor Tudor's new-look Tottenham Hotspur coaching staff**\
 `Spurs now have an imperfect and disjointed backroom team who need to unite with one clear aim over the season's final 12 matches...`\
 https://nytimes.com/athletic/7050321/2026/02/17/igor-tudor-tottenham-coaching-staff/
+
+**The return of Idrissa Gueye and Everton's search for midfield balance**\
+`Everton have not found a way to control matches with regularity this season. Could a midfield rejig help?`\
+https://nytimes.com/athletic/7049816/2026/02/17/everton-idrissa-gueye-midfield-analysis/
 
 **Gus Kenworthy made headlines for criticizing ICE. His Olympic story is much deeper than that**\
 `Gus Kenworthy retired after the 2022 Winter Olympics but he is now back competing for Britain and under the spotlight. `\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7046182/2026/02/17/sir-jim-ratcliffe-immigrants-tud
 **Nunez's Saudi Arabia move has soured. So what now?**\
 `The Uruguay international finds himself out in the cold at Al Hilal, risking his hopes of shining at the World Cup `\
 https://nytimes.com/athletic/7049934/2026/02/17/darwin-nunez-al-hilal-squad/
-
-**Cole Palmer, penalty master: The experts explain the secrets behind his prowess**\
-`Cole Palmer has scored 18 of his 19 penalties in the Premier League. Why is he so good at them?`\
-https://nytimes.com/athletic/7044403/2026/02/17/cole-palmer-penalty-chelsea-analysis-experts/
-
-**Manchester United's midfield – Part 1: Bruno Fernandes and a tactical switch that may end in a record**\
-`The Portuguese midfielder has been the Premier League's most-creative player this season. Now he has history to chase`\
-https://nytimes.com/athletic/7027032/2026/02/17/bruno-fernandes-assist-record/
-
-**Tuchel now has to have one eye on Euro 2028. Which England players stand to benefit?**\
-`The manager's two-year contract extension means he now has to consider how the squad looks beyond this summer's World Cup`\
-https://nytimes.com/athletic/7049883/2026/02/17/england-thomas-tuchel-players-contract/
-
-**More Ancelotti, less Alonso: what Arbeloa has changed at Real Madrid**\
-`Arbeloa has gone back to Carlo Ancelotti principles since taking over from Xabi Alonso but structural issues remain. Can he patch them up?`\
-https://nytimes.com/athletic/7050300/2026/02/17/alvaro-arbeloa-real-madrid-xabi-alonso-changed/
 
