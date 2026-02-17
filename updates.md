@@ -1,3 +1,19 @@
+**Cricket legends sign letter of 'deep concern' over Imran Khan's jail conditions**\
+`Khan captained Pakistan to the men's Cricket World Cup title in 1992 before serving as the nation's Prime Minister between 2018 and 2022.`\
+https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket/
+
+**Trump Administration Live Updates: U.S. and Iranian Officials Hold Nuclear Talks in Geneva**\
+``\
+https://nytimes.com/live/2026/02/17/us/trump-news
+
+**This Olympic coach’s quick change routine: 16 skaters, 13 team jackets**\
+`“We should celebrate our differences,” said Benoit Richaud, who's gone viral for wearing nearly a dozen different countries' jackets.`\
+https://nytimes.com/athletic/7052064/2026/02/17/olympics-figure-skating-coach-milan-jackets/
+
+**Trump’s Ambassador to Belgium Is Summoned After Accusing Officials of Antisemitism**\
+`The diplomat, Bill White, was then asked to meet with the Belgian foreign minister, at a time of rising tensions between the U.S. and countries in Europe.`\
+https://nytimes.com/2026/02/17/world/europe/belgium-trump-ambassador-anti-semitism.html
+
 **SEC mailbag: Who will be the surprise CFP team in 2026? Surprise hot-seat situation?**\
 `Looking ahead to next season already, and answering your most pressing questions.`\
 https://nytimes.com/athletic/7051059/2026/02/17/sec-football-mailbag-2026-predictions/

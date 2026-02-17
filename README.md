@@ -1,3 +1,11 @@
+**All-Star Player Poll: The NBA's best player, biggest issue and best podcast**\
+`Players polled by The Athletic during All-Star weekend had clear favorites for the best NBA player and podcast.`\
+https://nytimes.com/athletic/7051532/2026/02/17/nba-all-star-poll-best-player-podcast/
+
+**Paramount’s New Chance to Win Over Warner Bros. Discovery**\
+`The takeover battle took a new turn on Tuesday as Warner Bros. Discovery reopened talks with its rebuffed suitor. But big questions still remain.`\
+https://nytimes.com/2026/02/17/business/dealbook/paramount-warner-bros-netflix.html
+
 **Cricket legends sign letter of 'deep concern' over Imran Khan's jail conditions**\
 `Khan captained Pakistan to the men's Cricket World Cup title in 1992 before serving as the nation's Prime Minister between 2018 and 2022.`\
 https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-rankin
 **Warner Bros. Discovery Restarts Deal Talks with Paramount**\
 `Paramount’s takeover bid was rejected in favor of Netflix, which wanted only the streaming and studio businesses. Paramount said it would pay more if negotiations were reopened.`\
 https://nytimes.com/2026/02/17/business/warner-bros-discovery-paramount.html
-
-**The Portal Bridge Has Caused Headaches for Decades**\
-`A main rail link to New York City, the bridge over the Hackensack River will be replaced. Few commuters will miss it.`\
-https://nytimes.com/2026/02/17/nyregion/portal-bridge-decades-nj-transit.html
-
-**What Adolis García is working on as he seeks to return to All-Star form with Phillies**\
-`“It’s keeping him healthy, making sure the quality (at-bats are) there and then, the mechanical adjustments,” hitting coach Kevin Long said.`\
-https://nytimes.com/athletic/7051008/2026/02/17/adolis-garcia-phillies-spring-training/
 
