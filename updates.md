@@ -1,3 +1,7 @@
+**Spurs accused of selectively omitting key points from minutes of fans' meeting**\
+`THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
+https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
+
 **Are Rockets ready for adversity? Can Kevin Durant stay healthy? 5 questions**\
 `The remainder of the NBA regular season will tell us a lot about what this Rockets team is made of for the playoffs. `\
 https://nytimes.com/athletic/7051817/2026/02/17/rockets-adversity-kevin-durant-five-questions/

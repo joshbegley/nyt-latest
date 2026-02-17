@@ -1,3 +1,11 @@
+**Bukayo Saka signs new five-year Arsenal deal - but one-club players are rare in modern game**\
+`The 24-year-old has been central to Arsenal’s renaissance since his debut in 2018 - but his commitment is rare in the modern game.`\
+https://nytimes.com/athletic/6996867/2026/02/17/bukayo-saka-new-contract-one-club/
+
+**Arsenal's Calafiori, White 'fine' ahead of Wolves trip - Arteta**\
+`The manager also said Martin Odegaard and Kai Havertz could return for their Tottenham clash on Sunday.`\
+https://nytimes.com/athletic/7052297/2026/02/17/arsenal-team-news-wolves-havertz-odegaard-calafiori-white/
+
 **Are Rockets ready for adversity? Can Kevin Durant stay healthy? 5 questions**\
 `The remainder of the NBA regular season will tell us a lot about what this Rockets team is made of for the playoffs. `\
 https://nytimes.com/athletic/7051817/2026/02/17/rockets-adversity-kevin-durant-five-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/hegseth-pentagon-spokesman-fired.html
 **Jackson’s Rainbow PUSH Coalition Was a Powerful Advocate for His Politics**\
 `The campaigning organization Jesse Jackson founded became the vehicle he used to push for social justice and change policy.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-rainbow-push-coalition.html
-
-**2026 Fantasy baseball draft kit: Rankings, sleepers, cheat sheets, strategy and more**\
-`Welcome to our 2026 fantasy baseball draft kit, with sleepers, prospects, rankings, customizable cheat sheets and much more.`\
-https://nytimes.com/athletic/7007221/2026/02/17/2026-fantasy-baseball-draft-kit-mlb/
-
-**A Holiday High-School Game Is Shattered by a Fatal Assault**\
-`At a hockey rink in Pawtucket, R.I., shots rang out, leaving two people dead, in addition to the shooter. The police chief said it was a family matter that exploded in public.`\
-https://nytimes.com/2026/02/17/us/rhode-island-hockey-rink-shooting.html
 
