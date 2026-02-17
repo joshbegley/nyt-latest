@@ -1,3 +1,7 @@
+**How Three Editors Handle the Congressional Hearing Circus**\
+`Members of The Times’s Washington team discuss their approach to coverage of politicians and witnesses who sometimes seem to be performing for the cameras.`\
+https://nytimes.com/2026/02/17/insider/congressional-hearing-insider.html
+
 **Emma Hayes says Paul Green's dedication to Chelsea was 'unrivaled'**\
 `The pair worked together at Chelsea for 11 years, winning 15 trophies.`\
 https://nytimes.com/athletic/7052762/2026/02/17/emma-hayes-paul-green-chelsea-uswnt/

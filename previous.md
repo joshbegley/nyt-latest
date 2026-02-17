@@ -1,3 +1,7 @@
+**How Three Editors Handle the Congressional Hearing Circus**\
+`Members of The Times’s Washington team discuss their approach to coverage of politicians and witnesses who sometimes seem to be performing for the cameras.`\
+https://nytimes.com/2026/02/17/insider/congressional-hearing-insider.html
+
 **Emma Hayes says Paul Green's dedication to Chelsea was 'unrivaled'**\
 `The pair worked together at Chelsea for 11 years, winning 15 trophies.`\
 https://nytimes.com/athletic/7052762/2026/02/17/emma-hayes-paul-green-chelsea-uswnt/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachme
 **Mikaela Shiffrin arrives at her last stand of these Olympics — her signature slalom**\
 `If the Alpine skiing GOAT is going to break her Olympic medal drought, Wednesday is the last chance to do it.`\
 https://nytimes.com/athletic/7052112/2026/02/17/mikaela-shiffrin-winter-olympics-slalom-last-race/
-
-**Colbert Slams Trump Administration After CBS Pulls Senate Candidate Interview**\
-`Stephen Colbert said he had to drop an interview with James Talarico from his Monday broadcast because of new F.C.C. guidance that targeted political interviews on late-night shows.`\
-https://nytimes.com/2026/02/17/business/media/colbert-cbs-fcc-talarico-carr.html
 
