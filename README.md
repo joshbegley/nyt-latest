@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7053304/2026/02/17/masters-2026-odds-scottie-scheff
 `The team says it will move him back to left field, where he spent most of 2024.`\
 https://nytimes.com/athletic/7053602/2026/02/17/teoscar-hernandez-dodgers-bounce-back/
 
-**Mourinho accuses Vinicius Jr of inciting incident that led to alleged racist abuse**\
+**Mourinho accuses Vinicius Jr of inciting alleged racism incident**\
 `The Benfica coach said that Gianluca Prestianni had denied racially abusing Vinicius Jr during Tuesday's Champions League match.`\
 https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-champions-league/
 
