@@ -1,3 +1,7 @@
+**Inside Barcelona: How will Hansi Flick react to his team's worst performances of the season?**\
+`Monday night's 2-1 defeat at Girona was Barca's second loss in a row, and means Real Madrid are now leading La Liga`\
+https://nytimes.com/athletic/7051917/2026/02/17/barcelona-girona-hansi-flick-la-liga-real-madrid/
+
 **The biggest offseason change for every National League team**\
 `The Mets and Braves made a flurry of moves, but is it enough to get them past the Dodgers? `\
 https://nytimes.com/athletic/7046986/2026/02/17/the-biggest-offseason-change-for-every-national-league-team/

@@ -1,3 +1,7 @@
+**Inside Barcelona: How will Hansi Flick react to his team's worst performances of the season?**\
+`Monday night's 2-1 defeat at Girona was Barca's second loss in a row, and means Real Madrid are now leading La Liga`\
+https://nytimes.com/athletic/7051917/2026/02/17/barcelona-girona-hansi-flick-la-liga-real-madrid/
+
 **The biggest offseason change for every National League team**\
 `The Mets and Braves made a flurry of moves, but is it enough to get them past the Dodgers? `\
 https://nytimes.com/athletic/7046986/2026/02/17/the-biggest-offseason-change-for-every-national-league-team/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/02/17/todays-new-york-times-internatio
 **Blue Jays turn to Vladimir Guerrero Jr. and vibes, once again**\
 `Guerrero brought smiles and optimism to the Blue Jays' first full-squad workout: "I’m actually happier than last year, for whatever reason."`\
 https://nytimes.com/athletic/7050915/2026/02/17/toronto-blue-jays-vladimir-guerrero-vibes/
-
-**Inside the moments that powered Miguel Rojas into Dodgers postseason lore**\
-`What's it like to hit a crucial World Series home run in Game 7? Pull up a chair as Rojas explains his thought process pitch by pitch.`\
-https://nytimes.com/athletic/7049040/2026/02/17/miguel-rojas-home-run-world-series-game-7-film/
 
