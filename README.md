@@ -1,3 +1,11 @@
+**Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
+`A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
+https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
+
+**In Africa, Jesse Jackson Was Esteemed for His Fight Against Apartheid**\
+`He made several trips to South Africa, and to other African nations, as a peace broke and a representative of Black America.`\
+https://nytimes.com/2026/02/17/world/africa/jesse-jackson-south-africa-apartheid.html
+
 **Jackson’s 1988 ‘Keep Hope Alive’ Speech Was a Call for Social Justice and Unity**\
 `Jesse Jackson didn’t win the Democratic nomination for president that year, but his address at the party’s convention moved some delegates to tears.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-keep-hope-alive-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
 **Pride Flag’s Removal From Stonewall Violated Federal Law, Suit Says**\
 `The lawsuit, filed by a group of nonprofits, argues that the Trump administration’s decision runs afoul of a law that allows national monuments to fly flags providing historical context.`\
 https://nytimes.com/2026/02/17/nyregion/stonewall-pride-flag-lawsuit.html
-
-**Potomac Sewage Spill Becomes Ecological Disaster and Political Fight**\
-`A D.C. utility had been working for weeks to repair a collapsed sewer line when the president blamed Maryland’s governor for the contamination on Monday.`\
-https://nytimes.com/2026/02/17/climate/potomac-river-trump-moore.html
-
-**Lessons for Democrats From Jesse Jackson’s Rainbow Populism**\
-`He spent his life trying to edify and repair our nation.`\
-https://nytimes.com/2026/02/17/opinion/jesse-jackson-obama-populist.html
 
