@@ -1,3 +1,11 @@
+**Seven Pivotal Moments in Jesse Jackson’s Life**\
+`The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
+
+**Eileen Gu, amid Olympic cameras and controversy, is living in a unique reality**\
+`Gu is bigger than skiing, bigger than sport, and as ever, a lightning-rod for criticism.`\
+https://nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freestyle-skiing-china-controversy/
+
 **Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
 `Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
 https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
