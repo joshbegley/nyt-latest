@@ -1,3 +1,11 @@
+**For Kyle Finnegan and father, Willy, a Tigers dream is finally fulfilled**\
+`Willy Finnegan was a replacement player in the odd spring of 1995. Now his son, Kyle, is fulfilling his father's Tigers dream in Lakeland. `\
+https://nytimes.com/athletic/7051108/2026/02/17/detroit-tigers-kyle-finnegan-dream-fulfilled/
+
+**Women's college basketball power rankings: South Carolina flexes its SEC dominance**\
+`Vanderbilt moves up and Ohio State drops in Sabreena Merchant's rankings. `\
+https://nytimes.com/athletic/7051730/2026/02/17/womens-college-basketball-power-rankings-south-carolina-sec/
+
 **Read the Jackson family’s statement.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/read-the-jackson-familys-statement
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/jesse-jackson-had-a-di
 **Thoughts on all 39 Yankees pitchers in major-league camp**\
 `Notes and observations on each of the 39 pitchers on the Yankees' roster this spring training, from Carlos Lagrange to Camilo Doval.`\
 https://nytimes.com/athletic/7048702/2026/02/17/yankees-pitchers-spring-training/
-
-**What will the Bruins do at the NHL trade deadline: Buy, sell or both?**\
-`General manager Don Sweeney has just four games with which to evaluate his team before the March 8 deadline.`\
-https://nytimes.com/athletic/7042538/2026/02/17/bruins-trade-deadline-buyers-sellers/
-
-**Book excerpt: Georges Laraque was an NHL enforcer, but his 26-year-old hat trick lives on**\
-`Laraque was known for his fighting in the NHL, but a moment in February 2000 at the Skyreach Centre brought a new jubilation.`\
-https://nytimes.com/athletic/7051123/2026/02/17/georges-laraque-nhl-black-aces-book-excerpt/
 
