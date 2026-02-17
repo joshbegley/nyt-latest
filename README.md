@@ -1,3 +1,11 @@
+**Russia, Belarus athletes will compete in Paralympics under national flags**\
+`Russia's time as a Paralympic pariah is ending, as the International Paralympic Committee announced the move Tuesday.`\
+https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belarus-flags-athletes/
+
+**Democrats and White House Trade Offers but Deal to Reopen D.H.S. Remains Elusive**\
+`With Congress in a weeklong recess, there was little sign of progress toward a deal to fund the Department of Homeland Security.`\
+https://nytimes.com/2026/02/17/us/politics/democrats-and-white-house-trade-offers-but-deal-to-reopen-dhs-remains-elusive.html
+
 **Mamdani Ushers in a New Tradition: Ramadan in City Hall**\
 `Zohran Mamdani, New York City’s first Muslim mayor, will observe Ramadan as he runs the nation’s largest city, blending his faith into his public life.`\
 https://nytimes.com/2026/02/17/nyregion/mamdani-ramadan-muslim.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/republicans-vote-fraud-id-midterms.ht
 **Norway's Tormod Frostad wins men's freeski big air on last jump in thrilling final**\
 `Tormod Frostad secured gold with 98.50 points on the final jump of the evening. `\
 https://nytimes.com/athletic/7052962/2026/02/17/tormod-frostad-mens-freeski-big-air-2026-winter-olympics/
-
-**Documenting a ‘Drastically Changing’ Scientific Landscape**\
-`In the Lost Science series, scientists whose jobs or funding have been cut by the Trump administration tell their stories.`\
-https://nytimes.com/2026/02/17/insider/lost-science-research-cuts.html
-
-**N.B.A. All-Star Game’s Map of France Leaves Something Out: 800 Years**\
-`Introducing the French player Victor Wembanyama was a map that hearkened back to the Capetian realm of the 12th century.`\
-https://nytimes.com/2026/02/17/us/victor-wembanyama-nba-all-star-game-france-map.html
 
