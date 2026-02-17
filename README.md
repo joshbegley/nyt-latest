@@ -1,3 +1,7 @@
+**Games Briefing: Blade Angels time**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-levito-blade-angels-womens-figure-skating-olympic-games-briefing/
+
 **Tricia McLaughlin is stepping down as a spokeswoman for the Homeland Security Department.**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2026/02/17/us/trump-news/tricia-mclaughlin-is-stepping-down-as-a-spokeswoman-for-the-homeland-security-department

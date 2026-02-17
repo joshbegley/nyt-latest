@@ -1,3 +1,7 @@
+**Tricia McLaughlin is stepping down as a spokeswoman for the Homeland Security Department.**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2026/02/17/us/trump-news/tricia-mclaughlin-is-stepping-down-as-a-spokeswoman-for-the-homeland-security-department
+
 **In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
 `The use of artificial intelligence gave a New Zealand judge pause about the genuineness of the remorse expressed in the apology. It reflects a wider discussion about using A.I. for personal communication.`\
 https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
