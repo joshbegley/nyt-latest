@@ -1,3 +1,19 @@
+**U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
+`The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
+https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
+
+**Want to Get Over Your Exes? Put Them Through the Shredder.**\
+`On the Monday after Valentine’s Day, guests celebrated not love, but the pain of heartbreak and the cathartic relief of commiseration, at the “Ex Files” party.`\
+https://nytimes.com/2026/02/17/style/anti-valentines-day-party-brooklyn.html
+
+**People Celebrate the Lunar New Year Around the World**\
+`People celebrating Lunar New Year welcomed the Year of the Horse with fireworks, festivals and temple visits.`\
+https://nytimes.com/video/world/100000010717382/lunar-new-year-celebrations.html
+
+**White House Shrugs Off Lutnick’s Epstein Ties**\
+`Commerce Secretary Howard Lutnick has acknowledged traveling to Jeffrey Epstein’s island and meeting him on another occasion.`\
+https://nytimes.com/2026/02/17/us/politics/trump-howard-lutnick-epstein.html
+
 **Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
 `We want to get a better picture of what medical care for immigrants in detention is like.`\
 https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html

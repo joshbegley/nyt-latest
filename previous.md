@@ -1,3 +1,15 @@
+**U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
+`The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
+https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
+
+**Want to Get Over Your Exes? Put Them Through the Shredder.**\
+`On the Monday after Valentine’s Day, guests celebrated not love, but the pain of heartbreak and the cathartic relief of commiseration, at the “Ex Files” party.`\
+https://nytimes.com/2026/02/17/style/anti-valentines-day-party-brooklyn.html
+
+**People Celebrate the Lunar New Year Around the World**\
+`People celebrating Lunar New Year welcomed the Year of the Horse with fireworks, festivals and temple visits.`\
+https://nytimes.com/video/world/100000010717382/lunar-new-year-celebrations.html
+
 **Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
 `We want to get a better picture of what medical care for immigrants in detention is like.`\
 https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html
@@ -16,7 +28,7 @@ https://nytimes.com/video/podcasts/100000010715531/bad-bunnys-radical-act-was-to
 
 **White House Shrugs Off Lutnick’s Epstein Ties**\
 `Commerce Secretary Howard Lutnick has acknowledged traveling to Jeffrey Epstein’s island and meeting him on another occasion.`\
-https://nytimes.com/2026/02/17/us/politics/trump-harold-lutnick-epstein.html
+https://nytimes.com/2026/02/17/us/politics/trump-howard-lutnick-epstein.html
 
 **NJ Transit Commuters Grumble as Bridge Work Disrupts Train Rides**\
 `Many people who commute into Manhattan got their first taste of the crowded platforms that are expected to become common over the next month as the Portal Bridge is reworked.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/17/nyregion/nj-transit-portal-bridge.html
 **Fania Fénelon, 74; Memoirs Described Auschwitz Singing**\
 `In “Playing for Time,” she recounted how singing in an all-female orchestra while in a concentration camp saved her from death.`\
 https://nytimes.com/2026/02/17/world/europe/fania-fenelon-dead.html
-
-**Rose Freedman, Last Survivor of Triangle Fire, Dies at 107**\
-`She escaped the Triangle Shirtwaist fire of 1911, in which 146 of her co-workers perished, and dedicated the rest of her life to worker safety.`\
-https://nytimes.com/2026/02/17/nyregion/rose-freedman-dead.html
-
-**Anna Akhmatova, Leading Soviet Poet, Is Dead**\
-`She was a towering figure in Soviet literature who was once silenced in a Stalinist literary purge.`\
-https://nytimes.com/2026/02/17/world/europe/anna-akhmatova-dead.html
-
-**Millvina Dean, Titanic’s Last Survivor, Dies at 97**\
-`She was just 9 weeks old when she was lowered to safety in a mail sack, surviving the worst maritime disaster in history.`\
-https://nytimes.com/2026/02/17/world/europe/millvina-dean-dead.html
 
