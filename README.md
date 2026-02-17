@@ -1,3 +1,7 @@
+**Peeking Behind the Scenes of ‘Wallace and Gromit’**\
+`An exhibition at the Young V&A in London reveals the painstaking and devoted practice of the characters’ creators, Aardman Studios.`\
+https://nytimes.com/2026/02/17/arts/design/wallace-and-gromit-aardman-exhibition-london.html
+
 **Latest Updates: The Search For Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/17/us/nancy-guthrie-case-updates
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/jesse-jackson-dnc-speech.html
 **Spurs accused of selectively omitting key points from minutes of fans' meeting**\
 `THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
 https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
-
-**Hegseth Is Said to Have Ordered Pentagon Spokesman’s Firing**\
-`The spokesman, Army Col. Dave Butler, worked for the Army chief of staff.`\
-https://nytimes.com/2026/02/17/us/politics/hegseth-pentagon-spokesman-fired.html
 

@@ -1,3 +1,7 @@
+**Latest Updates: The Search For Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/17/us/nancy-guthrie-case-updates
+
 **Bukayo Saka signs new five-year Arsenal deal - but one-club players are rare in modern game**\
 `The 24-year-old has been central to Arsenal’s renaissance since his debut in 2018 - but his commitment is rare in the modern game.`\
 https://nytimes.com/athletic/6996867/2026/02/17/bukayo-saka-new-contract-one-club/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minut
 **Hegseth Is Said to Have Ordered Pentagon Spokesman’s Firing**\
 `The spokesman, Army Col. Dave Butler, worked for the Army chief of staff.`\
 https://nytimes.com/2026/02/17/us/politics/hegseth-pentagon-spokesman-fired.html
-
-**Jackson’s Rainbow PUSH Coalition Was a Powerful Advocate for His Politics**\
-`The campaigning organization Jesse Jackson founded became the vehicle he used to push for social justice and change policy.`\
-https://nytimes.com/2026/02/17/us/politics/jesse-jackson-rainbow-push-coalition.html
 

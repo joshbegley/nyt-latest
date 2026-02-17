@@ -1,3 +1,7 @@
+**Latest Updates: The Search For Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/17/us/nancy-guthrie-case-updates
+
 **Bukayo Saka signs new five-year Arsenal deal - but one-club players are rare in modern game**\
 `The 24-year-old has been central to Arsenal’s renaissance since his debut in 2018 - but his commitment is rare in the modern game.`\
 https://nytimes.com/athletic/6996867/2026/02/17/bukayo-saka-new-contract-one-club/
