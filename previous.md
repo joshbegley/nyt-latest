@@ -1,3 +1,7 @@
+**Downloadable 2026 fantasy baseball draft sheet: Stats, auction values and Top 600 rankings**\
+`Jake Ciely provides his customizable 2026 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
+https://nytimes.com/athletic/7045039/2026/02/17/fantasy-baseball-2026-draft-sheet-player-rankings-auction-values/
+
 **2026 fantasy baseball rankings: Top 600 hitters and pitchers**\
 `Jake Ciely offers up his 2026 fantasy baseball rankings, with overall rankings for hitters and pitchers, and sortable by position.`\
 https://nytimes.com/athletic/7045061/2026/02/17/fantasy-baseball-2026-rankings-top-600-hitters-pitchers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket
 **Trump Administration Live Updates: U.S. and Iranian Officials Hold Nuclear Talks in Geneva**\
 ``\
 https://nytimes.com/live/2026/02/17/us/trump-news
-
-**This Olympic coach’s quick change routine: 16 skaters, 13 team jackets**\
-`“We should celebrate our differences,” said Benoit Richaud, who's gone viral for wearing nearly a dozen different countries' jackets.`\
-https://nytimes.com/athletic/7052064/2026/02/17/olympics-figure-skating-coach-milan-jackets/
 
