@@ -1,3 +1,11 @@
+**This Olympic coach’s quick change routine: 16 skaters, 13 team jackets**\
+`“We should celebrate our differences,” said Benoit Richaud, who's gone viral for wearing nearly a dozen different countries' jackets.`\
+https://nytimes.com/athletic/7052064/2026/02/17/olympics-figure-skating-coach-milan-jackets/
+
+**Trump’s Ambassador to Belgium Is Summoned After Accusing Officials of Antisemitism**\
+`The diplomat, Bill White, was then asked to meet with the Belgian foreign minister, at a time of rising tensions between the U.S. and countries in Europe.`\
+https://nytimes.com/2026/02/17/world/europe/belgium-trump-ambassador-anti-semitism.html
+
 **Seven Pivotal Moments in Jesse Jackson’s Life**\
 `The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7050883/2026/02/17/bobby-hurley-arizona-state-contr
 **Jari Litmanen exclusive: Battling long Covid, winning over Van Gaal, and his love for Liverpool**\
 `The Finn played for some of the world's biggest clubs and is a national hero — so why do some people think he underachieved?`\
 https://nytimes.com/athletic/7037490/2026/02/17/jari-litmanen-liverpool/
-
-**SEC mailbag: Who will be the surprise CFP team in 2026? Surprise hot-seat situation?**\
-`Looking ahead to next season already, and answering your most pressing questions.`\
-https://nytimes.com/athletic/7051059/2026/02/17/sec-football-mailbag-2026-predictions/
-
-**Twins owner Tom Pohlad talks Framber Valdez pursuit, doubles down on 2026 expectations**\
-`Pohlad called the Twins' preseason over/under of 73 1/2 wins "ridiculous" and said the front office is still pursuing impact additions.`\
-https://nytimes.com/athletic/7050685/2026/02/17/twins-owner-tom-pohlad-framber-valdez-pursuit/
 
