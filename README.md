@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Feb. 17, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/17/todays-new-york-times
+
 **What to watch on Day 11 of the Winter Olympics: Women's short program, men's hockey, snowboarding**\
 `The "Blade Angels" take to the ice as the U.S. women seek first figure skating singles gold since 2002.`\
 https://nytimes.com/athletic/7047471/2026/02/17/milan-cortina-winter-olympics-what-to-watch-day-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7038403/2026/02/17/brian-brobbey-extortion-shooting
 **That Jose Mourinho ball boy celebration — and an enduring link with the terraces**\
 `The kids tasked with getting the ball back in play regularly provide iconic moments, but their importance to the game goes beyond that`\
 https://nytimes.com/athletic/7049804/2026/02/17/jose-mourinho-benfica-champions-league-ball-boys/
-
-**Row Z: Sir Jim is really very sorry. Plus: adding the Tudor details that Spurs missed out**\
-`Tim Spiers shines a light on the weirder football stories from the past week. First up, Manchester United's co-owner talks immigration`\
-https://nytimes.com/athletic/7046182/2026/02/17/sir-jim-ratcliffe-immigrants-tudor-tottenham/
 
