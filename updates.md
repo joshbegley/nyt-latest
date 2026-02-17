@@ -1,3 +1,15 @@
+**Full Time: U.S. SheBelieves Cup roster is here**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/
+
+**U.S. Kills 11 in Boat Strikes in Pacific and Caribbean**\
+`It was the first time in the campaign against people the United States accuses of drug smuggling at sea that U.S. forces blew up boats on both sides of the Panama Canal in the same day.`\
+https://nytimes.com/2026/02/17/us/politics/us-kills-11-in-boat-strikes.html
+
+**Tricia McLaughlin Is Stepping Down as Homeland Security Spokeswoman**\
+`Ms. McLaughlin was one of the most prominent voices in the administration defending President Trump’s mass deportation campaign.`\
+https://nytimes.com/2026/02/17/us/politics/tricia-mclaughlin-homeland-security.html
+
 **Games Briefing: Blade Angels time**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-levito-blade-angels-womens-figure-skating-olympic-games-briefing/
