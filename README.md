@@ -1,3 +1,7 @@
+**The Bounce: The best idea to fix tanking. And who'll be the next face of the NBA?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7052359/2026/02/17/nba-tanking-victor-wembanyama-all-star-the-bounce/
+
 **Birmingham City announce sale of women’s team to club’s ownership group**\
 `Former England international Karen Carney and former tennis player Kim Clijsters have also acquired a minority share in the club.`\
 https://nytimes.com/athletic/7052349/2026/02/17/birmingham-city-women-sale-karen-carney/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052142/2026/02/17/mlpba-tony-clark-resigns/
 **NBA player poll: Do you like the new All-Star Game format?**\
 `The NBA debuted a new All-Star Game format this year that featured three teams and a round-robin tournament.`\
 https://nytimes.com/athletic/7051328/2026/02/17/nba-all-star-player-poll-new-format/
-
-**Rams mock draft: Boosting the cornerback room, adding a QB for the future**\
-`In our first mock draft of 2026, the Rams immediately look to upgrade at cornerback and find a QB to develop behind Matthew Stafford. `\
-https://nytimes.com/athletic/7043239/2026/02/17/rams-mock-draft-2026-year/
 
