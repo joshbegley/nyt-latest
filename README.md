@@ -1,3 +1,11 @@
+**Jesse Jackson’s Hometown Remembers Him as a ‘Superstar’**\
+`Mr. Jackson often spoke about Greenville, S.C., in his speeches, returning home several times to fight for change — and for a slice of his favorite banana cream pie.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-greenville-south-carolina-hometown.html
+
+**With Witkoff and Kushner, Trump Bets on Diplomacy Without Diplomats**\
+`President Trump’s most trusted envoys are at the center of the Iran and Ukraine negotiations, an approach that has sidelined the State Department and the National Security Council.`\
+https://nytimes.com/2026/02/17/us/politics/trump-witkoff-kushner-diplomacy.html
+
 **Jesse Jackson Changed Chicago. And It Changed Him.**\
 `Mr. Jackson, who spent much of his life in the city, died at his home there on Tuesday. “He ushered in new politics in Chicago,” one longtime organizer said.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-changed-chicago-and-it-changed-him.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosia
 **Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
 `The green card holder from the West Bank had been detained during a citizenship appointment.`\
 https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
-
-**Western Civ Can Save Us — Again**\
-`Marco Rubio reminds an audience in Munich of what still unites us.`\
-https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
-
-**U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
-`The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
-https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
 
