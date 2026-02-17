@@ -1,3 +1,15 @@
+**What the American Right Wants From Europe**\
+`The tensions in Marco Rubio’s trans-Atlantic vision.`\
+https://nytimes.com/2026/02/17/opinion/rubio-munich-security-conference.html
+
+**Balogun double continues USMNT strikers' scoring run despite Monaco defeat**\
+`The USMNT's first-choice striker was on target against the Champions League holders.`\
+https://nytimes.com/athletic/7053600/2026/02/17/balogun-world-cup-pochettino-usmnt-psg-monaco/
+
+**4 Dead in Colorado Crash as Strong Winds Kick Up Wildfire Warnings**\
+`High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
+https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html
+
 **4 Dead in Colorado as Strong Winds Kick Up Wildfire Warnings**\
 `High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
 https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html

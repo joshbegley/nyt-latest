@@ -1,4 +1,12 @@
-**4 Dead in Colorado as Strong Winds Kick Up Wildfire Warnings**\
+**What the American Right Wants From Europe**\
+`The tensions in Marco Rubio’s trans-Atlantic vision.`\
+https://nytimes.com/2026/02/17/opinion/rubio-munich-security-conference.html
+
+**Balogun double continues USMNT strikers' scoring run despite Monaco defeat**\
+`The USMNT's first-choice striker was on target against the Champions League holders.`\
+https://nytimes.com/athletic/7053600/2026/02/17/balogun-world-cup-pochettino-usmnt-psg-monaco/
+
+**4 Dead in Colorado Crash as Strong Winds Kick Up Wildfire Warnings**\
 `High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
 https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7051971/2026/02/17/olympic-hockey-quarterfinals-mat
 **Triple the pressure, triple the glory.**\
 `Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third.`\
 https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
-
-**What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
-`Real Madrid's win against Benfica was marred by a 10-minute stoppage in the second half following an allegation of racist abuse`\
-https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
-
-**Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
-`Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
-https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
 
