@@ -1,3 +1,7 @@
+**In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
+`The use of artificial intelligence gave a New Zealand judge pause about the genuineness of the remorse expressed in the apology. It reflects a wider discussion about using A.I. for personal communication.`\
+https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
+
 **Pride Flag’s Removal From Stonewall Violated Federal Law, Suit Says**\
 `The lawsuit, filed by a group of nonprofits, argues that the Trump administration’s decision runs afoul of a law that allows national monuments to fly flags providing historical context.`\
 https://nytimes.com/2026/02/17/nyregion/stonewall-pride-flag-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/17/opinion/jesse-jackson-life-legacy.html
 **Frimpong likely out for Liverpool for another week after groin injury**\
 `The right-back has missed the last four games and is expected to also sit out of the trip to Nottingham Forest on Sunday.`\
 https://nytimes.com/athletic/7052797/2026/02/17/jeremie-frimpong-liverpool-injury-update/
-
-**Frederick Vreeland, Diplomat and Spy Who Served With Style, Dies at 98**\
-`A son of the influential fashion editor Diana Vreeland, he had an upbringing well suited to his overt and covert duties during the Cold War.`\
-https://nytimes.com/2026/02/17/style/frederick-vreeland-dead.html
 
