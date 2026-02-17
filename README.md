@@ -1,3 +1,7 @@
+**For João Lucas Reis da Silva, it was just a couple selfie. For men's tennis, it was bigger than that.**\
+`The first active male professional tennis player to come out publicly wants to be remembered for his tennis as much as advocacy.`\
+https://nytimes.com/athletic/5995939/2026/02/17/joao-lucas-reis-da-silva-out-gay-male-professional-tennis-player/
+
 **'Here comes Diggins!' The iconic Olympic broadcast moment that almost never was**\
 `Jessie Diggins and Kikkan Randall's gold-medal race in 2018 changed U.S. cross-country skiing forever, and the TV call played a key role.`\
 https://nytimes.com/athletic/7047998/2026/02/17/winter-olympics-here-comes-jessie-diggins-broadcast-call/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/science/lake-erie-storm-surges.html
 **It’s Mardi Gras in New Orleans. This Year, the Party Might Be a Bit Greener.**\
 `Carnival can generate more than 1,000 tons of trash every year. A coalition of nonprofit groups, city officials and scientists has a plan to clean it up.`\
 https://nytimes.com/2026/02/17/climate/mardi-gras-carnival-beads-environment.html
-
-**Word of the Day: officious**\
-`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/17/learning/word-of-the-day-officious.html
 
