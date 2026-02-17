@@ -1,3 +1,19 @@
+**A Deadly Medieval Path in England Claims a Modern Victim: An Amazon Van**\
+`The Broomway in Essex is notoriously treacherous because of the quick-moving waters surrounding it. One delivery vehicle didn’t make it.`\
+https://nytimes.com/2026/02/17/world/europe/broomway-england-amazon-van.html
+
+**With a Golden Toilet and Miss Piggy, an Opera Takes Aim at Trump**\
+`“Monster’s Paradise,” by Olga Neuwirth and Elfriede Jelinek, attempts an operatic response to current events and politics. Is that possible?`\
+https://nytimes.com/2026/02/17/arts/music/monsters-paradise-opera.html
+
+**Affording New York**\
+``\
+https://nytimes.com/column/affording-new-york
+
+**When Jesse Jackson Came to ‘Sesame Street’: ‘I Am! Somebody!’**\
+`His memorable appearance was brought to us by the letter ‘I,’ for inspiration.`\
+https://nytimes.com/2026/02/17/arts/television/jesse-jackson-sesame-street.html
+
 **The Windup: MLBPA head to shockingly resign**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7052371/2026/02/17/tony-clark-nick-castellanos-mlb-the-windup/
