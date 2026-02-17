@@ -1,3 +1,7 @@
+**Labubu Diplomacy**\
+`China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
+https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html
+
 **The president of the National Urban League recalls his long friendship with Jackson.**\
 `By Audra D. S. Burch`\
 https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/the-president-of-the-national-urban-league-recalls-his-long-friendship-with-jackson
