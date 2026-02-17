@@ -1,3 +1,7 @@
+**Colbert Doesn’t Give an FCC About Calling Out CBS**\
+`“And because my network clearly doesn’t want us to talk about this, let’s talk about this,” Stephen Colbert said after CBS canceled a Texas congressman’s appearance on Monday’s “Late Show.”`\
+https://nytimes.com/2026/02/17/arts/television/colbert-fcc-trump-talarico-cbs.html
+
 **U.S. and Iran’s High-Stakes Nuclear Talks Set to Kick Off**\
 `The U.S. and Iran have been flexing their military might as negotiators from the two countries resume nuclear talks in Switzerland.`\
 https://nytimes.com/video/world/middleeast/100000010716634/iran-nuclear-talks-trump-geneva.html
