@@ -1,3 +1,7 @@
+**Quote of the Day: Kennedy Allies Target States to Repeal Child-Immunization Mandates**\
+`Quotation of the Day for Tuesday, February 17, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/quote-of-the-day-kennedy-allies-target-states-to-repeal-child-immunization-mandates.html
+
 **Los Angeles Mayor Says Chairman of 2028 Olympics Should Resign**\
 `The chairman, Casey Wasserman, has faced criticism ever since his name surfaced in the Epstein files. Mayor Karen Bass is the latest official to call on him to step down.`\
 https://nytimes.com/2026/02/16/us/casey-wasserman-karen-bass-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.h
 **2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
 `The women's hockey final is set, a bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics.`\
 https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
-
-**At Least 2 Killed During High School Hockey Game in Rhode Island**\
-`The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
-https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
 
