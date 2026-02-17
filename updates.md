@@ -1,3 +1,7 @@
+**At Giants camp, Tony Vitello goes on a tangent about the process that got him there**\
+`The first-time MLB manager started his Monday media session by asking assembled reporters "When did you first think I was taking this job?"`\
+https://nytimes.com/athletic/7051561/2026/02/16/tony-vitello-san-francisco-giants-tennessee-exit/
+
 **Amped Up**\
 `Stephan Prock and Jeff Chen collaborate on their second puzzle.`\
 https://nytimes.com/2026/02/16/crosswords/daily-puzzle-2026-02-17.html
