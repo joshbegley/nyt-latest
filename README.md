@@ -2,6 +2,10 @@
 `The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
 
+**Eileen Gu, amid Olympic cameras and controversy, is living in a unique reality**\
+`Gu is bigger than skiing, bigger than sport, and as ever, a lightning-rod for criticism.`\
+https://nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freestyle-skiing-china-controversy/
+
 **Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
 `Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
 https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051059/2026/02/17/sec-football-mailbag-2026-predic
 **Twins owner Tom Pohlad talks Framber Valdez pursuit, doubles down on 2026 expectations**\
 `Pohlad called the Twins' preseason over/under of 73 1/2 wins "ridiculous" and said the front office is still pursuing impact additions.`\
 https://nytimes.com/athletic/7050685/2026/02/17/twins-owner-tom-pohlad-framber-valdez-pursuit/
-
-**The U.S. men's Under-15 soccer team is proof that the youth pathway being built is working**\
-`A slick, intelligent American side gave their England counterparts a scare in Cyprus, and it has not gone unnoticed by the many agents there`\
-https://nytimes.com/athletic/7049569/2026/02/17/usa-soccer-youth-mls-usmnt/
 
