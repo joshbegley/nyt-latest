@@ -1,3 +1,19 @@
+**Javier Báez addresses WBC suspension for marijuana: 'I’m the one that failed the test'**\
+`Báez tested positive for marijuana in a 2023 screening test for that year's WBC and his WBC suspension runs through April 2026.`\
+https://nytimes.com/athletic/7052938/2026/02/17/javier-baez-world-baseball-classic-failed-drug-test/
+
+**Lessons Macklin Celebrini learns at Olympics will benefit Sharks — and Canada — for years**\
+`Celebrini is being exposed to a new world at the Olympics, one in which he is thriving at age 19 and will soon come to dominate.`\
+https://nytimes.com/athletic/7052929/2026/02/17/canada-olympics-hockey-macklin-celebrini-sharks/
+
+**Winter Storms Bring Heavy Snow to the Sierra Nevada**\
+`Heavy snow in the Sierra Nevada created difficult travel conditions with poor visibility.`\
+https://nytimes.com/video/us/100000010718083/winter-storms-sierra-nevada-snow.html
+
+**Peru Ousts President, Again**\
+`Peru’s Congress voted to impeach President José Jerí, four months after he replaced Dina Boluarte, who had also been removed from the presidency.`\
+https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachment.html
+
 **Peru Ousts President — Again**\
 `Peru’s Congress voted to impeach President José Jerí, four months after he replaced Dina Boluarte, who had also been removed from the presidency.`\
 https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachment.html
