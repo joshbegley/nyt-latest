@@ -1,3 +1,7 @@
+**Seven Pivotal Moments in Jesse Jackson’s Life**\
+`The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
+
 **Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
 `Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
 https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050685/2026/02/17/twins-owner-tom-pohlad-framber-v
 **The U.S. men's Under-15 soccer team is proof that the youth pathway being built is working**\
 `A slick, intelligent American side gave their England counterparts a scare in Cyprus, and it has not gone unnoticed by the many agents there`\
 https://nytimes.com/athletic/7049569/2026/02/17/usa-soccer-youth-mls-usmnt/
-
-**NCAA Tournament Bracket Watch: As BYU slides, Wisconsin, Saint Louis and others rise**\
-`The surging Badgers are the first team to get to three wins over top-10 opponents this season.`\
-https://nytimes.com/athletic/7050374/2026/02/17/ncaa-tournament-bracket-projections-byu-wisconsin-saint-louis/
 
