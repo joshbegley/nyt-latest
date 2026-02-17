@@ -1,8 +1,16 @@
+**What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
+`Real Madrid's win against Benfica was marred by a 10-minute stoppage following an allegation of racist abuse`\
+https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
+
+**Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
+`Adeliia Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
+https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
+
 **Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
 `The green card holder from the West Bank had been detained during a citizenship appointment.`\
 https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
 
-**The Only Civilization Worth Defending**\
+**Western Civ Can Save Us — Again**\
 `Marco Rubio reminds an audience in Munich of what still unites us.`\
 https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/17/us/epstein-files-names-fired-resigned
 **Benfica-Madrid stopped after Vinicius Jr appears to allege racist abuse**\
 `The game resumed after the delay with the Brazilian then booed by the home fans when he touched the ball. `\
 https://nytimes.com/athletic/7053346/2026/02/17/vinicius-racism-real-madrid-benfica/
-
-**Bad Bunny’s Radical Act Was to Invite Us In**\
-`Bad Bunny invited us to his house for halftime during the Super Bowl. Sasha Weiss, the culture editor at The New York Times Magazine, joins Wesley Morris, the host of “Cannonball,” to discuss how he did it.`\
-https://nytimes.com/video/podcasts/100000010715531/bad-bunnys-radical-act-was-to-invite-us-in.html
-
-**White House Shrugs Off Lutnick’s Epstein Ties**\
-`Commerce Secretary Howard Lutnick has acknowledged traveling to Jeffrey Epstein’s island and meeting him on another occasion.`\
-https://nytimes.com/2026/02/17/us/politics/trump-howard-lutnick-epstein.html
 

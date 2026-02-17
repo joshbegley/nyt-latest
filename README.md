@@ -1,9 +1,13 @@
+**Triple the pressure, triple the glory.**\
+`Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third. `\
+https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
+
 **What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
 `Real Madrid's win against Benfica was marred by a 10-minute stoppage following an allegation of racist abuse`\
 https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
 
 **Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
-`Adeliia Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
+`Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
 https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
 
 **Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worke
 **Tracking the Fallout From the Epstein Files**\
 `This list will be updated and includes people who have faced concrete consequences, such as the loss of their position, as a result of their connection to Jeffrey Epstein.`\
 https://nytimes.com/interactive/2026/02/17/us/epstein-files-names-fired-resigned-fallout.html
-
-**Benfica-Madrid stopped after Vinicius Jr appears to allege racist abuse**\
-`The game resumed after the delay with the Brazilian then booed by the home fans when he touched the ball. `\
-https://nytimes.com/athletic/7053346/2026/02/17/vinicius-racism-real-madrid-benfica/
 

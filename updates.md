@@ -1,3 +1,15 @@
+**What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
+`Real Madrid's win against Benfica was marred by a 10-minute stoppage following an allegation of racist abuse`\
+https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
+
+**Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
+`Adeliia Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
+https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
+
+**Western Civ Can Save Us — Again**\
+`Marco Rubio reminds an audience in Munich of what still unites us.`\
+https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
+
 **Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
 `The green card holder from the West Bank had been detained during a citizenship appointment.`\
 https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
