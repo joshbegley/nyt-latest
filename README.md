@@ -1,3 +1,7 @@
+**Readers Respond: 11 (More) Transcendent Beatles Covers by Black Musicians**\
+`Thirteen tracks were just the start. Listen to interpretations of the Fab Four via Luther Vandross, Ella Fitzgerald, Sylvester and more.`\
+https://nytimes.com/2026/02/17/arts/music/amplifier-newsletter-readers-pick-beatles-covers-black-musicians.html
+
 **Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
 `A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
 https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/tricia-mclaughlin-homeland-security.h
 **In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
 `The use of artificial intelligence gave a New Zealand judge pause about the genuineness of the remorse expressed in the apology. It reflects a wider discussion about using A.I. for personal communication.`\
 https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
-
-**Pride Flag’s Removal From Stonewall Violated Federal Law, Suit Says**\
-`The lawsuit, filed by a group of nonprofits, argues that the Trump administration’s decision runs afoul of a law that allows national monuments to fly flags providing historical context.`\
-https://nytimes.com/2026/02/17/nyregion/stonewall-pride-flag-lawsuit.html
 

@@ -1,3 +1,19 @@
+**Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
+`A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
+https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
+
+**In Africa, Jesse Jackson Was Esteemed for His Fight Against Apartheid**\
+`He made several trips to South Africa, and to other African nations, as a peace broke and a representative of Black America.`\
+https://nytimes.com/2026/02/17/world/africa/jesse-jackson-south-africa-apartheid.html
+
+**Jackson’s 1988 ‘Keep Hope Alive’ Speech Was a Call for Social Justice and Unity**\
+`Jesse Jackson didn’t win the Democratic nomination for president that year, but his address at the party’s convention moved some delegates to tears.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-keep-hope-alive-speech.html
+
+**The Vaux Social Brings an English Public House to Brooklyn**\
+`Cavaleras Social serves enchiladas suizas, Chuan Bistro offers tastes of Chengdu alongside theatrics, and more restaurant news.`\
+https://nytimes.com/2026/02/17/dining/nyc-restaurant-news.html
+
 **Full Time: U.S. SheBelieves Cup roster is here**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/

@@ -1,3 +1,19 @@
+**Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
+`A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
+https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
+
+**In Africa, Jesse Jackson Was Esteemed for His Fight Against Apartheid**\
+`He made several trips to South Africa, and to other African nations, as a peace broke and a representative of Black America.`\
+https://nytimes.com/2026/02/17/world/africa/jesse-jackson-south-africa-apartheid.html
+
+**Jackson’s 1988 ‘Keep Hope Alive’ Speech Was a Call for Social Justice and Unity**\
+`Jesse Jackson didn’t win the Democratic nomination for president that year, but his address at the party’s convention moved some delegates to tears.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-keep-hope-alive-speech.html
+
+**The Vaux Social Brings an English Public House to Brooklyn**\
+`Cavaleras Social serves enchiladas suizas, Chuan Bistro offers tastes of Chengdu alongside theatrics, and more restaurant news.`\
+https://nytimes.com/2026/02/17/dining/nyc-restaurant-news.html
+
 **Full Time: U.S. SheBelieves Cup roster is here**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
 **Pride Flag’s Removal From Stonewall Violated Federal Law, Suit Says**\
 `The lawsuit, filed by a group of nonprofits, argues that the Trump administration’s decision runs afoul of a law that allows national monuments to fly flags providing historical context.`\
 https://nytimes.com/2026/02/17/nyregion/stonewall-pride-flag-lawsuit.html
-
-**Potomac Sewage Spill Becomes Ecological Disaster and Political Fight**\
-`A D.C. utility had been working for weeks to repair a collapsed sewer line when the president blamed Maryland’s governor for the contamination on Monday.`\
-https://nytimes.com/2026/02/17/climate/potomac-river-trump-moore.html
-
-**Lessons for Democrats From Jesse Jackson’s Rainbow Populism**\
-`He spent his life trying to edify and repair our nation.`\
-https://nytimes.com/2026/02/17/opinion/jesse-jackson-obama-populist.html
-
-**Trump’s ‘Board of Peace’ Presses Hamas on Disarmament, Officials Say**\
-`The direct talks last week came as officials urgently try to find a breakthrough on the issue of Hamas’s weapons, fearing the cease-fire in Gaza could collapse.`\
-https://nytimes.com/2026/02/17/world/middleeast/israel-hamas-board-of-peace-disarmament.html
-
-**Robert Duvall Had a Message for Directors: ‘Get Out of My Way’**\
-`The actor had very particular thoughts on how he should — and shouldn’t — be directed, and he was happy to share them.`\
-https://nytimes.com/2026/02/17/movies/robert-duvall-actors-directors.html
 
