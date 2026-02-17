@@ -1,3 +1,7 @@
+**Pereira hopeful of rekindling 'fire and passion' with Marinakis at Forest**\
+`Pereira secured a league and cup double with Olympiacos, also owned by Marinakis, during a short spell at the Greek club in 2015`\
+https://nytimes.com/athletic/7052153/2026/02/17/pereira-nottingham-forest-marinakis/
+
 **All-Star Player Poll: The NBA's best player, biggest issue and best podcast**\
 `Players polled by The Athletic during All-Star weekend had clear favorites for the best NBA player and podcast.`\
 https://nytimes.com/athletic/7051532/2026/02/17/nba-all-star-poll-best-player-podcast/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freest
 **Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
 `Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
 https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
-
-**Warner Bros. Discovery Restarts Deal Talks with Paramount**\
-`Paramount’s takeover bid was rejected in favor of Netflix, which wanted only the streaming and studio businesses. Paramount said it would pay more if negotiations were reopened.`\
-https://nytimes.com/2026/02/17/business/warner-bros-discovery-paramount.html
 
