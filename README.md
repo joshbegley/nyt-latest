@@ -1,3 +1,7 @@
+**Olympic men's hockey quarterfinals: Breaking down the matchups for Canada, USA and more**\
+`The Olympic men's hockey quarterfinals are set following qualifying-round action. Here's a look at all four of Wednesday's matchups.`\
+https://nytimes.com/athletic/7051971/2026/02/17/olympic-hockey-quarterfinals-matchups-canada-usa/
+
 **Triple the pressure, triple the glory.**\
 `Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third. `\
 https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010717382/lunar-new-year-celebrations.html
 **Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
 `We want to get a better picture of what medical care for immigrants in detention is like.`\
 https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html
-
-**Tracking the Fallout From the Epstein Files**\
-`This list will be updated and includes people who have faced concrete consequences, such as the loss of their position, as a result of their connection to Jeffrey Epstein.`\
-https://nytimes.com/interactive/2026/02/17/us/epstein-files-names-fired-resigned-fallout.html
 
