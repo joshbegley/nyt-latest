@@ -1,3 +1,7 @@
+**4 Dead in Colorado as Strong Winds Kick Up Wildfire Warnings**\
+`High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
+https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html
+
 **Jesse Jackson’s Hometown Remembers Him as a ‘Superstar’**\
 `Mr. Jackson often spoke about Greenville, S.C., in his speeches, returning home several times to fight for change — and for a slice of his favorite banana cream pie.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-greenville-south-carolina-hometown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius
 **Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
 `Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
 https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
-
-**Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
-`The green card holder from the West Bank had been detained during a citizenship appointment.`\
-https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
 
