@@ -2,7 +2,7 @@
 `The green card holder from the West Bank had been detained during a citizenship appointment.`\
 https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
 
-**The Only Civilization Worth Defending**\
+**Western Civ Can Save Us — Again**\
 `Marco Rubio reminds an audience in Munich of what still unites us.`\
 https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
 
