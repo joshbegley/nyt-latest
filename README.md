@@ -1,3 +1,7 @@
+**‘The Dinosaurs’ Review: Sobriety Seekers, Sisters in Obscurity**\
+`Kathleen Chalfant, Elizabeth Marvel, April Matthis and other actors deliver top-notch performances in a play that leaves questions unanswered.`\
+https://nytimes.com/2026/02/17/theater/the-dinosaurs-review-chalfant-marvel-mathis.html
+
 **Joelinton returning to Newcastle squad for Qarabag trip**\
 `The Brazilian midfielder has missed Newcastle's last five games due to a groin issue.`\
 https://nytimes.com/athletic/7052791/2026/02/17/joelinton-injury-newcastle-qarabag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052671/2026/02/17/tony-reno-yale-coach-steps-down-
 **2026 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
 `Jake Ciely provides his customizable 2026 fantasy baseball cheat sheet ahead of draft season. `\
 https://nytimes.com/athletic/7045055/2026/02/17/fantasy-baseball-2026-cheat-sheet-customizable-rankings-projections-tool/
-
-**An E-Reader Ended My Insomnia**\
-`“I almost never used to read at night because the light tended to keep me awake and engaged. Instead, I was left to stew in my own juices, blinking at the ceiling,” writes Wirecutter editor Rory Evans. “Everything changed when I got a Kindle.”`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010717613/an-e-reader-ended-my-insomnia.html
 
