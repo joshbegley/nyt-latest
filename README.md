@@ -1,3 +1,7 @@
+**No Corrections: Feb. 17, 2026**\
+`No corrections appeared in print on Tuesday, Feb. 17, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-17-2026.html
+
 **Nobody Watched People the Way Frederick Wiseman Did**\
 `For more than 50 years, the influential documentarian found inspiration in filming the ways his ordinary subjects lived their lives.`\
 https://nytimes.com/2026/02/16/movies/frederick-wiseman-documentaries.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010714634/tsa-agents-government-shutdown.html
 **Steve Cohen 'annoyed' with lack of postseason success during ownership**\
 `Given Cohen’s investment in payroll, it would be especially bad for the Mets to again miss out on the postseason. `\
 https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectations-mets/
-
-**Roman Anthony goes from WBC fan to Team USA roster; Jarren Duran talks trade rumors**\
-`Anthony adds yet another accolade when he plays left field in the WBC tournament, while Duran addresses offseason trade rumors.`\
-https://nytimes.com/athletic/7051153/2026/02/16/roman-anthony-wbc-team-usa-duran-trade-talks/
 
