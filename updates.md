@@ -1,3 +1,7 @@
+**Peeking Behind the Scenes of ‘Wallace and Gromit’**\
+`An exhibition at the Young V&A in London reveals the painstaking and devoted practice of the characters’ creators, Aardman Studios.`\
+https://nytimes.com/2026/02/17/arts/design/wallace-and-gromit-aardman-exhibition-london.html
+
 **Latest Updates: The Search For Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/17/us/nancy-guthrie-case-updates
