@@ -1,3 +1,7 @@
+**Trump Said He’d End the War in a Day, but It’s Worsened for Ukrainians**\
+`Russian attacks and Ukrainian civilian deaths rose as President Trump’s peace talks dragged on during his first year back in the White House.`\
+https://nytimes.com/2026/02/17/world/europe/trump-ukraine-war-putin.html
+
 **For João Lucas Reis da Silva, it was just a couple selfie. For men's tennis, it was bigger than that.**\
 `The first active male professional tennis player to come out publicly wants to be remembered for his tennis as much as advocacy.`\
 https://nytimes.com/athletic/5995939/2026/02/17/joao-lucas-reis-da-silva-out-gay-male-professional-tennis-player/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/crosswords/spelling-bee-forum.html
 **Lake Erie’s Storm Surges Become More Extreme**\
 `Officials are designing new ways to protect the shorelines from sudden flooding and longer storm seasons.`\
 https://nytimes.com/2026/02/17/science/lake-erie-storm-surges.html
-
-**It’s Mardi Gras in New Orleans. This Year, the Party Might Be a Bit Greener.**\
-`Carnival can generate more than 1,000 tons of trash every year. A coalition of nonprofit groups, city officials and scientists has a plan to clean it up.`\
-https://nytimes.com/2026/02/17/climate/mardi-gras-carnival-beads-environment.html
 
