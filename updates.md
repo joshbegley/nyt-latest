@@ -1,3 +1,11 @@
+**This Olympic coach’s quick change routine: 16 skaters, 13 team jackets**\
+`“We should celebrate our differences,” said Benoit Richaud, who's gone viral for wearing nearly a dozen different countries' jackets.`\
+https://nytimes.com/athletic/7052064/2026/02/17/olympics-figure-skating-coach-milan-jackets/
+
+**Trump’s Ambassador to Belgium Is Summoned After Accusing Officials of Antisemitism**\
+`The diplomat, Bill White, was then asked to meet with the Belgian foreign minister, at a time of rising tensions between the U.S. and countries in Europe.`\
+https://nytimes.com/2026/02/17/world/europe/belgium-trump-ambassador-anti-semitism.html
+
 **Seven Pivotal Moments in Jesse Jackson’s Life**\
 `The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
