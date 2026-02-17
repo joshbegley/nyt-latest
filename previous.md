@@ -1,3 +1,11 @@
+**Masters 2026 odds: Scottie Scheffler favored, Tiger Woods not ruling out return**\
+`Is Tiger Woods coming back? If Woods did, he would be an extreme long shot should he play in this year's Masters. `\
+https://nytimes.com/athletic/7053304/2026/02/17/masters-2026-odds-scottie-scheffler-tiger-woods/
+
+**Trim, not traded, Teoscar Hernández looks for bounce-back year with Dodgers**\
+`The team says it will move him back to left field, where he spent most of 2024.`\
+https://nytimes.com/athletic/7053602/2026/02/17/teoscar-hernandez-dodgers-bounce-back/
+
 **Mourinho accuses Vinicius Jr of inciting incident that led to alleged racist abuse**\
 `The Benfica coach said that Gianluca Prestianni had denied racially abusing Vinicius Jr during Tuesday's Champions League match.`\
 https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-champions-league/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/briefing/trump-kushner-witkoff-sewage-spill.html
 **What the American Right Wants From Europe**\
 `The tensions in Marco Rubio’s trans-Atlantic vision.`\
 https://nytimes.com/2026/02/17/opinion/rubio-munich-security-conference.html
-
-**Balogun double continues USMNT strikers' scoring run despite Monaco defeat**\
-`The USMNT's first-choice striker was on target against the Champions League holders.`\
-https://nytimes.com/athletic/7053600/2026/02/17/balogun-world-cup-pochettino-usmnt-psg-monaco/
-
-**4 Dead in Colorado Crash as Strong Winds Kick Up Wildfire Warnings**\
-`High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
-https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html
 
