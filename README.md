@@ -1,3 +1,11 @@
+**‘The Last Straw’: T.S.A. Agents Brace for Another D.H.S. Shutdown**\
+`After funding for the Department of Homeland Security lapsed on Saturday, Transportation Security Administration employees expressed frustration at being forced to work without pay.`\
+https://nytimes.com/video/us/100000010714634/tsa-agents-government-shutdown.html
+
+**Steve Cohen 'annoyed' with lack of postseason success during ownership tenure**\
+`Given Cohen’s investment in payroll, it would be especially bad for the Mets to again miss out on the postseason. `\
+https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectations-mets/
+
 **Roman Anthony goes from WBC fan to Team USA roster; Jarren Duran talks trade rumors**\
 `Anthony adds yet another accolade when he plays left field in the WBC tournament, while Duran addresses offseason trade rumors.`\
 https://nytimes.com/athletic/7051153/2026/02/16/roman-anthony-wbc-team-usa-duran-trade-talks/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/16/movies/robert-duvall-photos.html
 **Haji Wright nets hat trick to heat up USMNT World Cup striker competition**\
 `The U.S. men's national team striker broke out of a scoring slump in a big way in arguably his side's biggest match of the season.`\
 https://nytimes.com/athletic/7051114/2026/02/16/haji-wright-hat-trick-video-coventry-usmnt-world-cup/
-
-**Olympic hockey arena to install lighter boards after player feedback**\
-`The boards were always going to be replaced due to wear and tear, but the color adjustment is new.`\
-https://nytimes.com/athletic/7051071/2026/02/16/olympics-hockey-arena-lighter-boards-player-feedback/
-
-**Yankees' Aaron Judge says leading Team USA in World Baseball Classic will be 'powerful'**\
-`Judge will captain Team USA in the World Baseball Classic, hoping to lead the country to its first title since 2017. `\
-https://nytimes.com/athletic/7050843/2026/02/16/aaron-judge-team-usa-wbc-captain-ohtani-japan-finals/
 

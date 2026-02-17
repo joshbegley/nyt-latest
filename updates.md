@@ -1,3 +1,7 @@
+**Roman Anthony goes from WBC fan to Team USA roster; Jarren Duran talks trade rumors**\
+`Anthony adds yet another accolade when he plays left field in the WBC tournament, while Duran addresses offseason trade rumors.`\
+https://nytimes.com/athletic/7051153/2026/02/16/roman-anthony-wbc-team-usa-duran-trade-talks/
+
 **Oscar-Winning Actor Robert Duvall Dies at 95**\
 `Robert Duvall, an Academy Award-winning actor known for playing a wide range of characters in films such as “Apocalypse Now” and “The Godfather,” died on Sunday.`\
 https://nytimes.com/video/obituaries/100000010716084/godfather-actor-robert-duvall-dies.html
