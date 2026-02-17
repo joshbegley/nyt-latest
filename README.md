@@ -2,7 +2,7 @@
 `Khan captained Pakistan to the men's Cricket World Cup title in 1992 before serving as the nation's Prime Minister between 2018 and 2022.`\
 https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket/
 
-**Trump Administration Live Updates: U.S.-Iran Nuclear Talks Restart in Geneva**\
+**Trump Administration Live Updates: U.S. and Iranian Officials Hold Nuclear Talks in Geneva**\
 ``\
 https://nytimes.com/live/2026/02/17/us/trump-news
 
