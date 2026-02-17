@@ -1,40 +1,40 @@
+**The curious case of James Trafford: Manchester City's increasingly disillusioned No 2**\
+`The goalkeeper has had to play second fiddle to Gianluigi Donnarumma this season — something he was not expecting when he joined last summer`\
+https://nytimes.com/athletic/7049945/2026/02/17/james-trafford-goalkeeper-manchester-city/
+
+**In Iran, Slain Protesters’ Memorials Will Test State Crackdown**\
+`Ceremonies commemorating the 40 days after protesters were killed are planned this week, challenging the authorities’ ability to restrain them.`\
+https://nytimes.com/2026/02/17/world/middleeast/iran-memorials-protesters-crackdown.html
+
+**A Rio Carnival Party That Goes On and On**\
+`The Boi Tolo, one of the city’s most iconic street parties, has come to represent the glittery, gritty grass-roots celebration far from the glamour of the official parades.`\
+https://nytimes.com/2026/02/17/world/americas/a-rio-carnival-party-that-goes-on-and-on.html
+
+**Ukraine and Russia Hold Peace Talks, but Expectations Are Low**\
+`Both sides described previous U.S.-mediated negotiations as productive, although they did not appear to address sticking points like territory and security guarantees.`\
+https://nytimes.com/2026/02/17/world/europe/ukraine-russia-peace-talks-switzerland.html
+
+**U.S. and Iran Gear Up for Nuclear Talks Amid Rising Tensions**\
+`President Trump has called on Iran to reach an immediate accord or else face the threat of a possible U.S. attack.`\
+https://nytimes.com/2026/02/17/us/politics/us-and-iran-gear-up-for-nuclear-talks-amid-rising-tensions.html
+
+**‘I’d Like to Be Normal’: Can Height Surgery Make Them Happy?**\
+`Limb-lengthening can add inches to a person’s stature. But its risks have made it controversial.`\
+https://nytimes.com/2026/02/17/us/height-surgery-limb-lengthening-men-health.html
+
+**Questions Swirl Around Russian Figure Skater in Her Olympic Debut**\
+`Adeliia Petrosian, 18, has the résumé of a medal contender — and ties to coaches and a skater who were at the center of a doping scandal at the last Winter Games.`\
+https://nytimes.com/2026/02/17/world/europe/russian-figure-skater-milan-olympics.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 17, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7051662/2026/02/17/connections-sports-edition-hints-answers-feb-17-2026/
+
+**Quote of the Day: Kennedy Allies Target States to Repeal Child-Immunization Mandates**\
+`Quotation of the Day for Tuesday, February 17, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/quote-of-the-day-kennedy-allies-target-states-to-repeal-child-immunization-mandates.html
+
 **Los Angeles Mayor Says Chairman of 2028 Olympics Should Resign**\
 `The chairman, Casey Wasserman, has faced criticism ever since his name surfaced in the Epstein files. Mayor Karen Bass is the latest official to call on him to step down.`\
 https://nytimes.com/2026/02/16/us/casey-wasserman-karen-bass-olympics.html
-
-**Former top starter Walker Buehler joins Padres on minor-league deal: Sources**\
-`Buehler is one of several low-cost acquisitions procured in the last week by president of baseball operations A.J. Preller. `\
-https://nytimes.com/athletic/7051699/2026/02/16/san-diego-padres-walker-buehler-deal-sources/
-
-**At Giants camp, Tony Vitello goes on a tangent about the process that got him there**\
-`The first-time MLB manager started his Monday media session by asking assembled reporters "When did you first think I was taking this job?"`\
-https://nytimes.com/athletic/7051561/2026/02/16/tony-vitello-san-francisco-giants-tennessee-exit/
-
-**Amped Up**\
-`Stephan Prock and Jeff Chen collaborate on their second puzzle.`\
-https://nytimes.com/2026/02/16/crosswords/daily-puzzle-2026-02-17.html
-
-**No Corrections: Feb. 17, 2026**\
-`No corrections appeared in print on Tuesday, Feb. 17, 2026.`\
-https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-17-2026.html
-
-**Nobody Watched People the Way Frederick Wiseman Did**\
-`For more than 50 years, the influential documentarian found inspiration in filming the ways his ordinary subjects lived their lives.`\
-https://nytimes.com/2026/02/16/movies/frederick-wiseman-documentaries.html
-
-**Three takeaways from Tom Ricketts' spring training media session**\
-`"To pay (the fans) back with an incredible experience ... that just means a lot to me personally, and I want to do that every year."`\
-https://nytimes.com/athletic/7050919/2026/02/16/tom-ricketts-cubs-owner-media-session-spring-training/
-
-**‘Shoresy’ Is Back, a Hockey Sitcom With ‘Heated Rivalry’ Ties**\
-`If you want more Canadian TV series about emotionally complex hockey players, look no further.`\
-https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.html
-
-**2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
-`The women's hockey final is set, a bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics.`\
-https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
-
-**At Least 2 Killed During High School Hockey Game in Rhode Island**\
-`The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
-https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
 
