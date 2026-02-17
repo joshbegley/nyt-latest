@@ -1,3 +1,7 @@
+**U.S. and Iran’s High-Stakes Nuclear Talks Set to Kick Off**\
+`The U.S. and Iran have been flexing their military might as negotiators from the two countries resume nuclear talks in Switzerland.`\
+https://nytimes.com/video/world/middleeast/100000010716634/iran-nuclear-talks-trump-geneva.html
+
 **Nate Heise's deciding 3 punctuates Iowa State's comeback win over Houston**\
 `Hours after Heise's sister scored her first Olympic goal, her brother followed suit with a monumental play of his own.`\
 https://nytimes.com/athletic/7051783/2026/02/17/iowa-state-houston-mens-basketball-nate-heise/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7049816/2026/02/17/everton-idrissa-gueye-midfield-a
 **Gus Kenworthy made headlines for criticizing ICE. His Olympic story is much deeper than that**\
 `Gus Kenworthy retired after the 2022 Winter Olympics but he is now back competing for Britain and under the spotlight. `\
 https://nytimes.com/athletic/7018349/2026/02/17/gus-kenworthy-interview-2026-winter-olympics/
-
-**A Premier League star was targeted in an alleged blackmail – then his friend was shot**\
-`Brian Brobbey has been one of the season's success stories but only after a terrifying brush with Amsterdam's criminal underworld`\
-https://nytimes.com/athletic/7038403/2026/02/17/brian-brobbey-extortion-shooting-target/
 
