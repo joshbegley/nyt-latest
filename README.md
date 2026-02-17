@@ -1,3 +1,11 @@
+**Javier Báez addresses WBC suspension for marijuana: 'I’m the one that failed the test'**\
+`Báez tested positive for marijuana in a 2023 screening test for that year's WBC and his WBC suspension runs through April 2026.`\
+https://nytimes.com/athletic/7052938/2026/02/17/javier-baez-world-baseball-classic-failed-drug-test/
+
+**Lessons Macklin Celebrini learns at Olympics will benefit Sharks — and Canada — for years**\
+`Celebrini is being exposed to a new world at the Olympics, one in which he is thriving at age 19 and will soon come to dominate.`\
+https://nytimes.com/athletic/7052929/2026/02/17/canada-olympics-hockey-macklin-celebrini-sharks/
+
 **Winter Storms Bring Heavy Snow to the Sierra Nevada**\
 `Heavy snow in the Sierra Nevada created difficult travel conditions with poor visibility.`\
 https://nytimes.com/video/us/100000010718083/winter-storms-sierra-nevada-snow.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7052997/2026/02/17/bears-mailbag-questions-54/
 **Readers Respond: 11 (More) Transcendent Beatles Covers by Black Musicians**\
 `Thirteen tracks were just the start. Listen to interpretations of the Fab Four via Luther Vandross, Ella Fitzgerald, Sylvester and more.`\
 https://nytimes.com/2026/02/17/arts/music/amplifier-newsletter-readers-pick-beatles-covers-black-musicians.html
-
-**Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
-`A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
-https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
-
-**In Africa, Jesse Jackson Was Esteemed for His Fight Against Apartheid**\
-`He made several trips to South Africa, and to other African nations, as a peace broke and a representative of Black America.`\
-https://nytimes.com/2026/02/17/world/africa/jesse-jackson-south-africa-apartheid.html
 
