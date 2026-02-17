@@ -1,3 +1,15 @@
+**2026 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
+`Jake Ciely provides his customizable 2026 fantasy baseball cheat sheet ahead of draft season. `\
+https://nytimes.com/athletic/7045055/2026/02/17/fantasy-baseball-2026-cheat-sheet-customizable-rankings-projections-tool/
+
+**An E-Reader Ended My Insomnia**\
+`“I almost never used to read at night because the light tended to keep me awake and engaged. Instead, I was left to stew in my own juices, blinking at the ceiling,” writes Wirecutter editor Rory Evans. “Everything changed when I got a Kindle.”`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010717613/an-e-reader-ended-my-insomnia.html
+
+**Five-star guard Dylan Mingo commits to North Carolina**\
+`Mingo, a top-five recruit in the Class of 2026, chose the Tar Heels over Penn State, Washington and Baylor.`\
+https://nytimes.com/athletic/7052502/2026/02/17/dylan-mingo-north-carolina-basketball-commitment/
+
 **Ukrainians Remain Skeptical as New Round of Peace Talks Begins**\
 `Ukrainians sheltering in an underground subway station expressed little hope in the ongoing peace talks that brought Russian, Ukrainian and U.S. officials to Geneva on Tuesday.`\
 https://nytimes.com/video/world/europe/100000010717088/ukraine-russia-peace-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/jesse-jackson-tributes-al-sharpton-ha
 **Four priority items the Canucks need to address by NHL trade deadline**\
 `There are a few items that we should reasonably expect the Canucks to achieve between now and the deadline.`\
 https://nytimes.com/athletic/7051763/2026/02/17/vancouver-canucks-nhl-trade-deadline-2026-priorities/
-
-**GQ Names Adam Baidawi as Its Top Editor**\
-`Mr. Baidawi, 35, replaces the magazine’s longtime editor Will Welch. He says he wants the magazine to be a “North Star of masculinity.”`\
-https://nytimes.com/2026/02/17/business/media/gq-adam-baidawi-top-editor.html
-
-**The Price of Admission to Epstein’s World: Silence**\
-`There were plenty of signs that something wasn’t right with Jeffrey Epstein. Why didn’t anyone say something?`\
-https://nytimes.com/2026/02/17/well/epstein-files-associates.html
-
-**U.S. records best-ever finish in men's Olympic biathlon relay, France takes gold**\
-`Norway won silver, Sweden grabbed the bronze and Germany finished fourth.`\
-https://nytimes.com/athletic/7052549/2026/02/17/olympics-usa-biathlon-relay-milan/
 
