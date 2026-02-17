@@ -1,3 +1,7 @@
+**Spurs accused of selectively editing minutes of fans' meeting**\
+`THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
+https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
+
 **Hegseth Is Said to Have Ordered Pentagon Spokesman’s Firing**\
 `The spokesman, Army Col. Dave Butler, worked for the Army chief of staff.`\
 https://nytimes.com/2026/02/17/us/politics/hegseth-pentagon-spokesman-fired.html
