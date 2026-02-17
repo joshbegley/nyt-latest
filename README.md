@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belaru
 
 **Democrats and White House Trade Offers but Deal to Reopen D.H.S. Remains Elusive**\
 `With Congress in a weeklong recess, there was little sign of progress toward a deal to fund the Department of Homeland Security.`\
-https://nytimes.com/2026/02/17/us/politics/democrats-and-white-house-trade-offers-but-deal-to-reopen-dhs-remains-elusive.html
+https://nytimes.com/2026/02/17/us/politics/trump-dhs-shutdown-democrats.html
 
 **Mamdani Ushers in a New Tradition: Ramadan in City Hall**\
 `Zohran Mamdani, New York City’s first Muslim mayor, will observe Ramadan as he runs the nation’s largest city, blending his faith into his public life.`\
