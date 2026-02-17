@@ -1,3 +1,19 @@
+**NBA player poll: Do you like the new All-Star Game format?**\
+`The NBA debuted a new All-Star Game format this year that featured three teams and a round-robin tournament.`\
+https://nytimes.com/athletic/7051328/2026/02/17/nba-all-star-player-poll-new-format/
+
+**Rams mock draft: Boosting the cornerback room, adding a QB for the future**\
+`In our first mock draft of 2026, the Rams immediately look to upgrade at cornerback and find a QB to develop behind Matthew Stafford. `\
+https://nytimes.com/athletic/7043239/2026/02/17/rams-mock-draft-2026-year/
+
+**Outlier or contender? The Lakers' post-All-Star break question**\
+`The Lakers' record suggests they could be contenders. The numbers say otherwise. `\
+https://nytimes.com/athletic/7044361/2026/02/17/lakers-all-star-break-outlook-roster-questions/
+
+**A Pair With Clothes as Lively as Their Banter**\
+`A conversation about his red coat offered glimpses of other ways the color had entered their lives.`\
+https://nytimes.com/2026/02/17/style/street-style-look-colorful-warm-outfits.html
+
 **Lindsey Vonn back in U.S., says she's been 'immobile' since Olympic crash**\
 `Vonn has returned home, she said in a social media post Monday, while sharing some more details about her recovery.`\
 https://nytimes.com/athletic/7052217/2026/02/17/lindsey-vonn-olympics-crash-injury-surgeries-leg-fracture-us/
