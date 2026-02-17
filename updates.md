@@ -1,3 +1,7 @@
+**Former top starter Walker Buehler joins Padres on minor-league deal: Sources**\
+`Buehler is one of several low-cost acquisitions procured in the last week by president of baseball operations A.J. Preller. `\
+https://nytimes.com/athletic/7051699/2026/02/16/san-diego-padres-walker-buehler-deal-sources/
+
 **At Giants camp, Tony Vitello goes on a tangent about the process that got him there**\
 `The first-time MLB manager started his Monday media session by asking assembled reporters "When did you first think I was taking this job?"`\
 https://nytimes.com/athletic/7051561/2026/02/16/tony-vitello-san-francisco-giants-tennessee-exit/
