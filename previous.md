@@ -1,40 +1,40 @@
-**For Team USA, speedskating team pursuit comes up short of their own expectations**\
+**Benfica-Madrid stopped after Vinicius Jr appears to allege racist abuse**\
+`The game resumed after the delay with the Brazilian then booed by the home fans when he touched the ball. `\
+https://nytimes.com/athletic/7053346/2026/02/17/vinicius-racism-real-madrid-benfica/
+
+**Bad Bunny’s Radical Act Was to Invite Us In**\
+`Bad Bunny invited us to his house for halftime during the Super Bowl. Sasha Weiss, the culture editor at The New York Times Magazine, joins Wesley Morris, the host of “Cannonball,” to discuss how he did it.`\
+https://nytimes.com/video/podcasts/100000010715531/bad-bunnys-radical-act-was-to-invite-us-in.html
+
+**White House Shrugs Off Lutnick’s Epstein Ties**\
+`Commerce Secretary Howard Lutnick has acknowledged traveling to Jeffrey Epstein’s island and meeting him on another occasion.`\
+https://nytimes.com/2026/02/17/us/politics/trump-harold-lutnick-epstein.html
+
+**NJ Transit Commuters Grumble as Bridge Work Disrupts Train Rides**\
+`Many people who commute into Manhattan got their first taste of the crowded platforms that are expected to become common over the next month as the Portal Bridge is reworked.`\
+https://nytimes.com/2026/02/17/nyregion/nj-transit-portal-bridge.html
+
+**Fania Fénelon, 74; Memoirs Described Auschwitz Singing**\
+`In “Playing for Time,” she recounted how singing in an all-female orchestra while in a concentration camp saved her from death.`\
+https://nytimes.com/2026/02/17/world/europe/fania-fenelon-dead.html
+
+**Rose Freedman, Last Survivor of Triangle Fire, Dies at 107**\
+`She escaped the Triangle Shirtwaist fire of 1911, in which 146 of her co-workers perished, and dedicated the rest of her life to worker safety.`\
+https://nytimes.com/2026/02/17/nyregion/rose-freedman-dead.html
+
+**Anna Akhmatova, Leading Soviet Poet, Is Dead**\
+`She was a towering figure in Soviet literature who was once silenced in a Stalinist literary purge.`\
+https://nytimes.com/2026/02/17/world/europe/anna-akhmatova-dead.html
+
+**Millvina Dean, Titanic’s Last Survivor, Dies at 97**\
+`She was just 9 weeks old when she was lowered to safety in a mail sack, surviving the worst maritime disaster in history.`\
+https://nytimes.com/2026/02/17/world/europe/millvina-dean-dead.html
+
+**For Team USA, speedskating team pursuit comes up short of own expectations**\
 `“There’s always going to be bitterness,” said Casey Dawson of the U.S. men's team. “We came out here to win.`\
 https://nytimes.com/athletic/7053144/2026/02/17/winter-olympics-speedskating-team-pursuit-final/
 
 **Labubu Diplomacy**\
 `China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
 https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html
-
-**The president of the National Urban League recalls his long friendship with Jackson.**\
-`By Audra D. S. Burch`\
-https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/the-president-of-the-national-urban-league-recalls-his-long-friendship-with-jackson
-
-**Doug Moe, former NBA player and coach, dies at 87**\
-`Moe, a three-time ABA All-Star as a player, coached the Spurs, Nuggets and 76ers, winning Coach of the Year with Denver in 1988.`\
-https://nytimes.com/athletic/7053057/2026/02/17/doug-moe-former-nba-coach-dies/
-
-**House Republican Faces Backlash to Islamophobic Post**\
-`Representative Randy Fine had responded to a Palestinian organizer by saying that “the choice between dogs and Muslims is not a difficult one.”`\
-https://nytimes.com/2026/02/17/us/politics/randy-fine-muslim-islamophobic-democrats.html
-
-**Hall of Famer Luke Kuechly says retiring when he did 'sucked' but was right decision**\
-`Kuechly also celebrated his friend and former teammate JJ Jansen signing another one-year deal with the Panthers at age 40.`\
-https://nytimes.com/athletic/7052981/2026/02/17/luke-kuechly-hof-panthers-jj-jansen/
-
-**Prime Tire: What to know ahead of season opener**\
-`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
-https://nytimes.com/athletic/7053154/2026/02/17/f1-season-opener-lego-movie-prime-tire/
-
-**Practical Tips for Understanding A.I. Hype**\
-`How can you prepare for potential changes brought on by artificial intelligence? Kevin Roose and Casey Newton, the hosts of “Hard Fork,” offer some advice.`\
-https://nytimes.com/video/podcasts/100000010717353/practical-tips-for-understanding-ai-hype.html
-
-**Shakhtar president donates $200k to banned Ukrainian skeleton racer**\
-`Vladyslav Heraskevych's "helmet of remembrance" was banned by the IOC, with the Ukrainian losing a subsequent appeal to CAS.`\
-https://nytimes.com/athletic/7053109/2026/02/17/vlad-heraskevych-shakhtar-donetsk-ukraine-olympics/
-
-**Bayer Agrees to Pay $7.25 Billion to Settle Roundup Lawsuits**\
-`The agreement, which still faces legal hurdles, would cover current and future claims that the weedkiller caused non-Hodgkin’s lymphoma.`\
-https://nytimes.com/2026/02/17/business/bayer-roundup-lawsuits-settlement.html
 
