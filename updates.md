@@ -1,3 +1,7 @@
+**No Corrections: Feb. 17, 2026**\
+`No corrections appeared in print on Tuesday, Feb. 17, 2026.`\
+https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-17-2026.html
+
 **Nobody Watched People the Way Frederick Wiseman Did**\
 `For more than 50 years, the influential documentarian found inspiration in filming the ways his ordinary subjects lived their lives.`\
 https://nytimes.com/2026/02/16/movies/frederick-wiseman-documentaries.html
