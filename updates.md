@@ -1,3 +1,15 @@
+**Mourinho accuses Vinicius Jr of inciting incident that led to alleged racist abuse**\
+`The Benfica coach said that Gianluca Prestianni had denied racially abusing Vinicius Jr during Tuesday's Champions League match.`\
+https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-champions-league/
+
+**Jackson’s Death Arrives at a Crucial Moment for Black Political Power**\
+`There are more Black senators than ever before, but a major Supreme Court ruling could reduce Black representation in the House.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-voters-voting-rights-act.html
+
+**U.S. men's Olympic hockey team reacts to lighter boards, plus Auston Matthews vs. William Nylander**\
+`For the first time since 2014, Maple Leafs teammates Auston Matthews and William Nylander will play against each other.`\
+https://nytimes.com/athletic/7052983/2026/02/17/usa-olympic-hockey-matthews-nylander-sweden/
+
 **‘Good Progress’ in U.S.-Iran Talks, Iranian Official Says**\
 `Indirect talks between American and Iranian officials in Geneva on Tuesday ended with the two sides agreeing to “a set of guiding principles,” according to the Iranian foreign minister.`\
 https://nytimes.com/video/world/middleeast/100000010717444/iran-us-peace-talks.html
