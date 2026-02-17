@@ -1,3 +1,7 @@
+**The Jesse Jackson Speech That Helped Redefine the Democratic Party’s Base**\
+`In his 1984 speech at the Democratic National Convention in San Francisco, Mr. Jackson argued for a more diverse coalition for the party.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-dnc-speech.html
+
 **Spurs accused of selectively editing minutes of fans' meeting**\
 `THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
 https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7043239/2026/02/17/rams-mock-draft-2026-year/
 **Outlier or contender? The Lakers' post-All-Star break question**\
 `The Lakers' record suggests they could be contenders. The numbers say otherwise. `\
 https://nytimes.com/athletic/7044361/2026/02/17/lakers-all-star-break-outlook-roster-questions/
-
-**A Pair With Clothes as Lively as Their Banter**\
-`A conversation about his red coat offered glimpses of other ways the color had entered their lives.`\
-https://nytimes.com/2026/02/17/style/street-style-look-colorful-warm-outfits.html
 
