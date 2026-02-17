@@ -1,3 +1,7 @@
+**The Only Civilization Worth Defending**\
+`Marco Rubio reminds an audience in Munich of what still unites us.`\
+https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
+
 **U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
 `The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
 https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/trump-howard-lutnick-epstein.html
 **NJ Transit Commuters Grumble as Bridge Work Disrupts Train Rides**\
 `Many people who commute into Manhattan got their first taste of the crowded platforms that are expected to become common over the next month as the Portal Bridge is reworked.`\
 https://nytimes.com/2026/02/17/nyregion/nj-transit-portal-bridge.html
-
-**Fania Fénelon, 74; Memoirs Described Auschwitz Singing**\
-`In “Playing for Time,” she recounted how singing in an all-female orchestra while in a concentration camp saved her from death.`\
-https://nytimes.com/2026/02/17/world/europe/fania-fenelon-dead.html
 
