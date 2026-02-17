@@ -1,3 +1,7 @@
+**Word of the Day: officious**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/17/learning/word-of-the-day-officious.html
+
 **Colbert Doesn’t Give an FCC About Calling Out CBS**\
 `“And because my network clearly doesn’t want us to talk about this, let’s talk about this,” Stephen Colbert said after CBS canceled a Texas congressman’s appearance on Monday’s “Late Show.”`\
 https://nytimes.com/2026/02/17/arts/television/colbert-fcc-trump-talarico-cbs.html
