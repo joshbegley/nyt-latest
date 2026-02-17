@@ -1,3 +1,7 @@
+**For João Lucas Reis da Silva, it was just a couple selfie. For men's tennis, it was bigger than that.**\
+`The first active male professional tennis player to come out publicly wants to be remembered for his tennis as much as advocacy.`\
+https://nytimes.com/athletic/5995939/2026/02/17/joao-lucas-reis-da-silva-out-gay-male-professional-tennis-player/
+
 **'Here comes Diggins!' The iconic Olympic broadcast moment that almost never was**\
 `Jessie Diggins and Kikkan Randall's gold-medal race in 2018 changed U.S. cross-country skiing forever, and the TV call played a key role.`\
 https://nytimes.com/athletic/7047998/2026/02/17/winter-olympics-here-comes-jessie-diggins-broadcast-call/
