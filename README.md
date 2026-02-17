@@ -10,8 +10,8 @@ https://nytimes.com/2026/02/17/us/politics/us-kills-11-in-boat-strikes.html
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-levito-blade-angels-womens-figure-skating-olympic-games-briefing/
 
-**Tricia McLaughlin is stepping down as a spokeswoman for the Homeland Security Department.**\
-`By Hamed Aleaziz`\
+**Tricia McLaughlin Is Stepping Down as Homeland Security Spokeswoman**\
+`Ms. McLaughlin was one of the most prominent voices in the administration defending President Trump’s mass deportation campaign.`\
 https://nytimes.com/2026/02/17/us/politics/tricia-mclaughlin-homeland-security.html
 
 **In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
