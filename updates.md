@@ -1,3 +1,43 @@
+**Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
+`Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
+https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
+
+**Warner Bros. Discovery Restarts Deal Talks with Paramount**\
+`Paramount’s takeover bid was rejected in favor of Netflix, which wanted only the streaming and studio businesses. Paramount said it would pay more if negotiations were reopened.`\
+https://nytimes.com/2026/02/17/business/warner-bros-discovery-paramount.html
+
+**The Portal Bridge Has Caused Headaches for Decades**\
+`A main rail link to New York City, the bridge over the Hackensack River will be replaced. Few commuters will miss it.`\
+https://nytimes.com/2026/02/17/nyregion/portal-bridge-decades-nj-transit.html
+
+**What Adolis García is working on as he seeks to return to All-Star form with Phillies**\
+`“It’s keeping him healthy, making sure the quality (at-bats are) there and then, the mechanical adjustments,” hitting coach Kevin Long said.`\
+https://nytimes.com/athletic/7051008/2026/02/17/adolis-garcia-phillies-spring-training/
+
+**Bobby Hurley confronts uncertainty of future, reflects on 11 years at Arizona State**\
+`"Of course, I’m going to wonder, ‘When is that going to happen? What is this going to look like? What is my future going to look like?’’’`\
+https://nytimes.com/athletic/7050883/2026/02/17/bobby-hurley-arizona-state-contract-future-11-years-reflection/
+
+**Jari Litmanen exclusive: Battling long Covid, winning over Van Gaal, and his love for Liverpool**\
+`The Finn played for some of the world's biggest clubs and is a national hero — so why do some people think he underachieved?`\
+https://nytimes.com/athletic/7037490/2026/02/17/jari-litmanen-liverpool/
+
+**SEC mailbag: Who will be the surprise CFP team in 2026? Surprise hot-seat situation?**\
+`Looking ahead to next season already, and answering your most pressing questions.`\
+https://nytimes.com/athletic/7051059/2026/02/17/sec-football-mailbag-2026-predictions/
+
+**Twins owner Tom Pohlad talks Framber Valdez pursuit, doubles down on 2026 expectations**\
+`Pohlad called the Twins' preseason over/under of 73 1/2 wins "ridiculous" and said the front office is still pursuing impact additions.`\
+https://nytimes.com/athletic/7050685/2026/02/17/twins-owner-tom-pohlad-framber-valdez-pursuit/
+
+**The U.S. men's Under-15 soccer team is proof that the youth pathway being built is working**\
+`A slick, intelligent American side gave their England counterparts a scare in Cyprus, and it has not gone unnoticed by the many agents there`\
+https://nytimes.com/athletic/7049569/2026/02/17/usa-soccer-youth-mls-usmnt/
+
+**NCAA Tournament Bracket Watch: As BYU slides, Wisconsin, Saint Louis and others rise**\
+`The surging Badgers are the first team to get to three wins over top-10 opponents this season.`\
+https://nytimes.com/athletic/7050374/2026/02/17/ncaa-tournament-bracket-projections-byu-wisconsin-saint-louis/
+
 **Spain to Investigate Social Media Giants, Escalating Trans-Atlantic Tech Dispute**\
 `The government wants prosecutors to investigate X, Meta and TikTok, adding to a growing clash between the U.S. and Europe over regulating social media.`\
 https://nytimes.com/2026/02/17/world/europe/spain-investigate-social-media.html

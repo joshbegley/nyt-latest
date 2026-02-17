@@ -1,40 +1,40 @@
-**Digging Through the Epstein Files**\
-`We look at how The Times has tackled a complex reporting project.`\
-https://nytimes.com/2026/02/17/briefing/digging-through-the-epstein-files.html
+**Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
+`Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
+https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
 
-**Spain to Investigate Social Media Giants, Escalating Trans-Atlantic Tech Dispute**\
-`The government wants prosecutors to investigate X, Meta and TikTok, adding to a growing clash between the U.S. and Europe over regulating social media.`\
-https://nytimes.com/2026/02/17/world/europe/spain-investigate-social-media.html
+**Warner Bros. Discovery Restarts Deal Talks with Paramount**\
+`Paramount’s takeover bid was rejected in favor of Netflix, which wanted only the streaming and studio businesses. Paramount said it would pay more if negotiations were reopened.`\
+https://nytimes.com/2026/02/17/business/warner-bros-discovery-paramount.html
 
-**For Kyle Finnegan and father, Willy, a Tigers dream is finally fulfilled**\
-`Willy Finnegan was a replacement player in the odd spring of 1995. Now his son, Kyle, is fulfilling his father's Tigers dream in Lakeland. `\
-https://nytimes.com/athletic/7051108/2026/02/17/detroit-tigers-kyle-finnegan-dream-fulfilled/
+**The Portal Bridge Has Caused Headaches for Decades**\
+`A main rail link to New York City, the bridge over the Hackensack River will be replaced. Few commuters will miss it.`\
+https://nytimes.com/2026/02/17/nyregion/portal-bridge-decades-nj-transit.html
 
-**Women's college basketball power rankings: South Carolina flexes its SEC dominance**\
-`Vanderbilt moves up and Ohio State drops in Sabreena Merchant's rankings. `\
-https://nytimes.com/athletic/7051730/2026/02/17/womens-college-basketball-power-rankings-south-carolina-sec/
+**What Adolis García is working on as he seeks to return to All-Star form with Phillies**\
+`“It’s keeping him healthy, making sure the quality (at-bats are) there and then, the mechanical adjustments,” hitting coach Kevin Long said.`\
+https://nytimes.com/athletic/7051008/2026/02/17/adolis-garcia-phillies-spring-training/
 
-**Read the Jackson family’s statement.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/read-the-jackson-familys-statement
+**Bobby Hurley confronts uncertainty of future, reflects on 11 years at Arizona State**\
+`"Of course, I’m going to wonder, ‘When is that going to happen? What is this going to look like? What is my future going to look like?’’’`\
+https://nytimes.com/athletic/7050883/2026/02/17/bobby-hurley-arizona-state-contract-future-11-years-reflection/
 
-**Top 300 hitters for fantasy baseball 2026: Shohei Ohtani, Aaron Judge, Bobby Witt up top**\
-`Juan Soto lands a lofty spot in Derek Van Riper's 2026 hitter rankings, but the best fantasy bat in New York still belongs to Aaron Judge.`\
-https://nytimes.com/athletic/7045537/2026/02/17/fantasy-baseball-2026-top-300-hitters/
+**Jari Litmanen exclusive: Battling long Covid, winning over Van Gaal, and his love for Liverpool**\
+`The Finn played for some of the world's biggest clubs and is a national hero — so why do some people think he underachieved?`\
+https://nytimes.com/athletic/7037490/2026/02/17/jari-litmanen-liverpool/
 
-**The Pulse: Three big NFL offseason questions**\
-`Welcome to The Pulse, The Athletic's daily newsletter.`\
-https://nytimes.com/athletic/7051814/2026/02/17/nfl-offseason-storylines-olympics-the-pulse/
+**SEC mailbag: Who will be the surprise CFP team in 2026? Surprise hot-seat situation?**\
+`Looking ahead to next season already, and answering your most pressing questions.`\
+https://nytimes.com/athletic/7051059/2026/02/17/sec-football-mailbag-2026-predictions/
 
-**L.A. mayor calls for Casey Wasserman to step down from 2028 Olympics committee**\
-`Karen Bass’ comments come after LA28 board’s executive committee last week gave Wasserman a vote of confidence. `\
-https://nytimes.com/athletic/7051907/2026/02/17/casey-wasserman-la-mayor-2028-olympics/
+**Twins owner Tom Pohlad talks Framber Valdez pursuit, doubles down on 2026 expectations**\
+`Pohlad called the Twins' preseason over/under of 73 1/2 wins "ridiculous" and said the front office is still pursuing impact additions.`\
+https://nytimes.com/athletic/7050685/2026/02/17/twins-owner-tom-pohlad-framber-valdez-pursuit/
 
-**What's next for Michael Jordan and NASCAR? A shared purpose**\
-`Jordan shifts from NASCAR's adversary in the courtroom to one of its most powerful advocates.`\
-https://nytimes.com/athletic/7050737/2026/02/17/michael-jordan-nascar-jim-france-daytona/
+**The U.S. men's Under-15 soccer team is proof that the youth pathway being built is working**\
+`A slick, intelligent American side gave their England counterparts a scare in Cyprus, and it has not gone unnoticed by the many agents there`\
+https://nytimes.com/athletic/7049569/2026/02/17/usa-soccer-youth-mls-usmnt/
 
-**Williamson, Hampton return to England squad for March qualifiers**\
-`Sarina Wiegman's side face Ukraine on March 3 before meeting Iceland on March 7.`\
-https://nytimes.com/athletic/7051963/2026/02/17/england-women-squad-march-fixtures/
+**NCAA Tournament Bracket Watch: As BYU slides, Wisconsin, Saint Louis and others rise**\
+`The surging Badgers are the first team to get to three wins over top-10 opponents this season.`\
+https://nytimes.com/athletic/7050374/2026/02/17/ncaa-tournament-bracket-projections-byu-wisconsin-saint-louis/
 
