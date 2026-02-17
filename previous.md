@@ -1,3 +1,7 @@
+**Amped Up**\
+`Stephan Prock and Jeff Chen collaborate on their second puzzle.`\
+https://nytimes.com/2026/02/16/crosswords/daily-puzzle-2026-02-17.html
+
 **No Corrections: Feb. 17, 2026**\
 `No corrections appeared in print on Tuesday, Feb. 17, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-17-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/business/media/anderson-cooper-60-minutes.html
 **‘The Last Straw’: T.S.A. Agents Brace for Another D.H.S. Shutdown**\
 `After funding for the Department of Homeland Security lapsed on Saturday, Transportation Security Administration employees expressed frustration at being forced to work without pay.`\
 https://nytimes.com/video/us/100000010714634/tsa-agents-government-shutdown.html
-
-**Steve Cohen 'annoyed' with lack of postseason success during ownership**\
-`Given Cohen’s investment in payroll, it would be especially bad for the Mets to again miss out on the postseason. `\
-https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectations-mets/
 

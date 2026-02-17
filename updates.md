@@ -1,3 +1,7 @@
+**Amped Up**\
+`Stephan Prock and Jeff Chen collaborate on their second puzzle.`\
+https://nytimes.com/2026/02/16/crosswords/daily-puzzle-2026-02-17.html
+
 **No Corrections: Feb. 17, 2026**\
 `No corrections appeared in print on Tuesday, Feb. 17, 2026.`\
 https://nytimes.com/2026/02/16/pageoneplus/no-corrections-feb-17-2026.html
