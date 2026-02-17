@@ -1,3 +1,11 @@
+**The Pulse: Three big NFL offseason questions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7051814/2026/02/17/nfl-offseason-storylines-olympics-the-pulse/
+
+**L.A. mayor calls for Casey Wasserman to step down from 2028 Olympics committee**\
+`Karen Bass’ comments come after LA28 board’s executive committee last week gave Wasserman a vote of confidence. `\
+https://nytimes.com/athletic/7051907/2026/02/17/casey-wasserman-la-mayor-2028-olympics/
+
 **What's next for Michael Jordan and NASCAR? A shared purpose**\
 `Jordan shifts from NASCAR's adversary in the courtroom to one of its most powerful advocates.`\
 https://nytimes.com/athletic/7050737/2026/02/17/michael-jordan-nascar-jim-france-daytona/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7051161/2026/02/17/2026-best-worst-mls-jerseys-kits
 **Ilia Malinin learning that the greats need to endure heartbreak**\
 `For Malinin, the path forward is clear. He is yearning to get back onto the ice.`\
 https://nytimes.com/athletic/7051944/2026/02/17/ilia-malinin-figure-skating-winter-olympics-quad-god-future/
-
-**Rosenthal: A spectator for Team USA at the 2023 WBC, Bobby Witt Jr. returns as a focal point**\
-`At 22, Witt Jr. soaked in his teammates' expertise at the previous tournament. Three years later, he's Team USA's starting shortstop.`\
-https://nytimes.com/athletic/7051486/2026/02/17/bobby-witt-world-baseball-classic-team-usa-royals/
-
-**Bad news for hitters, Reds pitcher Chase Burns is working on his changeup**\
-`Burns' changeup could be the difference between him being a hard thrower and one of the game's best pitchers.`\
-https://nytimes.com/athletic/7051179/2026/02/17/chase-burns-reds-pitcher-changeup/
 

@@ -1,3 +1,7 @@
+**What's next for Michael Jordan and NASCAR? A shared purpose**\
+`Jordan shifts from NASCAR's adversary in the courtroom to one of its most powerful advocates.`\
+https://nytimes.com/athletic/7050737/2026/02/17/michael-jordan-nascar-jim-france-daytona/
+
 **Williamson, Hampton return to England squad for March qualifiers**\
 `Sarina Wiegman's side face Ukraine on March 3 before meeting Iceland on March 7.`\
 https://nytimes.com/athletic/7051963/2026/02/17/england-women-squad-march-fixtures/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051486/2026/02/17/bobby-witt-world-baseball-classi
 **Bad news for hitters, Reds pitcher Chase Burns is working on his changeup**\
 `Burns' changeup could be the difference between him being a hard thrower and one of the game's best pitchers.`\
 https://nytimes.com/athletic/7051179/2026/02/17/chase-burns-reds-pitcher-changeup/
-
-**Falcons top 10 impending free agents, starting with franchise tag candidate Kyle Pitts**\
-`With the NFL’s franchise tag window opening, we could start getting our first real indications of the Falcons' roster plans.`\
-https://nytimes.com/athletic/7049822/2026/02/17/falcons-free-agents-franchise-tag-kyle-pitts/
 

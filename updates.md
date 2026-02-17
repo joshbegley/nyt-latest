@@ -1,3 +1,7 @@
+**What's next for Michael Jordan and NASCAR? A shared purpose**\
+`Jordan shifts from NASCAR's adversary in the courtroom to one of its most powerful advocates.`\
+https://nytimes.com/athletic/7050737/2026/02/17/michael-jordan-nascar-jim-france-daytona/
+
 **Williamson, Hampton return to England squad for March qualifiers**\
 `Sarina Wiegman's side face Ukraine on March 3 before meeting Iceland on March 7.`\
 https://nytimes.com/athletic/7051963/2026/02/17/england-women-squad-march-fixtures/
