@@ -1,3 +1,11 @@
+**In Memphis, mourning for the Rev. Jesse Jackson, who kept coming back.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/jesse-jackson-memphis-mourns
+
+**Trump Officials Negotiate Two High-Stakes Deals**\
+`Also, the Epstein emails have rocked several industries. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/17/briefing/trump-kushner-witkoff-sewage-spill.html
+
 **What the American Right Wants From Europe**\
 `The tensions in Marco Rubio’s trans-Atlantic vision.`\
 https://nytimes.com/2026/02/17/opinion/rubio-munich-security-conference.html
