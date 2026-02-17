@@ -1,3 +1,7 @@
+**Top 300 hitters for fantasy baseball 2026: Shohei Ohtani, Aaron Judge, Bobby Witt up top**\
+`Juan Soto lands a lofty spot in Derek Van Riper's 2026 hitter rankings, but the best fantasy bat in New York still belongs to Aaron Judge.`\
+https://nytimes.com/athletic/7045537/2026/02/17/fantasy-baseball-2026-top-300-hitters/
+
 **The Pulse: Three big NFL offseason questions**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7051814/2026/02/17/nfl-offseason-storylines-olympics-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051123/2026/02/17/georges-laraque-nhl-black-aces-b
 **From nods to Tina Turner and the Grateful Dead, some new MLS jerseys swing big**\
 `As always, the fresh jersey designs for the new MLS season are destined to polarize opinions. Here are ours`\
 https://nytimes.com/athletic/7051161/2026/02/17/2026-best-worst-mls-jerseys-kits-tina-turner-grateful-dead/
-
-**Ilia Malinin learning that the greats need to endure heartbreak**\
-`For Malinin, the path forward is clear. He is yearning to get back onto the ice.`\
-https://nytimes.com/athletic/7051944/2026/02/17/ilia-malinin-figure-skating-winter-olympics-quad-god-future/
 

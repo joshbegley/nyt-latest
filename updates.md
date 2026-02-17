@@ -1,3 +1,11 @@
+**The Pulse: Three big NFL offseason questions**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7051814/2026/02/17/nfl-offseason-storylines-olympics-the-pulse/
+
+**L.A. mayor calls for Casey Wasserman to step down from 2028 Olympics committee**\
+`Karen Bass’ comments come after LA28 board’s executive committee last week gave Wasserman a vote of confidence. `\
+https://nytimes.com/athletic/7051907/2026/02/17/casey-wasserman-la-mayor-2028-olympics/
+
 **What's next for Michael Jordan and NASCAR? A shared purpose**\
 `Jordan shifts from NASCAR's adversary in the courtroom to one of its most powerful advocates.`\
 https://nytimes.com/athletic/7050737/2026/02/17/michael-jordan-nascar-jim-france-daytona/
