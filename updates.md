@@ -1,3 +1,11 @@
+**Are Rockets ready for adversity? Can Kevin Durant stay healthy? 5 questions**\
+`The remainder of the NBA regular season will tell us a lot about what this Rockets team is made of for the playoffs. `\
+https://nytimes.com/athletic/7051817/2026/02/17/rockets-adversity-kevin-durant-five-questions/
+
+**Ronda Rousey returning to MMA for first fight since 2016, will face Gina Carano**\
+`More MMA bouts will be added to the May event in the coming weeks, MVP said. The live broadcast will also mark Netflix's first MMA event.`\
+https://nytimes.com/athletic/7052295/2026/02/17/ronda-rousey-mma-return-gina-carano-netflix/
+
 **The Bounce: The best idea to fix tanking. And who'll be the next face of the NBA?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7052359/2026/02/17/nba-tanking-victor-wembanyama-all-star-the-bounce/

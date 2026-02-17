@@ -1,3 +1,11 @@
+**Are Rockets ready for adversity? Can Kevin Durant stay healthy? 5 questions**\
+`The remainder of the NBA regular season will tell us a lot about what this Rockets team is made of for the playoffs. `\
+https://nytimes.com/athletic/7051817/2026/02/17/rockets-adversity-kevin-durant-five-questions/
+
+**Ronda Rousey returning to MMA for first fight since 2016, will face Gina Carano**\
+`More MMA bouts will be added to the May event in the coming weeks, MVP said. The live broadcast will also mark Netflix's first MMA event.`\
+https://nytimes.com/athletic/7052295/2026/02/17/ronda-rousey-mma-return-gina-carano-netflix/
+
 **The Bounce: The best idea to fix tanking. And who'll be the next face of the NBA?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7052359/2026/02/17/nba-tanking-victor-wembanyama-all-star-the-bounce/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7007221/2026/02/17/2026-fantasy-baseball-draft-kit-
 **A Holiday High-School Game Is Shattered by a Fatal Assault**\
 `At a hockey rink in Pawtucket, R.I., shots rang out, leaving two people dead, in addition to the shooter. The police chief said it was a family matter that exploded in public.`\
 https://nytimes.com/2026/02/17/us/rhode-island-hockey-rink-shooting.html
-
-**MLBPA executive director Tony Clark is expected to resign: Sources**\
-`Clark and the union have been under federal investigation since last year regarding using licensing money or equity to enrich themselves.`\
-https://nytimes.com/athletic/7052142/2026/02/17/mlpba-tony-clark-resigns/
-
-**NBA player poll: Do you like the new All-Star Game format?**\
-`The NBA debuted a new All-Star Game format this year that featured three teams and a round-robin tournament.`\
-https://nytimes.com/athletic/7051328/2026/02/17/nba-all-star-player-poll-new-format/
 
