@@ -1,3 +1,7 @@
+**2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
+`Women's hockey final set, bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics`\
+https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
+
 **At Least 2 Killed During High School Hockey Game in Rhode Island**\
 `The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
 https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
