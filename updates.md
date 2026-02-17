@@ -1,3 +1,11 @@
+**Judge Blocks Deportation of Columbia Protester Mohsen Mahdawi**\
+`The green card holder from the West Bank had been detained during a citizenship appointment.`\
+https://nytimes.com/2026/02/17/nyregion/columbia-mohsen-mahdawi-deportation.html
+
+**The Only Civilization Worth Defending**\
+`Marco Rubio reminds an audience in Munich of what still unites us.`\
+https://nytimes.com/2026/02/17/opinion/munich-rubio-western-civilization.html
+
 **U.S. Indicts Captain of Oil Tanker Chased by the Coast Guard for Weeks**\
 `The charges include falsely flying a Guyanese flag and failing to obey a Coast Guard order to halt the ship for boarding by U.S. forces.`\
 https://nytimes.com/2026/02/17/us/politics/us-coast-guard-oil-tanker-captain-venezuela.html
