@@ -1,3 +1,7 @@
+**At Least 2 Killed During High School Hockey Game in Rhode Island**\
+`The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
+https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
+
 **After First Big Overseas Trip, Ocasio-Cortez Expresses Frustrations**\
 `The congresswoman argued in an interview that presidential speculation, which included scrutiny of her slip-ups, had overshadowed her anti-authoritarian message at the Munich Security Conference.`\
 https://nytimes.com/2026/02/16/us/politics/aoc-germany-munich-security-conference.html
@@ -10,7 +14,7 @@ https://nytimes.com/2026/02/16/business/media/anderson-cooper-60-minutes.html
 `After funding for the Department of Homeland Security lapsed on Saturday, Transportation Security Administration employees expressed frustration at being forced to work without pay.`\
 https://nytimes.com/video/us/100000010714634/tsa-agents-government-shutdown.html
 
-**Steve Cohen 'annoyed' with lack of postseason success during ownership tenure**\
+**Steve Cohen 'annoyed' with lack of postseason success during ownership**\
 `Given Cohen’s investment in payroll, it would be especially bad for the Mets to again miss out on the postseason. `\
 https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectations-mets/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal
 **Teacher Killed in Crash After Man Fled in Car From ICE, Police Say**\
 `The man, who federal officials said had entered the United States illegally, was arrested and charged with first-degree homicide after the crash in Savannah, Ga., according to the county police.`\
 https://nytimes.com/2026/02/16/us/georgia-ice-car-crash-teacher-killed.html
-
-**Assessing Dodgers' options in their main battle of spring: Second base**\
-`The Dodgers don't typically have a lot of intrigue at spring training, but Tommy Edman's injury has created competition on the infield.`\
-https://nytimes.com/athletic/7051041/2026/02/16/dodgers-options-second-base/
 

@@ -1,3 +1,11 @@
+**At Least 2 Killed During High School Hockey Game in Rhode Island**\
+`The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
+https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
+
+**Steve Cohen 'annoyed' with lack of postseason success during ownership**\
+`Given Cohen’s investment in payroll, it would be especially bad for the Mets to again miss out on the postseason. `\
+https://nytimes.com/athletic/7050809/2026/02/16/steve-cohen-postseason-expectations-mets/
+
 **After First Big Overseas Trip, Ocasio-Cortez Expresses Frustrations**\
 `The congresswoman argued in an interview that presidential speculation, which included scrutiny of her slip-ups, had overshadowed her anti-authoritarian message at the Munich Security Conference.`\
 https://nytimes.com/2026/02/16/us/politics/aoc-germany-munich-security-conference.html
