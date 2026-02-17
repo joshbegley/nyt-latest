@@ -1,3 +1,11 @@
+**The Bounce: The best idea to fix tanking. And who'll be the next face of the NBA?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7052359/2026/02/17/nba-tanking-victor-wembanyama-all-star-the-bounce/
+
+**Birmingham City announce sale of women’s team to club’s ownership group**\
+`Former England international Karen Carney and former tennis player Kim Clijsters have also acquired a minority share in the club.`\
+https://nytimes.com/athletic/7052349/2026/02/17/birmingham-city-women-sale-karen-carney/
+
 **The Jesse Jackson Speech That Helped Redefine the Democratic Party’s Base**\
 `In his 1984 speech at the Democratic National Convention in San Francisco, Mr. Jackson argued for a more diverse coalition for the party.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-dnc-speech.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/7007221/2026/02/17/2026-fantasy-baseball-draft-kit-
 `At a hockey rink in Pawtucket, R.I., shots rang out, leaving two people dead, in addition to the shooter. The police chief said it was a family matter that exploded in public.`\
 https://nytimes.com/2026/02/17/us/rhode-island-hockey-rink-shooting.html
 
-**MLBPA executive director Tony Clark is expected to announce his resignation: Sources**\
+**MLBPA executive director Tony Clark is expected to resign: Sources**\
 `Clark and the union have been under federal investigation since last year regarding using licensing money or equity to enrich themselves.`\
 https://nytimes.com/athletic/7052142/2026/02/17/mlpba-tony-clark-resigns/
 
 **NBA player poll: Do you like the new All-Star Game format?**\
 `The NBA debuted a new All-Star Game format this year that featured three teams and a round-robin tournament.`\
 https://nytimes.com/athletic/7051328/2026/02/17/nba-all-star-player-poll-new-format/
-
-**Rams mock draft: Boosting the cornerback room, adding a QB for the future**\
-`In our first mock draft of 2026, the Rams immediately look to upgrade at cornerback and find a QB to develop behind Matthew Stafford. `\
-https://nytimes.com/athletic/7043239/2026/02/17/rams-mock-draft-2026-year/
-
-**Outlier or contender? The Lakers' post-All-Star break question**\
-`The Lakers' record suggests they could be contenders. The numbers say otherwise. `\
-https://nytimes.com/athletic/7044361/2026/02/17/lakers-all-star-break-outlook-roster-questions/
 
