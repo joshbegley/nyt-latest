@@ -1,3 +1,15 @@
+**House Republican Faces Backlash to Islamophobic Post**\
+`Representative Randy Fine had responded to a Palestinian organizer by saying that “the choice between dogs and Muslims is not a difficult one.”`\
+https://nytimes.com/2026/02/17/us/politics/randy-fine-muslim-islamophobic-democrats.html
+
+**Hall of Famer Luke Kuechly says retiring when he did 'sucked' but was right decision**\
+`Kuechly also celebrated his friend and former teammate JJ Jansen signing another one-year deal with the Panthers at age 40.`\
+https://nytimes.com/athletic/7052981/2026/02/17/luke-kuechly-hof-panthers-jj-jansen/
+
+**Prime Tire: What to know ahead of season opener**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7053154/2026/02/17/f1-season-opener-lego-movie-prime-tire/
+
 **Practical Tips for Understanding A.I. Hype**\
 `How can you prepare for potential changes brought on by artificial intelligence? Kevin Roose and Casey Newton, the hosts of “Hard Fork,” offer some advice.`\
 https://nytimes.com/video/podcasts/100000010717353/practical-tips-for-understanding-ai-hype.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belaru
 **Democrats and White House Trade Offers but Deal to Reopen D.H.S. Remains Elusive**\
 `With Congress in a weeklong recess, there was little sign of progress toward a deal to fund the Department of Homeland Security.`\
 https://nytimes.com/2026/02/17/us/politics/trump-dhs-shutdown-democrats.html
-
-**Mamdani Ushers in a New Tradition: Ramadan in City Hall**\
-`Zohran Mamdani, New York City’s first Muslim mayor, will observe Ramadan as he runs the nation’s largest city, blending his faith into his public life.`\
-https://nytimes.com/2026/02/17/nyregion/mamdani-ramadan-muslim.html
-
-**Republicans Reach Deal With Democrats in N.C. Voter Rolls Case**\
-`The agreement, which still must be approved by a judge, would end a lawsuit brought by the Republican National Committee that challenged the state’s handling of its voter registration list.`\
-https://nytimes.com/2026/02/17/us/politics/republicans-north-carolina-voter-rolls-deal.html
-
-**How to watch Wisconsin vs. Ohio State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7053174/2026/02/17/wisconsin-vs-ohio-state-stream-how-to-watch-feb-17/
 

@@ -1,3 +1,15 @@
+**House Republican Faces Backlash to Islamophobic Post**\
+`Representative Randy Fine had responded to a Palestinian organizer by saying that “the choice between dogs and Muslims is not a difficult one.”`\
+https://nytimes.com/2026/02/17/us/politics/randy-fine-muslim-islamophobic-democrats.html
+
+**Hall of Famer Luke Kuechly says retiring when he did 'sucked' but was right decision**\
+`Kuechly also celebrated his friend and former teammate JJ Jansen signing another one-year deal with the Panthers at age 40.`\
+https://nytimes.com/athletic/7052981/2026/02/17/luke-kuechly-hof-panthers-jj-jansen/
+
+**Prime Tire: What to know ahead of season opener**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7053154/2026/02/17/f1-season-opener-lego-movie-prime-tire/
+
 **Practical Tips for Understanding A.I. Hype**\
 `How can you prepare for potential changes brought on by artificial intelligence? Kevin Roose and Casey Newton, the hosts of “Hard Fork,” offer some advice.`\
 https://nytimes.com/video/podcasts/100000010717353/practical-tips-for-understanding-ai-hype.html
