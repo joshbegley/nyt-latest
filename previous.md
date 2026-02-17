@@ -1,3 +1,11 @@
+**Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
+`We want to get a better picture of what medical care for immigrants in detention is like.`\
+https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html
+
+**Tracking the Fallout From the Epstein Files**\
+`This list will be updated and includes people who have faced concrete consequences, such as the loss of their position, as a result of their connection to Jeffrey Epstein.`\
+https://nytimes.com/interactive/2026/02/17/us/epstein-files-names-fired-resigned-fallout.html
+
 **Benfica-Madrid stopped after Vinicius Jr appears to allege racist abuse**\
 `The game resumed after the delay with the Brazilian then booed by the home fans when he touched the ball. `\
 https://nytimes.com/athletic/7053346/2026/02/17/vinicius-racism-real-madrid-benfica/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/world/europe/anna-akhmatova-dead.html
 **Millvina Dean, Titanic’s Last Survivor, Dies at 97**\
 `She was just 9 weeks old when she was lowered to safety in a mail sack, surviving the worst maritime disaster in history.`\
 https://nytimes.com/2026/02/17/world/europe/millvina-dean-dead.html
-
-**For Team USA, speedskating team pursuit comes up short of own expectations**\
-`“There’s always going to be bitterness,” said Casey Dawson of the U.S. men's team. “We came out here to win.`\
-https://nytimes.com/athletic/7053144/2026/02/17/winter-olympics-speedskating-team-pursuit-final/
-
-**Labubu Diplomacy**\
-`China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
-https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html
 

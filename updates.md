@@ -1,3 +1,11 @@
+**Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
+`We want to get a better picture of what medical care for immigrants in detention is like.`\
+https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html
+
+**Tracking the Fallout From the Epstein Files**\
+`This list will be updated and includes people who have faced concrete consequences, such as the loss of their position, as a result of their connection to Jeffrey Epstein.`\
+https://nytimes.com/interactive/2026/02/17/us/epstein-files-names-fired-resigned-fallout.html
+
 **Benfica-Madrid stopped after Vinicius Jr appears to allege racist abuse**\
 `The game resumed after the delay with the Brazilian then booed by the home fans when he touched the ball. `\
 https://nytimes.com/athletic/7053346/2026/02/17/vinicius-racism-real-madrid-benfica/
