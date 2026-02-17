@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7051190/2026/02/17/henri-rivers-iv-olympics-jamaica
 
 **New Jersey Commuters Face Month of Misery as Service to Manhattan Slashed**\
 `NJ Transit suggested that commuters should work from home for the next month, as Amtrak moves train traffic to a new bridge, severely reducing service into Manhattan.`\
-https://nytimes.com/2026/02/17/nyregion/new-jeresy-transit-delays-manhattan.html
+https://nytimes.com/2026/02/17/nyregion/new-jersey-transit-delays-manhattan.html
 
 **For an Immigration Trap on a Bridge to Canada, an Encouraging Sign**\
 `The recent detention of a visiting research scientist has renewed attention on a confusing exit ramp in Buffalo that sends drivers across the border.`\
