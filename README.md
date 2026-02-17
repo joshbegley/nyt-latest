@@ -1,3 +1,11 @@
+**2026 fantasy baseball rankings: Top 600 hitters and pitchers**\
+`Jake Ciely offers up his 2026 fantasy baseball rankings, with overall rankings for hitters and pitchers, and sortable by position.`\
+https://nytimes.com/athletic/7045061/2026/02/17/fantasy-baseball-2026-rankings-top-600-hitters-pitchers/
+
+**How Jesse Jackson Inspired Generations of Black Democrats**\
+`Mr. Jackson’s presidential campaigns created a pathway for scores of Black Democrats to run for office, with many making historic leaps to prominent offices.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-democrats.html
+
 **Look, Ma! Or Maybe Don’t. Parents of Some Olympians Face Extreme Fear.**\
 `When your child races headfirst down an ice chute, leaps off ski jumps or performs snowboard tricks in midair, a medal may not be the main thing you pray for.`\
 https://nytimes.com/2026/02/17/world/olympics/olympics-parents-fear.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/17/us/trump-news
 **This Olympic coach’s quick change routine: 16 skaters, 13 team jackets**\
 `“We should celebrate our differences,” said Benoit Richaud, who's gone viral for wearing nearly a dozen different countries' jackets.`\
 https://nytimes.com/athletic/7052064/2026/02/17/olympics-figure-skating-coach-milan-jackets/
-
-**Trump’s Ambassador to Belgium Is Summoned After Accusing Officials of Antisemitism**\
-`The diplomat, Bill White, was then asked to meet with the Belgian foreign minister, at a time of rising tensions between the U.S. and countries in Europe.`\
-https://nytimes.com/2026/02/17/world/europe/belgium-trump-ambassador-anti-semitism.html
-
-**Seven Pivotal Moments in Jesse Jackson’s Life**\
-`The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
-https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
 
