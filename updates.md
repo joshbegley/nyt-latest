@@ -1,3 +1,7 @@
+**For Team USA, speedskating team pursuit comes up short of their own expectations**\
+`“There’s always going to be bitterness,” said Casey Dawson of the U.S. men's team. “We came out here to win.`\
+https://nytimes.com/athletic/7053144/2026/02/17/winter-olympics-speedskating-team-pursuit-final/
+
 **Labubu Diplomacy**\
 `China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
 https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html

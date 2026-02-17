@@ -1,3 +1,7 @@
+**For Team USA, speedskating team pursuit comes up short of their own expectations**\
+`“There’s always going to be bitterness,” said Casey Dawson of the U.S. men's team. “We came out here to win.`\
+https://nytimes.com/athletic/7053144/2026/02/17/winter-olympics-speedskating-team-pursuit-final/
+
 **Labubu Diplomacy**\
 `China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
 https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053109/2026/02/17/vlad-heraskevych-shakhtar-donets
 **Bayer Agrees to Pay $7.25 Billion to Settle Roundup Lawsuits**\
 `The agreement, which still faces legal hurdles, would cover current and future claims that the weedkiller caused non-Hodgkin’s lymphoma.`\
 https://nytimes.com/2026/02/17/business/bayer-roundup-lawsuits-settlement.html
-
-**As Bernie Sanders Comes to California, Wealth Tax Opponents Intensify Efforts**\
-`The opponents’ latest moves include online ads tied to Gov. Gavin Newsom, a crypto-related push to raise money and competing ballot measures.`\
-https://nytimes.com/2026/02/17/us/california-wealth-tax-opposition-bernie-sanders.html
 
