@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7050919/2026/02/16/tom-ricketts-cubs-owner-media-se
 https://nytimes.com/2026/02/16/arts/television/shoresy-season-5-heated-rivalry.html
 
 **2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
-`Women's hockey final set, bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics`\
+`The women's hockey final is set, a bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics.`\
 https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
 
 **At Least 2 Killed During High School Hockey Game in Rhode Island**\
