@@ -1,3 +1,11 @@
+**Russia, Belarus athletes will compete in Paralympics under national flags**\
+`Russia's time as a Paralympic pariah is ending, as the International Paralympic Committee announced the move Tuesday.`\
+https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belarus-flags-athletes/
+
+**Democrats and White House Trade Offers but Deal to Reopen D.H.S. Remains Elusive**\
+`With Congress in a weeklong recess, there was little sign of progress toward a deal to fund the Department of Homeland Security.`\
+https://nytimes.com/2026/02/17/us/politics/trump-dhs-shutdown-democrats.html
+
 **Mamdani Ushers in a New Tradition: Ramadan in City Hall**\
 `Zohran Mamdani, New York City’s first Muslim mayor, will observe Ramadan as he runs the nation’s largest city, blending his faith into his public life.`\
 https://nytimes.com/2026/02/17/nyregion/mamdani-ramadan-muslim.html

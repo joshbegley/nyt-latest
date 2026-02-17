@@ -1,3 +1,7 @@
+**Shia LaBeouf Charged With Battery in New Orleans**\
+`The actor, best known for his roles in “Transformers” and “Megalopolis,” was arrested early Tuesday after reportedly assaulting two people, the authorities said.`\
+https://nytimes.com/2026/02/17/movies/shia-labeouf-arrested-new-orleans.html
+
 **Russia, Belarus athletes will compete in Paralympics under national flags**\
 `Russia's time as a Paralympic pariah is ending, as the International Paralympic Committee announced the move Tuesday.`\
 https://nytimes.com/athletic/7052951/2026/02/17/winter-paralympics-russia-belarus-flags-athletes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053165/2026/02/17/nebraska-vs-iowa-stream-how-to-w
 **Republicans, Braced for Losses, Push More Voting Restrictions in Congress**\
 `Legislation that would require proof of citizenship to register to vote was only the beginning as the G.O.P. presses to sharply limit voting in line with President Trump’s false claims of widespread fraud.`\
 https://nytimes.com/2026/02/17/us/politics/republicans-vote-fraud-id-midterms.html
-
-**Norway's Tormod Frostad wins men's freeski big air on last jump in thrilling final**\
-`Tormod Frostad secured gold with 98.50 points on the final jump of the evening. `\
-https://nytimes.com/athletic/7052962/2026/02/17/tormod-frostad-mens-freeski-big-air-2026-winter-olympics/
 
