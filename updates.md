@@ -1,3 +1,19 @@
+**2026 fantasy baseball rankings: Top 600 hitters and pitchers**\
+`Jake Ciely offers up his 2026 fantasy baseball rankings, with overall rankings for hitters and pitchers, and sortable by position.`\
+https://nytimes.com/athletic/7045061/2026/02/17/fantasy-baseball-2026-rankings-top-600-hitters-pitchers/
+
+**How Jesse Jackson Inspired Generations of Black Democrats**\
+`Mr. Jackson’s presidential campaigns created a pathway for scores of Black Democrats to run for office, with many making historic leaps to prominent offices.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-democrats.html
+
+**Look, Ma! Or Maybe Don’t. Parents of Some Olympians Face Extreme Fear.**\
+`When your child races headfirst down an ice chute, leaps off ski jumps or performs snowboard tricks in midair, a medal may not be the main thing you pray for.`\
+https://nytimes.com/2026/02/17/world/olympics/olympics-parents-fear.html
+
+**Revelers Welcome Year of the Horse With Fireworks and Feasts**\
+`The Lunar New Year, the most important holiday in many Asian countries, is being celebrated around the world.`\
+https://nytimes.com/2026/02/17/world/asia/lunar-new-year-horse-celebrations.html
+
 **Pereira hopeful of rekindling 'fire and passion' with Marinakis at Forest**\
 `Pereira secured a league and cup double with Olympiacos, also owned by Marinakis, during a short spell at the Greek club in 2015`\
 https://nytimes.com/athletic/7052153/2026/02/17/pereira-nottingham-forest-marinakis/
