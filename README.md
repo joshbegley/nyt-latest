@@ -1,3 +1,7 @@
+**At Giants camp, Tony Vitello goes on a tangent about the process that got him there**\
+`The first-time MLB manager started his Monday media session by asking assembled reporters "When did you first think I was taking this job?"`\
+https://nytimes.com/athletic/7051561/2026/02/16/tony-vitello-san-francisco-giants-tennessee-exit/
+
 **Amped Up**\
 `Stephan Prock and Jeff Chen collaborate on their second puzzle.`\
 https://nytimes.com/2026/02/16/crosswords/daily-puzzle-2026-02-17.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/16/us/politics/aoc-germany-munich-security-conferenc
 **Anderson Cooper to Leave ‘60 Minutes’ on CBS**\
 `Mr. Cooper said in a statement that he was leaving as a correspondent for the show to focus on his CNN program and spend more time with his children.`\
 https://nytimes.com/2026/02/16/business/media/anderson-cooper-60-minutes.html
-
-**‘The Last Straw’: T.S.A. Agents Brace for Another D.H.S. Shutdown**\
-`After funding for the Department of Homeland Security lapsed on Saturday, Transportation Security Administration employees expressed frustration at being forced to work without pay.`\
-https://nytimes.com/video/us/100000010714634/tsa-agents-government-shutdown.html
 
