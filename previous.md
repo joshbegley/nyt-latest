@@ -1,3 +1,11 @@
+**Republicans, Braced for Losses, Push More Voting Restrictions in Congress**\
+`Legislation that would require proof of citizenship to register to vote was only the beginning as the G.O.P. presses to sharply limit voting in line with President Trump’s false claims of widespread fraud.`\
+https://nytimes.com/2026/02/17/us/politics/republicans-vote-fraud-id-midterms.html
+
+**Norway's Tormod Frostad wins men's freeski big air on last jump in thrilling final**\
+`Tormod Frostad secured gold with 98.50 points on the final jump of the evening. `\
+https://nytimes.com/athletic/7052962/2026/02/17/tormod-frostad-mens-freeski-big-air-2026-winter-olympics/
+
 **Documenting a ‘Drastically Changing’ Scientific Landscape**\
 `In the Lost Science series, scientists whose jobs or funding have been cut by the Trump administration tell their stories.`\
 https://nytimes.com/2026/02/17/insider/lost-science-research-cuts.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7052910/2026/02/17/nfl-franchise-tag-process-2026/
 **Javier Báez addresses WBC suspension for marijuana: 'I’m the one that failed the test'**\
 `Báez tested positive for marijuana in a 2023 screening test for that year's WBC and his WBC suspension runs through April 2026.`\
 https://nytimes.com/athletic/7052938/2026/02/17/javier-baez-world-baseball-classic-failed-drug-test/
-
-**Macklin Celebrini's Olympic lessons will benefit Sharks — and Canada — for years**\
-`Celebrini is being exposed to a new world at the Olympics, one in which he is thriving at age 19 and will soon come to dominate.`\
-https://nytimes.com/athletic/7052929/2026/02/17/canada-olympics-hockey-macklin-celebrini-sharks/
-
-**Winter Storms Bring Heavy Snow to the Sierra Nevada**\
-`Heavy snow in the Sierra Nevada created difficult travel conditions with poor visibility.`\
-https://nytimes.com/video/us/100000010718083/winter-storms-sierra-nevada-snow.html
 

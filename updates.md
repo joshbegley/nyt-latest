@@ -1,3 +1,11 @@
+**Republicans, Braced for Losses, Push More Voting Restrictions in Congress**\
+`Legislation that would require proof of citizenship to register to vote was only the beginning as the G.O.P. presses to sharply limit voting in line with President Trump’s false claims of widespread fraud.`\
+https://nytimes.com/2026/02/17/us/politics/republicans-vote-fraud-id-midterms.html
+
+**Norway's Tormod Frostad wins men's freeski big air on last jump in thrilling final**\
+`Tormod Frostad secured gold with 98.50 points on the final jump of the evening. `\
+https://nytimes.com/athletic/7052962/2026/02/17/tormod-frostad-mens-freeski-big-air-2026-winter-olympics/
+
 **Documenting a ‘Drastically Changing’ Scientific Landscape**\
 `In the Lost Science series, scientists whose jobs or funding have been cut by the Trump administration tell their stories.`\
 https://nytimes.com/2026/02/17/insider/lost-science-research-cuts.html
