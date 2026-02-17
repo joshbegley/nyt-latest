@@ -1,10 +1,18 @@
+**Full Time: U.S. SheBelieves Cup roster is here**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/
+
+**U.S. Kills 11 in Boat Strikes in Pacific and Caribbean**\
+`It was the first time in the campaign against people the United States accuses of drug smuggling at sea that U.S. forces blew up boats on both sides of the Panama Canal in the same day.`\
+https://nytimes.com/2026/02/17/us/politics/us-kills-11-in-boat-strikes.html
+
 **Games Briefing: Blade Angels time**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-levito-blade-angels-womens-figure-skating-olympic-games-briefing/
 
 **Tricia McLaughlin is stepping down as a spokeswoman for the Homeland Security Department.**\
 `By Hamed Aleaziz`\
-https://nytimes.com/live/2026/02/17/us/trump-news/tricia-mclaughlin-is-stepping-down-as-a-spokeswoman-for-the-homeland-security-department
+https://nytimes.com/2026/02/17/us/politics/tricia-mclaughlin-homeland-security.html
 
 **In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
 `The use of artificial intelligence gave a New Zealand judge pause about the genuineness of the remorse expressed in the apology. It reflects a wider discussion about using A.I. for personal communication.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/world/middleeast/israel-hamas-board-of-peace-disa
 **Robert Duvall Had a Message for Directors: ‘Get Out of My Way’**\
 `The actor had very particular thoughts on how he should — and shouldn’t — be directed, and he was happy to share them.`\
 https://nytimes.com/2026/02/17/movies/robert-duvall-actors-directors.html
-
-**What we saw at Canada men's Olympic hockey practice: Lineup hints, injuries and more**\
-`Plus, Tom Wilson reflects on his calculated fight against Pierre Crinon and a flashback to 1987 for Rick Tocchet.`\
-https://nytimes.com/athletic/7052783/2026/02/17/canada-olympic-hockey-mens-injury-lineup/
-
-**Jesse Jackson’s Life and Legacy**\
-`Readers reflect on the passing of the civil rights leader. Also: Power serving the public; climate change and gravity.`\
-https://nytimes.com/2026/02/17/opinion/jesse-jackson-life-legacy.html
 
