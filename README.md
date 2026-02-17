@@ -1,3 +1,7 @@
+**Mourinho accuses Vinicius Jr of inciting incident that led to alleged racist abuse**\
+`The Benfica coach said that Gianluca Prestianni had denied racially abusing Vinicius Jr during Tuesday's Champions League match.`\
+https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-champions-league/
+
 **Jackson’s Death Arrives at a Crucial Moment for Black Political Power**\
 `There are more Black senators than ever before, but a major Supreme Court ruling could reduce Black representation in the House.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-voters-voting-rights-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053600/2026/02/17/balogun-world-cup-pochettino-usm
 **4 Dead in Colorado Crash as Strong Winds Kick Up Wildfire Warnings**\
 `High winds were fueling the risk of wildfires across the Southwest and the Plains. Officials said the weather conditions had caused a deadly highway pileup in Colorado.`\
 https://nytimes.com/2026/02/17/weather/fire-winds-oklahoma-kansas-colorado.html
-
-**Jesse Jackson’s Hometown Remembers Him as a ‘Superstar’**\
-`Mr. Jackson often spoke about Greenville, S.C., in his speeches, returning home several times to fight for change — and for a slice of his favorite banana cream pie.`\
-https://nytimes.com/2026/02/17/us/politics/jesse-jackson-greenville-south-carolina-hometown.html
 
