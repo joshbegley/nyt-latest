@@ -1,3 +1,11 @@
+**Colbert Slams Trump Administration After CBS Pulls Senate Candidate Interview**\
+`Stephen Colbert said he had to drop an interview with James Talarico from his Monday broadcast because of new F.C.C. guidance that targeted political interviews on late-night shows.`\
+https://nytimes.com/2026/02/17/business/media/colbert-cbs-fcc-talarico-carr.html
+
+**Mamdani Threatens to Raise Property Taxes if There’s No Wealth Tax**\
+`Mayor Zohran Mamdani said his proposal to raise New York City property taxes by 9.5 percent was a “last resort.”`\
+https://nytimes.com/2026/02/17/nyregion/budget-mamdani-property-taxes.html
+
 **Submit your draft and free-agency questions for Kevin Fishbain's Bears mailbag**\
 `Before the NFL world descends on Indianapolis for the combine next week, share your Bears draft and free-agency questions here.`\
 https://nytimes.com/athletic/7052997/2026/02/17/bears-mailbag-questions-54/
