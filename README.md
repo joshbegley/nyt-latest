@@ -1,3 +1,23 @@
+**How to watch Tennessee vs. Ole Miss women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052658/2026/02/17/tennessee-vs-ole-miss-stream-how-to-watch-feb-17/
+
+**How to watch Saint Louis vs. Rhode Island men's basketball: Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the Rhode Island Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052655/2026/02/17/saint-louis-vs-rhode-island-stream-how-to-watch-feb-17/
+
+**How to watch North Carolina vs. NC State men's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052652/2026/02/17/north-carolina-vs-nc-state-stream-how-to-watch-feb-17/
+
+**How to watch South Carolina vs. Florida men's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052649/2026/02/17/south-carolina-vs-florida-stream-how-to-watch-feb-17/
+
+**How to watch Louisville vs. SMU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7052647/2026/02/17/louisville-vs-smu-stream-how-to-watch-feb-17/
+
 **How to watch Miami (OH) vs. UMass men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the UMass Minutemen, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7052644/2026/02/17/miami-oh-vs-umass-stream-how-to-watch-feb-17/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/17/nyregion/new-jersey-commuters-hoboken.html
 **Key Europe-based players return for USWNT in SheBelieves Cup but no Macario**\
 `Notably absent is Chelsea forward Macario, whose future with the club is uncertain, as she's said to be out with an injury.`\
 https://nytimes.com/athletic/7051833/2026/02/17/uswnt-roster-shebelieves-cup-macario/
-
-**He overslept and won Olympic gold in 2018. In Italy, no alarm clock will be needed**\
-`At 17, Red Gerard become the youngest Winter Olympic champion since 1928. On Wednesday, he's hoping to make more history.`\
-https://nytimes.com/athletic/7050315/2026/02/17/red-gerard-snowboard-slopestyle-2026-winter-olympics/
-
-**Arsenal announce season-ticket price increase, introduction of safe standing**\
-`The implementation of safe standing represents the culmination of years of campaigning by supporters’ groups.`\
-https://nytimes.com/athletic/7052006/2026/02/17/arsenal-season-tickets-price-safe-standing/
-
-**Budget-Friendly and Downright Delicious**\
-`By Margaux Laskey`\
-https://nytimes.com/2026/02/17/dining/budget-friendly-and-downright-delicious.html
-
-**Why Texas Tech point guard Christian Anderson should be a first-round NBA pick**\
-`His size and athleticism won't wow scouts, but Anderson makes the right play time after time.`\
-https://nytimes.com/athletic/7052496/2026/02/17/christian-anderson-texas-tech-nba-draft/
-
-**How tanking impacts NBA playoffs; plus the Swiss prospect who loves 'White Chocolate'**\
-`All schedules are not created equal, and a second-half slate padded with tankers can grease a team’s run into a high playoff seed.`\
-https://nytimes.com/athletic/7051553/2026/02/17/nba-tanking-playoff-swiss-prospect-riethauser/
 
