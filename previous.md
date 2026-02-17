@@ -1,3 +1,11 @@
+**What we saw at Canada men's Olympic hockey practice: Lineup hints, injuries and more**\
+`Plus, Tom Wilson reflects on his calculated fight against Pierre Crinon and a flashback to 1987 for Rick Tocchet.`\
+https://nytimes.com/athletic/7052783/2026/02/17/canada-olympic-hockey-mens-injury-lineup/
+
+**Jesse Jackson’s Life and Legacy**\
+`Readers reflect on the passing of the civil rights leader. Also: Power serving the public; climate change and gravity.`\
+https://nytimes.com/2026/02/17/opinion/jesse-jackson-life-legacy.html
+
 **Frimpong likely out for Liverpool for another week after groin injury**\
 `The right-back has missed the last four games and is expected to also sit out of the trip to Nottingham Forest on Sunday.`\
 https://nytimes.com/athletic/7052797/2026/02/17/jeremie-frimpong-liverpool-injury-update/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/7052791/2026/02/17/joelinton-injury-newcastle-qarab
 **A Deadly Medieval Path in England Claims a Modern Victim: An Amazon Van**\
 `The Broomway in Essex is notoriously treacherous because of the quick-moving waters surrounding it. One delivery vehicle didn’t make it.`\
 https://nytimes.com/2026/02/17/world/europe/broomway-england-amazon-van.html
-
-**With a Golden Toilet and Miss Piggy, an Opera Takes Aim at Trump**\
-`“Monster’s Paradise,” by Olga Neuwirth and Elfriede Jelinek, attempts an operatic response to current events and politics. Is that possible?`\
-https://nytimes.com/2026/02/17/arts/music/monsters-paradise-opera.html
-
-**Affording New York**\
-``\
-https://nytimes.com/column/affording-new-york
-
-**When Jesse Jackson Came to ‘Sesame Street’: ‘I Am! Somebody!’**\
-`His memorable appearance was brought to us by the letter ‘I,’ for inspiration.`\
-https://nytimes.com/2026/02/17/arts/television/jesse-jackson-sesame-street.html
 
