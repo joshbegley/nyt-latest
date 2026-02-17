@@ -1,3 +1,15 @@
+**Four priority items the Canucks need to address by NHL trade deadline**\
+`There are a few items that we should reasonably expect the Canucks to achieve between now and the deadline.`\
+https://nytimes.com/athletic/7051763/2026/02/17/vancouver-canucks-nhl-trade-deadline-2026-priorities/
+
+**GQ Names Adam Baidawi as Its Top Editor**\
+`Mr. Baidawi, 35, replaces the magazine’s longtime editor Will Welch. He says he wants to the magazine to be a “North Star of masculinity.”`\
+https://nytimes.com/2026/02/17/business/media/gq-adam-baidawi-top-editor.html
+
+**The Price of Admission to Epstein’s World: Silence**\
+`There were plenty of signs that something wasn’t right with Jeffrey Epstein. Why didn’t anyone say something?`\
+https://nytimes.com/2026/02/17/well/epstein-files-associates.html
+
 **U.S. records best-ever finish in men's Olympic biathlon relay, France takes gold**\
 `Norway won silver, Sweden grabbed the bronze and Germany finished fourth.`\
 https://nytimes.com/athletic/7052549/2026/02/17/olympics-usa-biathlon-relay-milan/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7052647/2026/02/17/louisville-vs-smu-stream-how-to-
 **How to watch Miami (OH) vs. UMass men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the UMass Minutemen, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7052644/2026/02/17/miami-oh-vs-umass-stream-how-to-watch-feb-17/
-
-**How to watch Michigan vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7052641/2026/02/17/michigan-vs-purdue-stream-how-to-watch-feb-17/
-
-**Ed Crane, Who Built a Libertarian Stronghold, Dies at 81**\
-`Starting with $500,000 in seed money from Charles Koch, Mr. Crane made the Cato Institute the nation’s pre-eminent libertarian think tank.`\
-https://nytimes.com/2026/02/17/us/politics/ed-crane-dead.html
-
-**New Routes, Long Lines and Uncertainty: A Month of NJ Transit Delays Begins**\
-`Some commuters were able to find alternative routes, while others struggled with delayed trains and longer, unfamiliar commutes.`\
-https://nytimes.com/2026/02/17/nyregion/new-jersey-commuters-hoboken.html
 

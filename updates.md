@@ -1,3 +1,15 @@
+**Four priority items the Canucks need to address by NHL trade deadline**\
+`There are a few items that we should reasonably expect the Canucks to achieve between now and the deadline.`\
+https://nytimes.com/athletic/7051763/2026/02/17/vancouver-canucks-nhl-trade-deadline-2026-priorities/
+
+**GQ Names Adam Baidawi as Its Top Editor**\
+`Mr. Baidawi, 35, replaces the magazine’s longtime editor Will Welch. He says he wants to the magazine to be a “North Star of masculinity.”`\
+https://nytimes.com/2026/02/17/business/media/gq-adam-baidawi-top-editor.html
+
+**The Price of Admission to Epstein’s World: Silence**\
+`There were plenty of signs that something wasn’t right with Jeffrey Epstein. Why didn’t anyone say something?`\
+https://nytimes.com/2026/02/17/well/epstein-files-associates.html
+
 **U.S. records best-ever finish in men's Olympic biathlon relay, France takes gold**\
 `Norway won silver, Sweden grabbed the bronze and Germany finished fourth.`\
 https://nytimes.com/athletic/7052549/2026/02/17/olympics-usa-biathlon-relay-milan/
