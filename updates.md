@@ -1,3 +1,7 @@
+**Readers Respond: 11 (More) Transcendent Beatles Covers by Black Musicians**\
+`Thirteen tracks were just the start. Listen to interpretations of the Fab Four via Luther Vandross, Ella Fitzgerald, Sylvester and more.`\
+https://nytimes.com/2026/02/17/arts/music/amplifier-newsletter-readers-pick-beatles-covers-black-musicians.html
+
 **Commuters Navigate New Routes, Lines and Delays on NJ Transit**\
 `A monthlong disruption to rail service has upended commutes for people traveling from New Jersey.`\
 https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transportation.html
