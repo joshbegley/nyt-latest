@@ -1,3 +1,7 @@
+**Submit your draft and free-agency questions for Kevin Fishbain's Bears mailbag**\
+`Before the NFL world descends on Indianapolis for the combine next week, share your Bears draft and free-agency questions here.`\
+https://nytimes.com/athletic/7052997/2026/02/17/bears-mailbag-questions-54/
+
 **Readers Respond: 11 (More) Transcendent Beatles Covers by Black Musicians**\
 `Thirteen tracks were just the start. Listen to interpretations of the Fab Four via Luther Vandross, Ella Fitzgerald, Sylvester and more.`\
 https://nytimes.com/2026/02/17/arts/music/amplifier-newsletter-readers-pick-beatles-covers-black-musicians.html

@@ -27,7 +27,7 @@ https://nytimes.com/2026/02/17/dining/nyc-restaurant-news.html
 https://nytimes.com/athletic/7052893/2026/02/17/uswnt-shebelieves-cup-roster-full-time/
 
 **U.S. Kills 11 in Boat Strikes in Pacific and Caribbean**\
-`It was the first time in the campaign against people the United States accuses of drug smuggling at sea that U.S. forces blew up boats on both sides of the Panama Canal in the same day.`\
+`It was the first time in the campaign against people the United States accuses of drug smuggling at sea that American forces blew up boats on both sides of the Panama Canal in the same day.`\
 https://nytimes.com/2026/02/17/us/politics/us-kills-11-in-boat-strikes.html
 
 **Games Briefing: Blade Angels time**\
