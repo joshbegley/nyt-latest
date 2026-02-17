@@ -1,3 +1,7 @@
+**U.S. records best-ever finish in men's Olympic biathlon relay, France takes gold**\
+`Norway won silver, Sweden grabbed the bronze and Germany finished fourth.`\
+https://nytimes.com/athletic/7052549/2026/02/17/olympics-usa-biathlon-relay-milan/
+
 **How to watch Tennessee vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7052658/2026/02/17/tennessee-vs-ole-miss-stream-how-to-watch-feb-17/
