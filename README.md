@@ -1,3 +1,15 @@
+**Pride Flag’s Removal From Stonewall Violated Federal Law, Suit Says**\
+`The lawsuit, filed by a group of nonprofits, argues that the Trump administration’s decision runs afoul of a law that allows national monuments to fly flags providing historical context.`\
+https://nytimes.com/2026/02/17/nyregion/stonewall-pride-flag-lawsuit.html
+
+**Potomac Sewage Spill Becomes Ecological Disaster and Political Fight**\
+`A D.C. utility had been working for weeks to repair a collapsed sewer line when the president blamed Maryland’s governor for the contamination on Monday.`\
+https://nytimes.com/2026/02/17/climate/potomac-river-trump-moore.html
+
+**Lessons for Democrats From Jesse Jackson’s Rainbow Populism**\
+`He spent his life trying to edify and repair our nation.`\
+https://nytimes.com/2026/02/17/opinion/jesse-jackson-obama-populist.html
+
 **Trump’s ‘Board of Peace’ Presses Hamas on Disarmament, Officials Say**\
 `The direct talks last week came as officials urgently try to find a breakthrough on the issue of Hamas’s weapons, fearing the cease-fire in Gaza could collapse.`\
 https://nytimes.com/2026/02/17/world/middleeast/israel-hamas-board-of-peace-disarmament.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7052797/2026/02/17/jeremie-frimpong-liverpool-injur
 **Frederick Vreeland, Diplomat and Spy Who Served With Style, Dies at 98**\
 `A son of the influential fashion editor Diana Vreeland, he had an upbringing well suited to his overt and covert duties during the Cold War.`\
 https://nytimes.com/2026/02/17/style/frederick-vreeland-dead.html
-
-**A Conveyor Belt of Storms Is Just Going to Keep Slamming Into California This Week**\
-`From flood warnings around Los Angeles to heavy snow in the Sierra, the storm systems are an abrupt shift from recent dry weather.`\
-https://nytimes.com/2026/02/17/weather/california-rain-snow-forecast.html
-
-**Palmerston, the Former ‘Chief Mouser’ for Britain’s Foreign Office, Dies**\
-`The cat, who was named after a former prime minister, became a social media star. By the time of his death at about 12, he had more followers than many ambassadors have.`\
-https://nytimes.com/2026/02/17/world/europe/palmerston-britain-diplomat-dead.html
-
-**‘The Dinosaurs’ Review: Sobriety Seekers, Sisters in Obscurity**\
-`Kathleen Chalfant, Elizabeth Marvel, April Matthis and other actors deliver top-notch performances in a play that leaves questions unanswered.`\
-https://nytimes.com/2026/02/17/theater/the-dinosaurs-review-chalfant-marvel-mathis.html
 
