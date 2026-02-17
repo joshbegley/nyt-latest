@@ -1,3 +1,11 @@
+**Look, Ma! Or Maybe Don’t. Parents of Some Olympians Face Extreme Fear.**\
+`When your child races headfirst down an ice chute, leaps off ski jumps or performs snowboard tricks in midair, a medal may not be the main thing you pray for.`\
+https://nytimes.com/2026/02/17/world/olympics/olympics-parents-fear.html
+
+**Revelers Welcome Year of the Horse With Fireworks and Feasts**\
+`The Lunar New Year, the most important holiday in many Asian countries, is being celebrated around the world.`\
+https://nytimes.com/2026/02/17/world/asia/lunar-new-year-horse-celebrations.html
+
 **Pereira hopeful of rekindling 'fire and passion' with Marinakis at Forest**\
 `Pereira secured a league and cup double with Olympiacos, also owned by Marinakis, during a short spell at the Greek club in 2015`\
 https://nytimes.com/athletic/7052153/2026/02/17/pereira-nottingham-forest-marinakis/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/world/europe/belgium-trump-ambassador-anti-semiti
 **Seven Pivotal Moments in Jesse Jackson’s Life**\
 `The Rev. Jesse Jackson entered the national spotlight during the civil rights movement and ran for president twice. He also courted controversy while in the public eye.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-life-moments.html
-
-**Eileen Gu, amid Olympic cameras and controversy, is living in a unique reality**\
-`Gu is bigger than skiing, bigger than sport, and as ever, a lightning-rod for criticism.`\
-https://nytimes.com/athletic/7049798/2026/02/17/eileen-gu-winter-olympics-freestyle-skiing-china-controversy/
-
-**Ranking the Bears' unrestricted free agents: Will All-Pro safety Kevin Byard be back?**\
-`Secondary questions abound for the Bears as they reshape the roster under Ben Johnson's vision.`\
-https://nytimes.com/athletic/7039619/2026/02/17/chicago-bears-free-agents-ranking/
 

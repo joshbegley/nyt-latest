@@ -1,3 +1,15 @@
+**Pereira hopeful of rekindling 'fire and passion' with Marinakis at Forest**\
+`Pereira secured a league and cup double with Olympiacos, also owned by Marinakis, during a short spell at the Greek club in 2015`\
+https://nytimes.com/athletic/7052153/2026/02/17/pereira-nottingham-forest-marinakis/
+
+**All-Star Player Poll: The NBA's best player, biggest issue and best podcast**\
+`Players polled by The Athletic during All-Star weekend had clear favorites for the best NBA player and podcast.`\
+https://nytimes.com/athletic/7051532/2026/02/17/nba-all-star-poll-best-player-podcast/
+
+**Paramount’s New Chance to Win Over Warner Bros. Discovery**\
+`The takeover battle took a new turn on Tuesday as Warner Bros. Discovery reopened talks with its rebuffed suitor. But big questions still remain.`\
+https://nytimes.com/2026/02/17/business/dealbook/paramount-warner-bros-netflix.html
+
 **Cricket legends sign letter of 'deep concern' over Imran Khan's jail conditions**\
 `Khan captained Pakistan to the men's Cricket World Cup title in 1992 before serving as the nation's Prime Minister between 2018 and 2022.`\
 https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket/
