@@ -1,3 +1,15 @@
+**For Kyle Finnegan and father, Willy, a Tigers dream is finally fulfilled**\
+`Willy Finnegan was a replacement player in the odd spring of 1995. Now his son, Kyle, is fulfilling his father's Tigers dream in Lakeland. `\
+https://nytimes.com/athletic/7051108/2026/02/17/detroit-tigers-kyle-finnegan-dream-fulfilled/
+
+**Women's college basketball power rankings: South Carolina flexes its SEC dominance**\
+`Vanderbilt moves up and Ohio State drops in Sabreena Merchant's rankings. `\
+https://nytimes.com/athletic/7051730/2026/02/17/womens-college-basketball-power-rankings-south-carolina-sec/
+
+**Read the Jackson family’s statement.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/read-the-jackson-familys-statement
+
 **Top 300 hitters for fantasy baseball 2026: Shohei Ohtani, Aaron Judge, Bobby Witt up top**\
 `Juan Soto lands a lofty spot in Derek Van Riper's 2026 hitter rankings, but the best fantasy bat in New York still belongs to Aaron Judge.`\
 https://nytimes.com/athletic/7045537/2026/02/17/fantasy-baseball-2026-top-300-hitters/
