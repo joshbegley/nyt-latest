@@ -1,3 +1,11 @@
+**Jesse Jackson, Civil Rights Leader Who Sought the Presidency, Dies at 84**\
+`An impassioned orator, he was a moral and political force who formed a “rainbow coalition” of poor and working-class people. His mission, he said, was “to transform the mind of America.”`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-dead.html
+
+**Jesse Jackson Dies at 84**\
+`The Rev. Jesse Jackson, the fiery civil rights leader and gifted orator, died on Tuesday at the age of 84. He was recently hospitalized for a rare neurodegenerative condition.`\
+https://nytimes.com/video/us/politics/100000010527381/jesse-jackson-dies-at-84.html
+
 **Numbers to Know - UCL Play-offs: Newcastle's 2,529 mile journey and Yildiz the creator**\
 `Analysing five Champions League play-off games and one key stat from each that could define the outcome.`\
 https://nytimes.com/athletic/7046318/2026/02/17/champions-league-play-offs-numbers-stats-newcastle/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/nyregion/new-jersey-transit-delays-manhattan.html
 **For an Immigration Trap on a Bridge to Canada, an Encouraging Sign**\
 `The recent detention of a visiting research scientist has renewed attention on a confusing exit ramp in Buffalo that sends drivers across the border.`\
 https://nytimes.com/2026/02/17/nyregion/peace-bridge-immigration.html
-
-**2 Strikes in 3 Years: N.Y.C. Nurses Awaken as a Major Labor Voice**\
-`But a rift has emerged among the union’s leaders as workers at four hospitals are back on the job, while a walkout persists at a fifth hospital.`\
-https://nytimes.com/2026/02/17/nyregion/nyc-nurses-strike-union.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/17/crosswords/spelling-bee-forum.html
 

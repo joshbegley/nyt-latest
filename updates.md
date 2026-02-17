@@ -1,3 +1,7 @@
+**A Jamaican athlete's Olympics ended in seconds but his journey there should not be missed**\
+`A long, unique family story led 18-year-old to ski for Jamaica. But he didn’t come all this way to be a novelty act. "I'm gonna get there."`\
+https://nytimes.com/athletic/7051190/2026/02/17/henri-rivers-iv-olympics-jamaica-ski/
+
 **Numbers to Know - UCL Play-offs: Newcastle's 2,529 mile journey and Yildiz the creator**\
 `Analysing five Champions League play-off games and one key stat from each that could define the outcome.`\
 https://nytimes.com/athletic/7046318/2026/02/17/champions-league-play-offs-numbers-stats-newcastle/
