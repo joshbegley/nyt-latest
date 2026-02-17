@@ -1,3 +1,7 @@
+**Read the Jackson family’s statement.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/read-the-jackson-familys-statement
+
 **Top 300 hitters for fantasy baseball 2026: Shohei Ohtani, Aaron Judge, Bobby Witt up top**\
 `Juan Soto lands a lofty spot in Derek Van Riper's 2026 hitter rankings, but the best fantasy bat in New York still belongs to Aaron Judge.`\
 https://nytimes.com/athletic/7045537/2026/02/17/fantasy-baseball-2026-top-300-hitters/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7042538/2026/02/17/bruins-trade-deadline-buyers-sel
 **Book excerpt: Georges Laraque was an NHL enforcer, but his 26-year-old hat trick lives on**\
 `Laraque was known for his fighting in the NHL, but a moment in February 2000 at the Skyreach Centre brought a new jubilation.`\
 https://nytimes.com/athletic/7051123/2026/02/17/georges-laraque-nhl-black-aces-book-excerpt/
-
-**From nods to Tina Turner and the Grateful Dead, some new MLS jerseys swing big**\
-`As always, the fresh jersey designs for the new MLS season are destined to polarize opinions. Here are ours`\
-https://nytimes.com/athletic/7051161/2026/02/17/2026-best-worst-mls-jerseys-kits-tina-turner-grateful-dead/
 

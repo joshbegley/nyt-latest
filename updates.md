@@ -1,3 +1,7 @@
+**Top 300 hitters for fantasy baseball 2026: Shohei Ohtani, Aaron Judge, Bobby Witt up top**\
+`Juan Soto lands a lofty spot in Derek Van Riper's 2026 hitter rankings, but the best fantasy bat in New York still belongs to Aaron Judge.`\
+https://nytimes.com/athletic/7045537/2026/02/17/fantasy-baseball-2026-top-300-hitters/
+
 **The Pulse: Three big NFL offseason questions**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7051814/2026/02/17/nfl-offseason-storylines-olympics-the-pulse/
