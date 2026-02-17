@@ -1,3 +1,11 @@
+**Lindsey Vonn back in U.S., says she's been 'immobile' since Olympic crash**\
+`Vonn has returned home, she said in a social media post Monday, while sharing some more details about her recovery.`\
+https://nytimes.com/athletic/7052217/2026/02/17/lindsey-vonn-olympics-crash-injury-surgeries-leg-fracture-us/
+
+**What Is the Portal Bridge?**\
+`Amtrak is replacing the 116-year-old bridge. The upgrade will lead to short-term disruptions for NJ Transit passengers in the hopes of smoother rides down the line.`\
+https://nytimes.com/2026/02/17/nyregion/portal-bridge-new-jersey-transit-amtrak.html
+
 **Downloadable 2026 fantasy baseball draft sheet: Stats, auction values and Top 600 rankings**\
 `Jake Ciely provides his customizable 2026 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
 https://nytimes.com/athletic/7045039/2026/02/17/fantasy-baseball-2026-draft-sheet-player-rankings-auction-values/

@@ -1,3 +1,19 @@
+**NBA player poll: Do you like the new All-Star Game format?**\
+`The NBA debuted a new All-Star Game format this year that featured three teams and a round-robin tournament.`\
+https://nytimes.com/athletic/7051328/2026/02/17/nba-all-star-player-poll-new-format/
+
+**Rams mock draft: Boosting the cornerback room, adding a QB for the future**\
+`In our first mock draft of 2026, the Rams immediately look to upgrade at cornerback and find a QB to develop behind Matthew Stafford. `\
+https://nytimes.com/athletic/7043239/2026/02/17/rams-mock-draft-2026-year/
+
+**Outlier or contender? The Lakers' post-All-Star break question**\
+`The Lakers' record suggests they could be contenders. The numbers say otherwise. `\
+https://nytimes.com/athletic/7044361/2026/02/17/lakers-all-star-break-outlook-roster-questions/
+
+**A Pair With Clothes as Lively as Their Banter**\
+`A conversation about his red coat offered glimpses of other ways the color had entered their lives.`\
+https://nytimes.com/2026/02/17/style/street-style-look-colorful-warm-outfits.html
+
 **Lindsey Vonn back in U.S., says she's been 'immobile' since Olympic crash**\
 `Vonn has returned home, she said in a social media post Monday, while sharing some more details about her recovery.`\
 https://nytimes.com/athletic/7052217/2026/02/17/lindsey-vonn-olympics-crash-injury-surgeries-leg-fracture-us/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-democrats.html
 **Look, Ma! Or Maybe Don’t. Parents of Some Olympians Face Extreme Fear.**\
 `When your child races headfirst down an ice chute, leaps off ski jumps or performs snowboard tricks in midair, a medal may not be the main thing you pray for.`\
 https://nytimes.com/2026/02/17/world/olympics/olympics-parents-fear.html
-
-**Revelers Welcome Year of the Horse With Fireworks and Feasts**\
-`The Lunar New Year, the most important holiday in many Asian countries, is being celebrated around the world.`\
-https://nytimes.com/2026/02/17/world/asia/lunar-new-year-horse-celebrations.html
-
-**Pereira hopeful of rekindling 'fire and passion' with Marinakis at Forest**\
-`Pereira secured a league and cup double with Olympiacos, also owned by Marinakis, during a short spell at the Greek club in 2015`\
-https://nytimes.com/athletic/7052153/2026/02/17/pereira-nottingham-forest-marinakis/
-
-**All-Star Player Poll: The NBA's best player, biggest issue and best podcast**\
-`Players polled by The Athletic during All-Star weekend had clear favorites for the best NBA player and podcast.`\
-https://nytimes.com/athletic/7051532/2026/02/17/nba-all-star-poll-best-player-podcast/
-
-**Paramount’s New Chance to Win Over Warner Bros. Discovery**\
-`The takeover battle took a new turn on Tuesday as Warner Bros. Discovery reopened talks with its rebuffed suitor. But big questions still remain.`\
-https://nytimes.com/2026/02/17/business/dealbook/paramount-warner-bros-netflix.html
 

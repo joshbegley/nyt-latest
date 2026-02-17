@@ -1,3 +1,11 @@
+**Lindsey Vonn back in U.S., says she's been 'immobile' since Olympic crash**\
+`Vonn has returned home, she said in a social media post Monday, while sharing some more details about her recovery.`\
+https://nytimes.com/athletic/7052217/2026/02/17/lindsey-vonn-olympics-crash-injury-surgeries-leg-fracture-us/
+
+**What Is the Portal Bridge?**\
+`Amtrak is replacing the 116-year-old bridge. The upgrade will lead to short-term disruptions for NJ Transit passengers in the hopes of smoother rides down the line.`\
+https://nytimes.com/2026/02/17/nyregion/portal-bridge-new-jersey-transit-amtrak.html
+
 **Downloadable 2026 fantasy baseball draft sheet: Stats, auction values and Top 600 rankings**\
 `Jake Ciely provides his customizable 2026 fantasy baseball projections and rankings tool to help with all your league types/scoring formats.`\
 https://nytimes.com/athletic/7045039/2026/02/17/fantasy-baseball-2026-draft-sheet-player-rankings-auction-values/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7051532/2026/02/17/nba-all-star-poll-best-player-po
 **Paramount’s New Chance to Win Over Warner Bros. Discovery**\
 `The takeover battle took a new turn on Tuesday as Warner Bros. Discovery reopened talks with its rebuffed suitor. But big questions still remain.`\
 https://nytimes.com/2026/02/17/business/dealbook/paramount-warner-bros-netflix.html
-
-**Cricket legends sign letter of 'deep concern' over Imran Khan's jail conditions**\
-`Khan captained Pakistan to the men's Cricket World Cup title in 1992 before serving as the nation's Prime Minister between 2018 and 2022.`\
-https://nytimes.com/athletic/7051999/2026/02/17/imran-khan-pakistan-jail-cricket/
-
-**Trump Administration Live Updates: U.S. and Iranian Officials Hold Nuclear Talks in Geneva**\
-``\
-https://nytimes.com/live/2026/02/17/us/trump-news
 
