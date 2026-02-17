@@ -1,3 +1,7 @@
+**2026 Olympics, Day 10 recap: USA-Canada women to meet in hockey final; bobsled legend wins gold**\
+`Women's hockey final set, bobsled legend finally gets her gold and other news from Day 10 of the Winter Olympics`\
+https://nytimes.com/athletic/7050833/2026/02/16/olympics-recap-eileen-gu-womens-hockey-taylor-bobsled/
+
 **At Least 2 Killed During High School Hockey Game in Rhode Island**\
 `The shooting occurred at Dennis M. Lynch Arena in Pawtucket, R.I., on Monday. The shooter is dead, the authorities said.`\
 https://nytimes.com/video/us/100000010716351/3-dead-hockey-arena-shooting-rhode-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051296/2026/02/16/breanna-stewart-euro-league-wnba
 **Mets add Mike Tauchman to outfield competition mix on minor-league deal: Sources**\
 `Fielding metrics such as Outs Above Average and Arm Value, per Baseball Savant, put Tauchman around league average. `\
 https://nytimes.com/athletic/7051251/2026/02/16/new-york-mets-mike-tauchman-deal-sources/
-
-**Teacher Killed in Crash After Man Fled in Car From ICE, Police Say**\
-`The man, who federal officials said had entered the United States illegally, was arrested and charged with first-degree homicide after the crash in Savannah, Ga., according to the county police.`\
-https://nytimes.com/2026/02/16/us/georgia-ice-car-crash-teacher-killed.html
 
