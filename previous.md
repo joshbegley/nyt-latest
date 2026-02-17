@@ -1,3 +1,7 @@
+**Nate Heise's deciding 3 punctuates Iowa State's comeback win over Houston**\
+`Hours after Heise's sister scored her first Olympic goal, her brother followed suit with a monumental play of his own.`\
+https://nytimes.com/athletic/7051783/2026/02/17/iowa-state-houston-mens-basketball-nate-heise/
+
 **The New York Times in Print for Tuesday, Feb. 17, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018349/2026/02/17/gus-kenworthy-interview-2026-win
 **A Premier League star was targeted in an alleged blackmail – then his friend was shot**\
 `Brian Brobbey has been one of the season's success stories but only after a terrifying brush with Amsterdam's criminal underworld`\
 https://nytimes.com/athletic/7038403/2026/02/17/brian-brobbey-extortion-shooting-target/
-
-**That Jose Mourinho ball boy celebration — and an enduring link with the terraces**\
-`The kids tasked with getting the ball back in play regularly provide iconic moments, but their importance to the game goes beyond that`\
-https://nytimes.com/athletic/7049804/2026/02/17/jose-mourinho-benfica-champions-league-ball-boys/
 

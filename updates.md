@@ -1,3 +1,7 @@
+**Nate Heise's deciding 3 punctuates Iowa State's comeback win over Houston**\
+`Hours after Heise's sister scored her first Olympic goal, her brother followed suit with a monumental play of his own.`\
+https://nytimes.com/athletic/7051783/2026/02/17/iowa-state-houston-mens-basketball-nate-heise/
+
 **The New York Times in Print for Tuesday, Feb. 17, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/17/todays-new-york-times
