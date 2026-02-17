@@ -1,3 +1,7 @@
+**U.S. records best-ever finish in men's Olympic biathlon relay, France takes gold**\
+`Norway won silver, Sweden grabbed the bronze and Germany finished fourth.`\
+https://nytimes.com/athletic/7052549/2026/02/17/olympics-usa-biathlon-relay-milan/
+
 **How to watch Tennessee vs. Ole Miss women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7052658/2026/02/17/tennessee-vs-ole-miss-stream-how-to-watch-feb-17/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/ed-crane-dead.html
 **New Routes, Long Lines and Uncertainty: A Month of NJ Transit Delays Begins**\
 `Some commuters were able to find alternative routes, while others struggled with delayed trains and longer, unfamiliar commutes.`\
 https://nytimes.com/2026/02/17/nyregion/new-jersey-commuters-hoboken.html
-
-**Key Europe-based players return for USWNT in SheBelieves Cup but no Macario**\
-`Notably absent is Chelsea forward Macario, whose future with the club is uncertain, as she's said to be out with an injury.`\
-https://nytimes.com/athletic/7051833/2026/02/17/uswnt-roster-shebelieves-cup-macario/
 
