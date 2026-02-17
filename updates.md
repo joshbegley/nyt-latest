@@ -1,3 +1,11 @@
+**'Here comes Diggins!' The iconic Olympic broadcast moment that almost never was**\
+`Jessie Diggins and Kikkan Randall's gold-medal race in 2018 changed U.S. cross-country skiing forever, and the TV call played a key role.`\
+https://nytimes.com/athletic/7047998/2026/02/17/winter-olympics-here-comes-jessie-diggins-broadcast-call/
+
+**An afternoon in the beautiful madness of biathlon, the Winter Olympics' sleeper hit**\
+`The sleeper hit at these Games, biathlon requires balance, patience and stamina. And that's just the fans.`\
+https://nytimes.com/athletic/7048771/2026/02/17/winter-olympics-biathlon-fans-anterselva-italy/
+
 **Henri Rivers IV's 2026 Olympics ended in seconds. His journey has just begun**\
 `A long, unique family story led 18-year-old to ski for Jamaica. But he didn’t come all this way to be a novelty act. "I'm gonna get there."`\
 https://nytimes.com/athletic/7051190/2026/02/17/henri-rivers-iv-olympics-jamaica-ski/
