@@ -1,3 +1,7 @@
+**Word of the Day: officious**\
+`This word has appeared in eight articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/17/learning/word-of-the-day-officious.html
+
 **Colbert Doesn’t Give an FCC About Calling Out CBS**\
 `“And because my network clearly doesn’t want us to talk about this, let’s talk about this,” Stephen Colbert said after CBS canceled a Texas congressman’s appearance on Monday’s “Late Show.”`\
 https://nytimes.com/2026/02/17/arts/television/colbert-fcc-trump-talarico-cbs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050783/2026/02/17/christantus-uche-crystal-palace-
 **Introducing Igor Tudor's new-look Tottenham Hotspur coaching staff**\
 `Spurs now have an imperfect and disjointed backroom team who need to unite with one clear aim over the season's final 12 matches...`\
 https://nytimes.com/athletic/7050321/2026/02/17/igor-tudor-tottenham-coaching-staff/
-
-**The return of Idrissa Gueye and Everton's search for midfield balance**\
-`Everton have not found a way to control matches with regularity this season. Could a midfield rejig help?`\
-https://nytimes.com/athletic/7049816/2026/02/17/everton-idrissa-gueye-midfield-analysis/
 
