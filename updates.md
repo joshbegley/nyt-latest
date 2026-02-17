@@ -1,3 +1,11 @@
+**Digging Through the Epstein Files**\
+`We look at how The Times has tackled a complex reporting project.`\
+https://nytimes.com/2026/02/17/briefing/digging-through-the-epstein-files.html
+
+**Spain to Investigate Social Media Giants, Escalating Trans-Atlantic Tech Dispute**\
+`The government wants prosecutors to investigate X, Meta and TikTok, adding to a growing a clash between the U.S. and Europe over regulating social media.`\
+https://nytimes.com/2026/02/17/world/europe/spain-investigate-social-media.html
+
 **For Kyle Finnegan and father, Willy, a Tigers dream is finally fulfilled**\
 `Willy Finnegan was a replacement player in the odd spring of 1995. Now his son, Kyle, is fulfilling his father's Tigers dream in Lakeland. `\
 https://nytimes.com/athletic/7051108/2026/02/17/detroit-tigers-kyle-finnegan-dream-fulfilled/
