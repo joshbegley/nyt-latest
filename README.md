@@ -1,9 +1,13 @@
+**Police Arrest Man Who Ran Toward the Capitol With a Loaded Gun**\
+`The 18-year-old was wearing a tactical vest and carrying additional rounds of ammunition, the Capitol Police said. Congress was not in session, and no one was hurt.`\
+https://nytimes.com/2026/02/17/us/politics/gunman-arrested-capitol.html
+
 **Olympic men's hockey quarterfinals: Breaking down the matchups for Canada, USA and more**\
 `The Olympic men's hockey quarterfinals are set following qualifying-round action. Here's a look at all four of Wednesday's matchups.`\
 https://nytimes.com/athletic/7051971/2026/02/17/olympic-hockey-quarterfinals-matchups-canada-usa/
 
 **Triple the pressure, triple the glory.**\
-`Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third. `\
+`Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third.`\
 https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
 
 **What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/style/anti-valentines-day-party-brooklyn.html
 **People Celebrate the Lunar New Year Around the World**\
 `People celebrating Lunar New Year welcomed the Year of the Horse with fireworks, festivals and temple visits.`\
 https://nytimes.com/video/world/100000010717382/lunar-new-year-celebrations.html
-
-**Are you a medical provider who has worked in an ICE detention facility? We want to hear from you.**\
-`We want to get a better picture of what medical care for immigrants in detention is like.`\
-https://nytimes.com/2026/02/17/business/are-you-a-medical-provider-who-has-worked-in-an-ice-detention-facility-we-want-to-hear-from-you.html
 

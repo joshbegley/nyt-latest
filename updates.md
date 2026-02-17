@@ -1,3 +1,15 @@
+**Olympic men's hockey quarterfinals: Breaking down the matchups for Canada, USA and more**\
+`The Olympic men's hockey quarterfinals are set following qualifying-round action. Here's a look at all four of Wednesday's matchups.`\
+https://nytimes.com/athletic/7051971/2026/02/17/olympic-hockey-quarterfinals-matchups-canada-usa/
+
+**Triple the pressure, triple the glory.**\
+`Ami Nakai of Japan leads after the short program ahead of a talented field, including the American Alysa Liu, who is third. `\
+https://nytimes.com/2026/02/17/world/figure-skating-amber-glenn-alysa-liu.html
+
+**Russian skater Adeliia Petrosian, a mystery internationally, shows well at Olympics**\
+`Petrosian is competing officially as a neutral athlete because of Russia's ban in the Olympics.`\
+https://nytimes.com/athletic/7053416/2026/02/17/winter-olympics-adeliia-petrosian-russia-figure-skating/
+
 **What happened as Vinicius Jr appears to allege racist abuse during Benfica 0 Real Madrid 1**\
 `Real Madrid's win against Benfica was marred by a 10-minute stoppage following an allegation of racist abuse`\
 https://nytimes.com/athletic/7050524/2026/02/17/benfica-0-real-madrid-1-vinicius-jr-racist-abuse/
