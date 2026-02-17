@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7052384/2026/02/17/amber-glenn-alysa-liu-isabeau-le
 `Ms. McLaughlin was one of the most prominent voices in the administration defending President Trump’s mass deportation campaign.`\
 https://nytimes.com/2026/02/17/us/politics/tricia-mclaughlin-homeland-security.html
 
-**In Arson Case, a Judge Wrestles With A.I.-Assisted Apology Letters**\
-`The use of artificial intelligence gave a New Zealand judge pause about the genuineness of the remorse expressed in the apology. It reflects a wider discussion about using A.I. for personal communication.`\
-https://nytimes.com/2026/02/17/world/asia/new-zealand-court-ai-apology.html
-
