@@ -1,3 +1,7 @@
+**Labubu Diplomacy**\
+`China seems to be winning more hearts and mind abroad. Has it gotten better at soft power?`\
+https://nytimes.com/2026/02/17/world/labubu-diplomacy-china-jesse-jackson-iran.html
+
 **The president of the National Urban League recalls his long friendship with Jackson.**\
 `By Audra D. S. Burch`\
 https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/the-president-of-the-national-urban-league-recalls-his-long-friendship-with-jackson
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/business/bayer-roundup-lawsuits-settlement.html
 **As Bernie Sanders Comes to California, Wealth Tax Opponents Intensify Efforts**\
 `The opponents’ latest moves include online ads tied to Gov. Gavin Newsom, a crypto-related push to raise money and competing ballot measures.`\
 https://nytimes.com/2026/02/17/us/california-wealth-tax-opposition-bernie-sanders.html
-
-**Shia LaBeouf Charged With Battery in New Orleans**\
-`The actor, best known for his roles in “Transformers” and “Megalopolis,” was arrested early Tuesday after reportedly assaulting two people, the authorities said.`\
-https://nytimes.com/2026/02/17/movies/shia-labeouf-arrested-new-orleans.html
 
