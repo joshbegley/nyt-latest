@@ -1,3 +1,19 @@
+**A Deadly Medieval Path in England Claims a Modern Victim: An Amazon Van**\
+`The Broomway in Essex is notoriously treacherous because of the quick-moving waters surrounding it. One delivery vehicle didn’t make it.`\
+https://nytimes.com/2026/02/17/world/europe/broomway-england-amazon-van.html
+
+**With a Golden Toilet and Miss Piggy, an Opera Takes Aim at Trump**\
+`“Monster’s Paradise,” by Olga Neuwirth and Elfriede Jelinek, attempts an operatic response to current events and politics. Is that possible?`\
+https://nytimes.com/2026/02/17/arts/music/monsters-paradise-opera.html
+
+**Affording New York**\
+``\
+https://nytimes.com/column/affording-new-york
+
+**When Jesse Jackson Came to ‘Sesame Street’: ‘I Am! Somebody!’**\
+`His memorable appearance was brought to us by the letter ‘I,’ for inspiration.`\
+https://nytimes.com/2026/02/17/arts/television/jesse-jackson-sesame-street.html
+
 **The Windup: MLBPA head to shockingly resign**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7052371/2026/02/17/tony-clark-nick-castellanos-mlb-the-windup/
@@ -21,20 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010717613/an-e-reader-
 **Five-star guard Dylan Mingo commits to North Carolina**\
 `Mingo, a top-five recruit in the Class of 2026, chose the Tar Heels over Penn State, Washington and Baylor.`\
 https://nytimes.com/athletic/7052502/2026/02/17/dylan-mingo-north-carolina-basketball-commitment/
-
-**Ukrainians Remain Skeptical as New Round of Peace Talks Begins**\
-`Ukrainians sheltering in an underground subway station expressed little hope in the ongoing peace talks that brought Russian, Ukrainian and U.S. officials to Geneva on Tuesday.`\
-https://nytimes.com/video/world/europe/100000010717088/ukraine-russia-peace-talks.html
-
-**Mourners remember Jackson outside his organization’s Chicago headquarters.**\
-`By Robert Chiarito`\
-https://nytimes.com/live/2026/02/17/us/jesse-jackson-dead/mourners-remember-jackson-outside-his-organizations-chicago-headquarters
-
-**Does Vegan Chocolate Taste Better?**\
-`Is your lover lactose intolerant? Never fear, in our search for the best boxed chocolates, our testing panel actually preferred certain vegan chocolates to the dairy options.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010717553/does-vegan-chocolate-taste-better.html
-
-**Deep Clean a Comforter Every Few Years**\
-`If you set a few reminders to wash your comforter, pillows, and bedding, you can keep your bedroom spiffy all year without an all-day laundry ordeal. (And yes, deep-cleaning your comforter every few years is fine, but please still wash your duvet cover regularly, we’re not that nasty.)`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010717515/deep-clean-a-comforter-every-few-years.html
 
