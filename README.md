@@ -1,3 +1,7 @@
+**Palmerston, the Former ‘Chief Mouser’ for Britain’s Foreign Office, Dies**\
+`The cat, who was named after a former prime minister, became a social media star. By the time of his death at about 12, he had more followers than many ambassadors have.`\
+https://nytimes.com/2026/02/17/world/europe/palmerston-britain-diplomat-dead.html
+
 **‘The Dinosaurs’ Review: Sobriety Seekers, Sisters in Obscurity**\
 `Kathleen Chalfant, Elizabeth Marvel, April Matthis and other actors deliver top-notch performances in a play that leaves questions unanswered.`\
 https://nytimes.com/2026/02/17/theater/the-dinosaurs-review-chalfant-marvel-mathis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052711/2026/02/17/twins-pablo-lopez-ucl-tear-surge
 **Yale football coach Tony Reno stepping down for health reasons**\
 `Reno led Yale to five Ivy League championships over his tenure, with an 83-49 record, the second most wins in school history.`\
 https://nytimes.com/athletic/7052671/2026/02/17/tony-reno-yale-coach-steps-down-health/
-
-**2026 fantasy baseball cheat sheet: Customizable rankings and projections tool**\
-`Jake Ciely provides his customizable 2026 fantasy baseball cheat sheet ahead of draft season. `\
-https://nytimes.com/athletic/7045055/2026/02/17/fantasy-baseball-2026-cheat-sheet-customizable-rankings-projections-tool/
 

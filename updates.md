@@ -1,3 +1,11 @@
+**‘The Dinosaurs’ Review: Sobriety Seekers, Sisters in Obscurity**\
+`Kathleen Chalfant, Elizabeth Marvel, April Matthis and other actors deliver top-notch performances in a play that leaves questions unanswered.`\
+https://nytimes.com/2026/02/17/theater/the-dinosaurs-review-chalfant-marvel-mathis.html
+
+**Joelinton returning to Newcastle squad for Qarabag trip**\
+`The Brazilian midfielder has missed Newcastle's last five games due to a groin issue.`\
+https://nytimes.com/athletic/7052791/2026/02/17/joelinton-injury-newcastle-qarabag/
+
 **A Deadly Medieval Path in England Claims a Modern Victim: An Amazon Van**\
 `The Broomway in Essex is notoriously treacherous because of the quick-moving waters surrounding it. One delivery vehicle didn’t make it.`\
 https://nytimes.com/2026/02/17/world/europe/broomway-england-amazon-van.html
