@@ -1,3 +1,11 @@
+**Bukayo Saka signs new five-year Arsenal deal - but one-club players are rare in modern game**\
+`The 24-year-old has been central to Arsenal’s renaissance since his debut in 2018 - but his commitment is rare in the modern game.`\
+https://nytimes.com/athletic/6996867/2026/02/17/bukayo-saka-new-contract-one-club/
+
+**Arsenal's Calafiori, White 'fine' ahead of Wolves trip - Arteta**\
+`The manager also said Martin Odegaard and Kai Havertz could return for their Tottenham clash on Sunday.`\
+https://nytimes.com/athletic/7052297/2026/02/17/arsenal-team-news-wolves-havertz-odegaard-calafiori-white/
+
 **Spurs accused of selectively omitting key points from minutes of fans' meeting**\
 `THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
 https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
