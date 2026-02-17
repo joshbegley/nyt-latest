@@ -1,3 +1,7 @@
+**Colbert Doesn’t Give an FCC About Calling Out CBS**\
+`“And because my network clearly doesn’t want us to talk about this, let’s talk about this,” Stephen Colbert said after CBS canceled a Texas congressman’s appearance on Monday’s “Late Show.”`\
+https://nytimes.com/2026/02/17/arts/television/colbert-fcc-trump-talarico-cbs.html
+
 **U.S. and Iran’s High-Stakes Nuclear Talks Set to Kick Off**\
 `The U.S. and Iran have been flexing their military might as negotiators from the two countries resume nuclear talks in Switzerland.`\
 https://nytimes.com/video/world/middleeast/100000010716634/iran-nuclear-talks-trump-geneva.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050321/2026/02/17/igor-tudor-tottenham-coaching-st
 **The return of Idrissa Gueye and Everton's search for midfield balance**\
 `Everton have not found a way to control matches with regularity this season. Could a midfield rejig help?`\
 https://nytimes.com/athletic/7049816/2026/02/17/everton-idrissa-gueye-midfield-analysis/
-
-**Gus Kenworthy made headlines for criticizing ICE. His Olympic story is much deeper than that**\
-`Gus Kenworthy retired after the 2022 Winter Olympics but he is now back competing for Britain and under the spotlight. `\
-https://nytimes.com/athletic/7018349/2026/02/17/gus-kenworthy-interview-2026-winter-olympics/
 
