@@ -1,3 +1,7 @@
+**Spurs accused of selectively editing minutes of fans' meeting**\
+`THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
+https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
+
 **Hegseth Is Said to Have Ordered Pentagon Spokesman’s Firing**\
 `The spokesman, Army Col. Dave Butler, worked for the Army chief of staff.`\
 https://nytimes.com/2026/02/17/us/politics/hegseth-pentagon-spokesman-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7044361/2026/02/17/lakers-all-star-break-outlook-ro
 **A Pair With Clothes as Lively as Their Banter**\
 `A conversation about his red coat offered glimpses of other ways the color had entered their lives.`\
 https://nytimes.com/2026/02/17/style/street-style-look-colorful-warm-outfits.html
-
-**Lindsey Vonn back in U.S., says she's been 'immobile' since Olympic crash**\
-`Vonn has returned home, she said in a social media post Monday, while sharing some more details about her recovery.`\
-https://nytimes.com/athletic/7052217/2026/02/17/lindsey-vonn-olympics-crash-injury-surgeries-leg-fracture-us/
 
