@@ -1,4 +1,8 @@
-**Peru Ousts President — Again**\
+**Winter Storms Bring Heavy Snow to the Sierra Nevada**\
+`Heavy snow in the Sierra Nevada created difficult travel conditions with poor visibility.`\
+https://nytimes.com/video/us/100000010718083/winter-storms-sierra-nevada-snow.html
+
+**Peru Ousts President, Again**\
 `Peru’s Congress voted to impeach President José Jerí, four months after he replaced Dina Boluarte, who had also been removed from the presidency.`\
 https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachment.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/100000010717522/nj-transit-delays-public-transporta
 **In Africa, Jesse Jackson Was Esteemed for His Fight Against Apartheid**\
 `He made several trips to South Africa, and to other African nations, as a peace broke and a representative of Black America.`\
 https://nytimes.com/2026/02/17/world/africa/jesse-jackson-south-africa-apartheid.html
-
-**Jackson’s 1988 ‘Keep Hope Alive’ Speech Was a Call for Social Justice and Unity**\
-`Jesse Jackson didn’t win the Democratic nomination for president that year, but his address at the party’s convention moved some delegates to tears.`\
-https://nytimes.com/2026/02/17/us/politics/jesse-jackson-keep-hope-alive-speech.html
 

@@ -1,3 +1,11 @@
+**Peru Ousts President — Again**\
+`Peru’s Congress voted to impeach President José Jerí, four months after he replaced Dina Boluarte, who had also been removed from the presidency.`\
+https://nytimes.com/2026/02/17/world/americas/peru-president-jose-jeri-impeachment.html
+
+**Mikaela Shiffrin arrives at her last stand of these Olympics — her signature slalom**\
+`If the Alpine skiing GOAT is going to break her Olympic medal drought, Wednesday is the last chance to do it.`\
+https://nytimes.com/athletic/7052112/2026/02/17/mikaela-shiffrin-winter-olympics-slalom-last-race/
+
 **Colbert Slams Trump Administration After CBS Pulls Senate Candidate Interview**\
 `Stephen Colbert said he had to drop an interview with James Talarico from his Monday broadcast because of new F.C.C. guidance that targeted political interviews on late-night shows.`\
 https://nytimes.com/2026/02/17/business/media/colbert-cbs-fcc-talarico-carr.html
