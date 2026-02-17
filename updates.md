@@ -1,3 +1,7 @@
+**The Jesse Jackson Speech That Helped Redefine the Democratic Party’s Base**\
+`In his 1984 speech at the Democratic National Convention in San Francisco, Mr. Jackson argued for a more diverse coalition for the party.`\
+https://nytimes.com/2026/02/17/us/politics/jesse-jackson-dnc-speech.html
+
 **Spurs accused of selectively editing minutes of fans' meeting**\
 `THST claimed that "a number of specific points raised during the meeting" were not included in the final minutes approved by the club.`\
 https://nytimes.com/athletic/7052147/2026/02/17/tottenham-supporters-trust-minutes-meeting/
