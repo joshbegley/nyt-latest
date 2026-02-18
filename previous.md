@@ -1,3 +1,7 @@
+**Liverpool are excited about 15-year-old Josh Abe but face a fight to keep him**\
+`The England youth international is one of the academy's brightest prospects but is already attracting admiration from rival clubs`\
+https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
+
 **Tudor reunion could help Kolo Muani finally find form at Spurs**\
 `Tottenham are desperate to see France striker rediscover the form he showed under their new coach at Juventus`\
 https://nytimes.com/athletic/7052267/2026/02/18/igor-tudor-randal-kolo-muani-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052055/2026/02/18/arsenal-safe-standing-plans-expl
 **'Anyone for a Cole Palmer-branded moped?' Inside the world of football trademarks**\
 `Footballers have been known to attempt to trademark their name, likeness, or even celebration — but there are pitfalls...`\
 https://nytimes.com/athletic/7049210/2026/02/18/football-trademark-claims-messi-palmer-ronaldo/
-
-**Jose Mourinho sunk to a new low with absurd and offensive claims about Vinicius Junior**\
-`Mourinho was, in effect, telling Vinicius that he didn’t hear what he says he heard, which was alleged racist abuse from a Benfica player`\
-https://nytimes.com/athletic/7053817/2026/02/18/mourinho-vinicius-comments-column/
 

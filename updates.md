@@ -1,3 +1,7 @@
+**Liverpool are excited about 15-year-old Josh Abe but face a fight to keep him**\
+`The England youth international is one of the academy's brightest prospects but is already attracting admiration from rival clubs`\
+https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
+
 **Tudor reunion could help Kolo Muani finally find form at Spurs**\
 `Tottenham are desperate to see France striker rediscover the form he showed under their new coach at Juventus`\
 https://nytimes.com/athletic/7052267/2026/02/18/igor-tudor-randal-kolo-muani-tottenham/
