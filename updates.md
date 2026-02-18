@@ -1,3 +1,7 @@
+**Rousey vs Carano: Everything we know about MMA 'superfight'**\
+`Breaking down the details of the May 16 Netflix bout and why it is so commercially significant`\
+https://nytimes.com/athletic/7053320/2026/02/18/ronda-rousey-vs-gina-carano-fight-date-tv/
+
 **President Trump Is a Wrecking Ball. And He’s Only Getting Started.**\
 `As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
 https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
