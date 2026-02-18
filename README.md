@@ -1,3 +1,7 @@
+**Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
+`After a loss Sunday, the Green Bay coach slammed his hands on the table while questioning the officiating. He issued an apology Wednesday.`\
+https://nytimes.com/athletic/7055764/2026/02/18/doug-gottlieb-suspended-horizon-league-green-bay/
+
 **Mark Zuckerberg Says Instagram Is Valuable, Not Harmful, in Landmark Tech Addiction Trial**\
 `Meta’s chief executive said users spent a lot of time on the app because of its value, as he was grilled about child safety issues in front of a jury.`\
 https://nytimes.com/2026/02/18/technology/mark-zuckerberg-tech-addiction-trial.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-pr
 **Mamdani Directs Agency to Restart Homeless Encampments Sweeps**\
 `Mayor Zohran Mamdani reversed course on Wednesday and said that New York City will restart the process of sweeping homeless encampments. Mr. Mamdani said that his administration will connect the homeless will shelter and services.`\
 https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-sweeps.html
-
-**Men's college basketball national title odds: Michigan takes top spot from Arizona**\
-`After losing two games in a row, Arizona fell from the top spot in the betting odds to win the national title. Michigan is now favored.`\
-https://nytimes.com/athletic/7055371/2026/02/18/mens-college-basketball-national-title-odds-michigan-arizona/
 
