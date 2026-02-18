@@ -1,3 +1,7 @@
+**What Trump’s Latest East Wing Designs Show**\
+`The plans submitted by the White House include more windows, a new garden and an asymmetrical pathway.`\
+https://nytimes.com/interactive/2026/02/17/us/trump-white-house-east-wing-ballroom-design.html
+
 **HUD opens discrimination investigation into a Muslim development in Texas.**\
 `A project, including homes and a mosque, has drawn attacks from Republican Texas officials. The Justice Department closed a similar inquiry into the development last year.`\
 https://nytimes.com/live/2026/02/17/us/trump-news/hud-opens-discrimination-investigation-into-a-muslim-development-in-texas
