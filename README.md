@@ -1,3 +1,7 @@
+**Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
+`The violations stemmed from immigration cases. Judges across the country have expressed alarm about illegal transfers and missed deadlines.`\
+https://nytimes.com/2026/02/18/us/politics/court-orders-new-jersey-immigrants.html
+
 **How Cowboys ended up hiring Christian Parker as their new defensive coordinator**\
 `“Every impression we had with CP just left us wanting more,” Brian Schottenheimer said of Christian Parker.`\
 https://nytimes.com/athletic/7056013/2026/02/18/cowboys-christian-parker-dc-scheme/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010721237/gaza-ramadan-israel-h
 **As Elections Loom in France, a Young Activist Is Killed and Tensions Spike**\
 `The beating death of Quentin Deranque has quickly become a flashpoint between the far right and far left as France prepares for local elections next month and presidential elections next year.`\
 https://nytimes.com/2026/02/18/world/europe/france-beating-activist-far-left-right.html
-
-**An Avalanche Near Lake Tahoe Kills at Least 8**\
-`Also, Mark Zuckerberg takes the stand. Here's the latest at the end of Wednesday.`\
-https://nytimes.com/2026/02/18/briefing/an-avalanche-near-lake-tahoe-kills-at-least-8.html
 
