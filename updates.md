@@ -1,3 +1,11 @@
+**Who was right: Gordon or Trippier? What happened with clash of heads? — Champions League briefing**\
+`Anthony Gordon and Kieran Trippier engaged in a half-time spat with Newcastle 5-0 up against Qarabag — but saw the funny side later`\
+https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier-argument/
+
+**The iPhone’s Emergency SOS feature allowed the skiers to text with emergency responders after the avalanche.**\
+`By Kalley Huang`\
+https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
+
 **Shutdowns Don’t Usually Stop Disaster Work. FEMA Just Made It Harder.**\
 `The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
 https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html

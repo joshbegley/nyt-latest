@@ -1,10 +1,14 @@
+**Who was right: Gordon or Trippier? What happened with clash of heads? — Champions League briefing**\
+`Anthony Gordon and Kieran Trippier engaged in a half-time spat with Newcastle 5-0 up against Qarabag — but saw the funny side later`\
+https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier-argument/
+
 **Shutdowns Don’t Usually Stop Disaster Work. FEMA Just Made It Harder.**\
 `The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
 https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
 
 **The iPhone’s Emergency SOS feature allowed the skiers to text with emergency responders after the avalanche.**\
 `By Kalley Huang`\
-https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/apple-iphone-sos-satellite-rescue
+https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
 
 **Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
 `The violations stemmed from immigration cases. Judges across the country have expressed alarm about illegal transfers and missed deadlines.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/technology/anthropic-dario-amodei-effective-altru
 **Texas Election Season Is Getting Spicy**\
 `Both parties’ Senate primary races are kicking into high gear.`\
 https://nytimes.com/2026/02/18/us/politics/texas-elections-senate-primary.html
-
-**Defense Dept. and Anthropic Square Off in Dispute Over A.I. Safety**\
-`How artificial intelligence will be used in future battlefields is an issue that has turned increasingly political and may put Anthropic in a bind.`\
-https://nytimes.com/2026/02/18/technology/defense-department-anthropic-ai-safety.html
 

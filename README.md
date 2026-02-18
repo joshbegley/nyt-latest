@@ -6,8 +6,8 @@ https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier
 `The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
 https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
 
-**The iPhone’s Emergency SOS feature allowed the skiers to text with emergency responders after the avalanche.**\
-`By Kalley Huang`\
+**Satellite Feature on iPhone Allowed Skiers to Seek Help After Avalanche**\
+`The  Emergency SOS feature on iPhones can send texts to emergency responders via satellite when there is no cell tower nearby.`\
 https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
 
 **Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
