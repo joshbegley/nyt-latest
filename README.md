@@ -1,3 +1,7 @@
+**Backcountry Skiers Carry a Variety of Safety Gear**\
+`Beacons, shovels and probes are necessities in avalanche country.`\
+https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html
+
 **Why Don’t We Know How Many People Are Homeless?**\
 `In our conversation about numbers that explain the world, we’re looking at the point-in-time count.`\
 https://nytimes.com/2026/02/18/headway/homelessness-numbers-pit-count-report.html
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replac
 **Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
 `Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
 https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/
-
-**Vinicius Jr racism allegations: The protocols, what happens now and possible punishments**\
-`Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
-https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
 
