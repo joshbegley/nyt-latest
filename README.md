@@ -1,3 +1,27 @@
+**How to watch Baylor vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055215/2026/02/18/baylor-vs-texas-tech-stream-how-to-watch-feb-18/
+
+**How to watch UConn vs. Villanova women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055213/2026/02/18/uconn-vs-villanova-stream-how-to-watch-feb-18/
+
+**How to watch Creighton vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055207/2026/02/18/creighton-vs-uconn-stream-how-to-watch-feb-18/
+
+**How to watch Northwestern vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055203/2026/02/18/northwestern-vs-michigan-state-stream-how-to-watch-feb-18/
+
+**Several Skiers Still Missing After Avalanche Near Lake Tahoe**\
+`Rescuers have been able to locate some of the 15-person backcountry ski group in California that was caught in an avalanche near Lake Tahoe. Heavy, disruptive snowfall has been forecast to continue in the area.`\
+https://nytimes.com/video/us/100000010720259/avalanche-lake-tahoe-california.html
+
+**How to watch Arkansas vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055198/2026/02/18/arkansas-vs-alabama-stream-how-to-watch-feb-18/
+
 **Meta Begins $65 Million Election Push to Advance A.I. Agenda**\
 `Meta’s biggest election investment aims to prevent state legislation that it fears could inhibit artificial intelligence development. Its spending starts this week in Texas and Illinois.`\
 https://nytimes.com/2026/02/18/technology/meta-65-million-election-ai.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/18/science/evolution-cells-asgard.html
 **7 Moves to Improve Your Balance and Overall Strength**\
 `These exercises challenge one side of your body at a time. Practicing them can make daily tasks easier.`\
 https://nytimes.com/2026/02/18/well/move/strength-training-exercises-balance-unilateral.html
-
-**Corruption Is Rampant. You Can Stop It.**\
-`Ordinary citizens have a range of legal tools to hold the rich and politically connected accountable.`\
-https://nytimes.com/2026/02/18/opinion/corruption-trump-accountability.html
-
-**Kyrie Irving, nearly 1 year after ACL tear, won't play for Mavericks this season**\
-`Irving, who tore his ACL nearly one year ago, said the decision to wait until next season to play “wasn’t easy, but it was the right one.”`\
-https://nytimes.com/athletic/7055069/2026/02/18/kyrie-irving-mavericks-acl-injury-recovery-nba/
-
-**Avalanche Live Updates: 9 Skiers Missing Near Lake Tahoe**\
-`The avalanche struck a guided skiing group in a popular California backcountry destination, officials said. Six skiers have been rescued.`\
-https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers
-
-**Colorado Democrats Push to Rip Up 2028 House Map for an Extra Edge**\
-`A proposed ballot measure to give Democrats more seats for the 2028 and 2030 elections signals that the nation’s gerrymandering fight is likely to persist for years.`\
-https://nytimes.com/2026/02/18/us/politics/colorado-redistricting-house-map-2028.html
-
-**A Case Against 6 Democrats Lacked Urgency. Then Came a Swift Bid for an Indictment.**\
-`Prosecutors have been repeatedly caught between the president’s insistence that they undertake weak or baseless cases and the necessity of having to go to court.`\
-https://nytimes.com/2026/02/18/us/politics/pirro-inquiry-video-democratic-lawmakers.html
-
-**China’s Xu Mengtao defends Olympic aerials crown, Team USA's Kaila Kuhn fifth**\
-`China’s Xu Mengtao defends her Olympic freeski aerials title, while Team USA's Kaila Kuhn and Winter Vinecki were fifth and sixth. `\
-https://nytimes.com/athletic/7055011/2026/02/18/xu-mengtao-womens-freeski-aerials-2026-winter-olympics/
 
