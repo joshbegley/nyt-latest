@@ -1,3 +1,11 @@
+**Until Saturday: Weirdest realignment move yet?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-saturday/
+
+**Trump Hails Japan’s First Batch of U.S. Investments**\
+`The deals, totaling $36 billion, were the first step in a $550 billion investment pledge aimed at securing tariff relief and sustaining U.S. relations.`\
+https://nytimes.com/2026/02/17/business/japan-trump-investments.html
+
 **Amber Glenn's costly mistake punctuates her up-and-down Olympics**\
 `MILAN — For the second time in as many skates at the Milano Ice Skating Arena, Amber Glenn couldn’t stop the tears.`\
 https://nytimes.com/athletic/7053709/2026/02/17/amber-glenn-winter-olympics-figure-skating/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7053304/2026/02/17/masters-2026-odds-scottie-scheff
 **Trim, not traded, Teoscar Hernández looks for bounce-back year with Dodgers**\
 `The team says it will move him back to left field, where he spent most of 2024.`\
 https://nytimes.com/athletic/7053602/2026/02/17/teoscar-hernandez-dodgers-bounce-back/
-
-**Mourinho accuses Vinicius Jr of inciting alleged racism incident**\
-`The Benfica coach said that Gianluca Prestianni had denied racially abusing Vinicius Jr during Tuesday's Champions League match.`\
-https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-champions-league/
-
-**Jackson’s Death Arrives at a Crucial Moment for Black Political Power**\
-`There are more Black senators than ever before, but a major Supreme Court ruling could reduce Black representation in the House.`\
-https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-voters-voting-rights-act.html
 
