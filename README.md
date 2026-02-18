@@ -1,3 +1,7 @@
+**The Hockey Rivalry That’s More Than Heated**\
+`When the U.S. plays Canada in the Olympic women’s final, there will be much more than a gold medal at stake.`\
+https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canada.html
+
 **Tiny Love Stories: ‘I Wrote Immediately and Effusively’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/02/18/style/tiny-modern-love-stories-i-wrote-immediately-and-effusively.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055938/2026/02/18/byu-vs-arizona-stream-how-to-wat
 **How to watch Vanderbilt vs. Missouri men's basketball: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7055936/2026/02/18/vanderbilt-vs-missouri-stream-how-to-watch-feb-18/
-
-**How to watch Kansas vs. Oklahoma State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055934/2026/02/18/kansas-vs-oklahoma-state-stream-how-to-watch-feb-18/
 
