@@ -1,3 +1,11 @@
+**Team USA wins silver, Johannes Høsflot Klæbo claims another gold in Olympic cross-country skiing**\
+`Ben Ogden and Gus Schumacher won silver in the team sprint relay on Wednesday while Italy took bronze.`\
+https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
+
+**Su Yiming wins China's first gold of the 2026 Winter Olympics on his birthday**\
+`Su Yiming won gold in the men's snowboard slopestyle, with Team USA's Jake Canter taking bronze. `\
+https://nytimes.com/athletic/7054532/2026/02/18/su-yiming-jake-canter-mens-snowboard-slopestyle-2026-winter-olympics/
+
 **Justin Crawford loves the art of bunting. He aims to embrace it with the Phillies**\
 `The Phillies are encouraging the speedy center fielder to work on bunting to get on base and create chaos. Crawford is taking it to heart. `\
 https://nytimes.com/athletic/7053513/2026/02/18/justin-crawford-phillies-outfielder-bunting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7054314/2026/02/18/giants-spring-training-bullpen-c
 **Can the Broncos keep John Franklin-Myers? Predicting Denver's free agent outcomes**\
 `Plus, what will Denver's inside linebacker position look like with Alex Singleton and Justin Strnad both hitting free agency?`\
 https://nytimes.com/athletic/7052465/2026/02/18/broncos-free-agents-franklin-myers-singleton-dobbins/
-
-**After failing to make Olympics, red-hot Konecny still yearns for the playoffs**\
-`With 17 goals in his last 32 games, Konecny produced for the Flyers even as he battled injury leading up to the break.`\
-https://nytimes.com/athletic/7054067/2026/02/18/flyers-travis-konecny-olympics-injuries/
-
-**Rangers Olympics check in: How Zibanejad, Miller and Trocheck are faring in Milan**\
-`The Rangers' three forwards at the Olympics are set for a quarterfinal clash when Team USA faces Team Sweden.`\
-https://nytimes.com/athletic/7053834/2026/02/18/rangers-olympic-check-in-zibanejad-miller-trocheck/
 
