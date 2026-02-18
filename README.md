@@ -1,3 +1,15 @@
+**House Plans to Vote on Air Safety Bill After Report on Deadly D.C. Crash**\
+`Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
+https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
+
+**Source: Patriots to make Zak Kuhr defensive coordinator**\
+`Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
+https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
+
+**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League tie**\
+`There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
+https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
+
 **Here’s the Triple Axel That Gave Ami Nakai the Lead After the Short Program**\
 `Japanese figure skaters placed in three of the top four spots after the women’s short program, but only six points separated the medal favorites ahead of the free skate on Thursday.`\
 https://nytimes.com/interactive/2026/02/17/sports/ami-nakai-olympics-skating-short-program.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-satur
 **Trump Hails Japan’s First Batch of U.S. Investments**\
 `The deals, totaling $36 billion, were the first step in a $550 billion investment pledge aimed at securing tariff relief and sustaining U.S. relations.`\
 https://nytimes.com/2026/02/17/business/japan-trump-investments.html
-
-**Amber Glenn's costly mistake punctuates her up-and-down Olympics**\
-`MILAN — For the second time in as many skates at the Milano Ice Skating Arena, Amber Glenn couldn’t stop the tears.`\
-https://nytimes.com/athletic/7053709/2026/02/17/amber-glenn-winter-olympics-figure-skating/
-
-**Mets notes: Luis Robert Jr. to be eased into spring training due to injury history**\
-`Robert, who has a history of lower-half injuries, will likely make his Grapefruit League debut in the second week of the schedule.`\
-https://nytimes.com/athletic/7053523/2026/02/17/mets-luis-robert-brett-baty-christian-scott/
-
-**To a Resident on the Block, Jackson Was Simply a Friendly Neighbor**\
-`At the Jackson home in Chicago, people paid quiet tributes to a man they said was groundbreaking but also ‘very grounded.’`\
-https://nytimes.com/2026/02/17/us/politics/jesse-jackson-neighbor-chicago.html
 
