@@ -1,3 +1,11 @@
+**Mikaela Shiffrin exorcises ghost of Olympic past.**\
+`After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
+https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
+
+**NHL Draft prospect Alberts Šmits turns heads with Olympic men's hockey performance**\
+`Šmits’ tournament came to an end on Tuesday when Latvia lost 4-1 to Sweden, but the rangy, physical defenseman left an excellent impression.`\
+https://nytimes.com/athletic/7054756/2026/02/18/alberts-smits-olympics-mens-hockey-latvia-nhl-draft/
+
 **F1 manufacturers to vote on mid-season rule change in engine row**\
 `It emerged that Mercedes has found a potential advantage with its new engine for the 2026 season relating to the compression ratio limits.`\
 https://nytimes.com/athletic/7054823/2026/02/18/f1-engine-rule-change-fia/

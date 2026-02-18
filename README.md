@@ -1,3 +1,11 @@
+**What I'm seeing from the Penguins: Kris Letang healthy, Evgeni Malkin not talking**\
+`With Letang almost ready to go and Filip Hållander improving, the Penguins are feeling good about their playoff push.`\
+https://nytimes.com/athletic/7054163/2026/02/18/penguins-kris-letang-evgeni-malkin-olympics/
+
+**As Trump Obliterates Climate Efforts, States Try to Fill the Gap**\
+`Across the country, Democratic-led states are accelerating their initiatives to cut greenhouse gas emissions. Their role just became much more important.`\
+https://nytimes.com/2026/02/18/climate/trump-climate-policies-states.html
+
 **Mikaela Shiffrin exorcises ghost of Olympic past.**\
 `After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
 https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/opinion/history-rocks-tour.html
 **I Receive So Many Angry Text Messages! How Can I Make Them Stop?**\
 `Sick and tired of feeling like a receptacle for others’ negative emotions, a reader is desperate to stem the tide of foul-tempered texts.`\
 https://nytimes.com/2026/02/18/style/unwanted-negative-texts.html
-
-**Wrexham aim for Premier League promotion and FA Cup glory: What are the odds?**\
-`Wrexham's magic-carpet ride could go stratospheric as they vie for Premier League promotion and reach the last 16 in the FA Cup`\
-https://nytimes.com/athletic/7054639/2026/02/18/wrexhams-premier-league-and-fa-cup-odds-dream-hollywood-ending-is-still-on/
-
-**F.D.A. Reverses Decision and Agrees to Review Moderna’s Flu Vaccine**\
-`Moderna said it had held further discussions with regulators and announced that the agency would accept the company’s application for approval of its flu vaccine that uses mRNA technology.`\
-https://nytimes.com/2026/02/18/health/fda-moderna-flu-vaccine-mrna.html
 
