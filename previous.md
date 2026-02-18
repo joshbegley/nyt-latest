@@ -1,40 +1,40 @@
-**Nine Skiers Still Missing After Lake Tahoe Avalanche**\
-`The avalanche struck a guided backcountry skiing group near Truckee, Calif., near the end of a multiday trip, officials said. Six skiers have been rescued.`\
-https://nytimes.com/2026/02/18/us/lake-tahoe-avalanche-missing-skiers.html
+**Why the Knicks' Landry Shamet might be the best vet-minimum signing in the NBA**\
+`Landry Shamet, the pro's pro, is key to New York reaching its goals.`\
+https://nytimes.com/athletic/7050616/2026/02/18/knicks-landry-shamet-signing-nba/
 
-**With a push from the NFL, flag football's breakthrough is here. What happens next?**\
-`The buzz around flag football — and the NFL’s investment in the sport — keeps growing, with the 2028 Summer Olympics on the horizon.`\
-https://nytimes.com/athletic/7052881/2026/02/18/flag-football-nfl-olympics-growth/
+**Lions big board: Analyzing potential targets at No. 17 and on Day 2**\
+`Offensive tackle, edge rusher and the secondary figure to be positions the Lions could target in the 2026 NFL Draft.`\
+https://nytimes.com/athletic/7053862/2026/02/18/detroit-lions-nfl-draft-big-board-first-round/
 
-**NFL free agency: Where do Trey Hendrickson, Daniel Jones, Kenneth Walker rank in top 150?**\
-`Hendrickson tops the list as he prepares to move on from the Bengals, but where does the Super Bowl MVP land?`\
-https://nytimes.com/athletic/7043952/2026/02/18/nfl-2026-free-agent-rankings-best-available/
+**Cowboys big board: 20 potential first-round targets focus mostly on defense**\
+`While defense — specifically linebacker, edge rusher and defensive back — will be a draft priority, the Cowboys could also eye OT.`\
+https://nytimes.com/athletic/7053843/2026/02/18/cowboys-nfl-draft-big-board-first-round/
 
-**From Kayvon Thibodeaux to Dexter Lawrence, a Giants 10-step offseason plan**\
-`A look at how the Giants should approach free agency and the draft ahead of John Harbaugh's first season.`\
-https://nytimes.com/athletic/7051410/2026/02/18/new-york-giants-free-agency-draft-plans/
+**Colbert Says CBS Barred Interview With Democrat, and Search Teams Scramble After Lake Tahoe Avalanche**\
+`Plus, Brad Pitt vs. Tom Cruise?`\
+https://nytimes.com/2026/02/18/podcasts/the-headlines/colbert-cbs-interview-lake-tahoe-avalanche.html
 
-**Why the world’s best athletes struggle under Olympic pressure — and how they can counter it**\
-`This is not a story about weakness. It's about what happens when the human nervous system confronts a challenge it wasn't designed to face.`\
-https://nytimes.com/athletic/7053155/2026/02/18/ilia-malinin-olympics-pressure-mikaela-shiffrin/
+**Kansas State says Jerome Tang's words cost him his job. Do his comments justify it?**\
+`Kansas State fired Tang after his heated comments following a blowout loss. Will the school's stance that it was a for-cause firing hold up?`\
+https://nytimes.com/athletic/7053723/2026/02/18/kansas-state-jerome-tang-fired-for-cause/
 
-**Which player should the Colts franchise-tag: QB Daniel Jones or WR Alec Pierce?**\
-`The veteran quarterback or the breakout wide receiver? We look at the case for each to be franchise-tagged during this two-week window.`\
-https://nytimes.com/athletic/7053299/2026/02/18/colts-franchise-tag-daniel-jones-alec-pierce/
+**Who’s irreplaceable? MLB insiders on teams’ best and worst subtractions of the offseason**\
+`In our spring survey of people in the game, we asked which ex-players teams will miss the most. And which, um, they won't.  `\
+https://nytimes.com/athletic/7053016/2026/02/18/mlb-free-agency-best-worst-signings-trades/
 
-**Can a gold medal in Milan change Connor Hellebuyck's big-game reputation?**\
-`Would the image of Hellebuyck with an Olympic gold medal slung around his neck be enough to change the narrative?`\
-https://nytimes.com/athletic/7052839/2026/02/18/connor-hellebuyck-olympics-mens-hockey-usa/
+**2026 NFL Draft consensus rankings: Which defender will come off the board first?**\
+`With the NFL Scouting Combine set to begin, we take a look at how the consensus board has shifted since last month. `\
+https://nytimes.com/athletic/7052286/2026/02/18/nfl-draft-2026-consensus-big-board-arvell-reese/
 
-**The New York Times International Edition in Print for Thursday, Feb. 19, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/18/todays-new-york-times-international-edition
+**Rangers to give out Nolan Ryan bloody jerseys, but the original was washed away**\
+`The Rangers had to rely on photos to recreate an iconic jersey stain because the original is long gone. `\
+https://nytimes.com/athletic/7052752/2026/02/18/nolan-ryan-bloody-jersey-giveaway-rangers/
 
-**Chasing NBA dreams from Qatar to All-Star Weekend: One prospect's journey**\
-`Could the NBA's next overseas star come from the Middle East? Abdulla Mousa's path to Basketball Without Borders shows league's ambition.`\
-https://nytimes.com/athletic/7051109/2026/02/18/abdulla-mousa-qatar-prospect-nba-all-star-2026/
+**College hoops thoughts: Michigan is every bit No. 1; brutal night for Texas Tech**\
+`Plus, NC State "bedazzles" North Carolina, Iowa gets ranked win, Mick Cronin ejects his own player and Saint Louis goes down.`\
+https://nytimes.com/athletic/7054350/2026/02/18/michigan-purdue-texas-tech-college-basketball/
 
-**An Architect of Virginia’s Redistricting Will Run for a New Seat Himself**\
-`Dan Helmer, a Democratic state lawmaker, played a key role in putting redrawn congressional maps before state voters.`\
-https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-virginia.html
+**Storylines that define the rest of NBA regular season: Embiid's health, MVP race and more**\
+`The Rookie of the Year and Most Improved Player races are far from over, while the Knicks and Cavaliers face pressure to end the season.`\
+https://nytimes.com/athletic/7052663/2026/02/18/nba-storylines-second-half-season-embiid-mvp/
 
