@@ -1,3 +1,19 @@
+**Pereira, Postecoglou and Dyche's first Forest words compared: Themselves, ex-clubs and Marinakis**\
+`How did Forest's third head coach unveiling of the season compare to that of the previous two? We looked at the main talking points`\
+https://nytimes.com/athletic/7052615/2026/02/18/vitor-pereira-forest-postecoglou-dyche-marinakis/
+
+**Arsenal safe-standing plans: Will capacity change? What does it mean for expansion - and atmosphere?**\
+`Why are the club doing it? What does it mean for fans? Which other clubs have safe standing? Will it be expanded? `\
+https://nytimes.com/athletic/7052055/2026/02/18/arsenal-safe-standing-plans-explained/
+
+**'Anyone for a Cole Palmer-branded moped?' Inside the world of football trademarks**\
+`Footballers have been known to attempt to trademark their name, likeness, or even celebration — but there are pitfalls...`\
+https://nytimes.com/athletic/7049210/2026/02/18/football-trademark-claims-messi-palmer-ronaldo/
+
+**Jose Mourinho sunk to a new low with absurd and offensive claims about Vinicius Junior**\
+`Mourinho was, in effect, telling Vinicius that he didn’t hear what he says he heard, which was alleged racist abuse from a Benfica player`\
+https://nytimes.com/athletic/7053817/2026/02/18/mourinho-vinicius-comments-column/
+
 **Mick Cronin ejects his own player after technical foul in UCLA's loss to Michigan State**\
 `Cronin yanked Steven Jamerson II off the court, caught a fistful of his jersey and signaled a Bruins staffer to take him to the locker room.`\
 https://nytimes.com/athletic/7054246/2026/02/18/ucla-mick-cronin-michigan-state-steven-jamerson/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7033004/2026/02/18/premier-league-long-range-shots-
 **A trumpeter, a former adult films producer and the weird world of Barca election candidates**\
 `Barcelona's democratic process often means some fascinating characters put themselves forward to be club president`\
 https://nytimes.com/athletic/7041720/2026/02/18/barcelona-election-candidates-weird-world/
-
-**Manchester United’s midfield – Part 2: Who should they sign to replace Casemiro?**\
-`From Carlos Baleba to Mamadou Sangare, The Athletic looks at players who may fit the bill to take over from the departing Brazilian`\
-https://nytimes.com/athletic/7051967/2026/02/18/casemiro-man-united-transfers-midfield/
-
-**How long is it since each Premier League club last suffered relegation?**\
-`As Tottenham, Forest and West Ham fans contemplate a worrying end to 2025-26, The Athletic looks at when each top-flight club last went down`\
-https://nytimes.com/athletic/7038453/2026/02/18/when-last-relegated-premier-league-spurs-forest/
-
-**Alberto Tomba Was an ’80s Icon. The Olympics Have Brought Him Back.**\
-`Nicknamed “Tomba la Bomba,” the Italian skier was a global superstar before he drifted from the limelight. Decades later, the Winter Games have given him a new platform.`\
-https://nytimes.com/2026/02/18/world/europe/alberto-tomba-was-an-80s-icon-the-olympics-have-brought-him-back.html
-
-**Trilateral Talks on Russia-Ukraine War Enter 2nd Day**\
-`The talks in Geneva, Switzerland, were expected to focus on Ukrainian-held territory in the east that Russia wants to control as the price of peace. Kyiv has said that demand is a nonstarter.`\
-https://nytimes.com/2026/02/18/world/europe/russia-ukraine-us-talks-war.html
 
