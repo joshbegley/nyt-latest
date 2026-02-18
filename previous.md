@@ -10,6 +10,10 @@ https://nytimes.com/athletic/7054212/2026/02/18/womens-ncaa-tournament-bubble-wa
 `The late game Wednesday will feature a host of players who are very familiar as NHL teammates.`\
 https://nytimes.com/athletic/7053479/2026/02/18/olympics-mens-hockey-quarterfinals-usa-sweden-wild-teammates/
 
+**Can winning championships get boring? North Dakota State fans are eager to try leveling up**\
+`After winning 10 FCS titles in 15 seasons, North Dakota State is joining the Mountain West in the FBS. There are pluses and minuses.`\
+https://nytimes.com/athletic/7053125/2026/02/18/north-dakota-state-fbs-fcs-mountain-west/
+
 **The Pulse: Is baseball headed for doom?**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7054390/2026/02/18/tony-clark-mlbpa-resign-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/podcasts/the-headlines/colbert-cbs-interview-lake
 **Kansas State says Jerome Tang's words cost him his job. Do his comments justify it?**\
 `Kansas State fired Tang after his heated comments following a blowout loss. Will the school's stance that it was a for-cause firing hold up?`\
 https://nytimes.com/athletic/7053723/2026/02/18/kansas-state-jerome-tang-fired-for-cause/
-
-**Who’s irreplaceable? MLB insiders on teams’ best and worst subtractions of the offseason**\
-`In our spring survey of people in the game, we asked which ex-players teams will miss the most. And which, um, they won't.  `\
-https://nytimes.com/athletic/7053016/2026/02/18/mlb-free-agency-best-worst-signings-trades/
 

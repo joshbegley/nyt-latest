@@ -1,3 +1,7 @@
+**Can winning championships get boring? North Dakota State fans are eager to try leveling up**\
+`After winning 10 FCS titles in 15 seasons, North Dakota State is joining the Mountain West in the FBS. There are pluses and minuses.`\
+https://nytimes.com/athletic/7053125/2026/02/18/north-dakota-state-fbs-fcs-mountain-west/
+
 **AI: Education**\
 ``\
 https://nytimes.com/spotlight/ai-education
