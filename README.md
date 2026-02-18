@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7052832/2026/02/18/ohio-state-recruiting-class-2027
 `Ben Ogden and Gus Schumacher won silver in the team sprint relay on Wednesday while Italy took bronze.`\
 https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
 
-**Su Yiming wins China's first gold of the 2026 Winter Olympics on his birthday**\
+**Former child actor wins Olympic gold on his birthday**\
 `Su Yiming won gold in the men's snowboard slopestyle, while Team USA's Jake Canter took bronze. `\
 https://nytimes.com/athletic/7054532/2026/02/18/su-yiming-jake-canter-mens-snowboard-slopestyle-2026-winter-olympics/
 
