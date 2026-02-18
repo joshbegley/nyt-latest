@@ -1,3 +1,8 @@
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Backcountry Skiers Carry a Variety of Safety Gear**\
 `Beacons, shovels and probes are necessities in avalanche country.`\
 https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html
