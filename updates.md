@@ -1,3 +1,7 @@
+**Vinicius Jr cuts a lonely, weary figure on another ugly night for football**\
+`The Real Madrid forward is a beguiling footballer but looks increasingly exhausted at having to draw strength from fighting his tormentors`\
+https://nytimes.com/athletic/7054185/2026/02/18/vinicius-jr-racism-benfica-real-madrid/
+
 **Don't mention the C word: The battle to keep Wrexham's focus on the league, not Chelsea**\
 `The manager has experience of causing major cup upsets - and history suggests he is also able to make sure league form is not affected`\
 https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
