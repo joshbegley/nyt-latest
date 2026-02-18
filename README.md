@@ -1,3 +1,7 @@
+**For Mikaela Shiffrin, at last, another beautiful day at the Olympics**\
+`It had been eight years since Shiffrin won an Olympic medal. On Wednesday, she stuffed that storyline right into a Cortina trash can.`\
+https://nytimes.com/athletic/7055527/2026/02/18/mikaela-shiffrin-winter-olympics-gold-medal-slalom-drought/
+
 **The Country Betting on Immigrants**\
 `Spain may have a solution to the backlash against migrants in many wealthy countries.`\
 https://nytimes.com/2026/02/18/world/spain-immigration-isis-prison-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canad
 **Tiny Love Stories: ‘I Wrote Immediately and Effusively’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/02/18/style/tiny-modern-love-stories-i-wrote-immediately-and-effusively.html
-
-**MLBPA's scramble to replace Tony Clark won’t weaken union, likely successor says**\
-`With a round of collective bargaining approaching, Bruce Meyer pushed back at the notion that the union's bargaining power was diminished.`\
-https://nytimes.com/athletic/7055861/2026/02/18/bruce-meyer-tony-clark-mlb-union/
 
