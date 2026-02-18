@@ -1,3 +1,5 @@
+
+
 **An Avalanche Near Lake Tahoe Kills at Least 8**\
 `Also, Mark Zuckerberg takes the stand. Here's the latest at the end of Wednesday.`\
 https://nytimes.com/2026/02/18/briefing/an-avalanche-near-lake-tahoe-kills-at-least-8.html
