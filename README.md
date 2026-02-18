@@ -1,3 +1,7 @@
+**Nine Skiers Still Missing After Lake Tahoe Avalanche**\
+`The avalanche struck a guided backcountry skiing group near Truckee, Calif., near the end of a multiday trip, officials said. Six skiers have been rescued.`\
+https://nytimes.com/2026/02/18/us/lake-tahoe-avalanche-missing-skiers.html
+
 **With a push from the NFL, flag football's breakthrough is here. What happens next?**\
 `The buzz around flag football — and the NFL’s investment in the sport — keeps growing, with the 2028 Summer Olympics on the horizon.`\
 https://nytimes.com/athletic/7052881/2026/02/18/flag-football-nfl-olympics-growth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051109/2026/02/18/abdulla-mousa-qatar-prospect-nba
 **An Architect of Virginia’s Redistricting Will Run for a New Seat Himself**\
 `Dan Helmer, a Democratic state lawmaker, played a key role in putting redrawn congressional maps before state voters.`\
 https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-virginia.html
-
-**Democrats Plan to Counter Trump’s Speech to Congress With Rally**\
-`The House Democratic leader has asked rank-and-file members to sit quietly at the speech or skip it altogether, wary of creating a distraction.`\
-https://nytimes.com/2026/02/18/us/politics/democrats-trump-congress.html
 
