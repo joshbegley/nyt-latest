@@ -1,3 +1,11 @@
+**What went wrong for Amber Glenn in the short program: The invalid element explained**\
+`Had Glenn fallen, she would have had an automatic one-point deduction — a better outcome than the zero earned for an invalid element.`\
+https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-short-program-milan-olympics-explained/
+
+**Patriots to make Zak Kuhr the full-time defensive coordinator: Source**\
+`Kuhr's defense was a major reason the Patriots had so much success in the playoffs, including reaching Super Bowl 60.`\
+https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
+
 **Boneless Wings Are Still Wings, Judge Rules**\
 `A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
 https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
