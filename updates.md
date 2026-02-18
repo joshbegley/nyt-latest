@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Democratic Lawmakers Intend to Boycott State of the Union Address**\
+``\
+https://nytimes.com/live/2026/02/18/us/trump-news
+
+**Lowetide: What will Oilers' forward lines look like after the Olympic break?**\
+`The deadline may bring help, but for now, these are Edmonton's likely lines, along with intriguing backup plans for each trio.`\
+https://nytimes.com/athletic/7052616/2026/02/18/edmonton-oilers-forward-lines-olympics/
+
+**All-Star Player Poll: Who would consider playing in NBA Europe?**\
+`The NBA's European league is supposed to launch in October 2027. NBA players polled by The Athletic are intrigued by the new league.`\
+https://nytimes.com/athletic/7051499/2026/02/18/nba-all-star-player-poll-europe/
+
 **Should pros be allowed to return to college basketball? NBA players weigh in**\
 `"Absolutely not," said one NBA player about the idea.`\
 https://nytimes.com/athletic/7051575/2026/02/18/nba-college-basketball-pros-return/
