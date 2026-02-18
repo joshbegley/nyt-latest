@@ -1,3 +1,19 @@
+**How Cowboys ended up hiring Christian Parker as their new defensive coordinator**\
+`“Every impression we had with CP just left us wanting more,” Brian Schottenheimer said of Christian Parker.`\
+https://nytimes.com/athletic/7056013/2026/02/18/cowboys-christian-parker-dc-scheme/
+
+**Company That Guided Sierra Ski Trip Specialized in High-End Adventures**\
+`Blackbird Mountain Guides, which has locations around the world, also taught mountain safety classes.`\
+https://nytimes.com/2026/02/18/us/blackbird-guides-tahoe-avalanche.html
+
+**Bald Eagle, Marooned on Ice Chunk in Hudson, Is Rescued by Police**\
+`The authorities took the injured bird to a rehabilitation center in New Jersey, which is working to stabilize it to allow for further testing and treatment.`\
+https://nytimes.com/2026/02/18/us/bald-eagle-rescue-nyc-hudson-river.html
+
+**Officers Rescue Injured Bald Eagle on the Hudson River**\
+`New York City police officers spotted a bald eagle in distress during a patrol on Tuesday morning along the Hudson River.`\
+https://nytimes.com/video/us/100000010721046/officers-rescue-injured-bald-eagle-on-the-hudson-river.html
+
 **Decoding the A.I. Beliefs of Anthropic and Its C.E.O., Dario Amodei**\
 `The company is at odds with the Pentagon over how its A.I. will be used. The conflict has its roots in the foundational plan for Anthropic.`\
 https://nytimes.com/2026/02/18/technology/anthropic-dario-amodei-effective-altruism.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/18/world/europe/france-beating-activist-far-left-rig
 **An Avalanche Near Lake Tahoe Kills at Least 8**\
 `Also, Mark Zuckerberg takes the stand. Here's the latest at the end of Wednesday.`\
 https://nytimes.com/2026/02/18/briefing/an-avalanche-near-lake-tahoe-kills-at-least-8.html
-
-**Iowa apologizes after confrontation between Nebraska's Fred Hoiberg, court-storming fan**\
-`The Big Ten said it discussed the situation with both schools and will take no action with regard to Hoiberg.`\
-https://nytimes.com/athletic/7056236/2026/02/18/iowa-nebraska-basketball-fred-hoiberg-fan-cellphone/
-
-**Search crews reached the survivors but couldn’t recover the dead skiers’ bodies.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/search-crews-reached-the-survivors-but-couldnt-recover-the-dead-skiers-bodies
-
-**Team USA knocks out Sweden in overtime to reach Olympic men's hockey semifinals**\
-`The Americans will play for an Olympic medal after Quinn Hughes played the hero in overtime on Wednesday night in Milan.`\
-https://nytimes.com/athletic/7056054/2026/02/18/usa-sweden-olympics-mens-hockey/
-
-**With New Momentum, Republican States Push Broader Limits for Trans Americans**\
-`In states that once focused mainly on health care and sports for transgender minors, debates now revolve around the validity of transgender identity.`\
-https://nytimes.com/2026/02/18/us/republican-states-transgender-rights-restrictions.html
 
