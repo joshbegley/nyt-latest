@@ -1,3 +1,11 @@
+**Team USA wins silver, Johannes Høsflot Klæbo claims another gold in Olympic cross-country skiing**\
+`Ben Ogden and Gus Schumacher won silver in the team sprint relay on Wednesday while Italy took bronze.`\
+https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
+
+**Su Yiming wins China's first gold of the 2026 Winter Olympics on his birthday**\
+`Su Yiming won gold in the men's snowboard slopestyle, with Team USA's Jake Canter taking bronze. `\
+https://nytimes.com/athletic/7054532/2026/02/18/su-yiming-jake-canter-mens-snowboard-slopestyle-2026-winter-olympics/
+
 **Justin Crawford loves the art of bunting. He aims to embrace it with the Phillies**\
 `The Phillies are encouraging the speedy center fielder to work on bunting to get on base and create chaos. Crawford is taking it to heart. `\
 https://nytimes.com/athletic/7053513/2026/02/18/justin-crawford-phillies-outfielder-bunting/
