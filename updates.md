@@ -1,3 +1,7 @@
+**WNBA players offer lower revenue share, salary cap in latest counterproposal**\
+`Housing — the current CBA requires teams to provide housing to all players — is another issue in the negotiations.`\
+https://nytimes.com/athletic/7054080/2026/02/17/wnba-players-union-cba-negotiations-update-revenue-share-housing/
+
 **2026 Olympics, Day 11 recap: Liu impresses in short program; USA men's hockey to face Sweden**\
 `Alysa Liu was divine in the women’s figure skating short program and other news from Day 11 of the Winter Olympics.`\
 https://nytimes.com/athletic/7053135/2026/02/17/olympics-recap-liu-vonn-mens-hockey/
