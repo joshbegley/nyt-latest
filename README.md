@@ -1,3 +1,15 @@
+**Chiefs restructure Patrick Mahomes' contract. Here's how their cap situation looks now**\
+`Here's how the Chiefs' salary-cap situation looks now ahead of an important offseason.`\
+https://nytimes.com/athletic/7054946/2026/02/18/chiefs-patrick-mahomes-contract-restructured/
+
+**Madison Square Garden considers splitting Knicks and Rangers into separate companies**\
+`The company announced Wednesday that its board of directors had approved a plan to explore the move, though it wasn't guaranteed to happen.`\
+https://nytimes.com/athletic/7054843/2026/02/18/madison-square-garden-sports-knicks-rangers-spinning-off/
+
+**The Behind the Scenes Search for Compromise on Territory in Ukraine Talks**\
+`The latest round of talks ended with no indication of progress, but negotiators are bargaining over who will control land in eastern Ukraine if they reach a settlement.`\
+https://nytimes.com/2026/02/18/world/europe/ukraine-russia-peace-talks-demilitarized-zone.html
+
 **Elon Musk’s xAI Gets $3 Billion Investment From Saudi-Backed A.I. Firm**\
 `Humain, which was created by Crown Prince Mohammed bin Salman last year, said it made the investment just before xAI was acquired by SpaceX, Mr. Musk’s rocket company.`\
 https://nytimes.com/2026/02/18/business/xai-humain-saudi-musk-spacex.html
@@ -18,23 +30,11 @@ https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
 `Šmits’ tournament came to an end on Tuesday when Latvia lost 4-1 to Sweden, but the rangy, physical defenseman left an excellent impression.`\
 https://nytimes.com/athletic/7054756/2026/02/18/alberts-smits-olympics-mens-hockey-latvia-nhl-draft/
 
-**F1 manufacturers to vote on mid-season rule change in engine row**\
+**F1 manufacturers to vote on mid-season rule change over engine battles**\
 `It emerged that Mercedes has found a potential advantage with its new engine for the 2026 season relating to the compression ratio limits.`\
 https://nytimes.com/athletic/7054823/2026/02/18/f1-engine-rule-change-fia/
 
 **Latest Updates: Investigators Look Into Genetic Genealogy in Nancy Guthrie Case**\
 ``\
 https://nytimes.com/live/2026/02/18/us/nancy-guthrie-case-updates
-
-**Seahawks hire NIU's Thomas Hammock as running backs coach: Sources**\
-`In Seattle, Hammock will reunite with Seahawks coach Mike Macdonald. The two coached together for five seasons with the Baltimore Ravens.`\
-https://nytimes.com/athletic/7054754/2026/02/18/nfl-seahawks-thomas-hammock-northern-illinois/
-
-**How to Watch Free Live Television on Your Phone or Tablet**\
-`Whether by app or old-school antennas, budget-friendly options abound.`\
-https://nytimes.com/2026/02/18/technology/personaltech/free-live-tv-mobile-apps.html
-
-**What Does ‘God-Centered’ Education Have to Do with Public School?**\
-`Linda McMahon is shocked — shocked! — that there’s been a backlash to the Department of Education’s ‘History Rocks!’ tour.`\
-https://nytimes.com/2026/02/18/opinion/history-rocks-tour.html
 
