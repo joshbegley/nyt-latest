@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Feb. 18, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
+
+**Trump Has Changed America. Next Up, the World.**\
+`As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
+https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
+
 **Liverpool are excited about 15-year-old Josh Abe but face a fight to keep him**\
 `The England youth international is one of the academy's brightest prospects but is already attracting admiration from rival clubs`\
 https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
