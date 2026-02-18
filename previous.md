@@ -1,3 +1,7 @@
+**Don't mention the C word: The battle to keep Wrexham's focus on the league, not Chelsea**\
+`The manager has experience of causing major cup upsets - and history suggests he is also able to make sure league form is not affected`\
+https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
+
 **The New York Times in Print for Wednesday, Feb. 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7023718/2026/02/18/what-puts-aston-villa-in-the-swe
 **Why Chelsea struggle when defending set pieces**\
 `Chelsea have the worst expected goals record when defending set pieces this season`\
 https://nytimes.com/athletic/7052313/2026/02/18/chelsea-defensive-set-pieces-analysis/
-
-**Pereira, Postecoglou and Dyche's first Forest words compared: Themselves, ex-clubs and Marinakis**\
-`How did Forest's third head coach unveiling of the season compare to that of the previous two? We looked at the main talking points`\
-https://nytimes.com/athletic/7052615/2026/02/18/vitor-pereira-forest-postecoglou-dyche-marinakis/
 

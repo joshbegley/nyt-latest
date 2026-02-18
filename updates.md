@@ -1,3 +1,7 @@
+**Don't mention the C word: The battle to keep Wrexham's focus on the league, not Chelsea**\
+`The manager has experience of causing major cup upsets - and history suggests he is also able to make sure league form is not affected`\
+https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
+
 **The New York Times in Print for Wednesday, Feb. 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
