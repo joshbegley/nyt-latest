@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/18/world/europe/russia-paralympics-italy.html
 `The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
 https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html
 
-**JD Vance says Eileen Gu should be representing the U.S. at Winter Olympics**\
+**JD Vance suggests Eileen Gu should be representing the U.S. at Winter Olympics**\
 `Gu was born in 2003, and her mother, Yan Gu, is a first-generation Chinese immigrant. Her father is American.`\
 https://nytimes.com/athletic/7054922/2026/02/18/eileen-gu-jd-vance-united-states-olympics/
 
