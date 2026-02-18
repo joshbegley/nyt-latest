@@ -1,3 +1,7 @@
+**Stephen Colbert Finds a Place to File CBS’s Surprise Statement**\
+`“I don’t even know what to do with this,” Colbert said about the network’s news release on a scrapped interview with a Democratic politician, before putting the paper in a dog waste bag.`\
+https://nytimes.com/2026/02/18/arts/television/stephen-colbert-cbs-statement.html
+
 **A Police Parking Lot in East Harlem Will Become Affordable Housing**\
 `The project is the latest example of a push by New York City to build homes on land it owns. The building will be 100 percent affordable, officials say.`\
 https://nytimes.com/2026/02/18/nyregion/nypd-parking-affordable-housing-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
 **Trump Has Changed America. Next Up, the World.**\
 `As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
 https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
-
-**Liverpool are excited about 15-year-old Josh Abe but face a fight to keep him**\
-`The England youth international is one of the academy's brightest prospects but is already attracting admiration from rival clubs`\
-https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
 

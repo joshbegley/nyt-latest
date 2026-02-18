@@ -1,3 +1,15 @@
+**A Police Parking Lot in East Harlem Will Become Affordable Housing**\
+`The project is the latest example of a push by New York City to build homes on land it owns. The building will be 100 percent affordable, officials say.`\
+https://nytimes.com/2026/02/18/nyregion/nypd-parking-affordable-housing-nyc.html
+
+**Viral Videos Helped Mamdani Win. Can They Help Him Govern?**\
+`Mayor Zohran Mamdani, who won over voters with his approach to social media, is using the same strategy to try to connect City Hall to all New Yorkers.`\
+https://nytimes.com/2026/02/18/nyregion/mamdani-social-media.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/18/crosswords/spelling-bee-forum.html
+
 **Don't mention the C word: The battle to keep Wrexham's focus on the league, not Chelsea**\
 `The manager has experience of causing major cup upsets – and history suggests he can make sure league form is not affected`\
 https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/

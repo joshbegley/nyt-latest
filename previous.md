@@ -1,3 +1,15 @@
+**A Police Parking Lot in East Harlem Will Become Affordable Housing**\
+`The project is the latest example of a push by New York City to build homes on land it owns. The building will be 100 percent affordable, officials say.`\
+https://nytimes.com/2026/02/18/nyregion/nypd-parking-affordable-housing-nyc.html
+
+**Viral Videos Helped Mamdani Win. Can They Help Him Govern?**\
+`Mayor Zohran Mamdani, who won over voters with his approach to social media, is using the same strategy to try to connect City Hall to all New Yorkers.`\
+https://nytimes.com/2026/02/18/nyregion/mamdani-social-media.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/18/crosswords/spelling-bee-forum.html
+
 **Analysing Banks' breakthrough season, Pochettino's comments and USMNT prospects**\
 `The teenage center-back's performances have grabbed the attention of his international head coach and he has continued to impress in Germany`\
 https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
 **Liverpool are excited about 15-year-old Josh Abe but face a fight to keep him**\
 `The England youth international is one of the academy's brightest prospects but is already attracting admiration from rival clubs`\
 https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
-
-**Tudor reunion could help Kolo Muani finally find form at Spurs**\
-`Tottenham are desperate to see France striker rediscover the form he showed under their new coach at Juventus`\
-https://nytimes.com/athletic/7052267/2026/02/18/igor-tudor-randal-kolo-muani-tottenham/
-
-**How James Justin has gone from versatile backup to Leeds' secret weapon**\
-`The one-cap England international has shown he can play a part at both ends — and on either side — of the pitch`\
-https://nytimes.com/athletic/7052408/2026/02/18/james-justin-leeds-box-runs/
-
-**Pablo Felipe added plenty in a short time at West Ham - now they must adapt without him**\
-`January signing who brought some much-needed energy in attack during his first six appearances will be out for several weeks due to injury`\
-https://nytimes.com/athletic/7049720/2026/02/18/pablo-felipe-west-ham-injury/
 
