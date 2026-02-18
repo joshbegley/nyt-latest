@@ -1,3 +1,7 @@
+**Workplace Inspections by OSHA Dropped Over a Six-Month Period of 2025**\
+`Labor advocates worry that the Trump administration is relaxing oversight of companies and increasing the potential for serious injuries and deaths.`\
+https://nytimes.com/2026/02/18/us/politics/workplace-inspections-decrease-osha.html
+
 **Lions president and CEO Rod Wood retiring after 11 seasons with team**\
 `The Lions will begin a global search for Wood's successor. He will remain in his role until Detroit makes a hire.`\
 https://nytimes.com/athletic/7056020/2026/02/18/lions-rod-wood-retiring-president-ceo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055971/2026/02/18/twins-reaction-pablo-lopez-elbow
 **Texas Tech star forward JT Toppin suffers season-ending injury**\
 `An MRI confirmed a torn ACL in Texas Tech forward JT Toppin's right knee.`\
 https://nytimes.com/athletic/7056035/2026/02/18/jt-toppin-texas-tech-injury-season-ending/
-
-**Edison Will Reduce Executive Bonuses as a Result of the Eaton Fire**\
-`Southern California Edison had said its electrical equipment most likely caused the blaze, which destroyed much of Altadena, a Los Angeles suburb.`\
-https://nytimes.com/2026/02/18/business/energy-environment/edison-eaton-fire-altadena-executive-bonuses.html
 
