@@ -1,3 +1,7 @@
+**With New Momentum, Republican States Push Broader Limits for Trans Americans**\
+`In states that once focused mainly on health care and sports for transgender minors, legislators are seeking more sweeping restrictions.`\
+https://nytimes.com/2026/02/18/us/republican-states-transgender-rights-restrictions.html
+
 **Inside the Nick Suzuki decision that kept Team Canada’s Olympic hopes alive**\
 `There was a lot on Nick Suzuki's mind in the late stages of Canada's quarterfinal game, and despite that, his brain made the difference.`\
 https://nytimes.com/athletic/7056199/2026/02/18/nick-suzuki-canada-olympic-mens-hockey-quarterfinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056011/2026/02/18/new-york-mets-prospects-ryan-cli
 **Donald J. Trump International Airport? The President’s Company Trademarked It.**\
 `The Trump organization said the move was necessary to protect the brand as Florida prepares to rename an airport after the president.`\
 https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
-
-**Yankees planning to add former Cubs official to boost presence in Japan: Sources**\
-`Once a prime spot for top Japanese talent, the Yankees haven’t featured a player from Japan since 2020. `\
-https://nytimes.com/athletic/7000627/2026/02/18/yankees-cubs-official-hiring-japan-presence/
 

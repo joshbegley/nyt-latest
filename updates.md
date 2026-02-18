@@ -1,3 +1,7 @@
+**With New Momentum, Republican States Push Broader Limits for Trans Americans**\
+`In states that once focused mainly on health care and sports for transgender minors, legislators are seeking more sweeping restrictions.`\
+https://nytimes.com/2026/02/18/us/republican-states-transgender-rights-restrictions.html
+
 **Inside the Nick Suzuki decision that kept Team Canada’s Olympic hopes alive**\
 `There was a lot on Nick Suzuki's mind in the late stages of Canada's quarterfinal game, and despite that, his brain made the difference.`\
 https://nytimes.com/athletic/7056199/2026/02/18/nick-suzuki-canada-olympic-mens-hockey-quarterfinals/
