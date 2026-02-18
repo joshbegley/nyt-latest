@@ -1,3 +1,19 @@
+**Canada hangs on to defeat Czechia, reach Olympic men’s hockey semifinals**\
+`The Canadians will play for an Olympic medal after hanging on to defeat the Czech Republic in overtime on Wednesday.`\
+https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
+
+**Remember the German referee who proposed at a football game? The story has taken some dark turns since**\
+`In the weeks since Pacal Kaiser proposed to his boyfriend in Koln, there have been allegations of assault, faking injuries and embezzlement`\
+https://nytimes.com/athletic/7055179/2026/02/18/german-referee-proposal-alleged-assault/
+
+**A look at what three pitchers are working on as the Cubs build rotation depth**\
+`Here are three names the Cubs hope can bounce back from up-and-down seasons and contribute positively in 2026.`\
+https://nytimes.com/athletic/7053313/2026/02/18/a-look-at-what-three-pitchers-are-working-on-as-the-cubs-build-rotation-depth/
+
+**When a Government Tracks Its Opponents**\
+`The Department of Homeland Security’s tracking of opponents of ICE. Also: Antislavery Americans; Native American pain; hazing laws; sympathy from Canada.`\
+https://nytimes.com/2026/02/18/opinion/homeland-security-dept-ice.html
+
 **First Rule of Navigating Antarctic Seas? ‘Don’t Disobey the Ice.’**\
 `Even with a sturdy ship and the help of satellite images, negotiating the frozen ocean requires a dose of humility before nature’s might.`\
 https://nytimes.com/2026/02/18/climate/antarctica-araon-captain.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-g
 **Why Don’t We Know How Many People Are Homeless?**\
 `In our conversation about numbers that explain the world, we’re looking at the point-in-time count.`\
 https://nytimes.com/2026/02/18/headway/homelessness-numbers-pit-count-report.html
-
-**Why the NFL's flag football surge will lead a billion-dollar category: MoneyCall**\
-`This week's free sports business cheat sheet from The Athletic`\
-https://nytimes.com/athletic/7055402/2026/02/18/nfl-flag-football-olympics-moneycall/
-
-**The Castle Peak region is a popular Northern California backcountry spot.**\
-`By Laurel Rosenhall`\
-https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/the-castle-peak-region-is-a-popular-northern-california-backcountry-spot
-
-**What Do A.I. Chatbots Talk About Among Themselves? We Sent One to Find Out.**\
-`We interviewed our bot about what it learned on Moltbook, the A.I.-only social network.`\
-https://nytimes.com/2026/02/18/upshot/moltbook-artificial-intelligence-ai.html
-
-**N.I.H. Director Will Temporarily Run C.D.C. in Leadership Shake-Up**\
-`Dr. Jay Bhattacharya will serve as acting director of the Centers for Disease Control and Prevention until President Trump appoints a permanent director.`\
-https://nytimes.com/2026/02/18/us/politics/bhattacharya-kennedy-cdc-director.html
 
