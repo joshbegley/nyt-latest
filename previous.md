@@ -1,3 +1,7 @@
+**The Pulse: Is baseball headed for doom?**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7054390/2026/02/18/tony-clark-mlbpa-resign-the-pulse/
+
 **Why the Knicks' Landry Shamet might be the best vet-minimum signing in the NBA**\
 `Landry Shamet, the pro's pro, is key to New York reaching its goals.`\
 https://nytimes.com/athletic/7050616/2026/02/18/knicks-landry-shamet-signing-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052752/2026/02/18/nolan-ryan-bloody-jersey-giveawa
 **College hoops thoughts: Michigan is every bit No. 1; brutal night for Texas Tech**\
 `Plus, NC State "bedazzles" North Carolina, Iowa gets ranked win, Mick Cronin ejects his own player and Saint Louis goes down.`\
 https://nytimes.com/athletic/7054350/2026/02/18/michigan-purdue-texas-tech-college-basketball/
-
-**Storylines that define the rest of NBA regular season: Embiid's health, MVP race and more**\
-`The Rookie of the Year and Most Improved Player races are far from over, while the Knicks and Cavaliers face pressure to end the season.`\
-https://nytimes.com/athletic/7052663/2026/02/18/nba-storylines-second-half-season-embiid-mvp/
 

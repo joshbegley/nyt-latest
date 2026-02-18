@@ -1,3 +1,7 @@
+**The Pulse: Is baseball headed for doom?**\
+`Welcome to The Pulse, The Athletic's daily newsletter.`\
+https://nytimes.com/athletic/7054390/2026/02/18/tony-clark-mlbpa-resign-the-pulse/
+
 **Why the Knicks' Landry Shamet might be the best vet-minimum signing in the NBA**\
 `Landry Shamet, the pro's pro, is key to New York reaching its goals.`\
 https://nytimes.com/athletic/7050616/2026/02/18/knicks-landry-shamet-signing-nba/
