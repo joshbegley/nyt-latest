@@ -1,3 +1,7 @@
+**Elon Musk’s xAI Gets $3 Billion Investment From Saudi-Backed A.I. Firm**\
+`Humain, which was created by Crown Prince Mohammed bin Salman last year, said it made the investment just before xAI was acquired by SpaceX, Mr. Musk’s rocket company.`\
+https://nytimes.com/2026/02/18/business/xai-humain-saudi-musk-spacex.html
+
 **What I'm seeing from the Penguins: Kris Letang healthy, Evgeni Malkin not talking**\
 `With Letang almost ready to go and Filip Hållander improving, the Penguins are feeling good about their playoff push.`\
 https://nytimes.com/athletic/7054163/2026/02/18/penguins-kris-letang-evgeni-malkin-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/technology/personaltech/free-live-tv-mobile-apps.
 **What Does ‘God-Centered’ Education Have to Do with Public School?**\
 `Linda McMahon is shocked — shocked! — that there’s been a backlash to the Department of Education’s ‘History Rocks!’ tour.`\
 https://nytimes.com/2026/02/18/opinion/history-rocks-tour.html
-
-**I Receive So Many Angry Text Messages! How Can I Make Them Stop?**\
-`Sick and tired of feeling like a receptacle for others’ negative emotions, a reader is desperate to stem the tide of foul-tempered texts.`\
-https://nytimes.com/2026/02/18/style/unwanted-negative-texts.html
 
