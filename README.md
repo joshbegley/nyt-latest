@@ -1,3 +1,7 @@
+**At These Gaza Schools, ‘Peace Building’ Is Part of the Curriculum**\
+`A fast-growing network of private schools, the brainchild of a North Carolina neurosurgeon, is teaching 9,000 war orphans and other needy Palestinian youngsters.`\
+https://nytimes.com/2026/02/18/world/middleeast/gaza-schools-peace-curriculum.html
+
 **Power Shift in Syria Upends an Archipelago for ISIS Prisoners**\
 `America’s Kurdish allies oversaw two dozen sites holding thousands of members of the terrorist group and their families. Their withdrawal has left the system in chaos.`\
 https://nytimes.com/2026/02/18/world/middleeast/syria-prisons-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050616/2026/02/18/knicks-landry-shamet-signing-nba
 **Lions big board: Analyzing potential targets at No. 17 and on Day 2**\
 `Offensive tackle, edge rusher and the secondary figure to be positions the Lions could target in the 2026 NFL Draft.`\
 https://nytimes.com/athletic/7053862/2026/02/18/detroit-lions-nfl-draft-big-board-first-round/
-
-**Cowboys big board: 20 potential first-round targets focus mostly on defense**\
-`While defense — specifically linebacker, edge rusher and defensive back — will be a draft priority, the Cowboys could also eye OT.`\
-https://nytimes.com/athletic/7053843/2026/02/18/cowboys-nfl-draft-big-board-first-round/
 
