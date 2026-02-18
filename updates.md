@@ -1,3 +1,7 @@
+**Don't mention the C word: The battle to keep Wrexham's focus on the league, not Chelsea**\
+`The manager has experience of causing major cup upsets – and history suggests he can make sure league form is not affected`\
+https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
+
 **How James Justin has gone from versatile backup to Leeds' secret weapon**\
 `The one-cap England international has shown he can play a part at both ends — and on either side — of the pitch`\
 https://nytimes.com/athletic/7052408/2026/02/18/james-justin-leeds-box-runs/
