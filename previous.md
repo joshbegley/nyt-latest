@@ -1,3 +1,7 @@
+**Jaden Rashada settles NIL suit against Billy Napier, Florida booster**\
+`The former blue-chip quarterback's NIL deal with Florida, worth $13.85 million, never materialized. `\
+https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-florida-billy-napier/
+
 **As full-squad workouts begin, Dodgers ready to repeat — even with pitching questions**\
 `Andrew Friedman said the Dodgers will watch the pitchers' progress closely to "make sure we're not stepping on anybody too aggressively."`\
 https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching-outook/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053429/2026/02/17/sherrone-moore-michigan-hearing-
 **Goldman Sachs to Drop D.E.I. Criteria for Board Members**\
 `The move would be the Wall Street firm’s latest retreat from diversity mandates that its chief executive, David Solomon, had once made a priority.`\
 https://nytimes.com/2026/02/17/business/goldman-sachs-diversity-board.html
-
-**Netanyahu Plays Trump and American Jews for Fools — Again**\
-`Netanyahu has gotten Trump to focus on Iran and ignore the destructive things Bibi is doing in Gaza, in the West Bank and inside Israel.`\
-https://nytimes.com/2026/02/17/opinion/israel-iran-netanyahu.html
 

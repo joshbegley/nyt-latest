@@ -1,3 +1,7 @@
+**Rich Bisaccia steps down as Packers special teams coordinator**\
+`Bisaccia, who had been an NFL special teams coordinator since 2002, just finished his fourth season with the Packers.`\
+https://nytimes.com/athletic/7053874/2026/02/17/rich-bisaccia-steps-down-packers-special-teams-coordinator/
+
 **Jaden Rashada settles NIL suit against Billy Napier, Florida booster**\
 `The former blue-chip quarterback's NIL deal with Florida, worth $13.85 million, never materialized. `\
 https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-florida-billy-napier/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/politics/jesse-jackson-neighbor-chicago.html
 **Judge grants Sherrone Moore hearing to challenge validity of arrest**\
 `Sherrone Moore’s lawyer argued that a detective omitted important facts when obtaining the former Michigan coach's arrest warrant.`\
 https://nytimes.com/athletic/7053429/2026/02/17/sherrone-moore-michigan-hearing-judge-charges/
-
-**Goldman Sachs to Drop D.E.I. Criteria for Board Members**\
-`The move would be the Wall Street firm’s latest retreat from diversity mandates that its chief executive, David Solomon, had once made a priority.`\
-https://nytimes.com/2026/02/17/business/goldman-sachs-diversity-board.html
 
