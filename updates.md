@@ -1,3 +1,11 @@
+**What I'm seeing from the Penguins: Kris Letang healthy, Evgeni Malkin not talking**\
+`With Letang almost ready to go and Filip Hållander improving, the Penguins are feeling good about their playoff push.`\
+https://nytimes.com/athletic/7054163/2026/02/18/penguins-kris-letang-evgeni-malkin-olympics/
+
+**As Trump Obliterates Climate Efforts, States Try to Fill the Gap**\
+`Across the country, Democratic-led states are accelerating their initiatives to cut greenhouse gas emissions. Their role just became much more important.`\
+https://nytimes.com/2026/02/18/climate/trump-climate-policies-states.html
+
 **Mikaela Shiffrin exorcises ghost of Olympic past.**\
 `After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
 https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
