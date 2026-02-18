@@ -1,3 +1,11 @@
+**Rachel Zoe Never Wanted to Be Famous**\
+`The woman who made stylists into celebrities is back where it all started — reality TV.`\
+https://nytimes.com/2026/02/18/style/rachel-zoe-new-york-fashinn-week-styists.html
+
+**Russia’s Exile From World Sports Will End Next Month at Paralympics**\
+`Six Russian athletes and four Belarusians will be allowed to represent their nations, officials said. The decision could pave the way for a Russian team to compete at the 2028 Summer Games in Los Angeles.`\
+https://nytimes.com/2026/02/18/world/europe/russia-paralympics-italy.html
+
 **‘Billy Preston’ Review: A Unique and Tortured Talent**\
 `The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
 https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/theater/dracula-cynthia-erivo.html
 **The Bounce: The Pistons have the NBA's best record. Why don't we trust them?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7054857/2026/02/18/pistons-best-record-west-eat-the-bounce/
-
-**What’s in Our Queue? ‘All Creatures Great and Small’ and More**\
-`Text by Shawn Hubler`\
-https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures
-
-**San Francisco 49ers will play in Mexico City in 2026**\
-`This will be the team's third time playing in Mexico City since the NFL staged its first international game there in 2005.`\
-https://nytimes.com/athletic/7054808/2026/02/18/nfl-san-francisco-49ers-mexico-city-2026/
 
