@@ -1,3 +1,7 @@
+**Rich Bisaccia steps down as Packers special teams coordinator**\
+`Bisaccia, who had been an NFL special teams coordinator since 2002, just finished his fourth season with the Packers.`\
+https://nytimes.com/athletic/7053874/2026/02/17/rich-bisaccia-steps-down-packers-special-teams-coordinator/
+
 **Jaden Rashada settles NIL suit against Billy Napier, Florida booster**\
 `The former blue-chip quarterback's NIL deal with Florida, worth $13.85 million, never materialized. `\
 https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-florida-billy-napier/
