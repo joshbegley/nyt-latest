@@ -1,3 +1,27 @@
+**With a push from the NFL, flag football's breakthrough is here. What happens next?**\
+`The buzz around flag football — and the NFL’s investment in the sport — keeps growing, with the 2028 Summer Olympics on the horizon.`\
+https://nytimes.com/athletic/7052881/2026/02/18/flag-football-nfl-olympics-growth/
+
+**NFL free agency: Where do Trey Hendrickson, Daniel Jones, Kenneth Walker rank in top 150?**\
+`Hendrickson tops the list as he prepares to move on from the Bengals, but where does the Super Bowl MVP land?`\
+https://nytimes.com/athletic/7043952/2026/02/18/nfl-2026-free-agent-rankings-best-available/
+
+**From Kayvon Thibodeaux to Dexter Lawrence, a Giants 10-step offseason plan**\
+`A look at how the Giants should approach free agency and the draft ahead of John Harbaugh's first season.`\
+https://nytimes.com/athletic/7051410/2026/02/18/new-york-giants-free-agency-draft-plans/
+
+**Why the world’s best athletes struggle under Olympic pressure — and how they can counter it**\
+`This is not a story about weakness. It's about what happens when the human nervous system confronts a challenge it wasn't designed to face.`\
+https://nytimes.com/athletic/7053155/2026/02/18/ilia-malinin-olympics-pressure-mikaela-shiffrin/
+
+**Which player should the Colts franchise-tag: QB Daniel Jones or WR Alec Pierce?**\
+`The veteran quarterback or the breakout wide receiver? We look at the case for each to be franchise-tagged during this two-week window.`\
+https://nytimes.com/athletic/7053299/2026/02/18/colts-franchise-tag-daniel-jones-alec-pierce/
+
+**Can a gold medal in Milan change Connor Hellebuyck's big-game reputation?**\
+`Would the image of Hellebuyck with an Olympic gold medal slung around his neck be enough to change the narrative?`\
+https://nytimes.com/athletic/7052839/2026/02/18/connor-hellebuyck-olympics-mens-hockey-usa/
+
 **The New York Times International Edition in Print for Thursday, Feb. 19, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/02/18/todays-new-york-times-international-edition
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-vir
 **Democrats Plan to Counter Trump’s Speech to Congress With Rally**\
 `The House Democratic leader has asked rank-and-file members to sit quietly at the speech or skip it altogether, wary of creating a distraction.`\
 https://nytimes.com/2026/02/18/us/politics/democrats-trump-congress.html
-
-**How to Dress for Financial Fraud**\
-`The best dressed character on HBO’s “Industry” also happens to be its most morally compromised.`\
-https://nytimes.com/2026/02/18/style/industry-hbo-fashion.html
-
-**January’s Winter Storm Broke Records. So Do the Heat Bills.**\
-`People are starting to receive eye-popping energy bills after last month’s winter storm — but the cold weather may not be the only source to blame.`\
-https://nytimes.com/2026/02/18/realestate/january-winter-storm-cold-snap-heat-bills.html
-
-**What Happened When My Dad and I Came Out to Each Other**\
-`After we told the truth, our relationship would never be the same.`\
-https://nytimes.com/2026/02/18/podcasts/modern-love-what-happened-when-my-dad-and-i-came-out-to-each-other.html
-
-**Marco Rubio Is Failing Western Civ**\
-`The Declaration of Independence’s powerful vision of equality stands as a chief obstacle to the MAGA right’s effort to consummate its vision of domination.`\
-https://nytimes.com/2026/02/18/opinion/marco-rubio-is-failing-western-civ.html
-
-**$450,000 Homes in Vermont, Georgia and Colorado**\
-`A farmhouse in Jamaica, Vt., a 1930 townhouse in Savannah, Ga., and a cottage in Colorado Springs.`\
-https://nytimes.com/2026/02/18/realestate/jamaica-vermont-savannah-georgia-colorado-springs-home-sales.html
-
-**In the Resistance, We Drive Minivans**\
-`In Minneapolis, people ignore the cold to defend their neighbors from ICE.`\
-https://nytimes.com/2026/02/18/opinion/minneapolis-ice-resistance-minivans.html
 
