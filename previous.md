@@ -1,3 +1,19 @@
+**An Avalanche Near Lake Tahoe Kills at Least 8**\
+`Also, Mark Zuckerberg takes the stand. Here's the latest at the end of Wednesday.`\
+https://nytimes.com/2026/02/18/briefing/an-avalanche-near-lake-tahoe-kills-at-least-8.html
+
+**Iowa apologizes after confrontation between Nebraska's Fred Hoiberg, court-storming fan**\
+`The Big Ten said it discussed the situation with both schools and will take no action with regard to Hoiberg.`\
+https://nytimes.com/athletic/7056236/2026/02/18/iowa-nebraska-basketball-fred-hoiberg-fan-cellphone/
+
+**Search crews reached the survivors but couldn’t recover the dead skiers’ bodies.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/search-crews-reached-the-survivors-but-couldnt-recover-the-dead-skiers-bodies
+
+**Team USA knocks out Sweden in overtime to reach Olympic men's hockey semifinals**\
+`The Americans will play for an Olympic medal after Quinn Hughes played the hero in overtime on Wednesday night in Milan.`\
+https://nytimes.com/athletic/7056054/2026/02/18/usa-sweden-olympics-mens-hockey/
+
 **With New Momentum, Republican States Push Broader Limits for Trans Americans**\
 `In states that once focused mainly on health care and sports for transgender minors, legislators are seeking more sweeping restrictions.`\
 https://nytimes.com/2026/02/18/us/republican-states-transgender-rights-restrictions.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7050527/2026/02/18/wolves-arsenal-result-saka-goals
 **Inside the Birthplace of Your Favorite Technology**\
 `How Bell Labs shaped cellphones, satellites, video calls and A.I. technology.`\
 https://nytimes.com/interactive/2026/02/18/technology/bell-labs-history.html
-
-**How will Twins replace Pablo López? In-house options, free agents and present vs. future**\
-`Are the Twins better off leaning on the young starters they have in place or should they go last-minute shopping for a veteran free agent?`\
-https://nytimes.com/athletic/7054527/2026/02/18/twins-pablo-lopez-rotation-options-replacements/
-
-**Jo Ann Bass, Matriarch of Joe’s Stone Crab in Miami Beach, Dies at 94**\
-`For decades, she oversaw a money-gushing South Florida restaurant that has drawn celebrities like Frank Sinatra, Muhammad Ali and Madonna.`\
-https://nytimes.com/2026/02/18/dining/jo-ann-bass-dead.html
-
-**Mets' next talent wave is in big-league camp. What are prospects working on?**\
-`Ryan Clifford ranks among the promising players drawing attention in Mets camp. Let's look at four prospects on the rise.`\
-https://nytimes.com/athletic/7056011/2026/02/18/new-york-mets-prospects-ryan-clifford/
-
-**Donald J. Trump International Airport? The President’s Company Trademarked It.**\
-`The Trump organization said the move was necessary to protect the brand as Florida prepares to rename an airport after the president.`\
-https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
 
