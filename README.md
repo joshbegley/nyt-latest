@@ -1,3 +1,7 @@
+**‘It feels like you are in concrete.’ A Swiss guide describes being caught in an avalanche.**\
+`By Sabrina Tavernise`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/it-feels-like-you-are-in-concrete-a-swiss-guide-describes-being-caught-in-an-avalanche
+
 **The Hockey Rivalry That’s More Than Heated**\
 `When the U.S. plays Canada in the Olympic women’s final, there will be much more than a gold medal at stake.`\
 https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055940/2026/02/18/st-john-s-vs-marquette-stream-ho
 **How to watch BYU vs. Arizona men's basketball: Time, TV, streaming**\
 `Find out how to watch the BYU Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7055938/2026/02/18/byu-vs-arizona-stream-how-to-watch-feb-18/
-
-**How to watch Vanderbilt vs. Missouri men's basketball: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055936/2026/02/18/vanderbilt-vs-missouri-stream-how-to-watch-feb-18/
 

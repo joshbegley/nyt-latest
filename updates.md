@@ -1,3 +1,7 @@
+**The Hockey Rivalry That’s More Than Heated**\
+`When the U.S. plays Canada in the Olympic women’s final, there will be much more than a gold medal at stake.`\
+https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canada.html
+
 **Tiny Love Stories: ‘I Wrote Immediately and Effusively’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/02/18/style/tiny-modern-love-stories-i-wrote-immediately-and-effusively.html
