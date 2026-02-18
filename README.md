@@ -1,3 +1,12 @@
+**Administration Increases Scrutiny of Noncitizen Voting, Pursuing a Trump Claim**\
+`The move is part of an extraordinary all-fronts effort to insert federal law enforcement into the machinery of American elections ahead of the midterms.`\
+https://nytimes.com/2026/02/18/us/politics/voting-trump-immigrants-midterms.html
+
+**Triangle of Innovation**\
+`A Tour Through North Carolina Shows Lenovo and Intel’s Commitment to Powering Progress in North America
+`\
+https://nytimes.com/paidpost/lenovo/triangle-of-innovation.html
+
 **Bruins’ Pavel Zacha on a broken Czech Olympic dream: 'Hard to watch'**\
 `Pavel Zacha, who missed the Olympics due to injury, could have been a difference-maker in Czechia’s 4-3 overtime loss to Canada.`\
 https://nytimes.com/athletic/7055760/2026/02/18/pavel-zacha-bruins-czech-olympic-injury/
@@ -25,12 +34,4 @@ https://nytimes.com/athletic/7050526/2026/02/18/newcastle-nick-woltemade-future-
 **Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
 `After a loss Sunday, the Green Bay coach slammed his hands on the table while questioning the officiating. He issued an apology Wednesday.`\
 https://nytimes.com/athletic/7055764/2026/02/18/doug-gottlieb-suspended-horizon-league-green-bay/
-
-**Mark Zuckerberg Says Instagram Is Valuable, Not Harmful, in Landmark Tech Addiction Trial**\
-`Meta’s chief executive said users spent a lot of time on the app because of its value, as he was grilled about child safety issues in front of a jury.`\
-https://nytimes.com/2026/02/18/technology/mark-zuckerberg-tech-addiction-trial.html
-
-**Fed Minutes Show No Rush to Restart Rate Cuts, and Even Possibility of Hikes**\
-`Barring a rapid deterioration in the labor market or a significant cooling of inflation, the Federal Reserve appears poised for an extended hold.`\
-https://nytimes.com/2026/02/18/business/economy/fed-officials-minutes-interest-rates.html
 
