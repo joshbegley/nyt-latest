@@ -1,3 +1,15 @@
+**Donald J. Trump International Airport? The President’s Company Trademarked It.**\
+`The Trump organization said the move was necessary to protect the brand as Florida prepares to rename an airport after the president.`\
+https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
+
+**Yankees planning to add former Cubs official to boost presence in Japan: Sources**\
+`Once a prime spot for top Japanese talent, the Yankees haven’t featured a player from Japan since 2020. `\
+https://nytimes.com/athletic/7000627/2026/02/18/yankees-cubs-official-hiring-japan-presence/
+
+**Daniel Radcliffe Doesn’t Want His Son to Know He Played Harry Potter**\
+`Daniel Radcliffe, who returns to Broadway in “Every Brilliant Thing,” shared how his love for the “The Simpsons” has endured over the years and he revealed which books he is reading to his son.`\
+https://nytimes.com/video/arts/100000010692517/daniel-radcliffe-every-beautiful-thing-books-tv.html
+
 **Workplace Inspections by OSHA Dropped Over a Six-Month Period of 2025**\
 `Labor advocates worry that the Trump administration is relaxing oversight of companies and increasing the potential for serious injuries and deaths.`\
 https://nytimes.com/2026/02/18/us/politics/workplace-inspections-decrease-osha.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7055527/2026/02/18/mikaela-shiffrin-winter-olympics
 **The Country Betting on Immigrants**\
 `Spain may have a solution to the backlash against migrants in many wealthy countries.`\
 https://nytimes.com/2026/02/18/world/spain-immigration-isis-prison-syria.html
-
-**"I Had No Idea How to Handle That”: The Drama Behind a Tense Ice Skating Moment**\
-`In 1994, the Olympics were rocked by a giant skating scandal. When it was all over, three athletes waited for their medals.`\
-https://nytimes.com/interactive/2026/02/18/magazine/olympics-historic-photo-baiul-kerrigan-chen.html
-
-**Twins 'hunt for good' in wake of Pablo López's possible season-ending injury**\
-`New manager Derek Shelton won't discount the impact of López's injury but also thinks there's a chance for someone else to step up.`\
-https://nytimes.com/athletic/7055971/2026/02/18/twins-reaction-pablo-lopez-elbow-injury-ucl/
-
-**Texas Tech star forward JT Toppin suffers season-ending injury**\
-`An MRI confirmed a torn ACL in Texas Tech forward JT Toppin's right knee.`\
-https://nytimes.com/athletic/7056035/2026/02/18/jt-toppin-texas-tech-injury-season-ending/
 
