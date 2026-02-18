@@ -1,3 +1,19 @@
+**Should pros be allowed to return to college basketball? NBA players weigh in**\
+`"Absolutely not," said one NBA player about the idea.`\
+https://nytimes.com/athletic/7051575/2026/02/18/nba-college-basketball-pros-return/
+
+**Poor infield defense has plagued the Red Sox. This is how they're addressing it**\
+`Last year, Boston's infield group posted minus-21 Outs Above Average. Only four teams were worse.`\
+https://nytimes.com/athletic/7053637/2026/02/18/red-sox-infield-defense-drills-improvement-plan/
+
+**Men's college basketball mailbag: ACC coaches on hot seat, Big East's nadir and more**\
+`Plus: Is there a better way for college basketball to do scheduling?`\
+https://nytimes.com/athletic/7054288/2026/02/18/college-basketball-mailbag-acc-big-east-ncaa-tournament/
+
+**UEFA opens investigation into Vinicius Jr allegations, Prestianni likely available for 2nd leg**\
+`Benfica's 1-0 loss against Real Madrid was stopped for around eight minutes after the alleged abuse was reported. `\
+https://nytimes.com/athletic/7054550/2026/02/18/vinicius-junior-racism-benfica-real-madrid-uefa-investigation/
+
 **Can Ohio State sign the No. 1 recruiting class after a strong start for 2027?**\
 `Ohio State has already made an early splash in the 2027 football recruiting cycle. Here are five thoughts on where the Buckeyes stand.`\
 https://nytimes.com/athletic/7052832/2026/02/18/ohio-state-recruiting-class-2027-rankings/
@@ -7,7 +23,7 @@ https://nytimes.com/athletic/7052832/2026/02/18/ohio-state-recruiting-class-2027
 https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
 
 **Su Yiming wins China's first gold of the 2026 Winter Olympics on his birthday**\
-`Su Yiming won gold in the men's snowboard slopestyle, with Team USA's Jake Canter taking bronze. `\
+`Su Yiming won gold in the men's snowboard slopestyle, while Team USA's Jake Canter took bronze. `\
 https://nytimes.com/athletic/7054532/2026/02/18/su-yiming-jake-canter-mens-snowboard-slopestyle-2026-winter-olympics/
 
 **Justin Crawford loves the art of bunting. He aims to embrace it with the Phillies**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7053127/2026/02/18/yankees-international-scouting-d
 **Grading the Big Ten's transfer portal classes, from Indiana's ‘A’ to Michigan State's ‘D+’**\
 `The defending national champs filled some big holes in the portal, most notably at quarterback with the arrival of Josh Hoover from TCU.`\
 https://nytimes.com/athletic/7042606/2026/02/18/big-ten-transfer-portal-grades-indiana-michigan-state-ohio-state/
-
-**'Minicamp' will allow Rick Bowness to further put his stamp on Blue Jackets**\
-`With only two players in Milan and a daunting March schedule, the Blue Jackets are set for much-needed time with their new coach.`\
-https://nytimes.com/athletic/7050791/2026/02/18/blue-jackets-bowness-mini-camp-olympics/
-
-**Steve Kerr calls Kristaps Porzingis 'an easy fit' ahead of expected Warriors debut**\
-`One more practice will determine if Porzingis is able to make his planned first appearance for Golden State Thursday against the Celtics.`\
-https://nytimes.com/athletic/7054382/2026/02/18/steve-kerr-kristaps-porzingis-warriors/
-
-**Giants spring training: 5 biggest position battles in camp**\
-`The Giants' starting lineup and rotation are mostly set, but there are still significant battles for roster spots going on in Scottsdale.`\
-https://nytimes.com/athletic/7053489/2026/02/18/sf-giants-biggest-position-battles-spring-training/
-
-**What I'm seeing in Giants camp: A power pitcher, an Ohtani stopper and a boomerang**\
-`The Giants are conducting a wide-open bullpen competition and don't have many candidates with swing-and-miss stuff.`\
-https://nytimes.com/athletic/7054314/2026/02/18/giants-spring-training-bullpen-carson-seymour/
 
