@@ -1,3 +1,7 @@
+**F.D.A. Reverses Decision and Agrees to Review Moderna’s Flu Vaccine**\
+`Moderna said it had held further discussions with regulators and announced that the agency would accept the company’s application for approval of its flu vaccine that uses mRNA technology.`\
+https://nytimes.com/2026/02/18/health/fda-moderna-flu-vaccine-mrna.html
+
 **When the Difference Between Olympic Gold and Silver Is Razor-Thin**\
 `The difference between first and second place in several events at the 2026 Winter Games has come down to margins unthinkably small. The dramatic finishes have thrilled spectators and left some competitors stunned.`\
 https://nytimes.com/interactive/2026/02/18/sports/milan-olympics-gold-silver-medal-close.html
