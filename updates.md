@@ -1,3 +1,16 @@
+**Administration Increases Scrutiny of Noncitizen Voting, Pursuing a Trump Claim**\
+`The move is part of an extraordinary all-fronts effort to insert federal law enforcement into the machinery of American elections ahead of the midterms.`\
+https://nytimes.com/2026/02/18/us/politics/voting-trump-immigrants-midterms.html
+
+**Triangle of Innovation**\
+`A Tour Through North Carolina Shows Lenovo and Intel’s Commitment to Powering Progress in North America
+`\
+https://nytimes.com/paidpost/lenovo/triangle-of-innovation.html
+
+**Bruins’ Pavel Zacha on a broken Czech Olympic dream: 'Hard to watch'**\
+`Pavel Zacha, who missed the Olympics due to injury, could have been a difference-maker in Czechia’s 4-3 overtime loss to Canada.`\
+https://nytimes.com/athletic/7055760/2026/02/18/pavel-zacha-bruins-czech-olympic-injury/
+
 **In Olympic curling, Great Britain deals U.S. a blow ... and now both sit and wait**\
 `Great Britain's Bruce Mouat led a win over Danny Casper's American squad. Both now will watch tomorrow's final session to learn their fate.`\
 https://nytimes.com/athletic/7055133/2026/02/18/winter-olympics-curling-great-britain-us-playoffs/

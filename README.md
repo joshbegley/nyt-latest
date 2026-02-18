@@ -1,3 +1,27 @@
+**How to watch Gonzaga vs. San Francisco men's basketball: Time, TV, streaming**\
+`Find out how to watch the Gonzaga Bulldogs play the San Francisco Dons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055931/2026/02/18/gonzaga-vs-san-francisco-stream-how-to-watch-feb-18/
+
+**How to watch Illinois vs. USC men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055932/2026/02/18/illinois-vs-usc-stream-how-to-watch-feb-18/
+
+**How to watch TCU vs. Houston women's basketball: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055927/2026/02/18/tcu-vs-houston-stream-how-to-watch-feb-18/
+
+**How to watch Ohio State vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7055925/2026/02/18/ohio-state-vs-minnesota-stream-how-to-watch-feb-18/
+
+**Ex-C.E.O. Says Epstein ‘Conned’ Him, but Democrats Are Skeptical**\
+`House Republicans skipped a deposition with Leslie Wexner, the retail billionaire, and Democrats said his answers were not credible.`\
+https://nytimes.com/2026/02/18/us/politics/wexner-epstein-deposition.html
+
+**In Guthrie Mystery, Rampant Speculation Is Like ‘Salt on the Open Wound’**\
+`True crime obsessives, internet theorizers and livestreamers are complicating the investigation of the kidnapping of Nancy Guthrie, the mother of the “Today” show host Savannah Guthrie.`\
+https://nytimes.com/2026/02/18/us/nancy-guthrie-kidnapping-theories-true-crime.html
+
 **Administration Increases Scrutiny of Noncitizen Voting, Pursuing a Trump Claim**\
 `The move is part of an extraordinary all-fronts effort to insert federal law enforcement into the machinery of American elections ahead of the midterms.`\
 https://nytimes.com/2026/02/18/us/politics/voting-trump-immigrants-midterms.html
@@ -14,24 +38,4 @@ https://nytimes.com/athletic/7055760/2026/02/18/pavel-zacha-bruins-czech-olympic
 **In Olympic curling, Great Britain deals U.S. a blow ... and now both sit and wait**\
 `Great Britain's Bruce Mouat led a win over Danny Casper's American squad. Both now will watch tomorrow's final session to learn their fate.`\
 https://nytimes.com/athletic/7055133/2026/02/18/winter-olympics-curling-great-britain-us-playoffs/
-
-**The MAHA Coalition Is Falling Apart**\
-`A political movement cannot survive on spite alone.`\
-https://nytimes.com/2026/02/18/opinion/kennedy-maha-moderna.html
-
-**Jesse Jackson’s Wardrobe Was Also the Message**\
-`From dashikis to turtlenecks to leisure suits, he was never worried about looking like he worked at a bank.`\
-https://nytimes.com/2026/02/18/opinion/jesse-jackson-style-fashion.html
-
-**E.P.A. Plans to Loosen Mercury Rules for Coal Plants, Documents Show**\
-`Senior officials at the Environmental Protection Agency are expected to announce the move on Friday, according to people briefed on the matter.`\
-https://nytimes.com/2026/02/18/climate/epa-mercury-coal-plants.html
-
-**The Briefing: Qarabag 1 Newcastle 6 - Gordon's four-goal display, Woltemade happy where he is**\
-`Anthony Gordon hit four goals as Newcastle United overcame Qarabag with a 6-1 win in their Champions League play-off first leg`\
-https://nytimes.com/athletic/7050526/2026/02/18/newcastle-nick-woltemade-future-anthony-gordon/
-
-**Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
-`After a loss Sunday, the Green Bay coach slammed his hands on the table while questioning the officiating. He issued an apology Wednesday.`\
-https://nytimes.com/athletic/7055764/2026/02/18/doug-gottlieb-suspended-horizon-league-green-bay/
 
