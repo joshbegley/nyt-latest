@@ -1,3 +1,7 @@
+**NC State fans chant 'No means no' at UNC's Zayden High during rivalry win**\
+`High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amidst allegations of sexual misconduct.`\
+https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/
+
 **What went wrong for Amber Glenn in the short program: The invalid element explained**\
 `Had Glenn fallen, she would have had an automatic one-point deduction — a better outcome than the zero earned for an invalid element.`\
 https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-short-program-milan-olympics-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-flo
 **As full-squad workouts begin, Dodgers ready to repeat — even with pitching questions**\
 `Andrew Friedman said the Dodgers will watch the pitchers' progress closely to "make sure we're not stepping on anybody too aggressively."`\
 https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching-outook/
-
-**How a Stray Quote of Jesse Jackson’s Led to a Rupture Between Black and Jewish Voters**\
-`The candidate’s reference to New York as “Hymietown” helped tank his 1984 presidential campaign and eroded a longstanding alliance.`\
-https://nytimes.com/2026/02/17/us/jesse-jackson-1984-presidential-campaign.html
 
