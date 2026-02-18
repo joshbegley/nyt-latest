@@ -1,3 +1,19 @@
+**Inside the Birthplace of Your Favorite Technology**\
+`How Bell Labs shaped cellphones, satellites, video calls and A.I. technology.`\
+https://nytimes.com/interactive/2026/02/18/technology/bell-labs-history.html
+
+**How will Twins replace Pablo López? In-house options, free agents and present vs. future**\
+`Are the Twins better off leaning on the young starters they have in place or should they go last-minute shopping for a veteran free agent?`\
+https://nytimes.com/athletic/7054527/2026/02/18/twins-pablo-lopez-rotation-options-replacements/
+
+**Jo Ann Bass, Matriarch of Joe’s Stone Crab in Miami Beach, Dies at 94**\
+`For decades, she oversaw a money-gushing South Florida restaurant that has drawn celebrities like Frank Sinatra, Muhammad Ali and Madonna.`\
+https://nytimes.com/2026/02/18/dining/jo-ann-bass-dead.html
+
+**Mets' next talent wave is in big-league camp. What are prospects working on?**\
+`Ryan Clifford ranks among the promising players drawing attention in Mets camp. Let's look at four prospects on the rise.`\
+https://nytimes.com/athletic/7056011/2026/02/18/new-york-mets-prospects-ryan-clifford/
+
 **Donald J. Trump International Airport? The President’s Company Trademarked It.**\
 `The Trump organization said the move was necessary to protect the brand as Florida prepares to rename an airport after the president.`\
 https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
@@ -6,7 +22,7 @@ https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
 `Once a prime spot for top Japanese talent, the Yankees haven’t featured a player from Japan since 2020. `\
 https://nytimes.com/athletic/7000627/2026/02/18/yankees-cubs-official-hiring-japan-presence/
 
-**Daniel Radcliffe Doesn’t Want His Son to Know He Played Harry Potter**\
+**Daniel Radcliffe Doesn’t Want His Son to Know He Played Harry Potter. At Least Not Yet.**\
 `Daniel Radcliffe, who returns to Broadway in “Every Brilliant Thing,” shared how his love for the “The Simpsons” has endured over the years and he revealed which books he is reading to his son.`\
 https://nytimes.com/video/arts/100000010692517/daniel-radcliffe-every-beautiful-thing-books-tv.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7056020/2026/02/18/lions-rod-wood-retiring-presiden
 **David Hays, 95, Dies; Top Broadway Designer and Theater of Deaf Founder**\
 `He created sets and lighting for dozens of productions, including “Long Day’s Journey Into Night,” and established a new art form with his theater of the deaf, combining sign and spoken language.`\
 https://nytimes.com/2026/02/18/theater/david-hays-dead.html
-
-**Journalists Arrested in Cameroon While Reporting on Trump’s Secretive Deportation Program**\
-`An Associated Press reporter was beaten and held with three other journalists and a lawyer, two detainees said, while at a center for migrants secretively deported from the United States.`\
-https://nytimes.com/2026/02/18/world/africa/cameroon-journalists-arrested-deportees.html
-
-**Kings' Domantas Sabonis to miss rest of season with torn meniscus: Source**\
-`The three-time All-Star hasn't played since Feb. 4 and will finish the season having played in a career-low 19 games.`\
-https://nytimes.com/athletic/7056082/2026/02/18/domantas-sabonis-kings-season-ending-knee-surgery/
-
-**For Mikaela Shiffrin, at last, another beautiful day at the Olympics**\
-`It had been eight years since Shiffrin won an Olympic medal. On Wednesday, she stuffed that storyline right into a Cortina trash can.`\
-https://nytimes.com/athletic/7055527/2026/02/18/mikaela-shiffrin-winter-olympics-gold-medal-slalom-drought/
-
-**The Country Betting on Immigrants**\
-`Spain may have a solution to the backlash against migrants in many wealthy countries.`\
-https://nytimes.com/2026/02/18/world/spain-immigration-isis-prison-syria.html
 
