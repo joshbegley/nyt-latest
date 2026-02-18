@@ -1,3 +1,7 @@
+**"I Had No Idea How to Handle That”: The Drama Behind a Tense Ice Skating Moment**\
+`In 1994, the Olympics were rocked by a giant skating scandal. When it was all over, three athletes waited for their medals.`\
+https://nytimes.com/interactive/2026/02/18/magazine/olympics-historic-photo-baiul-kerrigan-chen.html
+
 **Twins 'hunt for good' in wake of Pablo López's possible season-ending injury**\
 `New manager Derek Shelton won't discount the impact of López's injury but also thinks there's a chance for someone else to step up.`\
 https://nytimes.com/athletic/7055971/2026/02/18/twins-reaction-pablo-lopez-elbow-injury-ucl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055861/2026/02/18/bruce-meyer-tony-clark-mlb-union
 **We’re Back on Land in New Zealand**\
 `But stay tuned: We’ve still got more to share about this Antarctic expedition, and the next ones scientists are already planning.`\
 https://nytimes.com/2026/02/18/climate/antarctica-expedition-return.html
-
-**Jordan Binnington vindicates Hockey Canada's belief in him with Olympic heroics**\
-`Binnington has been the worst goalie in the NHL this season. But in Canada's nail-biter of an Olympic quarterfinal he made save after save.`\
-https://nytimes.com/athletic/7055834/2026/02/18/jordan-binnington-olympics-mens-hockey-canada/
 

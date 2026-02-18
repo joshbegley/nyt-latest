@@ -1,3 +1,19 @@
+**Twins 'hunt for good' in wake of Pablo López's possible season-ending injury**\
+`New manager Derek Shelton won't discount the impact of López's injury but also thinks there's a chance for someone else to step up.`\
+https://nytimes.com/athletic/7055971/2026/02/18/twins-reaction-pablo-lopez-elbow-injury-ucl/
+
+**Texas Tech star forward JT Toppin suffers season-ending injury**\
+`An MRI confirmed a torn ACL in Texas Tech forward JT Toppin's right knee.`\
+https://nytimes.com/athletic/7056035/2026/02/18/jt-toppin-texas-tech-injury-season-ending/
+
+**Edison Will Reduce Executive Bonuses as a Result of the Eaton Fire**\
+`Southern California Edison had said its electrical equipment most likely caused the blaze, which destroyed much of Altadena, a Los Angeles suburb.`\
+https://nytimes.com/2026/02/18/business/energy-environment/edison-eaton-fire-altadena-executive-bonuses.html
+
+**Etsy Sells Depop, a Secondhand Clothing App Popular With Gen Z, to eBay**\
+`The $1.2 billion deal comes as eBay looks to expand its appeal among younger users.`\
+https://nytimes.com/2026/02/18/business/etsy-depop-ebay.html
+
 **‘It feels like you are in concrete.’ A Swiss guide describes being caught in an avalanche.**\
 `By Sabrina Tavernise`\
 https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/it-feels-like-you-are-in-concrete-a-swiss-guide-describes-being-caught-in-an-avalanche
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/18/climate/antarctica-expedition-return.html
 **Jordan Binnington vindicates Hockey Canada's belief in him with Olympic heroics**\
 `Binnington has been the worst goalie in the NHL this season. But in Canada's nail-biter of an Olympic quarterfinal he made save after save.`\
 https://nytimes.com/athletic/7055834/2026/02/18/jordan-binnington-olympics-mens-hockey-canada/
-
-**6 Versions of ‘Wuthering Heights, 6 Very Different Depictions of Passion**\
-`From Merle Oberon and Laurence Olivier to Margot Robbie and Jacob Elordi nearly a century later, the onscreen connection between Cathy and Heathcliff has taken many turns.`\
-https://nytimes.com/2026/02/18/arts/wuthering-heights-different-movie-versions.html
-
-**How to watch Virginia vs. Georgia Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055944/2026/02/18/virginia-vs-georgia-tech-stream-how-to-watch-feb-18/
-
-**How to watch St. John's vs. Marquette men's basketball: Time, TV, streaming**\
-`Find out how to watch the St. John's Red Storm play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055940/2026/02/18/st-john-s-vs-marquette-stream-how-to-watch-feb-18/
-
-**How to watch BYU vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055938/2026/02/18/byu-vs-arizona-stream-how-to-watch-feb-18/
 
