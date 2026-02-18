@@ -1,3 +1,11 @@
+**‘Billy Preston’ Review: A Unique and Tortured Talent**\
+`The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
+https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html
+
+**JD Vance says Eileen Gu should be representing the U.S. at Winter Olympics**\
+`Gu was born in 2003, and her mother, Yan Gu, is a first-generation Chinese immigrant. Her father is American.`\
+https://nytimes.com/athletic/7054922/2026/02/18/eileen-gu-jd-vance-united-states-olympics/
+
 **Why F1's boiling drama over engine compression ratios matters for the 2026 season**\
 `Has Mercedes found a loophole with its engines? And what exactly is the loophole, anyway? `\
 https://nytimes.com/athletic/7054817/2026/02/18/f1-engine-compression-ratio-car-controversy/
@@ -29,12 +37,4 @@ https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures
 **San Francisco 49ers will play in Mexico City in 2026**\
 `This will be the team's third time playing in Mexico City since the NFL staged its first international game there in 2005.`\
 https://nytimes.com/athletic/7054808/2026/02/18/nfl-san-francisco-49ers-mexico-city-2026/
-
-**Slovakia continues magical Olympic run, will play for a medal after bouncing Germany**\
-`What we've seen in Milan is a shocking performance from a young team that’s at least four years ahead of schedule.`\
-https://nytimes.com/athletic/7054928/2026/02/18/slovakia-olympics-mens-hockey-germany-results/
-
-**Chiefs restructure Patrick Mahomes' contract. Here's how their cap situation looks now**\
-`Here's how the Chiefs' salary-cap situation looks now ahead of an important offseason.`\
-https://nytimes.com/athletic/7054946/2026/02/18/chiefs-patrick-mahomes-contract-restructured/
 
