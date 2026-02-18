@@ -1,3 +1,11 @@
+**Boneless Wings Are Still Wings, Judge Rules**\
+`A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
+https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
+
+**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League**\
+`There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
+https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
+
 **Patriots to make Zak Kuhr defensive coordinator: Source**\
 `Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
 https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/

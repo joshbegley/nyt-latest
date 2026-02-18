@@ -1,3 +1,7 @@
+**What went wrong for Amber Glenn in the short program: The invalid element explained**\
+`Had Glenn fallen, she would have had an automatic one-point deduction — a better outcome than the zero earned for an invalid element.`\
+https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-short-program-milan-olympics-explained/
+
 **Boneless Wings Are Still Wings, Judge Rules**\
 `A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
 https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
@@ -6,8 +10,8 @@ https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
 `Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
 https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
 
-**Patriots to make Zak Kuhr defensive coordinator: Source**\
-`Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
+**Patriots to make Zak Kuhr the full-time defensive coordinator: Source**\
+`Kuhr's defense was a major reason the Patriots had so much success in the playoffs, including reaching Super Bowl 60.`\
 https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
 
 **Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching
 **How a Stray Quote of Jesse Jackson’s Led to a Rupture Between Black and Jewish Voters**\
 `The candidate’s reference to New York as “Hymietown” helped tank his 1984 presidential campaign and eroded a longstanding alliance.`\
 https://nytimes.com/2026/02/17/us/jesse-jackson-1984-presidential-campaign.html
-
-**Until Saturday: Weirdest realignment move yet?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-saturday/
 

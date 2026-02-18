@@ -1,3 +1,7 @@
+**Boneless Wings Are Still Wings, Judge Rules**\
+`A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
+https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
+
 **House Plans to Vote on Air Safety Bill After Report on Deadly D.C. Crash**\
 `Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
 https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.htm
 `Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
 https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
 
-**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League tie**\
+**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League**\
 `There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
 https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/us/jesse-jackson-1984-presidential-campaign.html
 **Until Saturday: Weirdest realignment move yet?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-saturday/
-
-**Trump Hails Japan’s First Batch of U.S. Investments**\
-`The deals, totaling $36 billion, were the first step in a $550 billion investment pledge aimed at securing tariff relief and sustaining U.S. relations.`\
-https://nytimes.com/2026/02/17/business/japan-trump-investments.html
 
