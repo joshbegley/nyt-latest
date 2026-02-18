@@ -1,3 +1,11 @@
+**Mikaela Shiffrin exorcises ghost of Olympic past.**\
+`After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
+https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
+
+**NHL Draft prospect Alberts Šmits turns heads with Olympic men's hockey performance**\
+`Šmits’ tournament came to an end on Tuesday when Latvia lost 4-1 to Sweden, but the rangy, physical defenseman left an excellent impression.`\
+https://nytimes.com/athletic/7054756/2026/02/18/alberts-smits-olympics-mens-hockey-latvia-nhl-draft/
+
 **F1 manufacturers to vote on mid-season rule change in engine row**\
 `It emerged that Mercedes has found a potential advantage with its new engine for the 2026 season relating to the compression ratio limits.`\
 https://nytimes.com/athletic/7054823/2026/02/18/f1-engine-rule-change-fia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7054639/2026/02/18/wrexhams-premier-league-and-fa-c
 **F.D.A. Reverses Decision and Agrees to Review Moderna’s Flu Vaccine**\
 `Moderna said it had held further discussions with regulators and announced that the agency would accept the company’s application for approval of its flu vaccine that uses mRNA technology.`\
 https://nytimes.com/2026/02/18/health/fda-moderna-flu-vaccine-mrna.html
-
-**When the Difference Between Olympic Gold and Silver Is Razor-Thin**\
-`The difference between first and second place in several events at the 2026 Winter Games has come down to margins unthinkably small. The dramatic finishes have thrilled spectators and left some competitors stunned.`\
-https://nytimes.com/interactive/2026/02/18/sports/milan-olympics-gold-silver-medal-close.html
-
-**Ukraine's Winter Olympians led out by Russian at opening ceremony**\
-`Anastasia Kucherova, who has lived in Milan for 14 years, asked if she could carry the "Ucraina" sign.`\
-https://nytimes.com/athletic/7054728/2026/02/18/ukraine-opening-ceremony-sign-russia/
 
