@@ -1,4 +1,4 @@
-**Vinicius Jr racism allegations: The protocols, possible punishments and what happens next**\
+**Vinicius Jr racism allegations: The protocols, what happens now and possible punishments**\
 `Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
 https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
 
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/7053273/2026/02/18/nycfc-etihad-park-mls-stadium-ne
 `I can’t picture spending the rest of my career working with him.`\
 https://nytimes.com/2026/02/18/magazine/family-company-cousin-ethics.html
 
-**Sidney Crosby exits Canada's Olympic hockey quarterfinal game vs. Czech Republic**\
+**Sidney Crosby exits Canada's Olympic hockey quarterfinal game with apparent injury**\
 `Crosby left Canada's Olympic hockey quarterfinal game during the second period with an apparent injury and has not returned.`\
 https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
 

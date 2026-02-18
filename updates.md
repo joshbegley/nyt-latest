@@ -1,3 +1,7 @@
+**Vinicius Jr racism allegations: The protocols, possible punishments and what happens next**\
+`Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
+https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
+
 **Fritz Lang’s Silent Epic, the Way It Was Meant to Be Heard**\
 `The monumental, two-film “Die Nibelungen,” drawn from similar material to Wagner’s “Ring,” is best when presented live with a full orchestra.`\
 https://nytimes.com/2026/02/18/arts/music/fritz-lang-die-nibelungen.html
