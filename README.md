@@ -1,3 +1,11 @@
+**In Olympic curling, Great Britain deals U.S. a blow ... and now both sit and wait**\
+`Great Britain's Bruce Mouat led a win over Danny Casper's American squad. Both now will watch tomorrow's final session to learn their fate.`\
+https://nytimes.com/athletic/7055133/2026/02/18/winter-olympics-curling-great-britain-us-playoffs/
+
+**The MAHA Coalition Is Falling Apart**\
+`A political movement cannot survive on spite alone.`\
+https://nytimes.com/2026/02/18/opinion/kennedy-maha-moderna.html
+
 **Jesse Jackson’s Wardrobe Was Also the Message**\
 `From dashikis to turtlenecks to leisure suits, he was never worried about looking like he worked at a bank.`\
 https://nytimes.com/2026/02/18/opinion/jesse-jackson-style-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/business/economy/fed-officials-minutes-interest-r
 **Chiefs' Rashee Rice accused of assault, abuse by mother of his children in lawsuit**\
 `The plaintiff is seeking monetary damages “over $1 million” in the civil lawsuit, according to her attorney.`\
 https://nytimes.com/athletic/7055474/2026/02/18/chiefs-rashee-rice-lawsuit-assault/
-
-**Leicester appoint Gary Rowett as new manager**\
-`The 51-year-old has signed a contract until the end of the season and replaces Marti Cifuentes, who was sacked last month.`\
-https://nytimes.com/athletic/7055664/2026/02/18/leicester-appoint-gary-rowett-manager/
-
-**Kevin Durant brushes off burner accusations: 'Not here to get into Twitter nonsense'**\
-`Suspicions that Durant used burner accounts first surfaced in 2017, when he sent several tweets from his personal Twitter account.`\
-https://nytimes.com/athletic/7054258/2026/02/18/kevin-durant-x-burner-accounts-rockets/
 
