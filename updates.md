@@ -1,3 +1,7 @@
+**Slopping Spot**\
+`Victor Schmitt’s puzzle is picture-perfect.`\
+https://nytimes.com/2026/02/17/crosswords/daily-puzzle-2026-02-18.html
+
 **WNBA players offer lower revenue share, salary cap in latest counterproposal**\
 `Housing — the current CBA requires teams to provide housing to all players — is another issue in the negotiations.`\
 https://nytimes.com/athletic/7054080/2026/02/17/wnba-players-union-cba-negotiations-update-revenue-share-housing/
