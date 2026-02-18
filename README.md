@@ -1,3 +1,7 @@
+**HUD opens discrimination investigation into a Muslim development in Texas.**\
+`A project, including homes and a mosque, has drawn attacks from Republican Texas officials. The Justice Department closed a similar inquiry into the development last year.`\
+https://nytimes.com/live/2026/02/17/us/trump-news/hud-opens-discrimination-investigation-into-a-muslim-development-in-texas
+
 **Slopping Spot**\
 `Victor Schmitt’s puzzle is picture-perfect.`\
 https://nytimes.com/2026/02/17/crosswords/daily-puzzle-2026-02-18.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.htm
 **Patriots to make Zak Kuhr the full-time defensive coordinator: Source**\
 `Kuhr's defense was a major reason the Patriots had so much success in the playoffs, including reaching Super Bowl 60.`\
 https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
-
-**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League**\
-`There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
-https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
 
