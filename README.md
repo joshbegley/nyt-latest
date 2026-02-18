@@ -1,3 +1,7 @@
+**What are the overtime rules in the Olympic hockey tournament?**\
+`The rules change depending on the round, and ultimately the shootout is eliminated.`\
+https://nytimes.com/athletic/7039297/2026/02/18/olympic-hockey-overtime-shootout-rules/
+
 **Backcountry Skiers Carry a Variety of Safety Gear**\
 `Beacons, shovels and probes are necessities in avalanche country.`\
 https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html

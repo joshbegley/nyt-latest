@@ -1,3 +1,24 @@
+**Backcountry Skiers Carry a Variety of Safety Gear**\
+`Beacons, shovels and probes are necessities in avalanche country.`\
+https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html
+
+**Why Don’t We Know How Many People Are Homeless?**\
+`In our conversation about numbers that explain the world, we’re looking at the point-in-time count.`\
+https://nytimes.com/2026/02/18/headway/homelessness-numbers-pit-count-report.html
+
+**Why the NFL's flag football surge will lead a billion-dollar category: MoneyCall**\
+`This week's free sports business cheat sheet from The Athletic`\
+https://nytimes.com/athletic/7055402/2026/02/18/nfl-flag-football-olympics-moneycall/
+
+**The Castle Peak region is a popular Northern California backcountry spot.**\
+`By Laurel Rosenhall`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/the-castle-peak-region-is-a-popular-northern-california-backcountry-spot
+
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
 `Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
 `\
