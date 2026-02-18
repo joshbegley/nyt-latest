@@ -1,3 +1,7 @@
+**Bruins’ Pavel Zacha on a broken Czech Olympic dream: 'Hard to watch'**\
+`Pavel Zacha, who missed the Olympics due to injury, could have been a difference-maker in Czechia’s 4-3 overtime loss to Canada.`\
+https://nytimes.com/athletic/7055760/2026/02/18/pavel-zacha-bruins-czech-olympic-injury/
+
 **In Olympic curling, Great Britain deals U.S. a blow ... and now both sit and wait**\
 `Great Britain's Bruce Mouat led a win over Danny Casper's American squad. Both now will watch tomorrow's final session to learn their fate.`\
 https://nytimes.com/athletic/7055133/2026/02/18/winter-olympics-curling-great-britain-us-playoffs/
@@ -9,10 +13,6 @@ https://nytimes.com/2026/02/18/opinion/kennedy-maha-moderna.html
 **Jesse Jackson’s Wardrobe Was Also the Message**\
 `From dashikis to turtlenecks to leisure suits, he was never worried about looking like he worked at a bank.`\
 https://nytimes.com/2026/02/18/opinion/jesse-jackson-style-fashion.html
-
-**Lorem Ipsum Dolor Sit Amet**\
-`summary`\
-https://nytimes.com/interactive/2026/02/18/us/guthrie-map.html
 
 **E.P.A. Plans to Loosen Mercury Rules for Coal Plants, Documents Show**\
 `Senior officials at the Environmental Protection Agency are expected to announce the move on Friday, according to people briefed on the matter.`\
@@ -33,8 +33,4 @@ https://nytimes.com/2026/02/18/technology/mark-zuckerberg-tech-addiction-trial.h
 **Fed Minutes Show No Rush to Restart Rate Cuts, and Even Possibility of Hikes**\
 `Barring a rapid deterioration in the labor market or a significant cooling of inflation, the Federal Reserve appears poised for an extended hold.`\
 https://nytimes.com/2026/02/18/business/economy/fed-officials-minutes-interest-rates.html
-
-**Chiefs' Rashee Rice accused of assault, abuse by mother of his children in lawsuit**\
-`The plaintiff is seeking monetary damages “over $1 million” in the civil lawsuit, according to her attorney.`\
-https://nytimes.com/athletic/7055474/2026/02/18/chiefs-rashee-rice-lawsuit-assault/
 

@@ -1,3 +1,19 @@
+**In Olympic curling, Great Britain deals U.S. a blow ... and now both sit and wait**\
+`Great Britain's Bruce Mouat led a win over Danny Casper's American squad. Both now will watch tomorrow's final session to learn their fate.`\
+https://nytimes.com/athletic/7055133/2026/02/18/winter-olympics-curling-great-britain-us-playoffs/
+
+**The MAHA Coalition Is Falling Apart**\
+`A political movement cannot survive on spite alone.`\
+https://nytimes.com/2026/02/18/opinion/kennedy-maha-moderna.html
+
+**Jesse Jackson’s Wardrobe Was Also the Message**\
+`From dashikis to turtlenecks to leisure suits, he was never worried about looking like he worked at a bank.`\
+https://nytimes.com/2026/02/18/opinion/jesse-jackson-style-fashion.html
+
+**Fed Minutes Show No Rush to Restart Rate Cuts, and Even Possibility of Hikes**\
+`Barring a rapid deterioration in the labor market or a significant cooling of inflation, the Federal Reserve appears poised for an extended hold.`\
+https://nytimes.com/2026/02/18/business/economy/fed-officials-minutes-interest-rates.html
+
 **Lorem Ipsum Dolor Sit Amet**\
 `summary`\
 https://nytimes.com/interactive/2026/02/18/us/guthrie-map.html
