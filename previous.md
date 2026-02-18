@@ -1,3 +1,15 @@
+**What’s in Our Queue? ‘All Creatures Great and Small’ and More**\
+`Text by Shawn Hubler`\
+https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures
+
+**San Francisco 49ers will play in Mexico City in 2026**\
+`This will be the team's third time playing in Mexico City since the NFL staged its first international game there in 2005.`\
+https://nytimes.com/athletic/7054808/2026/02/18/nfl-san-francisco-49ers-mexico-city-2026/
+
+**Slovakia continues magical Olympic run, will play for a medal after bouncing Germany**\
+`What we've seen in Milan is a shocking performance from a young team that’s at least four years ahead of schedule.`\
+https://nytimes.com/athletic/7054928/2026/02/18/slovakia-olympics-mens-hockey-germany-results/
+
 **Chiefs restructure Patrick Mahomes' contract. Here's how their cap situation looks now**\
 `Here's how the Chiefs' salary-cap situation looks now ahead of an important offseason.`\
 https://nytimes.com/athletic/7054946/2026/02/18/chiefs-patrick-mahomes-contract-restructured/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/18/climate/trump-climate-policies-states.html
 **Mikaela Shiffrin exorcises ghost of Olympic past.**\
 `After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
 https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
-
-**NHL Draft prospect Alberts Šmits turns heads with Olympic men's hockey performance**\
-`Šmits’ tournament came to an end on Tuesday when Latvia lost 4-1 to Sweden, but the rangy, physical defenseman left an excellent impression.`\
-https://nytimes.com/athletic/7054756/2026/02/18/alberts-smits-olympics-mens-hockey-latvia-nhl-draft/
-
-**F1 manufacturers to vote on mid-season rule change over engine battles**\
-`It emerged that Mercedes has found a potential advantage with its new engine for the 2026 season relating to the compression ratio limits.`\
-https://nytimes.com/athletic/7054823/2026/02/18/f1-engine-rule-change-fia/
-
-**Latest Updates: Investigators Look Into Genetic Genealogy in Nancy Guthrie Case**\
-``\
-https://nytimes.com/live/2026/02/18/us/nancy-guthrie-case-updates
 
