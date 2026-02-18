@@ -1,4 +1,8 @@
-**Vinicius Jr racism allegations: The protocols, possible punishments and what happens next**\
+**Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
+`Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
+https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/
+
+**Vinicius Jr racism allegations: The protocols, what happens now and possible punishments**\
 `Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
 https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
 
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7053273/2026/02/18/nycfc-etihad-park-mls-stadium-ne
 `I can’t picture spending the rest of my career working with him.`\
 https://nytimes.com/2026/02/18/magazine/family-company-cousin-ethics.html
 
-**Sidney Crosby exits Canada's Olympic hockey quarterfinal game vs. Czech Republic**\
+**Sidney Crosby exits Canada's Olympic hockey quarterfinal game with apparent injury**\
 `Crosby left Canada's Olympic hockey quarterfinal game during the second period with an apparent injury and has not returned.`\
 https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
 
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7055126/2026/02/18/ukraine-russia-paralympics-milan
 **Mamdani Fills Out Housing Board in Push to Freeze Rent**\
 `Mayor Zohran Mamdani appointed six members to the Rent Guidelines Board, which decides whether rents can go up in nearly one million rent-stabilized apartments.`\
 https://nytimes.com/2026/02/18/nyregion/zohran-mamdani-rent-guidelines-board-freeze.html
-
-**How to watch Baylor vs. Texas Tech women's basketball: Time, TV, streaming**\
-`Find out how to watch the Baylor Bears play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055215/2026/02/18/baylor-vs-texas-tech-stream-how-to-watch-feb-18/
-
-**How to watch UConn vs. Villanova women's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055213/2026/02/18/uconn-vs-villanova-stream-how-to-watch-feb-18/
 

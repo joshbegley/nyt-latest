@@ -1,3 +1,15 @@
+**Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
+`Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
+https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/
+
+**Vinicius Jr racism allegations: The protocols, what happens now and possible punishments**\
+`Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
+https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
+
+**Sidney Crosby exits Canada's Olympic hockey quarterfinal game with apparent injury**\
+`Crosby left Canada's Olympic hockey quarterfinal game during the second period with an apparent injury and has not returned.`\
+https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
+
 **Vinicius Jr racism allegations: The protocols, possible punishments and what happens next**\
 `Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
 https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
