@@ -1,3 +1,7 @@
+**Quote of the Day: 3-Time Medalist Tries A Comeback, With a Twist**\
+`Quotation of the Day for Wednesday, February 18, 2026.`\
+https://nytimes.com/2026/02/17/pageoneplus/quote-of-the-day-3-time-medalist-tries-a-comeback-with-a-twist.html
+
 **Manhattan Hospital Ends Medical Treatment for Transgender Youth**\
 `NYU Langone Health cited the “current regulatory environment” in its decision to discontinue its gender medicine program for minors.`\
 https://nytimes.com/2026/02/17/nyregion/nyu-hospital-transgender-youth.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/
 **What went wrong for Amber Glenn in the short program: The invalid element explained**\
 `Had Glenn fallen, she would have had an automatic one-point deduction — a better outcome than the zero earned for an invalid element.`\
 https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-short-program-milan-olympics-explained/
-
-**Boneless Wings Are Still Wings, Judge Rules**\
-`A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
-https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
 
