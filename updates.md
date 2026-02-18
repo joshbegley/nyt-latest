@@ -1,3 +1,7 @@
+**The Powerful Speeches of Jesse Jackson**\
+`The Rev. Jesse Jackson gave a master class in public speaking over several decades as a powerful orator. He died on Tuesday at 84.`\
+https://nytimes.com/video/us/100000010719414/jesse-jackson-speeches.html
+
 **IMG to pay $1.72 million fine for accepting tuition from parents tied to Mexican cartel**\
 `The Florida school processed tuition payments for students whose parents had ties to a drug cartel, according to the Treasury Department.`\
 https://nytimes.com/athletic/7053574/2026/02/18/img-academy-settlement-treasury-mexican-drug-cartel/
