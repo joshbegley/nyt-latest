@@ -1,8 +1,16 @@
+**Lions president and CEO Rod Wood retiring after 11 seasons with team**\
+`The Lions will begin a global search for Wood's successor. He will remain in his role until Detroit makes a hire.`\
+https://nytimes.com/athletic/7056020/2026/02/18/lions-rod-wood-retiring-president-ceo/
+
+**David Hays, 95, Dies; Top Broadway Designer and Theater of Deaf Founder**\
+`He created sets and lighting for dozens of productions, including “Long Day’s Journey Into Night,” and established a new art form with his theater of the deaf, combining sign and spoken language.`\
+https://nytimes.com/2026/02/18/theater/david-hays-dead.html
+
 **Journalists Arrested in Cameroon While Reporting on Trump’s Secretive Deportation Program**\
 `An Associated Press reporter was beaten and held with three other journalists and a lawyer, two detainees said, while at a center for migrants secretively deported from the United States.`\
 https://nytimes.com/2026/02/18/world/africa/cameroon-journalists-arrested-deportees.html
 
-**Kings' Domantas Sabonis to miss rest of season with torn left meniscus: Source**\
+**Kings' Domantas Sabonis to miss rest of season with torn meniscus: Source**\
 `The three-time All-Star hasn't played since Feb. 4 and will finish the season having played in a career-low 19 games.`\
 https://nytimes.com/athletic/7056082/2026/02/18/domantas-sabonis-kings-season-ending-knee-surgery/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7056035/2026/02/18/jt-toppin-texas-tech-injury-seas
 **Edison Will Reduce Executive Bonuses as a Result of the Eaton Fire**\
 `Southern California Edison had said its electrical equipment most likely caused the blaze, which destroyed much of Altadena, a Los Angeles suburb.`\
 https://nytimes.com/2026/02/18/business/energy-environment/edison-eaton-fire-altadena-executive-bonuses.html
-
-**Etsy Sells Depop, a Secondhand Clothing App Popular With Gen Z, to eBay**\
-`The $1.2 billion deal comes as eBay looks to expand its appeal among younger users.`\
-https://nytimes.com/2026/02/18/business/etsy-depop-ebay.html
-
-**‘It feels like you are in concrete.’ A Swiss guide describes being caught in an avalanche.**\
-`By Sabrina Tavernise`\
-https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/it-feels-like-you-are-in-concrete-a-swiss-guide-describes-being-caught-in-an-avalanche
 
