@@ -1,3 +1,15 @@
+**House Plans to Vote on Air Safety Bill After Report on Deadly D.C. Crash**\
+`Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
+https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
+
+**Source: Patriots to make Zak Kuhr defensive coordinator**\
+`Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
+https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
+
+**Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League tie**\
+`There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
+https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
+
 **Here’s the Triple Axel That Gave Ami Nakai the Lead After the Short Program**\
 `Japanese figure skaters placed in three of the top four spots after the women’s short program, but only six points separated the medal favorites ahead of the free skate on Thursday.`\
 https://nytimes.com/interactive/2026/02/17/sports/ami-nakai-olympics-skating-short-program.html
