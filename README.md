@@ -1,3 +1,11 @@
+**E.P.A. Plans to Loosen Mercury Rules for Coal Plants, Documents Show**\
+`Senior officials at the Environmental Protection Agency are expected to announce the move on Friday, according to people briefed on the matter.`\
+https://nytimes.com/2026/02/18/climate/epa-mercury-coal-plants.html
+
+**The Briefing: Qarabag 1 Newcastle 6 - Gordon's four-goal display, Woltemade happy in Newcastle**\
+`Anthony Gordon hit four goals as Newcastle United overcame Qarabag with a 6-1 win in their Champions League play-off first-leg`\
+https://nytimes.com/athletic/7050526/2026/02/18/newcastle-nick-woltemade-future-anthony-gordon/
+
 **Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
 `After a loss Sunday, the Green Bay coach slammed his hands on the table while questioning the officiating. He issued an apology Wednesday.`\
 https://nytimes.com/athletic/7055764/2026/02/18/doug-gottlieb-suspended-horizon-league-green-bay/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7054258/2026/02/18/kevin-durant-x-burner-accounts-r
 **With Garland’s debut pushed to March, Kawhi must keep Clippers surging**\
 `Darius Garland's debut still remains weeks away, which magnifies Kawhi Leonard's importance during the Clippers' final 28 games. `\
 https://nytimes.com/athletic/7055616/2026/02/18/darius-garland-clippers-recovery-kawhi-leonard/
-
-**Spurs to freeze season-ticket prices for 2026-27 season**\
-`The decision is the result of discussions with the club's Fan Advisory Board and the Tottenham Hotspur Supporters' Trust.`\
-https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-prices/
-
-**Mamdani Directs Agency to Restart Homeless Encampments Sweeps**\
-`Mayor Zohran Mamdani reversed course on Wednesday and said that New York City will restart the process of sweeping homeless encampments. Mr. Mamdani said that his administration will connect the homeless will shelter and services.`\
-https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-sweeps.html
 
