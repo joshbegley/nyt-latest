@@ -1,3 +1,7 @@
+**HUD opens discrimination investigation into a Muslim development in Texas.**\
+`A project, including homes and a mosque, has drawn attacks from Republican Texas officials. The Justice Department closed a similar inquiry into the development last year.`\
+https://nytimes.com/live/2026/02/17/us/trump-news/hud-opens-discrimination-investigation-into-a-muslim-development-in-texas
+
 **Slopping Spot**\
 `Victor Schmitt’s puzzle is picture-perfect.`\
 https://nytimes.com/2026/02/17/crosswords/daily-puzzle-2026-02-18.html
