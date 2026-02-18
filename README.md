@@ -1,3 +1,11 @@
+**Journalists Arrested in Cameroon While Reporting on Trump’s Secretive Deportation Program**\
+`An Associated Press reporter was beaten and held with three other journalists and a lawyer, two detainees said, while at a center for migrants secretively deported from the United States.`\
+https://nytimes.com/2026/02/18/world/africa/cameroon-journalists-arrested-deportees.html
+
+**Kings' Domantas Sabonis to miss rest of season with torn left meniscus: Source**\
+`The three-time All-Star hasn't played since Feb. 4 and will finish the season having played in a career-low 19 games.`\
+https://nytimes.com/athletic/7056082/2026/02/18/domantas-sabonis-kings-season-ending-knee-surgery/
+
 **For Mikaela Shiffrin, at last, another beautiful day at the Olympics**\
 `It had been eight years since Shiffrin won an Olympic medal. On Wednesday, she stuffed that storyline right into a Cortina trash can.`\
 https://nytimes.com/athletic/7055527/2026/02/18/mikaela-shiffrin-winter-olympics-gold-medal-slalom-drought/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/business/etsy-depop-ebay.html
 **‘It feels like you are in concrete.’ A Swiss guide describes being caught in an avalanche.**\
 `By Sabrina Tavernise`\
 https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/it-feels-like-you-are-in-concrete-a-swiss-guide-describes-being-caught-in-an-avalanche
-
-**The Hockey Rivalry That’s More Than Heated**\
-`When the U.S. plays Canada in the Olympic women’s final, there will be much more than a gold medal at stake.`\
-https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canada.html
-
-**Tiny Love Stories: ‘I Wrote Immediately and Effusively’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/02/18/style/tiny-modern-love-stories-i-wrote-immediately-and-effusively.html
 
