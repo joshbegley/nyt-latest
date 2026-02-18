@@ -1,3 +1,7 @@
+**Leicester appoint Gary Rowett as new manager**\
+`The 51-year-old has signed a contract until the end of the season and replaces Marti Cifuentes, who was sacked last month.`\
+https://nytimes.com/athletic/7055664/2026/02/18/leicester-appoint-gary-rowett-manager/
+
 **Kevin Durant brushes off burner accusations: 'Not here to get into Twitter nonsense'**\
 `Suspicions that Durant used burner accounts first surfaced in 2017, when he sent several tweets from his personal Twitter account.`\
 https://nytimes.com/athletic/7054258/2026/02/18/kevin-durant-x-burner-accounts-rockets/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7054535/2026/02/18/clattenburg-vinicius-racism-madr
 **South Sudan Appoints Dead Man to Election Panel, in Sign of Political Crisis**\
 `The government of President Salva Kiir has been accused of gross incompetence, as fighting between rebels and security forces pushes toward the capital.`\
 https://nytimes.com/2026/02/18/world/africa/south-sudan-dead-man-election-crisis.html
-
-**Meet the captain.**\
-`His name is Kim Gwang-heon and he has more than 40 years of seafaring experience.`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-captain
 
