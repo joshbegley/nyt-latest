@@ -1,3 +1,15 @@
+**Decoding the A.I. Beliefs of Anthropic and Its C.E.O., Dario Amodei**\
+`The company is at odds with the Pentagon over how its A.I. will be used. The conflict has its roots in the foundational plan for Anthropic.`\
+https://nytimes.com/2026/02/18/technology/anthropic-dario-amodei-effective-altruism.html
+
+**Texas Election Season Is Getting Spicy**\
+`Both parties’ Senate primary races are kicking into high gear.`\
+https://nytimes.com/2026/02/18/us/politics/texas-elections-senate-primary.html
+
+**Defense Dept. and Anthropic Square Off in Dispute Over A.I. Safety**\
+`How artificial intelligence will be used in future battlefields is an issue that has turned increasingly political and may put Anthropic in a bind.`\
+https://nytimes.com/2026/02/18/technology/defense-department-anthropic-ai-safety.html
+
 **Muslims in Gaza Observe Ramadan Amid Fragile Cease-Fire Deal**\
 `Muslims in Gaza broke their fast for the start of Ramadan on Wednesday. The holy month began amid a fragile cease-fire deal between Israel and Hamas.`\
 https://nytimes.com/video/world/middleeast/100000010721237/gaza-ramadan-israel-hamas.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7056054/2026/02/18/usa-sweden-olympics-mens-hockey/
 **With New Momentum, Republican States Push Broader Limits for Trans Americans**\
 `In states that once focused mainly on health care and sports for transgender minors, debates now revolve around the validity of transgender identity.`\
 https://nytimes.com/2026/02/18/us/republican-states-transgender-rights-restrictions.html
-
-**Inside the Nick Suzuki decision that kept Team Canada’s Olympic hopes alive**\
-`There was a lot on Nick Suzuki's mind in the late stages of Canada's quarterfinal game, and despite that, his brain made the difference.`\
-https://nytimes.com/athletic/7056199/2026/02/18/nick-suzuki-canada-olympic-mens-hockey-quarterfinals/
-
-**How the U.S. Ice Dancer Madison Chock Began Designing Her Costumes**\
-`In addition to creating costumes for her own team at the 2026 Olympic Winter Games, the U.S. ice dancer Madison Chock also designed outfits for her competitors.`\
-https://nytimes.com/video/the-athletic/100000010721617/how-the-us-ice-dancer-madison-chock-began-designing-her-costumes.html
-
-**How a pep talk from an injured Sidney Crosby fueled Canada’s Olympic quarterfinal win**\
-`Canada's captain addressed his teammates before the third period, motivating them to a 4-3 overtime win over the Czech Republic.`\
-https://nytimes.com/athletic/7056037/2026/02/18/sidney-crosby-injury-canada-olympic-quarterfinals/
 
