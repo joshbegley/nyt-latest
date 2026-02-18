@@ -34,7 +34,7 @@ https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
 
-**Trump Has Changed America. Next Up, the World.**\
+**President Trump Is a Wrecking Ball. And He’s Only Getting Started.**\
 `As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
 https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
 
