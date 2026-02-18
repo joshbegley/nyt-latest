@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7055011/2026/02/18/xu-mengtao-womens-freeski-aerial
 
 **Rachel Zoe Never Wanted to Be Famous**\
 `The woman who made stylists into celebrities is back where it all started — reality TV.`\
-https://nytimes.com/2026/02/18/style/rachel-zoe-new-york-fashinn-week-styists.html
+https://nytimes.com/2026/02/18/style/rachel-zoe-new-york-fashion-week-stylists.html
 
 **Russia’s Exile From World Sports Will End Next Month at Paralympics**\
 `Six Russian athletes and four Belarusians will be allowed to represent their nations, officials said. The decision could pave the way for a Russian team to compete at the 2028 Summer Games in Los Angeles.`\
