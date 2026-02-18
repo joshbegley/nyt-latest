@@ -1,3 +1,11 @@
+**How a pep talk from an injured Sidney Crosby fueled Canada’s Olympic quarterfinal win**\
+`Canada's captain addressed his teammates before the third period, motivating them to a 4-3 overtime win over the Czech Republic.`\
+https://nytimes.com/athletic/7056037/2026/02/18/sidney-crosby-injury-canada-olympic-quarterfinals/
+
+**The Briefing: Wolves 2 Arsenal 2 - Mikel Arteta's side blow two-goal lead at Molineux**\
+`Premier League leaders Arsenal dropped two points at Wolves - here's what you need to know`\
+https://nytimes.com/athletic/7050527/2026/02/18/wolves-arsenal-result-saka-goals/
+
 **Inside the Birthplace of Your Favorite Technology**\
 `How Bell Labs shaped cellphones, satellites, video calls and A.I. technology.`\
 https://nytimes.com/interactive/2026/02/18/technology/bell-labs-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/arts/100000010692517/daniel-radcliffe-every-beautiful-
 **Workplace Inspections by OSHA Dropped Over a Six-Month Period of 2025**\
 `Labor advocates worry that the Trump administration is relaxing oversight of companies and increasing the potential for serious injuries and deaths.`\
 https://nytimes.com/2026/02/18/us/politics/workplace-inspections-decrease-osha.html
-
-**Lions president and CEO Rod Wood retiring after 11 seasons with team**\
-`The Lions will begin a global search for Wood's successor. He will remain in his role until Detroit makes a hire.`\
-https://nytimes.com/athletic/7056020/2026/02/18/lions-rod-wood-retiring-president-ceo/
-
-**David Hays, 95, Dies; Top Broadway Designer and Theater of Deaf Founder**\
-`He created sets and lighting for dozens of productions, including “Long Day’s Journey Into Night,” and established a new art form with his theater of the deaf, combining sign and spoken language.`\
-https://nytimes.com/2026/02/18/theater/david-hays-dead.html
 
