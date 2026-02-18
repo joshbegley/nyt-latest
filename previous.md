@@ -1,3 +1,7 @@
+**Spurs to freeze season-ticket prices for 2026-27 season**\
+`The decision is the result of discussions with the club's Fan Advisory Board and the Tottenham Hotspur Supporters' Trust.`\
+https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-prices/
+
 **Mamdani Directs Agency to Restart Homeless Encampments Sweeps**\
 `Mayor Zohran Mamdani reversed course on Wednesday and said that New York City will restart the process of sweeping homeless encampments. Mr. Mamdani said that his administration will connect the homeless will shelter and services.`\
 https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-sweeps.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055306/2026/02/18/nba2k-college-players-basketball
 **F1 preseason testing: Max Verstappen's concerns linger - and so do Aston Martin's struggles**\
 `Aston Martin's problems are clear, even if F1's 2026 pecking order remains foggy. Here are the main takeaways from Day 1`\
 https://nytimes.com/athletic/7055370/2026/02/18/f1-preseason-testing-takeaways-lewis-hamiiton-aston-martin/
-
-**Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
-`The Canadians will play for an Olympic medal after winning a nail-biter vs. the Czech Republic in overtime on Wednesday.`\
-https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
 

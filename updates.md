@@ -1,3 +1,7 @@
+**Spurs to freeze season-ticket prices for 2026-27 season**\
+`The decision is the result of discussions with the club's Fan Advisory Board and the Tottenham Hotspur Supporters' Trust.`\
+https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-prices/
+
 **Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
 `The Canadians will play for an Olympic medal after winning a nail-biter vs. the Czech Republic in overtime on Wednesday.`\
 https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
