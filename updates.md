@@ -1,3 +1,7 @@
+**Patriots to make Zak Kuhr defensive coordinator: Source**\
+`Kuhr’s defense was a major reason the Patriots had so much success in the playoffs.`\
+https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coordinator/
+
 **House Plans to Vote on Air Safety Bill After Report on Deadly D.C. Crash**\
 `Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
 https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
