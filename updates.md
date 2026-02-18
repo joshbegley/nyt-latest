@@ -1,3 +1,7 @@
+**Nine Skiers Still Missing After Lake Tahoe Avalanche**\
+`The avalanche struck a guided backcountry skiing group near Truckee, Calif., near the end of a multiday trip, officials said. Six skiers have been rescued.`\
+https://nytimes.com/2026/02/18/us/lake-tahoe-avalanche-missing-skiers.html
+
 **With a push from the NFL, flag football's breakthrough is here. What happens next?**\
 `The buzz around flag football — and the NFL’s investment in the sport — keeps growing, with the 2028 Summer Olympics on the horizon.`\
 https://nytimes.com/athletic/7052881/2026/02/18/flag-football-nfl-olympics-growth/
