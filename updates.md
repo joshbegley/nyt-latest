@@ -1,3 +1,15 @@
+**Rachel Zoe Never Wanted to Be Famous**\
+`The woman who made stylists into celebrities is back where it all started — reality TV.`\
+https://nytimes.com/2026/02/18/style/rachel-zoe-new-york-fashinn-week-styists.html
+
+**Russia’s Exile From World Sports Will End Next Month at Paralympics**\
+`Six Russian athletes and four Belarusians will be allowed to represent their nations, officials said. The decision could pave the way for a Russian team to compete at the 2028 Summer Games in Los Angeles.`\
+https://nytimes.com/2026/02/18/world/europe/russia-paralympics-italy.html
+
+**JD Vance suggests Eileen Gu should be representing the U.S. at Winter Olympics**\
+`Gu was born in 2003, and her mother, Yan Gu, is a first-generation Chinese immigrant. Her father is American.`\
+https://nytimes.com/athletic/7054922/2026/02/18/eileen-gu-jd-vance-united-states-olympics/
+
 **‘Billy Preston’ Review: A Unique and Tortured Talent**\
 `The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
 https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html

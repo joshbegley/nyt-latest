@@ -1,3 +1,11 @@
+**A Case Against 6 Democrats Lacked Urgency. Then Came a Swift Bid for an Indictment.**\
+`Prosecutors have been repeatedly caught between the president’s insistence that they undertake weak or baseless cases and the necessity of having to go to court.`\
+https://nytimes.com/2026/02/18/us/politics/pirro-inquiry-video-democratic-lawmakers.html
+
+**China’s Xu Mengtao defends Olympic aerials crown, Team USA's Kaila Kuhn fifth**\
+`China’s Xu Mengtao defends her Olympic freeski aerials title, while Team USA's Kaila Kuhn and Winter Vinecki were fifth and sixth. `\
+https://nytimes.com/athletic/7055011/2026/02/18/xu-mengtao-womens-freeski-aerials-2026-winter-olympics/
+
 **Rachel Zoe Never Wanted to Be Famous**\
 `The woman who made stylists into celebrities is back where it all started — reality TV.`\
 https://nytimes.com/2026/02/18/style/rachel-zoe-new-york-fashinn-week-styists.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/business/churchill-downs-hisa-fees.html
 **Mamdani to Reinstitute Homeless Encampment Sweeps**\
 `Mayor Zohran Mamdani will place the Department of Homeless Services in charge of the sweeps, replacing the Police Department as lead of the interagency effort.`\
 https://nytimes.com/2026/02/18/nyregion/homeless-encampment-mamdani-nyc.html
-
-**In Cynthia Erivo’s ‘Dracula,’ There’s Mirth Amid the Horror**\
-`The “Wicked” actress plays 23 roles in a one-woman show on London’s West End.`\
-https://nytimes.com/2026/02/18/theater/dracula-cynthia-erivo.html
-
-**The Bounce: The Pistons have the NBA's best record. Why don't we trust them?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7054857/2026/02/18/pistons-best-record-west-eat-the-bounce/
 
