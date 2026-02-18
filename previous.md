@@ -1,3 +1,7 @@
+**Manhattan Hospital Ends Medical Treatment for Transgender Youth**\
+`NYU Langone Health cited the “current regulatory environment” in its decision to discontinue its gender medicine program for minors.`\
+https://nytimes.com/2026/02/17/nyregion/nyu-hospital-transgender-youth.html
+
 **What Trump’s Latest East Wing Designs Show**\
 `The plans submitted by the White House include more windows, a new garden and an asymmetrical pathway.`\
 https://nytimes.com/interactive/2026/02/17/us/trump-white-house-east-wing-ballroom-design.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-shor
 **Boneless Wings Are Still Wings, Judge Rules**\
 `A Chicago man filed a lawsuit in 2023 against Buffalo Wild Wings, arguing that it had engaged in false advertising of its boneless wings. A judge said the claim “has no meat on its bones.”`\
 https://nytimes.com/2026/02/17/us/boneless-chicken-wings-lawsuit-ruling.html
-
-**House Plans to Vote on Air Safety Bill After Report on Deadly D.C. Crash**\
-`Lawmakers could vote as early as next week on legislation aimed at avoiding another collision like the one that killed 67 people near Reagan National Airport last year.`\
-https://nytimes.com/2026/02/17/us/politics/ntsb-reagan-national-crash-report.html
 

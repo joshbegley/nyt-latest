@@ -1,3 +1,7 @@
+**Manhattan Hospital Ends Medical Treatment for Transgender Youth**\
+`NYU Langone Health cited the “current regulatory environment” in its decision to discontinue its gender medicine program for minors.`\
+https://nytimes.com/2026/02/17/nyregion/nyu-hospital-transgender-youth.html
+
 **What Trump’s Latest East Wing Designs Show**\
 `The plans submitted by the White House include more windows, a new garden and an asymmetrical pathway.`\
 https://nytimes.com/interactive/2026/02/17/us/trump-white-house-east-wing-ballroom-design.html
