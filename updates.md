@@ -1,3 +1,5 @@
+
+
 **Colorado Democrats Push to Rip Up 2028 House Map for an Extra Edge**\
 `A proposed ballot measure to give Democrats more seats for the 2028 and 2030 elections signals that the nation’s gerrymandering fight is likely to persist for years.`\
 https://nytimes.com/2026/02/18/us/politics/colorado-redistricting-house-map-2028.html
