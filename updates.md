@@ -1,3 +1,11 @@
+**Shutdowns Don’t Usually Stop Disaster Work. FEMA Just Made It Harder.**\
+`The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
+https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
+
+**The iPhone’s Emergency SOS feature allowed the skiers to text with emergency responders after the avalanche.**\
+`By Kalley Huang`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/apple-iphone-sos-satellite-rescue
+
 **Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
 `The violations stemmed from immigration cases. Judges across the country have expressed alarm about illegal transfers and missed deadlines.`\
 https://nytimes.com/2026/02/18/us/politics/court-orders-new-jersey-immigrants.html
