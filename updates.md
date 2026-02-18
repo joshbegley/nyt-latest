@@ -1,3 +1,7 @@
+**NC State fans chant 'No means no' at UNC's Zayden High during rivalry win**\
+`High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amidst allegations of sexual misconduct.`\
+https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/
+
 **What went wrong for Amber Glenn in the short program: The invalid element explained**\
 `Had Glenn fallen, she would have had an automatic one-point deduction — a better outcome than the zero earned for an invalid element.`\
 https://nytimes.com/athletic/7053866/2026/02/17/amber-glenn-invalid-element-short-program-milan-olympics-explained/
