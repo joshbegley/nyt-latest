@@ -1,3 +1,11 @@
+**Kevin Durant brushes off burner accusations: 'Not here to get into Twitter nonsense'**\
+`Suspicions that Durant used burner accounts first surfaced in 2017, when he sent several tweets from his personal Twitter account.`\
+https://nytimes.com/athletic/7054258/2026/02/18/kevin-durant-x-burner-accounts-rockets/
+
+**With Garland’s debut pushed to March, Kawhi must keep Clippers surging**\
+`Darius Garland's debut still remains weeks away, which magnifies Kawhi Leonard's importance during the Clippers' final 28 games. `\
+https://nytimes.com/athletic/7055616/2026/02/18/darius-garland-clippers-recovery-kawhi-leonard/
+
 **Spurs to freeze season-ticket prices for 2026-27 season**\
 `The decision is the result of discussions with the club's Fan Advisory Board and the Tottenham Hotspur Supporters' Trust.`\
 https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-prices/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/18/world/africa/south-sudan-dead-man-election-crisis
 **Meet the captain.**\
 `His name is Kim Gwang-heon and he has more than 40 years of seafaring experience.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-captain
-
-**Snow Conditions Around Tahoe Were Ripe for an Avalanche**\
-`A recent dry spell meant that as heavy snow fell this week, it landed on an unstable snowpack.`\
-https://nytimes.com/2026/02/18/weather/tahoe-avalanche-snow-conditions.html
-
-**Latest NBA 2K video game to feature active college players**\
-`Sixteen college additions for MyTeam, MyCareer mode in NBA 2K26 were revealed, the first of an expected larger college offering.`\
-https://nytimes.com/athletic/7055306/2026/02/18/nba2k-college-players-basketball-video-game/
 
