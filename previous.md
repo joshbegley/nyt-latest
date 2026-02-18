@@ -1,3 +1,19 @@
+**Mamdani Directs Agency to Restart Homeless Encampments Sweeps**\
+`Mayor Zohran Mamdani reversed course on Wednesday and said that New York City will restart the process of sweeping homeless encampments. Mr. Mamdani said that his administration will connect the homeless will shelter and services.`\
+https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-sweeps.html
+
+**Men's college basketball national title odds: Michigan takes top spot from Arizona**\
+`After losing two games in a row, Arizona fell from the top spot in the betting odds to win the national title. Michigan is now favored.`\
+https://nytimes.com/athletic/7055371/2026/02/18/mens-college-basketball-national-title-odds-michigan-arizona/
+
+**Seattle Seahawks begin sale process, less than 2 weeks after winning Super Bowl**\
+`The estate of Paul G. Allen said in a statement that the process of selling the Seahawks is expected to continue through the 2026 offseason.`\
+https://nytimes.com/athletic/7055565/2026/02/18/seattle-seahawks-sale-paul-allen-estate/
+
+**Clattenburg apologises over Vinicius Jr comments during Madrid vs. Benfica**\
+`The former Premier League referee said that Vinicius Jr "has not helped himself" after the forward alleged he was racially abused. `\
+https://nytimes.com/athletic/7054535/2026/02/18/clattenburg-vinicius-racism-madrid-prestianni/
+
 **South Sudan Appoints Dead Man to Election Panel, in Sign of Political Crisis**\
 `The government of President Salva Kiir has been accused of gross incompetence, as fighting between rebels and security forces pushes toward the capital.`\
 https://nytimes.com/2026/02/18/world/africa/south-sudan-dead-man-election-crisis.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7055370/2026/02/18/f1-preseason-testing-takeaways-l
 **Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
 `The Canadians will play for an Olympic medal after hanging on to defeat the Czech Republic in overtime on Wednesday.`\
 https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
-
-**Remember the German referee who proposed at a football game? The story has taken some dark turns since**\
-`In the weeks since Pascal Kaiser proposed to his boyfriend in Koln, there have been allegations of assault, faking injuries and embezzlement`\
-https://nytimes.com/athletic/7055179/2026/02/18/german-referee-proposal-alleged-assault/
-
-**A look at what three pitchers are working on as the Cubs build rotation depth**\
-`Here are three names the Cubs hope can bounce back from up-and-down seasons and contribute positively in 2026.`\
-https://nytimes.com/athletic/7053313/2026/02/18/a-look-at-what-three-pitchers-are-working-on-as-the-cubs-build-rotation-depth/
-
-**When a Government Tracks Its Opponents**\
-`The Department of Homeland Security’s tracking of opponents of ICE. Also: Antislavery Americans; Native American pain; hazing laws; sympathy from Canada.`\
-https://nytimes.com/2026/02/18/opinion/homeland-security-dept-ice.html
-
-**First Rule of Navigating Antarctic Seas? ‘Don’t Disobey the Ice.’**\
-`Even with a sturdy ship and the help of satellite images, negotiating the frozen ocean requires a dose of humility before nature’s might.`\
-https://nytimes.com/2026/02/18/climate/antarctica-araon-captain.html
 
