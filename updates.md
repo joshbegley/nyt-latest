@@ -1,3 +1,7 @@
+**Amber Glenn's costly mistake punctuates her up-and-down Olympics**\
+`MILAN — For the second time in as many skates at the Milano Ice Skating Arena, Amber Glenn couldn’t stop the tears.`\
+https://nytimes.com/athletic/7053709/2026/02/17/amber-glenn-winter-olympics-figure-skating/
+
 **Mets notes: Luis Robert Jr. to be eased into spring training due to injury history**\
 `Robert, who has a history of lower-half injuries, will likely make his Grapefruit League debut in the second week of the schedule.`\
 https://nytimes.com/athletic/7053523/2026/02/17/mets-luis-robert-brett-baty-christian-scott/
