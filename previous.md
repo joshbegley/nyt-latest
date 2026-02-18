@@ -1,3 +1,19 @@
+**First Rule of Navigating Antarctic Seas? ‘Don’t Disobey the Ice.’**\
+`Even with a sturdy ship and the help of satellite images, negotiating the frozen ocean requires a dose of humility before nature’s might.`\
+https://nytimes.com/2026/02/18/climate/antarctica-araon-captain.html
+
+**Submit questions for Zac Jackson's Browns mailbag**\
+`The Browns finished the 2025 season with a 5-12 record, leading to the firing of their head coach and the start of a new chapter. `\
+https://nytimes.com/athletic/7055521/2026/02/18/browns-mailbag-nfl-scouting-combine/
+
+**Rising talent Arthur Fils adds Goran Ivanišević, Novak Djokovic's former coach, on initial trial**\
+`Ivanišević, who recently had ill-fated stints with Elena Rybakina and Stefanos Tsitsipas, has been impressed thus far.`\
+https://nytimes.com/athletic/7055294/2026/02/18/arthur-fils-goran-ivanisevic-coach/
+
+**What are the overtime rules in the Olympic hockey tournament?**\
+`The rules change depending on the round, and ultimately the shootout is eliminated.`\
+https://nytimes.com/athletic/7039297/2026/02/18/olympic-hockey-overtime-shootout-rules/
+
 **Backcountry Skiers Carry a Variety of Safety Gear**\
 `Beacons, shovels and probes are necessities in avalanche country.`\
 https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html
@@ -21,17 +37,4 @@ https://nytimes.com/2026/02/18/upshot/moltbook-artificial-intelligence-ai.html
 **N.I.H. Director Will Temporarily Run C.D.C. in Leadership Shake-Up**\
 `Dr. Jay Bhattacharya will serve as acting director of the Centers for Disease Control and Prevention until President Trump appoints a permanent director.`\
 https://nytimes.com/2026/02/18/us/politics/bhattacharya-kennedy-cdc-director.html
-
-**Games Briefing: Hockey's heating up, and Shiffrin's gold**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7055310/2026/02/18/mens-hockey-quarterfinals-mikaela-shiffrin-gold-medal-olympic-games-briefing/
-
-**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
-`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
-`\
-https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
-
-**Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
-`Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
-https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/
 

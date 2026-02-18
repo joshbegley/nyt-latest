@@ -1,3 +1,19 @@
+**First Rule of Navigating Antarctic Seas? ‘Don’t Disobey the Ice.’**\
+`Even with a sturdy ship and the help of satellite images, negotiating the frozen ocean requires a dose of humility before nature’s might.`\
+https://nytimes.com/2026/02/18/climate/antarctica-araon-captain.html
+
+**Submit questions for Zac Jackson's Browns mailbag**\
+`The Browns finished the 2025 season with a 5-12 record, leading to the firing of their head coach and the start of a new chapter. `\
+https://nytimes.com/athletic/7055521/2026/02/18/browns-mailbag-nfl-scouting-combine/
+
+**Rising talent Arthur Fils adds Goran Ivanišević, Novak Djokovic's former coach, on initial trial**\
+`Ivanišević, who recently had ill-fated stints with Elena Rybakina and Stefanos Tsitsipas, has been impressed thus far.`\
+https://nytimes.com/athletic/7055294/2026/02/18/arthur-fils-goran-ivanisevic-coach/
+
+**What are the overtime rules in the Olympic hockey tournament?**\
+`The rules change depending on the round, and ultimately the shootout is eliminated.`\
+https://nytimes.com/athletic/7039297/2026/02/18/olympic-hockey-overtime-shootout-rules/
+
 **Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
 `Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
 `\
