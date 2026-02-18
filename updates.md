@@ -1,3 +1,16 @@
+**Games Briefing: Hockey's heating up, and Shiffrin's gold**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7055310/2026/02/18/mens-hockey-quarterfinals-mikaela-shiffrin-gold-medal-olympic-games-briefing/
+
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
+**Sidney Crosby injured in Canada's Olympic hockey quarterfinal game, won't return**\
+`Crosby was unable to finish Canada's Olympic quarterfinal game on Wednesday because of a lower-body injury.`\
+https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
+
 **Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
 `Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
 `\
