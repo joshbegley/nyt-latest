@@ -1,3 +1,7 @@
+**Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
+`After a loss Sunday, the Green Bay coach slammed his hands on the table while questioning the officiating. He issued an apology Wednesday.`\
+https://nytimes.com/athletic/7055764/2026/02/18/doug-gottlieb-suspended-horizon-league-green-bay/
+
 **Mark Zuckerberg Says Instagram Is Valuable, Not Harmful, in Landmark Tech Addiction Trial**\
 `Meta’s chief executive said users spent a lot of time on the app because of its value, as he was grilled about child safety issues in front of a jury.`\
 https://nytimes.com/2026/02/18/technology/mark-zuckerberg-tech-addiction-trial.html
