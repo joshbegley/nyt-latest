@@ -1,3 +1,15 @@
+**Mark Zuckerberg Says Instagram Is Valuable, Not Harmful, in Landmark Tech Addiction Trial**\
+`Meta’s chief executive said users spent a lot of time on the app because of its value, as he was grilled about child safety issues in front of a jury.`\
+https://nytimes.com/2026/02/18/technology/mark-zuckerberg-tech-addiction-trial.html
+
+**Fed Officials Signaled No Rush to Restart Rate Cuts, With Some Raising Possibility of Hikes, Minutes Show**\
+`Barring a rapid deterioration in the labor market or a significant cooling of inflation, the Federal Reserve appears poised for an extended hold.`\
+https://nytimes.com/2026/02/18/business/economy/fed-officials-minutes-interest-rates.html
+
+**Chiefs' Rashee Rice accused of assault, abuse by mother of his children in lawsuit**\
+`The plaintiff is seeking monetary damages “over $1 million” in the civil lawsuit, according to her attorney.`\
+https://nytimes.com/athletic/7055474/2026/02/18/chiefs-rashee-rice-lawsuit-assault/
+
 **Leicester appoint Gary Rowett as new manager**\
 `The 51-year-old has signed a contract until the end of the season and replaces Marti Cifuentes, who was sacked last month.`\
 https://nytimes.com/athletic/7055664/2026/02/18/leicester-appoint-gary-rowett-manager/
@@ -21,16 +33,4 @@ https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-swee
 **Men's college basketball national title odds: Michigan takes top spot from Arizona**\
 `After losing two games in a row, Arizona fell from the top spot in the betting odds to win the national title. Michigan is now favored.`\
 https://nytimes.com/athletic/7055371/2026/02/18/mens-college-basketball-national-title-odds-michigan-arizona/
-
-**Seattle Seahawks begin sale process, less than 2 weeks after winning Super Bowl**\
-`The estate of Paul G. Allen said in a statement that the process of selling the Seahawks is expected to continue through the 2026 offseason.`\
-https://nytimes.com/athletic/7055565/2026/02/18/seattle-seahawks-sale-paul-allen-estate/
-
-**Clattenburg apologises over Vinicius Jr comments during Madrid vs. Benfica**\
-`The former Premier League referee said that Vinicius Jr "has not helped himself" after the forward alleged he was racially abused. `\
-https://nytimes.com/athletic/7054535/2026/02/18/clattenburg-vinicius-racism-madrid-prestianni/
-
-**South Sudan Appoints Dead Man to Election Panel, in Sign of Political Crisis**\
-`The government of President Salva Kiir has been accused of gross incompetence, as fighting between rebels and security forces pushes toward the capital.`\
-https://nytimes.com/2026/02/18/world/africa/south-sudan-dead-man-election-crisis.html
 
