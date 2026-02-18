@@ -1,3 +1,31 @@
+**Mick Cronin ejects his own player after technical foul in UCLA's loss to Michigan State**\
+`Cronin yanked Steven Jamerson II off the court, caught a fistful of his jersey and signaled a Bruins staffer to take him to the locker room.`\
+https://nytimes.com/athletic/7054246/2026/02/18/ucla-mick-cronin-michigan-state-steven-jamerson/
+
+**Newcastle's 5,061-mile journey to Azerbaijan - and why teams are travelling further than ever**\
+`Eddie Howe's team are used to doing things the long way domestically, but their trip to face Qarabag will be something else`\
+https://nytimes.com/athletic/7052103/2026/02/18/newcastle-united-champions-league-qarabag-distances/
+
+**What’s it like to have two grandchildren in the Olympics? Let a literary titan tell you**\
+`Birk and Svea Irving, grandchildren of the great American author John Irving, are competing in Milan Cortina this week. `\
+https://nytimes.com/athletic/7053278/2026/02/18/john-birk-svea-irving-skiing-winter-olympics/
+
+**Premier League predictions: Wolves vs Arsenal**\
+`Who's leading after MD26? And what do our writer, the algorithm, a child and this week's subscriber expect to see from Wolves vs Arsenal?`\
+https://nytimes.com/athletic/7049716/2026/02/18/premier-league-predictions-wolves-arsenal/
+
+**How a growing mastery of space and time is behind Premier League's long-shot resurgence**\
+`The division's best players are manufacturing the space they need to make long-distance goals an increasingly reliable source of joy`\
+https://nytimes.com/athletic/7033004/2026/02/18/premier-league-long-range-shots-space-time-pressure/
+
+**A trumpeter, a former adult films producer and the weird world of Barca election candidates**\
+`Barcelona's democratic process often means some fascinating characters put themselves forward to be club president`\
+https://nytimes.com/athletic/7041720/2026/02/18/barcelona-election-candidates-weird-world/
+
+**Manchester United’s midfield – Part 2: Who should they sign to replace Casemiro?**\
+`From Carlos Baleba to Mamadou Sangare, The Athletic looks at players who may fit the bill to take over from the departing Brazilian`\
+https://nytimes.com/athletic/7051967/2026/02/18/casemiro-man-united-transfers-midfield/
+
 **How long is it since each Premier League club last suffered relegation?**\
 `As Tottenham, Forest and West Ham fans contemplate a worrying end to 2025-26, The Athletic looks at when each top-flight club last went down`\
 https://nytimes.com/athletic/7038453/2026/02/18/when-last-relegated-premier-league-spurs-forest/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/02/18/world/europe/alberto-tomba-was-an-80s-icon-the-ol
 **Trilateral Talks on Russia-Ukraine War Enter 2nd Day**\
 `The talks in Geneva, Switzerland, were expected to focus on Ukrainian-held territory in the east that Russia wants to control as the price of peace. Kyiv has said that demand is a nonstarter.`\
 https://nytimes.com/2026/02/18/world/europe/russia-ukraine-us-talks-war.html
-
-**Are referees and broadcasters converging in a strange, new way?**\
-`Referees have taken on three new roles over the past year or so, making them a more prominent part of broadcasts than ever before`\
-https://nytimes.com/athletic/7052376/2026/02/18/premier-league-referee-broadcaster-new-var/
-
-**Flawless Asphalt, Empty Homes: A 300-Mile Drive Through Afghanistan**\
-`Life and business are back along a road once defined by war damage. But even with improved security, Afghans are desperate for jobs and development.`\
-https://nytimes.com/2026/02/18/world/asia/afghanistan-highway-taliban-security.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 18, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7054275/2026/02/18/connections-sports-edition-hints-answers-feb-18-2026/
-
-**Corrections: Feb. 18, 2026**\
-`Corrections that appeared in print on Wednesday, Feb. 18, 2026.`\
-https://nytimes.com/2026/02/18/pageoneplus/corrections-feb-18-2026.html
-
-**How the World’s Most Boring Market Became a ‘Battlefield’**\
-`Trading of Japanese government bonds, long considered moribund, is roaring back to life as fears of the country’s debt have sent yields surging.`\
-https://nytimes.com/2026/02/18/business/jgb-trade-excitement.html
-
-**Quote of the Day: 3-Time Medalist Tries A Comeback, With a Twist**\
-`Quotation of the Day for Wednesday, February 18, 2026.`\
-https://nytimes.com/2026/02/17/pageoneplus/quote-of-the-day-3-time-medalist-tries-a-comeback-with-a-twist.html
-
-**Manhattan Hospital Ends Medical Treatment for Transgender Youth**\
-`NYU Langone Health cited the “current regulatory environment” in its decision to discontinue its gender medicine program for minors.`\
-https://nytimes.com/2026/02/17/nyregion/nyu-hospital-transgender-youth.html
 

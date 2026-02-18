@@ -1,3 +1,7 @@
+**How long is it since each Premier League club last suffered relegation?**\
+`As Tottenham, Forest and West Ham fans contemplate a worrying end to 2025-26, The Athletic looks at when each top-flight club last went down`\
+https://nytimes.com/athletic/7038453/2026/02/18/when-last-relegated-premier-league-spurs-forest/
+
 **Alberto Tomba Was an ’80s Icon. The Olympics Have Brought Him Back.**\
 `Nicknamed “Tomba la Bomba,” the Italian skier was a global superstar before he drifted from the limelight. Decades later, the Winter Games have given him a new platform.`\
 https://nytimes.com/2026/02/18/world/europe/alberto-tomba-was-an-80s-icon-the-olympics-have-brought-him-back.html

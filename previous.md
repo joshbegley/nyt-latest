@@ -1,3 +1,7 @@
+**How long is it since each Premier League club last suffered relegation?**\
+`As Tottenham, Forest and West Ham fans contemplate a worrying end to 2025-26, The Athletic looks at when each top-flight club last went down`\
+https://nytimes.com/athletic/7038453/2026/02/18/when-last-relegated-premier-league-spurs-forest/
+
 **Alberto Tomba Was an ’80s Icon. The Olympics Have Brought Him Back.**\
 `Nicknamed “Tomba la Bomba,” the Italian skier was a global superstar before he drifted from the limelight. Decades later, the Winter Games have given him a new platform.`\
 https://nytimes.com/2026/02/18/world/europe/alberto-tomba-was-an-80s-icon-the-olympics-have-brought-him-back.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/17/pageoneplus/quote-of-the-day-3-time-medalist-trie
 **Manhattan Hospital Ends Medical Treatment for Transgender Youth**\
 `NYU Langone Health cited the “current regulatory environment” in its decision to discontinue its gender medicine program for minors.`\
 https://nytimes.com/2026/02/17/nyregion/nyu-hospital-transgender-youth.html
-
-**What Trump’s Latest East Wing Designs Show**\
-`The plans submitted by the White House include more windows, a new garden and an asymmetrical pathway.`\
-https://nytimes.com/interactive/2026/02/17/us/trump-white-house-east-wing-ballroom-design.html
 
