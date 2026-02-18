@@ -1,3 +1,7 @@
+**Slopping Spot**\
+`Victor Schmitt’s puzzle is picture-perfect.`\
+https://nytimes.com/2026/02/17/crosswords/daily-puzzle-2026-02-18.html
+
 **WNBA players offer lower revenue share, salary cap in latest counterproposal**\
 `Housing — the current CBA requires teams to provide housing to all players — is another issue in the negotiations.`\
 https://nytimes.com/athletic/7054080/2026/02/17/wnba-players-union-cba-negotiations-update-revenue-share-housing/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7053990/2026/02/17/patriots-zak-kuhr-defensive-coor
 **Breaking down the chaos after Vinicius Jr alleged he was racially abused in Champions League**\
 `There were ugly scenes in Benfica's play-off first leg against Real Madrid as Vinicius Jr alleged racist abuse by Prestianni that he denies`\
 https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestianni-benfica-real-madrid-racism/
-
-**Here’s the Triple Axel That Gave Ami Nakai the Lead After the Short Program**\
-`Japanese figure skaters placed in three of the top four spots after the women’s short program, but only six points separated the medal favorites ahead of the free skate on Thursday.`\
-https://nytimes.com/interactive/2026/02/17/sports/ami-nakai-olympics-skating-short-program.html
 
