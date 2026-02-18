@@ -1,3 +1,23 @@
+**‘Billy Preston’ Review: A Unique and Tortured Talent**\
+`The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
+https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html
+
+**JD Vance says Eileen Gu should be representing the U.S. at Winter Olympics**\
+`Gu was born in 2003, and her mother, Yan Gu, is a first-generation Chinese immigrant. Her father is American.`\
+https://nytimes.com/athletic/7054922/2026/02/18/eileen-gu-jd-vance-united-states-olympics/
+
+**Why F1's boiling drama over engine compression ratios matters for the 2026 season**\
+`Has Mercedes found a loophole with its engines? And what exactly is the loophole, anyway? `\
+https://nytimes.com/athletic/7054817/2026/02/18/f1-engine-compression-ratio-car-controversy/
+
+**The New York Times Wins 3 Polk Awards**\
+`The Times was honored for its coverage of President Trump, the abuse of housekeepers and nannies in Saudi Arabia and brutality in New York prisons.`\
+https://nytimes.com/2026/02/18/business/media/george-polk-awards.html
+
+**Kentucky Derby Operator Accused of Regulatory ‘Freeloading’**\
+`The Horseracing Integrity and Safety Authority filed a complaint saying Churchill Downs Inc. is not paying its fair share to support inspections and testing.`\
+https://nytimes.com/2026/02/18/business/churchill-downs-hisa-fees.html
+
 **Mamdani to Reinstitute Homeless Encampment Sweeps**\
 `Mayor Zohran Mamdani will place the Department of Homeless Services in charge of the sweeps, replacing the Police Department as lead of the interagency effort.`\
 https://nytimes.com/2026/02/18/nyregion/homeless-encampment-mamdani-nyc.html
@@ -17,24 +37,4 @@ https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures
 **San Francisco 49ers will play in Mexico City in 2026**\
 `This will be the team's third time playing in Mexico City since the NFL staged its first international game there in 2005.`\
 https://nytimes.com/athletic/7054808/2026/02/18/nfl-san-francisco-49ers-mexico-city-2026/
-
-**Slovakia continues magical Olympic run, will play for a medal after bouncing Germany**\
-`What we've seen in Milan is a shocking performance from a young team that’s at least four years ahead of schedule.`\
-https://nytimes.com/athletic/7054928/2026/02/18/slovakia-olympics-mens-hockey-germany-results/
-
-**Chiefs restructure Patrick Mahomes' contract. Here's how their cap situation looks now**\
-`Here's how the Chiefs' salary-cap situation looks now ahead of an important offseason.`\
-https://nytimes.com/athletic/7054946/2026/02/18/chiefs-patrick-mahomes-contract-restructured/
-
-**Madison Square Garden considers splitting Knicks and Rangers into separate companies**\
-`The company announced Wednesday that its board of directors had approved a plan to explore the move, though it wasn't guaranteed to happen.`\
-https://nytimes.com/athletic/7054843/2026/02/18/madison-square-garden-sports-knicks-rangers-spinning-off/
-
-**The Behind the Scenes Search for Compromise on Territory in Ukraine Talks**\
-`The latest round of talks ended with no indication of progress, but negotiators are bargaining over who will control land in eastern Ukraine if they reach a settlement.`\
-https://nytimes.com/2026/02/18/world/europe/ukraine-russia-peace-talks-demilitarized-zone.html
-
-**Elon Musk’s xAI Gets $3 Billion Investment From Saudi-Backed A.I. Firm**\
-`Humain, which was created by Crown Prince Mohammed bin Salman last year, said it made the investment just before xAI was acquired by SpaceX, Mr. Musk’s rocket company.`\
-https://nytimes.com/2026/02/18/business/xai-humain-saudi-musk-spacex.html
 
