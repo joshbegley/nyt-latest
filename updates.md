@@ -1,3 +1,11 @@
+**The New York Times International Edition in Print for Thursday, Feb. 19, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/18/todays-new-york-times-international-edition
+
+**Chasing NBA dreams from Qatar to All-Star Weekend: One prospect's journey**\
+`Could the NBA's next overseas star come from the Middle East? Abdulla Mousa's path to Basketball Without Borders shows league's ambition.`\
+https://nytimes.com/athletic/7051109/2026/02/18/abdulla-mousa-qatar-prospect-nba-all-star-2026/
+
 **An Architect of Virginia’s Redistricting Will Run for a New Seat Himself**\
 `Dan Helmer, a Democratic state lawmaker, played a key role in putting redrawn congressional maps before state voters.`\
 https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-virginia.html
