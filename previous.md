@@ -1,3 +1,19 @@
+**How to Watch Free Live Television on Your Phone or Tablet**\
+`Whether by app or old-school antennas, budget-friendly options abound.`\
+https://nytimes.com/2026/02/18/technology/personaltech/free-live-tv-mobile-apps.html
+
+**What Does ‘God-Centered’ Education Have to Do with Public School?**\
+`Linda McMahon is shocked — shocked! — that there’s been a backlash to the Department of Education’s ‘History Rocks!’ tour.`\
+https://nytimes.com/2026/02/18/opinion/history-rocks-tour.html
+
+**I Receive So Many Angry Text Messages! How Can I Make Them Stop?**\
+`Sick and tired of feeling like a receptacle for others’ negative emotions, a reader is desperate to stem the tide of foul-tempered texts.`\
+https://nytimes.com/2026/02/18/style/unwanted-negative-texts.html
+
+**Wrexham aim for Premier League promotion and FA Cup glory: What are the odds?**\
+`Wrexham's magic-carpet ride could go stratospheric as they vie for Premier League promotion and reach the last 16 in the FA Cup`\
+https://nytimes.com/athletic/7054639/2026/02/18/wrexhams-premier-league-and-fa-cup-odds-dream-hollywood-ending-is-still-on/
+
 **F.D.A. Reverses Decision and Agrees to Review Moderna’s Flu Vaccine**\
 `Moderna said it had held further discussions with regulators and announced that the agency would accept the company’s application for approval of its flu vaccine that uses mRNA technology.`\
 https://nytimes.com/2026/02/18/health/fda-moderna-flu-vaccine-mrna.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/18/climate/epa-endangerment-finding-lawsuit.html
 **Trump Administration Live Updates: Democratic Lawmakers Intend to Boycott State of the Union Address**\
 ``\
 https://nytimes.com/live/2026/02/18/us/trump-news
-
-**Lowetide: What will Oilers' forward lines look like after the Olympic break?**\
-`The deadline may bring help, but for now, these are Edmonton's likely lines, along with intriguing backup plans for each trio.`\
-https://nytimes.com/athletic/7052616/2026/02/18/edmonton-oilers-forward-lines-olympics/
-
-**Which players would consider playing in the NBA's European League?**\
-`The NBA's European league is supposed to launch in October 2027. NBA players polled by The Athletic are intrigued by the new league.`\
-https://nytimes.com/athletic/7051499/2026/02/18/nba-all-star-player-poll-europe/
-
-**Should pros be allowed to return to college basketball? NBA players weigh in**\
-`"Absolutely not," said one NBA player about the idea.`\
-https://nytimes.com/athletic/7051575/2026/02/18/nba-college-basketball-pros-return/
-
-**Poor infield defense has plagued the Red Sox. This is how they're addressing it**\
-`Last year, Boston's infield group posted minus-21 Outs Above Average. Only four teams were worse.`\
-https://nytimes.com/athletic/7053637/2026/02/18/red-sox-infield-defense-drills-improvement-plan/
 

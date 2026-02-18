@@ -1,3 +1,15 @@
+**F1 manufacturers to vote on mid-season rule change in engine row**\
+`It emerged that Mercedes has found a potential advantage with its new engine for the 2026 season relating to the compression ratio limits.`\
+https://nytimes.com/athletic/7054823/2026/02/18/f1-engine-rule-change-fia/
+
+**Latest Updates: Investigators Look Into Genetic Genealogy in Nancy Guthrie Case**\
+``\
+https://nytimes.com/live/2026/02/18/us/nancy-guthrie-case-updates
+
+**Seahawks hire NIU's Thomas Hammock as running backs coach: Sources**\
+`In Seattle, Hammock will reunite with Seahawks coach Mike Macdonald. The two coached together for five seasons with the Baltimore Ravens.`\
+https://nytimes.com/athletic/7054754/2026/02/18/nfl-seahawks-thomas-hammock-northern-illinois/
+
 **How to Watch Free Live Television on Your Phone or Tablet**\
 `Whether by app or old-school antennas, budget-friendly options abound.`\
 https://nytimes.com/2026/02/18/technology/personaltech/free-live-tv-mobile-apps.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/02/18/sports/milan-olympics-gold-silver-med
 **Ukraine's Winter Olympians led out by Russian at opening ceremony**\
 `Anastasia Kucherova, who has lived in Milan for 14 years, asked if she could carry the "Ucraina" sign.`\
 https://nytimes.com/athletic/7054728/2026/02/18/ukraine-opening-ceremony-sign-russia/
-
-**How Crypto’s Lobbying Muscle May Save a Big Bill**\
-`A market rout may have decimated the crypto industry. But its machine in Washington may power proposed regulation past concerned Democrats.`\
-https://nytimes.com/2026/02/18/business/dealbook/crypto-lobbying-clarity-act-fairshake.html
-
-**E.P.A. Faces First Lawsuit Over Its Killing of Major Climate Rule**\
-`Environmental and health groups sued the E.P.A. over its elimination of the endangerment finding. The matter is likely to end up before the Supreme Court.`\
-https://nytimes.com/2026/02/18/climate/epa-endangerment-finding-lawsuit.html
-
-**Trump Administration Live Updates: Democratic Lawmakers Intend to Boycott State of the Union Address**\
-``\
-https://nytimes.com/live/2026/02/18/us/trump-news
 
