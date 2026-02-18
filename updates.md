@@ -1,3 +1,7 @@
+**Elon Musk’s xAI Gets $3 Billion Investment From Saudi-Backed A.I. Firm**\
+`Humain, which was created by Crown Prince Mohammed bin Salman last year, said it made the investment just before xAI was acquired by SpaceX, Mr. Musk’s rocket company.`\
+https://nytimes.com/2026/02/18/business/xai-humain-saudi-musk-spacex.html
+
 **What I'm seeing from the Penguins: Kris Letang healthy, Evgeni Malkin not talking**\
 `With Letang almost ready to go and Filip Hållander improving, the Penguins are feeling good about their playoff push.`\
 https://nytimes.com/athletic/7054163/2026/02/18/penguins-kris-letang-evgeni-malkin-olympics/
