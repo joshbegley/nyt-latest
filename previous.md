@@ -1,40 +1,40 @@
-**Mikaela Shiffrin leads Olympic slalom, eyes medal after blazing-fast first run**\
-`Shiffrin put herself in strong position to end her Olympic medal drought, topping the field Wednesday in the first run of the slalom.`\
-https://nytimes.com/athletic/7054476/2026/02/18/mikaela-shiffrin-slalom-winter-olympics-gold-medal-lena-duerr/
+**An Architect of Virginia’s Redistricting Will Run for a New Seat Himself**\
+`Dan Helmer, a Democratic state lawmaker, played a key role in putting redrawn congressional maps before state voters.`\
+https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-virginia.html
 
-**The Powerful Speeches of Jesse Jackson**\
-`The Rev. Jesse Jackson gave a master class in public speaking over several decades as a powerful orator. He died on Tuesday at 84.`\
-https://nytimes.com/video/us/100000010719414/jesse-jackson-speeches.html
+**Democrats Plan to Counter Trump’s Speech to Congress With Rally**\
+`The House Democratic leader has asked rank-and-file members to sit quietly at the speech or skip it altogether, wary of creating a distraction.`\
+https://nytimes.com/2026/02/18/us/politics/democrats-trump-congress.html
 
-**IMG to pay $1.72 million fine for accepting tuition from parents tied to Mexican cartel**\
-`The Florida school processed tuition payments for students whose parents had ties to a drug cartel, according to the Treasury Department.`\
-https://nytimes.com/athletic/7053574/2026/02/18/img-academy-settlement-treasury-mexican-drug-cartel/
+**How to Dress for Financial Fraud**\
+`The best dressed character on HBO’s “Industry” also happens to be its most morally compromised.`\
+https://nytimes.com/2026/02/18/style/industry-hbo-fashion.html
 
-**How to watch Team USA’s Red Gerard in men's snowboard slopestyle final**\
-`Three Americans highlight a field of 12 snowboarders competing for gold in the men's slopestyle final. Here's how to watch. `\
-https://nytimes.com/athletic/7053471/2026/02/18/mens-snowboard-slopestyle-final-winter-olympics-how-to-watch/
+**January’s Winter Storm Broke Records. So Do the Heat Bills.**\
+`People are starting to receive eye-popping energy bills after last month’s winter storm — but the cold weather may not be the only source to blame.`\
+https://nytimes.com/2026/02/18/realestate/january-winter-storm-cold-snap-heat-bills.html
 
-**What's it like being your nation's only Olympian? Multiple jobs, passport issues and vodka**\
-`Some countries send teams of more than 100 athletes to the Winter Olympics. Others send one person. These are their stories.`\
-https://nytimes.com/athletic/7049686/2026/02/18/winter-olympics-solo-athletes-country-cross-country-skiing/
+**What Happened When My Dad and I Came Out to Each Other**\
+`After we told the truth, our relationship would never be the same.`\
+https://nytimes.com/2026/02/18/podcasts/modern-love-what-happened-when-my-dad-and-i-came-out-to-each-other.html
 
-**Rousey vs Carano: Everything we know about MMA 'superfight'**\
-`Breaking down the details of the May 16 Netflix bout and why it is so commercially significant`\
-https://nytimes.com/athletic/7053320/2026/02/18/ronda-rousey-vs-gina-carano-fight-date-tv/
+**Marco Rubio Is Failing Western Civ**\
+`The Declaration of Independence’s powerful vision of equality stands as a chief obstacle to the MAGA right’s effort to consummate its vision of domination.`\
+https://nytimes.com/2026/02/18/opinion/marco-rubio-is-failing-western-civ.html
 
-**Stephen Colbert Finds a Place to File CBS’s Surprise Statement**\
-`“I don’t even know what to do with this,” Colbert said about the network’s news release on a scrapped interview with a Democratic politician, before putting the paper in a dog waste bag.`\
-https://nytimes.com/2026/02/18/arts/television/stephen-colbert-cbs-statement.html
+**$450,000 Homes in Vermont, Georgia and Colorado**\
+`A farmhouse in Jamaica, Vt., a 1930 townhouse in Savannah, Ga., and a cottage in Colorado Springs.`\
+https://nytimes.com/2026/02/18/realestate/jamaica-vermont-savannah-georgia-colorado-springs-home-sales.html
 
-**A Police Parking Lot in East Harlem Will Become Affordable Housing**\
-`The project is the latest example of a push by New York City to build homes on land it owns. The building will be 100 percent affordable, officials say.`\
-https://nytimes.com/2026/02/18/nyregion/nypd-parking-affordable-housing-nyc.html
+**In the Resistance, We Drive Minivans**\
+`In Minneapolis, people ignore the cold to defend their neighbors from ICE.`\
+https://nytimes.com/2026/02/18/opinion/minneapolis-ice-resistance-minivans.html
 
-**Viral Videos Helped Mamdani Win. Can They Help Him Govern?**\
-`Mayor Zohran Mamdani, who won over voters with his approach to social media, is using the same strategy to try to connect City Hall to all New Yorkers.`\
-https://nytimes.com/2026/02/18/nyregion/mamdani-social-media.html
+**How Mamdani Plans to Try to Fix NYCHA**\
+`The city’s biggest landlord, the Housing Authority, answers to the mayor. The system has long been in crisis.`\
+https://nytimes.com/2026/02/18/nyregion/mamdani-nycha-improvements.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/18/crosswords/spelling-bee-forum.html
+**How Intense Should Love Really Be? We Want to Hear Your Thoughts.**\
+`Have you ever been called a “love addict?” Ever suspected somebody else was?`\
+https://nytimes.com/2026/02/18/magazine/love-addiction-thoughts.html
 
