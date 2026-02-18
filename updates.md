@@ -1,3 +1,11 @@
+**As full-squad workouts begin, Dodgers ready to repeat — even with pitching questions**\
+`Andrew Friedman said the Dodgers will watch the pitchers' progress closely to "make sure we're not stepping on anybody too aggressively." `\
+https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching-outook/
+
+**How a Stray Quote of Jesse Jackson’s Led to a Rupture Between Black and Jewish Voters**\
+`The candidate’s reference to New York as “Hymietown” helped tank his 1984 presidential campaign and eroded a longstanding alliance.`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-1984-presidential-campaign.html
+
 **Until Saturday: Weirdest realignment move yet?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-saturday/

@@ -1,3 +1,11 @@
+**As full-squad workouts begin, Dodgers ready to repeat — even with pitching questions**\
+`Andrew Friedman said the Dodgers will watch the pitchers' progress closely to "make sure we're not stepping on anybody too aggressively." `\
+https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching-outook/
+
+**How a Stray Quote of Jesse Jackson’s Led to a Rupture Between Black and Jewish Voters**\
+`The candidate’s reference to New York as “Hymietown” helped tank his 1984 presidential campaign and eroded a longstanding alliance.`\
+https://nytimes.com/2026/02/17/us/jesse-jackson-1984-presidential-campaign.html
+
 **Until Saturday: Weirdest realignment move yet?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7053855/2026/02/17/sacramento-state-mac-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/17/business/goldman-sachs-diversity-board.html
 **Netanyahu Plays Trump and American Jews for Fools — Again**\
 `Netanyahu has gotten Trump to focus on Iran and ignore the destructive things Bibi is doing in Gaza, in the West Bank and inside Israel.`\
 https://nytimes.com/2026/02/17/opinion/israel-iran-netanyahu.html
-
-**Masters 2026 odds: Scottie Scheffler favored, Tiger Woods not ruling out return**\
-`Is Tiger Woods coming back? If Woods did, he would be an extreme long shot should he play in this year's Masters. `\
-https://nytimes.com/athletic/7053304/2026/02/17/masters-2026-odds-scottie-scheffler-tiger-woods/
-
-**Trim, not traded, Teoscar Hernández looks for bounce-back year with Dodgers**\
-`The team says it will move him back to left field, where he spent most of 2024.`\
-https://nytimes.com/athletic/7053602/2026/02/17/teoscar-hernandez-dodgers-bounce-back/
 
