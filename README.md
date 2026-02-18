@@ -1,3 +1,7 @@
+**Chasing NBA dreams from Qatar to All-Star Weekend: One prospect's journey**\
+`Could the NBA's next overseas star come from the Middle East? Abdulla Mousa's path to Basketball Without Borders shows league's ambition.`\
+https://nytimes.com/athletic/7051109/2026/02/18/abdulla-mousa-qatar-prospect-nba-all-star-2026/
+
 **An Architect of Virginia’s Redistricting Will Run for a New Seat Himself**\
 `Dan Helmer, a Democratic state lawmaker, played a key role in putting redrawn congressional maps before state voters.`\
 https://nytimes.com/2026/02/18/us/politics/dan-helmer-congress-redistricting-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/opinion/minneapolis-ice-resistance-minivans.html
 **How Mamdani Plans to Try to Fix NYCHA**\
 `The city’s biggest landlord, the Housing Authority, answers to the mayor. The system has long been in crisis.`\
 https://nytimes.com/2026/02/18/nyregion/mamdani-nycha-improvements.html
-
-**How Intense Should Love Really Be? We Want to Hear Your Thoughts.**\
-`Have you ever been called a “love addict?” Ever suspected somebody else was?`\
-https://nytimes.com/2026/02/18/magazine/love-addiction-thoughts.html
 
