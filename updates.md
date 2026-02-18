@@ -1,3 +1,7 @@
+**‘It feels like you are in concrete.’ A Swiss guide describes being caught in an avalanche.**\
+`By Sabrina Tavernise`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/it-feels-like-you-are-in-concrete-a-swiss-guide-describes-being-caught-in-an-avalanche
+
 **The Hockey Rivalry That’s More Than Heated**\
 `When the U.S. plays Canada in the Olympic women’s final, there will be much more than a gold medal at stake.`\
 https://nytimes.com/2026/02/18/opinion/olympic-womens-hockey-united-states-canada.html
