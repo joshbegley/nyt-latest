@@ -1,3 +1,7 @@
+**How James Justin has gone from versatile backup to Leeds' secret weapon**\
+`The one-cap England international has shown he can play a part at both ends — and on either side — of the pitch`\
+https://nytimes.com/athletic/7052408/2026/02/18/james-justin-leeds-box-runs/
+
 **Analysing Banks' breakthrough season, Pochettino's comments and USMNT prospects**\
 `The teenage center-back's performances have grabbed the attention of his international head coach and he has continued to impress in Germany`\
 https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/

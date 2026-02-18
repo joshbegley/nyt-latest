@@ -30,7 +30,7 @@ https://nytimes.com/athletic/7009688/2026/02/18/josh-abe-liverpool/
 `Tottenham are desperate to see France striker rediscover the form he showed under their new coach at Juventus`\
 https://nytimes.com/athletic/7052267/2026/02/18/igor-tudor-randal-kolo-muani-tottenham/
 
-**How James Justin has gone from versatile back-up to Leeds' secret weapon**\
+**How James Justin has gone from versatile backup to Leeds' secret weapon**\
 `The one-cap England international has shown he can play a part at both ends — and on either side — of the pitch`\
 https://nytimes.com/athletic/7052408/2026/02/18/james-justin-leeds-box-runs/
 
