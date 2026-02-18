@@ -1,3 +1,11 @@
+**What Do A.I. Chatbots Talk About Among Themselves? We Sent One to Find Out.**\
+`We interviewed our bot about what it learned on Moltbook, the A.I.-only social network.`\
+https://nytimes.com/2026/02/18/upshot/moltbook-artificial-intelligence-ai.html
+
+**N.I.H. Director Will Temporarily Run C.D.C. in Leadership Shake-Up**\
+`Dr. Jay Bhattacharya will serve as acting director of the Centers for Disease Control and Prevention until President Trump appoints a permanent director.`\
+https://nytimes.com/2026/02/18/us/politics/bhattacharya-kennedy-cdc-director.html
+
 **Games Briefing: Hockey's heating up, and Shiffrin's gold**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7055310/2026/02/18/mens-hockey-quarterfinals-mikaela-shiffrin-gold-medal-olympic-games-briefing/
@@ -26,12 +34,4 @@ https://nytimes.com/athletic/7053273/2026/02/18/nycfc-etihad-park-mls-stadium-ne
 **Do I Have to Take Over the Family Company if I Can’t Stand My Cousin?**\
 `I can’t picture spending the rest of my career working with him.`\
 https://nytimes.com/2026/02/18/magazine/family-company-cousin-ethics.html
-
-**Sidney Crosby injured in Canada's Olympic hockey quarterfinal game, won't return**\
-`Crosby was unable to finish Canada's Olympic quarterfinal game on Wednesday because of a lower-body injury.`\
-https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
-
-**Franz Wagner out with ankle soreness: How it could impact East playoff race**\
-`The Orlando Magic sit in seventh place in the Eastern Conference, but Franz Wagner is now out indefinitely. `\
-https://nytimes.com/athletic/7054324/2026/02/18/franz-wagner-magic-injury-setback/
 

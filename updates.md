@@ -1,3 +1,16 @@
+**What Do A.I. Chatbots Talk About Among Themselves? We Sent One to Find Out.**\
+`We interviewed our bot about what it learned on Moltbook, the A.I.-only social network.`\
+https://nytimes.com/2026/02/18/upshot/moltbook-artificial-intelligence-ai.html
+
+**N.I.H. Director Will Temporarily Run C.D.C. in Leadership Shake-Up**\
+`Dr. Jay Bhattacharya will serve as acting director of the Centers for Disease Control and Prevention until President Trump appoints a permanent director.`\
+https://nytimes.com/2026/02/18/us/politics/bhattacharya-kennedy-cdc-director.html
+
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
 `Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
 `\
