@@ -1,3 +1,11 @@
+**Power Shift in Syria Upends an Archipelago for ISIS Prisoners**\
+`America’s Kurdish allies oversaw two dozen sites holding thousands of members of the terrorist group and their families. Their withdrawal has left the system in chaos.`\
+https://nytimes.com/2026/02/18/world/middleeast/syria-prisons-isis.html
+
+**Remembering Jesse Jackson**\
+`We look back at the life and legacy of an American who helped shape our politics and our culture.`\
+https://nytimes.com/2026/02/18/briefing/remembering-jesse-jackson.html
+
 **AI: Education**\
 ``\
 https://nytimes.com/spotlight/ai-education
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7053862/2026/02/18/detroit-lions-nfl-draft-big-boar
 **Cowboys big board: 20 potential first-round targets focus mostly on defense**\
 `While defense — specifically linebacker, edge rusher and defensive back — will be a draft priority, the Cowboys could also eye OT.`\
 https://nytimes.com/athletic/7053843/2026/02/18/cowboys-nfl-draft-big-board-first-round/
-
-**Colbert Says CBS Barred Interview With Democrat, and Search Teams Scramble After Lake Tahoe Avalanche**\
-`Plus, Brad Pitt vs. Tom Cruise?`\
-https://nytimes.com/2026/02/18/podcasts/the-headlines/colbert-cbs-interview-lake-tahoe-avalanche.html
-
-**Kansas State says Jerome Tang's words cost him his job. Do his comments justify it?**\
-`Kansas State fired Tang after his heated comments following a blowout loss. Will the school's stance that it was a for-cause firing hold up?`\
-https://nytimes.com/athletic/7053723/2026/02/18/kansas-state-jerome-tang-fired-for-cause/
 

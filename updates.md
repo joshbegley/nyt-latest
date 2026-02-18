@@ -1,3 +1,11 @@
+**Power Shift in Syria Upends an Archipelago for ISIS Prisoners**\
+`America’s Kurdish allies oversaw two dozen sites holding thousands of members of the terrorist group and their families. Their withdrawal has left the system in chaos.`\
+https://nytimes.com/2026/02/18/world/middleeast/syria-prisons-isis.html
+
+**Remembering Jesse Jackson**\
+`We look back at the life and legacy of an American who helped shape our politics and our culture.`\
+https://nytimes.com/2026/02/18/briefing/remembering-jesse-jackson.html
+
 **Can winning championships get boring? North Dakota State fans are eager to try leveling up**\
 `After winning 10 FCS titles in 15 seasons, North Dakota State is joining the Mountain West in the FBS. There are pluses and minuses.`\
 https://nytimes.com/athletic/7053125/2026/02/18/north-dakota-state-fbs-fcs-mountain-west/
