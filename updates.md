@@ -1,3 +1,7 @@
+**Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
+`The Canadians will play for an Olympic medal after winning a nail-biter vs. the Czech Republic in overtime on Wednesday.`\
+https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
+
 **Mamdani Directs Agency to Restart Homeless Encampments Sweeps**\
 `Mayor Zohran Mamdani reversed course on Wednesday and said that New York City will restart the process of sweeping homeless encampments. Mr. Mamdani said that his administration will connect the homeless will shelter and services.`\
 https://nytimes.com/video/us/100000010720648/nyc-mayor-homeless-encampments-sweeps.html

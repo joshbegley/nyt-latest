@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7055306/2026/02/18/nba2k-college-players-basketball
 https://nytimes.com/athletic/7055370/2026/02/18/f1-preseason-testing-takeaways-lewis-hamiiton-aston-martin/
 
 **Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
-`The Canadians will play for an Olympic medal after hanging on to defeat the Czech Republic in overtime on Wednesday.`\
+`The Canadians will play for an Olympic medal after winning a nail-biter vs. the Czech Republic in overtime on Wednesday.`\
 https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
 
