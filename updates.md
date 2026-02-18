@@ -1,3 +1,11 @@
+**2026 Olympics, Day 11 recap: Liu impresses in short program; USA men's hockey to face Sweden**\
+`Alysa Liu was divine in the women’s figure skating short program and other news from Day 11 of the Winter Olympics.`\
+https://nytimes.com/athletic/7053135/2026/02/17/olympics-recap-liu-vonn-mens-hockey/
+
+**NC State fans chant 'No means no' at UNC's Zayden High during rivalry win**\
+`High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amid allegations of sexual misconduct.`\
+https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/
+
 **NC State fans chant 'No means no' at UNC's Zayden High during rivalry win**\
 `High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amidst allegations of sexual misconduct.`\
 https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/

@@ -1,5 +1,9 @@
+**2026 Olympics, Day 11 recap: Liu impresses in short program; USA men's hockey to face Sweden**\
+`Alysa Liu was divine in the women’s figure skating short program and other news from Day 11 of the Winter Olympics.`\
+https://nytimes.com/athletic/7053135/2026/02/17/olympics-recap-liu-vonn-mens-hockey/
+
 **NC State fans chant 'No means no' at UNC's Zayden High during rivalry win**\
-`High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amidst allegations of sexual misconduct.`\
+`High drew chants that appeared to reference his removal from the Tar Heels’ roster last season amid allegations of sexual misconduct.`\
 https://nytimes.com/athletic/7054022/2026/02/17/zayden-high-nc-state-unc/
 
 **What went wrong for Amber Glenn in the short program: The invalid element explained**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053874/2026/02/17/rich-bisaccia-steps-down-packers
 **Jaden Rashada settles NIL suit against Billy Napier, Florida booster**\
 `The former blue-chip quarterback's NIL deal with Florida, worth $13.85 million, never materialized. `\
 https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-florida-billy-napier/
-
-**As full-squad workouts begin, Dodgers ready to repeat — even with pitching questions**\
-`Andrew Friedman said the Dodgers will watch the pitchers' progress closely to "make sure we're not stepping on anybody too aggressively."`\
-https://nytimes.com/athletic/7053329/2026/02/17/dodgers-spring-training-pitching-outook/
 
