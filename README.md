@@ -1,3 +1,7 @@
+**Vinicius Jr racism allegations: The protocols, possible punishments and what happens next**\
+`Dissecting how allegations of racism are dealt with by football's authorities and what the consequences could be`\
+https://nytimes.com/athletic/7054944/2026/02/18/vincius-jr-racism-protocol-punishment/
+
 **Fritz Lang’s Silent Epic, the Way It Was Meant to Be Heard**\
 `The monumental, two-film “Die Nibelungen,” drawn from similar material to Wagner’s “Ring,” is best when presented live with a full orchestra.`\
 https://nytimes.com/2026/02/18/arts/music/fritz-lang-die-nibelungen.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055215/2026/02/18/baylor-vs-texas-tech-stream-how-
 **How to watch UConn vs. Villanova women's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7055213/2026/02/18/uconn-vs-villanova-stream-how-to-watch-feb-18/
-
-**How to watch Creighton vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055207/2026/02/18/creighton-vs-uconn-stream-how-to-watch-feb-18/
 
