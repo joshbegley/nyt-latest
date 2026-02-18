@@ -1,3 +1,7 @@
+**Mikaela Shiffrin leads Olympic slalom, eyes medal after blazing-fast first run**\
+`Shiffrin put herself in strong position to end her Olympic medal drought, topping the field Wednesday in the first run of the slalom.`\
+https://nytimes.com/athletic/7054476/2026/02/18/mikaela-shiffrin-slalom-winter-olympics-gold-medal-lena-duerr/
+
 **The Powerful Speeches of Jesse Jackson**\
 `The Rev. Jesse Jackson gave a master class in public speaking over several decades as a powerful orator. He died on Tuesday at 84.`\
 https://nytimes.com/video/us/100000010719414/jesse-jackson-speeches.html

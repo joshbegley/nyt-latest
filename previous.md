@@ -1,3 +1,7 @@
+**Mikaela Shiffrin leads Olympic slalom, eyes medal after blazing-fast first run**\
+`Shiffrin put herself in strong position to end her Olympic medal drought, topping the field Wednesday in the first run of the slalom.`\
+https://nytimes.com/athletic/7054476/2026/02/18/mikaela-shiffrin-slalom-winter-olympics-gold-medal-lena-duerr/
+
 **The Powerful Speeches of Jesse Jackson**\
 `The Rev. Jesse Jackson gave a master class in public speaking over several decades as a powerful orator. He died on Tuesday at 84.`\
 https://nytimes.com/video/us/100000010719414/jesse-jackson-speeches.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/nyregion/mamdani-social-media.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/18/crosswords/spelling-bee-forum.html
-
-**Analysing Banks' breakthrough season, Pochettino's comments and USMNT prospects**\
-`The teenage center-back's performances have grabbed the attention of his international head coach and he has continued to impress in Germany`\
-https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/
 
