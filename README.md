@@ -1,3 +1,7 @@
+**WNBA players offer lower revenue share, salary cap in latest counterproposal**\
+`Housing — the current CBA requires teams to provide housing to all players — is another issue in the negotiations.`\
+https://nytimes.com/athletic/7054080/2026/02/17/wnba-players-union-cba-negotiations-update-revenue-share-housing/
+
 **2026 Olympics, Day 11 recap: Liu impresses in short program; USA men's hockey to face Sweden**\
 `Alysa Liu was divine in the women’s figure skating short program and other news from Day 11 of the Winter Olympics.`\
 https://nytimes.com/athletic/7053135/2026/02/17/olympics-recap-liu-vonn-mens-hockey/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7053836/2026/02/17/vinicius-junior-gianluca-prestia
 **Here’s the Triple Axel That Gave Ami Nakai the Lead After the Short Program**\
 `Japanese figure skaters placed in three of the top four spots after the women’s short program, but only six points separated the medal favorites ahead of the free skate on Thursday.`\
 https://nytimes.com/interactive/2026/02/17/sports/ami-nakai-olympics-skating-short-program.html
-
-**Rich Bisaccia steps down as Packers special teams coordinator**\
-`Bisaccia, who had been an NFL special teams coordinator since 2002, just finished his fourth season with the Packers.`\
-https://nytimes.com/athletic/7053874/2026/02/17/rich-bisaccia-steps-down-packers-special-teams-coordinator/
-
-**Jaden Rashada settles NIL suit against Billy Napier, Florida booster**\
-`The former blue-chip quarterback's NIL deal with Florida, worth $13.85 million, never materialized. `\
-https://nytimes.com/athletic/7053891/2026/02/17/jaden-rashada-settlement-nil-florida-billy-napier/
 
