@@ -1,3 +1,7 @@
+**The Powerful Speeches of Jesse Jackson**\
+`The Rev. Jesse Jackson gave a master class in public speaking over several decades as a powerful orator. He died on Tuesday at 84.`\
+https://nytimes.com/video/us/100000010719414/jesse-jackson-speeches.html
+
 **IMG to pay $1.72 million fine for accepting tuition from parents tied to Mexican cartel**\
 `The Florida school processed tuition payments for students whose parents had ties to a drug cartel, according to the Treasury Department.`\
 https://nytimes.com/athletic/7053574/2026/02/18/img-academy-settlement-treasury-mexican-drug-cartel/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/crosswords/spelling-bee-forum.html
 **Analysing Banks' breakthrough season, Pochettino's comments and USMNT prospects**\
 `The teenage center-back's performances have grabbed the attention of his international head coach and he has continued to impress in Germany`\
 https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/
-
-**Word of the Day: altercation**\
-`This word has appeared in 343 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/18/learning/word-of-the-day-altercation.html
 
