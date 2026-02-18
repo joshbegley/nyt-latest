@@ -1,3 +1,7 @@
+**President Trump Is a Wrecking Ball. And He’s Only Getting Started.**\
+`As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
+https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
+
 **Stephen Colbert Finds a Place to File CBS’s Surprise Statement**\
 `“I don’t even know what to do with this,” Colbert said about the network’s news release on a scrapped interview with a Democratic politician, before putting the paper in a dog waste bag.`\
 https://nytimes.com/2026/02/18/arts/television/stephen-colbert-cbs-statement.html

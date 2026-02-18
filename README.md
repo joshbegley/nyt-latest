@@ -1,3 +1,7 @@
+**Rousey vs Carano: Everything we know about MMA 'superfight'**\
+`Breaking down the details of the May 16 Netflix bout and why it is so commercially significant`\
+https://nytimes.com/athletic/7053320/2026/02/18/ronda-rousey-vs-gina-carano-fight-date-tv/
+
 **Stephen Colbert Finds a Place to File CBS’s Surprise Statement**\
 `“I don’t even know what to do with this,” Colbert said about the network’s news release on a scrapped interview with a Democratic politician, before putting the paper in a dog waste bag.`\
 https://nytimes.com/2026/02/18/arts/television/stephen-colbert-cbs-statement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7050911/2026/02/18/wrexham-chelsea-league-fa-cup/
 **The New York Times in Print for Wednesday, Feb. 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/18/todays-new-york-times
-
-**President Trump Is a Wrecking Ball. And He’s Only Getting Started.**\
-`As we lose our alliances and instability spreads, America is headed for more, not fewer, international entanglements.`\
-https://nytimes.com/2026/02/18/opinion/trump-america-europe-world-munich.html
 
