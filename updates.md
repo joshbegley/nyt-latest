@@ -1,3 +1,7 @@
+**E.P.A. Faces First Lawsuit Over Its Killing of Major Climate Rule**\
+`Environmental and health groups sued the E.P.A. over its elimination of the endangerment finding. The matter is likely to end up before the Supreme Court.`\
+https://nytimes.com/2026/02/18/climate/epa-endangerment-finding-lawsuit.html
+
 **Trump Administration Live Updates: Democratic Lawmakers Intend to Boycott State of the Union Address**\
 ``\
 https://nytimes.com/live/2026/02/18/us/trump-news
