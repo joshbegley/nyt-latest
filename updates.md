@@ -1,3 +1,15 @@
+**AI: Education**\
+``\
+https://nytimes.com/spotlight/ai-education
+
+**Women's NCAA Tournament Bubble Watch: Could Standford miss out for a second year?**\
+`Iowa State seems safe, but what about Colorado, Princeton and Utah? `\
+https://nytimes.com/athletic/7054212/2026/02/18/womens-ncaa-tournament-bubble-watch-stanford/
+
+**USA vs. Sweden quarterfinal pits 7 Wild teammates against one another**\
+`The late game Wednesday will feature a host of players who are very familiar as NHL teammates.`\
+https://nytimes.com/athletic/7053479/2026/02/18/olympics-mens-hockey-quarterfinals-usa-sweden-wild-teammates/
+
 **The Pulse: Is baseball headed for doom?**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7054390/2026/02/18/tony-clark-mlbpa-resign-the-pulse/
