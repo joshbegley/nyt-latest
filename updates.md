@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
 
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
 `Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
 https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/

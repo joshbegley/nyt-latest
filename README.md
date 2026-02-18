@@ -1,3 +1,7 @@
+**Games Briefing: Hockey's heating up, and Shiffrin's gold**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7055310/2026/02/18/mens-hockey-quarterfinals-mikaela-shiffrin-gold-medal-olympic-games-briefing/
+
 **Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
 `Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
 `\
@@ -23,15 +27,11 @@ https://nytimes.com/athletic/7053273/2026/02/18/nycfc-etihad-park-mls-stadium-ne
 `I can’t picture spending the rest of my career working with him.`\
 https://nytimes.com/2026/02/18/magazine/family-company-cousin-ethics.html
 
-**Sidney Crosby exits Canada's Olympic hockey quarterfinal game with apparent injury**\
-`Crosby left Canada's Olympic hockey quarterfinal game during the second period with an apparent injury and has not returned.`\
+**Sidney Crosby injured in Canada's Olympic hockey quarterfinal game, won't return**\
+`Crosby was unable to finish Canada's Olympic quarterfinal game on Wednesday because of a lower-body injury.`\
 https://nytimes.com/athletic/7055278/2026/02/18/sidney-crosby-canada-olympics-hockey-injury/
 
 **Franz Wagner out with ankle soreness: How it could impact East playoff race**\
 `The Orlando Magic sit in seventh place in the Eastern Conference, but Franz Wagner is now out indefinitely. `\
 https://nytimes.com/athletic/7054324/2026/02/18/franz-wagner-magic-injury-setback/
-
-**Ukrainian officials to boycott Paralympics after Russia reinstated**\
-`Six athletes have been given slots to compete for Russia despite their compatriots participating neutrally in the Olympics since 2022. `\
-https://nytimes.com/athletic/7055126/2026/02/18/ukraine-russia-paralympics-milano-cortina-ban/
 
