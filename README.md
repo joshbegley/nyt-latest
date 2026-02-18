@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/18/climate/epa-mercury-coal-plants.html
 
 **The Briefing: Qarabag 1 Newcastle 6 - Gordon's four-goal display, Woltemade happy in Newcastle**\
-`Anthony Gordon hit four goals as Newcastle United overcame Qarabag with a 6-1 win in their Champions League play-off first-leg`\
+`Anthony Gordon hit four goals as Newcastle United overcame Qarabag with a 6-1 win in their Champions League play-off first leg`\
 https://nytimes.com/athletic/7050526/2026/02/18/newcastle-nick-woltemade-future-anthony-gordon/
 
 **Doug Gottlieb suspended 1 game by Horizon League following postgame tirade**\
