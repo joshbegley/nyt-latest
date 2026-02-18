@@ -1,3 +1,7 @@
+**Mamdani Fills Out Housing Board in Push to Freeze Rent**\
+`Mayor Zohran Mamdani appointed six members to the Rent Guidelines Board, which decides whether rents can go up in nearly one million rent-stabilized apartments.`\
+https://nytimes.com/2026/02/18/nyregion/zohran-mamdani-rent-guidelines-board-freeze.html
+
 **How to watch Baylor vs. Texas Tech women's basketball: Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7055215/2026/02/18/baylor-vs-texas-tech-stream-how-to-watch-feb-18/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/dining/crispy-crunchy-snappy-crackly.html
 **How Microbes Got Their Crawl**\
 `In the oceans and on land, scientists are discovering rare, transitional organisms that bridge the gap between Earth’s simplest cells and today’s complex ones.`\
 https://nytimes.com/2026/02/18/science/evolution-cells-asgard.html
-
-**7 Moves to Improve Your Balance and Overall Strength**\
-`These exercises challenge one side of your body at a time. Practicing them can make daily tasks easier.`\
-https://nytimes.com/2026/02/18/well/move/strength-training-exercises-balance-unilateral.html
 
