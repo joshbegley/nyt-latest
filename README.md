@@ -1,3 +1,11 @@
+**Shutdowns Don’t Usually Stop Disaster Work. FEMA Just Made It Harder.**\
+`The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
+https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
+
+**The iPhone’s Emergency SOS feature allowed the skiers to text with emergency responders after the avalanche.**\
+`By Kalley Huang`\
+https://nytimes.com/live/2026/02/18/us/lake-tahoe-avalanche-missing-skiers/apple-iphone-sos-satellite-rescue
+
 **Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
 `The violations stemmed from immigration cases. Judges across the country have expressed alarm about illegal transfers and missed deadlines.`\
 https://nytimes.com/2026/02/18/us/politics/court-orders-new-jersey-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/texas-elections-senate-primary.html
 **Defense Dept. and Anthropic Square Off in Dispute Over A.I. Safety**\
 `How artificial intelligence will be used in future battlefields is an issue that has turned increasingly political and may put Anthropic in a bind.`\
 https://nytimes.com/2026/02/18/technology/defense-department-anthropic-ai-safety.html
-
-**Muslims in Gaza Observe Ramadan Amid Fragile Cease-Fire Deal**\
-`Muslims in Gaza broke their fast for the start of Ramadan on Wednesday. The holy month began amid a fragile cease-fire deal between Israel and Hamas.`\
-https://nytimes.com/video/world/middleeast/100000010721237/gaza-ramadan-israel-hamas.html
-
-**As Elections Loom in France, a Young Activist Is Killed and Tensions Spike**\
-`The beating death of Quentin Deranque has quickly become a flashpoint between the far right and far left as France prepares for local elections next month and presidential elections next year.`\
-https://nytimes.com/2026/02/18/world/europe/france-beating-activist-far-left-right.html
 
