@@ -1,3 +1,11 @@
+**Inside the Nick Suzuki decision that kept Team Canada’s Olympic hopes alive**\
+`There was a lot on Nick Suzuki's mind in the late stages of Canada's quarterfinal game, and despite that, his brain made the difference.`\
+https://nytimes.com/athletic/7056199/2026/02/18/nick-suzuki-canada-olympic-mens-hockey-quarterfinals/
+
+**How the U.S. Ice Dancer Madison Chock Began Designing Her Costumes**\
+`In addition to creating costumes for her own team at the 2026 Olympic Winter Games, the U.S. ice dancer Madison Chock also designed outfits for her competitors.`\
+https://nytimes.com/video/the-athletic/100000010721617/how-the-us-ice-dancer-madison-chock-began-designing-her-costumes.html
+
 **How a pep talk from an injured Sidney Crosby fueled Canada’s Olympic quarterfinal win**\
 `Canada's captain addressed his teammates before the third period, motivating them to a 4-3 overtime win over the Czech Republic.`\
 https://nytimes.com/athletic/7056037/2026/02/18/sidney-crosby-injury-canada-olympic-quarterfinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/trump-trademark-airport-name.html
 **Yankees planning to add former Cubs official to boost presence in Japan: Sources**\
 `Once a prime spot for top Japanese talent, the Yankees haven’t featured a player from Japan since 2020. `\
 https://nytimes.com/athletic/7000627/2026/02/18/yankees-cubs-official-hiring-japan-presence/
-
-**Daniel Radcliffe Doesn’t Want His Son to Know He Played Harry Potter. At Least Not Yet.**\
-`Daniel Radcliffe, who returns to Broadway in “Every Brilliant Thing,” shared how his love for the “The Simpsons” has endured over the years and he revealed which books he is reading to his son.`\
-https://nytimes.com/video/arts/100000010692517/daniel-radcliffe-every-beautiful-thing-books-tv.html
-
-**Workplace Inspections by OSHA Dropped Over a Six-Month Period of 2025**\
-`Labor advocates worry that the Trump administration is relaxing oversight of companies and increasing the potential for serious injuries and deaths.`\
-https://nytimes.com/2026/02/18/us/politics/workplace-inspections-decrease-osha.html
 
