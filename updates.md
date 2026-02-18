@@ -1,3 +1,7 @@
+**Can Ohio State sign the No. 1 recruiting class after a strong start for 2027?**\
+`Ohio State has already made an early splash in the 2027 football recruiting cycle. Here are five thoughts on where the Buckeyes stand.`\
+https://nytimes.com/athletic/7052832/2026/02/18/ohio-state-recruiting-class-2027-rankings/
+
 **Team USA wins silver, Johannes Høsflot Klæbo claims another gold in Olympic cross-country skiing**\
 `Ben Ogden and Gus Schumacher won silver in the team sprint relay on Wednesday while Italy took bronze.`\
 https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
