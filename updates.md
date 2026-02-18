@@ -1,3 +1,11 @@
+**Analysing Banks' breakthrough season, Pochettino's comments and USMNT prospects**\
+`The teenage center-back's performances have grabbed the attention of his international head coach and he has continued to impress in Germany`\
+https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/
+
+**Word of the Day: altercation**\
+`This word has appeared in 343 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/18/learning/word-of-the-day-altercation.html
+
 **Vinicius Jr cuts a lonely, weary figure on another ugly night for football**\
 `The Real Madrid forward is a beguiling footballer but looks increasingly exhausted at having to draw strength from fighting his tormentors`\
 https://nytimes.com/athletic/7054185/2026/02/18/vinicius-jr-racism-benfica-real-madrid/
