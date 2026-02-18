@@ -1,3 +1,11 @@
+**Kevin Durant brushes off burner accusations: 'Not here to get into Twitter nonsense'**\
+`Suspicions that Durant used burner accounts first surfaced in 2017, when he sent several tweets from his personal Twitter account.`\
+https://nytimes.com/athletic/7054258/2026/02/18/kevin-durant-x-burner-accounts-rockets/
+
+**With Garland’s debut pushed to March, Kawhi must keep Clippers surging**\
+`Darius Garland's debut still remains weeks away, which magnifies Kawhi Leonard's importance during the Clippers' final 28 games. `\
+https://nytimes.com/athletic/7055616/2026/02/18/darius-garland-clippers-recovery-kawhi-leonard/
+
 **Spurs to freeze season-ticket prices for 2026-27 season**\
 `The decision is the result of discussions with the club's Fan Advisory Board and the Tottenham Hotspur Supporters' Trust.`\
 https://nytimes.com/athletic/7055629/2026/02/18/tottenham-spurs-season-ticket-prices/
