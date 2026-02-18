@@ -1,3 +1,7 @@
+**IMG to pay $1.72 million fine for accepting tuition from parents tied to Mexican cartel**\
+`The Florida school processed tuition payments for students whose parents had ties to a drug cartel, according to the Treasury Department.`\
+https://nytimes.com/athletic/7053574/2026/02/18/img-academy-settlement-treasury-mexican-drug-cartel/
+
 **How to watch Team USA’s Red Gerard in men's snowboard slopestyle final**\
 `Three Americans highlight a field of 12 snowboarders competing for gold in the men's slopestyle final. Here's how to watch. `\
 https://nytimes.com/athletic/7053471/2026/02/18/mens-snowboard-slopestyle-final-winter-olympics-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052185/2026/02/18/noahkai-banks-usmnt-augsburg/
 **Word of the Day: altercation**\
 `This word has appeared in 343 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/18/learning/word-of-the-day-altercation.html
-
-**Vinicius Jr cuts a lonely, weary figure on another ugly night for football**\
-`The Real Madrid forward is a beguiling footballer but looks increasingly exhausted at having to draw strength from fighting his tormentors`\
-https://nytimes.com/athletic/7054185/2026/02/18/vinicius-jr-racism-benfica-real-madrid/
 

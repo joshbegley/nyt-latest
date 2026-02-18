@@ -1,3 +1,11 @@
+**How to watch Team USA’s Red Gerard in men's snowboard slopestyle final**\
+`Three Americans highlight a field of 12 snowboarders competing for gold in the men's slopestyle final. Here's how to watch. `\
+https://nytimes.com/athletic/7053471/2026/02/18/mens-snowboard-slopestyle-final-winter-olympics-how-to-watch/
+
+**What's it like being your nation's only Olympian? Multiple jobs, passport issues and vodka**\
+`Some countries send teams of more than 100 athletes to the Winter Olympics. Others send one person. These are their stories.`\
+https://nytimes.com/athletic/7049686/2026/02/18/winter-olympics-solo-athletes-country-cross-country-skiing/
+
 **Rousey vs Carano: Everything we know about MMA 'superfight'**\
 `Breaking down the details of the May 16 Netflix bout and why it is so commercially significant`\
 https://nytimes.com/athletic/7053320/2026/02/18/ronda-rousey-vs-gina-carano-fight-date-tv/
