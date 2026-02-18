@@ -1,3 +1,7 @@
+**Twins 'hunt for good' in wake of Pablo López's possible season-ending injury**\
+`New manager Derek Shelton won't discount the impact of López's injury but also thinks there's a chance for someone else to step up.`\
+https://nytimes.com/athletic/7055971/2026/02/18/twins-reaction-pablo-lopez-elbow-injury-ucl/
+
 **Texas Tech star forward JT Toppin suffers season-ending injury**\
 `An MRI confirmed a torn ACL in Texas Tech forward JT Toppin's right knee.`\
 https://nytimes.com/athletic/7056035/2026/02/18/jt-toppin-texas-tech-injury-season-ending/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/climate/antarctica-expedition-return.html
 **Jordan Binnington vindicates Hockey Canada's belief in him with Olympic heroics**\
 `Binnington has been the worst goalie in the NHL this season. But in Canada's nail-biter of an Olympic quarterfinal he made save after save.`\
 https://nytimes.com/athletic/7055834/2026/02/18/jordan-binnington-olympics-mens-hockey-canada/
-
-**6 Versions of ‘Wuthering Heights,’ 6 Very Different Depictions of Passion**\
-`From Merle Oberon and Laurence Olivier to Margot Robbie and Jacob Elordi nearly a century later, the onscreen connection between Cathy and Heathcliff has taken many turns.`\
-https://nytimes.com/2026/02/18/arts/wuthering-heights-different-movie-versions.html
 
