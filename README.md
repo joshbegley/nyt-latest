@@ -1,3 +1,7 @@
+**Amber Glenn's costly mistake punctuates her up-and-down Olympics**\
+`MILAN — For the second time in as many skates at the Milano Ice Skating Arena, Amber Glenn couldn’t stop the tears.`\
+https://nytimes.com/athletic/7053709/2026/02/17/amber-glenn-winter-olympics-figure-skating/
+
 **Mets notes: Luis Robert Jr. to be eased into spring training due to injury history**\
 `Robert, who has a history of lower-half injuries, will likely make his Grapefruit League debut in the second week of the schedule.`\
 https://nytimes.com/athletic/7053523/2026/02/17/mets-luis-robert-brett-baty-christian-scott/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7053688/2026/02/17/jose-mourinho-vinicius-racism-ch
 **Jackson’s Death Arrives at a Crucial Moment for Black Political Power**\
 `There are more Black senators than ever before, but a major Supreme Court ruling could reduce Black representation in the House.`\
 https://nytimes.com/2026/02/17/us/politics/jesse-jackson-black-voters-voting-rights-act.html
-
-**U.S. men's Olympic hockey team reacts to lighter boards, plus Auston Matthews vs. William Nylander**\
-`For the first time since 2014, Maple Leafs teammates Auston Matthews and William Nylander will play against each other.`\
-https://nytimes.com/athletic/7052983/2026/02/17/usa-olympic-hockey-matthews-nylander-sweden/
 
