@@ -1,3 +1,7 @@
+**Here’s the Triple Axel That Gave Ami Nakai the Lead After the Short Program**\
+`Japanese figure skaters placed in three of the top four spots after the women’s short program, but only six points separated the medal favorites ahead of the free skate on Thursday.`\
+https://nytimes.com/interactive/2026/02/17/sports/ami-nakai-olympics-skating-short-program.html
+
 **Rich Bisaccia steps down as Packers special teams coordinator**\
 `Bisaccia, who had been an NFL special teams coordinator since 2002, just finished his fourth season with the Packers.`\
 https://nytimes.com/athletic/7053874/2026/02/17/rich-bisaccia-steps-down-packers-special-teams-coordinator/
