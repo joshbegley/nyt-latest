@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘I Wrote Immediately and Effusively’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/02/18/style/tiny-modern-love-stories-i-wrote-immediately-and-effusively.html
+
+**MLBPA's scramble to replace Tony Clark won’t weaken union, likely successor says**\
+`With a round of collective bargaining approaching, Bruce Meyer pushed back at the notion that the union's bargaining power was diminished.`\
+https://nytimes.com/athletic/7055861/2026/02/18/bruce-meyer-tony-clark-mlb-union/
+
 **We’re Back on Land in New Zealand**\
 `But stay tuned: We’ve still got more to share about this Antarctic expedition, and the next ones scientists are already planning.`\
 https://nytimes.com/2026/02/18/climate/antarctica-expedition-return.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7055936/2026/02/18/vanderbilt-vs-missouri-stream-ho
 **How to watch Kansas vs. Oklahoma State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7055934/2026/02/18/kansas-vs-oklahoma-state-stream-how-to-watch-feb-18/
-
-**How to watch Gonzaga vs. San Francisco men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the San Francisco Dons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055931/2026/02/18/gonzaga-vs-san-francisco-stream-how-to-watch-feb-18/
-
-**How to watch Illinois vs. USC men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7055932/2026/02/18/illinois-vs-usc-stream-how-to-watch-feb-18/
 
