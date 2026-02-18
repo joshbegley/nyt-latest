@@ -1,3 +1,19 @@
+**South Sudan Appoints Dead Man to Election Panel, in Sign of Political Crisis**\
+`The government of President Salva Kiir has been accused of gross incompetence, as fighting between rebels and security forces pushes toward the capital.`\
+https://nytimes.com/2026/02/18/world/africa/south-sudan-dead-man-election-crisis.html
+
+**Meet the captain.**\
+`His name is Kim Gwang-heon and he has more than 40 years of seafaring experience.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/meet-the-captain
+
+**Snow Conditions Around Tahoe Were Ripe for an Avalanche**\
+`A recent dry spell meant that as heavy snow fell this week, it landed on an unstable snowpack.`\
+https://nytimes.com/2026/02/18/weather/tahoe-avalanche-snow-conditions.html
+
+**Canada defeats Czech Republic in overtime to reach Olympic men’s hockey semifinals**\
+`The Canadians will play for an Olympic medal after hanging on to defeat the Czech Republic in overtime on Wednesday.`\
+https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
+
 **Latest NBA 2K video game to feature active college players**\
 `Sixteen college additions for MyTeam, MyCareer mode in NBA 2K26 were revealed, the first of an expected larger college offering.`\
 https://nytimes.com/athletic/7055306/2026/02/18/nba2k-college-players-basketball-video-game/
