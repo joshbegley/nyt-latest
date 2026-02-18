@@ -1,3 +1,15 @@
+**Mamdani to Reinstitute Homeless Encampment Sweeps**\
+`Mayor Zohran Mamdani will place the Department of Homeless Services in charge of the sweeps, replacing the Police Department as lead of the interagency effort.`\
+https://nytimes.com/2026/02/18/nyregion/homeless-encampment-mamdani-nyc.html
+
+**In Cynthia Erivo’s ‘Dracula,’ There’s Mirth Amid the Horror**\
+`The “Wicked” actress plays 23 roles in a one-woman show on London’s West End.`\
+https://nytimes.com/2026/02/18/theater/dracula-cynthia-erivo.html
+
+**The Bounce: The Pistons have the NBA's best record. Why don't we trust them?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7054857/2026/02/18/pistons-best-record-west-eat-the-bounce/
+
 **What’s in Our Queue? ‘All Creatures Great and Small’ and More**\
 `Text by Shawn Hubler`\
 https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures

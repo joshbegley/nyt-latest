@@ -1,3 +1,15 @@
+**Mamdani to Reinstitute Homeless Encampment Sweeps**\
+`Mayor Zohran Mamdani will place the Department of Homeless Services in charge of the sweeps, replacing the Police Department as lead of the interagency effort.`\
+https://nytimes.com/2026/02/18/nyregion/homeless-encampment-mamdani-nyc.html
+
+**In Cynthia Erivo’s ‘Dracula,’ There’s Mirth Amid the Horror**\
+`The “Wicked” actress plays 23 roles in a one-woman show on London’s West End.`\
+https://nytimes.com/2026/02/18/theater/dracula-cynthia-erivo.html
+
+**The Bounce: The Pistons have the NBA's best record. Why don't we trust them?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7054857/2026/02/18/pistons-best-record-west-eat-the-bounce/
+
 **What’s in Our Queue? ‘All Creatures Great and Small’ and More**\
 `Text by Shawn Hubler`\
 https://nytimes.com/card/2026/02/18/arts/editors-recommendations-creatures
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/18/world/europe/ukraine-russia-peace-talks-demilitar
 **Elon Musk’s xAI Gets $3 Billion Investment From Saudi-Backed A.I. Firm**\
 `Humain, which was created by Crown Prince Mohammed bin Salman last year, said it made the investment just before xAI was acquired by SpaceX, Mr. Musk’s rocket company.`\
 https://nytimes.com/2026/02/18/business/xai-humain-saudi-musk-spacex.html
-
-**What I'm seeing from the Penguins: Kris Letang healthy, Evgeni Malkin not talking**\
-`With Letang almost ready to go and Filip Hållander improving, the Penguins are feeling good about their playoff push.`\
-https://nytimes.com/athletic/7054163/2026/02/18/penguins-kris-letang-evgeni-malkin-olympics/
-
-**As Trump Obliterates Climate Efforts, States Try to Fill the Gap**\
-`Across the country, Democratic-led states are accelerating their initiatives to cut greenhouse gas emissions. Their role just became much more important.`\
-https://nytimes.com/2026/02/18/climate/trump-climate-policies-states.html
-
-**Mikaela Shiffrin exorcises ghost of Olympic past.**\
-`After failing to medal in 2022, Shiffrin rebounded to win gold in slalom. `\
-https://nytimes.com/2026/02/18/world/mikaela-shiffrin-slalom-gold.html
 
