@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
 
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Games Briefing: Hockey's heating up, and Shiffrin's gold**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7055310/2026/02/18/mens-hockey-quarterfinals-mikaela-shiffrin-gold-medal-olympic-games-briefing/
