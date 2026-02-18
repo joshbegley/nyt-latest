@@ -1,3 +1,7 @@
+**E.P.A. Faces First Lawsuit Over Its Killing of Major Climate Rule**\
+`Environmental and health groups sued the E.P.A. over its elimination of the endangerment finding. The matter is likely to end up before the Supreme Court.`\
+https://nytimes.com/2026/02/18/climate/epa-endangerment-finding-lawsuit.html
+
 **Trump Administration Live Updates: Democratic Lawmakers Intend to Boycott State of the Union Address**\
 ``\
 https://nytimes.com/live/2026/02/18/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7052832/2026/02/18/ohio-state-recruiting-class-2027
 **Team USA wins silver, Johannes Høsflot Klæbo claims another gold in Olympic cross-country skiing**\
 `Ben Ogden and Gus Schumacher won silver in the team sprint relay on Wednesday while Italy took bronze.`\
 https://nytimes.com/athletic/7054560/2026/02/18/olympics-usa-ogden-schumacher-klaebo-cross-country-skiing/
-
-**Former child actor wins Olympic gold on his birthday**\
-`Su Yiming won gold in the men's snowboard slopestyle, while Team USA's Jake Canter took bronze. `\
-https://nytimes.com/athletic/7054532/2026/02/18/su-yiming-jake-canter-mens-snowboard-slopestyle-2026-winter-olympics/
 
