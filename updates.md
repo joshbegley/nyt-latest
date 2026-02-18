@@ -1,3 +1,7 @@
+**Workplace Inspections by OSHA Dropped Over a Six-Month Period of 2025**\
+`Labor advocates worry that the Trump administration is relaxing oversight of companies and increasing the potential for serious injuries and deaths.`\
+https://nytimes.com/2026/02/18/us/politics/workplace-inspections-decrease-osha.html
+
 **Lions president and CEO Rod Wood retiring after 11 seasons with team**\
 `The Lions will begin a global search for Wood's successor. He will remain in his role until Detroit makes a hire.`\
 https://nytimes.com/athletic/7056020/2026/02/18/lions-rod-wood-retiring-president-ceo/
