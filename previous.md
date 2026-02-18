@@ -1,3 +1,8 @@
+**Intriguing candidates emerge as MLBPA debates successor for ousted leader Tony Clark**\
+`Possibilities include Bruce Meyer and Matt Nussbaum, former MLBPA head Donald Fehr, and ex-players Daniel Murphy and Andrew Miller
+`\
+https://nytimes.com/athletic/7055242/2026/02/18/mlbpa-tony-clark-possible-replacements/
+
 **Genesis Invitational odds, DFS picks: Can you consider not picking Scheffler?**\
 `Scottie Scheffler enters the Genesis Invitational as the favorite. Can you afford to not have him on your daily fantasy lineups?`\
 https://nytimes.com/athletic/7055252/2026/02/18/genesis-invitational-odds-dfs-picks-scheffler/
@@ -29,8 +34,4 @@ https://nytimes.com/athletic/7054324/2026/02/18/franz-wagner-magic-injury-setbac
 **Ukrainian officials to boycott Paralympics after Russia reinstated**\
 `Six athletes have been given slots to compete for Russia despite their compatriots participating neutrally in the Olympics since 2022. `\
 https://nytimes.com/athletic/7055126/2026/02/18/ukraine-russia-paralympics-milano-cortina-ban/
-
-**Mamdani Fills Out Housing Board in Push to Freeze Rent**\
-`Mayor Zohran Mamdani appointed six members to the Rent Guidelines Board, which decides whether rents can go up in nearly one million rent-stabilized apartments.`\
-https://nytimes.com/2026/02/18/nyregion/zohran-mamdani-rent-guidelines-board-freeze.html
 
