@@ -1,3 +1,7 @@
+**Colorado Democrats Push to Rip Up 2028 House Map for an Extra Edge**\
+`A proposed ballot measure to give Democrats more seats for the 2028 and 2030 elections signals that the nation’s gerrymandering fight is likely to persist for years.`\
+https://nytimes.com/2026/02/18/us/politics/colorado-redistricting-house-map-2028.html
+
 **A Case Against 6 Democrats Lacked Urgency. Then Came a Swift Bid for an Indictment.**\
 `Prosecutors have been repeatedly caught between the president’s insistence that they undertake weak or baseless cases and the necessity of having to go to court.`\
 https://nytimes.com/2026/02/18/us/politics/pirro-inquiry-video-democratic-lawmakers.html
@@ -18,7 +22,7 @@ https://nytimes.com/2026/02/18/world/europe/russia-paralympics-italy.html
 `The Beatles, the Stones and Clapton shared the stage with him. He made solo hits, too. A documentary by Paris Barclay explores his success and his difficult life.`\
 https://nytimes.com/2026/02/18/movies/billy-preston-thats-the-way-god-planned-it-review.html
 
-**JD Vance suggests Eileen Gu should be representing the U.S. at Winter Olympics**\
+**JD Vance insinuates American-born Eileen Gu should be representing U.S. at Olympics**\
 `Gu was born in 2003, and her mother, Yan Gu, is a first-generation Chinese immigrant. Her father is American.`\
 https://nytimes.com/athletic/7054922/2026/02/18/eileen-gu-jd-vance-united-states-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/business/media/george-polk-awards.html
 **Kentucky Derby Operator Accused of Regulatory ‘Freeloading’**\
 `The Horseracing Integrity and Safety Authority filed a complaint saying Churchill Downs Inc. is not paying its fair share to support inspections and testing.`\
 https://nytimes.com/2026/02/18/business/churchill-downs-hisa-fees.html
-
-**Mamdani to Reinstitute Homeless Encampment Sweeps**\
-`Mayor Zohran Mamdani will place the Department of Homeless Services in charge of the sweeps, replacing the Police Department as lead of the interagency effort.`\
-https://nytimes.com/2026/02/18/nyregion/homeless-encampment-mamdani-nyc.html
 
