@@ -1,9 +1,17 @@
-**Canada hangs on to defeat Czechia, reach Olympic men’s hockey semifinals**\
+**Latest NBA 2K video game to feature active college players**\
+`Sixteen college additions for MyTeam, MyCareer mode in NBA 2K26 were revealed, the first of an expected larger college offering.`\
+https://nytimes.com/athletic/7055306/2026/02/18/nba2k-college-players-basketball-video-game/
+
+**F1 preseason testing: Max Verstappen's concerns linger - and so do Aston Martin's struggles**\
+`Aston Martin's problems are clear, even if F1's 2026 pecking order remains foggy. Here are the main takeaways from Day 1`\
+https://nytimes.com/athletic/7055370/2026/02/18/f1-preseason-testing-takeaways-lewis-hamiiton-aston-martin/
+
+**Canada hangs on to defeat Czech Republic, reach Olympic men’s hockey semifinals**\
 `The Canadians will play for an Olympic medal after hanging on to defeat the Czech Republic in overtime on Wednesday.`\
 https://nytimes.com/athletic/7055110/2026/02/18/canada-olympics-mens-hockey-czechia-quarterfinals/
 
 **Remember the German referee who proposed at a football game? The story has taken some dark turns since**\
-`In the weeks since Pacal Kaiser proposed to his boyfriend in Koln, there have been allegations of assault, faking injuries and embezzlement`\
+`In the weeks since Pascal Kaiser proposed to his boyfriend in Koln, there have been allegations of assault, faking injuries and embezzlement`\
 https://nytimes.com/athletic/7055179/2026/02/18/german-referee-proposal-alleged-assault/
 
 **A look at what three pitchers are working on as the Cubs build rotation depth**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7055294/2026/02/18/arthur-fils-goran-ivanisevic-coa
 **What are the overtime rules in the Olympic hockey tournament?**\
 `The rules change depending on the round, and ultimately the shootout is eliminated.`\
 https://nytimes.com/athletic/7039297/2026/02/18/olympic-hockey-overtime-shootout-rules/
-
-**Backcountry Skiers Carry a Variety of Safety Gear**\
-`Beacons, shovels and probes are necessities in avalanche country.`\
-https://nytimes.com/2026/02/18/us/backcountry-skiers-carry-a-variety-of-safety-gear.html
-
-**Why Don’t We Know How Many People Are Homeless?**\
-`In our conversation about numbers that explain the world, we’re looking at the point-in-time count.`\
-https://nytimes.com/2026/02/18/headway/homelessness-numbers-pit-count-report.html
 
