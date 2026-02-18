@@ -1,3 +1,7 @@
+**F.D.A. Reverses Decision and Agrees to Review Moderna’s Flu Vaccine**\
+`Moderna said it had held further discussions with regulators and announced that the agency would accept the company’s application for approval of its flu vaccine that uses mRNA technology.`\
+https://nytimes.com/2026/02/18/health/fda-moderna-flu-vaccine-mrna.html
+
 **When the Difference Between Olympic Gold and Silver Is Razor-Thin**\
 `The difference between first and second place in several events at the 2026 Winter Games has come down to margins unthinkably small. The dramatic finishes have thrilled spectators and left some competitors stunned.`\
 https://nytimes.com/interactive/2026/02/18/sports/milan-olympics-gold-silver-medal-close.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051575/2026/02/18/nba-college-basketball-pros-retu
 **Poor infield defense has plagued the Red Sox. This is how they're addressing it**\
 `Last year, Boston's infield group posted minus-21 Outs Above Average. Only four teams were worse.`\
 https://nytimes.com/athletic/7053637/2026/02/18/red-sox-infield-defense-drills-improvement-plan/
-
-**Men's college basketball mailbag: ACC coaches on hot seat, Big East's nadir and more**\
-`Plus: Is there a better way for college basketball to do scheduling?`\
-https://nytimes.com/athletic/7054288/2026/02/18/college-basketball-mailbag-acc-big-east-ncaa-tournament/
 

@@ -1,3 +1,19 @@
+**When the Difference Between Olympic Gold and Silver Is Razor-Thin**\
+`The difference between first and second place in several events at the 2026 Winter Games has come down to margins unthinkably small. The dramatic finishes have thrilled spectators and left some competitors stunned.`\
+https://nytimes.com/interactive/2026/02/18/sports/milan-olympics-gold-silver-medal-close.html
+
+**Ukraine's Winter Olympians led out by Russian at opening ceremony**\
+`Anastasia Kucherova, who has lived in Milan for 14 years, asked if she could carry the "Ucraina" sign.`\
+https://nytimes.com/athletic/7054728/2026/02/18/ukraine-opening-ceremony-sign-russia/
+
+**How Crypto’s Lobbying Muscle May Save a Big Bill**\
+`A market rout may have decimated the crypto industry. But its machine in Washington may power proposed regulation past concerned Democrats.`\
+https://nytimes.com/2026/02/18/business/dealbook/crypto-lobbying-clarity-act-fairshake.html
+
+**Which players would consider playing in the NBA's European League?**\
+`The NBA's European league is supposed to launch in October 2027. NBA players polled by The Athletic are intrigued by the new league.`\
+https://nytimes.com/athletic/7051499/2026/02/18/nba-all-star-player-poll-europe/
+
 **E.P.A. Faces First Lawsuit Over Its Killing of Major Climate Rule**\
 `Environmental and health groups sued the E.P.A. over its elimination of the endangerment finding. The matter is likely to end up before the Supreme Court.`\
 https://nytimes.com/2026/02/18/climate/epa-endangerment-finding-lawsuit.html
