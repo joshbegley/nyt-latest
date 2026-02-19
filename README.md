@@ -1,3 +1,11 @@
+**New York to Back Away From Robotaxi Pilot Programs Upstate**\
+`Gov. Kathy Hochul had proposed expanding the programs beyond New York City, but they do not have enough support, her office said.`\
+https://nytimes.com/2026/02/19/nyregion/new-york-robotaxi-upstate-hochul.html
+
+**The Windup: Tony Clark case takes a turn**\
+`Welcome to The Windup, The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/7057704/2026/02/19/tony-clark-bruce-meyers-the-windup/
+
 **'We've got something going here': Blue Jackets believe pending UFAs want to stay**\
 `Columbus is figuring out how to handle pending UFAs Charlie Coyle, Boone Jenner, Mason Marchment and Erik Gudbranson`\
 https://nytimes.com/athletic/7057420/2026/02/19/blue-jackets-ufas-coyle-marchment/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7057603/2026/02/19/connor-mcdavid-sidney-crosby-tor
 **The Bounce: Can the Thunder still dominate? And 15 more questions for stretch run**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7057641/2026/02/19/thunder-questions-nba-stretch-run-the-bounce/
-
-**Police may be investigating whether the former Prince Andrew shared confidential information with Epstein.**\
-`By Megan Specia`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former-prince-andrew-epstein-files
-
-**West Virginia Claims That Apple Allows Child Sexual Abuse Material**\
-`The state’s attorney general said in a lawsuit filed on Thursday that the company declined to use tools that recognize the material stored on iCloud.`\
-https://nytimes.com/2026/02/19/technology/apple-west-virginia-lawsuit-child-sexual-abuse.html
 

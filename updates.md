@@ -1,3 +1,7 @@
+**'We've got something going here': Blue Jackets believe pending UFAs want to stay**\
+`Columbus is figuring out how to handle pending UFAs Charlie Coyle, Boone Jenner, Mason Marchment and Erik Gudbranson`\
+https://nytimes.com/athletic/7057420/2026/02/19/blue-jackets-ufas-coyle-marchment/
+
 **British Couple Held in Iran Is Sentenced to 10 Years in Prison, Family Says**\
 `Craig and Lindsay Foreman were arrested last year during a motorcycle tour around the world. Their relatives and the British government have rejected Iranian charges of “security crimes.”`\
 https://nytimes.com/2026/02/19/world/middleeast/british-couple-foreman-iran-prison.html
