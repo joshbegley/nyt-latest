@@ -1,3 +1,7 @@
+**How much snow is too much at a Winter Olympics? It depends ...**\
+`Heavy snowfall in northern Italy led to the disruption of the Olympic schedule Thursday.`\
+https://nytimes.com/athletic/7058112/2026/02/19/winter-olympics-snow-disruption-events-postponed/
+
 **Labor Secretary’s Husband Barred From Department Premises After Sexual Assault Reports**\
 `At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
 https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html

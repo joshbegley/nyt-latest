@@ -1,8 +1,16 @@
+**Tainted by scandal, the former prince’s family keeps a low profile.**\
+`There has been no public statements by his former wife or their two daughters.`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/tainted-by-scandal-the-former-princes-family-keeps-a-low-profile
+
+**Is the World Underestimating India?**\
+`India is the major power with the fastest-growing economy and the world’s largest population, but the international relations scholar Amitav Acharya argues on “Interesting Times” that the country doesn’t get the respect it’s looking for.`\
+https://nytimes.com/video/opinion/100000010708359/is-the-world-underestimating-india.html
+
 **How much snow is too much at a Winter Olympics? It depends ...**\
 `Heavy snowfall in northern Italy led to the disruption of the Olympic schedule Thursday.`\
 https://nytimes.com/athletic/7058112/2026/02/19/winter-olympics-snow-disruption-events-postponed/
 
-**Labor Secretary’s Husband Barred From Department Premises After Sexual Assault Reports**\
+**Labor Secretary’s Husband Barred From the Department After Sexual Assault Reports**\
 `At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
 https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
 **My sister just won the gold medal for Team USA hockey. She earned it**\
 `Nate Heise is a senior guard on the Iowa State men’s basketball team. His older sister, Taylor Heise, just won the gold medal with Team USA.`\
 https://nytimes.com/athletic/7057520/2026/02/19/taylor-heise-us-hockey-gold-medal/
-
-**An Upper East Sider Who Wants It Louder and More Reader Questions**\
-`Becky Hughes is back to answer our “Where to Eat” reader’s increasingly specific restaurant questions.`\
-https://nytimes.com/2026/02/19/dining/an-upper-east-sider-who-wants-it-louder-and-more-reader-questions.html
-
-**USA takes Olympic gold in women's hockey, defeating Canada in OT to cap dominant run**\
-`The Americans trailed for most of the game but survived in overtime to be crowned Olympic champions.`\
-https://nytimes.com/athletic/7058003/2026/02/19/usa-canada-olympics-womens-hockey-gold-medal/
 
