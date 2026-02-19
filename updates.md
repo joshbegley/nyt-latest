@@ -1,3 +1,19 @@
+**Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
+`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer.`\
+https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
+
+**Complaint About Andrew’s Conduct Came From an Anti-Monarchy Group**\
+`Republic is the most prominent anti-monarchist movement in Britain and has about 140,000 registered supporters.`\
+https://nytimes.com/2026/02/19/world/europe/anti-monarchy-republic-andrew-epstein-misconduct.html
+
+**What’s Behind Anti-Indian Backlash in America?**\
+`“Americans don’t know much about India,” says the international relations scholar Amitav Acharya. He tells Ross Douthat on “Interesting Times” that Indian dominance in Silicon Valley is another major factor.`\
+https://nytimes.com/video/opinion/100000010708360/whats-behind-anti-indian-backlash-in-america.html
+
+**Tainted by Scandal, the Former Prince’s Ex-wife and Daughters Keep a Low Profile**\
+`There have been no public statements by his former wife or their two daughters.`\
+https://nytimes.com/2026/02/19/world/europe/ex-wife-andrew-sarah-ferguson-epstein-files.html
+
 **Guardians to experiment with Gold Glove-winning left fielder Steven Kwan in center field**\
 `The Guardians will experiment with Kwan in center on occasion this spring, although nothing is definitive yet.`\
 https://nytimes.com/athletic/7057992/2026/02/19/guardians-steven-kwan-gold-glove-center-field/
