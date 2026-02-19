@@ -1,4 +1,8 @@
-**Tainted by scandal, the former prince’s family keeps a low profile.**\
+**Guardians to experiment with Gold Glove-winning left fielder Steven Kwan in center field**\
+`The Guardians will experiment with Kwan in center on occasion this spring, although nothing is definitive yet.`\
+https://nytimes.com/athletic/7057992/2026/02/19/guardians-steven-kwan-gold-glove-center-field/
+
+**Tainted by scandal, the former prince’s ex-wife and daughters keep a low profile.**\
 `There has been no public statements by his former wife or their two daughters.`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/tainted-by-scandal-the-former-princes-family-keeps-a-low-profile
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olymp
 **Powerful Winds and Wildfires Have the Southern Plains on Edge**\
 `A combustible mix of weather ingredients has sparked worries about new fires in Oklahoma and Texas.`\
 https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
-
-**My sister just won the gold medal for Team USA hockey. She earned it**\
-`Nate Heise is a senior guard on the Iowa State men’s basketball team. His older sister, Taylor Heise, just won the gold medal with Team USA.`\
-https://nytimes.com/athletic/7057520/2026/02/19/taylor-heise-us-hockey-gold-medal/
 
