@@ -1,3 +1,11 @@
+**What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
+`Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
+https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/
+
+**The art of visualization: What is it, and how does it help Olympic athletes?**\
+`Several athletes at the Olympics have looked as if they're dancing just before they set off to compete, but they are visualizing. `\
+https://nytimes.com/athletic/7054472/2026/02/19/olympic-athletes-visualization-lindsey-vonn-eileen-gu/
+
 **Newcastle asked questions of themselves. Anthony Gordon provided an answer**\
 `Is Anthony Gordon having a great season or a mediocre one? The tone around him and Newcastle has changed these past days`\
 https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag-analysis/

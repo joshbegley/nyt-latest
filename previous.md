@@ -1,3 +1,11 @@
+**What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
+`Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
+https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/
+
+**The art of visualization: What is it, and how does it help Olympic athletes?**\
+`Several athletes at the Olympics have looked as if they're dancing just before they set off to compete, but they are visualizing. `\
+https://nytimes.com/athletic/7054472/2026/02/19/olympic-athletes-visualization-lindsey-vonn-eileen-gu/
+
 **Newcastle asked questions of themselves. Anthony Gordon provided an answer**\
 `Is Anthony Gordon having a great season or a mediocre one? The tone around him and Newcastle has changed these past days`\
 https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7055797/2026/02/19/vinicius-jr-real-madrid-racism-b
 **What would actually happen if Tottenham were relegated?**\
 `What could be the financial impact? Would all players leave? How far would it set the club back? `\
 https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegation/
-
-**How Szoboszlai became 'one of the best players in the world'**\
-`Mohamed Salah knows talent when he sees it and it is hard to disagree with his assessment of Liverpool's all-action midfielder`\
-https://nytimes.com/athletic/7054674/2026/02/19/dominik-szoboszlai-liverpool-best-player-world/
-
-**How Sterling got through his Chelsea exile, filled the void and prepared for Feyenoord**\
-`Raheem Sterling has not played a game since May 2025. This is how he has filled the gap — and prepared for his recent move`\
-https://nytimes.com/athletic/7047219/2026/02/19/raheem-sterling-chelsea-feyenoord-exile/
 
