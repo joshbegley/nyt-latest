@@ -1,3 +1,7 @@
+**'It's not OK': Phallon Tullis-Joyce condemns alleged racial abuse against Vinicius Jr.**\
+`Tullis-Joyce brought up her personal identity to explain her perspective and spoke about her campaign for diversity, equity and inclusion.`\
+https://nytimes.com/athletic/7056524/2026/02/18/tullis-joyce-manchester-united-vinicius-jr-real-madrid/
+
 **Neither’s Partner**\
 `Speak of the devil! It’s John Ewbank.`\
 https://nytimes.com/2026/02/18/crosswords/daily-puzzle-2026-02-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056069/2026/02/18/bruce-meyer-mlbpa-interim-execut
 **Texas Congressman’s Aide Told Co-Worker of Affair Before Killing Herself**\
 `The co-worker, who no longer works for Representative Tony Gonzales, shared screenshots of the text exchange with The New York Times. Mr. Gonzales accused his Republican primary challenger of being behind the revelation.`\
 https://nytimes.com/2026/02/18/us/politics/texas-gonzales-suicide-affair.html
-
-**Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porziņģis' debut**\
-`Kerr said Curry did not participate in Wednesday's practice and might need another MRI.`\
-https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
 
