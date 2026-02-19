@@ -1,40 +1,40 @@
-**Man Utd to provide free coach travel for fans for Bournemouth trip**\
-`The game on Friday, April 20 is the latest to have been shifted to a time that is potentially inconvenient for travelling fans.`\
-https://nytimes.com/athletic/7057137/2026/02/19/manchester-united-coach-travel-free-bournemouth/
+**Van Gogh and the Meaning of Yellow**\
+`The artist gave prominence to the color during a happy period that produced some of his most famous works. But it can have many different associations, a new exhibition shows.`\
+https://nytimes.com/2026/02/19/arts/van-gogh-museum-yellow.html
 
-**Thirty years ago, the trial of another ousted leader gripped South Korea.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
+**In Devastated Gaza, Grandiose Peace Plans Clash With Reality**\
+`Israeli strikes on Gaza have killed about 600 people since a cease-fire began, according to health officials in the territory. Many displaced Palestinians are still living in tents. And there are some 60 million tons of war debris to be cleared.`\
+https://nytimes.com/2026/02/19/world/middleeast/gaza-rebuilding.html
 
-**South Korea’s Yoon Sentenced to Life in Prison**\
-`Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
-https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
+**The Year Empathy Died**\
+`Compassion is not toxic.`\
+https://nytimes.com/2026/02/19/opinion/toxic-empathy-christianity-trump.html
 
-**What's on an Olympic ski jumper's mind as they sit on the bar, waiting for their turn?**\
-`What runs through their mind in the moments before jumping? Spoiler: for many of them, nothing.`\
-https://nytimes.com/athletic/7052472/2026/02/19/winter-olympics-ski-jumping-bar-turn/
+**Who Would Win Gold in the Coward Olympics?**\
+`There are a lot of potential contestants.`\
+https://nytimes.com/2026/02/19/opinion/newsom-mamdani-democrats-taxes.html
 
-**Alysa Liu Is Skating Again, Her Way This Time**\
-`At 16, out of love with the sport, Liu stepped away. Controlling her career, after years of oversight from her father, was the only way she could return.`\
-https://nytimes.com/2026/02/19/world/olympics/olympics-alysa-liu-figure-skating.html
+**Top Concern in Avalanche Recovery Effort Is Now Safety of Searchers**\
+`Weather and snow conditions will dictate when the bodies of skiers killed in the avalanche near Lake Tahoe can be retrieved from mountain. More snow is expected.`\
+https://nytimes.com/2026/02/19/us/top-concern-in-avalanche-recovery-effort-is-now-safety-of-searchers.html
 
-**Why Prosecutors in Sex-Crime Cases Often Turn to Trafficking Laws**\
-`Lawyers build cases around these laws because the statutes are broad and use language that can encompass a variety of crimes, according to experts.`\
-https://nytimes.com/2026/02/19/nyregion/sex-trafficking-federal-charges.html
+**The Future Is Indian**\
+`Why the next 30 years belong to a deal-making great power.`\
+https://nytimes.com/2026/02/19/opinion/interesting-times-amitav-acharya.html
 
-**How Kansas City became the base camp capital for the World Cup – and its top contenders**\
-`When it comes to destination U.S. cities, Kansas City isn't at the top of many lists. So how did it become such a desired World Cup base?`\
-https://nytimes.com/athletic/7052907/2026/02/19/kansas-city-world-cup-training-base-argentina-england-netherlands/
+**How Trump Is Making Sure His Ballroom Plans Sail Through**\
+`President Trump has installed allies — including his former receptionist — on the boards and commissions tasked with overseeing the project.`\
+https://nytimes.com/2026/02/19/us/politics/how-trump-is-making-sure-his-ballroom-plans-sail-through.html
 
-**A Child Misses 3 Weeks of School. Should Protective Services Step In?**\
-`A growing number of states are debating whether to alter their policies on summoning child protection officials if a student has excessive absences.`\
-https://nytimes.com/2026/02/19/nyregion/school-absences-child-protection.html
+**Uber Moves to Enact Stricter Background Checks for Drivers**\
+`The New York Times revealed in December that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
+https://nytimes.com/2026/02/19/business/uber-moves-to-enact-stricter-background-checks-for-drivers.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/19/crosswords/spelling-bee-forum.html
+**Ring’s Founder Knows You Hated That Super Bowl Ad**\
+`Since the commercial aired, Jamie Siminoff has been trying to quell an outcry over privacy concerns with his doorbell cameras.`\
+https://nytimes.com/2026/02/19/business/ring-super-bowl-ad-privacy.html
 
-**After Avalanche Warnings, a Sierra Nevada Tragedy**\
-`Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
-https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
+**There’s Nothing Sexy About ‘Wuthering Heights’**\
+`Why can’t the greatest love story of all time get the job done?`\
+https://nytimes.com/2026/02/19/podcasts/theres-nothing-sexy-about-wuthering-heights.html
 
