@@ -10,8 +10,8 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-fo
 ``\
 https://nytimes.com/live/2026/02/19/us/nancy-guthrie-case-updates
 
-**U.S. Imports Grew in 2025, as Trump’s Tariffs Took Effect**\
-`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services.`\
+**U.S. Imports Grew in 2025, as Trump’s Tariffs Reshuffled Global Trade**\
+`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services. The trade deficit in goods was the highest on record.`\
 https://nytimes.com/2026/02/19/business/economy/imports-tariffs-trade-deficit.html
 
 **No Corrections: Feb. 19, 2026**\
@@ -26,7 +26,7 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-fo
 `As of Wednesday, FanGraphs projected the Padres for 79 wins and a 22 percent chance of making the postseason.`\
 https://nytimes.com/athletic/7056021/2026/02/19/padres-roster-projection-depth-or-wheel-spinning/
 
-**Cooper Flagg debut jersey sells for $1 million**\
+**Cooper Flagg's debut jersey sells for $1 million**\
 `The sales sets a new record for any Flagg collectible. `\
 https://nytimes.com/athletic/7056928/2026/02/19/cooper-flagg-nba-debut-jersey-sale/
 
