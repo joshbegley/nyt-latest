@@ -1,3 +1,11 @@
+**Labor Secretary’s Husband Barred From Department Premises After Sexual Assault Reports**\
+`At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
+https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html
+
+**Warming Climate Can Increase Avalanche Risk, Studies Show**\
+`Research has pointed to the dangers of heavier and wetter snowfall, even as the number of snowy days decreases overall in California’s Sierra Nevada.`\
+https://nytimes.com/2026/02/19/climate/avalanche-risk-global-warming.html
+
 **Fantasy basketball hot topics of the week: Managing matchups and injuries**\
 `With few remaining weeks left in the fantasy basketball season, Stan Son guides you through the key injuries and matchups.`\
 https://nytimes.com/athletic/7058085/2026/02/19/fantasy-basketball-hot-topics-matchups-injuries-stretch-run/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/19/dining/an-upper-east-sider-who-wants-it-louder-an
 **USA takes Olympic gold in women's hockey, defeating Canada in OT to cap dominant run**\
 `The Americans trailed for most of the game but survived in overtime to be crowned Olympic champions.`\
 https://nytimes.com/athletic/7058003/2026/02/19/usa-canada-olympics-womens-hockey-gold-medal/
-
-**Eileen Gu overcomes first-run fall to qualify for freeski halfpipe final**\
-`Eileen Gu qualified in fifth for the freeski halfpipe final, keeping her on course to end the Games with three medals. `\
-https://nytimes.com/athletic/7058300/2026/02/19/eileen-gu-womens-halfpipe-qualification/
-
-**Billy Steinberg, Hitmaking Lyricist of Madonna’s ‘Like a Virgin,’ Dies at 75**\
-`He co-wrote five pop-rock songs that soared to No. 1 in the 1980s and shared in a Grammy for producing Celine Dion’s 1996 album “Falling Into You.”`\
-https://nytimes.com/2026/02/19/arts/music/billy-steinberg-dead.html
 
