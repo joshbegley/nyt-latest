@@ -1,3 +1,15 @@
+**Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
+`As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
+https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
+
+**On final shot, U.S. women's curling scores biggest Olympic win in 24 years**\
+`Tabitha Peterson's near-perfect last shot saved the U.S. women's team and lifted them to the medal rounds for the first time since 2002.`\
+https://nytimes.com/athletic/7058020/2026/02/19/winter-olympics-curling-usa-tabitha-peterson-last-shot/
+
+**King Charles Attends a Fashion Event**\
+`His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
+https://nytimes.com/2026/02/19/world/europe/king-charles-attends-a-fashion-event.html
+
 **With a Golden Gavel and a Threat to Iran, Trump Launches His Board of Peace**\
 `The first gathering of President Trump’s alternative to the United Nations is a manifestation of a Trump World Order.`\
 https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace-meeting.html
