@@ -1,3 +1,7 @@
+**'It's not OK': Phallon Tullis-Joyce condemns alleged racial abuse against Vinicius Jr.**\
+`Tullis-Joyce brought up her personal identity to explain her perspective and spoke about her campaign for diversity, equity and inclusion.`\
+https://nytimes.com/athletic/7056524/2026/02/18/tullis-joyce-manchester-united-vinicius-jr-real-madrid/
+
 **Neither’s Partner**\
 `Speak of the devil! It’s John Ewbank.`\
 https://nytimes.com/2026/02/18/crosswords/daily-puzzle-2026-02-19.html
