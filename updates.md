@@ -1,4 +1,8 @@
 **2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
+`Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals.`\
+https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
+
+**2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
 `Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals. `\
 https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
 
