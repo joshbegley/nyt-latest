@@ -1,3 +1,11 @@
+**Shipwreck Found at the Bottom of Lake Michigan After Nearly 150 Years**\
+`The steamer Lac La Belle, which was carrying passengers and cargo, sank in a storm in 1872. Eight people died when one of its lifeboats capsized.`\
+https://nytimes.com/2026/02/18/us/shipwreck-lac-la-belle-discovered-lake-michigan.html
+
+**Satellite Feature on iPhone Allowed Skiers to Seek Help After Avalanche**\
+`The Emergency SOS feature on iPhones can send texts to emergency responders via satellite when there is no cell tower nearby.`\
+https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
+
 **Who was right: Gordon or Trippier? What happened with clash of heads? — Champions League briefing**\
 `Anthony Gordon and Kieran Trippier engaged in a half-time spat with Newcastle 5-0 up against Qarabag — but saw the funny side later`\
 https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier-argument/

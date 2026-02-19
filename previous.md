@@ -1,3 +1,7 @@
+**Shipwreck Found at the Bottom of Lake Michigan After Nearly 150 Years**\
+`The steamer Lac La Belle, which was carrying passengers and cargo, sank in a storm in 1872. Eight people died when one of its lifeboats capsized.`\
+https://nytimes.com/2026/02/18/us/shipwreck-lac-la-belle-discovered-lake-michigan.html
+
 **Who was right: Gordon or Trippier? What happened with clash of heads? — Champions League briefing**\
 `Anthony Gordon and Kieran Trippier engaged in a half-time spat with Newcastle 5-0 up against Qarabag — but saw the funny side later`\
 https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier-argument/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier
 https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
 
 **Satellite Feature on iPhone Allowed Skiers to Seek Help After Avalanche**\
-`The  Emergency SOS feature on iPhones can send texts to emergency responders via satellite when there is no cell tower nearby.`\
+`The Emergency SOS feature on iPhones can send texts to emergency responders via satellite when there is no cell tower nearby.`\
 https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
 
 **Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010721046/officers-rescue-injured-bald-eagle-
 **Decoding the A.I. Beliefs of Anthropic and Its C.E.O., Dario Amodei**\
 `The company is at odds with the Pentagon over how its A.I. will be used. The conflict has its roots in the foundational plan for Anthropic.`\
 https://nytimes.com/2026/02/18/technology/anthropic-dario-amodei-effective-altruism.html
-
-**Texas Election Season Is Getting Spicy**\
-`Both parties’ Senate primary races are kicking into high gear.`\
-https://nytimes.com/2026/02/18/us/politics/texas-elections-senate-primary.html
 
