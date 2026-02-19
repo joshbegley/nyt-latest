@@ -1,3 +1,7 @@
+**NCAA leaders say tournament expansion talk will wait until after March**\
+`NCAA president Charlie Baker said he remained in favor of expanding the 68-team field for the men's and women's tournaments.`\
+https://nytimes.com/athletic/7058399/2026/02/19/ncaa-basketball-tournament-expansion-talks/
+
 **An Antarctic Voyage**\
 `My colleague just spent two months on a research icebreaker. It changed his perspective on the world in ways he didn’t expect.`\
 https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olympics.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/19/arts/music/billy-steinberg-dead.html
 **Democrats Choose Spanberger to Deliver State of the Union Response to Trump**\
 `In selecting the Virginia governor, Democrats turned to a centrist former congresswoman whose winning campaign last year showed how their party’s candidates can succeed in the Trump era.`\
 https://nytimes.com/2026/02/19/us/politics/abigail-spanberger-democrats-state-of-the-union-response-trump.html
-
-**Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
-`As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
-https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
 
