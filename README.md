@@ -1,3 +1,11 @@
+**Justice Dept. Lawyer Is Found in Contempt by Federal Judge**\
+`The ruling out of Minnesota marks a new level of judicial concern about the Trump administration’s lack of compliance with judges’ orders in immigration cases.`\
+https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt.html
+
+**Police Chief Hired to Help Lead N.Y.C. Hospital Patrols Abruptly Quits**\
+`The assistant chief, Jamiel Altaheri, resigned almost immediately after starting the job, after The New York Times asked about misconduct allegations while he was a police chief in Michigan.`\
+https://nytimes.com/2026/02/18/nyregion/jamiel-altaheri-hamtramck-nyc-hospitals.html
+
 **Simone Biles met with Ilia Malinin after men's figure skating final**\
 `U.S. gymnast empathized with the American's star skater after he finished eighth in men's singles.`\
 https://nytimes.com/athletic/7056299/2026/02/18/simone-biles-meets-ilia-malinin-mens-figure-skating-final/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/us/avalanche-lake-tahoe.html
 **U.N. Security Council Meets on Gaza, a Day Before Board of Peace Gathering**\
 `Amid criticism over the board’s structure and broad mandate, the U.S. ambassador to the U.N. defended the board, saying “a new way” was needed to address the situation in Gaza.`\
 https://nytimes.com/2026/02/18/world/middleeast/security-council-israel-gaza-board-peace.html
-
-**How Mamdani’s Income and Property Tax Proposals Could Affect New Yorkers**\
-`Mayor Zohran Mamdani has now proposed two options that called for raising taxes. Here’s a look at each proposal and the rationale and chances for each.`\
-https://nytimes.com/2026/02/18/nyregion/mamdani-millionaire-tax-property.html
-
-**MLBPA names Bruce Meyer executive director in unanimous vote**\
-`He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
-https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
 
