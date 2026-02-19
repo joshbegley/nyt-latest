@@ -1,3 +1,19 @@
+**Infantino claims FIFA received more than one million ticket requests for 77 World Cup games**\
+`The FIFA president also suggested that every match at the tournament will be sold out.`\
+https://nytimes.com/athletic/7058071/2026/02/19/gianni-infantino-fifa-world-cup-games-tickets/
+
+**Marshall women's swimmers compete as team is cut: 'They are devastated'**\
+`Swimmers and divers were blindsided by the decision, which takes effect after this weekend's championships. Marshall will add a STUNT team.`\
+https://nytimes.com/athletic/7057770/2026/02/19/marshall-swimming-diving-cuts-stunt-program/
+
+**House Democrats view Mountbatten-Windsor’s arrest as a step toward justice for the Epstein victims.**\
+`By Annie Karni`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/house-democrats-view-mountbatten-windsors-arrest-as-a-step-toward-justice-for-the-epstein-victims
+
+**This sport made its Olympic debut and showed it belongs: 'It's history'**\
+`Ski Mountaineering made its Olympic debut on Thursday. For fans and competitors alike, it was a day to remember. `\
+https://nytimes.com/athletic/7057800/2026/02/19/ski-mountaineering-skimo-olympic-debut-2026/
+
 **Women’s FA Cup changes delayed to allow 'further feedback' on proposals**\
 `The Athletic had reported the FA's proposals for a raft of significant reforms, including introducing seeding from the last-32 stage.`\
 https://nytimes.com/athletic/7058089/2026/02/19/womens-fa-cup-reforms-when/
@@ -21,12 +37,4 @@ https://nytimes.com/2026/02/19/weather/recovery-efforts-tahoe-avalanche-more-sno
 **British Police Arrest Former Prince Andrew Amid Epstein Revelations**\
 `British authorities arrested Andrew Mountbatten-Windsor on Thursday on suspicion of misconduct in public office following the latest release of documents linked to the disgraced financier and convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/world/europe/100000010722434/uk-prince-andrew-arrest-epstein.html
-
-**Slovakia’s Slafkovský, Nemec and Dvorský are living out a childhood Olympic dream**\
-`The trio of young stars will lead Slovakia into its semifinal matchup with the U.S. on Friday, realizing a dream that was formed long ago.`\
-https://nytimes.com/athletic/7057977/2026/02/19/slovakia-olympics-hockey-slafkovsky-nemec-dvorsky/
-
-**Trump’s ‘Cartoonish’ Monuments to Himself**\
-`Readers respond to a news analysis about President Trump’s relentless demand for exaltation. Also: “Dirty money” from Jeffrey Epstein.`\
-https://nytimes.com/2026/02/19/opinion/trump-ego-monuments.html
 
