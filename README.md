@@ -1,3 +1,11 @@
+**Former Prince Andrew is the most senior British royal to have been arrested in modern times.**\
+`By Isabella Kwai`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former-prince-andrew-is-the-most-senior-british-royal-to-have-been-arrested-in-modern-times
+
+**Cees Nooteboom, Voyaging Author of Enigmatic Novels, Dies at 92**\
+`A prolific Dutch writer of fiction, poetry and travel books, he was often mentioned as a potential recipient of the Nobel Prize in Literature.`\
+https://nytimes.com/2026/02/19/books/cees-nooteboom-dead.html
+
 **Keely Hodgkinson breaks 800m indoor world record with time of 1:54:87s**\
 `The 23-year-old's performance was almost an entire second faster than Jolanda Ceplak’s 1:55.82s from the 2002 European indoor Championships.`\
 https://nytimes.com/athletic/7058550/2026/02/19/keely-hodgkinson-breaks-800m-world-record/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010708360/whats-behind-anti-indian-backl
 **Guardians to experiment with Gold Glove-winning left fielder Steven Kwan in center field**\
 `The Guardians will experiment with Kwan in center on occasion this spring, although nothing is definitive yet.`\
 https://nytimes.com/athletic/7057992/2026/02/19/guardians-steven-kwan-gold-glove-center-field/
-
-**Tainted by Scandal, the Former Prince’s Ex-wife and Daughters Keep a Low Profile**\
-`There have been no public statements by his former wife or their two daughters.`\
-https://nytimes.com/2026/02/19/world/europe/ex-wife-andrew-sarah-ferguson-epstein-files.html
-
-**Is the World Underestimating India?**\
-`India is the major power with the fastest-growing economy and the world’s largest population, but the international relations scholar Amitav Acharya argues on “Interesting Times” that the country doesn’t get the respect it’s looking for.`\
-https://nytimes.com/video/opinion/100000010708359/is-the-world-underestimating-india.html
 

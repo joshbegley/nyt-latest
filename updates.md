@@ -1,3 +1,7 @@
+**Keely Hodgkinson breaks 800m indoor world record with time of 1:54:87s**\
+`The 23-year-old's performance was almost an entire second faster than Jolanda Ceplak’s 1:55.82s from the 2002 European indoor Championships.`\
+https://nytimes.com/athletic/7058550/2026/02/19/keely-hodgkinson-breaks-800m-world-record/
+
 **Austrian Man Found Guilty in Girlfriend’s Death on Mountain Hike**\
 `Thomas Plamberger was given a suspended prison sentence and fined in a case that tested the limits of personal responsibility in mountaineering.`\
 https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mountain-hike-guilty.html
