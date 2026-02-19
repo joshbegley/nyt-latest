@@ -1,4 +1,16 @@
-**Mamdani Seeks Deputy Mayor to Run His Proposed Public Safety Agency**\
+**British Police Arrest Former Prince Andrew Over Epstein Ties**\
+`British authorities arrested Andrew Mountbatten-Windsor on Thursday on suspicion of misconduct in public office following the latest release of documents linked to the disgraced financier and convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/world/europe/100000010722434/uk-prince-andrew-arrest-epstein.html
+
+**Slovakia’s Slafkovský, Nemec and Dvorský are living out a childhood Olympic dream**\
+`The trio of young stars will lead Slovakia into its semifinal matchup with the U.S. on Friday, realizing a dream that was formed long ago.`\
+https://nytimes.com/athletic/7057977/2026/02/19/slovakia-olympics-hockey-slafkovsky-nemec-dvorsky/
+
+**Trump’s ‘Cartoonish’ Monuments to Himself**\
+`Readers respond to a news analysis about President Trump’s relentless demand for exaltation. Also: “Dirty money” from Jeffrey Epstein.`\
+https://nytimes.com/2026/02/19/opinion/trump-ego-monuments.html
+
+**Mamdani Seeks Deputy Mayor to Run His Proposed Community Safety Agency**\
 `City Hall officials familiar with the plan said the mayor was moving closer to establishing a civilian corps that would respond to mental health emergencies.`\
 https://nytimes.com/2026/02/19/nyregion/mamdani-public-safety-department.html
 
@@ -17,20 +29,4 @@ https://nytimes.com/2026/02/19/dining/i-got-a-pocket-full-of-vegetables.html
 **Bill Gates Cancels a Keynote Speech Amid Epstein Controversy**\
 `The philanthropist made the announcement on Thursday, after having earlier confirmed his participation in a prominent artificial intelligence summit in India.`\
 https://nytimes.com/2026/02/19/business/bill-gates-epstein-india-ai-summit.html
-
-**New York Fashion Week in 60 Seconds**\
-`Our chief fashion critic, Vanessa Friedman, reflects on New York Fashion Week.`\
-https://nytimes.com/video/style/100000010722954/new-york-fashion-week-in-60-seconds-nyfw.html
-
-**‘Portobello’ Review: When Italy’s Biggest TV Star Was Canceled**\
-`An HBO Max series tells the surreal true story of Enzo Tortora, brought down overnight by false accusations of being a member of the mob.`\
-https://nytimes.com/2026/02/19/arts/television/portobello-review.html
-
-**Tariffs and American Wine: Additional Costs, Export Trouble and Hostility**\
-`One year in, many producers say tariffs have not helped them, and some countries are rejecting U.S. wine altogether.`\
-https://nytimes.com/2026/02/19/dining/drinks/trump-tariffs-us-wine.html
-
-**Games Briefing: U.S.-Canada. It's here**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7057993/2026/02/19/us-canada-womens-hockey-gold-medal-game-olympics-games-briefing/
 
