@@ -1,3 +1,7 @@
+**Neither’s Partner**\
+`Speak of the devil! It’s John Ewbank.`\
+https://nytimes.com/2026/02/18/crosswords/daily-puzzle-2026-02-19.html
+
 **2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
 `Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals.`\
 https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/texas-gonzales-suicide-affair.html
 **Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porziņģis' debut**\
 `Kerr said Curry did not participate in Wednesday's practice and might need another MRI.`\
 https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
-
-**What to Know About the Sierra Nevada Avalanche**\
-`At least eight skiers were killed, California authorities said, after heavy snow pummeled the region.`\
-https://nytimes.com/2026/02/18/us/avalanche-lake-tahoe.html
 
