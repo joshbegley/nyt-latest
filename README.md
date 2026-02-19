@@ -1,10 +1,22 @@
+**Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
+`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer.`\
+https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
+
+**Complaint About Andrew’s Conduct Came From an Anti-Monarchy Group**\
+`Republic is the most prominent anti-monarchist movement in Britain and has about 140,000 registered supporters.`\
+https://nytimes.com/2026/02/19/world/europe/anti-monarchy-republic-andrew-epstein-misconduct.html
+
+**What’s Behind Anti-Indian Backlash in America?**\
+`“Americans don’t know much about India,” says the international relations scholar Amitav Acharya. He tells Ross Douthat on “Interesting Times” that Indian dominance in Silicon Valley is another major factor.`\
+https://nytimes.com/video/opinion/100000010708360/whats-behind-anti-indian-backlash-in-america.html
+
 **Guardians to experiment with Gold Glove-winning left fielder Steven Kwan in center field**\
 `The Guardians will experiment with Kwan in center on occasion this spring, although nothing is definitive yet.`\
 https://nytimes.com/athletic/7057992/2026/02/19/guardians-steven-kwan-gold-glove-center-field/
 
-**Tainted by scandal, the former prince’s ex-wife and daughters keep a low profile.**\
-`There has been no public statements by his former wife or their two daughters.`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/tainted-by-scandal-the-former-princes-family-keeps-a-low-profile
+**Tainted by Scandal, the Former Prince’s Ex-wife and Daughters Keep a Low Profile**\
+`There have been no public statements by his former wife or their two daughters.`\
+https://nytimes.com/2026/02/19/world/europe/ex-wife-andrew-sarah-ferguson-epstein-files.html
 
 **Is the World Underestimating India?**\
 `India is the major power with the fastest-growing economy and the world’s largest population, but the international relations scholar Amitav Acharya argues on “Interesting Times” that the country doesn’t get the respect it’s looking for.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/19/climate/avalanche-risk-global-warming.html
 **Fantasy basketball hot topics of the week: Managing matchups and injuries**\
 `With few remaining weeks left in the fantasy basketball season, Stan Son guides you through the key injuries and matchups.`\
 https://nytimes.com/athletic/7058085/2026/02/19/fantasy-basketball-hot-topics-matchups-injuries-stretch-run/
-
-**NCAA leaders say tournament expansion talk will wait until after March**\
-`NCAA president Charlie Baker said he remained in favor of expanding the 68-team field for the men's and women's tournaments.`\
-https://nytimes.com/athletic/7058399/2026/02/19/ncaa-basketball-tournament-expansion-talks/
-
-**An Antarctic Voyage**\
-`My colleague just spent two months on a research icebreaker. It changed his perspective on the world in ways he didn’t expect.`\
-https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olympics.html
-
-**Powerful Winds and Wildfires Have the Southern Plains on Edge**\
-`A combustible mix of weather ingredients has sparked worries about new fires in Oklahoma and Texas.`\
-https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
 
