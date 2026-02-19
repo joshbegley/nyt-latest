@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Gausman on winning, family and what might be his final season**\
+`Gausman could retire when his 5-year contract runs out after this season: “I think it's definitely a possibility.”`\
+https://nytimes.com/athletic/7056415/2026/02/19/blue-jays-kevin-gausman-retirement-possiblility/
+
 **NBA Rookie Rankings: This class runs deep behind Cooper Flagg**\
 `Collin Murray-Boyles' high-octane activity, Ace Bailey's development and Cedric Coward's consistency are among the rookie achievements.`\
 https://nytimes.com/athletic/7039680/2026/02/19/nba-rookie-rankings-cooper-flagg-collin-murray-boyles-ace-bailey/

@@ -1,3 +1,7 @@
+**Blue Jays' Kevin Gausman on winning, family and what might be his final season**\
+`Gausman could retire when his 5-year contract runs out after this season: “I think it's definitely a possibility.”`\
+https://nytimes.com/athletic/7056415/2026/02/19/blue-jays-kevin-gausman-retirement-possiblility/
+
 **NBA Rookie Rankings: This class runs deep behind Cooper Flagg**\
 `Collin Murray-Boyles' high-octane activity, Ace Bailey's development and Cedric Coward's consistency are among the rookie achievements.`\
 https://nytimes.com/athletic/7039680/2026/02/19/nba-rookie-rankings-cooper-flagg-collin-murray-boyles-ace-bailey/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/learning/tiny-memoir-contest-winners.html
 **MLB rookies to watch this spring: 20 players poised make an impact in 2026**\
 `The potential MLB rookie class is extremely deep. These 20 prospects, in particular, are worth monitoring closely this spring.`\
 https://nytimes.com/athletic/7052989/2026/02/19/mlb-rookies-to-watch-2026-jim-bowden/
-
-**The New York Times International Edition in Print for Friday, Feb. 20, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/19/todays-new-york-times-international-edition
 
