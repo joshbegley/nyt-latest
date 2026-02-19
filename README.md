@@ -1,3 +1,7 @@
+**Fantasy basketball hot topics of the week: Managing matchups and injuries**\
+`With few remaining weeks left in the fantasy basketball season, Stan Son guides you through the key injuries and matchups.`\
+https://nytimes.com/athletic/7058085/2026/02/19/fantasy-basketball-hot-topics-matchups-injuries-stretch-run/
+
 **NCAA leaders say tournament expansion talk will wait until after March**\
 `NCAA president Charlie Baker said he remained in favor of expanding the 68-team field for the men's and women's tournaments.`\
 https://nytimes.com/athletic/7058399/2026/02/19/ncaa-basketball-tournament-expansion-talks/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7058300/2026/02/19/eileen-gu-womens-halfpipe-qualif
 **Billy Steinberg, Hitmaking Lyricist of Madonna’s ‘Like a Virgin,’ Dies at 75**\
 `He co-wrote five pop-rock songs that soared to No. 1 in the 1980s and shared in a Grammy for producing Celine Dion’s 1996 album “Falling Into You.”`\
 https://nytimes.com/2026/02/19/arts/music/billy-steinberg-dead.html
-
-**Democrats Choose Spanberger to Deliver State of the Union Response to Trump**\
-`In selecting the Virginia governor, Democrats turned to a centrist former congresswoman whose winning campaign last year showed how their party’s candidates can succeed in the Trump era.`\
-https://nytimes.com/2026/02/19/us/politics/abigail-spanberger-democrats-state-of-the-union-response-trump.html
 

@@ -1,3 +1,7 @@
+**NCAA leaders say tournament expansion talk will wait until after March**\
+`NCAA president Charlie Baker said he remained in favor of expanding the 68-team field for the men's and women's tournaments.`\
+https://nytimes.com/athletic/7058399/2026/02/19/ncaa-basketball-tournament-expansion-talks/
+
 **An Antarctic Voyage**\
 `My colleague just spent two months on a research icebreaker. It changed his perspective on the world in ways he didn’t expect.`\
 https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olympics.html
