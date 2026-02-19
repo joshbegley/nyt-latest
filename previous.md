@@ -1,3 +1,19 @@
+**Powerful Winds and Wildfires Have the Southern Plains on Edge**\
+`A combustible mix of weather ingredients has sparked worries about new fires in Oklahoma and Texas.`\
+https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
+
+**My sister just won the gold medal for Team USA hockey. She earned it**\
+`Nate Heise is a senior guard on the Iowa State men’s basketball team. His older sister, Taylor Heise, just won the gold medal with Team USA.`\
+https://nytimes.com/athletic/7057520/2026/02/19/taylor-heise-us-hockey-gold-medal/
+
+**An Upper East Sider Who Wants It Louder and More Reader Questions**\
+`Becky Hughes is back to answer our “Where to Eat” reader’s increasingly specific restaurant questions.`\
+https://nytimes.com/2026/02/19/dining/an-upper-east-sider-who-wants-it-louder-and-more-reader-questions.html
+
+**USA wins Olympic gold medal in women's hockey, defeating Canada in OT to cap dominant run**\
+`The Americans trailed for most of the game but survived in overtime to be crowned Olympic champions.`\
+https://nytimes.com/athletic/7058003/2026/02/19/usa-canada-olympics-womens-hockey-gold-medal/
+
 **Eileen Gu overcomes first-run fall to qualify for freeski halfpipe final**\
 `Eileen Gu qualified in fifth for the freeski halfpipe final, keeping her on course to end the Games with three medals. `\
 https://nytimes.com/athletic/7058300/2026/02/19/eileen-gu-womens-halfpipe-qualification/
@@ -17,24 +33,4 @@ https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
 **On final shot, U.S. women's curling scores biggest Olympic win in 24 years**\
 `Tabitha Peterson's near-perfect last shot saved the U.S. women's team and lifted them to the medal rounds for the first time since 2002.`\
 https://nytimes.com/athletic/7058020/2026/02/19/winter-olympics-curling-usa-tabitha-peterson-last-shot/
-
-**King Charles Attends a Fashion Event**\
-`His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
-https://nytimes.com/2026/02/19/world/europe/king-charles-fashion-event-prince-andrew.html
-
-**With a Golden Gavel and a Threat to Iran, Trump Launches His Board of Peace**\
-`The first gathering of President Trump’s alternative to the United Nations is a manifestation of a Trump World Order.`\
-https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace-meeting.html
-
-**How to watch Magic vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058332/2026/02/19/magic-vs-kings-stream-how-to-watch-feb-19/
-
-**How to watch Pistons vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058329/2026/02/19/pistons-vs-knicks-stream-how-to-watch-feb-19/
-
-**Some Reese’s Treats Drop the Milk Chocolate. Mr. Reese Disapproves.**\
-`With cocoa prices high, Hershey’s has changed some of its candy recipes. The grandson of the man who invented of the original Peanut Butter Cup said he was “embarrassed.”`\
-https://nytimes.com/2026/02/19/climate/reeses-chocolate-eggs-hersheys.html
 
