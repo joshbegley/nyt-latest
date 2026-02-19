@@ -1,3 +1,19 @@
+**Controversial 2021 Abu Dhabi GP safety car for sale**\
+`The Aston Martin Vantage used during the final race of the 2021 season becomes a rare F1 safety car to be put up for public sale.`\
+https://nytimes.com/athletic/7056164/2026/02/18/f1-safety-car-abu-dhabi-sale/
+
+**Who is Bruce Meyer? The MLBPA's interim head is known for his blunt negotiating style**\
+`Since joining the MLBPA eight years ago, Meyer has developed a reputation for unwavering conviction and limited interpersonal charisma.`\
+https://nytimes.com/athletic/7056069/2026/02/18/bruce-meyer-mlbpa-interim-executive-director/
+
+**Texas Congressman’s Aide Told Co-Worker of Affair Before Killing Herself**\
+`The co-worker, who no longer works for Representative Tony Gonzales, shared screenshots of the text exchange with The New York Times. Mr. Gonzales accused his Republican primary challenger of being behind the revelation.`\
+https://nytimes.com/2026/02/18/us/politics/texas-gonzales-suicide-affair.html
+
+**Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porziņģis' debut**\
+`Kerr said Curry did not participate in Wednesday's practice and might need another MRI.`\
+https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
+
 **Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porzingis' debut**\
 `Kerr said Curry did not participate in Wednesday's practice and there is a chance that Curry may need another MRI.`\
 https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
