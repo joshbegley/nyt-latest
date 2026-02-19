@@ -1,3 +1,7 @@
+**‘Midwinter Break’ Review: Aging Together, Growing Apart**\
+`Lesley Manville and Ciaran Hinds play an Irish married couple dealing with quiet resentments in this staid drama.`\
+https://nytimes.com/2026/02/19/movies/midwinter-break-review.html
+
 **Wolff says claims Mercedes' F1 engine is illegal are 'utter bulls---'**\
 `The team principal called the debate a "storm in a teacup" at a news conference at the Bahrain International Circuit on Thursday.`\
 https://nytimes.com/athletic/7057394/2026/02/19/toto-wolff-mercedes-engine-f1-denial/

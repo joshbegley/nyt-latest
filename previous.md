@@ -1,3 +1,7 @@
+**‘Midwinter Break’ Review: Aging Together, Growing Apart**\
+`Lesley Manville and Ciaran Hinds play an Irish married couple dealing with quiet resentments in this staid drama.`\
+https://nytimes.com/2026/02/19/movies/midwinter-break-review.html
+
 **Wolff says claims Mercedes' F1 engine is illegal are 'utter bulls---'**\
 `The team principal called the debate a "storm in a teacup" at a news conference at the Bahrain International Circuit on Thursday.`\
 https://nytimes.com/athletic/7057394/2026/02/19/toto-wolff-mercedes-engine-f1-denial/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/us/trump-news
 **The Three Conflicts Witkoff and Kushner Are Trying to Solve This Week**\
 `Iran, Ukraine and Gaza are in play as the Trump envoys conduct talks on all of them. But progress in each conflict is scant.`\
 https://nytimes.com/2026/02/19/world/europe/witkoff-kushner-iran-ukraine-israel.html
-
-**Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
-`Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
-https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
 
