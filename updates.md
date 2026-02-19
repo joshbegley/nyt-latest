@@ -1,3 +1,11 @@
+**What did we learn from Jaden Rashada's $13.85 million dispute with Florida?**\
+`Three final thoughts after 21 months of Rashada and Florida litigation and conversations this week with a handful of NIL agents`\
+https://nytimes.com/athletic/7057731/2026/02/19/jaden-rashada-nil-settlement-florida-college-sports/
+
+**For the Royals, No Playbook Exists for the Arrest of a Former Prince**\
+`There is simply no blueprint for how to react to the arrest of a close relative of the king who until recently had played a senior role, and who could may be charged and put on trial, experts on the royals said.`\
+https://nytimes.com/2026/02/19/world/europe/andrew-mountbatten-windsor-royal-family-public-relations.html
+
 **Doing Your Taxes? We Want to Hear From You.**\
 `The New York Times is looking to speak to Americans about how the most recent tax cuts are affecting their pocketbooks.`\
 https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
