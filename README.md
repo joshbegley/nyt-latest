@@ -1,3 +1,7 @@
+**South Korea’s Yoon Sentenced to Life in Prison**\
+`Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
+https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
+
 **What's on an Olympic ski jumper's mind as they sit on the bar, waiting for their turn?**\
 `What runs through their mind in the moments before jumping? Spoiler: for many of them, nothing.`\
 https://nytimes.com/athletic/7052472/2026/02/19/winter-olympics-ski-jumping-bar-turn/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
 **Stephen Colbert Sizes Up R.F.K. Jr.’s Workout With Kid Rock**\
 `“The Late Show” host called the 90-second video of the two working up a sweat together “pure cinema.”`\
 https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-workout.html
-
-**Hornets' LaMelo Ball involved in car crash in downtown Charlotte: Source**\
-`The camouflage-colored, custom-made Hummer that collided with another car was Ball's vehicle, according to a league source.`\
-https://nytimes.com/athletic/7056681/2026/02/19/lamelo-ball-car-crash-charlotte-hornets/
 
