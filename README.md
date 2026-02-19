@@ -1,40 +1,40 @@
-**Besides Yoon, 5 other former officials get long prison terms.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/besides-yoon-5-other-former-officials-get-long-prison-terms
+**What to know about the 2026 Genesis Invitational: Tee times, TV info for return to Riviera**\
+`The PGA Tour returns to Riviera Country Club, one year after the Palisades fire. Collin Morikawa was last weekend's winner at Pebble Beach.`\
+https://nytimes.com/athletic/7054045/2026/02/19/genesis-invitational-2026-tee-times-how-to-watch/
 
-**Meet Boston's (other) Ray Allen: 'He can go anywhere. He's not afraid of the world'**\
-`What's it like going to school and playing basketball in Boston when your name is Ray Allen?`\
-https://nytimes.com/athletic/7044064/2026/02/19/boston-celtics-ray-allen-emerson-college/
+**Brian Schottenheimer: Cowboys 'hit a home run' with new DC Christian Parker**\
+`Parker says stopping the run and affecting the quarterback are his top core beliefs with the defense.`\
+https://nytimes.com/athletic/7056834/2026/02/19/cowboys-christian-parker-defensive-coordinator-schottenheimer/
 
-**Europe Worries About Another Trump Blowup, This One on Tech**\
-`Even as trade tensions between the United States and the European Union seem to calm, officials are concerned that a showdown is brewing over the bloc’s digital rules.`\
-https://nytimes.com/2026/02/19/world/europe/europe-united-states-trump-digital-services-act.html
+**Jazz Chisholm Jr.'s goals for 2026: MVP, Gold Glove, Silver Slugger and ... 50-50 Club**\
+`As Chisholm prepares for his free-agent walk year, his goals are nothing if not ambitious. In his mind, he can be the best player in MLB.`\
+https://nytimes.com/athletic/7053183/2026/02/19/jazz-chisholm-yankees-2026-goals/
 
-**Blue Jays' Kevin Gausman on winning, family and what might be his final season**\
-`Gausman could retire when his 5-year contract runs out after this season: “I think it's definitely a possibility.”`\
-https://nytimes.com/athletic/7056415/2026/02/19/blue-jays-kevin-gausman-retirement-possiblility/
+**Panthers roster analysis: Trade options and extension candidates before free agency**\
+`The Panthers aren’t flush with free-agency capital. They currently have $12.95 million in salary-cap space.`\
+https://nytimes.com/athletic/7056217/2026/02/19/panthers-roster-analysis-free-agency/
 
-**NBA Rookie Rankings: This class runs deep behind Cooper Flagg**\
-`Collin Murray-Boyles' high-octane activity, Ace Bailey's development and Cedric Coward's consistency are among the rookie achievements.`\
-https://nytimes.com/athletic/7039680/2026/02/19/nba-rookie-rankings-cooper-flagg-collin-murray-boyles-ace-bailey/
+**Should Bengals go after Maxx Crosby? The cases for, against pursuing Raiders star**\
+`The price would be steep for Crosby, but he would raise the Bengals' ceiling. But is it more important to raise their floor?`\
+https://nytimes.com/athletic/7056000/2026/02/19/bengals-maxx-crosby-pursuing-raiders-star/
 
-**New York Jets big board: Draft prospects who fit with their two first-round picks**\
-`A look at the potential targets, from elite defenders to the second wave of quarterbacks.`\
-https://nytimes.com/athletic/7054121/2026/02/19/new-york-jets-draft-big-board-prospects/
+**Chris Pronger: What I've learned about Canada, USA heading into semifinals**\
+`Whoever handles the noise, the pressure, the fatigue, the missed calls in a winner-takes-all game usually wins.`\
+https://nytimes.com/athletic/7056562/2026/02/19/canada-usa-hockey-olympics-2026-finland-slovakia/
 
-**How Team USA (finally) got America's best pitchers on board for the World Baseball Classic**\
-`The WBC has recently exploded in popularity and become increasingly more important to players — including some of its most elusive recruits.`\
-https://nytimes.com/athletic/7051647/2026/02/19/team-usa-wbc-pitching-skenes-skubal/
+**An A.I. Fight at the Pentagon, and BBC Says Former Prince Andrew Is Arrested Over Epstein Ties**\
+`Plus, a lifesaving phone feature.`\
+https://nytimes.com/2026/02/19/podcasts/the-headlines/ai-pentagon-transgender-rights.html
 
-**Steelers draft big board 1.0: 17 first-round targets and 1 big QB question**\
-`A look at the many prospects the Steelers could target in Round 1 and beyond.`\
-https://nytimes.com/athletic/7056065/2026/02/19/pittsburgh-steelers-draft-big-board-prospects/
+**NFL beat writer 2026 mock draft 1.0: Teams load up on edge rushers, WRs**\
+`Edge rushers, wide receivers and offensive tackles dominate in this mock draft from The Athletic's NFL beat writers.`\
+https://nytimes.com/athletic/7055121/2026/02/19/nfl-writer-2026-mock-draft-wide-receivers-edge-rushers/
 
-**Meet Samuel Hlavaj, the struggling AHLer starring in Slovakia's Cinderella Olympic run**\
-`The Minnesota Wild minor-leaguer has an .884 save percentage in the AHL this season. He's at .932 in the Olympics.`\
-https://nytimes.com/athletic/7055243/2026/02/19/samuel-hlavaj-slovakia-olympic-run-wild/
+**Where does UCLA find its talent? Anywhere its international recruiter can go**\
+`International recruiting isn't Plan B for the No. 2 Bruins. It's Plan A — bolded, underlined and circled in permanent marker.`\
+https://nytimes.com/athletic/7043055/2026/02/19/ucla-womens-basketball-recruiting-international/
 
-**Jaylen Brown, Draymond Green and what the NBA gets wrong about ‘next man up’**\
-`Joe Boylan, who worked in the NBA for a decade, believes the environment changes before the player does. He's seen that up close.`\
-https://nytimes.com/athletic/7054844/2026/02/19/jaylen-brown-draymon-green-leadership-next-man-up/
+**16 Stats: How Team Canada has crafted the perfect offense**\
+`With the women's gold medal game looming and the men's semifinals set, here are the statistical storylines of note so far at the Olympics.`\
+https://nytimes.com/athletic/7054866/2026/02/19/16-stats-olympics-hockey-canada-usa/
 
