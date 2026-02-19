@@ -1,3 +1,15 @@
+**She was 'paralyzed with fear' of jumping 50ft in the air. Then she turned to hypnosis**\
+`Kaila Kuhn knew she had to up her difficulty level to have a chance of winning an Olympic medal, but with that came problems. `\
+https://nytimes.com/athletic/7057164/2026/02/19/kaila-kuhn-aerials-hypnosis-winter-olympics/
+
+**Bears big board 1.0: Which defensive players could be in play in Rounds 1-3?**\
+`The Bears figure to be very active on defense in the 2026 draft. Our first big board goes through some options for them in Rounds 1-3.`\
+https://nytimes.com/athletic/7053245/2026/02/19/bears-nfl-draft-big-board-defense/
+
+**Knicks' plan for Jeremy Sochan might impact rookie Mo Diawara's progress**\
+`Knicks coach Mike Brown is going to find out what he has in Jeremy Sochan.`\
+https://nytimes.com/athletic/7055885/2026/02/19/knicks-jeremy-sochan-mo-diawara-time/
+
 **What to know about the 2026 Genesis Invitational: Tee times, TV info for return to Riviera**\
 `The PGA Tour returns to Riviera Country Club, one year after the Palisades fire. Collin Morikawa was last weekend's winner at Pebble Beach.`\
 https://nytimes.com/athletic/7054045/2026/02/19/genesis-invitational-2026-tee-times-how-to-watch/
