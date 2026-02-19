@@ -1,3 +1,19 @@
+**In U.K. Police Detention Facilities, One-Person Cells and Simple Beds**\
+`The police have not said where they were holding Andrew Mountbatten-Windsor, but the facilities are intended to hold people for short periods while they are questioned.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
+
+**Scoop City: How the contract restructure of Patrick Mahomes cleared millions in Chiefs cap room**\
+`Unpacking how the Chiefs can pay Patrick Mahomes about $56 million in cash while his cap hit is just $35 million, plus free agency rankings`\
+https://nytimes.com/athletic/7057685/2026/02/19/chiefs-restructure-mahomes-cap-space-explained-scoop-city/
+
+**Recovery Efforts After Tahoe Avalanche Face More Heavy Snow**\
+`Yet another storm rolled across the Lake Tahoe region on Thursday, and more wintry weather is expected.`\
+https://nytimes.com/2026/02/19/weather/recovery-efforts-tahoe-avalanche-more-snow.html
+
+**British Police Arrest Former Prince Andrew Amid Epstein Revelations**\
+`British authorities arrested Andrew Mountbatten-Windsor on Thursday on suspicion of misconduct in public office following the latest release of documents linked to the disgraced financier and convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/world/europe/100000010722434/uk-prince-andrew-arrest-epstein.html
+
 **British Police Arrest Former Prince Andrew Over Epstein Ties**\
 `British authorities arrested Andrew Mountbatten-Windsor on Thursday on suspicion of misconduct in public office following the latest release of documents linked to the disgraced financier and convicted sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/world/europe/100000010722434/uk-prince-andrew-arrest-epstein.html

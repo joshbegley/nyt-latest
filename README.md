@@ -1,3 +1,11 @@
+**Women’s FA Cup changes delayed to allow 'further feedback' on proposals**\
+`The Athletic had reported the FA's proposals for a raft of significant reforms, including introducing seeding from the last-32 stage.`\
+https://nytimes.com/athletic/7058089/2026/02/19/womens-fa-cup-reforms-when/
+
+**Two Sisters Died in Avalanche During Sierra Nevada Trek With Friends**\
+`A man said his sisters regularly met up with their friends, many from Stanford University, to go on ski trips.`\
+https://nytimes.com/2026/02/19/us/tahoe-avalanche-victims-sisters.html
+
 **In U.K. Police Detention Facilities, One-Person Cells and Simple Beds**\
 `The police have not said where they were holding Andrew Mountbatten-Windsor, but the facilities are intended to hold people for short periods while they are questioned.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/7057977/2026/02/19/slovakia-olympics-hockey-slafkov
 **Trump’s ‘Cartoonish’ Monuments to Himself**\
 `Readers respond to a news analysis about President Trump’s relentless demand for exaltation. Also: “Dirty money” from Jeffrey Epstein.`\
 https://nytimes.com/2026/02/19/opinion/trump-ego-monuments.html
-
-**Mamdani Seeks Deputy Mayor to Run His Proposed Community Safety Agency**\
-`City Hall officials familiar with the plan said the mayor was moving closer to establishing a civilian corps that would respond to mental health emergencies.`\
-https://nytimes.com/2026/02/19/nyregion/mamdani-public-safety-department.html
-
-**Why Ferrari's fancy, vanished wing sums up the games at play at F1's preseason testing**\
-`Rotating wings. Teams accusing each other of sandbagging. A murky running order. F1's preseason is starting to heat up`\
-https://nytimes.com/athletic/7057970/2026/02/19/f1-preseason-testing-takeaways-ferrari-wing/
 
