@@ -1,3 +1,15 @@
+**Doug Moe, 87, N.B.A. Coach as Freewheeling as His Style of Play, Dies**\
+`A former college All-American touched by scandal, he was irreverent and unpredictable as he piloted his fast-paced Nuggets and Spurs.`\
+https://nytimes.com/2026/02/19/sports/basketball/doug-moe-dead.html
+
+**Lavia set to feature for Chelsea Under-21s in return from quadriceps injury**\
+`It will be the first competitive match action of any kind for Lavia in more than three months.`\
+https://nytimes.com/athletic/7058186/2026/02/19/romeo-lavia-chelsea-injury-latest/
+
+**Adam Silver tells teams NBA plans to make anti-tanking rule changes**\
+`Tweaks to lottery odds and first-round pick protections are among the proposals being discussed.`\
+https://nytimes.com/athletic/7058616/2026/02/19/adam-silver-nba-tanking-rule-changes/
+
 **Alysa Liu’s comeback ends in gold.**\
 `Liu became the first American to win a medal in women’s figure skating since 2006. `\
 https://nytimes.com/2026/02/19/world/alysa-liu-skating-gold.html
@@ -22,19 +34,7 @@ https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mounta
 `For a decade, Clémence Polès Farhang asked women on city streets if she could take their picture. This week, the photographs had their first exhibition.`\
 https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
 
-**Team USA's Laila Edwards becomes first Black woman to win gold in women's hockey**\
+**Laila Edwards becomes first Black woman to win gold with Team USA in women's hockey**\
 `Eight days earlier, Edwards made history as the first Black woman to play for Team USA at the Olympic Games. `\
 https://nytimes.com/athletic/7058478/2026/02/19/laila-edwards-usa-hockey-history-gold-medal/
-
-**Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
-`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer. Kaori Sakamoto and Ami Nakai, both of Japan, won silver and bronze.`\
-https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
-
-**Complaint About Andrew’s Conduct Came From an Anti-Monarchy Group**\
-`Republic is the most prominent anti-monarchist movement in Britain and has about 140,000 registered supporters.`\
-https://nytimes.com/2026/02/19/world/europe/anti-monarchy-republic-andrew-epstein-misconduct.html
-
-**What’s Behind Anti-Indian Backlash in America?**\
-`“Americans don’t know much about India,” says the international relations scholar Amitav Acharya. He tells Ross Douthat on “Interesting Times” that Indian dominance in Silicon Valley is another major factor.`\
-https://nytimes.com/video/opinion/100000010708360/whats-behind-anti-indian-backlash-in-america.html
 
