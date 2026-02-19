@@ -1,3 +1,7 @@
+**Southern Plains Braces for More Wildfires While Battling Old Ones**\
+`Unusually warm temperatures, dry air, parched vegetation and strong wind gusts have fueled wildfires, which have broken out across Oklahoma and Texas this week.`\
+https://nytimes.com/video/weather/100000010723479/southern-plains-wildfires-oklahoma-texas.html
+
 **Doug Moe, 87, N.B.A. Coach as Freewheeling as His Style of Play, Dies**\
 `A former college All-American touched by scandal, he was irreverent and unpredictable as he piloted his fast-paced Nuggets and Spurs.`\
 https://nytimes.com/2026/02/19/sports/basketball/doug-moe-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mounta
 **The Artist Documenting Women’s Lives, One Encounter at a Time**\
 `For a decade, Clémence Polès Farhang asked women on city streets if she could take their picture. This week, the photographs had their first exhibition.`\
 https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
-
-**Laila Edwards becomes first Black woman to win gold with Team USA in women's hockey**\
-`Eight days earlier, Edwards made history as the first Black woman to play for Team USA at the Olympic Games. `\
-https://nytimes.com/athletic/7058478/2026/02/19/laila-edwards-usa-hockey-history-gold-medal/
 

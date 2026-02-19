@@ -1,3 +1,7 @@
+**Southern Plains Braces for More Wildfires While Battling Old Ones**\
+`Unusually warm temperatures, dry air, parched vegetation and strong wind gusts have fueled wildfires, which have broken out across Oklahoma and Texas this week.`\
+https://nytimes.com/video/weather/100000010723479/southern-plains-wildfires-oklahoma-texas.html
+
 **Doug Moe, 87, N.B.A. Coach as Freewheeling as His Style of Play, Dies**\
 `A former college All-American touched by scandal, he was irreverent and unpredictable as he piloted his fast-paced Nuggets and Spurs.`\
 https://nytimes.com/2026/02/19/sports/basketball/doug-moe-dead.html
