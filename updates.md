@@ -1,3 +1,7 @@
+**Coutinho announces Vasco exit: 'I'm mentally exhausted'**\
+`The 33-year-old's contract was due to run until June.`\
+https://nytimes.com/athletic/7057235/2026/02/19/philippe-coutinho-brazil-vasco-da-gama/
+
 **Here’s the police statement on the arrest.**\
 `By Megan Specia`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/heres-the-police-statement-on-the-arrest
