@@ -1,3 +1,5 @@
+
+
 **Infantino claims FIFA received more than one million ticket requests for 77 World Cup games**\
 `The FIFA president also suggested that every match at the tournament will be sold out.`\
 https://nytimes.com/athletic/7058071/2026/02/19/gianni-infantino-fifa-world-cup-games-tickets/
