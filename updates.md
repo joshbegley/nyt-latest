@@ -1,3 +1,11 @@
+**Doing Your Taxes? We Want to Hear From You.**\
+`The New York Times is looking to speak to Americans about how the most recent tax cuts are affecting their pocketbooks.`\
+https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
+
+**For the Royals, No Playbook Exists for the Arrest of a Former Prince**\
+`There is simply no blueprint for how to react to the arrest of a close relative of the king who until recently had played a senior role, and who could may be charged and put on trial, experts on the royals said.`\
+https://nytimes.com/2026/02/19/world/europe/andrew-mountbatten-windsor-public-relations-playbook.html
+
 **Jordan Stolz settles for silver in 1,500-meter speedskating race in an upset**\
 `Stolz's silver in the 1,500-meter race comes after his gold medal performances in the 1000m and the 500m.`\
 https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
