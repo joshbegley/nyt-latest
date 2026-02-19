@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/18/world/middleeast/security-council-israel-gaza-boa
 `Mayor Zohran Mamdani has now proposed two options that called for raising taxes. Here’s a look at each proposal and the rationale and chances for each.`\
 https://nytimes.com/2026/02/18/nyregion/mamdani-millionaire-tax-property.html
 
-**MLBPA names Bruce Meyer executive director in unanimous vote: Source**\
+**MLBPA names Bruce Meyer executive director in unanimous vote**\
 `He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
 https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
 
