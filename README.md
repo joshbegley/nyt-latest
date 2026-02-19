@@ -1,3 +1,7 @@
+**The former prince gave a disastrous BBC interview in 2019.**\
+`T`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-gave-a-disastrous-bbc-interview-in-2019
+
 **A Floating Sauna With Mountain Views**\
 `Plus: tree houses on a Danish island, a New York gallery that highlights South Asian design and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/19/t-magazine/sauna-new-zealand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057858/2026/02/19/pacers-vs-wizards-stream-how-to-
 **AI adoption is exploding. Organizational readiness isn’t. Here’s why.**\
 `AI moved from experimentation to expectation. But deploying tools without capability won't drive real impact. The focus needs to shift to readiness.`\
 https://nytimes.com/paidpost/general-assembly/general-assembly/ai-adoption-is-exploding-organizational-readiness-isnt-heres-why.html
-
-**How to watch Oklahoma vs. Georgia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7057840/2026/02/19/oklahoma-vs-georgia-stream-how-to-watch-feb-19/
 
