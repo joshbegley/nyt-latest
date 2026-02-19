@@ -1,3 +1,7 @@
+**Simone Biles met with Ilia Malinin after men's figure skating final**\
+`U.S. gymnast empathized with the American's star skater after he finished eighth in men's singles.`\
+https://nytimes.com/athletic/7056299/2026/02/18/simone-biles-meets-ilia-malinin-mens-figure-skating-final/
+
 **Red Sox take blame off Fanatics for jersey spacing issue**\
 `In a series of statements on Wednesday, the Red Sox explained who was at fault for their jerseys not looking right. `\
 https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/nyregion/mamdani-millionaire-tax-property.html
 **MLBPA names Bruce Meyer executive director in unanimous vote**\
 `He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
 https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
-
-**How Quinn Hughes came to play the hero for Team USA in overtime: 'A massive goal'**\
-`Hughes, who missed out on last year's 4 Nations Face-Off due to injury, scored the OT winner to send Team USA to the semifinals.`\
-https://nytimes.com/athletic/7056553/2026/02/18/quinn-hughes-olympics-mens-hockey-overtime-goal/
 
