@@ -1,3 +1,23 @@
+**Newcastle asked questions of themselves. Anthony Gordon provided an answer**\
+`Is Anthony Gordon having a great season or a mediocre one? The tone around him and Newcastle has changed these past days`\
+https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag-analysis/
+
+**Chido Obi shows the need for patience for Man Utd youngsters as JJ Gabriel makes his mark**\
+`Obi and Gabriel both scored as Manchester United won their FA Youth Cup match on Wednesday`\
+https://nytimes.com/athletic/7056149/2026/02/19/chido-obi-jj-gabriel-manchester-united/
+
+**Jesse Derry: Chelsea's latest debutant on the pitch — and as Stamford the Lion**\
+`Jesse Derry made his Chelsea debut against Hull City on Friday, having joined the club from Crystal Palace last summer`\
+https://nytimes.com/athletic/7054646/2026/02/19/jesse-derry-chelsea-debutant-stamford-lion/
+
+**Manchester United’s midfield – Part 3: Kobbie Mainoo's resurgence and how to maintain it**\
+`The academy graduate looks a player reborn under Michael Carrick, now the club must capitalise on their burgeoning talent`\
+https://nytimes.com/athletic/7054556/2026/02/19/mainoo-man-united-carrick-midfield/
+
+**A run deep into the Conference League is the only thing that can save Palace's season**\
+`If the London club were to be eliminated from Europe this month the rest of their campaign will likely turn into a miserable slog`\
+https://nytimes.com/athletic/7049957/2026/02/19/crystal-palace-premier-league-conference-league-glasner/
+
 **He won Olympic bronze for the U.S. Nine years ago, he was in a coma: 'We almost lost him'**\
 `Canter of the United States won bronze on Wednesday. Nine years ago, aged 13, he had to learn to walk and talk again after an accident.`\
 https://nytimes.com/athletic/7055195/2026/02/19/jake-canter-snowboard-slopestyle-bronze-2026-winter-olympics/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7054674/2026/02/19/dominik-szoboszlai-liverpool-bes
 **How Sterling got through his Chelsea exile, filled the void and prepared for Feyenoord**\
 `Raheem Sterling has not played a game since May 2025. This is how he has filled the gap — and prepared for his recent move`\
 https://nytimes.com/athletic/7047219/2026/02/19/raheem-sterling-chelsea-feyenoord-exile/
-
-**Pereira, the Fenerbahce years: Going AWOL, Van Persie and Ozil troubles, and an unlikely return**\
-`Nottingham Forest's latest head coach begins life at his new club with a game against the Turkish side he's had two spells in charge of`\
-https://nytimes.com/athletic/7054956/2026/02/19/vitor-pereira-fenerbahce-years/
-
-**Yoon’s jail cell is a world away from his presidential mansion.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons-jail-cell-is-a-world-away-from-his-presidential-mansion
-
-**Here’s the latest.**\
-`After months of political turmoil over former President Yoon Suk Yeol’s imposition of martial law, his trial harkens back to the chaotic days after South Koreans ousted a junta and enshrined democracy.`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/heres-the-latest
-
-**Live Updates: South Korean Ex-Leader Who Declared Martial Law Faces Insurrection Verdict**\
-`Former President Yoon Suk Yeol, who was impeached after he briefly imposed martial law in 2024, faces a potential death sentence in the country’s ​biggest criminal trial in decades.`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president
-
-**Money Talks as India Searches for Its Place in Global A.I.**\
-`Narendra Modi, the prime minister, convened foreign leaders, the richest Silicon Valley companies and thousands of Indian entrepreneurs for a week of deal making.`\
-https://nytimes.com/2026/02/19/business/india-ai-impact-summit.html
 

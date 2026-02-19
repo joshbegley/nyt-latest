@@ -1,3 +1,11 @@
+**He won Olympic bronze for the U.S. Nine years ago, he was in a coma: 'We almost lost him'**\
+`Canter of the United States won bronze on Wednesday. Nine years ago, aged 13, he had to learn to walk and talk again after an accident.`\
+https://nytimes.com/athletic/7055195/2026/02/19/jake-canter-snowboard-slopestyle-bronze-2026-winter-olympics/
+
+**The shocking scale of the racist abuse suffered by Vinicius Jr**\
+`According to La Liga, there have been 26 incidents of racist abuse directed towards him since October 2021`\
+https://nytimes.com/athletic/7055797/2026/02/19/vinicius-jr-real-madrid-racism-benfica-champions-league/
+
 **What would actually happen if Tottenham were relegated?**\
 `What could be the financial impact? Would all players leave? How far would it set the club back? `\
 https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegation/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegat
 **How Szoboszlai became 'one of the best players in the world'**\
 `Mohamed Salah knows talent when he sees it and it is hard to disagree with his assessment of Liverpool's all-action midfielder`\
 https://nytimes.com/athletic/7054674/2026/02/19/dominik-szoboszlai-liverpool-best-player-world/
+
+**How Sterling got through his Chelsea exile, filled the void and prepared for Feyenoord**\
+`Raheem Sterling has not played a game since May 2025. This is how he has filled the gap — and prepared for his recent move`\
+https://nytimes.com/athletic/7047219/2026/02/19/raheem-sterling-chelsea-feyenoord-exile/
 
 **Pereira, the Fenerbahce years: Going AWOL, Van Persie and Ozil troubles, and an unlikely return**\
 `Nottingham Forest's latest head coach begins life at his new club with a game against the Turkish side he's had two spells in charge of`\
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president
 **Money Talks as India Searches for Its Place in Global A.I.**\
 `Narendra Modi, the prime minister, convened foreign leaders, the richest Silicon Valley companies and thousands of Indian entrepreneurs for a week of deal making.`\
 https://nytimes.com/2026/02/19/business/india-ai-impact-summit.html
-
-**These Olympians Excel on Two Types of Tracks**\
-`Among elite athletes exists an even more exclusive club: people who compete at both the Summer and Winter Games. Many are sprinters who turn to bobsled.`\
-https://nytimes.com/2026/02/19/world/olympics/these-olympians-excel-on-two-types-of-tracks.html
-
-**Policy Flip-Flops Hurt the British Leader. Then Came a New Political Threat.**\
-`Already weakened by “U-turns” on his agenda, Prime Minister Keir Starmer faced calls to step down over appointing a close friend of Jeffrey Epstein as U.S. ambassador.`\
-https://nytimes.com/2026/02/19/world/europe/britain-keir-starmer-mandelson-epstein.html
-
-**Russia Celebrated Him. Now He’s Accused of Having Troops Shoot Themselves.**\
-`A lieutenant colonel is on trial after being accused of skimming payments for battlefield injuries. He denies the specifics of Russia’s accusation but acknowledges engaging in a payouts scheme.`\
-https://nytimes.com/2026/02/19/world/europe/russia-military-corruption.html
 
