@@ -1,3 +1,31 @@
+**With a Golden Gavel and a Threat to Iran, Trump Launches His Board of Peace**\
+`The first gathering of President Trump’s alternative to the United Nations is a manifestation of a Trump World Order.`\
+https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace-meeting.html
+
+**How to watch Magic vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058332/2026/02/19/magic-vs-kings-stream-how-to-watch-feb-19/
+
+**How to watch Pistons vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058329/2026/02/19/pistons-vs-knicks-stream-how-to-watch-feb-19/
+
+**Some Reese’s Treats Drop the Milk Chocolate. Mr. Reese Disapproves.**\
+`With cocoa prices high, Hershey’s has changed some of its candy recipes. The grandson of the man who invented of the original Peanut Butter Cup said he was “embarrassed.”`\
+https://nytimes.com/2026/02/19/climate/reeses-chocolate-eggs-hersheys.html
+
+**How to watch Suns vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058320/2026/02/19/suns-vs-spurs-stream-how-to-watch-feb-19/
+
+**How to watch Nuggets vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058314/2026/02/19/nuggets-vs-clippers-stream-how-to-watch-feb-19/
+
+**How to watch Celtics vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058312/2026/02/19/celtics-vs-warriors-stream-how-to-watch-feb-19/
+
 **How to watch Raptors vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7058310/2026/02/19/raptors-vs-bulls-stream-how-to-watch-feb-19/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7058308/2026/02/19/south-carolina-vs-alabama-stream
 **How to watch Texas vs. Arkansas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7058285/2026/02/19/texas-vs-arkansas-stream-how-to-watch-feb-19/
-
-**How to watch Washington vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058282/2026/02/19/washington-vs-ucla-stream-how-to-watch-feb-19/
-
-**How to watch LSU vs. Ole Miss women's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058280/2026/02/19/lsu-vs-ole-miss-stream-how-to-watch-feb-19/
-
-**A Lonely Baby Monkey Wins Hearts, and Even a Few Friends**\
-`Legions of fans from around the world have been cheering on Punch, a 7-month-old macaque who had been struggling to socialize at a zoo outside Tokyo.`\
-https://nytimes.com/2026/02/19/world/asia/punch-macaque-monkey-japan.html
-
-**Fans Cheer on Lonely Baby Monkey at Japanese Zoo**\
-`At Japan’s Ichikawa City Zoo, a 7-month-old macaque named Punch has developed an online following after his mother abandoned him because of a difficult birth. Videos on social media show Punch struggling to integrate into the larger troop and often clinging to a large stuffed orangutan for comfort.`\
-https://nytimes.com/video/world/asia/100000010721348/baby-macaque-monkey-japan-zoo.html
-
-**Man Convicted of Murder of 4 Homeless Men in Chinatown**\
-`Randy Rodriguez Santos attacked five homeless men in Chinatown in 2019, killing four of them in a span of minutes.`\
-https://nytimes.com/2026/02/19/nyregion/rodriguez-santos-murder-chinatown-homeless.html
-
-**What PEN Doesn’t Understand About Free Expression**\
-`PEN America is no longer acting in the best traditions of its august history.`\
-https://nytimes.com/2026/02/19/opinion/pen-free-expression-writers.html
-
-**Here’s What I Just Figured Out About the Way Trump Talks**\
-`Why just tell a story when you can put on a skit?`\
-https://nytimes.com/2026/02/19/opinion/trump-speech-conversations.html
 
