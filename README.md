@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7056553/2026/02/18/quinn-hughes-olympics-mens-hocke
 https://nytimes.com/2026/02/18/us/politics/us-military-iran.html
 
 **Sweden's biggest regret after losing in Olympic quarterfinals? Victor Hedman sitting out**\
-`"We knew there was no place he’d rather be than on the ice to compete with us," said captain Gabriel Landeskog.`\
+`"We knew there was no place he'd rather be than on the ice to compete with us," said captain Gabriel Landeskog.`\
 https://nytimes.com/athletic/7056528/2026/02/18/sweden-olympics-mens-hockey-victor-hedman-quarterfinals/
 
 **The Worst Avalanches in Recent North American History**\

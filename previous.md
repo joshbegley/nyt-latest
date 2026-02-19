@@ -1,3 +1,19 @@
+**MLBPA names Bruce Meyer executive director in unanimous vote**\
+`He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
+https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
+
+**How Quinn Hughes came to play the hero for Team USA in overtime: 'A massive goal'**\
+`Hughes, who missed out on last year's 4 Nations Face-Off due to injury, scored the OT winner to send Team USA to the semifinals.`\
+https://nytimes.com/athletic/7056553/2026/02/18/quinn-hughes-olympics-mens-hockey-overtime-goal/
+
+**U.S. Military Moves Into Place for Possible Strikes in Iran**\
+`President Trump has given no indication that he has made a decision about how to proceed, as diplomatic talks continue.`\
+https://nytimes.com/2026/02/18/us/politics/us-military-iran.html
+
+**Sweden's biggest regret after losing in Olympic quarterfinals? Victor Hedman sitting out**\
+`"We knew there was no place he’d rather be than on the ice to compete with us," said captain Gabriel Landeskog.`\
+https://nytimes.com/athletic/7056528/2026/02/18/sweden-olympics-mens-hockey-victor-hedman-quarterfinals/
+
 **The Worst Avalanches in Recent North American History**\
 `With at least eight people dead, Tuesday’s avalanche in California was one of the deadliest in the last five decades.`\
 https://nytimes.com/2026/02/18/weather/worst-avalanches-history.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/18/us/shipwreck-lac-la-belle-discovered-lake-michiga
 **Who was right: Gordon or Trippier? What happened with clash of heads? — Champions League briefing**\
 `Anthony Gordon and Kieran Trippier engaged in a half-time spat with Newcastle 5-0 up against Qarabag — but saw the funny side later`\
 https://nytimes.com/athletic/7056171/2026/02/18/champions-league-gordon-trippier-argument/
-
-**Shutdowns Don’t Usually Stop Disaster Work. FEMA Just Made It Harder.**\
-`The agency canceled some travel to disaster sites, citing a partial government shutdown, according to emails sent to staff.`\
-https://nytimes.com/2026/02/18/climate/fema-shutdown-disaster-travel.html
-
-**Satellite Feature on iPhone Allowed Skiers to Seek Help After Avalanche**\
-`The Emergency SOS feature on iPhones can send texts to emergency responders via satellite when there is no cell tower nearby.`\
-https://nytimes.com/2026/02/18/us/apple-iphone-sos-satellite-rescue.html
-
-**Officials Violated More than 50 Court Orders in New Jersey, Justice Dept. Tells Judge**\
-`The violations stemmed from immigration cases. Judges across the country have expressed alarm about illegal transfers and missed deadlines.`\
-https://nytimes.com/2026/02/18/us/politics/court-orders-new-jersey-immigrants.html
-
-**How Cowboys ended up hiring Christian Parker as their new defensive coordinator**\
-`“Every impression we had with CP just left us wanting more,” Brian Schottenheimer said of Christian Parker.`\
-https://nytimes.com/athletic/7056013/2026/02/18/cowboys-christian-parker-dc-scheme/
 
