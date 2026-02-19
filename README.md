@@ -1,3 +1,7 @@
+**King Charles Attends a Fashion Event**\
+`His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
+https://nytimes.com/2026/02/19/world/europe/king-charles-attends-a-fashion-event.html
+
 **With a Golden Gavel and a Threat to Iran, Trump Launches His Board of Peace**\
 `The first gathering of President Trump’s alternative to the United Nations is a manifestation of a Trump World Order.`\
 https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace-meeting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058310/2026/02/19/raptors-vs-bulls-stream-how-to-w
 **How to watch South Carolina vs. Alabama women's basketball: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7058308/2026/02/19/south-carolina-vs-alabama-stream-how-to-watch-feb-19/
-
-**How to watch Texas vs. Arkansas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058285/2026/02/19/texas-vs-arkansas-stream-how-to-watch-feb-19/
 
