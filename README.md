@@ -1,3 +1,15 @@
+**She was 'paralyzed with fear' of jumping 50ft in the air. Then she turned to hypnosis**\
+`Kaila Kuhn knew she had to up her difficulty level to have a chance of winning an Olympic medal, but with that came problems. `\
+https://nytimes.com/athletic/7057164/2026/02/19/kaila-kuhn-aerials-hypnosis-winter-olympics/
+
+**Bears big board 1.0: Which defensive players could be in play in Rounds 1-3?**\
+`The Bears figure to be very active on defense in the 2026 draft. Our first big board goes through some options for them in Rounds 1-3.`\
+https://nytimes.com/athletic/7053245/2026/02/19/bears-nfl-draft-big-board-defense/
+
+**Knicks' plan for Jeremy Sochan might impact rookie Mo Diawara's progress**\
+`Knicks coach Mike Brown is going to find out what he has in Jeremy Sochan.`\
+https://nytimes.com/athletic/7055885/2026/02/19/knicks-jeremy-sochan-mo-diawara-time/
+
 **What to know about the 2026 Genesis Invitational: Tee times, TV info for return to Riviera**\
 `The PGA Tour returns to Riviera Country Club, one year after the Palisades fire. Collin Morikawa was last weekend's winner at Pebble Beach.`\
 https://nytimes.com/athletic/7054045/2026/02/19/genesis-invitational-2026-tee-times-how-to-watch/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7056562/2026/02/19/canada-usa-hockey-olympics-2026-
 **An A.I. Fight at the Pentagon, and BBC Says Former Prince Andrew Is Arrested Over Epstein Ties**\
 `Plus, a lifesaving phone feature.`\
 https://nytimes.com/2026/02/19/podcasts/the-headlines/ai-pentagon-transgender-rights.html
-
-**NFL beat writer 2026 mock draft 1.0: Teams load up on edge rushers, WRs**\
-`Edge rushers, wide receivers and offensive tackles dominate in this mock draft from The Athletic's NFL beat writers.`\
-https://nytimes.com/athletic/7055121/2026/02/19/nfl-writer-2026-mock-draft-wide-receivers-edge-rushers/
-
-**Where does UCLA find its talent? Anywhere its international recruiter can go**\
-`International recruiting isn't Plan B for the No. 2 Bruins. It's Plan A — bolded, underlined and circled in permanent marker.`\
-https://nytimes.com/athletic/7043055/2026/02/19/ucla-womens-basketball-recruiting-international/
-
-**16 Stats: How Team Canada has crafted the perfect offense**\
-`With the women's gold medal game looming and the men's semifinals set, here are the statistical storylines of note so far at the Olympics.`\
-https://nytimes.com/athletic/7054866/2026/02/19/16-stats-olympics-hockey-canada-usa/
 
