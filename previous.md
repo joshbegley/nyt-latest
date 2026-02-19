@@ -8,7 +8,7 @@ https://nytimes.com/2026/02/19/nyregion/mickey-barreto-new-yorker-hotel-fraud.ht
 
 **The New Wave of Eye Creams Promising to Soften “Eye Hooding” — What Science and Users Actually Show **\
 `As thin eyelid skin succumbs to age and sun, topical formulas built around PTT-6`\
-https://nytimes.com/paidpost/2026-02-10/.html
+https://nytimes.com/paidpost/feb/calecim/professional.html
 
 **Refugees Without Green Cards Could Be Arrested Under New Trump Policy**\
 `The change is part of the administration’s broad effort to target refugees and tighten pathways for immigrants to legally enter or remain in the United States.`\
@@ -22,9 +22,9 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/here-a
 `The Trump administration is threatening to leave the influential agency unless it stops publishing its annual road map for cutting planet-warming emissions.`\
 https://nytimes.com/2026/02/19/climate/us-tells-international-energy-agency-to-drop-its-focus-on-climate-change.html
 
-**Epstein Built Ties to U.S. Customs Officers, Sparking Criminal Investigation**\
+**Epstein Built Ties to U.S. Customs Officers, Prompting Criminal Investigation**\
 `Jeffrey Epstein cultivated friendly relationships with several customs officers in the U.S. Virgin Islands, offering food, advice and even musical gigs.`\
-https://nytimes.com/2026/02/19/us/epstein-cbp.html
+https://nytimes.com/2026/02/19/us/epstein-customs-officers-usvi.html
 
 **Infantino claims FIFA received more than one million ticket requests for 77 World Cup games**\
 `The FIFA president also suggested that every match at the tournament will be sold out.`\
