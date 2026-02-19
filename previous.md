@@ -1,3 +1,15 @@
+**What I'm hearing about the Clippers investigation, Giannis, LeBron and more**\
+`There has been a significant upswing in league-wide speculation that the NBA’s hammer is likely to fall on the LA Clippers.`\
+https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippers-lebron/
+
+**Andrew Mountbatten-Windsor’s Relationship With Jeffrey Epstein Spanned Decades**\
+`The association, which began in 1999, cost the former Prince Andrew his royal titles and status, and his reputation before his arrest.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-epstein-relationship-timeline.html
+
+**‘Kin’ Is a Lush, Beautiful Novel About the Family We Make**\
+`In Tayari Jones’s new book, two motherless girls embark on lifelong journeys to find the family they’ve always yearned for.`\
+https://nytimes.com/2026/02/19/books/review/kin-tayari-jones.html
+
 **Jittery Markets Seek an Iran ‘Off-Ramp’**\
 `Oil prices spiked and stocks fell as tensions between Washington and Tehran unnerved investors.`\
 https://nytimes.com/2026/02/19/business/dealbook/markets-oil-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7055150/2026/02/19/college-coaches-fired-cause-bask
 **Jo Adell, Lawrence Butler and the best of the rest: Fantasy baseball outfield rundown, Part 2**\
 `Eno Sarris and Derek VanRiper continue their outfield preview ahead of the 2026 fantasy baseball season. `\
 https://nytimes.com/athletic/7041684/2026/02/19/fantasy-baseball-2026-outfield-preview-part-two/
-
-**Pop Songs, Pink Confetti and Avengers: Shakespeare Returns to Broadway**\
-`The Marvel alumni Tom Hiddleston and Hayley Atwell will star in Jamie Lloyd’s mischievous take on “Much Ado About Nothing.”`\
-https://nytimes.com/2026/02/19/theater/much-ado-broadway.html
-
-**The Lewis family owns Spurs. Why haven't they taken the Premier League's OADT?**\
-`Spurs have an unusual setup on their board, which changes how the club is run`\
-https://nytimes.com/athletic/7044829/2026/02/19/tottenham-lewis-family-premier-league-owners-test/
-
-**What to Know About Trump’s ‘Board of Peace’**\
-`As President Trump’s new Board of Peace meets for the first time in Washington on Thursday, our reporter Anton Troianovski explains what the organization reveals about Trump’s approach to foreign policy.`\
-https://nytimes.com/video/us/politics/100000010718238/trump-board-of-peace-members.html
 

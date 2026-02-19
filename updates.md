@@ -1,3 +1,15 @@
+**What I'm hearing about the Clippers investigation, Giannis, LeBron and more**\
+`There has been a significant upswing in league-wide speculation that the NBA’s hammer is likely to fall on the LA Clippers.`\
+https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippers-lebron/
+
+**Andrew Mountbatten-Windsor’s Relationship With Jeffrey Epstein Spanned Decades**\
+`The association, which began in 1999, cost the former Prince Andrew his royal titles and status, and his reputation before his arrest.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-epstein-relationship-timeline.html
+
+**‘Kin’ Is a Lush, Beautiful Novel About the Family We Make**\
+`In Tayari Jones’s new book, two motherless girls embark on lifelong journeys to find the family they’ve always yearned for.`\
+https://nytimes.com/2026/02/19/books/review/kin-tayari-jones.html
+
 **Jittery Markets Seek an Iran ‘Off-Ramp’**\
 `Oil prices spiked and stocks fell as tensions between Washington and Tehran unnerved investors.`\
 https://nytimes.com/2026/02/19/business/dealbook/markets-oil-iran.html
