@@ -1,3 +1,7 @@
+**Tariffs and American Wine: Additional Costs, Export Trouble and Hostility**\
+`One year in, many producers say tariffs have not helped them, and some countries are rejecting U.S. wine altogether.`\
+https://nytimes.com/2026/02/19/dining/drinks/trump-tariffs-us-wine.html
+
 **Games Briefing: U.S.-Canada. It's here**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7057993/2026/02/19/us-canada-womens-hockey-gold-medal-game-olympics-games-briefing/
