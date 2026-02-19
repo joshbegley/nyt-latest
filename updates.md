@@ -1,3 +1,7 @@
+**Trump Order Aims to Boost Weedkiller Targeted in Health Lawsuits**\
+`An executive order aimed at ramping up production of glyphosate set off alarms among supporters of Health Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2026/02/18/us/politics/trump-boost-weedkiller.html
+
 **Acuff's 49 points not enough as No. 25 Alabama beats No. 20 Arkansas in double OT**\
 `Acuff is second player in 15 seasons to log 49 points, 5 rebounds and 5 assists in a Division I game.`\
 https://nytimes.com/athletic/7056794/2026/02/18/arkansas-alabama-darius-acuff-points-overtime/

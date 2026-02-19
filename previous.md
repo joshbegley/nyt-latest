@@ -1,3 +1,7 @@
+**Trump Order Aims to Boost Weedkiller Targeted in Health Lawsuits**\
+`An executive order aimed at ramping up production of glyphosate set off alarms among supporters of Health Secretary Robert F. Kennedy Jr.`\
+https://nytimes.com/2026/02/18/us/politics/trump-boost-weedkiller.html
+
 **Acuff's 49 points not enough as No. 25 Alabama beats No. 20 Arkansas in double OT**\
 `Acuff is second player in 15 seasons to log 49 points, 5 rebounds and 5 assists in a Division I game.`\
 https://nytimes.com/athletic/7056794/2026/02/18/arkansas-alabama-darius-acuff-points-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056299/2026/02/18/simone-biles-meets-ilia-malinin-
 **Red Sox take blame off Fanatics for jersey spacing issue**\
 `In a series of statements Wednesday, the Red Sox explained who was at fault for their jerseys not looking right. `\
 https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
-
-**Controversial 2021 Abu Dhabi GP safety car for sale**\
-`The Aston Martin Vantage used during the final race of the 2021 season becomes a rare F1 safety car to be put up for public sale.`\
-https://nytimes.com/athletic/7056164/2026/02/18/f1-safety-car-abu-dhabi-sale/
 
