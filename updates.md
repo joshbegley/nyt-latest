@@ -1,3 +1,11 @@
+**Bernie Sanders Urges Support of California Billionaire Tax at Los Angeles Rally**\
+`The senator from Vermont was the only elected leader at the event, which formally kicked off a health care union’s campaign to put the tax proposal on the ballot.`\
+https://nytimes.com/2026/02/19/us/bernie-sanders-california-billionaire-tax.html
+
+**'Second again, ole, ole': Is Arsenal's worst nightmare in danger of coming true?**\
+`The taunt used against Mikel Arteta's side by opposition fans carries more weight after Wednesday's late capitulation at Wolves`\
+https://nytimes.com/athletic/7052703/2026/02/19/arsenal-second-again-ole-ole/
+
 **Lopsided odds for women's hockey gold medal game are rare in USA-Canada rivalry**\
 `The U.S. women are heavily favored against rival Canada in Thursday's gold medal game at the Olympics.`\
 https://nytimes.com/athletic/7056088/2026/02/19/olympic-womens-hockey-gold-medal-game-odds-usa-canada/

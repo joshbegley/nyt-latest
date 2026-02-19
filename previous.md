@@ -1,3 +1,11 @@
+**Bernie Sanders Urges Support of California Billionaire Tax at Los Angeles Rally**\
+`The senator from Vermont was the only elected leader at the event, which formally kicked off a health care union’s campaign to put the tax proposal on the ballot.`\
+https://nytimes.com/2026/02/19/us/bernie-sanders-california-billionaire-tax.html
+
+**'Second again, ole, ole': Is Arsenal's worst nightmare in danger of coming true?**\
+`The taunt used against Mikel Arteta's side by opposition fans carries more weight after Wednesday's late capitulation at Wolves`\
+https://nytimes.com/athletic/7052703/2026/02/19/arsenal-second-again-ole-ole/
+
 **Lopsided odds for women's hockey gold medal game are rare in USA-Canada rivalry**\
 `The U.S. women are heavily favored against rival Canada in Thursday's gold medal game at the Olympics.`\
 https://nytimes.com/athletic/7056088/2026/02/19/olympic-womens-hockey-gold-medal-game-odds-usa-canada/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7056149/2026/02/19/chido-obi-jj-gabriel-manchester-
 **Jesse Derry: Chelsea's latest debutant on the pitch — and as Stamford the Lion**\
 `Jesse Derry made his Chelsea debut against Hull City on Friday, having joined the club from Crystal Palace last summer`\
 https://nytimes.com/athletic/7054646/2026/02/19/jesse-derry-chelsea-debutant-stamford-lion/
-
-**Manchester United’s midfield – Part 3: Kobbie Mainoo's resurgence and how to maintain it**\
-`The academy graduate looks a player reborn under Michael Carrick, now the club must capitalise on their burgeoning talent`\
-https://nytimes.com/athletic/7054556/2026/02/19/mainoo-man-united-carrick-midfield/
-
-**A run deep into the Conference League is the only thing that can save Palace's season**\
-`If the London club were to be eliminated from Europe this month the rest of their campaign will likely turn into a miserable slog`\
-https://nytimes.com/athletic/7049957/2026/02/19/crystal-palace-premier-league-conference-league-glasner/
 
