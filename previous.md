@@ -1,40 +1,40 @@
-**Man Utd to provide free coach travel for fans for Bournemouth trip**\
-`The game on Friday, April 20 is the latest to have been shifted to a time that is potentially inconvenient for travelling fans.`\
-https://nytimes.com/athletic/7057137/2026/02/19/manchester-united-coach-travel-free-bournemouth/
+**TV presenter apologises for drinking before viral Olympics broadcast**\
+`Danika Mason was doing a live round-up when she went off topic to the "price of coffee" and "iguanas" while slurring her words. `\
+https://nytimes.com/athletic/7057159/2026/02/19/winter-olympics-tv-presenter-apology-drinking/
 
-**Thirty years ago, the trial of another ousted leader gripped South Korea.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
+**Life in Italy**\
+`The ultimate journey and the ultimate destination await. Discover life in Italy from stories of past guests and staff of Belmond’s Italian properties.`\
+https://nytimes.com/paidpost/belmond/life-in-italy.html
 
-**South Korea’s Yoon Sentenced to Life in Prison**\
-`Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
-https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
+**Liverpool's Isak expected to be fit 'around end of March' - Slot**\
+`The striker is back training on the grass and working towards a return from a broken leg in late March or early April.`\
+https://nytimes.com/athletic/7057195/2026/02/19/alexander-isak-liverpool-return/
 
-**What's on an Olympic ski jumper's mind as they sit on the bar, waiting for their turn?**\
-`What runs through their mind in the moments before jumping? Spoiler: for many of them, nothing.`\
-https://nytimes.com/athletic/7052472/2026/02/19/winter-olympics-ski-jumping-bar-turn/
+**Awards Watch: Where do All-NBA teams stand coming out of the All-Star break?**\
+`We haven't had many games since our last check-in, so let's examine some other postseason honors.`\
+https://nytimes.com/athletic/7052659/2026/02/19/awards-watch-all-nba-teams-gilgeous-alexander-jokic-wembanyama/
 
-**Alysa Liu Is Skating Again, Her Way This Time**\
-`At 16, out of love with the sport, Liu stepped away. Controlling her career, after years of oversight from her father, was the only way she could return.`\
-https://nytimes.com/2026/02/19/world/olympics/olympics-alysa-liu-figure-skating.html
+**Van Gogh and the Meaning of Yellow**\
+`The artist gave prominence to the color during a happy period that produced some of his most famous works. But it can have many different associations, a new exhibition shows.`\
+https://nytimes.com/2026/02/19/arts/van-gogh-museum-yellow.html
 
-**Why Prosecutors in Sex-Crime Cases Often Turn to Trafficking Laws**\
-`Lawyers build cases around these laws because the statutes are broad and use language that can encompass a variety of crimes, according to experts.`\
-https://nytimes.com/2026/02/19/nyregion/sex-trafficking-federal-charges.html
+**In Devastated Gaza, Grandiose Peace Plans Clash With Reality**\
+`Israeli strikes on Gaza have killed about 600 people since a cease-fire began, according to health officials in the territory. Many displaced Palestinians are still living in tents. And there are some 60 million tons of war debris to be cleared.`\
+https://nytimes.com/2026/02/19/world/middleeast/gaza-rebuilding.html
 
-**How Kansas City became the base camp capital for the World Cup – and its top contenders**\
-`When it comes to destination U.S. cities, Kansas City isn't at the top of many lists. So how did it become such a desired World Cup base?`\
-https://nytimes.com/athletic/7052907/2026/02/19/kansas-city-world-cup-training-base-argentina-england-netherlands/
+**The Year Empathy Died**\
+`Compassion is not toxic.`\
+https://nytimes.com/2026/02/19/opinion/toxic-empathy-christianity-trump.html
 
-**A Child Misses 3 Weeks of School. Should Protective Services Step In?**\
-`A growing number of states are debating whether to alter their policies on summoning child protection officials if a student has excessive absences.`\
-https://nytimes.com/2026/02/19/nyregion/school-absences-child-protection.html
+**Who Would Win Gold in the Coward Olympics?**\
+`There are a lot of potential contestants.`\
+https://nytimes.com/2026/02/19/opinion/newsom-mamdani-democrats-taxes.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/19/crosswords/spelling-bee-forum.html
+**Top Concern in Avalanche Recovery Effort Is Now Safety of Searchers**\
+`Weather and snow conditions will dictate when the bodies of skiers killed in the avalanche near Lake Tahoe can be retrieved from mountain. More snow is expected.`\
+https://nytimes.com/2026/02/19/us/top-concern-in-avalanche-recovery-effort-is-now-safety-of-searchers.html
 
-**After Avalanche Warnings, a Sierra Nevada Tragedy**\
-`Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
-https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
+**The Future Is Indian**\
+`Why the next 30 years belong to a deal-making great power.`\
+https://nytimes.com/2026/02/19/opinion/interesting-times-amitav-acharya.html
 
