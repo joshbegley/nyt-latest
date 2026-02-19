@@ -1,3 +1,7 @@
+**Acuff's 49 points not enough as No. 25 Alabama beats No. 20 Arkansas in double OT**\
+`Acuff is second player in 15 seasons to log 49 points, 5 rebounds and 5 assists in a Division I game.`\
+https://nytimes.com/athletic/7056794/2026/02/18/arkansas-alabama-darius-acuff-points-overtime/
+
 **Trial for Guardians pitchers charged in alleged pitch-rigging scheme could move to October**\
 `Luis Ortiz’s lawyers asked for the trial to be shifted to a later date, while Emmanuel Clase has asked for a speedy trial. `\
 https://nytimes.com/athletic/7056872/2026/02/18/cleveland-guardians-emmanuel-clase-trial-change-october/
