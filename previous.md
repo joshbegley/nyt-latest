@@ -1,3 +1,15 @@
+**Jordan Stolz settles for silver in 1,500-meter speedskating race in an upset**\
+`MILAN – As the 1,500-meter Olympic record kept falling early Thursday evening at Milano Speed Skating Arena, the capacity crowd kept waiting for two-time gold medal winner Jordan Stolz to do what he’s done this entire Olympics: come from behind to win.`\
+https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
+
+**A Press Freedom Case in Peril, From a Lawyer Who Helped Write It**\
+`Alan Dershowitz was present at the creation of New York Times v. Sullivan. Now he is asking the Supreme Court to revise or destroy it.`\
+https://nytimes.com/2026/02/19/us/politics/thedocket-dershowitz-sullivan.html
+
+**The Met Opera’s New Season: What We Want to See**\
+`Among the highlights are the world premiere of an adaptation of “Lincoln in the Bardo,” and classics like “Macbeth” and “Jenufa.”`\
+https://nytimes.com/2026/02/19/arts/music/met-opera-2026-2027-season.html
+
 **Video Shows Rare Sighting of Sleeper Shark in Antarctic Waters**\
 `During an expedition in early 2025, researchers at the University of Western Australia captured footage of a sleeper shark swimming in Antarctic waters. It may be the first recording of that species that far south.`\
 https://nytimes.com/video/world/100000010719943/sleeper-shark-rare-sighting-antarctica-.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7057673/2026/02/19/united-states-olympic-village-st
 **How to handle your top pick in 2026 fantasy baseball drafts**\
 `Owen Poindexter takes a deep dive into the most important pick of your fantasy baseball draft — your first one.`\
 https://nytimes.com/athletic/7056178/2026/02/19/fantasy-baseball-round-one-draft-pick-analysis/
-
-**Bears promote Jeff King to assistant general manager**\
-`King, 46, was the Bears’ obvious choice to succeed Ian Cunningham, having spent more than a decade with the franchise.`\
-https://nytimes.com/athletic/7057854/2026/02/19/bears-jeff-king-assistant-general-manager/
-
-**Man Utd, Atletico and another Champions League kit mix-up**\
-`Match officials decided hours before kick-off that the orange goalkeeper kit the Spanish side brought would clash with United's red shirt.`\
-https://nytimes.com/athletic/7057789/2026/02/19/manchester-united-atletico-uwcl-kit/
-
-**The former prince gave a disastrous BBC interview in 2019.**\
-`T`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-gave-a-disastrous-bbc-interview-in-2019
 

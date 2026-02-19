@@ -1,3 +1,15 @@
+**Jordan Stolz settles for silver in 1,500-meter speedskating race in an upset**\
+`MILAN – As the 1,500-meter Olympic record kept falling early Thursday evening at Milano Speed Skating Arena, the capacity crowd kept waiting for two-time gold medal winner Jordan Stolz to do what he’s done this entire Olympics: come from behind to win.`\
+https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
+
+**A Press Freedom Case in Peril, From a Lawyer Who Helped Write It**\
+`Alan Dershowitz was present at the creation of New York Times v. Sullivan. Now he is asking the Supreme Court to revise or destroy it.`\
+https://nytimes.com/2026/02/19/us/politics/thedocket-dershowitz-sullivan.html
+
+**The Met Opera’s New Season: What We Want to See**\
+`Among the highlights are the world premiere of an adaptation of “Lincoln in the Bardo,” and classics like “Macbeth” and “Jenufa.”`\
+https://nytimes.com/2026/02/19/arts/music/met-opera-2026-2027-season.html
+
 **Video Shows Rare Sighting of Sleeper Shark in Antarctic Waters**\
 `During an expedition in early 2025, researchers at the University of Western Australia captured footage of a sleeper shark swimming in Antarctic waters. It may be the first recording of that species that far south.`\
 https://nytimes.com/video/world/100000010719943/sleeper-shark-rare-sighting-antarctica-.html
