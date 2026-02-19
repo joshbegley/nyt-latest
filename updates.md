@@ -1,3 +1,7 @@
+**Yoon’s martial law declaration failed, but his supporters stayed loyal.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons-martial-law-declaration-failed-but-his-supporters-stayed-loyal
+
 **What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
 `Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
 https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/

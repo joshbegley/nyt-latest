@@ -1,3 +1,7 @@
+**Yoon’s martial law declaration failed, but his supporters stayed loyal.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons-martial-law-declaration-failed-but-his-supporters-stayed-loyal
+
 **What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
 `Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
 https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055195/2026/02/19/jake-canter-snowboard-slopestyle
 **The shocking scale of the racist abuse suffered by Vinicius Jr**\
 `According to La Liga, there have been 26 incidents of racist abuse directed towards him since October 2021`\
 https://nytimes.com/athletic/7055797/2026/02/19/vinicius-jr-real-madrid-racism-benfica-champions-league/
-
-**What would actually happen if Tottenham were relegated?**\
-`What could be the financial impact? Would all players leave? How far would it set the club back? `\
-https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegation/
 
