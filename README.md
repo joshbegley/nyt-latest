@@ -1,3 +1,11 @@
+**What to Know About the Sierra Nevada Avalanche**\
+`At least eight skiers were killed, California authorities said, after heavy snow pummeled the region.`\
+https://nytimes.com/2026/02/18/us/avalanche-lake-tahoe.html
+
+**U.N. Security Council Meets on Gaza, a Day Before Board of Peace Gathering**\
+`Amid criticism over the board’s structure and broad mandate, the U.S. ambassador to the U.N. defended the board, saying “a new way” was needed to address the situation in Gaza.`\
+https://nytimes.com/2026/02/18/world/middleeast/security-council-israel-gaza-board-peace.html
+
 **How Mamdani’s Income and Property Tax Proposals Could Affect New Yorkers**\
 `Mayor Zohran Mamdani has now proposed two options that called for raising taxes. Here’s a look at each proposal and the rationale and chances for each.`\
 https://nytimes.com/2026/02/18/nyregion/mamdani-millionaire-tax-property.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7056401/2026/02/18/world-baseball-classic-ken-griff
 **As ICE Buys Up Warehouses, Even Some Trump Voters Say No**\
 `The agency is ramping up arrests, but local pushback is complicating efforts to expand detention capacity and prevent overcrowding.`\
 https://nytimes.com/2026/02/18/us/politics/ice-warehouses-trump-voters.html
-
-**Tom Edozie, the 19-year-old who dented Arsenal's Premier League title hopes**\
-`The teenager was making his first-team debut for Wolves and scored the equaliser against Premier League leaders Arsenal`\
-https://nytimes.com/athletic/7056455/2026/02/18/tom-edozie-arsenal-wolves-premier-league/
-
-**Shipwreck Found at the Bottom of Lake Michigan After Nearly 150 Years**\
-`The steamer Lac La Belle, which was carrying passengers and cargo, sank in a storm in 1872. Eight people died when one of its lifeboats capsized.`\
-https://nytimes.com/2026/02/18/us/shipwreck-lac-la-belle-discovered-lake-michigan.html
 
