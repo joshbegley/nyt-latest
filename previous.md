@@ -1,3 +1,11 @@
+**Several members of the British elite have been named in the Epstein files.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/epstein-files-prince-andrew-uk-elite
+
+**Olympic men's hockey semifinals: Breaking down Canada vs. Finland, USA vs. Slovakia**\
+`The men's hockey semifinals are set. Here's a look at both of Friday's matchups, with Canada facing Finland and the U.S. facing Slovakia.`\
+https://nytimes.com/athletic/7057266/2026/02/19/olympics-mens-hockey-semifinals-canada-usa-matchups/
+
 **Daniil Medvedev, Stefanos Tsitsipas and how a tennis rivalry full of needle grew weary**\
 `Two players who have delivered some memorable on-court clashes have slowly become emblems of a sport passing them by.`\
 https://nytimes.com/athletic/7055123/2026/02/19/tennis-rivalry-medvedev-tsitsipas-history/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7036898/2026/02/19/red-sox-tigers-american-league-b
 **Giants roster projection 1.0: Will the time be right for Bryce Eldridge and/or Hayden Birdsong?**\
 `Before the exhibitions begin, here's a preliminary look at the locks, the likelihoods and the fuzzy incumbents.`\
 https://nytimes.com/athletic/7056542/2026/02/19/san-francisco-giants-roster-projection-1-eldridge-birdsong/
-
-**Nick Foligno committed to Blackhawks but unsure how personal future will unfold**\
-`The Blackhawks captain is excited for a four-game road trip to kick off the rest of the season, enjoying what he has while it lasts.`\
-https://nytimes.com/athletic/7055873/2026/02/19/nick-foligno-blackhawks-trade-deadline-future-contract/
-
-**This Week in Sports Trivia: February 19, 2026**\
-`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
-https://nytimes.com/athletic/7055593/2026/02/19/this-week-in-sports-trivia-february-19-2026/
 

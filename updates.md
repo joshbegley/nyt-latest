@@ -1,3 +1,11 @@
+**Several members of the British elite have been named in the Epstein files.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/epstein-files-prince-andrew-uk-elite
+
+**Olympic men's hockey semifinals: Breaking down Canada vs. Finland, USA vs. Slovakia**\
+`The men's hockey semifinals are set. Here's a look at both of Friday's matchups, with Canada facing Finland and the U.S. facing Slovakia.`\
+https://nytimes.com/athletic/7057266/2026/02/19/olympics-mens-hockey-semifinals-canada-usa-matchups/
+
 **Daniil Medvedev, Stefanos Tsitsipas and how a tennis rivalry full of needle grew weary**\
 `Two players who have delivered some memorable on-court clashes have slowly become emblems of a sport passing them by.`\
 https://nytimes.com/athletic/7055123/2026/02/19/tennis-rivalry-medvedev-tsitsipas-history/
