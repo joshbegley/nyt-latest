@@ -1,3 +1,11 @@
+**TAFC: Has Wolves teenager just tilted title race? Plus: Battle for World Cup base camps**\
+`Today in TAFC: Meet the teen that might just have tilted the title race towards Man City. Plus: Battle over World Cup base camps.`\
+https://nytimes.com/athletic/7057216/2026/02/19/arsenal-wolves-edozie-premier-league/
+
+**The Board of Peace**\
+`Today we look at President Trump’s new diplomatic initiative.`\
+https://nytimes.com/2026/02/19/briefing/the-board-of-peace.html
+
 **At the Winter Olympics, full gender equality remains a work in progress**\
 `The IOC has made strides toward gender equality, but many of the competition formats aren't there yet. Some think that's just fine.`\
 https://nytimes.com/athletic/7052978/2026/02/19/winter-olympics-gender-equality-skiing-biathlon/

@@ -1,3 +1,11 @@
+**TAFC: Has Wolves teenager just tilted title race? Plus: Battle for World Cup base camps**\
+`Today in TAFC: Meet the teen that might just have tilted the title race towards Man City. Plus: Battle over World Cup base camps.`\
+https://nytimes.com/athletic/7057216/2026/02/19/arsenal-wolves-edozie-premier-league/
+
+**The Board of Peace**\
+`Today we look at President Trump’s new diplomatic initiative.`\
+https://nytimes.com/2026/02/19/briefing/the-board-of-peace.html
+
 **At the Winter Olympics, full gender equality remains a work in progress**\
 `The IOC has made strides toward gender equality, but many of the competition formats aren't there yet. Some think that's just fine.`\
 https://nytimes.com/athletic/7052978/2026/02/19/winter-olympics-gender-equality-skiing-biathlon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7053245/2026/02/19/bears-nfl-draft-big-board-defens
 **Knicks' plan for Jeremy Sochan might impact rookie Mo Diawara's progress**\
 `Knicks coach Mike Brown is going to find out what he has in Jeremy Sochan.`\
 https://nytimes.com/athletic/7055885/2026/02/19/knicks-jeremy-sochan-mo-diawara-time/
-
-**What to know about the 2026 Genesis Invitational: Tee times, TV info for return to Riviera**\
-`The PGA Tour returns to Riviera Country Club, one year after the Palisades fire. Collin Morikawa was last weekend's winner at Pebble Beach.`\
-https://nytimes.com/athletic/7054045/2026/02/19/genesis-invitational-2026-tee-times-how-to-watch/
-
-**Brian Schottenheimer: Cowboys 'hit a home run' with new DC Christian Parker**\
-`Parker says stopping the run and affecting the quarterback are his top core beliefs with the defense.`\
-https://nytimes.com/athletic/7056834/2026/02/19/cowboys-christian-parker-defensive-coordinator-schottenheimer/
 
