@@ -1,3 +1,7 @@
+**Police Investigate ICE Arrest of a Man Who Suffered Severe Head Injuries**\
+`The police in St. Paul, Minn., are investigating an arrest last month during the immigration crackdown. The man has said he was beaten by agents. ICE asserted that he ran into a wall.`\
+https://nytimes.com/2026/02/19/us/police-investigation-ice.html
+
 **How The Times Covered the Fast-Moving Arrest of Former Prince Andrew**\
 `Andrew Mountbatten-Windsor was arrested on suspicion of misconduct in public office, then released hours later. Two Times reporters explain how they are covering the unprecedented moment.`\
 https://nytimes.com/2026/02/19/insider/prince-andrew-arrest-new-york-times.html
@@ -29,12 +33,4 @@ https://nytimes.com/2026/02/19/us/politics/trump-russia-deals-novatek.html
 **British Police Arrest Former Prince Andrew, in Stunning Blow to Royal Family**\
 `Andrew Mountbatten-Windsor, a longtime associate of Jeffrey Epstein, is being investigated on suspicion of misconduct in public office.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrest-epstein.html
-
-**The uproar over former Prince Andrew’s Epstein ties casts a shadow over the royal family.**\
-`The arrest of the former prince could shake public confidence in the monarchy.`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/prince-andrew-epstein-royal-family
-
-**The Former Prince Andrew Is Arrested**\
-`Also, Trump hints at the possibility of military action in Iran. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/02/19/briefing/former-prince-andrew-trade-deficit.html
 

@@ -1,3 +1,7 @@
+**Police Investigate ICE Arrest of a Man Who Suffered Severe Head Injuries**\
+`The police in St. Paul, Minn., are investigating an arrest last month during the immigration crackdown. The man has said he was beaten by agents. ICE asserted that he ran into a wall.`\
+https://nytimes.com/2026/02/19/us/police-investigation-ice.html
+
 **How The Times Covered the Fast-Moving Arrest of Former Prince Andrew**\
 `Andrew Mountbatten-Windsor was arrested on suspicion of misconduct in public office, then released hours later. Two Times reporters explain how they are covering the unprecedented moment.`\
 https://nytimes.com/2026/02/19/insider/prince-andrew-arrest-new-york-times.html
