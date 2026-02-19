@@ -1,3 +1,27 @@
+**Games Briefing: U.S.-Canada. It's here**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7057993/2026/02/19/us-canada-womens-hockey-gold-medal-game-olympics-games-briefing/
+
+**Gisèle Pelicot: ‘I’m Lucky to Be Alive’**\
+`In 2024, Gisèle Pelicot galvanized women in France and around the world when she decided to forgo anonymity in the trial of 51 men accused of sexually assaulting her.`\
+https://nytimes.com/video/podcasts/100000010720737/gisele-pelicot-im-lucky-to-be-alive.html
+
+**Toasted Coconut Rice Salad**\
+`Fluffy toasted rice meets crunchy slaw in this gingery, tofu-topped salad. Jasmine rice gets toasted until fragrant and lightly golden, then it’s cooked with coconut milk to yield a supremely nutty base for the salad.`\
+https://nytimes.com/video/dining/100000010720615/toasted-coconut-rice-salad.html
+
+**Restaurant Review: Super Peach in Los Angeles**\
+`Super Peach, the latest restaurant from David Chang’s supergroup, is a 200-seat modern Korean spot in Los Angeles. Tejal Rao, a chief restaurant critic for The New York Times, shares her review of this new addition to the Momofuku culinary empire.`\
+https://nytimes.com/video/dining/100000010720613/restaurant-review-super-peach-in-los-angeles.html
+
+**Chocolate Pudding Cups**\
+`This grown-up chocolate pudding, which uses dark chocolate and a luxurious custard base rooted in European techniques, is served in small individual portions and nods to childhood indulgence.`\
+https://nytimes.com/video/dining/100000010720609/chocolate-pudding-cups.html
+
+**Pork and Garlic-Chive Potstickers**\
+`It’s Dumpling Week at New York Times Cooking and Sue Li, a Cooking contributor, is here with her recipe for pork and garlic-chive potstickers.`\
+https://nytimes.com/video/dining/100000010720607/pork-and-garlic-chive-potstickers.html
+
 **12 Steps and Cups of Coffee: Sobriety Has Its Moment Onstage**\
 `Plays about addiction are filling Manhattan stages this month, depicting very different places on the recovery spectrum, from harrowing to serene.`\
 https://nytimes.com/2026/02/19/theater/dinosaurs-blackout-songs-reservoir-anonymous.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
 **For the Royals, No Playbook Exists for the Arrest of a Former Prince**\
 `There is simply no blueprint for how to react to the arrest of a close relative of the king who until recently had played a senior role, and who could may be charged and put on trial, experts on the royals said.`\
 https://nytimes.com/2026/02/19/world/europe/andrew-mountbatten-windsor-royal-family-public-relations.html
-
-**Jordan Stolz picks up third medal at Milan Olympics with silver in speedskating 1500m**\
-`Stolz's silver in the 1,500-meter race comes after his gold medal performances in the 1000m and the 500m.`\
-https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
-
-**A Press Freedom Case in Peril, From a Lawyer Who Helped Write It**\
-`Alan Dershowitz was present at the creation of New York Times v. Sullivan. Now he is asking the Supreme Court to revise or destroy it.`\
-https://nytimes.com/2026/02/19/us/politics/thedocket-dershowitz-sullivan.html
-
-**The Met Opera’s New Season: What We Want to See**\
-`Among the highlights are the world premiere of an adaptation of “Lincoln in the Bardo,” and classics like “Macbeth” and “Jenufa.”`\
-https://nytimes.com/2026/02/19/arts/music/met-opera-2026-2027-season.html
-
-**Video Shows Rare Sighting of Sleeper Shark in Antarctic Waters**\
-`During an expedition in early 2025, researchers at the University of Western Australia captured footage of a sleeper shark swimming in Antarctic waters. It may be the first recording of that species that far south.`\
-https://nytimes.com/video/world/100000010719943/sleeper-shark-rare-sighting-antarctica-.html
-
-**José van Dam, Suave and Riveting Opera Star, Dies at 85**\
-`One of the most esteemed singers of his era, he had a wide repertoire that included Mozart, Wagner and the title role in Messiaen’s epic “St. François d’Assise.”`\
-https://nytimes.com/2026/02/19/arts/music/jose-van-dam-dead.html
-
-**A Rare Glimpse of a Sleeper Shark in Antarctic Waters**\
-`Researchers filmed a 10-to-13-foot sleeper shark off the South Shetland Islands, in what may be the first recording of the species that far south.`\
-https://nytimes.com/2026/02/19/world/australia/sleeper-shark-antarctica-sighting.html
 
