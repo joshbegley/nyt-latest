@@ -1,3 +1,11 @@
+**An Antarctic Voyage**\
+`My colleague just spent two months on a research icebreaker. It changed his perspective on the world in ways he didn’t expect.`\
+https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olympics.html
+
+**USA takes Olympic gold in women's hockey, defeating Canada in OT to cap dominant run**\
+`The Americans trailed for most of the game but survived in overtime to be crowned Olympic champions.`\
+https://nytimes.com/athletic/7058003/2026/02/19/usa-canada-olympics-womens-hockey-gold-medal/
+
 **Powerful Winds and Wildfires Have the Southern Plains on Edge**\
 `A combustible mix of weather ingredients has sparked worries about new fires in Oklahoma and Texas.`\
 https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
