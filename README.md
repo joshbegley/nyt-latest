@@ -1,3 +1,7 @@
+**FIFA and UEFA presidents accused of 'aiding war crimes' in ICC complaint**\
+`The governing bodies of football were also accused of “crimes against humanity in the occupied Palestinian territory”.`\
+https://nytimes.com/athletic/7058189/2026/02/19/fifa-uefa-presidents-icc-complaint/
+
 **Ex-Police Commissioner’s Lawsuit Against New York City Is Dismissed**\
 `Thomas G. Donlon had claimed he was fired for exposing corruption within the Police Department and City Hall. He briefly served as interim commissioner under Mayor Eric Adams in 2024.`\
 https://nytimes.com/2026/02/19/nyregion/donlon-lawsuit-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-re
 **How Trump Is Upending Who Can Be a Guest on Late-Night TV**\
 `The F.C.C. is using a century-old broadcast rule to take aim at hosts like Stephen Colbert. The impact could reshape how talk shows handle politics.`\
 https://nytimes.com/2026/02/19/business/media/colbert-equal-time-fcc-brendan-carr.html
-
-**Southern Plains Braces for More Wildfires While Battling Old Ones**\
-`Unusually warm temperatures, dry air, parched vegetation and strong wind gusts have fueled wildfires, which have broken out across Oklahoma and Texas this week.`\
-https://nytimes.com/video/weather/100000010723479/southern-plains-wildfires-oklahoma-texas.html
 
