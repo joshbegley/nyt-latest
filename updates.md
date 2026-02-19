@@ -1,3 +1,15 @@
+**The former Prince Andrew was stripped of his royal titles late last year.**\
+`By Mark Landler`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-andrew-was-stripped-of-his-royal-titles-late-last-year
+
+**Latest Updates: Rampant Speculation Complicates Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/19/us/nancy-guthrie-case-updates
+
+**U.S. Imports Grew in 2025, as Trump’s Tariffs Took Effect**\
+`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services.`\
+https://nytimes.com/2026/02/19/business/economy/imports-tariffs-trade-deficit.html
+
 **No Corrections: Feb. 19, 2026**\
 `No corrections appeared in print on Thursday, Feb. 19, 2026.`\
 https://nytimes.com/2026/02/19/pageoneplus/no-corrections-feb-19-2026.html

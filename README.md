@@ -1,3 +1,7 @@
+**A Festival Tried to Focus on Film. Politics Stole the Spotlight.**\
+`Reporters’ attempts to draw stars into debates about Gaza and other highly charged topics have threatened to overshadow the movies at the Berlin Film Festival.`\
+https://nytimes.com/2026/02/19/movies/berlin-film-festival-politics.html
+
 **The former Prince Andrew was stripped of his royal titles late last year.**\
 `By Mark Landler`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-andrew-was-stripped-of-his-royal-titles-late-last-year
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057411/2026/02/19/darryn-peterson-cramping-kansas-
 **What I'm hearing about the Clippers investigation, Giannis, LeBron and more**\
 `There has been a significant upswing in league-wide speculation that the NBA’s hammer is likely to fall on the LA Clippers.`\
 https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippers-lebron/
-
-**Andrew Mountbatten-Windsor’s Relationship With Jeffrey Epstein Spanned Decades**\
-`The association, which began in 1999, cost the former Prince Andrew his royal titles and status, and his reputation before his arrest.`\
-https://nytimes.com/2026/02/19/world/europe/prince-andrew-epstein-relationship-timeline.html
 

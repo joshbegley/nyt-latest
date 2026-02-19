@@ -1,3 +1,15 @@
+**The former Prince Andrew was stripped of his royal titles late last year.**\
+`By Mark Landler`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-andrew-was-stripped-of-his-royal-titles-late-last-year
+
+**Latest Updates: Rampant Speculation Complicates Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/19/us/nancy-guthrie-case-updates
+
+**U.S. Imports Grew in 2025, as Trump’s Tariffs Took Effect**\
+`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services.`\
+https://nytimes.com/2026/02/19/business/economy/imports-tariffs-trade-deficit.html
+
 **No Corrections: Feb. 19, 2026**\
 `No corrections appeared in print on Thursday, Feb. 19, 2026.`\
 https://nytimes.com/2026/02/19/pageoneplus/no-corrections-feb-19-2026.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippe
 **Andrew Mountbatten-Windsor’s Relationship With Jeffrey Epstein Spanned Decades**\
 `The association, which began in 1999, cost the former Prince Andrew his royal titles and status, and his reputation before his arrest.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-epstein-relationship-timeline.html
-
-**‘Kin’ Is a Lush, Beautiful Novel About the Family We Make**\
-`In Tayari Jones’s new book, two motherless girls embark on lifelong journeys to find the family they’ve always yearned for.`\
-https://nytimes.com/2026/02/19/books/review/kin-tayari-jones.html
-
-**Jittery Markets Seek an Iran ‘Off-Ramp’**\
-`Oil prices spiked and stocks fell as tensions between Washington and Tehran unnerved investors.`\
-https://nytimes.com/2026/02/19/business/dealbook/markets-oil-iran.html
-
-**Switzerland and Spain win first ski mountaineering Olympic golds**\
-`On the day ski mountaineering made its Olympic debut, Switzerland's Marianne Fatton and Spain's Oriol Cardona Coll won gold. `\
-https://nytimes.com/athletic/7057442/2026/02/19/marianne-fatton-oriol-cardona-coll-ski-mountaineering-olympic-golds/
 
