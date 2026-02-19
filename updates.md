@@ -1,3 +1,15 @@
+**Here’s the police statement on the arrest.**\
+`By Megan Specia`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/heres-the-police-statement-on-the-arrest
+
+**The Pulse: The nastiest rivalry in hockey**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7055697/2026/02/19/usa-canada-hockey-gold-medal-the-pulse/
+
+**Chase Briscoe on Atlanta bathrooms and being a helicopter parent: 12 Questions**\
+`Each week, The Athletic asks the same 12 questions to a different race-car driver.`\
+https://nytimes.com/athletic/7055322/2026/02/19/chase-briscoe-nascar-kevin-harvick-12-questions/
+
 **She was 'paralyzed with fear' of jumping 50ft in the air. Then she turned to hypnosis**\
 `Kaila Kuhn knew she had to up her difficulty level to have a chance of winning an Olympic medal, but with that came problems. `\
 https://nytimes.com/athletic/7057164/2026/02/19/kaila-kuhn-aerials-hypnosis-winter-olympics/

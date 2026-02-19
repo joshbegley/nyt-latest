@@ -1,3 +1,7 @@
+**Coutinho announces Vasco exit: 'I'm mentally exhausted'**\
+`The 33-year-old's contract was due to run until June.`\
+https://nytimes.com/athletic/7057235/2026/02/19/philippe-coutinho-brazil-vasco-da-gama/
+
 **Here’s the police statement on the arrest.**\
 `By Megan Specia`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/heres-the-police-statement-on-the-arrest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056834/2026/02/19/cowboys-christian-parker-defensi
 **Jazz Chisholm Jr.'s goals for 2026: MVP, Gold Glove, Silver Slugger and ... 50-50 Club**\
 `As Chisholm prepares for his free-agent walk year, his goals are nothing if not ambitious. In his mind, he can be the best player in MLB.`\
 https://nytimes.com/athletic/7053183/2026/02/19/jazz-chisholm-yankees-2026-goals/
-
-**Panthers roster analysis: Trade options and extension candidates before free agency**\
-`The Panthers aren’t flush with free-agency capital. They currently have $12.95 million in salary-cap space.`\
-https://nytimes.com/athletic/7056217/2026/02/19/panthers-roster-analysis-free-agency/
 
