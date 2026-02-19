@@ -1,3 +1,15 @@
+**Cooper Flagg still out with foot sprain as Mavs seek to end losing streak against Wolves**\
+`The rookie wasn't wearing the walking boot he had on during a weekend visit to North Carolina to watch Duke play.`\
+https://nytimes.com/athletic/7058746/2026/02/19/cooper-flagg-out-foot-sprain-mavericks-wolves/
+
+**FIFA and UEFA presidents accused of 'aiding war crimes' in ICC complaint**\
+`The governing bodies of football were also accused of “crimes against humanity in the occupied Palestinian territory”.`\
+https://nytimes.com/athletic/7058189/2026/02/19/fifa-uefa-presidents-icc-complaint/
+
+**Catching up with budding media personality Koji Uehara, plus Red Sox notes**\
+`Plus a look at the Red Sox's camp standouts, early spring training pitching plans and why the team traded for Johan Oviedo.`\
+https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-red-sox/
+
 **Ex-Police Commissioner’s Lawsuit Against New York City Is Dismissed**\
 `Thomas G. Donlon had claimed he was fired for exposing corruption within the Police Department and City Hall. He briefly served as interim commissioner under Mayor Eric Adams in 2024.`\
 https://nytimes.com/2026/02/19/nyregion/donlon-lawsuit-nypd.html
