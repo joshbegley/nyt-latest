@@ -18,6 +18,10 @@ https://nytimes.com/athletic/7041684/2026/02/19/fantasy-baseball-2026-outfield-p
 `The Marvel alumni Tom Hiddleston and Hayley Atwell will star in Jamie Lloyd’s mischievous take on “Much Ado About Nothing.”`\
 https://nytimes.com/2026/02/19/theater/much-ado-broadway.html
 
+**The Lewis family owns Spurs. Why haven't they taken the Premier League's OADT?**\
+`Spurs have an unusual setup on their board, which changes how the club is run`\
+https://nytimes.com/athletic/7044829/2026/02/19/tottenham-lewis-family-premier-league-owners-test/
+
 **What to Know About Trump’s ‘Board of Peace’**\
 `As President Trump’s new Board of Peace meets for the first time in Washington on Thursday, our reporter Anton Troianovski explains what the organization reveals about Trump’s approach to foreign policy.`\
 https://nytimes.com/video/us/politics/100000010718238/trump-board-of-peace-members.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/europe/witkoff-kushner-iran-ukraine-israel.
 **Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
 `Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
 https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
-
-**College basketball observations: Alabama-Arkansas delivers, Creighton stuns UConn and Peterson's injury saga**\
-`Plus, bubble winners and losers of the night, BYU's ceiling is shrinking and Vanderbilt's comeback falls just shot. `\
-https://nytimes.com/athletic/7057054/2026/02/19/arkansas-alabama-kansas-uconn-darryn-peterson/
 
