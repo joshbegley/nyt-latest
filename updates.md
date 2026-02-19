@@ -1,3 +1,11 @@
+**Justice Dept. Lawyer Is Found in Contempt by Federal Judge**\
+`The ruling out of Minnesota marks a new level of judicial concern about the Trump administration’s lack of compliance with judges’ orders in immigration cases.`\
+https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt.html
+
+**Police Chief Hired to Help Lead N.Y.C. Hospital Patrols Abruptly Quits**\
+`The assistant chief, Jamiel Altaheri, resigned almost immediately after starting the job, after The New York Times asked about misconduct allegations while he was a police chief in Michigan.`\
+https://nytimes.com/2026/02/18/nyregion/jamiel-altaheri-hamtramck-nyc-hospitals.html
+
 **Red Sox take blame off Fanatics for jersey spacing issue**\
 `In a series of statements Wednesday, the Red Sox explained who was at fault for their jerseys not looking right. `\
 https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
