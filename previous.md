@@ -1,3 +1,31 @@
+**British Couple Held in Iran Is Sentenced to 10 Years in Prison, Family Says**\
+`Craig and Lindsay Foreman were arrested last year during a motorcycle tour around the world. Their relatives and the British government have rejected Iranian charges of “security crimes.”`\
+https://nytimes.com/2026/02/19/world/middleeast/british-couple-foreman-iran-prison.html
+
+**Chelsea still unable to put timeframe on Cucurella injury - Rosenior**\
+`The head coach confirmed in a news conference on Thursday that Cole Palmer and Reece James are available. `\
+https://nytimes.com/athletic/7057617/2026/02/19/marc-cucurella-chelsea-injury-rosenior/
+
+**OpenAI and Anthropic Rivals Share Awkward Moment at A.I. Summit**\
+`Sam Altman and Dario Amodei, the chief executives of OpenAI and Anthropic, respectively, avoided holding hands during a photo-op at an A.I. summit hosted by Prime Minister Narendra Modi of India.`\
+https://nytimes.com/video/business/100000010722590/openai-anthropic-altman-amodei-hand-holding.html
+
+**Two more Georgia football players arrested on driving-related charges**\
+`There have been 13 known instances of UGA players arrested on driving charges since a 2023 crash that killed a player and staff member.`\
+https://nytimes.com/athletic/7057630/2026/02/19/georga-football-players-driving-arrests/
+
+**Former Prince Andrew Is Accused of Misconduct in Public Office**\
+`In Britain, the offense carries a maximum sentence of life in prison. No case has ever tested whether a member of Britain’s royal family could be considered a public officer.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrested-misconduct-epstein.html
+
+**The passing of the torch from Sidney Crosby to Connor McDavid has begun**\
+`If Sidney Crosby is ruled out for Friday's semifinal due to injury, expect McDavid to wear the captain's 'C' for Canada.`\
+https://nytimes.com/athletic/7057603/2026/02/19/connor-mcdavid-sidney-crosby-torch-passing-olympics/
+
+**The Bounce: Can the Thunder still dominate? And 15 more questions for stretch run**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7057641/2026/02/19/thunder-questions-nba-stretch-run-the-bounce/
+
 **Police may be investigating whether the former Prince Andrew shared confidential information with Epstein.**\
 `By Megan Specia`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former-prince-andrew-epstein-files
@@ -9,32 +37,4 @@ https://nytimes.com/2026/02/19/technology/apple-west-virginia-lawsuit-child-sexu
 **Detroit Tigers' new alternate jerseys for 2026 pay homage to team history**\
 `The Tigers were one of two MLB teams without true dedicate alternate uniforms. The other team: the Yankees.`\
 https://nytimes.com/athletic/7056787/2026/02/19/detroit-tigers-alternate-uniform-jerseys/
-
-**The response from the authorities to the Epstein files has been far more aggressive in Britain.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-response-from-the-authorities-to-the-epstein-files-has-been-far-more-aggressive-in-britain
-
-**Assault on Sudanese City Bore ‘Hallmarks of Genocide,’ U.N. Finds**\
-`A paramilitary group in Sudan’s civil war “acted with genocidal intent” in a monthslong siege of El Fasher, according to human rights experts.`\
-https://nytimes.com/2026/02/19/world/africa/sudan-un-el-fasher-rsf.html
-
-**A Festival Tried to Focus on Film. Politics Stole the Spotlight.**\
-`Reporters’ attempts to draw stars into debates about Gaza and other highly charged topics have threatened to overshadow the movies at the Berlin Film Festival.`\
-https://nytimes.com/2026/02/19/movies/berlin-film-festival-politics.html
-
-**The former Prince Andrew was stripped of his royal titles late last year.**\
-`By Mark Landler`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-andrew-was-stripped-of-his-royal-titles-late-last-year
-
-**Latest Updates: Rampant Speculation Complicates Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/19/us/nancy-guthrie-case-updates
-
-**U.S. Imports Grew in 2025, as Trump’s Tariffs Reshuffled Global Trade**\
-`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services. The trade deficit in goods was the highest on record.`\
-https://nytimes.com/2026/02/19/business/economy/imports-tariffs-trade-deficit.html
-
-**No Corrections: Feb. 19, 2026**\
-`No corrections appeared in print on Thursday, Feb. 19, 2026.`\
-https://nytimes.com/2026/02/19/pageoneplus/no-corrections-feb-19-2026.html
 
