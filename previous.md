@@ -1,3 +1,7 @@
+**Man Utd to provide free coach travel for fans for Bournemouth trip**\
+`The game on Friday, April 20 is the latest to have been shifted to a time that is potentially inconvenient for travelling fans.`\
+https://nytimes.com/athletic/7057137/2026/02/19/manchester-united-coach-travel-free-bournemouth/
+
 **Thirty years ago, the trial of another ousted leader gripped South Korea.**\
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/crosswords/spelling-bee-forum.html
 **After Avalanche Warnings, a Sierra Nevada Tragedy**\
 `Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
 https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
-
-**Word of the Day: concise**\
-`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
 

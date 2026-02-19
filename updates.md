@@ -1,3 +1,7 @@
+**Man Utd to provide free coach travel for fans for Bournemouth trip**\
+`The game on Friday, April 20 is the latest to have been shifted to a time that is potentially inconvenient for travelling fans.`\
+https://nytimes.com/athletic/7057137/2026/02/19/manchester-united-coach-travel-free-bournemouth/
+
 **Thirty years ago, the trial of another ousted leader gripped South Korea.**\
 `By Choe Sang-Hun`\
 https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
