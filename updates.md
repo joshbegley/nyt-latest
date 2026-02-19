@@ -1,3 +1,7 @@
+**Tom Edozie, the 19-year-old who dented Arsenal's Premier League title hopes**\
+`The teenager was making his first-team debut for Wolves and scored the equaliser against Premier League leaders Arsenal`\
+https://nytimes.com/athletic/7056455/2026/02/18/tom-edozie-arsenal-wolves-premier-league/
+
 **Shipwreck Found at the Bottom of Lake Michigan After Nearly 150 Years**\
 `The steamer Lac La Belle, which was carrying passengers and cargo, sank in a storm in 1872. Eight people died when one of its lifeboats capsized.`\
 https://nytimes.com/2026/02/18/us/shipwreck-lac-la-belle-discovered-lake-michigan.html
