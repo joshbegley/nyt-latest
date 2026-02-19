@@ -1,3 +1,7 @@
+**An Antarctic Voyage**\
+`My colleague just spent two months on a research icebreaker. It changed his perspective on the world in ways he didn’t expect.`\
+https://nytimes.com/2026/02/19/world/antarctica-andrew-arrest-iran-strikes-olympics.html
+
 **Powerful Winds and Wildfires Have the Southern Plains on Edge**\
 `A combustible mix of weather ingredients has sparked worries about new fires in Oklahoma and Texas.`\
 https://nytimes.com/2026/02/19/us/oklahoma-fire-texas.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7057520/2026/02/19/taylor-heise-us-hockey-gold-meda
 `Becky Hughes is back to answer our “Where to Eat” reader’s increasingly specific restaurant questions.`\
 https://nytimes.com/2026/02/19/dining/an-upper-east-sider-who-wants-it-louder-and-more-reader-questions.html
 
-**USA wins Olympic gold medal in women's hockey, defeating Canada in OT to cap dominant run**\
+**USA takes Olympic gold in women's hockey, defeating Canada in OT to cap dominant run**\
 `The Americans trailed for most of the game but survived in overtime to be crowned Olympic champions.`\
 https://nytimes.com/athletic/7058003/2026/02/19/usa-canada-olympics-womens-hockey-gold-medal/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/19/us/politics/abigail-spanberger-democrats-state-of
 **Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
 `As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
 https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
-
-**On final shot, U.S. women's curling scores biggest Olympic win in 24 years**\
-`Tabitha Peterson's near-perfect last shot saved the U.S. women's team and lifted them to the medal rounds for the first time since 2002.`\
-https://nytimes.com/athletic/7058020/2026/02/19/winter-olympics-curling-usa-tabitha-peterson-last-shot/
 
