@@ -1,3 +1,15 @@
+**The Worst Avalanches in Recent North American History**\
+`With at least eight people dead, Tuesday’s avalanche in California was one of the deadliest in the last five decades.`\
+https://nytimes.com/2026/02/18/weather/worst-avalanches-history.html
+
+**With his trusty camera by his side, The Kid goes international for the 2026 WBC**\
+`A player in the first WBC, Ken Griffey Jr. was announced as a Global Ambassador for the 2026 World Baseball Classic on Wednesday.`\
+https://nytimes.com/athletic/7056401/2026/02/18/world-baseball-classic-ken-griffey-jr-role/
+
+**As ICE Buys Up Warehouses, Even Some Trump Voters Say No**\
+`The agency is ramping up arrests, but local pushback is complicating efforts to expand detention capacity and prevent overcrowding.`\
+https://nytimes.com/2026/02/18/us/politics/ice-warehouses-trump-voters.html
+
 **Tom Edozie, the 19-year-old who dented Arsenal's Premier League title hopes**\
 `The teenager was making his first-team debut for Wolves and scored the equaliser against Premier League leaders Arsenal`\
 https://nytimes.com/athletic/7056455/2026/02/18/tom-edozie-arsenal-wolves-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/court-orders-new-jersey-immigrants.ht
 **How Cowboys ended up hiring Christian Parker as their new defensive coordinator**\
 `“Every impression we had with CP just left us wanting more,” Brian Schottenheimer said of Christian Parker.`\
 https://nytimes.com/athletic/7056013/2026/02/18/cowboys-christian-parker-dc-scheme/
-
-**Company That Guided Sierra Ski Trip Specialized in High-End Adventures**\
-`Blackbird Mountain Guides, which has locations around the world, also taught mountain safety classes.`\
-https://nytimes.com/2026/02/18/us/blackbird-guides-tahoe-avalanche.html
-
-**Bald Eagle, Marooned on Ice Chunk in Hudson, Is Rescued by Police**\
-`The authorities took the injured bird to a rehabilitation center in New Jersey, which is working to stabilize it to allow for further testing and treatment.`\
-https://nytimes.com/2026/02/18/us/bald-eagle-rescue-nyc-hudson-river.html
-
-**Officers Rescue Injured Bald Eagle on the Hudson River**\
-`New York City police officers spotted a bald eagle in distress during a patrol on Tuesday morning along the Hudson River.`\
-https://nytimes.com/video/us/100000010721046/officers-rescue-injured-bald-eagle-on-the-hudson-river.html
 
