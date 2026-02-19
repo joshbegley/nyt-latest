@@ -1,40 +1,40 @@
-**Quote of the Day: Veterans Who Protest ICE’s Operations View Crackdown Differently**\
-`Quotation of the Day for Thursday, February 18, 2026.`\
-https://nytimes.com/2026/02/18/pageoneplus/quote-of-the-day-veterans-who-protest-ices-operations-view-crackdown-differently.html
+**Pereira, the Fenerbahce years: Going AWOL, Van Persie and Ozil troubles, and an unlikely return**\
+`Nottingham Forest's latest head coach begins life at his new club with a game against the Turkish side he's had two spells in charge of`\
+https://nytimes.com/athletic/7054956/2026/02/19/vitor-pereira-fenerbahce-years/
 
-**Multiple Victims Had Ties to Ski Resort School Near the Avalanche Site**\
-`Sugar Bowl Academy, a ski-focused private school in the Sierra Nevada, said that multiple people on the fatal trek were connected to its program.`\
-https://nytimes.com/2026/02/18/us/tahoe-avalanche-skiers-sugar-bowl-school.html
+**Yoon’s jail cell is a world away from his presidential mansion.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons-jail-cell-is-a-world-away-from-his-presidential-mansion
 
-**Trump Order Aims to Boost Weedkiller Targeted in Health Lawsuits**\
-`An executive order aimed at ramping up production of glyphosate set off alarms among supporters of Health Secretary Robert F. Kennedy Jr.`\
-https://nytimes.com/2026/02/18/us/politics/trump-boost-weedkiller.html
+**Here’s the latest.**\
+`After months of political turmoil over former President Yoon Suk Yeol’s imposition of martial law, his trial harkens back to the chaotic days after South Koreans ousted a junta and enshrined democracy.`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/heres-the-latest
 
-**Acuff's 49 points not enough as No. 25 Alabama beats No. 20 Arkansas in double OT**\
-`Acuff is second player in 15 seasons to log 49 points, 5 rebounds and 5 assists in a Division I game.`\
-https://nytimes.com/athletic/7056794/2026/02/18/arkansas-alabama-darius-acuff-points-overtime/
+**Live Updates: South Korean Ex-Leader Who Declared Martial Law Faces Insurrection Verdict**\
+`Former President Yoon Suk Yeol, who was impeached after he briefly imposed martial law in 2024, faces a potential death sentence in the country’s ​biggest criminal trial in decades.`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president
 
-**Trial for Guardians pitchers charged in alleged pitch-rigging scheme could move to October**\
-`Luis Ortiz’s lawyers asked for the trial to be shifted to a later date, while Emmanuel Clase has asked for a speedy trial. `\
-https://nytimes.com/athletic/7056872/2026/02/18/cleveland-guardians-emmanuel-clase-trial-change-october/
+**Money Talks as India Searches for Its Place in Global A.I.**\
+`Narendra Modi, the prime minister, convened foreign leaders, the richest Silicon Valley companies and thousands of Indian entrepreneurs for a week of deal making.`\
+https://nytimes.com/2026/02/19/business/india-ai-impact-summit.html
 
-**'It's not OK': Phallon Tullis-Joyce condemns alleged racial abuse against Vinicius Jr.**\
-`Tullis-Joyce brought up her personal identity to explain her perspective and spoke about her campaign for diversity, equity and inclusion.`\
-https://nytimes.com/athletic/7056524/2026/02/18/tullis-joyce-manchester-united-vinicius-jr-real-madrid/
+**These Olympians Excel on Two Types of Tracks**\
+`Among elite athletes exists an even more exclusive club: people who compete at both the Summer and Winter Games. Many are sprinters who turn to bobsled.`\
+https://nytimes.com/2026/02/19/world/olympics/these-olympians-excel-on-two-types-of-tracks.html
 
-**Neither’s Partner**\
-`Speak of the devil! It’s John Ewbank.`\
-https://nytimes.com/2026/02/18/crosswords/daily-puzzle-2026-02-19.html
+**Policy Flip-Flops Hurt the British Leader. Then Came a New Political Threat.**\
+`Already weakened by “U-turns” on his agenda, Prime Minister Keir Starmer faced calls to step down over appointing a close friend of Jeffrey Epstein as U.S. ambassador.`\
+https://nytimes.com/2026/02/19/world/europe/britain-keir-starmer-mandelson-epstein.html
 
-**2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
-`Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals.`\
-https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
+**Russia Celebrated Him. Now He’s Accused of Having Troops Shoot Themselves.**\
+`A lieutenant colonel is on trial after being accused of skimming payments for battlefield injuries. He denies the specifics of Russia’s accusation but acknowledges engaging in a payouts scheme.`\
+https://nytimes.com/2026/02/19/world/europe/russia-military-corruption.html
 
-**Justice Dept. Lawyer Is Found in Contempt by Federal Judge**\
-`The ruling out of Minnesota marks a new level of judicial concern about the Trump administration’s lack of compliance with judges’ orders in immigration cases.`\
-https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt.html
+**Connections: Sports Edition Coach: Hints and answers for Feb. 19, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7056795/2026/02/19/connections-sports-edition-hints-answers-feb-19-2026/
 
-**Police Chief Hired to Help Lead N.Y.C. Hospital Patrols Abruptly Quits**\
-`The assistant chief, Jamiel Altaheri, resigned almost immediately after starting the job, after The New York Times asked about misconduct allegations while he was a police chief in Michigan.`\
-https://nytimes.com/2026/02/18/nyregion/jamiel-altaheri-hamtramck-nyc-hospitals.html
+**What to Know About the Trial of South Korea’s Ousted Leader**\
+`Judges will rule on Thursday in the insurrection trial of former President Yoon Suk Yeol. He could get the death penalty for his short-lived imposition of martial law in 2024.`\
+https://nytimes.com/2026/02/19/world/asia/yoon-sentencing-south-korea.html
 
