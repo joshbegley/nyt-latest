@@ -1,3 +1,7 @@
+**Kansas' Darryn Peterson misses final 17 minutes with cramping; 'a concern,' Bill Self says**\
+`"I thought we were past it, but obviously we're not," Self told reporters.`\
+https://nytimes.com/athletic/7057411/2026/02/19/darryn-peterson-cramping-kansas-basketball/
+
 **What I'm hearing about the Clippers investigation, Giannis, LeBron and more**\
 `There has been a significant upswing in league-wide speculation that the NBA’s hammer is likely to fall on the LA Clippers.`\
 https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippers-lebron/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/realestate/housing-market-near-nyc.html
 **After college coaches were fired for cause, which ones returned to the sidelines?**\
 `What becomes of a coach once the harshest form of termination is imposed? History offers no uniform outcome.`\
 https://nytimes.com/athletic/7055150/2026/02/19/college-coaches-fired-cause-basketball-football/
-
-**Jo Adell, Lawrence Butler and the best of the rest: Fantasy baseball outfield rundown, Part 2**\
-`Eno Sarris and Derek VanRiper continue their outfield preview ahead of the 2026 fantasy baseball season. `\
-https://nytimes.com/athletic/7041684/2026/02/19/fantasy-baseball-2026-outfield-preview-part-two/
 
