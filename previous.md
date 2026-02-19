@@ -1,3 +1,7 @@
+**Assault on Sudanese City Bore ‘Hallmarks of Genocide,’ U.N. Finds**\
+`A paramilitary group in Sudan’s civil war “acted with genocidal intent” in a monthslong siege of El Fasher, according to human rights experts.`\
+https://nytimes.com/2026/02/19/world/africa/sudan-un-el-fasher-rsf.html
+
 **A Festival Tried to Focus on Film. Politics Stole the Spotlight.**\
 `Reporters’ attempts to draw stars into debates about Gaza and other highly charged topics have threatened to overshadow the movies at the Berlin Film Festival.`\
 https://nytimes.com/2026/02/19/movies/berlin-film-festival-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056928/2026/02/19/cooper-flagg-nba-debut-jersey-sa
 **Kansas' Darryn Peterson misses final 17 minutes with cramping; 'a concern,' Bill Self says**\
 `"I thought we were past it, but obviously we're not," Self told reporters.`\
 https://nytimes.com/athletic/7057411/2026/02/19/darryn-peterson-cramping-kansas-basketball/
-
-**What I'm hearing about the Clippers investigation, Giannis, LeBron and more**\
-`There has been a significant upswing in league-wide speculation that the NBA’s hammer is likely to fall on the LA Clippers.`\
-https://nytimes.com/athletic/7057133/2026/02/19/nba-intel-tanking-giannis-clippers-lebron/
 
