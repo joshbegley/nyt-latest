@@ -1,3 +1,11 @@
+**Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
+`As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
+https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
+
+**On final shot, U.S. women's curling scores biggest Olympic win in 24 years**\
+`Tabitha Peterson's near-perfect last shot saved the U.S. women's team and lifted them to the medal rounds for the first time since 2002.`\
+https://nytimes.com/athletic/7058020/2026/02/19/winter-olympics-curling-usa-tabitha-peterson-last-shot/
+
 **King Charles Attends a Fashion Event**\
 `His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
 https://nytimes.com/2026/02/19/world/europe/king-charles-attends-a-fashion-event.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7058314/2026/02/19/nuggets-vs-clippers-stream-how-t
 **How to watch Celtics vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7058312/2026/02/19/celtics-vs-warriors-stream-how-to-watch-feb-19/
-
-**How to watch Raptors vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058310/2026/02/19/raptors-vs-bulls-stream-how-to-watch-feb-19/
-
-**How to watch South Carolina vs. Alabama women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058308/2026/02/19/south-carolina-vs-alabama-stream-how-to-watch-feb-19/
 
