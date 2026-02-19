@@ -1,3 +1,7 @@
+**Trial for Guardians pitchers charged in alleged pitch-rigging scheme could move to October**\
+`Luis Ortiz’s lawyers asked for the trial to be shifted to a later date, while Emmanuel Clase has asked for a speedy trial. `\
+https://nytimes.com/athletic/7056872/2026/02/18/cleveland-guardians-emmanuel-clase-trial-change-october/
+
 **'It's not OK': Phallon Tullis-Joyce condemns alleged racial abuse against Vinicius Jr.**\
 `Tullis-Joyce brought up her personal identity to explain her perspective and spoke about her campaign for diversity, equity and inclusion.`\
 https://nytimes.com/athletic/7056524/2026/02/18/tullis-joyce-manchester-united-vinicius-jr-real-madrid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056164/2026/02/18/f1-safety-car-abu-dhabi-sale/
 **Who is Bruce Meyer? The MLBPA's interim head is known for his blunt negotiating style**\
 `Since joining the MLBPA eight years ago, Meyer has developed a reputation for unwavering conviction and limited interpersonal charisma.`\
 https://nytimes.com/athletic/7056069/2026/02/18/bruce-meyer-mlbpa-interim-executive-director/
-
-**Texas Congressman’s Aide Told Co-Worker of Affair Before Killing Herself**\
-`The co-worker, who no longer works for Representative Tony Gonzales, shared screenshots of the text exchange with The New York Times. Mr. Gonzales accused his Republican primary challenger of being behind the revelation.`\
-https://nytimes.com/2026/02/18/us/politics/texas-gonzales-suicide-affair.html
 

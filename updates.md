@@ -1,3 +1,7 @@
+**Trial for Guardians pitchers charged in alleged pitch-rigging scheme could move to October**\
+`Luis Ortiz’s lawyers asked for the trial to be shifted to a later date, while Emmanuel Clase has asked for a speedy trial. `\
+https://nytimes.com/athletic/7056872/2026/02/18/cleveland-guardians-emmanuel-clase-trial-change-october/
+
 **'It's not OK': Phallon Tullis-Joyce condemns alleged racial abuse against Vinicius Jr.**\
 `Tullis-Joyce brought up her personal identity to explain her perspective and spoke about her campaign for diversity, equity and inclusion.`\
 https://nytimes.com/athletic/7056524/2026/02/18/tullis-joyce-manchester-united-vinicius-jr-real-madrid/

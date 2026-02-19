@@ -1,3 +1,7 @@
+**Acuff's 49 points not enough as No. 25 Alabama beats No. 20 Arkansas in double OT**\
+`Acuff is second player in 15 seasons to log 49 points, 5 rebounds and 5 assists in a Division I game.`\
+https://nytimes.com/athletic/7056794/2026/02/18/arkansas-alabama-darius-acuff-points-overtime/
+
 **Trial for Guardians pitchers charged in alleged pitch-rigging scheme could move to October**\
 `Luis Ortiz’s lawyers asked for the trial to be shifted to a later date, while Emmanuel Clase has asked for a speedy trial. `\
 https://nytimes.com/athletic/7056872/2026/02/18/cleveland-guardians-emmanuel-clase-trial-change-october/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
 **Controversial 2021 Abu Dhabi GP safety car for sale**\
 `The Aston Martin Vantage used during the final race of the 2021 season becomes a rare F1 safety car to be put up for public sale.`\
 https://nytimes.com/athletic/7056164/2026/02/18/f1-safety-car-abu-dhabi-sale/
-
-**Who is Bruce Meyer? The MLBPA's interim head is known for his blunt negotiating style**\
-`Since joining the MLBPA eight years ago, Meyer has developed a reputation for unwavering conviction and limited interpersonal charisma.`\
-https://nytimes.com/athletic/7056069/2026/02/18/bruce-meyer-mlbpa-interim-executive-director/
 
