@@ -1,3 +1,19 @@
+**Austrian Man Found Guilty in Girlfriend’s Death on Mountain Hike**\
+`Thomas Plamberger was given a suspended prison sentence and fined in a case that tested the limits of personal responsibility in mountaineering.`\
+https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mountain-hike-guilty.html
+
+**The Artist Documenting Women’s Lives, One Encounter at a Time**\
+`For a decade, Clémence Polès Farhang asked women on city streets if she could take their picture. This week, the photographs had their first exhibition.`\
+https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
+
+**Team USA's Laila Edwards becomes first Black woman to win gold in women's hockey**\
+`Eight days earlier, Edwards made history as the first Black woman to play for Team USA at the Olympic Games. `\
+https://nytimes.com/athletic/7058478/2026/02/19/laila-edwards-usa-hockey-history-gold-medal/
+
+**Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
+`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer. Kaori Sakamoto and Ami Nakai, both of Japan, won silver and bronze.`\
+https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
+
 **Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
 `Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer.`\
 https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/

@@ -1,5 +1,17 @@
+**Austrian Man Found Guilty in Girlfriend’s Death on Mountain Hike**\
+`Thomas Plamberger was given a suspended prison sentence and fined in a case that tested the limits of personal responsibility in mountaineering.`\
+https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mountain-hike-guilty.html
+
+**The Artist Documenting Women’s Lives, One Encounter at a Time**\
+`For a decade, Clémence Polès Farhang asked women on city streets if she could take their picture. This week, the photographs had their first exhibition.`\
+https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
+
+**Team USA's Laila Edwards becomes first Black woman to win gold in women's hockey**\
+`Eight days earlier, Edwards made history as the first Black woman to play for Team USA at the Olympic Games. `\
+https://nytimes.com/athletic/7058478/2026/02/19/laila-edwards-usa-hockey-history-gold-medal/
+
 **Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
-`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer.`\
+`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer. Kaori Sakamoto and Ami Nakai, both of Japan, won silver and bronze.`\
 https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
 
 **Complaint About Andrew’s Conduct Came From an Anti-Monarchy Group**\
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010708359/is-the-world-underestimating-i
 **How much snow is too much at a Winter Olympics? It depends ...**\
 `Heavy snowfall in northern Italy led to the disruption of the Olympic schedule Thursday.`\
 https://nytimes.com/athletic/7058112/2026/02/19/winter-olympics-snow-disruption-events-postponed/
-
-**Labor Secretary’s Husband Barred From the Department After Sexual Assault Reports**\
-`At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
-https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html
-
-**Warming Climate Can Increase Avalanche Risk, Studies Show**\
-`Research has pointed to the dangers of heavier and wetter snowfall, even as the number of snowy days decreases overall in California’s Sierra Nevada.`\
-https://nytimes.com/2026/02/19/climate/avalanche-risk-global-warming.html
-
-**Fantasy basketball hot topics of the week: Managing matchups and injuries**\
-`With few remaining weeks left in the fantasy basketball season, Stan Son guides you through the key injuries and matchups.`\
-https://nytimes.com/athletic/7058085/2026/02/19/fantasy-basketball-hot-topics-matchups-injuries-stretch-run/
 
