@@ -1,3 +1,15 @@
+**A Festival Tried to Focus on Film. Politics Stole the Spotlight.**\
+`Reporters’ attempts to draw stars into debates about Gaza and other highly charged topics have threatened to overshadow the movies at the Berlin Film Festival.`\
+https://nytimes.com/2026/02/19/movies/berlin-film-festival-politics.html
+
+**U.S. Imports Grew in 2025, as Trump’s Tariffs Reshuffled Global Trade**\
+`Data released Thursday by the Census Bureau showed the overall trade deficit with the world narrowed, the result of an expanding trade surplus in services. The trade deficit in goods was the highest on record.`\
+https://nytimes.com/2026/02/19/business/economy/imports-tariffs-trade-deficit.html
+
+**Cooper Flagg's debut jersey sells for $1 million**\
+`The sales sets a new record for any Flagg collectible. `\
+https://nytimes.com/athletic/7056928/2026/02/19/cooper-flagg-nba-debut-jersey-sale/
+
 **The former Prince Andrew was stripped of his royal titles late last year.**\
 `By Mark Landler`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-andrew-was-stripped-of-his-royal-titles-late-last-year
