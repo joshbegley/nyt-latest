@@ -1,3 +1,11 @@
+**The old relationships at the heart of Notre Dame's new-look defensive line**\
+`Francis Brewu and Charlie Partridge have had a relationship for years, but this will be the first time they've been a part of the same team.`\
+https://nytimes.com/athletic/7057464/2026/02/19/notre-dame-charlie-partridge-francis-brewu/
+
+**Who is Andrew Mountbatten-Windsor?**\
+`The brother of King Charles III was a popular member of the royal family and adored by his mother, Queen Elizabeth II. He fell from grace because of his friendship with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-mountbatten-windsor-epstein.html
+
 **New York to Back Away From Robotaxi Pilot Programs Upstate**\
 `Gov. Kathy Hochul had proposed expanding the programs beyond New York City, but they do not have enough support, her office said.`\
 https://nytimes.com/2026/02/19/nyregion/new-york-robotaxi-upstate-hochul.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7057630/2026/02/19/georga-football-players-driving-
 **Former Prince Andrew Is Accused of Misconduct in Public Office**\
 `In Britain, the offense carries a maximum sentence of life in prison. No case has ever tested whether a member of Britain’s royal family could be considered a public officer.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrested-misconduct-epstein.html
-
-**The passing of the torch from Sidney Crosby to Connor McDavid has begun**\
-`If Sidney Crosby is ruled out for Friday's semifinal due to injury, expect McDavid to wear the captain's 'C' for Canada.`\
-https://nytimes.com/athletic/7057603/2026/02/19/connor-mcdavid-sidney-crosby-torch-passing-olympics/
-
-**The Bounce: Can the Thunder still dominate? And 15 more questions for stretch run**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7057641/2026/02/19/thunder-questions-nba-stretch-run-the-bounce/
 

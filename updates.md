@@ -1,3 +1,11 @@
+**New York to Back Away From Robotaxi Pilot Programs Upstate**\
+`Gov. Kathy Hochul had proposed expanding the programs beyond New York City, but they do not have enough support, her office said.`\
+https://nytimes.com/2026/02/19/nyregion/new-york-robotaxi-upstate-hochul.html
+
+**The Windup: Tony Clark case takes a turn**\
+`Welcome to The Windup, The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/7057704/2026/02/19/tony-clark-bruce-meyers-the-windup/
+
 **'We've got something going here': Blue Jackets believe pending UFAs want to stay**\
 `Columbus is figuring out how to handle pending UFAs Charlie Coyle, Boone Jenner, Mason Marchment and Erik Gudbranson`\
 https://nytimes.com/athletic/7057420/2026/02/19/blue-jackets-ufas-coyle-marchment/
