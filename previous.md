@@ -1,3 +1,11 @@
+**Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
+`Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
+https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
+
+**College basketball observations: Alabama-Arkansas delivers, Creighton stuns UConn and Peterson's injury saga**\
+`Plus, bubble winners and losers of the night, BYU's ceiling is shrinking and Vanderbilt's comeback falls just shot. `\
+https://nytimes.com/athletic/7057054/2026/02/19/arkansas-alabama-kansas-uconn-darryn-peterson/
+
 **Walmart Expects Growth Streak to Continue as New Chief Takes Over**\
 `Shoppers are turning to Walmart to stretch their dollars, but an uncertain economy and trade tensions will test the retailer’s new executive team.`\
 https://nytimes.com/2026/02/19/business/walmart-earnings-profit-ceo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7051419/2026/02/19/cleveland-guardians-daniel-espin
 **Draft 'The Kyles': Tucker, Schwarber are early-round fantasy baseball gold**\
 `John Laghezza provides a blueprint for drafting in the first five rounds ahead of the 2026 fantasy baseball season. `\
 https://nytimes.com/athletic/7052845/2026/02/19/fantasy-baseball-first-five-rounds-draft/
-
-**Several members of the British elite have been named in the Epstein files.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/epstein-files-prince-andrew-uk-elite
-
-**Olympic men's hockey semifinals: Breaking down Canada vs. Finland, USA vs. Slovakia**\
-`The men's hockey semifinals are set. Here's a look at both of Friday's matchups, with Canada facing Finland and the U.S. facing Slovakia.`\
-https://nytimes.com/athletic/7057266/2026/02/19/olympics-mens-hockey-semifinals-canada-usa-matchups/
 

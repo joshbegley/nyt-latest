@@ -1,3 +1,11 @@
+**Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
+`Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
+https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
+
+**College basketball observations: Alabama-Arkansas delivers, Creighton stuns UConn and Peterson's injury saga**\
+`Plus, bubble winners and losers of the night, BYU's ceiling is shrinking and Vanderbilt's comeback falls just shot. `\
+https://nytimes.com/athletic/7057054/2026/02/19/arkansas-alabama-kansas-uconn-darryn-peterson/
+
 **Walmart Expects Growth Streak to Continue as New Chief Takes Over**\
 `Shoppers are turning to Walmart to stretch their dollars, but an uncertain economy and trade tensions will test the retailer’s new executive team.`\
 https://nytimes.com/2026/02/19/business/walmart-earnings-profit-ceo.html
