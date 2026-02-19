@@ -1,3 +1,7 @@
+**Word of the Day: concise**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
+
 **Stephen Colbert Sizes Up R.F.K. Jr.’s Workout With Kid Rock**\
 `“The Late Show” host called the 90-second video of the two working up a sweat together “pure cinema.”`\
 https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-workout.html
