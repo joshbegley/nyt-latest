@@ -1,3 +1,11 @@
+**The old relationships at the heart of Notre Dame's new-look defensive line**\
+`Francis Brewu and Charlie Partridge have had a relationship for years, but this will be the first time they've been a part of the same team.`\
+https://nytimes.com/athletic/7057464/2026/02/19/notre-dame-charlie-partridge-francis-brewu/
+
+**Who is Andrew Mountbatten-Windsor?**\
+`The brother of King Charles III was a popular member of the royal family and adored by his mother, Queen Elizabeth II. He fell from grace because of his friendship with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-mountbatten-windsor-epstein.html
+
 **New York to Back Away From Robotaxi Pilot Programs Upstate**\
 `Gov. Kathy Hochul had proposed expanding the programs beyond New York City, but they do not have enough support, her office said.`\
 https://nytimes.com/2026/02/19/nyregion/new-york-robotaxi-upstate-hochul.html
