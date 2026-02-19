@@ -1,3 +1,11 @@
+**Who is Bruce Meyer? The MLBPA's interim head is known for his blunt negotiating style**\
+`Since joining the MLBPA eight years ago, Meyer has developed a reputation for unwavering conviction and limited interpersonal charisma.`\
+https://nytimes.com/athletic/7056069/2026/02/18/bruce-meyer-mlbpa-interim-executive-director/
+
+**Texas Congressman’s Aide Told Co-Worker of Affair Before Killing Herself**\
+`The co-worker, who no longer works for Representative Tony Gonzales, shared screenshots of the text exchange with The New York Times. Mr. Gonzales accused his Republican primary challenger of being behind the revelation.`\
+https://nytimes.com/2026/02/18/us/politics/texas-gonzales-suicide-affair.html
+
 **Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porzingis' debut**\
 `Kerr said Curry did not participate in Wednesday's practice and there is a chance that Curry may need another MRI.`\
 https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/us-military-iran.html
 **Sweden's biggest regret after losing in Olympic quarterfinals? Victor Hedman sitting out**\
 `"We knew there was no place he'd rather be than on the ice to compete with us," said captain Gabriel Landeskog.`\
 https://nytimes.com/athletic/7056528/2026/02/18/sweden-olympics-mens-hockey-victor-hedman-quarterfinals/
-
-**The Worst Avalanches in Recent North American History**\
-`With at least eight people dead, Tuesday’s avalanche in California was one of the deadliest in the last five decades.`\
-https://nytimes.com/2026/02/18/weather/worst-avalanches-history.html
-
-**With his trusty camera by his side, The Kid goes international for the 2026 WBC**\
-`A player in the first WBC, Ken Griffey Jr. was announced as a Global Ambassador for the 2026 World Baseball Classic on Wednesday.`\
-https://nytimes.com/athletic/7056401/2026/02/18/world-baseball-classic-ken-griffey-jr-role/
 

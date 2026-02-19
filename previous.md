@@ -1,3 +1,7 @@
+**Steph Curry to miss sixth straight game, but Warriors hope for Kristaps Porzingis' debut**\
+`Kerr said Curry did not participate in Wednesday's practice and there is a chance that Curry may need another MRI.`\
+https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-warriors-celtics/
+
 **What to Know About the Sierra Nevada Avalanche**\
 `At least eight skiers were killed, California authorities said, after heavy snow pummeled the region.`\
 https://nytimes.com/2026/02/18/us/avalanche-lake-tahoe.html
@@ -10,7 +14,7 @@ https://nytimes.com/2026/02/18/world/middleeast/security-council-israel-gaza-boa
 `Mayor Zohran Mamdani has now proposed two options that called for raising taxes. Here’s a look at each proposal and the rationale and chances for each.`\
 https://nytimes.com/2026/02/18/nyregion/mamdani-millionaire-tax-property.html
 
-**MLBPA names Bruce Meyer executive director in unanimous vote: Source**\
+**MLBPA names Bruce Meyer executive director in unanimous vote**\
 `He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
 https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/18/weather/worst-avalanches-history.html
 **With his trusty camera by his side, The Kid goes international for the 2026 WBC**\
 `A player in the first WBC, Ken Griffey Jr. was announced as a Global Ambassador for the 2026 World Baseball Classic on Wednesday.`\
 https://nytimes.com/athletic/7056401/2026/02/18/world-baseball-classic-ken-griffey-jr-role/
-
-**As ICE Buys Up Warehouses, Even Some Trump Voters Say No**\
-`The agency is ramping up arrests, but local pushback is complicating efforts to expand detention capacity and prevent overcrowding.`\
-https://nytimes.com/2026/02/18/us/politics/ice-warehouses-trump-voters.html
 
