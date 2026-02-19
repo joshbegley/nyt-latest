@@ -1,3 +1,19 @@
+**How to handle your top pick in 2026 fantasy baseball drafts**\
+`Owen Poindexter takes a deep dive into the most important pick of your fantasy baseball draft — your first one.`\
+https://nytimes.com/athletic/7056178/2026/02/19/fantasy-baseball-round-one-draft-pick-analysis/
+
+**Bears promote Jeff King to assistant general manager**\
+`King, 46, was the Bears’ obvious choice to succeed Ian Cunningham, having spent more than a decade with the franchise.`\
+https://nytimes.com/athletic/7057854/2026/02/19/bears-jeff-king-assistant-general-manager/
+
+**Man Utd, Atletico and another Champions League kit mix-up**\
+`Match officials decided hours before kick-off that the orange goalkeeper kit the Spanish side brought would clash with United's red shirt.`\
+https://nytimes.com/athletic/7057789/2026/02/19/manchester-united-atletico-uwcl-kit/
+
+**The former prince gave a disastrous BBC interview in 2019.**\
+`T`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-former-prince-gave-a-disastrous-bbc-interview-in-2019
+
 **A Floating Sauna With Mountain Views**\
 `Plus: tree houses on a Danish island, a New York gallery that highlights South Asian design and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/19/t-magazine/sauna-new-zealand.html
