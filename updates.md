@@ -1,3 +1,7 @@
+**The Three Conflicts Witkoff and Kushner Are Trying to Solve This Week**\
+`Iran, Ukraine and Gaza are in play as the Trump envoys conduct talks on all of them. But progress in each conflict is scant.`\
+https://nytimes.com/2026/02/19/world/europe/witkoff-kushner-iran-ukraine-israel.html
+
 **Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
 `Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
 https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/

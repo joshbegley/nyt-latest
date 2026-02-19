@@ -1,3 +1,7 @@
+**The Three Conflicts Witkoff and Kushner Are Trying to Solve This Week**\
+`Iran, Ukraine and Gaza are in play as the Trump envoys conduct talks on all of them. But progress in each conflict is scant.`\
+https://nytimes.com/2026/02/19/world/europe/witkoff-kushner-iran-ukraine-israel.html
+
 **Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
 `Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
 https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055189/2026/02/19/fantasy-premier-league-erling-ha
 **After 4 years of physical and emotional pain, prospect Daniel Espino is ready to debut**\
 `Daniel Espino went from a can’t-miss prospect piling up strikeouts to a lost soul mired in the Arizona desert. `\
 https://nytimes.com/athletic/7051419/2026/02/19/cleveland-guardians-daniel-espino-comeback-journey/
-
-**Draft 'The Kyles': Tucker, Schwarber are early-round fantasy baseball gold**\
-`John Laghezza provides a blueprint for drafting in the first five rounds ahead of the 2026 fantasy baseball season. `\
-https://nytimes.com/athletic/7052845/2026/02/19/fantasy-baseball-first-five-rounds-draft/
 
