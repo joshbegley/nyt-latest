@@ -1,3 +1,7 @@
+**Besides Yoon, 5 other former officials get long prison terms.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/besides-yoon-5-other-former-officials-get-long-prison-terms
+
 **Meet Boston's (other) Ray Allen: 'He can go anywhere. He's not afraid of the world'**\
 `What's it like going to school and playing basketball in Boston when your name is Ray Allen?`\
 https://nytimes.com/athletic/7044064/2026/02/19/boston-celtics-ray-allen-emerson-college/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055243/2026/02/19/samuel-hlavaj-slovakia-olympic-r
 **Jaylen Brown, Draymond Green and what the NBA gets wrong about ‘next man up’**\
 `Joe Boylan, who worked in the NBA for a decade, believes the environment changes before the player does. He's seen that up close.`\
 https://nytimes.com/athletic/7054844/2026/02/19/jaylen-brown-draymon-green-leadership-next-man-up/
-
-**Live Updates: U.K. Police Arrest Former Prince Andrew Over Epstein Ties, BBC Reports**\
-`The British police on Thursday arrested Andrew Mountbatten-Windsor on suspicion of criminal activity linked to the Epstein files.`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein
 
