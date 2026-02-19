@@ -1,3 +1,11 @@
+**What would actually happen if Tottenham were relegated?**\
+`What could be the financial impact? Would all players leave? How far would it set the club back? `\
+https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegation/
+
+**How Szoboszlai became 'one of the best players in the world'**\
+`Mohamed Salah knows talent when he sees it and it is hard to disagree with his assessment of Liverpool's all-action midfielder`\
+https://nytimes.com/athletic/7054674/2026/02/19/dominik-szoboszlai-liverpool-best-player-world/
+
 **Pereira, the Fenerbahce years: Going AWOL, Van Persie and Ozil troubles, and an unlikely return**\
 `Nottingham Forest's latest head coach begins life at his new club with a game against the Turkish side he's had two spells in charge of`\
 https://nytimes.com/athletic/7054956/2026/02/19/vitor-pereira-fenerbahce-years/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/world/europe/britain-keir-starmer-mandelson-epste
 **Russia Celebrated Him. Now He’s Accused of Having Troops Shoot Themselves.**\
 `A lieutenant colonel is on trial after being accused of skimming payments for battlefield injuries. He denies the specifics of Russia’s accusation but acknowledges engaging in a payouts scheme.`\
 https://nytimes.com/2026/02/19/world/europe/russia-military-corruption.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 19, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7056795/2026/02/19/connections-sports-edition-hints-answers-feb-19-2026/
-
-**What to Know About the Trial of South Korea’s Ousted Leader**\
-`Judges will rule on Thursday in the insurrection trial of former President Yoon Suk Yeol. He could get the death penalty for his short-lived imposition of martial law in 2024.`\
-https://nytimes.com/2026/02/19/world/asia/yoon-sentencing-south-korea.html
 

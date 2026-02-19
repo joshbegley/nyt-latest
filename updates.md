@@ -1,3 +1,11 @@
+**What would actually happen if Tottenham were relegated?**\
+`What could be the financial impact? Would all players leave? How far would it set the club back? `\
+https://nytimes.com/athletic/7054587/2026/02/19/tottenham-premier-league-relegation/
+
+**How Szoboszlai became 'one of the best players in the world'**\
+`Mohamed Salah knows talent when he sees it and it is hard to disagree with his assessment of Liverpool's all-action midfielder`\
+https://nytimes.com/athletic/7054674/2026/02/19/dominik-szoboszlai-liverpool-best-player-world/
+
 **Pereira, the Fenerbahce years: Going AWOL, Van Persie and Ozil troubles, and an unlikely return**\
 `Nottingham Forest's latest head coach begins life at his new club with a game against the Turkish side he's had two spells in charge of`\
 https://nytimes.com/athletic/7054956/2026/02/19/vitor-pereira-fenerbahce-years/
