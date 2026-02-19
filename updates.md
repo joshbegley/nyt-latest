@@ -1,3 +1,7 @@
+**Daniil Medvedev, Stefanos Tsitsipas and how a tennis rivalry full of needle grew weary**\
+`Two players who have delivered some memorable on-court clashes have slowly become emblems of a sport passing them by.`\
+https://nytimes.com/athletic/7055123/2026/02/19/tennis-rivalry-medvedev-tsitsipas-history/
+
 **Phillies roster projection 1.0: Filling out the bullpen and bench**\
 `In the estimation of club officials, the Phillies have four undecided roster spots. Here's our initial projection — and what to watch.`\
 https://nytimes.com/athletic/7055719/2026/02/19/phillies-roster-projection-opening-day-2026/
