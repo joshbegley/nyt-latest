@@ -1,3 +1,7 @@
+**2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
+`Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals. `\
+https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
+
 **Justice Dept. Lawyer Is Found in Contempt by Federal Judge**\
 `The ruling out of Minnesota marks a new level of judicial concern about the Trump administration’s lack of compliance with judges’ orders in immigration cases.`\
 https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056633/2026/02/18/steph-curry-out-runners-knee-war
 **What to Know About the Sierra Nevada Avalanche**\
 `At least eight skiers were killed, California authorities said, after heavy snow pummeled the region.`\
 https://nytimes.com/2026/02/18/us/avalanche-lake-tahoe.html
-
-**U.N. Security Council Meets on Gaza, a Day Before Board of Peace Gathering**\
-`Amid criticism over the board’s structure and broad mandate, the U.S. ambassador to the U.N. defended the board, saying “a new way” was needed to address the situation in Gaza.`\
-https://nytimes.com/2026/02/18/world/middleeast/security-council-israel-gaza-board-peace.html
 
