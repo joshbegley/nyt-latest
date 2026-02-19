@@ -1,3 +1,23 @@
+**José van Dam, Suave and Riveting Opera Star, Dies at 85**\
+`One of the most esteemed singers of his era, he had a wide repertoire that included Mozart, Wagner and the title role in Messiaen’s epic “St. François d’Assise.”`\
+https://nytimes.com/2026/02/19/arts/music/jose-van-dam-dead.html
+
+**A Rare Glimpse of a Sleeper Shark in Antarctic Waters**\
+`Researchers filmed a 10-to-13-foot sleeper shark off the South Shetland Islands, in what may be the first recording of the species that far south.`\
+https://nytimes.com/2026/02/19/world/australia/sleeper-shark-antarctica-sighting.html
+
+**Chance of Bears moving to Indiana takes 'a meaningful step forward'**\
+`The passage of Indiana Senate Bill 27 out of committee adds to the possibility of a new stadium near the Wolf Lake area in Hammond, Indiana.`\
+https://nytimes.com/athletic/7057654/2026/02/19/bears-indiana-stadium-possibility/
+
+**Eagles' All-Pro tackle Lane Johnson returning for 14th NFL season**\
+`Johnson missed the final seven games and the playoffs with a foot injury, leading to some questions about potential retirement.`\
+https://nytimes.com/athletic/7057847/2026/02/19/lane-johnson-eagles-returning-14th-season/
+
+**Life as an NHLer in the Olympic Village: Awkward encounters, late bedtimes and 'just kind of hanging'**\
+`U.S. men's players take us inside their experience in the Village, plus reflecting on Wednesday's win and looking ahead to Slovakia.`\
+https://nytimes.com/athletic/7057673/2026/02/19/united-states-olympic-village-stories/
+
 **How to handle your top pick in 2026 fantasy baseball drafts**\
 `Owen Poindexter takes a deep dive into the most important pick of your fantasy baseball draft — your first one.`\
 https://nytimes.com/athletic/7056178/2026/02/19/fantasy-baseball-round-one-draft-pick-analysis/
