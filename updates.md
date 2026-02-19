@@ -1,3 +1,11 @@
+**Jittery Markets Seek an Iran ‘Off-Ramp’**\
+`Oil prices spiked and stocks fell as tensions between Washington and Tehran unnerved investors.`\
+https://nytimes.com/2026/02/19/business/dealbook/markets-oil-iran.html
+
+**Switzerland and Spain win first ski mountaineering Olympic golds**\
+`On the day ski mountaineering made its Olympic debut, Switzerland's Marianne Fatton and Spain's Oriol Cardona Coll won gold. `\
+https://nytimes.com/athletic/7057442/2026/02/19/marianne-fatton-oriol-cardona-coll-ski-mountaineering-olympic-golds/
+
 **‘Midwinter Break’ Review: Aging Together, Growing Apart**\
 `Lesley Manville and Ciaran Hinds play an Irish married couple dealing with quiet resentments in this staid drama.`\
 https://nytimes.com/2026/02/19/movies/midwinter-break-review.html
