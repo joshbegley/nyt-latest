@@ -1,3 +1,7 @@
+**Lopsided odds for women's hockey gold medal game are rare in USA-Canada rivalry**\
+`The U.S. women are heavily favored against rival Canada in Thursday's gold medal game at the Olympics.`\
+https://nytimes.com/athletic/7056088/2026/02/19/olympic-womens-hockey-gold-medal-game-odds-usa-canada/
+
 **The New York Times in Print for Thursday, Feb. 19, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7054556/2026/02/19/mainoo-man-united-carrick-midfie
 **A run deep into the Conference League is the only thing that can save Palace's season**\
 `If the London club were to be eliminated from Europe this month the rest of their campaign will likely turn into a miserable slog`\
 https://nytimes.com/athletic/7049957/2026/02/19/crystal-palace-premier-league-conference-league-glasner/
-
-**He won Olympic bronze for the U.S. Nine years ago, he was in a coma: 'We almost lost him'**\
-`Canter of the United States won bronze on Wednesday. Nine years ago, aged 13, he had to learn to walk and talk again after an accident.`\
-https://nytimes.com/athletic/7055195/2026/02/19/jake-canter-snowboard-slopestyle-bronze-2026-winter-olympics/
 
