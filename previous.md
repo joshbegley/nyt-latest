@@ -1,3 +1,7 @@
+**After Avalanche Warnings, a Sierra Nevada Tragedy**\
+`Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
+https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
+
 **Word of the Day: concise**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons
 **What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
 `Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
 https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/
-
-**The art of visualization: What is it, and how does it help Olympic athletes?**\
-`Several athletes at the Olympics have looked as if they're dancing just before they set off to compete, but they are visualizing. `\
-https://nytimes.com/athletic/7054472/2026/02/19/olympic-athletes-visualization-lindsey-vonn-eileen-gu/
 

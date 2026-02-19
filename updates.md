@@ -1,3 +1,7 @@
+**After Avalanche Warnings, a Sierra Nevada Tragedy**\
+`Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
+https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
+
 **Word of the Day: concise**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
