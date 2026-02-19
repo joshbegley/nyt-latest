@@ -15,7 +15,7 @@ https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
 https://nytimes.com/athletic/7057685/2026/02/19/chiefs-restructure-mahomes-cap-space-explained-scoop-city/
 
 **Recovery Efforts After Tahoe Avalanche Face More Heavy Snow**\
-`Yet another storm rolled across the Lake Tahoe region on Thursday, and more wintry weather is expected.`\
+`The sheriff’s office in Nevada County, Calif., said a storm that moved through early Thursday has slowed their work.`\
 https://nytimes.com/2026/02/19/weather/recovery-efforts-tahoe-avalanche-more-snow.html
 
 **British Police Arrest Former Prince Andrew Amid Epstein Revelations**\

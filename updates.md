@@ -1,3 +1,11 @@
+**Women’s FA Cup changes delayed to allow 'further feedback' on proposals**\
+`The Athletic had reported the FA's proposals for a raft of significant reforms, including introducing seeding from the last-32 stage.`\
+https://nytimes.com/athletic/7058089/2026/02/19/womens-fa-cup-reforms-when/
+
+**Two Sisters Died in Avalanche During Sierra Nevada Trek With Friends**\
+`A man said his sisters regularly met up with their friends, many from Stanford University, to go on ski trips.`\
+https://nytimes.com/2026/02/19/us/tahoe-avalanche-victims-sisters.html
+
 **In U.K. Police Detention Facilities, One-Person Cells and Simple Beds**\
 `The police have not said where they were holding Andrew Mountbatten-Windsor, but the facilities are intended to hold people for short periods while they are questioned.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
