@@ -1,40 +1,40 @@
-**TAFC: Has Wolves teenager just tilted title race? Plus: Battle for World Cup base camps**\
-`Today in TAFC: Meet the teen that might just have tilted the title race towards Man City. Plus: Battle over World Cup base camps.`\
-https://nytimes.com/athletic/7057216/2026/02/19/arsenal-wolves-edozie-premier-league/
+**Phillies roster projection 1.0: Filling out the bullpen and bench**\
+`In the estimation of club officials, the Phillies have four undecided roster spots. Here's our initial projection — and what to watch.`\
+https://nytimes.com/athletic/7055719/2026/02/19/phillies-roster-projection-opening-day-2026/
 
-**The Board of Peace**\
-`Today we look at President Trump’s new diplomatic initiative.`\
-https://nytimes.com/2026/02/19/briefing/the-board-of-peace.html
+**Former Prince Andrew’s Ties to Epstein Keep Spotlight on Britain’s Leader**\
+`The detention of the former prince maintains the spotlight on links between the government of Prime Minister Sir Keir Starmer and Jeffrey Epstein.`\
+https://nytimes.com/2026/02/19/world/europe/uk-andrew-epstein-starmer-mandelson.html
 
-**At the Winter Olympics, full gender equality remains a work in progress**\
-`The IOC has made strides toward gender equality, but many of the competition formats aren't there yet. Some think that's just fine.`\
-https://nytimes.com/athletic/7052978/2026/02/19/winter-olympics-gender-equality-skiing-biathlon/
+**What I’m seeing at Tigers spring training: Justin Verlander, Kevin McGonigle and more**\
+`The most important sights, sounds and swing changes from the first week of Tigers spring training. `\
+https://nytimes.com/athletic/7056275/2026/02/19/detroit-tigers-spring-training-verlander-mcgonigle/
 
-**Coutinho announces Vasco exit: 'I'm mentally exhausted'**\
-`The 33-year-old's contract was due to run until June.`\
-https://nytimes.com/athletic/7057235/2026/02/19/philippe-coutinho-brazil-vasco-da-gama/
+**The Alternative Premier League Table: No 27 - Crosses**\
+`This week's table looks at the impact each side has had from crossing so far this season`\
+https://nytimes.com/athletic/7055554/2026/02/19/the-alternative-premier-league-table-no-27-crosses/
 
-**Here’s the police statement on the arrest.**\
-`By Megan Specia`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/heres-the-police-statement-on-the-arrest
+**As Red Wings return for home stretch, what will decide Detroit's playoff fate?**\
+`The Red Wings will need to figure out their five-on-five offense, keep up their strong goaltending and have a few other things go right.`\
+https://nytimes.com/athletic/7054065/2026/02/19/detroit-red-wings-olympics-playoff-race/
 
-**The Pulse: The nastiest rivalry in hockey**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7055697/2026/02/19/usa-canada-hockey-gold-medal-the-pulse/
+**Tigers vs. Red Sox: Which American League rotation reigns supreme?**\
+`After some high-profile offseason additions, does Boston or Detroit hold the edge? Eno Sarris took a look at the head-to-head matchups.`\
+https://nytimes.com/athletic/7036898/2026/02/19/red-sox-tigers-american-league-best-rotation/
 
-**Chase Briscoe on Atlanta bathrooms and being a helicopter parent: 12 Questions**\
-`Each week, The Athletic asks the same 12 questions to a different race-car driver.`\
-https://nytimes.com/athletic/7055322/2026/02/19/chase-briscoe-nascar-kevin-harvick-12-questions/
+**Giants roster projection 1.0: Will the time be right for Bryce Eldridge and/or Hayden Birdsong?**\
+`Before the exhibitions begin, here's a preliminary look at the locks, the likelihoods and the fuzzy incumbents.`\
+https://nytimes.com/athletic/7056542/2026/02/19/san-francisco-giants-roster-projection-1-eldridge-birdsong/
 
-**She was 'paralyzed with fear' of jumping 50ft in the air. Then she turned to hypnosis**\
-`Kaila Kuhn knew she had to up her difficulty level to have a chance of winning an Olympic medal, but with that came problems. `\
-https://nytimes.com/athletic/7057164/2026/02/19/kaila-kuhn-aerials-hypnosis-winter-olympics/
+**Nick Foligno committed to Blackhawks but unsure how personal future will unfold**\
+`The Blackhawks captain is excited for a four-game road trip to kick off the rest of the season, enjoying what he has while it lasts.`\
+https://nytimes.com/athletic/7055873/2026/02/19/nick-foligno-blackhawks-trade-deadline-future-contract/
 
-**Bears big board 1.0: Which defensive players could be in play in Rounds 1-3?**\
-`The Bears figure to be very active on defense in the 2026 draft. Our first big board goes through some options for them in Rounds 1-3.`\
-https://nytimes.com/athletic/7053245/2026/02/19/bears-nfl-draft-big-board-defense/
+**This Week in Sports Trivia: February 19, 2026**\
+`How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
+https://nytimes.com/athletic/7055593/2026/02/19/this-week-in-sports-trivia-february-19-2026/
 
-**Knicks' plan for Jeremy Sochan might impact rookie Mo Diawara's progress**\
-`Knicks coach Mike Brown is going to find out what he has in Jeremy Sochan.`\
-https://nytimes.com/athletic/7055885/2026/02/19/knicks-jeremy-sochan-mo-diawara-time/
+**Sixers face looming questions coming out of break, starting with Joel Embiid**\
+`Embiid will miss Philadelphia's first game out of the All-Star break Thursday, the third straight he'll sit out with a sore right shin.`\
+https://nytimes.com/athletic/7057066/2026/02/19/joel-embiid-sixers-health-questions/
 
