@@ -1,3 +1,11 @@
+**Catching up with budding media personality Koji Uehara, plus Red Sox notes**\
+`Plus a look at the Red Sox's camp standouts, early spring training pitching plans and why traded for Johan Oviedo.`\
+https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-red-sox/
+
+**How Trump Is Upending Who Can Be a Guest on Late-Night TV**\
+`The F.C.C. is using a century-old broadcast rule to take aim at hosts like Stephen Colbert. The impact could reshape how talk shows handle politics.`\
+https://nytimes.com/2026/02/19/business/media/colbert-equal-time-fcc-brendan-carr.html
+
 **Southern Plains Braces for More Wildfires While Battling Old Ones**\
 `Unusually warm temperatures, dry air, parched vegetation and strong wind gusts have fueled wildfires, which have broken out across Oklahoma and Texas this week.`\
 https://nytimes.com/video/weather/100000010723479/southern-plains-wildfires-oklahoma-texas.html

@@ -1,3 +1,7 @@
+**The Former Prince Andrew Is Arrested**\
+`Also, Trump hints at the possibility of military action in Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/02/19/briefing/former-prince-andrew-trade-deficit.html
+
 **Catching up with budding media personality Koji Uehara, plus Red Sox notes**\
 `Plus a look at the Red Sox's camp standouts, early spring training pitching plans and why traded for Johan Oviedo.`\
 https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former
 **Cees Nooteboom, Voyaging Author of Enigmatic Novels, Dies at 92**\
 `A prolific Dutch writer of fiction, poetry and travel books, he was often mentioned as a potential recipient of the Nobel Prize in Literature.`\
 https://nytimes.com/2026/02/19/books/cees-nooteboom-dead.html
-
-**Keely Hodgkinson breaks 800m indoor world record with time of 1:54:87s**\
-`The 23-year-old's performance was almost an entire second faster than Jolanda Ceplak’s 1:55.82s from the 2002 European indoor Championships.`\
-https://nytimes.com/athletic/7058550/2026/02/19/keely-hodgkinson-breaks-800m-world-record/
 
