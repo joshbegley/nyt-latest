@@ -1,3 +1,7 @@
+**Tariffs and American Wine: Additional Costs, Export Trouble and Hostility**\
+`One year in, many producers say tariffs have not helped them, and some countries are rejecting U.S. wine altogether.`\
+https://nytimes.com/2026/02/19/dining/drinks/trump-tariffs-us-wine.html
+
 **Games Briefing: U.S.-Canada. It's here**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7057993/2026/02/19/us-canada-womens-hockey-gold-medal-game-olympics-games-briefing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057731/2026/02/19/jaden-rashada-nil-settlement-flo
 **Doing Your Taxes? We Want to Hear From You.**\
 `The New York Times is looking to speak to Americans about how the most recent tax cuts are affecting their pocketbooks.`\
 https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
-
-**For the Royals, No Playbook Exists for the Arrest of a Former Prince**\
-`There is simply no blueprint for how to react to the arrest of a close relative of the king who until recently had played a senior role, and who could may be charged and put on trial, experts on the royals said.`\
-https://nytimes.com/2026/02/19/world/europe/andrew-mountbatten-windsor-royal-family-public-relations.html
 
