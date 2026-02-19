@@ -1,3 +1,15 @@
+**Eileen Gu overcomes first-run fall to qualify for freeski halfpipe final**\
+`Eileen Gu qualified in fifth for the freeski halfpipe final, keeping her on course to end the Games with three medals. `\
+https://nytimes.com/athletic/7058300/2026/02/19/eileen-gu-womens-halfpipe-qualification/
+
+**Billy Steinberg, Hitmaking Lyricist of Madonna’s ‘Like a Virgin,’ Dies at 75**\
+`He co-wrote five pop-rock songs that soared to No. 1 in the 1980s and shared in a Grammy for producing Celine Dion’s 1996 album “Falling Into You.”`\
+https://nytimes.com/2026/02/19/arts/music/billy-steinberg-dead.html
+
+**Democrats Choose Spanberger to Deliver State of the Union Response to Trump**\
+`In selecting the Virginia governor, Democrats turned to a centrist former congresswoman whose winning campaign last year showed how their party’s candidates can succeed in the Trump era.`\
+https://nytimes.com/2026/02/19/us/politics/abigail-spanberger-democrats-state-of-the-union-response-trump.html
+
 **King Charles Attends a Fashion Event**\
 `His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
 https://nytimes.com/2026/02/19/world/europe/king-charles-fashion-event-prince-andrew.html

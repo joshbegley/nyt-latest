@@ -1,3 +1,15 @@
+**Eileen Gu overcomes first-run fall to qualify for freeski halfpipe final**\
+`Eileen Gu qualified in fifth for the freeski halfpipe final, keeping her on course to end the Games with three medals. `\
+https://nytimes.com/athletic/7058300/2026/02/19/eileen-gu-womens-halfpipe-qualification/
+
+**Billy Steinberg, Hitmaking Lyricist of Madonna’s ‘Like a Virgin,’ Dies at 75**\
+`He co-wrote five pop-rock songs that soared to No. 1 in the 1980s and shared in a Grammy for producing Celine Dion’s 1996 album “Falling Into You.”`\
+https://nytimes.com/2026/02/19/arts/music/billy-steinberg-dead.html
+
+**Democrats Choose Spanberger to Deliver State of the Union Response to Trump**\
+`In selecting the Virginia governor, Democrats turned to a centrist former congresswoman whose winning campaign last year showed how their party’s candidates can succeed in the Trump era.`\
+https://nytimes.com/2026/02/19/us/politics/abigail-spanberger-democrats-state-of-the-union-response-trump.html
+
 **Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
 `As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
 https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7058329/2026/02/19/pistons-vs-knicks-stream-how-to-
 **Some Reese’s Treats Drop the Milk Chocolate. Mr. Reese Disapproves.**\
 `With cocoa prices high, Hershey’s has changed some of its candy recipes. The grandson of the man who invented of the original Peanut Butter Cup said he was “embarrassed.”`\
 https://nytimes.com/2026/02/19/climate/reeses-chocolate-eggs-hersheys.html
-
-**How to watch Suns vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058320/2026/02/19/suns-vs-spurs-stream-how-to-watch-feb-19/
-
-**How to watch Nuggets vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058314/2026/02/19/nuggets-vs-clippers-stream-how-to-watch-feb-19/
-
-**How to watch Celtics vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7058312/2026/02/19/celtics-vs-warriors-stream-how-to-watch-feb-19/
 
