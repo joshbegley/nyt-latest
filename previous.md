@@ -1,3 +1,27 @@
+**What's on an Olympic ski jumper's mind as they sit on the bar, waiting for their turn?**\
+`What runs through their mind in the moments before jumping? Spoiler: for many of them, nothing.`\
+https://nytimes.com/athletic/7052472/2026/02/19/winter-olympics-ski-jumping-bar-turn/
+
+**Alysa Liu Is Skating Again, Her Way This Time**\
+`At 16, out of love with the sport, Liu stepped away. Controlling her career, after years of oversight from her father, was the only way she could return.`\
+https://nytimes.com/2026/02/19/world/olympics/olympics-alysa-liu-figure-skating.html
+
+**Why Prosecutors in Sex-Crime Cases Often Turn to Trafficking Laws**\
+`Lawyers build cases around these laws because the statutes are broad and use language that can encompass a variety of crimes, according to experts.`\
+https://nytimes.com/2026/02/19/nyregion/sex-trafficking-federal-charges.html
+
+**How Kansas City became the base camp capital for the World Cup – and its top contenders**\
+`When it comes to destination U.S. cities, Kansas City isn't at the top of many lists. So how did it become such a desired World Cup base?`\
+https://nytimes.com/athletic/7052907/2026/02/19/kansas-city-world-cup-training-base-argentina-england-netherlands/
+
+**A Child Misses 3 Weeks of School. Should Protective Services Step In?**\
+`A growing number of states are debating whether to alter their policies on summoning child protection officials if a student has excessive absences.`\
+https://nytimes.com/2026/02/19/nyregion/school-absences-child-protection.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/19/crosswords/spelling-bee-forum.html
+
 **After Avalanche Warnings, a Sierra Nevada Tragedy**\
 `Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
 https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-work
 **Hornets' LaMelo Ball involved in car crash in downtown Charlotte: Source**\
 `The camouflage-colored, custom-made Hummer that collided with another car was Ball's vehicle, according to a league source.`\
 https://nytimes.com/athletic/7056681/2026/02/19/lamelo-ball-car-crash-charlotte-hornets/
-
-**Bernie Sanders Urges Support of California Billionaire Tax at Los Angeles Rally**\
-`The senator from Vermont was the only elected leader at the event, which formally kicked off a health care union’s campaign to put the tax proposal on the ballot.`\
-https://nytimes.com/2026/02/19/us/bernie-sanders-california-billionaire-tax.html
-
-**'Second again, ole, ole': Is Arsenal's worst nightmare in danger of coming true?**\
-`The taunt used against Mikel Arteta's side by opposition fans carries more weight after Wednesday's late capitulation at Wolves`\
-https://nytimes.com/athletic/7052703/2026/02/19/arsenal-second-again-ole-ole/
-
-**Lopsided odds for women's hockey gold medal game are rare in USA-Canada rivalry**\
-`The U.S. women are heavily favored against rival Canada in Thursday's gold medal game at the Olympics.`\
-https://nytimes.com/athletic/7056088/2026/02/19/olympic-womens-hockey-gold-medal-game-odds-usa-canada/
-
-**The New York Times in Print for Thursday, Feb. 19, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/19/todays-new-york-times
-
-**Yoon’s martial law declaration failed, but his supporters stayed loyal.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/yoons-martial-law-declaration-failed-but-his-supporters-stayed-loyal
-
-**What to watch on Day 13 of Olympics: U.S. vs. Canada for hockey gold, women's free skate**\
-`Meanwhile, a women's figure skating singles champ will be crowned, and Jordan Stolz will aim for a third speedskating gold medal.`\
-https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-what-to-watch-day-13/
 
