@@ -1,3 +1,11 @@
+**How to watch Raptors vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058310/2026/02/19/raptors-vs-bulls-stream-how-to-watch-feb-19/
+
+**How to watch South Carolina vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7058308/2026/02/19/south-carolina-vs-alabama-stream-how-to-watch-feb-19/
+
 **How to watch Texas vs. Arkansas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7058285/2026/02/19/texas-vs-arkansas-stream-how-to-watch-feb-19/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/opinion/pen-free-expression-writers.html
 **Here’s What I Just Figured Out About the Way Trump Talks**\
 `Why just tell a story when you can put on a skit?`\
 https://nytimes.com/2026/02/19/opinion/trump-speech-conversations.html
-
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/02/19/books/review/new-recommended-books.html
-
-**Their Transgender Child’s Health Care Had Ended. What Now?**\
-`In many ways, the parents whose adolescents had been receiving treatment at NYU Langone Health had been expecting this call. Still, they were stunned.`\
-https://nytimes.com/2026/02/19/nyregion/transgender-adolescents-nyu-langone-program-eliminated.html
 
