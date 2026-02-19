@@ -1,3 +1,11 @@
+**Quote of the Day: Veterans Who Protest ICE’s Operations View Crackdown Differently**\
+`Quotation of the Day for Thursday, February 18, 2026.`\
+https://nytimes.com/2026/02/18/pageoneplus/quote-of-the-day-veterans-who-protest-ices-operations-view-crackdown-differently.html
+
+**Multiple Victims Had Ties to Ski Resort School Near the Avalanche Site**\
+`Sugar Bowl Academy, a ski-focused private school in the Sierra Nevada, said that multiple people on the fatal trek were connected to its program.`\
+https://nytimes.com/2026/02/18/us/tahoe-avalanche-skiers-sugar-bowl-school.html
+
 **Trump Order Aims to Boost Weedkiller Targeted in Health Lawsuits**\
 `An executive order aimed at ramping up production of glyphosate set off alarms among supporters of Health Secretary Robert F. Kennedy Jr.`\
 https://nytimes.com/2026/02/18/us/politics/trump-boost-weedkiller.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt
 **Police Chief Hired to Help Lead N.Y.C. Hospital Patrols Abruptly Quits**\
 `The assistant chief, Jamiel Altaheri, resigned almost immediately after starting the job, after The New York Times asked about misconduct allegations while he was a police chief in Michigan.`\
 https://nytimes.com/2026/02/18/nyregion/jamiel-altaheri-hamtramck-nyc-hospitals.html
-
-**Simone Biles met with Ilia Malinin after men's figure skating final**\
-`U.S. gymnast empathized with the American's star skater after he finished eighth in men's singles.`\
-https://nytimes.com/athletic/7056299/2026/02/18/simone-biles-meets-ilia-malinin-mens-figure-skating-final/
-
-**Red Sox take blame off Fanatics for jersey spacing issue**\
-`In a series of statements Wednesday, the Red Sox explained who was at fault for their jerseys not looking right. `\
-https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
 

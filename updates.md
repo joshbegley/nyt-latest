@@ -1,3 +1,11 @@
+**Quote of the Day: Veterans Who Protest ICE’s Operations View Crackdown Differently**\
+`Quotation of the Day for Thursday, February 18, 2026.`\
+https://nytimes.com/2026/02/18/pageoneplus/quote-of-the-day-veterans-who-protest-ices-operations-view-crackdown-differently.html
+
+**Multiple Victims Had Ties to Ski Resort School Near the Avalanche Site**\
+`Sugar Bowl Academy, a ski-focused private school in the Sierra Nevada, said that multiple people on the fatal trek were connected to its program.`\
+https://nytimes.com/2026/02/18/us/tahoe-avalanche-skiers-sugar-bowl-school.html
+
 **Trump Order Aims to Boost Weedkiller Targeted in Health Lawsuits**\
 `An executive order aimed at ramping up production of glyphosate set off alarms among supporters of Health Secretary Robert F. Kennedy Jr.`\
 https://nytimes.com/2026/02/18/us/politics/trump-boost-weedkiller.html
