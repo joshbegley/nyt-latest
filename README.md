@@ -1,3 +1,11 @@
+**Ex-Police Commissioner’s Lawsuit Against New York City Is Dismissed**\
+`Thomas G. Donlon had claimed he was fired for exposing corruption within the Police Department and City Hall. He briefly served as interim commissioner under Mayor Eric Adams in 2024.`\
+https://nytimes.com/2026/02/19/nyregion/donlon-lawsuit-nypd.html
+
+**Trump’s Board of Peace Promises Billions for Gaza, With Few Details**\
+`At the inaugural meeting of his new organization, President Trump also endorsed a divisive foreign leader and heard an attack on his former prosecutor, Jack Smith.`\
+https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace.html
+
 **Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus an El Clasico meeting**\
 `Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await.`\
 https://nytimes.com/athletic/7058566/2026/02/19/womens-champions-league-arsenal-manchester-united-el-clasico/
@@ -8,7 +16,7 @@ https://nytimes.com/2026/02/19/us/politics/trump-russia-deals-novatek.html
 
 **British Police Arrest Former Prince Andrew, in Stunning Blow to Royal Family**\
 `Andrew Mountbatten-Windsor, a longtime associate of Jeffrey Epstein, is being investigated on suspicion of misconduct in public office.`\
-https://nytimes.com/2026/02/19/world/europe/british-police-arrest-former-prince-andrew-in-stunning-blow-to-royal-family.html
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrest-epstein.html
 
 **The uproar over former Prince Andrew’s Epstein ties casts a shadow over the royal family.**\
 `The arrest of the former prince could shake public confidence in the monarchy.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/business/media/colbert-equal-time-fcc-brendan-car
 **Southern Plains Braces for More Wildfires While Battling Old Ones**\
 `Unusually warm temperatures, dry air, parched vegetation and strong wind gusts have fueled wildfires, which have broken out across Oklahoma and Texas this week.`\
 https://nytimes.com/video/weather/100000010723479/southern-plains-wildfires-oklahoma-texas.html
-
-**Doug Moe, 87, N.B.A. Coach as Freewheeling as His Style of Play, Dies**\
-`A former college All-American touched by scandal, he was irreverent and unpredictable as he piloted his fast-paced Nuggets and Spurs.`\
-https://nytimes.com/2026/02/19/sports/basketball/doug-moe-dead.html
-
-**Lavia set to feature for Chelsea Under-21s in return from quadriceps injury**\
-`It will be the first competitive match action of any kind for Lavia in more than three months.`\
-https://nytimes.com/athletic/7058186/2026/02/19/romeo-lavia-chelsea-injury-latest/
 

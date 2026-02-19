@@ -1,3 +1,23 @@
+**Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus an El Clasico meeting**\
+`Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await.`\
+https://nytimes.com/athletic/7058566/2026/02/19/womens-champions-league-arsenal-manchester-united-el-clasico/
+
+**With ‘Tremendous’ Deals at Stake, Trump Is Bringing Russia in From the Cold**\
+`Since President Trump took office more than a year ago, the Kremlin has dangled possible investments in front of the famously transactional leader. The message is starting to resonate with investors.`\
+https://nytimes.com/2026/02/19/us/politics/trump-russia-deals-novatek.html
+
+**British Police Arrest Former Prince Andrew, in Stunning Blow to Royal Family**\
+`Andrew Mountbatten-Windsor, a longtime associate of Jeffrey Epstein, is being investigated on suspicion of misconduct in public office.`\
+https://nytimes.com/2026/02/19/world/europe/british-police-arrest-former-prince-andrew-in-stunning-blow-to-royal-family.html
+
+**The uproar over former Prince Andrew’s Epstein ties casts a shadow over the royal family.**\
+`The arrest of the former prince could shake public confidence in the monarchy.`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/prince-andrew-epstein-royal-family
+
+**The Former Prince Andrew Is Arrested**\
+`Also, Trump hints at the possibility of military action in Iran. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/02/19/briefing/former-prince-andrew-trade-deficit.html
+
 **Catching up with budding media personality Koji Uehara, plus Red Sox notes**\
 `Plus a look at the Red Sox's camp standouts, early spring training pitching plans and why traded for Johan Oviedo.`\
 https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-red-sox/
