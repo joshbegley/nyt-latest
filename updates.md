@@ -1,3 +1,7 @@
+**Lopsided odds for women's hockey gold medal game are rare in USA-Canada rivalry**\
+`The U.S. women are heavily favored against rival Canada in Thursday's gold medal game at the Olympics.`\
+https://nytimes.com/athletic/7056088/2026/02/19/olympic-womens-hockey-gold-medal-game-odds-usa-canada/
+
 **The New York Times in Print for Thursday, Feb. 19, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/19/todays-new-york-times
