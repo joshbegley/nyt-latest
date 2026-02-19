@@ -1,3 +1,7 @@
+**Red Sox take blame off Fanatics for jersey spacing issue**\
+`In a series of statements on Wednesday, the Red Sox explained who was at fault for their jerseys not looking right. `\
+https://nytimes.com/athletic/7056714/2026/02/18/red-sox-jerseys-fanatics/
+
 **Controversial 2021 Abu Dhabi GP safety car for sale**\
 `The Aston Martin Vantage used during the final race of the 2021 season becomes a rare F1 safety car to be put up for public sale.`\
 https://nytimes.com/athletic/7056164/2026/02/18/f1-safety-car-abu-dhabi-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-execut
 **How Quinn Hughes came to play the hero for Team USA in overtime: 'A massive goal'**\
 `Hughes, who missed out on last year's 4 Nations Face-Off due to injury, scored the OT winner to send Team USA to the semifinals.`\
 https://nytimes.com/athletic/7056553/2026/02/18/quinn-hughes-olympics-mens-hockey-overtime-goal/
-
-**U.S. Military Moves Into Place for Possible Strikes in Iran**\
-`President Trump has given no indication that he has made a decision about how to proceed, as diplomatic talks continue.`\
-https://nytimes.com/2026/02/18/us/politics/us-military-iran.html
 
