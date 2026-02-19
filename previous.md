@@ -1,3 +1,11 @@
+**Here are the other British police departments looking into Epstein allegations.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/here-are-the-other-british-police-departments-looking-into-epstein-allegations
+
+**U.S. Tells International Energy Agency to Drop Its Focus on Climate Change**\
+`The Trump administration is threatening to leave the influential agency unless it stops publishing its annual road map for cutting planet-warming emissions.`\
+https://nytimes.com/2026/02/19/climate/us-tells-international-energy-agency-to-drop-its-focus-on-climate-change.html
+
 **Epstein Built Ties to U.S. Customs Officers, Sparking Criminal Investigation**\
 `Jeffrey Epstein cultivated friendly relationships with several customs officers in the U.S. Virgin Islands, offering food, advice and even musical gigs.`\
 https://nytimes.com/2026/02/19/us/epstein-cbp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/us/tahoe-avalanche-victims-sisters.html
 **In U.K. Police Detention Facilities, One-Person Cells and Simple Beds**\
 `The police have not said where they were holding Andrew Mountbatten-Windsor, but the facilities are intended to hold people for short periods while they are questioned.`\
 https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
-
-**Scoop City: How the contract restructure of Patrick Mahomes cleared millions in Chiefs cap room**\
-`Unpacking how the Chiefs can pay Patrick Mahomes about $56 million in cash while his cap hit is just $35 million, plus free agency rankings`\
-https://nytimes.com/athletic/7057685/2026/02/19/chiefs-restructure-mahomes-cap-space-explained-scoop-city/
-
-**Another Storm Complicates Efforts to Recover Victims of Tahoe Avalanche**\
-`The sheriff’s office in Nevada County, Calif., said a storm that moved through early Thursday has slowed their work.`\
-https://nytimes.com/2026/02/19/weather/recovery-efforts-tahoe-avalanche-more-snow.html
 

@@ -1,3 +1,19 @@
+**Data Centers and Your Power Bill**\
+`New A.I. sites could drive up your power bill. We look at possible solutions.`\
+https://nytimes.com/2026/02/19/climate/data-centers-power-bills.html
+
+**Man Who Lived Rent-Free in Hotel for 5 Years Pleads Guilty to Fraud**\
+`After checking into a Manhattan hotel for one night, Mickey Barreto exploited an obscure New York City housing law to stay there for years.`\
+https://nytimes.com/2026/02/19/nyregion/mickey-barreto-new-yorker-hotel-fraud.html
+
+**The New Wave of Eye Creams Promising to Soften “Eye Hooding” — What Science and Users Actually Show **\
+`As thin eyelid skin succumbs to age and sun, topical formulas built around PTT-6`\
+https://nytimes.com/paidpost/2026-02-10/.html
+
+**Refugees Without Green Cards Could Be Arrested Under New Trump Policy**\
+`The change is part of the administration’s broad effort to target refugees and tighten pathways for immigrants to legally enter or remain in the United States.`\
+https://nytimes.com/2026/02/19/us/politics/refugees-green-cards.html
+
 **Here are the other British police departments looking into Epstein allegations.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/here-are-the-other-british-police-departments-looking-into-epstein-allegations
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7057770/2026/02/19/marshall-swimming-diving-cuts-st
 **House Democrats view Mountbatten-Windsor’s arrest as a step toward justice for the Epstein victims.**\
 `By Annie Karni`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/house-democrats-view-mountbatten-windsors-arrest-as-a-step-toward-justice-for-the-epstein-victims
-
-**This sport made its Olympic debut and showed it belongs: 'It's history'**\
-`Ski Mountaineering made its Olympic debut on Thursday. For fans and competitors alike, it was a day to remember. `\
-https://nytimes.com/athletic/7057800/2026/02/19/ski-mountaineering-skimo-olympic-debut-2026/
-
-**Women’s FA Cup changes delayed to allow 'further feedback' on proposals**\
-`The Athletic had reported the FA's proposals for a raft of significant reforms, including introducing seeding from the last-32 stage.`\
-https://nytimes.com/athletic/7058089/2026/02/19/womens-fa-cup-reforms-when/
-
-**Two Sisters Died in Avalanche During Sierra Nevada Trek With Friends**\
-`A man said his sisters regularly met up with their friends, many from Stanford University, to go on ski trips.`\
-https://nytimes.com/2026/02/19/us/tahoe-avalanche-victims-sisters.html
-
-**In U.K. Police Detention Facilities, One-Person Cells and Simple Beds**\
-`The police have not said where they were holding Andrew Mountbatten-Windsor, but the facilities are intended to hold people for short periods while they are questioned.`\
-https://nytimes.com/2026/02/19/world/europe/prince-andrew-police-detention.html
 

@@ -1,3 +1,11 @@
+**Here are the other British police departments looking into Epstein allegations.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/here-are-the-other-british-police-departments-looking-into-epstein-allegations
+
+**U.S. Tells International Energy Agency to Drop Its Focus on Climate Change**\
+`The Trump administration is threatening to leave the influential agency unless it stops publishing its annual road map for cutting planet-warming emissions.`\
+https://nytimes.com/2026/02/19/climate/us-tells-international-energy-agency-to-drop-its-focus-on-climate-change.html
+
 **Epstein Built Ties to U.S. Customs Officers, Sparking Criminal Investigation**\
 `Jeffrey Epstein cultivated friendly relationships with several customs officers in the U.S. Virgin Islands, offering food, advice and even musical gigs.`\
 https://nytimes.com/2026/02/19/us/epstein-cbp.html
