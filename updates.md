@@ -1,3 +1,5 @@
+
+
 **MLBPA names Bruce Meyer executive director in unanimous vote**\
 `He replaces Tony Clark, who resigned Tuesday after players learned that he had an inappropriate relationship with his sister-in-law.`\
 https://nytimes.com/athletic/7056476/2026/02/18/mlbpa-bruce-meyer-elected-executive-director/
