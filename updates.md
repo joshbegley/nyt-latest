@@ -1,3 +1,19 @@
+**Data Centers and Your Power Bill**\
+`New A.I. sites could drive up your power bill. We look at possible solutions.`\
+https://nytimes.com/2026/02/19/climate/data-centers-power-bills.html
+
+**Man Who Lived Rent-Free in Hotel for 5 Years Pleads Guilty to Fraud**\
+`After checking into a Manhattan hotel for one night, Mickey Barreto exploited an obscure New York City housing law to stay there for years.`\
+https://nytimes.com/2026/02/19/nyregion/mickey-barreto-new-yorker-hotel-fraud.html
+
+**The New Wave of Eye Creams Promising to Soften “Eye Hooding” — What Science and Users Actually Show **\
+`As thin eyelid skin succumbs to age and sun, topical formulas built around PTT-6`\
+https://nytimes.com/paidpost/2026-02-10/.html
+
+**Refugees Without Green Cards Could Be Arrested Under New Trump Policy**\
+`The change is part of the administration’s broad effort to target refugees and tighten pathways for immigrants to legally enter or remain in the United States.`\
+https://nytimes.com/2026/02/19/us/politics/refugees-green-cards.html
+
 **Here are the other British police departments looking into Epstein allegations.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/here-are-the-other-british-police-departments-looking-into-epstein-allegations
