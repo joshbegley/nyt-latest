@@ -1,3 +1,15 @@
+**Labor Secretary’s Husband Barred From Department Premises After Sexual Assault Reports**\
+`At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
+https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html
+
+**Warming Climate Can Increase Avalanche Risk, Studies Show**\
+`Research has pointed to the dangers of heavier and wetter snowfall, even as the number of snowy days decreases overall in California’s Sierra Nevada.`\
+https://nytimes.com/2026/02/19/climate/avalanche-risk-global-warming.html
+
+**Fantasy basketball hot topics of the week: Managing matchups and injuries**\
+`With few remaining weeks left in the fantasy basketball season, Stan Son guides you through the key injuries and matchups.`\
+https://nytimes.com/athletic/7058085/2026/02/19/fantasy-basketball-hot-topics-matchups-injuries-stretch-run/
+
 **NCAA leaders say tournament expansion talk will wait until after March**\
 `NCAA president Charlie Baker said he remained in favor of expanding the 68-team field for the men's and women's tournaments.`\
 https://nytimes.com/athletic/7058399/2026/02/19/ncaa-basketball-tournament-expansion-talks/
