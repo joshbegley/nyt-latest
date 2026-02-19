@@ -1,40 +1,40 @@
-**TV presenter apologises for drinking before viral Olympics broadcast**\
-`Danika Mason was doing a live round-up when she went off topic to the "price of coffee" and "iguanas" while slurring her words. `\
-https://nytimes.com/athletic/7057159/2026/02/19/winter-olympics-tv-presenter-apology-drinking/
+**NBA Rookie Rankings: This class runs deep behind Cooper Flagg**\
+`Collin Murray-Boyles' high-octane activity, Ace Bailey's development and Cedric Coward's consistency are among the rookie achievements.`\
+https://nytimes.com/athletic/7039680/2026/02/19/nba-rookie-rankings-cooper-flagg-collin-murray-boyles-ace-bailey/
 
-**Life in Italy**\
-`The ultimate journey and the ultimate destination await. Discover life in Italy from stories of past guests and staff of Belmond’s Italian properties.`\
-https://nytimes.com/paidpost/belmond/life-in-italy.html
+**New York Jets big board: Draft prospects who fit with their two first-round picks**\
+`A look at the potential targets, from elite defenders to the second wave of quarterbacks.`\
+https://nytimes.com/athletic/7054121/2026/02/19/new-york-jets-draft-big-board-prospects/
 
-**Liverpool's Isak expected to be fit 'around end of March' - Slot**\
-`The striker is back training on the grass and working towards a return from a broken leg in late March or early April.`\
-https://nytimes.com/athletic/7057195/2026/02/19/alexander-isak-liverpool-return/
+**How Team USA (finally) got America's best pitchers on board for the World Baseball Classic**\
+`The WBC has recently exploded in popularity and become increasingly more important to players — including some of its most elusive recruits.`\
+https://nytimes.com/athletic/7051647/2026/02/19/team-usa-wbc-pitching-skenes-skubal/
 
-**Awards Watch: Where do All-NBA teams stand coming out of the All-Star break?**\
-`We haven't had many games since our last check-in, so let's examine some other postseason honors.`\
-https://nytimes.com/athletic/7052659/2026/02/19/awards-watch-all-nba-teams-gilgeous-alexander-jokic-wembanyama/
+**Steelers draft big board 1.0: 17 first-round targets and 1 big QB question**\
+`A look at the many prospects the Steelers could target in Round 1 and beyond.`\
+https://nytimes.com/athletic/7056065/2026/02/19/pittsburgh-steelers-draft-big-board-prospects/
 
-**Van Gogh and the Meaning of Yellow**\
-`The artist gave prominence to the color during a happy period that produced some of his most famous works. But it can have many different associations, a new exhibition shows.`\
-https://nytimes.com/2026/02/19/arts/van-gogh-museum-yellow.html
+**Meet Samuel Hlavaj, the struggling AHLer starring in Slovakia's Cinderella Olympic run**\
+`The Minnesota Wild minor-leaguer has an .884 save percentage in the AHL this season. He's at .932 in the Olympics.`\
+https://nytimes.com/athletic/7055243/2026/02/19/samuel-hlavaj-slovakia-olympic-run-wild/
 
-**In Devastated Gaza, Grandiose Peace Plans Clash With Reality**\
-`Israeli strikes on Gaza have killed about 600 people since a cease-fire began, according to health officials in the territory. Many displaced Palestinians are still living in tents. And there are some 60 million tons of war debris to be cleared.`\
-https://nytimes.com/2026/02/19/world/middleeast/gaza-rebuilding.html
+**Jaylen Brown, Draymond Green and what the NBA gets wrong about ‘next man up’**\
+`Joe Boylan, who worked in the NBA for a decade, believes the environment changes before the player does. He's seen that up close.`\
+https://nytimes.com/athletic/7054844/2026/02/19/jaylen-brown-draymon-green-leadership-next-man-up/
 
-**The Year Empathy Died**\
-`Compassion is not toxic.`\
-https://nytimes.com/2026/02/19/opinion/toxic-empathy-christianity-trump.html
+**Live Updates: U.K. Police Arrest Former Prince Andrew Over Epstein Ties, BBC Reports**\
+`The British police on Thursday arrested Andrew Mountbatten-Windsor on suspicion of criminal activity linked to the Epstein files.`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein
 
-**Who Would Win Gold in the Coward Olympics?**\
-`There are a lot of potential contestants.`\
-https://nytimes.com/2026/02/19/opinion/newsom-mamdani-democrats-taxes.html
+**Teen Tiny Memoirs: The Winners of Our 4th Annual 100-Word Narrative Contest**\
+`We invited teenagers to write miniature memoirs about meaningful moments in their lives. Read the 17 winning stories, selected from over 14,000 submissions.`\
+https://nytimes.com/2026/02/19/learning/tiny-memoir-contest-winners.html
 
-**Top Concern in Avalanche Recovery Effort Is Now Safety of Searchers**\
-`Weather and snow conditions will dictate when the bodies of skiers killed in the avalanche near Lake Tahoe can be retrieved from mountain. More snow is expected.`\
-https://nytimes.com/2026/02/19/us/top-concern-in-avalanche-recovery-effort-is-now-safety-of-searchers.html
+**MLB rookies to watch this spring: 20 players poised make an impact in 2026**\
+`The potential MLB rookie class is extremely deep. These 20 prospects, in particular, are worth monitoring closely this spring.`\
+https://nytimes.com/athletic/7052989/2026/02/19/mlb-rookies-to-watch-2026-jim-bowden/
 
-**The Future Is Indian**\
-`Why the next 30 years belong to a deal-making great power.`\
-https://nytimes.com/2026/02/19/opinion/interesting-times-amitav-acharya.html
+**The New York Times International Edition in Print for Friday, Feb. 20, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/19/todays-new-york-times-international-edition
 
