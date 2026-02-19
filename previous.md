@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7058020/2026/02/19/winter-olympics-curling-usa-tabi
 
 **King Charles Attends a Fashion Event**\
 `His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
-https://nytimes.com/2026/02/19/world/europe/king-charles-attends-a-fashion-event.html
+https://nytimes.com/2026/02/19/world/europe/king-charles-fashion-event-prince-andrew.html
 
 **With a Golden Gavel and a Threat to Iran, Trump Launches His Board of Peace**\
 `The first gathering of President Trump’s alternative to the United Nations is a manifestation of a Trump World Order.`\

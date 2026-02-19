@@ -1,3 +1,7 @@
+**King Charles Attends a Fashion Event**\
+`His appearance comes after a statement of support for the investigation into his brother Andrew Mountbatten-Windsor on suspicion of misconduct in public office.`\
+https://nytimes.com/2026/02/19/world/europe/king-charles-fashion-event-prince-andrew.html
+
 **Judge Condemns ‘Terror Against Noncitizens’ and Orders Hearings for Detainees**\
 `As tensions mount between the Trump administration and the courts, the judge called “shameless” a claim by officials that her earlier order was not binding.`\
 https://nytimes.com/2026/02/19/us/politics/judge-immigrants-notice-lawsuits.html
