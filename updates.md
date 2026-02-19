@@ -1,3 +1,7 @@
+**12 Steps and Cups of Coffee: Sobriety Has Its Moment Onstage**\
+`Plays about addiction are filling Manhattan stages this month, depicting very different places on the recovery spectrum, from harrowing to serene.`\
+https://nytimes.com/2026/02/19/theater/dinosaurs-blackout-songs-reservoir-anonymous.html
+
 **What did we learn from Jaden Rashada's $13.85 million dispute with Florida?**\
 `Three final thoughts after 21 months of Rashada and Florida litigation and conversations this week with a handful of NIL agents`\
 https://nytimes.com/athletic/7057731/2026/02/19/jaden-rashada-nil-settlement-florida-college-sports/

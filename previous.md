@@ -1,3 +1,7 @@
+**12 Steps and Cups of Coffee: Sobriety Has Its Moment Onstage**\
+`Plays about addiction are filling Manhattan stages this month, depicting very different places on the recovery spectrum, from harrowing to serene.`\
+https://nytimes.com/2026/02/19/theater/dinosaurs-blackout-songs-reservoir-anonymous.html
+
 **What did we learn from Jaden Rashada's $13.85 million dispute with Florida?**\
 `Three final thoughts after 21 months of Rashada and Florida litigation and conversations this week with a handful of NIL agents`\
 https://nytimes.com/athletic/7057731/2026/02/19/jaden-rashada-nil-settlement-florida-college-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/arts/music/jose-van-dam-dead.html
 **A Rare Glimpse of a Sleeper Shark in Antarctic Waters**\
 `Researchers filmed a 10-to-13-foot sleeper shark off the South Shetland Islands, in what may be the first recording of the species that far south.`\
 https://nytimes.com/2026/02/19/world/australia/sleeper-shark-antarctica-sighting.html
-
-**Chance of Bears moving to Indiana takes 'a meaningful step forward'**\
-`The passage of Indiana Senate Bill 27 out of committee adds to the possibility of a new stadium near the Wolf Lake area in Hammond, Indiana.`\
-https://nytimes.com/athletic/7057654/2026/02/19/bears-indiana-stadium-possibility/
 

@@ -14,7 +14,7 @@ https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
 `There is simply no blueprint for how to react to the arrest of a close relative of the king who until recently had played a senior role, and who could may be charged and put on trial, experts on the royals said.`\
 https://nytimes.com/2026/02/19/world/europe/andrew-mountbatten-windsor-royal-family-public-relations.html
 
-**Jordan Stolz settles for silver in 1,500-meter speedskating race in an upset**\
+**Jordan Stolz picks up third medal at Milan Olympics with silver in speedskating 1500m**\
 `Stolz's silver in the 1,500-meter race comes after his gold medal performances in the 1000m and the 500m.`\
 https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
 
