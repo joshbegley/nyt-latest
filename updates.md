@@ -1,3 +1,7 @@
+**Video Shows Rare Sighting of Sleeper Shark in Antarctic Waters**\
+`During an expedition in early 2025, researchers at the University of Western Australia captured footage of a sleeper shark swimming in Antarctic waters. It may be the first recording of that species that far south.`\
+https://nytimes.com/video/world/100000010719943/sleeper-shark-rare-sighting-antarctica-.html
+
 **José van Dam, Suave and Riveting Opera Star, Dies at 85**\
 `One of the most esteemed singers of his era, he had a wide repertoire that included Mozart, Wagner and the title role in Messiaen’s epic “St. François d’Assise.”`\
 https://nytimes.com/2026/02/19/arts/music/jose-van-dam-dead.html
