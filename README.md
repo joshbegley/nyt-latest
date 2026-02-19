@@ -1,3 +1,7 @@
+**Alysa Liu’s comeback ends in gold.**\
+`Liu became the first American to win a medal in women’s figure skating since 2006. `\
+https://nytimes.com/2026/02/19/world/alysa-liu-skating-gold.html
+
 **Former Prince Andrew is the most senior British royal to have been arrested in modern times.**\
 `By Isabella Kwai`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former-prince-andrew-is-the-most-senior-british-royal-to-have-been-arrested-in-modern-times
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/europe/anti-monarchy-republic-andrew-epstei
 **What’s Behind Anti-Indian Backlash in America?**\
 `“Americans don’t know much about India,” says the international relations scholar Amitav Acharya. He tells Ross Douthat on “Interesting Times” that Indian dominance in Silicon Valley is another major factor.`\
 https://nytimes.com/video/opinion/100000010708360/whats-behind-anti-indian-backlash-in-america.html
-
-**Guardians to experiment with Gold Glove-winning left fielder Steven Kwan in center field**\
-`The Guardians will experiment with Kwan in center on occasion this spring, although nothing is definitive yet.`\
-https://nytimes.com/athletic/7057992/2026/02/19/guardians-steven-kwan-gold-glove-center-field/
 
