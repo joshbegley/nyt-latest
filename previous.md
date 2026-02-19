@@ -1,5 +1,5 @@
 **Jordan Stolz settles for silver in 1,500-meter speedskating race in an upset**\
-`MILAN – As the 1,500-meter Olympic record kept falling early Thursday evening at Milano Speed Skating Arena, the capacity crowd kept waiting for two-time gold medal winner Jordan Stolz to do what he’s done this entire Olympics: come from behind to win.`\
+`Stolz's silver in the 1,500-meter race comes after his gold medal performances in the 1000m and the 500m.`\
 https://nytimes.com/athletic/7057851/2026/02/19/jordan-stolz-winter-olympics-1500m-speedskating-silver/
 
 **A Press Freedom Case in Peril, From a Lawyer Who Helped Write It**\
