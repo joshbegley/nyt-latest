@@ -1,3 +1,7 @@
+**Want to Age Well at Home? Take Our Room-by-Room Tour.**\
+`Aging in place — growing old in your own home rather than a nursing home — offers a lot of benefits.`\
+https://nytimes.com/wirecutter/reviews/aging-in-place/
+
 **How The Times Covered the Fast-Moving Arrest of Former Prince Andrew**\
 `Andrew Mountbatten-Windsor was arrested on suspicion of misconduct in public office, then released hours later. Two Times reporters explain how they are covering the unprecedented moment.`\
 https://nytimes.com/2026/02/19/insider/prince-andrew-arrest-new-york-times.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrest-epstein.html
 **The uproar over former Prince Andrew’s Epstein ties casts a shadow over the royal family.**\
 `The arrest of the former prince could shake public confidence in the monarchy.`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/prince-andrew-epstein-royal-family
-
-**The Former Prince Andrew Is Arrested**\
-`Also, Trump hints at the possibility of military action in Iran. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/02/19/briefing/former-prince-andrew-trade-deficit.html
 

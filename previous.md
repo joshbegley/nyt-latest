@@ -1,4 +1,8 @@
-**Cooper Flagg still out with foot sprain as Mavs seek to end losing streak against Wolves**\
+**How The Times Covered the Fast-Moving Arrest of Former Prince Andrew**\
+`Andrew Mountbatten-Windsor was arrested on suspicion of misconduct in public office, then released hours later. Two Times reporters explain how they are covering the unprecedented moment.`\
+https://nytimes.com/2026/02/19/insider/prince-andrew-arrest-new-york-times.html
+
+**Cooper Flagg still out with foot sprain as Mavs seek to end 9-game slide**\
 `The rookie wasn't wearing the walking boot he had on during a weekend visit to North Carolina to watch Duke play.`\
 https://nytimes.com/athletic/7058746/2026/02/19/cooper-flagg-out-foot-sprain-mavericks-wolves/
 
@@ -14,8 +18,8 @@ https://nytimes.com/2026/02/19/nyregion/donlon-lawsuit-nypd.html
 `At the inaugural meeting of his new organization, President Trump also endorsed a divisive foreign leader and heard an attack on his former prosecutor, Jack Smith.`\
 https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace.html
 
-**Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus an El Clasico meeting**\
-`Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await.`\
+**Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus a Clasico meeting**\
+`Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await`\
 https://nytimes.com/athletic/7058566/2026/02/19/womens-champions-league-arsenal-manchester-united-el-clasico/
 
 **With ‘Tremendous’ Deals at Stake, Trump Is Bringing Russia in From the Cold**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/prince
 **The Former Prince Andrew Is Arrested**\
 `Also, Trump hints at the possibility of military action in Iran. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/02/19/briefing/former-prince-andrew-trade-deficit.html
-
-**Catching up with budding media personality Koji Uehara, plus Red Sox notes**\
-`Plus a look at the Red Sox's camp standouts, early spring training pitching plans and why the team traded for Johan Oviedo.`\
-https://nytimes.com/athletic/7058558/2026/02/19/koji-uehara-media-personality-red-sox/
 

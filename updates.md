@@ -1,3 +1,15 @@
+**How The Times Covered the Fast-Moving Arrest of Former Prince Andrew**\
+`Andrew Mountbatten-Windsor was arrested on suspicion of misconduct in public office, then released hours later. Two Times reporters explain how they are covering the unprecedented moment.`\
+https://nytimes.com/2026/02/19/insider/prince-andrew-arrest-new-york-times.html
+
+**Cooper Flagg still out with foot sprain as Mavs seek to end 9-game slide**\
+`The rookie wasn't wearing the walking boot he had on during a weekend visit to North Carolina to watch Duke play.`\
+https://nytimes.com/athletic/7058746/2026/02/19/cooper-flagg-out-foot-sprain-mavericks-wolves/
+
+**Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus a Clasico meeting**\
+`Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await`\
+https://nytimes.com/athletic/7058566/2026/02/19/womens-champions-league-arsenal-manchester-united-el-clasico/
+
 **Cooper Flagg still out with foot sprain as Mavs seek to end losing streak against Wolves**\
 `The rookie wasn't wearing the walking boot he had on during a weekend visit to North Carolina to watch Duke play.`\
 https://nytimes.com/athletic/7058746/2026/02/19/cooper-flagg-out-foot-sprain-mavericks-wolves/
