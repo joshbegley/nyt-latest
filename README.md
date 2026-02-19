@@ -1,3 +1,7 @@
+**Daniil Medvedev, Stefanos Tsitsipas and how a tennis rivalry full of needle grew weary**\
+`Two players who have delivered some memorable on-court clashes have slowly become emblems of a sport passing them by.`\
+https://nytimes.com/athletic/7055123/2026/02/19/tennis-rivalry-medvedev-tsitsipas-history/
+
 **Phillies roster projection 1.0: Filling out the bullpen and bench**\
 `In the estimation of club officials, the Phillies have four undecided roster spots. Here's our initial projection — and what to watch.`\
 https://nytimes.com/athletic/7055719/2026/02/19/phillies-roster-projection-opening-day-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055873/2026/02/19/nick-foligno-blackhawks-trade-de
 **This Week in Sports Trivia: February 19, 2026**\
 `How closely were you following the sports news this week? Find out and test your knowledge by taking The Athletic's weekly quiz.`\
 https://nytimes.com/athletic/7055593/2026/02/19/this-week-in-sports-trivia-february-19-2026/
-
-**Sixers face looming questions coming out of break, starting with Joel Embiid**\
-`Embiid will miss Philadelphia's first game out of the All-Star break Thursday, the third straight he'll sit out with a sore right shin.`\
-https://nytimes.com/athletic/7057066/2026/02/19/joel-embiid-sixers-health-questions/
 
