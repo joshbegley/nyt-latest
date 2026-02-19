@@ -1,3 +1,7 @@
+**Thirty years ago, the trial of another ousted leader gripped South Korea.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
+
 **South Korea’s Yoon Sentenced to Life in Prison**\
 `Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
 https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
 **Word of the Day: concise**\
 `This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
-
-**Stephen Colbert Sizes Up R.F.K. Jr.’s Workout With Kid Rock**\
-`“The Late Show” host called the 90-second video of the two working up a sweat together “pure cinema.”`\
-https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-workout.html
 

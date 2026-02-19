@@ -1,3 +1,7 @@
+**Thirty years ago, the trial of another ousted leader gripped South Korea.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
+
 **South Korea’s Yoon Sentenced to Life in Prison**\
 `Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
 https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
