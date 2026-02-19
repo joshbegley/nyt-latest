@@ -1,40 +1,40 @@
-**Man Utd to provide free coach travel for fans for Bournemouth trip**\
-`The game on Friday, April 20 is the latest to have been shifted to a time that is potentially inconvenient for travelling fans.`\
-https://nytimes.com/athletic/7057137/2026/02/19/manchester-united-coach-travel-free-bournemouth/
+**Ring’s Founder Knows You Hated That Super Bowl Ad**\
+`Since the commercial aired, Jamie Siminoff has been trying to quell an outcry over privacy concerns with his doorbell cameras.`\
+https://nytimes.com/2026/02/19/business/ring-super-bowl-ad-privacy.html
 
-**Thirty years ago, the trial of another ousted leader gripped South Korea.**\
-`By Choe Sang-Hun`\
-https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/thirty-years-ago-the-trial-of-another-ousted-leader-gripped-south-korea
+**There’s Nothing Sexy About ‘Wuthering Heights’**\
+`Why can’t the greatest love story of all time get the job done?`\
+https://nytimes.com/2026/02/19/podcasts/theres-nothing-sexy-about-wuthering-heights.html
 
-**South Korea’s Yoon Sentenced to Life in Prison**\
-`Yoon Suk Yeol, the former president of South Korea, was sentenced to life imprisonment on Thursday for leading an insurrection when he declared martial law in 2024.`\
-https://nytimes.com/video/world/asia/100000010722138/yoon-korea-martial-law-president.html
+**‘Skin Orgasms for Everyone’: Highlights of the Winter Olympics So Far**\
+`Three writers and an Olympic medalist on the grit and grace of the winter games.`\
+https://nytimes.com/2026/02/19/opinion/winter-olympics-roundtable.html
 
-**What's on an Olympic ski jumper's mind as they sit on the bar, waiting for their turn?**\
-`What runs through their mind in the moments before jumping? Spoiler: for many of them, nothing.`\
-https://nytimes.com/athletic/7052472/2026/02/19/winter-olympics-ski-jumping-bar-turn/
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in Gramercy, Yorkville and Downtown Brooklyn.`\
+https://nytimes.com/2026/02/19/realestate/homes-for-sale-new-york-city.html
 
-**Alysa Liu Is Skating Again, Her Way This Time**\
-`At 16, out of love with the sport, Liu stepped away. Controlling her career, after years of oversight from her father, was the only way she could return.`\
-https://nytimes.com/2026/02/19/world/olympics/olympics-alysa-liu-figure-skating.html
+**She Wanted a Quiet House in the Berkshires for About $800,000**\
+`Seeking a home with lower carrying costs and situated closer to family, a photographer looked in three Western Massachusetts towns.`\
+https://nytimes.com/interactive/2026/02/19/realestate/berkshire-mountains-massachusetts-homes.html
 
-**Why Prosecutors in Sex-Crime Cases Often Turn to Trafficking Laws**\
-`Lawyers build cases around these laws because the statutes are broad and use language that can encompass a variety of crimes, according to experts.`\
-https://nytimes.com/2026/02/19/nyregion/sex-trafficking-federal-charges.html
+**California Needs to Count Votes Faster**\
+`The slow counting of votes is a classic example of the perfect being the enemy of the good.`\
+https://nytimes.com/2026/02/19/opinion/california-elections-vote-count-slow.html
 
-**How Kansas City became the base camp capital for the World Cup – and its top contenders**\
-`When it comes to destination U.S. cities, Kansas City isn't at the top of many lists. So how did it become such a desired World Cup base?`\
-https://nytimes.com/athletic/7052907/2026/02/19/kansas-city-world-cup-training-base-argentina-england-netherlands/
+**Lively v. Baldoni Tests What Crosses the Line on a ‘Steamy’ Movie Set**\
+`An affectionate slow dance. References to pornography. What rises to harassment on the set of a movie about a sexual relationship that turns violent?`\
+https://nytimes.com/2026/02/19/arts/lively-v-baldoni-tests-what-crosses-the-line-on-a-steamy-movie-set.html
 
-**A Child Misses 3 Weeks of School. Should Protective Services Step In?**\
-`A growing number of states are debating whether to alter their policies on summoning child protection officials if a student has excessive absences.`\
-https://nytimes.com/2026/02/19/nyregion/school-absences-child-protection.html
+**How Jesse Jackson Enhanced Black Political Power in New York**\
+`The Rev. Jesse Jackson, who died this week, ran for president twice, leading more Black voters to register. The year after his second run, a Black mayor, David Dinkins, won in New York.`\
+https://nytimes.com/2026/02/19/nyregion/jesse-jackson-david-dinkins.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/19/crosswords/spelling-bee-forum.html
+**Do You Feel Too Much Academic Pressure?**\
+`In South Korea, academic competition has become so intense that even preschoolers are taking private extracurricular classes. Can you relate?`\
+https://nytimes.com/2026/02/19/learning/do-you-feel-too-much-academic-pressure.html
 
-**After Avalanche Warnings, a Sierra Nevada Tragedy**\
-`Eight skiers were killed and one other was presumed dead in the deadliest snow disaster in modern California history. Six were found alive.`\
-https://nytimes.com/2026/02/19/nyregion/avalanche-lake-tahoe-deaths.html
+**Why Is Trump Dumping East Wing Rubble in a Public Park?**\
+`The East Potomac Golf Links is a municipal course that has been a fixture in Washington for decades. President Trump is turning it into something else.`\
+https://nytimes.com/2026/02/19/us/politics/trump-east-wing-rubble-in-a-public-park.html
 
