@@ -1,3 +1,15 @@
+**Ex-Police Commissioner’s Lawsuit Against New York City Is Dismissed**\
+`Thomas G. Donlon had claimed he was fired for exposing corruption within the Police Department and City Hall. He briefly served as interim commissioner under Mayor Eric Adams in 2024.`\
+https://nytimes.com/2026/02/19/nyregion/donlon-lawsuit-nypd.html
+
+**Trump’s Board of Peace Promises Billions for Gaza, With Few Details**\
+`At the inaugural meeting of his new organization, President Trump also endorsed a divisive foreign leader and heard an attack on his former prosecutor, Jack Smith.`\
+https://nytimes.com/2026/02/19/us/politics/trump-board-of-peace.html
+
+**British Police Arrest Former Prince Andrew, in Stunning Blow to Royal Family**\
+`Andrew Mountbatten-Windsor, a longtime associate of Jeffrey Epstein, is being investigated on suspicion of misconduct in public office.`\
+https://nytimes.com/2026/02/19/world/europe/prince-andrew-arrest-epstein.html
+
 **Women's Champions League quarter-finals set: Arsenal to meet Chelsea, plus an El Clasico meeting**\
 `Arsenal, Real Madrid, Manchester United and Wolfsburg are through to the Champions League quarter-finals, where tough tests await.`\
 https://nytimes.com/athletic/7058566/2026/02/19/womens-champions-league-arsenal-manchester-united-el-clasico/
