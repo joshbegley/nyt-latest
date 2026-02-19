@@ -1,3 +1,7 @@
+**Word of the Day: concise**\
+`This word has appeared in 111 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/19/learning/word-of-the-day-concise.html
+
 **Stephen Colbert Sizes Up R.F.K. Jr.’s Workout With Kid Rock**\
 `“The Late Show” host called the 90-second video of the two working up a sweat together “pure cinema.”`\
 https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-workout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056154/2026/02/19/milan-cortina-winter-olympics-wh
 **The art of visualization: What is it, and how does it help Olympic athletes?**\
 `Several athletes at the Olympics have looked as if they're dancing just before they set off to compete, but they are visualizing. `\
 https://nytimes.com/athletic/7054472/2026/02/19/olympic-athletes-visualization-lindsey-vonn-eileen-gu/
-
-**Newcastle asked questions of themselves. Anthony Gordon provided an answer**\
-`Is Anthony Gordon having a great season or a mediocre one? The tone around him and Newcastle has changed these past days`\
-https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag-analysis/
 
