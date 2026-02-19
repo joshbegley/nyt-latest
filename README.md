@@ -1,3 +1,7 @@
+**Stephen Colbert Sizes Up R.F.K. Jr.’s Workout With Kid Rock**\
+`“The Late Show” host called the 90-second video of the two working up a sweat together “pure cinema.”`\
+https://nytimes.com/2026/02/19/arts/television/stephen-colbert-rfk-kid-rock-workout.html
+
 **Hornets' LaMelo Ball involved in car crash in downtown Charlotte: Source**\
 `The camouflage-colored, custom-made Hummer that collided with another car was Ball's vehicle, according to a league source.`\
 https://nytimes.com/athletic/7056681/2026/02/19/lamelo-ball-car-crash-charlotte-hornets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7054472/2026/02/19/olympic-athletes-visualization-l
 **Newcastle asked questions of themselves. Anthony Gordon provided an answer**\
 `Is Anthony Gordon having a great season or a mediocre one? The tone around him and Newcastle has changed these past days`\
 https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag-analysis/
-
-**Chido Obi shows the need for patience for Man Utd youngsters as JJ Gabriel makes his mark**\
-`Obi and Gabriel both scored as Manchester United won their FA Youth Cup match on Wednesday`\
-https://nytimes.com/athletic/7056149/2026/02/19/chido-obi-jj-gabriel-manchester-united/
 

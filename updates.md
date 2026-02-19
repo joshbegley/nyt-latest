@@ -1,3 +1,7 @@
+**Hornets' LaMelo Ball involved in car crash in downtown Charlotte: Source**\
+`The camouflage-colored, custom-made Hummer that collided with another car was Ball's vehicle, according to a league source.`\
+https://nytimes.com/athletic/7056681/2026/02/19/lamelo-ball-car-crash-charlotte-hornets/
+
 **Bernie Sanders Urges Support of California Billionaire Tax at Los Angeles Rally**\
 `The senator from Vermont was the only elected leader at the event, which formally kicked off a health care union’s campaign to put the tax proposal on the ballot.`\
 https://nytimes.com/2026/02/19/us/bernie-sanders-california-billionaire-tax.html
