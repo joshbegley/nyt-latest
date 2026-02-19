@@ -1,3 +1,19 @@
+**TV presenter apologises for drinking before viral Olympics broadcast**\
+`Danika Mason was doing a live round-up when she went off topic to the "price of coffee" and "iguanas" while slurring her words. `\
+https://nytimes.com/athletic/7057159/2026/02/19/winter-olympics-tv-presenter-apology-drinking/
+
+**Life in Italy**\
+`The ultimate journey and the ultimate destination await. Discover life in Italy from stories of past guests and staff of Belmond’s Italian properties.`\
+https://nytimes.com/paidpost/belmond/life-in-italy.html
+
+**Liverpool's Isak expected to be fit 'around end of March' - Slot**\
+`The striker is back training on the grass and working towards a return from a broken leg in late March or early April.`\
+https://nytimes.com/athletic/7057195/2026/02/19/alexander-isak-liverpool-return/
+
+**Awards Watch: Where do All-NBA teams stand coming out of the All-Star break?**\
+`We haven't had many games since our last check-in, so let's examine some other postseason honors.`\
+https://nytimes.com/athletic/7052659/2026/02/19/awards-watch-all-nba-teams-gilgeous-alexander-jokic-wembanyama/
+
 **Van Gogh and the Meaning of Yellow**\
 `The artist gave prominence to the color during a happy period that produced some of his most famous works. But it can have many different associations, a new exhibition shows.`\
 https://nytimes.com/2026/02/19/arts/van-gogh-museum-yellow.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/19/us/top-concern-in-avalanche-recovery-effort-is-no
 **The Future Is Indian**\
 `Why the next 30 years belong to a deal-making great power.`\
 https://nytimes.com/2026/02/19/opinion/interesting-times-amitav-acharya.html
-
-**How Trump Is Making Sure His Ballroom Plans Sail Through**\
-`President Trump has installed allies — including his former receptionist — on the boards and commissions tasked with overseeing the project.`\
-https://nytimes.com/2026/02/19/us/politics/how-trump-is-making-sure-his-ballroom-plans-sail-through.html
-
-**Uber Moves to Enact Stricter Background Checks for Drivers**\
-`The New York Times revealed in December that the ride-hailing giant approved drivers with many types of criminal convictions, including violent felonies.`\
-https://nytimes.com/2026/02/19/business/uber-moves-to-enact-stricter-background-checks-for-drivers.html
-
-**Ring’s Founder Knows You Hated That Super Bowl Ad**\
-`Since the commercial aired, Jamie Siminoff has been trying to quell an outcry over privacy concerns with his doorbell cameras.`\
-https://nytimes.com/2026/02/19/business/ring-super-bowl-ad-privacy.html
-
-**There’s Nothing Sexy About ‘Wuthering Heights’**\
-`Why can’t the greatest love story of all time get the job done?`\
-https://nytimes.com/2026/02/19/podcasts/theres-nothing-sexy-about-wuthering-heights.html
 
