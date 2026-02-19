@@ -1,3 +1,7 @@
+**Epstein Built Ties to U.S. Customs Officers, Sparking Criminal Investigation**\
+`Jeffrey Epstein cultivated friendly relationships with several customs officers in the U.S. Virgin Islands, offering food, advice and even musical gigs.`\
+https://nytimes.com/2026/02/19/us/epstein-cbp.html
+
 **Infantino claims FIFA received more than one million ticket requests for 77 World Cup games**\
 `The FIFA president also suggested that every match at the tournament will be sold out.`\
 https://nytimes.com/athletic/7058071/2026/02/19/gianni-infantino-fifa-world-cup-games-tickets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057685/2026/02/19/chiefs-restructure-mahomes-cap-s
 **Another Storm Complicates Efforts to Recover Victims of Tahoe Avalanche**\
 `The sheriff’s office in Nevada County, Calif., said a storm that moved through early Thursday has slowed their work.`\
 https://nytimes.com/2026/02/19/weather/recovery-efforts-tahoe-avalanche-more-snow.html
-
-**British Police Arrest Former Prince Andrew Amid Epstein Revelations**\
-`British authorities arrested Andrew Mountbatten-Windsor on Thursday on suspicion of misconduct in public office following the latest release of documents linked to the disgraced financier and convicted sex offender Jeffrey Epstein.`\
-https://nytimes.com/video/world/europe/100000010722434/uk-prince-andrew-arrest-epstein.html
 
