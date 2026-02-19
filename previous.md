@@ -1,3 +1,15 @@
+**Bill Gates Cancels a Keynote Speech Amid Epstein Controversy**\
+`The philanthropist made the announcement on Thursday, after having earlier confirmed his participation in a prominent artificial intelligence summit in India.`\
+https://nytimes.com/2026/02/19/business/bill-gates-epstein-india-ai-summit.html
+
+**New York Fashion Week in 60 Seconds**\
+`Our chief fashion critic, Vanessa Friedman, reflects on New York Fashion Week.`\
+https://nytimes.com/video/style/100000010722954/new-york-fashion-week-in-60-seconds-nyfw.html
+
+**‘Portobello’ Review: When Italy’s Biggest TV Star Was Canceled**\
+`An HBO Max series tells the surreal true story of Enzo Tortora, brought down overnight by false accusations of being a member of the mob.`\
+https://nytimes.com/2026/02/19/arts/television/portobello-review.html
+
 **Tariffs and American Wine: Additional Costs, Export Trouble and Hostility**\
 `One year in, many producers say tariffs have not helped them, and some countries are rejecting U.S. wine altogether.`\
 https://nytimes.com/2026/02/19/dining/drinks/trump-tariffs-us-wine.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/dining/100000010720609/chocolate-pudding-cups.html
 **Pork and Garlic-Chive Potstickers**\
 `It’s Dumpling Week at New York Times Cooking and Sue Li, a Cooking contributor, is here with her recipe for pork and garlic-chive potstickers.`\
 https://nytimes.com/video/dining/100000010720607/pork-and-garlic-chive-potstickers.html
-
-**12 Steps and Cups of Coffee: Sobriety Has Its Moment Onstage**\
-`Plays about addiction are filling Manhattan stages this month, depicting very different places on the recovery spectrum, from harrowing to serene.`\
-https://nytimes.com/2026/02/19/theater/dinosaurs-blackout-songs-reservoir-anonymous.html
-
-**What did we learn from Jaden Rashada's $13.85 million dispute with Florida?**\
-`Three final thoughts after 21 months of Rashada and Florida litigation and conversations this week with a handful of NIL agents`\
-https://nytimes.com/athletic/7057731/2026/02/19/jaden-rashada-nil-settlement-florida-college-sports/
-
-**Doing Your Taxes? We Want to Hear From You.**\
-`The New York Times is looking to speak to Americans about how the most recent tax cuts are affecting their pocketbooks.`\
-https://nytimes.com/2026/02/19/us/politics/tax-return-refund.html
 
