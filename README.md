@@ -1,3 +1,7 @@
+**Hornets' LaMelo Ball involved in car crash in downtown Charlotte: Source**\
+`The camouflage-colored, custom-made Hummer that collided with another car was Ball's vehicle, according to a league source.`\
+https://nytimes.com/athletic/7056681/2026/02/19/lamelo-ball-car-crash-charlotte-hornets/
+
 **Bernie Sanders Urges Support of California Billionaire Tax at Los Angeles Rally**\
 `The senator from Vermont was the only elected leader at the event, which formally kicked off a health care union’s campaign to put the tax proposal on the ballot.`\
 https://nytimes.com/2026/02/19/us/bernie-sanders-california-billionaire-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056064/2026/02/19/newcastle-anthony-gordon-qarabag
 **Chido Obi shows the need for patience for Man Utd youngsters as JJ Gabriel makes his mark**\
 `Obi and Gabriel both scored as Manchester United won their FA Youth Cup match on Wednesday`\
 https://nytimes.com/athletic/7056149/2026/02/19/chido-obi-jj-gabriel-manchester-united/
-
-**Jesse Derry: Chelsea's latest debutant on the pitch — and as Stamford the Lion**\
-`Jesse Derry made his Chelsea debut against Hull City on Friday, having joined the club from Crystal Palace last summer`\
-https://nytimes.com/athletic/7054646/2026/02/19/jesse-derry-chelsea-debutant-stamford-lion/
 
