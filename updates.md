@@ -1,3 +1,7 @@
+**At the Winter Olympics, full gender equality remains a work in progress**\
+`The IOC has made strides toward gender equality, but many of the competition formats aren't there yet. Some think that's just fine.`\
+https://nytimes.com/athletic/7052978/2026/02/19/winter-olympics-gender-equality-skiing-biathlon/
+
 **Coutinho announces Vasco exit: 'I'm mentally exhausted'**\
 `The 33-year-old's contract was due to run until June.`\
 https://nytimes.com/athletic/7057235/2026/02/19/philippe-coutinho-brazil-vasco-da-gama/

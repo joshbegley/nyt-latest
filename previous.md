@@ -1,3 +1,7 @@
+**At the Winter Olympics, full gender equality remains a work in progress**\
+`The IOC has made strides toward gender equality, but many of the competition formats aren't there yet. Some think that's just fine.`\
+https://nytimes.com/athletic/7052978/2026/02/19/winter-olympics-gender-equality-skiing-biathlon/
+
 **Coutinho announces Vasco exit: 'I'm mentally exhausted'**\
 `The 33-year-old's contract was due to run until June.`\
 https://nytimes.com/athletic/7057235/2026/02/19/philippe-coutinho-brazil-vasco-da-gama/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7054045/2026/02/19/genesis-invitational-2026-tee-ti
 **Brian Schottenheimer: Cowboys 'hit a home run' with new DC Christian Parker**\
 `Parker says stopping the run and affecting the quarterback are his top core beliefs with the defense.`\
 https://nytimes.com/athletic/7056834/2026/02/19/cowboys-christian-parker-defensive-coordinator-schottenheimer/
-
-**Jazz Chisholm Jr.'s goals for 2026: MVP, Gold Glove, Silver Slugger and ... 50-50 Club**\
-`As Chisholm prepares for his free-agent walk year, his goals are nothing if not ambitious. In his mind, he can be the best player in MLB.`\
-https://nytimes.com/athletic/7053183/2026/02/19/jazz-chisholm-yankees-2026-goals/
 
