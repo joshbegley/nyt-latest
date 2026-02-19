@@ -1,3 +1,7 @@
+**Austrian Man Found Guilty in Girlfriend’s Death on Mountain Hike**\
+`Thomas Plamberger was given a suspended prison sentence and fined in a case that tested the limits of personal responsibility in mountaineering.`\
+https://nytimes.com/2026/02/19/world/europe/austrian-man-girlfriend-death-mountain-hike-guilty.html
+
 **The Artist Documenting Women’s Lives, One Encounter at a Time**\
 `For a decade, Clémence Polès Farhang asked women on city streets if she could take their picture. This week, the photographs had their first exhibition.`\
 https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/02/19/style/clemence-poles-farhang-passerby.html
 https://nytimes.com/athletic/7058478/2026/02/19/laila-edwards-usa-hockey-history-gold-medal/
 
 **Alysa Liu becomes first American woman to win Olympic figure skating gold in 24 years**\
-`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer.`\
+`Liu won gold with a rousing routine to "MacArthur Park" by Donna Summer. Kaori Sakamoto and Ami Nakai, both of Japan, won silver and bronze.`\
 https://nytimes.com/athletic/7058382/2026/02/19/alysa-liu-figure-skating-winter-olympics-gold/
 
 **Complaint About Andrew’s Conduct Came From an Anti-Monarchy Group**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010708359/is-the-world-underestimating-i
 **How much snow is too much at a Winter Olympics? It depends ...**\
 `Heavy snowfall in northern Italy led to the disruption of the Olympic schedule Thursday.`\
 https://nytimes.com/athletic/7058112/2026/02/19/winter-olympics-snow-disruption-events-postponed/
-
-**Labor Secretary’s Husband Barred From the Department After Sexual Assault Reports**\
-`At least two female staff members said Dr. Shawn DeRemer had touched them inappropriately at the agency in Washington.`\
-https://nytimes.com/2026/02/19/business/labor-secretary-husband-sexual-assault-allegations.html
 
