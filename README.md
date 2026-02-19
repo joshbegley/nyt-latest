@@ -1,3 +1,7 @@
+**José van Dam, Suave and Riveting Opera Star, Dies at 85**\
+`One of the most esteemed singers of his era, he had a wide repertoire that included Mozart, Wagner and the title role in Messiaen’s epic “St. François d’Assise.”`\
+https://nytimes.com/2026/02/19/arts/music/jose-van-dam-dead.html
+
 **A Rare Glimpse of a Sleeper Shark in Antarctic Waters**\
 `Researchers filmed a 10-to-13-foot sleeper shark off the South Shetland Islands, in what may be the first recording of the species that far south.`\
 https://nytimes.com/2026/02/19/world/australia/sleeper-shark-antarctica-sighting.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/02/19/world/australia/sleeper-shark-antarctica-sighting
 `The passage of Indiana Senate Bill 27 out of committee adds to the possibility of a new stadium near the Wolf Lake area in Hammond, Indiana.`\
 https://nytimes.com/athletic/7057654/2026/02/19/bears-indiana-stadium-possibility/
 
-**Eagles' All-Pro tackle Lane Johnson says he's returning for 14th NFL season**\
+**Eagles' All-Pro tackle Lane Johnson returning for 14th NFL season**\
 `Johnson missed the final seven games and the playoffs with a foot injury, leading to some questions about potential retirement.`\
 https://nytimes.com/athletic/7057847/2026/02/19/lane-johnson-eagles-returning-14th-season/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-fo
 **A Floating Sauna With Mountain Views**\
 `Plus: tree houses on a Danish island, a New York gallery that highlights South Asian design and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/19/t-magazine/sauna-new-zealand.html
-
-**Grant Ginder Read One Novel 7 Times While Writing His Own**\
-`James Salter’s “Light Years” had a big influence on “So Old, So Young,” his new book about college friends drifting in and out of one another’s lives.`\
-https://nytimes.com/2026/02/19/books/review/grant-ginder-so-old-so-young.html
 
