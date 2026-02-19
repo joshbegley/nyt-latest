@@ -1,3 +1,7 @@
+**Canada coach Jon Cooper won't rule out Sidney Crosby's return for Olympic semifinal**\
+`Crosby isn’t being ruled out of the Olympics by Team Canada but his status moving forward remains unclear.`\
+https://nytimes.com/athletic/7057293/2026/02/19/sidney-crosby-injury-update-olympics-hockey/
+
 **College basketball observations: Alabama-Arkansas delivers, Creighton stuns UConn and Peterson's injury saga**\
 `Plus, bubble winners and losers of the night, BYU's ceiling is shrinking and Vanderbilt's comeback falls just shot. `\
 https://nytimes.com/athletic/7057054/2026/02/19/arkansas-alabama-kansas-uconn-darryn-peterson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7051419/2026/02/19/cleveland-guardians-daniel-espin
 **Draft 'The Kyles': Tucker, Schwarber are early-round fantasy baseball gold**\
 `John Laghezza provides a blueprint for drafting in the first five rounds ahead of the 2026 fantasy baseball season. `\
 https://nytimes.com/athletic/7052845/2026/02/19/fantasy-baseball-first-five-rounds-draft/
-
-**Several members of the British elite have been named in the Epstein files.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/epstein-files-prince-andrew-uk-elite
 
