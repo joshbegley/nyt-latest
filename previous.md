@@ -1,3 +1,7 @@
+**The response from the authorities to the Epstein files has been far more aggressive in Britain.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-response-from-the-authorities-to-the-epstein-files-has-been-far-more-aggressive-in-britain
+
 **Assault on Sudanese City Bore ‘Hallmarks of Genocide,’ U.N. Finds**\
 `A paramilitary group in Sudan’s civil war “acted with genocidal intent” in a monthslong siege of El Fasher, according to human rights experts.`\
 https://nytimes.com/2026/02/19/world/africa/sudan-un-el-fasher-rsf.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7056021/2026/02/19/padres-roster-projection-depth-o
 **Cooper Flagg's debut jersey sells for $1 million**\
 `The sales sets a new record for any Flagg collectible. `\
 https://nytimes.com/athletic/7056928/2026/02/19/cooper-flagg-nba-debut-jersey-sale/
-
-**Kansas' Darryn Peterson misses final 17 minutes with cramping; 'a concern,' Bill Self says**\
-`"I thought we were past it, but obviously we're not," Self told reporters.`\
-https://nytimes.com/athletic/7057411/2026/02/19/darryn-peterson-cramping-kansas-basketball/
 

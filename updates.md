@@ -1,3 +1,7 @@
+**The response from the authorities to the Epstein files has been far more aggressive in Britain.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-response-from-the-authorities-to-the-epstein-files-has-been-far-more-aggressive-in-britain
+
 **Assault on Sudanese City Bore ‘Hallmarks of Genocide,’ U.N. Finds**\
 `A paramilitary group in Sudan’s civil war “acted with genocidal intent” in a monthslong siege of El Fasher, according to human rights experts.`\
 https://nytimes.com/2026/02/19/world/africa/sudan-un-el-fasher-rsf.html
