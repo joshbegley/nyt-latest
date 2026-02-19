@@ -1,3 +1,7 @@
+**Detroit Tigers' new alternate jerseys for 2026 pay homage to team history**\
+`The Tigers were one of two MLB teams without true dedicate alternate uniforms. The other team: the Yankees.`\
+https://nytimes.com/athletic/7056787/2026/02/19/detroit-tigers-alternate-uniform-jerseys/
+
 **The response from the authorities to the Epstein files has been far more aggressive in Britain.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-response-from-the-authorities-to-the-epstein-files-has-been-far-more-aggressive-in-britain

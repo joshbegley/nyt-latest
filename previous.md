@@ -1,3 +1,7 @@
+**Detroit Tigers' new alternate jerseys for 2026 pay homage to team history**\
+`The Tigers were one of two MLB teams without true dedicate alternate uniforms. The other team: the Yankees.`\
+https://nytimes.com/athletic/7056787/2026/02/19/detroit-tigers-alternate-uniform-jerseys/
+
 **The response from the authorities to the Epstein files has been far more aggressive in Britain.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-response-from-the-authorities-to-the-epstein-files-has-been-far-more-aggressive-in-britain
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/the-fo
 **Padres roster projection 1.0: Much-improved depth or wheel-spinning?**\
 `As of Wednesday, FanGraphs projected the Padres for 79 wins and a 22 percent chance of making the postseason.`\
 https://nytimes.com/athletic/7056021/2026/02/19/padres-roster-projection-depth-or-wheel-spinning/
-
-**Cooper Flagg's debut jersey sells for $1 million**\
-`The sales sets a new record for any Flagg collectible. `\
-https://nytimes.com/athletic/7056928/2026/02/19/cooper-flagg-nba-debut-jersey-sale/
 
