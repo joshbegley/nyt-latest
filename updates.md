@@ -1,3 +1,15 @@
+**Besides Yoon, 5 other former officials get long prison terms.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/besides-yoon-5-other-former-officials-get-long-prison-terms
+
+**Meet Boston's (other) Ray Allen: 'He can go anywhere. He's not afraid of the world'**\
+`What's it like going to school and playing basketball in Boston when your name is Ray Allen?`\
+https://nytimes.com/athletic/7044064/2026/02/19/boston-celtics-ray-allen-emerson-college/
+
+**Europe Worries About Another Trump Blowup, This One on Tech**\
+`Even as trade tensions between the United States and the European Union seem to calm, officials are concerned that a showdown is brewing over the bloc’s digital rules.`\
+https://nytimes.com/2026/02/19/world/europe/europe-united-states-trump-digital-services-act.html
+
 **Blue Jays' Kevin Gausman on winning, family and what might be his final season**\
 `Gausman could retire when his 5-year contract runs out after this season: “I think it's definitely a possibility.”`\
 https://nytimes.com/athletic/7056415/2026/02/19/blue-jays-kevin-gausman-retirement-possiblility/

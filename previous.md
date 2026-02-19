@@ -1,3 +1,15 @@
+**Besides Yoon, 5 other former officials get long prison terms.**\
+`By Choe Sang-Hun`\
+https://nytimes.com/live/2026/02/19/world/yoon-korea-martial-law-president/besides-yoon-5-other-former-officials-get-long-prison-terms
+
+**Meet Boston's (other) Ray Allen: 'He can go anywhere. He's not afraid of the world'**\
+`What's it like going to school and playing basketball in Boston when your name is Ray Allen?`\
+https://nytimes.com/athletic/7044064/2026/02/19/boston-celtics-ray-allen-emerson-college/
+
+**Europe Worries About Another Trump Blowup, This One on Tech**\
+`Even as trade tensions between the United States and the European Union seem to calm, officials are concerned that a showdown is brewing over the bloc’s digital rules.`\
+https://nytimes.com/2026/02/19/world/europe/europe-united-states-trump-digital-services-act.html
+
 **Blue Jays' Kevin Gausman on winning, family and what might be his final season**\
 `Gausman could retire when his 5-year contract runs out after this season: “I think it's definitely a possibility.”`\
 https://nytimes.com/athletic/7056415/2026/02/19/blue-jays-kevin-gausman-retirement-possiblility/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7055243/2026/02/19/samuel-hlavaj-slovakia-olympic-r
 **Jaylen Brown, Draymond Green and what the NBA gets wrong about ‘next man up’**\
 `Joe Boylan, who worked in the NBA for a decade, believes the environment changes before the player does. He's seen that up close.`\
 https://nytimes.com/athletic/7054844/2026/02/19/jaylen-brown-draymon-green-leadership-next-man-up/
-
-**Live Updates: U.K. Police Arrest Former Prince Andrew Over Epstein Ties, BBC Reports**\
-`The British police on Thursday arrested Andrew Mountbatten-Windsor on suspicion of criminal activity linked to the Epstein files.`\
-https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein
-
-**Teen Tiny Memoirs: The Winners of Our 4th Annual 100-Word Narrative Contest**\
-`We invited teenagers to write miniature memoirs about meaningful moments in their lives. Read the 17 winning stories, selected from over 14,000 submissions.`\
-https://nytimes.com/2026/02/19/learning/tiny-memoir-contest-winners.html
-
-**MLB rookies to watch this spring: 20 players poised make an impact in 2026**\
-`The potential MLB rookie class is extremely deep. These 20 prospects, in particular, are worth monitoring closely this spring.`\
-https://nytimes.com/athletic/7052989/2026/02/19/mlb-rookies-to-watch-2026-jim-bowden/
 
