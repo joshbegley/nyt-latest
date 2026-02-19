@@ -1,3 +1,11 @@
+**Police may be investigating whether the former Prince Andrew shared confidential information with Epstein.**\
+`By Megan Specia`\
+https://nytimes.com/live/2026/02/19/world/uk-prince-andrew-arrest-epstein/former-prince-andrew-epstein-files
+
+**West Virginia Claims That Apple Allows Child Sexual Abuse Material**\
+`The state’s attorney general said in a lawsuit filed on Thursday that the company declined to use tools that recognize the material stored on iCloud.`\
+https://nytimes.com/2026/02/19/technology/apple-west-virginia-lawsuit-child-sexual-abuse.html
+
 **Detroit Tigers' new alternate jerseys for 2026 pay homage to team history**\
 `The Tigers were one of two MLB teams without true dedicate alternate uniforms. The other team: the Yankees.`\
 https://nytimes.com/athletic/7056787/2026/02/19/detroit-tigers-alternate-uniform-jerseys/
