@@ -1,3 +1,7 @@
+**2026 Olympics, Day 12 recap: Shiffrin wins slalom gold, U.S. men's hockey survives OT**\
+`Shiffrin cemented her Olympic legacy with her slalom gold, while the U.S. men's hockey team punched its ticket to the semifinals. `\
+https://nytimes.com/athletic/7056168/2026/02/18/2026-winter-olympics-day-12-recap-shiffrin-hockey/
+
 **Justice Dept. Lawyer Is Found in Contempt by Federal Judge**\
 `The ruling out of Minnesota marks a new level of judicial concern about the Trump administration’s lack of compliance with judges’ orders in immigration cases.`\
 https://nytimes.com/2026/02/18/us/politics/justice-department-minnesota-contempt.html
