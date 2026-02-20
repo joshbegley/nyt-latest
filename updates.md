@@ -1,3 +1,7 @@
+**UCLA's Mick Cronin apologizes for sending Steven Jamerson to locker room during loss**\
+`Cronin said he thought Jamerson's foul was dirty in real time but acknowledged that he misjudged the play.`\
+https://nytimes.com/athletic/7060598/2026/02/20/mick-cronin-apology-ucla-steven-jamerson/
+
 **Trump blasts the tariff ruling on Truth Social.**\
 `(No description)`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/trump-blasts-the-tariff-ruling-on-truth-social
