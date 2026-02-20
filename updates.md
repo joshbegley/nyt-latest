@@ -1,3 +1,7 @@
+**Is This Private Credit’s ‘Canary in the Coal Mine’?**\
+`Steep declines in the shares of private lenders, after a major fund changed how investors can withdraw money, have sparked worries about more trouble to come.`\
+https://nytimes.com/2026/02/20/business/dealbook/private-credit-blue-owl.html
+
 **What's going on with Darryn Peterson? Kansas may worry, but NBA scouts aren't concerned**\
 `Despite playing less than 40 percent of Kansas' minutes this season, when Peterson does play, NBA evaluators continue to be wowed.`\
 https://nytimes.com/athletic/7059291/2026/02/20/darryn-peterson-kansas-basketball-questions/
