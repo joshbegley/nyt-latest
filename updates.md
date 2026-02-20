@@ -1,3 +1,15 @@
+**What are tariffs?**\
+`The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs
+
+**The Major Supreme Court Decisions in 2026**\
+`The Supreme Court is deciding a series of cases central to President Trump’s second-term agenda.`\
+https://nytimes.com/interactive/2026/02/20/us/supreme-court-major-cases-2026.html
+
+**Palace fined £50k for banner displayed by fans against Forest**\
+`An independent commission had "no hesitation" in finding the banner to be "improper, offensive, abusive, insulting and/or provocative".`\
+https://nytimes.com/athletic/7060096/2026/02/20/crystal-palace-banner-fans-forest-fine/
+
 **The Wall, Bennedict Mathurin jump-start Clippers out of the All-Star break**\
 `And after a surprising and disappointing start, LA has a chance to reach .500 against its crosstown rival.`\
 https://nytimes.com/athletic/7059541/2026/02/20/the-wall-clippers-bennedict-mathurin/
