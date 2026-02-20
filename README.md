@@ -1,3 +1,7 @@
+**'It's a huge mistake' - Kompany criticises Mourinho's comments on Vinicius Jr**\
+`After Tuesday's match, Mourinho said that “every stadium where Vinicius plays, something happens”.`\
+https://nytimes.com/athletic/7059652/2026/02/20/mourinho-vinicius-racism-kompany/
+
 **Charlie McAvoy’s Olympic diary: On U.S. women's gold and men's semifinal vs. Slovakia**\
 `Ahead of Team USA's semifinal matchup with Slovakia, McAvoy chronicles his latest Olympic adventures for The Athletic.`\
 https://nytimes.com/athletic/7059737/2026/02/20/charlie-mcavoy-olympics-diary-usa-slovakia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058519/2026/02/20/phillies-bullpen-roles-2026-seas
 **Jerome Tang situation is indefensible, but it’s not easy out there for athletic directors**\
 `Here’s what won’t change: ADs giving contracts to coaches that are loaded with guaranteed money and subject to regret shortly after.`\
 https://nytimes.com/athletic/7058333/2026/02/20/jerome-tang-kansas-state-athletic-directors-contracts/
-
-**Deciphering what coaches told us about their teams through the transfer portal**\
-`By not dipping into the portal for a QB, Alabama made it clear it trusts its development at the position. What else did we learn in January?`\
-https://nytimes.com/athletic/7058053/2026/02/20/college-football-coaches-transfer-portal/
 

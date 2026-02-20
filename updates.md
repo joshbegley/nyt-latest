@@ -1,3 +1,15 @@
+**Charlie McAvoy’s Olympic diary: On U.S. women's gold and men's semifinal vs. Slovakia**\
+`Ahead of Team USA's semifinal matchup with Slovakia, McAvoy chronicles his latest Olympic adventures for The Athletic.`\
+https://nytimes.com/athletic/7059737/2026/02/20/charlie-mcavoy-olympics-diary-usa-slovakia/
+
+**Last Group of Striking N.Y.C. Nurses Reach Tentative Deal With Hospital**\
+`The agreement with NewYork-Presbyterian/Columbia hospital will still need to be ratified by rank-and-file members.`\
+https://nytimes.com/2026/02/20/nyregion/nyc-nurses-strike-reach-deal.html
+
+**Sources: Toronto agrees to sign Sargent from Norwich, ending transfer saga**\
+`The U.S. international forward has his wish, securing a move to MLS and closing the door on his time with Norwich City`\
+https://nytimes.com/athletic/7036805/2026/02/20/josh-sargent-transfer-toronto-fc-norwich-city-usmnt/
+
 **Fantasy Premier League live Q&A: Gameweek 27 advice from Ben Dinnery**\
 `To get your side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and to avoid`\
 https://nytimes.com/athletic/7059556/2026/02/20/fantasy-premier-league-live-qa-gameweek-27-advice-from-ben-dinnery/

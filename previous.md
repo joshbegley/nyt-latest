@@ -1,3 +1,15 @@
+**Charlie McAvoy’s Olympic diary: On U.S. women's gold and men's semifinal vs. Slovakia**\
+`Ahead of Team USA's semifinal matchup with Slovakia, McAvoy chronicles his latest Olympic adventures for The Athletic.`\
+https://nytimes.com/athletic/7059737/2026/02/20/charlie-mcavoy-olympics-diary-usa-slovakia/
+
+**Last Group of Striking N.Y.C. Nurses Reach Tentative Deal With Hospital**\
+`The agreement with NewYork-Presbyterian/Columbia hospital will still need to be ratified by rank-and-file members.`\
+https://nytimes.com/2026/02/20/nyregion/nyc-nurses-strike-reach-deal.html
+
+**Sources: Toronto agrees to sign Sargent from Norwich, ending transfer saga**\
+`The U.S. international forward has his wish, securing a move to MLS and closing the door on his time with Norwich City`\
+https://nytimes.com/athletic/7036805/2026/02/20/josh-sargent-transfer-toronto-fc-norwich-city-usmnt/
+
 **Fantasy Premier League live Q&A: Gameweek 27 advice from Ben Dinnery**\
 `To get your side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and to avoid`\
 https://nytimes.com/athletic/7059556/2026/02/20/fantasy-premier-league-live-qa-gameweek-27-advice-from-ben-dinnery/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7058333/2026/02/20/jerome-tang-kansas-state-athleti
 **Deciphering what coaches told us about their teams through the transfer portal**\
 `By not dipping into the portal for a QB, Alabama made it clear it trusts its development at the position. What else did we learn in January?`\
 https://nytimes.com/athletic/7058053/2026/02/20/college-football-coaches-transfer-portal/
-
-**Cade Cunningham for MVP? Pistons star makes his statement against Knicks**\
-`Cunningham had 42 points, 13 assists and eight rebounds as Detroit completed a season sweep of New York.`\
-https://nytimes.com/athletic/7059404/2026/02/20/cade-cunningham-mvp-pistons-knicks/
-
-**Rangers prospect Dylan Garand is still waiting for his turn while trying to 'keep faith'**\
-`The young goalie has yet to make his NHL debut even after an injury to Igor Shesterkin.`\
-https://nytimes.com/athletic/7058289/2026/02/20/new-york-rangers-prospect-dylan-garand-goalie/
-
-**The Athletic’s Friday football quiz question #94**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/7047999/2026/02/20/the-athletics-friday-football-quiz-question-94/
 
