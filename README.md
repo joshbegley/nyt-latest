@@ -1,3 +1,7 @@
+**Dog Poop Wars: In New York, the Snow Is Foul, and So Is the Discourse**\
+`As melting snow reveals weeks’ worth of uncollected dog waste, frustration at the state of the sidewalks has boiled over.`\
+https://nytimes.com/2026/02/20/nyregion/new-york-snow-dog-waste.html
+
 **Canada to play for gold in Olympic men's hockey with win over Finland**\
 `Team Canada defeated Finland in the Olympic men's hockey semifinal on Friday to punch its ticket to the gold medal game.`\
 https://nytimes.com/athletic/7060232/2026/02/20/canada-finland-olympics-mens-hockey-semifinal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-roberts-tariffs.h
 **Vikings mailbag: Submit your combine and free-agency questions for reporter Alec Lewis**\
 `With the NFL combine on tap next week, it's a good time to take your offseason questions on free agency and the draft. Submit them here.`\
 https://nytimes.com/athletic/7060569/2026/02/20/vikings-mailbag-nfl-combine-free-agency/
-
-**Supreme Court Ruling Could Dash Trump’s Spending Dreams**\
-`Tariff revenue was always unlikely to be sufficient to cover the cost of his raft of promises, but the president still seemed to describe it as essentially limitless.`\
-https://nytimes.com/2026/02/20/us/politics/supreme-court-tariffs-trump-spending.html
 
