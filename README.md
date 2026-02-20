@@ -1,6 +1,6 @@
 **Some G.O.P. Lawmakers Laud Ruling, Reflecting Intraparty Angst Over Tariffs**\
 `While President Trump’s staunchest supporters condemned the decision, some Republicans suggested it restored Congress’s rightful role in weighing in on trade policy.`\
-https://nytimes.com/live/2025/12/08/us/trump-supreme-court-presidential-power/some-gop-lawmakers-laud-ruling-reflecting-intraparty-angst-over-tariffs
+https://nytimes.com/2026/02/20/us/politics/some-gop-lawmakers-laud-ruling-reflecting-intraparty-angst-over-tariffs.html
 
 **Trump Plans to Impose Tariffs a Different Way After Supreme Court Loss**\
 `The administration has been preparing for months for the possibility that the court would rule against the president and developed contingency plans.`\
