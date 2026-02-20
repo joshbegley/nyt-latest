@@ -1,3 +1,7 @@
+**What I'm seeing at Astros camp: Tatsuya Imai gets nervous, Isaac Paredes' new normal**\
+`Imai feels like he's "actually in the big leagues" after throwing live BP, plus an update on the team's new strength and conditioning coach.`\
+https://nytimes.com/athletic/7060773/2026/02/20/astros-tatsuya-imai-isaac-paredes-strength-coach/
+
 **Bill Self says Darryn Peterson can change the narrative: 'Play. Finish'**\
 `With Peterson, Kansas has shown Final Four upside, and may be good enough to win Self’s third national championship in Lawrence.`\
 https://nytimes.com/athletic/7061068/2026/02/20/bill-self-darryn-peterson-kansas-jayhawks/
@@ -12,7 +16,7 @@ https://nytimes.com/video/sports/100000010726286/the-biggest-olympic-skating-jum
 
 **What Happens to All These Trade Deals Now?**\
 `The Supreme Court’s decision to invalidate many of President Trump’s tariffs raised questions about what would become of agreements struck with major U.S. trading partners.`\
-https://nytimes.com/2026/02/20/business/economy/trump-tariffs-supreme-court-trade-deals.html
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/trump-tariffs-supreme-court-trade-deals
 
 **Rocky Mountaineer and the Romance of Rail**\
 `From a lifelong dream fulfilled to a pre-wedding adventure, these travelers found that a journey by train was the perfect way to see the world.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/style/husbands-and-boyfriends-step-into-the-olymp
 **Hungary Poses Unexpected Hurdle to Europe’s 90-Billion Euro Loan to Ukraine**\
 `While the delay may prove to be procedural, Hungary signaled that it could cause problems as the European Union works to send money to Ukraine.`\
 https://nytimes.com/2026/02/20/world/europe/euro-loan-ukraine-hungary-obstacle.html
-
-**Judge denies Vols QB Joey Aguilar’s request for injunction in eligibility case**\
-`The NCAA previously denied Tennessee’s request for what would be counted as a seventh season of eligibility for Aguilar.`\
-https://nytimes.com/athletic/7061018/2026/02/20/tennessee-joey-aguilar-injunction-eligibility-denied/
 

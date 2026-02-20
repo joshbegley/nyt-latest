@@ -1,3 +1,7 @@
+**Bill Self says Darryn Peterson can change the narrative: 'Play. Finish'**\
+`With Peterson, Kansas has shown Final Four upside, and may be good enough to win Self’s third national championship in Lawrence.`\
+https://nytimes.com/athletic/7061068/2026/02/20/bill-self-darryn-peterson-kansas-jayhawks/
+
 **C.I.A. Retracts Reports Flagged for Bias**\
 `Former officials said the documents were not examples of shoddy work and simply reflected the priorities of past administrations.`\
 https://nytimes.com/2026/02/20/us/politics/cia-retracts-reports.html
