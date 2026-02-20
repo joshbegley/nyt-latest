@@ -1,3 +1,16 @@
+**As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
+`Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
+https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
+
+**Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
+`Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
+https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
+
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
 **UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
 `Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
 `\

@@ -1,3 +1,7 @@
+**Marie-Philip Poulin didn't win another Olympic gold medal. She's still the greatest of all time**\
+`Canada came up short in the Olympic women's hockey finale, but make no mistake, Poulin's legacy as the GOAT is cemented.`\
+https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-olympics-womens-hockey/
+
 **As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
 `Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
 https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
@@ -30,8 +34,4 @@ https://nytimes.com/2026/02/20/health/cancer-detection-test-grail.html
 **NBA trends I'm watching: Swarming Hornets, the malleable Pistons and more**\
 `Sure, Charlotte's offense stands out in its recent hot stretch, but the Hornets have dominated on both ends of the floor.`\
 https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers-nba-trends/
-
-**Manchester United 'proud of equality and diversity', says Carrick after Ratcliffe comments**\
-`Ratcliffe's claim that the UK had been "colonised by immigrants" was widely condemned, including by prime minister Keir Starmer.`\
-https://nytimes.com/athletic/7059999/2026/02/20/carrick-manchester-united-ratcliffe-immigration/
 
