@@ -1,3 +1,7 @@
+**What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
+`Michigan is moving on from general manager Sean Magee and targeting Dave Peloquin, a former fixture at Notre Dame for two decades.`\
+https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-staff-whittingham/
+
 **Men's college basketball watch guide: Michigan-Duke, Arizona-Houston and bubble teams**\
 `This weekend, there are two top-four tilts on the same day, happening for just the fifth time since the AP poll was established. `\
 https://nytimes.com/athletic/7056174/2026/02/20/michigan-duke-arizona-houston-college-basketball-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055685/2026/02/20/oakland-ballers-yeshayah-goldfar
 **Chelsea's new contract reality: Players have long deals, but some want improved terms**\
 `Chelsea introduced a policy of long-term contracts, but they will still have to be tackled in the near future`\
 https://nytimes.com/athletic/7058402/2026/02/20/chelsea-new-contracts-analysis/
-
-**Murillo says Pereira has restored 'winning spirit' at Forest**\
-`The Brazilian defender scored the winner in Pereira's first game in charge, a 3-0 win over Fenerbahce.`\
-https://nytimes.com/athletic/7059528/2026/02/20/nottingham-forest-vitor-pereira-murillo/
 
