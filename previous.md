@@ -1,3 +1,7 @@
+**Trump and Indonesia Sign Trade Deal, Locking in 19% Tariffs**\
+`The countries made official an agreement reached last year, with Indonesia avoiding a higher tariff and committing to cooperate on export controls.`\
+https://nytimes.com/2026/02/20/business/trump-tariffs-indonesia.html
+
 **Chat live with Eno Sarris on Friday, Feb. 20 at 1pm PT!**\
 `<p>Spring training games are officially underway and Opening Day is just around the corner. Chat live with Eno Sarris at 1pm PT on Friday about who you should target in your fantasy drafts, which pitching staffs look ready to dominate this season and anything else that comes to mind.</p>
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7054705/2026/02/20/crystal-palace-mostar-analysis/
 **Brighton changed their approach to set pieces this season – has it worked?**\
 `The Seagulls led the Premier League for goals from set pieces last season, but this time around they have dropped off...`\
 https://nytimes.com/athletic/6993604/2026/02/20/brighton-set-pieces-approach/
-
-**Ben Foster interview: 'Any time anyone sees me, all they mention is the penalty save'**\
-`Ben Foster won promotion from the National League with Wrexham. He spoke to The Athletic about his experience`\
-https://nytimes.com/athletic/7023760/2026/02/20/ben-foster-wrexham-podcast-interview/
 
