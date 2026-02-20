@@ -1,3 +1,15 @@
+**Vikings mailbag: Submit your combine and free-agency questions for reporter Alec Lewis**\
+`With the NFL combine on tap next week, it's a good time to take your offseason questions on free agency and the draft. Submit them here.`\
+https://nytimes.com/athletic/7060569/2026/02/20/vikings-mailbag-nfl-combine-free-agency/
+
+**Supreme Court Ruling Could Dash Trump’s Spending Dreams**\
+`Tariff revenue was always unlikely to be sufficient to cover the cost of his raft of promises, but the president still seemed to describe it as essentially limitless.`\
+https://nytimes.com/2026/02/20/us/politics/supreme-court-tariffs-trump-spending.html
+
+**Apple Is One of the Companies Hit Hardest by Tariffs**\
+`The company makes almost all of its products in countries facing steep levies, running up a tariff bill of $3.3 billion over the past three quarters.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-apple.html
+
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2026/02/20/movies/new-movies-this-week-critics.html
