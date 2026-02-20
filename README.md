@@ -1,3 +1,7 @@
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2026/02/20/movies/new-movies-this-week-critics.html
+
 **Post-MLB, ESPN rebooting its Sunday night with ‘Women’s Sports Sundays’**\
 `ESPN replaces its longstanding Sunday night MLB game with WNBA and NWSL, both surging in popularity with TV audiences.`\
 https://nytimes.com/athletic/7060363/2026/02/20/espn-womens-sports-sundays-wnba-nwsl/
@@ -11,7 +15,7 @@ https://nytimes.com/2026/02/20/us/politics/trump-other-options-tariffs.html
 https://nytimes.com/athletic/7060473/2026/02/20/olympics-lindsey-vonn-injury-update-surgery/
 
 **IOC to investigate FIFA's Infantino over Trump hat and collaboration**\
-`Infantino appeared at The Board of Peace meeting wearing a red hat, emblazoned with 'USA' and '45-47' – a reference to Trump's presidencies.`\
+`Infantino appeared at The Board of Peace meeting wearing a red hat, emblazoned with 'USA' and '45-47' — a reference to Trump's presidencies.`\
 https://nytimes.com/athletic/7060456/2026/02/20/ioc-infantino-trump-hat-board-of-peace/
 
 **Apple Is One of the Companies Hit Hardest by Tariffs**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/style/epstein-files-young-conservatives.html
 **Venezuela Releases Political Prisoners, With Conditions**\
 `Since Nicolás Maduro’s capture by the United States, Venezuela has released hundreds of political prisoners and approved a new amnesty law, although the restrictions on those freed have raised questions about whether this signals real change.`\
 https://nytimes.com/video/world/americas/100000010703424/venezuela-releases-political-prisoners-with-conditions.html
-
-**E.P.A. Weakens Limits on Mercury From Coal Plants**\
-`The move appeared to undercut the Make America Healthy Again movement led by Robert F. Kennedy Jr., a onetime campaigner against mercury pollution.`\
-https://nytimes.com/2026/02/20/climate/epa-mercury-coal-plants.html
 
