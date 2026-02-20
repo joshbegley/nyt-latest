@@ -35,7 +35,3 @@ https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
 `Scheelhaase, who interviewed for several head-coaching vacancies, spent last season as the Rams' pass game coordinator. `\
 https://nytimes.com/athletic/7017541/2026/02/20/rams-nathan-scheelhaase-offensive-coordinator/
 
-**Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
-`For Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
-https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
-
