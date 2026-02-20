@@ -1,3 +1,7 @@
+**How China Is Stoking Fear About Travel to Japan**\
+`From earthquake warnings to bear attack alerts, Beijing is deploying a campaign of exaggeration and disinformation to punish Tokyo’s support for Taiwan.`\
+https://nytimes.com/2026/02/20/world/asia/china-travel-japan-fear.html
+
 **Jakub Menšík stuns Jannik Sinner at Qatar Open as Carlos Alcaraz survives Karen Khachanov**\
 `Alcaraz displayed an improved ability to defuse a peaking opponent, while Sinner was unable to fend off a Menšík barrage.`\
 https://nytimes.com/athletic/7058531/2026/02/20/tennis-mensik-sinner-qatar-open-upset/
