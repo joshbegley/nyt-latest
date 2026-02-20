@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`President Trump is the first to invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imported goods from more than 100 countries.`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
+
+**Live Updates: Supreme Court Strikes Down Trump’s Sweeping Tariffs**\
+`In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imports.`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
+
 **UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
 `Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
 `\
