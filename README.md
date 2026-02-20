@@ -1,3 +1,7 @@
+**U.S. Economy Grew Modestly at End of 2025**\
+`Gross domestic product grew at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
+https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
+
 **'You never know' - Glasner non-committal on short-term Palace future**\
 `Glasner was jeered by Palace fans on Thursday after their 1-1 Conference League draw with Zrinjski Mostar.`\
 https://nytimes.com/athletic/7059886/2026/02/20/oliver-glasner-crystal-palace-future-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/20/us/nancy-guthrie-updates
 **Where Do You Go to Get Away From It All?**\
 `Would you want to live alone in the woods, as the author Henry David Thoreau did when he wrote “Walden”? What does escape look like to you?`\
 https://nytimes.com/2026/02/20/learning/where-do-you-go-to-get-away-from-it-all.html
-
-**From rankings to features, columns to analysis, how The Athletic will cover MLS in 2026**\
-`MLS fans can expect a wide range of content offerings from The Athletic in 2026.`\
-https://nytimes.com/athletic/7056955/2026/02/20/athletic-mls-2026-messi/
 
