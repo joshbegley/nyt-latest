@@ -1,3 +1,7 @@
+**FIFA and Trump's Board of Peace enter partnership aimed at Gaza regeneration**\
+`The United States president and the FIFA chief continue to connect on multiple fronts.`\
+https://nytimes.com/athletic/7059472/2026/02/20/fifa-trump-peace-gaza/
+
 **An Enemy’s Fall Frees Up South Korea’s Leader. Now Comes the Tough Part.**\
 `President Lee Jae Myung gained legitimacy from his predecessor’s conviction​. But South Korea’s political polarization is caustic, and could get worse.`\
 https://nytimes.com/2026/02/20/world/asia/south-korea-lee-yoon.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7058886/2026/02/20/eno-sarris-live-chat-february-20
 **The New York Times in Print for Friday, Feb. 20, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/20/todays-new-york-times
-
-**This Is How an Autocrat Goes to War**\
-`All that matters to Trump is whether he thinks attacking Iran is in his interests.`\
-https://nytimes.com/2026/02/20/opinion/trump-iran-public-opinion.html
 

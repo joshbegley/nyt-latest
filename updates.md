@@ -1,3 +1,7 @@
+**An Enemy’s Fall Frees Up South Korea’s Leader. Now Comes the Tough Part.**\
+`President Lee Jae Myung gained legitimacy from his predecessor’s conviction​. But South Korea’s political polarization is caustic, and could get worse.`\
+https://nytimes.com/2026/02/20/world/asia/south-korea-lee-yoon.html
+
 **6 Weeks Later, These Nurses Are Still on Strike. But They’re Frustrated.**\
 `While workers at four other New York hospitals voted to end their walkout, nurses at NewYork-Presbyterian/Columbia remain on the picket line.`\
 https://nytimes.com/2026/02/20/nyregion/nyc-nurses-still-on-strike.html
