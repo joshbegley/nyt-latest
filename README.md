@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`President Trump is the first to invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imported goods from more than 100 countries.`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
+
+**Live Updates: Supreme Court Strikes Down Trump’s Sweeping Tariffs**\
+`The court ruled that President Trump could not invoke the International Emergency Economic Powers Act of 1977 to set tariffs on goods imported from more than 100 countries.`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
+
 **Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
 `The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
 https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
@@ -25,13 +33,4 @@ https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-mom
 **How Antarctica turns your world upside down.**\
 `Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down
-
-**Jaden Ivey's surprise DNP raises more questions for the confusing Bulls**\
-`Chicago found its roster crammed with guards after the trade deadline. On Thursday, Ivey was the odd man out.`\
-https://nytimes.com/athletic/7059633/2026/02/20/jaden-ivey-dnp-bulls/
-
-**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
-`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
-`\
-https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
 

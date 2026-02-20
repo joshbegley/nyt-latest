@@ -1,3 +1,20 @@
+**Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
+`The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
+https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
+
+**'Love me after I draw and I lose' - Arteta's demand of Arsenal players**\
+`The Premier League leaders have won just two of their last seven Premier League matches.`\
+https://nytimes.com/athletic/7060115/2026/02/20/arteta-arsenal-players-demand/
+
+**Mamdani to Use New Power to Speed Up Housing Development in the Bronx**\
+`Projects that used to take as much as seven months to get approved can now go forward in as little as 90 days. Mayor Zohran Mamdani is taking advantage.`\
+https://nytimes.com/2026/02/20/nyregion/bronx-housing-fast-track.html
+
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
 **UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
 `Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
 `\

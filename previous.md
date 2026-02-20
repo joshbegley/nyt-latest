@@ -1,3 +1,15 @@
+**Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
+`The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
+https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
+
+**'Love me after I draw and I lose' - Arteta's demand of Arsenal players**\
+`The Premier League leaders have won just two of their last seven Premier League matches.`\
+https://nytimes.com/athletic/7060115/2026/02/20/arteta-arsenal-players-demand/
+
+**Mamdani to Use New Power to Speed Up Housing Development in the Bronx**\
+`Projects that used to take as much as seven months to get approved can now go forward in as little as 90 days. Mayor Zohran Mamdani is taking advantage.`\
+https://nytimes.com/2026/02/20/nyregion/bronx-housing-fast-track.html
+
 **Marie-Philip Poulin didn't win another Olympic gold medal. She's still the greatest of all time**\
 `Canada came up short in the Olympic women's hockey finale, but make no mistake, Poulin's legacy as the GOAT is cemented.`\
 https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-olympics-womens-hockey/
@@ -22,16 +34,4 @@ https://nytimes.com/athletic/7059633/2026/02/20/jaden-ivey-dnp-bulls/
 `Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
 `\
 https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
-
-**Hunter Hess says last two weeks 'probably hardest' of his life after President Trump remarks**\
-`Trump called Hess 'a real loser' after the freestyle skier had said representing the U.S. was was “a little hard.'`\
-https://nytimes.com/athletic/7059744/2026/02/20/hunter-hess-president-trump-controversy/
-
-**Grail’s Cancer Detection Test Fails in Major Study**\
-`A closely watched clinical trial in Britain that screened blood for early detection of cancer did not show a reduction in later stages of the disease.`\
-https://nytimes.com/2026/02/20/health/cancer-detection-test-grail.html
-
-**NBA trends I'm watching: Swarming Hornets, the malleable Pistons and more**\
-`Sure, Charlotte's offense stands out in its recent hot stretch, but the Hornets have dominated on both ends of the floor.`\
-https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers-nba-trends/
 
