@@ -1,3 +1,20 @@
+**What to watch on Day 14 of Winter Olympics: Men's hockey semifinals, U.S. curling history and more**\
+`The United States and Canada are both a win away from clinching a second North American hockey duel for gold in Milan.`\
+https://nytimes.com/athletic/7058273/2026/02/20/milan-cortina-winter-olympics-what-to-watch-day-14/
+
+**Can Arsenal fix this?**\
+`Building bigger leads and more composure in the closing stages are two issues Mikel Arteta simply has to address`\
+https://nytimes.com/athletic/7057143/2026/02/20/arsenal-problems-fix/
+
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
+**Why Nuno Espirito Santo turned to Paco Jemez to help save West Ham's season**\
+`When the opportunity arose to add to his coaching staff this winter, Nuno knew just the man he wanted...`\
+https://nytimes.com/athletic/6995822/2026/02/20/paco-jemez-west-ham-nuno/
+
 **Crystal Palace have won once in 15 matches – something needs to change**\
 `Could a change in system and approach bring two quick wins that start to lift the gloom around Selhurst Park?`\
 https://nytimes.com/athletic/7054705/2026/02/20/crystal-palace-mostar-analysis/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/7054951/2026/02/20/manchester-united-no-football/
 **Woltemade's move to midfield has unlocked the £65m signing's significant talents**\
 `The German has adapted to his new role remarkably quickly and Eddie Howe's side have benefitted hugely as a result`\
 https://nytimes.com/athletic/7057187/2026/02/20/woltemade-howe-newcastle-united-premier-league-champions-league/
-
-**Everton's 'other Pickford' following in his namesake's footsteps in non-League**\
-`Jordan's fellow goalkeeper George (no relation) is seen at the club as a hugely promising young prospect and is making his name out on loan`\
-https://nytimes.com/athletic/7057317/2026/02/20/everton-jordan-pickford-george-pickford-goalkeepers/
-
-**An audience with Sir Kenny Dalglish and Kelly Cates: 'When dad resigned I was in tears'**\
-`English football's most famous father and daughter reflect on his highs and lows at Liverpool and her remarkable career in broadcasting`\
-https://nytimes.com/athletic/7057323/2026/02/20/kenny-dalglish-kelly-cates-interview/
-
-**After Vonn's crash, sports stars explain what it's like to be injured on a global stage**\
-`Following skier Lindsey Vonn's broken leg at the Olympics, other athletes share their stories of being badly hurt with millions watching`\
-https://nytimes.com/athletic/7057340/2026/02/20/vonn-crash-winter-olympics-public-injuries/
-
-**Endrick's fast start at Lyon and what it means for Real Madrid and his World Cup dream**\
-`The 19-year-old striker moved on loan to the French club in January, in a bid to play his way into the Brazil squad this summer`\
-https://nytimes.com/athletic/7057573/2026/02/20/endrick-real-madrid-lyon-loan-brazil-world-cup/
 
