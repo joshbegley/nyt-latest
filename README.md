@@ -1,3 +1,7 @@
+**Bill Self says Darryn Peterson can change the narrative: 'Play. Finish'**\
+`With Peterson, Kansas has shown Final Four upside, and may be good enough to win Self’s third national championship in Lawrence.`\
+https://nytimes.com/athletic/7061068/2026/02/20/bill-self-darryn-peterson-kansas-jayhawks/
+
 **C.I.A. Retracts Reports Flagged for Bias**\
 `Former officials said the documents were not examples of shoddy work and simply reflected the priorities of past administrations.`\
 https://nytimes.com/2026/02/20/us/politics/cia-retracts-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/world/europe/euro-loan-ukraine-hungary-obstacle.h
 **Judge denies Vols QB Joey Aguilar’s request for injunction in eligibility case**\
 `The NCAA previously denied Tennessee’s request for what would be counted as a seventh season of eligibility for Aguilar.`\
 https://nytimes.com/athletic/7061018/2026/02/20/tennessee-joey-aguilar-injunction-eligibility-denied/
-
-**Love or Hate Emerald Fennell’s ‘Wuthering Heights’?**\
-`Her films, including “Saltburn” and “Promising Young Woman,” are exhilarating to some, enraging to others. Where do you stand?`\
-https://nytimes.com/interactive/2026/02/20/movies/emerald-fennell-films-love-hate-wuthering-heights.html
 
