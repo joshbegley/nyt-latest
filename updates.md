@@ -1,3 +1,15 @@
+**Freddie Freeman wants to keep playing — all 162 games in 2026, and beyond**\
+`The Dodgers want to give Freeman more days off with an eye toward keeping him fresh for October. But will he push back?`\
+https://nytimes.com/athletic/7058723/2026/02/19/dodgers-freddie-freeman-future-contract/
+
+**Three Words That Shape Our Politics**\
+`Is Donald Trump “country” or “cowboy”? The Times Opinion columnist Tressie McMillan Cottom breaks down a cultural trend she sees shaping politics today.`\
+https://nytimes.com/video/opinion/100000010722916/three-words-that-shape-our-politics.html
+
+**Brewers, manager Pat Murphy in agreement on 3-year contract: Source**\
+`Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
+https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
+
 **F1 president Domenicali warns against 'panicking' over new cars**\
 `F1 has overhauled its car and engine designs for the 2026 season, placing a greater emphasis on energy management.`\
 https://nytimes.com/athletic/7057925/2026/02/19/stefano-domenicali-f1-new-cars/
