@@ -1,3 +1,7 @@
+**‘The Secret Agent’ | Anatomy of a Scene**\
+`The director Kleber Mendonça Filho narrates an ensemble sequence from his film, which is nominated for best picture.`\
+https://nytimes.com/video/movies/100000010720773/the-secret-agent-scene.html
+
 **Bobsled costs are skyrocketing. Can the U.S. keep up in a bedrock Olympic sport?**\
 `You think everyday items have gotten more expensive in recent years? Imagine how much it costs to send a bobsled around the world.`\
 https://nytimes.com/athletic/7057649/2026/02/20/winter-olympics-bobsled-costs-rising-team-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/crosswords/spelling-bee-forum.html
 **Stephen Colbert Balks at Trump’s Board of Peace**\
 `“The Late Show” host called the group “kind of like the U.N., except instead of passing binding resolutions, you pass a greasy bag of money to Donald Trump.”`\
 https://nytimes.com/2026/02/20/arts/television/stephen-colbert-trump-board-of-peace.html
-
-**Word of the Day: progeny**\
-`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/20/learning/word-of-the-day-progeny.html
 
