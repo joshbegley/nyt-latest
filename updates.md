@@ -1,3 +1,5 @@
+
+
 **Police Investigate ICE Arrest of a Man Who Suffered Severe Head Injuries**\
 `The police in St. Paul, Minn., are investigating an arrest last month during the immigration crackdown. The man has said he was beaten by agents. ICE asserted that he ran into a wall.`\
 https://nytimes.com/2026/02/19/us/police-investigation-ice.html
