@@ -1,3 +1,7 @@
+**Pistons cap season sweep of Knicks with blowout in New York**\
+`Every Detroit win this season against New York has been by double digits.`\
+https://nytimes.com/athletic/7059247/2026/02/19/pistons-knicks-season-sweep-nba/
+
 **Trump Says He Will Release Files on Aliens and U.F.O.s**\
 `President Trump had lashed out at former President Barack Obama earlier Thursday for telling a podcaster that aliens were real.`\
 https://nytimes.com/2026/02/19/us/politics/trump-ufos-aliens-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-
 **Cardinals' new performance center shows greater commitment, something fans long to see**\
 `After a dismal season, Thursday's groundbreaking ceremony changed the vibe, giving the Cardinals much-needed offseason optimism.`\
 https://nytimes.com/athletic/7058824/2026/02/19/arizona-cardinals-new-performance-center-fans/
-
-**Steph Curry to miss at least 10 more days as he tends to right knee injury**\
-`Curry has been dealing with "runner's knee" and will miss his sixth straight game Thursday. It's unclear when he will return.`\
-https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury-out/
 
