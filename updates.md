@@ -1,3 +1,7 @@
+**What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
+`Michigan is moving on from general manager Sean Magee and targeting Dave Peloquin, a former fixture at Notre Dame for two decades.`\
+https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-staff-whittingham/
+
 **Men's college basketball watch guide: Michigan-Duke, Arizona-Houston and bubble teams**\
 `This weekend, there are two top-four tilts on the same day, happening for just the fifth time since the AP poll was established. `\
 https://nytimes.com/athletic/7056174/2026/02/20/michigan-duke-arizona-houston-college-basketball-how-to-watch/
