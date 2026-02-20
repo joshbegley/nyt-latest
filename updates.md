@@ -1,3 +1,15 @@
+**John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
+`He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
+https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
+
+**'This is an emergency': Tudor '100 per cent' confident of Spurs rescue mission**\
+`Tudor, who was sacked by Juventus in October, says he is "100 per cent" confident that Spurs will still be in the top flight next season.`\
+https://nytimes.com/athletic/7060346/2026/02/20/igor-tudor-tottenham-press-conference/
+
+**The 2.22.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/02/20/the-22226-issue
+
 **Supreme Court Rules Against Trump’s Tariff Policy**\
 `In a bipartisan 6-3 decision, the Supreme Court ruled that President Trump exceeded his authority in imposing tariffs on nearly every U.S. trading partner.`\
 https://nytimes.com/video/us/politics/100000010726290/supreme-court-rules-against-trumps-tariffs.html

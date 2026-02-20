@@ -1,3 +1,7 @@
+**Supreme Court Tariff Ruling to Spur Chaotic Refund Process**\
+`The Trump administration says it could take years and additional litigation for importers to get their money back.`\
+https://nytimes.com/2026/02/20/business/supreme-court-tariffs-refunds.html
+
 **John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
 `He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
 https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061062/2026/02/20/boxing-news-benn-dana-white-eddi
 **Businesses Celebrate Tariff Relief, and Brace for New Uncertainty**\
 `The Supreme Court’s ruling against many of President Trump’s tariffs cheered executives who set to work seeking refunds on their duties.`\
 https://nytimes.com/2026/02/20/business/supreme-court-tariffs-reaction-businesses.html
-
-**Why ‘Wuthering Heights’ Falls Flat**\
-`Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
-https://nytimes.com/video/arts/100000010727034/why-wuthering-heights-falls-flat.html
 

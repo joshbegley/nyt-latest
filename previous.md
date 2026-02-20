@@ -1,3 +1,15 @@
+**John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
+`He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
+https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
+
+**'This is an emergency': Tudor '100 per cent' confident of Spurs rescue mission**\
+`Tudor, who was sacked by Juventus in October, says he is "100 per cent" confident that Spurs will still be in the top flight next season.`\
+https://nytimes.com/athletic/7060346/2026/02/20/igor-tudor-tottenham-press-conference/
+
+**The 2.22.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/02/20/the-22226-issue
+
 **Supreme Court Rules Against Trump’s Tariff Policy**\
 `In a bipartisan 6-3 decision, the Supreme Court ruled that President Trump exceeded his authority in imposing tariffs on nearly every U.S. trading partner.`\
 https://nytimes.com/video/us/politics/100000010726290/supreme-court-rules-against-trumps-tariffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/20/business/supreme-court-tariffs-reaction-businesse
 **Why ‘Wuthering Heights’ Falls Flat**\
 `Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
 https://nytimes.com/video/arts/100000010727034/why-wuthering-heights-falls-flat.html
-
-**Blue Jays, Max Scherzer remain in constant contact about potential reunion**\
-`The Blue Jays' clubhouse would welcome back Scherzer with open arms but he isn't a natural fit on their roster at the moment.`\
-https://nytimes.com/athletic/7061143/2026/02/20/toronto-blue-jays-max-scherzer-potential-return/
-
-**Coaches don't get an Olympic medal? U.S.'s John Wroblewski says he'd have it no other way**\
-`The U.S. women's coach: "My satisfaction was watching those women last night fulfill their dream and get the gold medals that they earned."`\
-https://nytimes.com/athletic/7060937/2026/02/20/coaches-olympic-medals-john-wroblewski-womens-hockey/
-
-**Melania Trump Presents Her 2025 Inaugural Gown to the Smithsonian**\
-`The dress joined an exhibit of gowns belonging to first ladies stretching back to Helen Taft in 1909, and Mrs. Trump spoke about how high fashion reflected humanity.`\
-https://nytimes.com/2026/02/20/us/politics/melania-trump-smithsonian-dress.html
 
