@@ -1,3 +1,7 @@
+**Trump Says He Will Release Files on Aliens and U.F.O.s**\
+`President Trump had lashed out at former President Barack Obama earlier Thursday for telling a podcaster that aliens were real.`\
+https://nytimes.com/2026/02/19/us/politics/trump-ufos-aliens-files.html
+
 **‘The Pitt’ Season 2, Episode 7 Recap: Emotional Rescue**\
 `Robby and Langdon have an awkward encounter in an elevator. Dana struggles to keep it together in a difficult case involving sexual assault.`\
 https://nytimes.com/2026/02/19/arts/television/the-pitt-recap-season-2-episode-7.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058824/2026/02/19/arizona-cardinals-new-performanc
 **Steph Curry to miss at least 10 more days as he tends to right knee injury**\
 `Curry has been dealing with "runner's knee" and will miss his sixth straight game Thursday. It's unclear when he will return.`\
 https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury-out/
-
-**Hilary Knight gets storybook ending to Olympic career: 'Legends do legendary things'**\
-`One hundred twenty-four seconds away from a Canadian upset victory, Knight — in her last Olympic game — played the hero and forced overtime.`\
-https://nytimes.com/athletic/7058996/2026/02/19/hilary-knight-usa-canada-hockey-olympics-gold-medal/
 

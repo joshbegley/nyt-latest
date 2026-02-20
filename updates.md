@@ -1,3 +1,7 @@
+**Trump Says He Will Release Files on Aliens and U.F.O.s**\
+`President Trump had lashed out at former President Barack Obama earlier Thursday for telling a podcaster that aliens were real.`\
+https://nytimes.com/2026/02/19/us/politics/trump-ufos-aliens-files.html
+
 **‘The Pitt’ Season 2, Episode 7 Recap: Emotional Rescue**\
 `Robby and Langdon have an awkward encounter in an elevator. Dana struggles to keep it together in a difficult case involving sexual assault.`\
 https://nytimes.com/2026/02/19/arts/television/the-pitt-recap-season-2-episode-7.html
