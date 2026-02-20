@@ -1,3 +1,7 @@
+**Stephen Colbert Balks at Trump’s Board of Peace**\
+`“The Late Show” host called the group “kind of like the U.N., except instead of passing binding resolutions, you pass a greasy bag of money to Donald Trump.”`\
+https://nytimes.com/2026/02/20/arts/television/stephen-colbert-trump-board-of-peace.html
+
 **Word of the Day: progeny**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/20/learning/word-of-the-day-progeny.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-
 **Why Nuno Espirito Santo turned to Paco Jemez to help save West Ham's season**\
 `When the opportunity arose to add to his coaching staff this winter, Nuno knew just the man he wanted...`\
 https://nytimes.com/athletic/6995822/2026/02/20/paco-jemez-west-ham-nuno/
-
-**Crystal Palace have won once in 15 matches – something needs to change**\
-`Could a change in system and approach bring two quick wins that start to lift the gloom around Selhurst Park?`\
-https://nytimes.com/athletic/7054705/2026/02/20/crystal-palace-mostar-analysis/
 
