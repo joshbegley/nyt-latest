@@ -1,3 +1,11 @@
+**City of Beverly Hills apologizes to Jaylen Brown for 'inaccurate' statement**\
+`The city said no permit application was submitted or denied, and the residence where Brown's event was held had no previous violations.`\
+https://nytimes.com/athletic/7058970/2026/02/19/jaylen-brown-beverly-hills-police-apology/
+
+**At her home rink, Alysa Liu a 'hero' for making Oakland golden**\
+`Liu is being lauded as a hero at her home ice rink in Oakland, Calif. `\
+https://nytimes.com/athletic/7058855/2026/02/19/alysa-liu-olympics-oakland-watch-party-figure-skating/
+
 **Trump Has a Head-Spinning Day, but Republicans Want Him to Focus**\
 `President Trump’s advisers want him to lock down a message on the economy that will resonate ahead of the midterms. But Mr. Trump is never one to stay on message.`\
 https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
 **Trae Young, Anthony Davis 'progressing,' but Wizards debuts won't be anytime soon**\
 `“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
 https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
-
-**How Did Draco Malfoy Get Mixed Up With Lunar New Year?**\
-`It all comes down to a love of wordplay.`\
-https://nytimes.com/2026/02/19/world/asia/lunar-new-year-china-felton-malfoy-harry-potter.html
-
-**Freddie Freeman wants to keep playing — all 162 games in 2026, and beyond**\
-`The Dodgers want to give Freeman more days off with an eye toward keeping him fresh for October. But will he push back?`\
-https://nytimes.com/athletic/7058723/2026/02/19/dodgers-freddie-freeman-future-contract/
 
