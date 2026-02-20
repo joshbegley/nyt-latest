@@ -1,6 +1,10 @@
+**64% of Americans Disapprove of Trump’s Tariffs**\
+`The poll found disapproval among men, women, all racial and ethnic groups and across educational backgrounds.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-poll-approval.html
+
 **A Fatal ICE Shooting Occurred in Texas Months Before Renee Good’s Killing**\
 `A 23-year-old American was shot last March in South Padre Island. ICE’s involvement in the shooting was not disclosed until this week.`\
-https://nytimes.com/2026/02/20/us/texas-shooting-ice-renee-good.html
+https://nytimes.com/2026/02/20/us/ruben-ray-martinez-ice-shooting-texas.html
 
 **Longtime Virginia Lawyer Named by Judges as U.S. Attorney**\
 `The appointment of James W. Hundley teed up a potential conflict with the Trump administration, which has already suggested that it would dismiss any prosecutor chosen by district judges.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/insider/winter-olympics-little-athletes.html
 **Guillermo del Toro on Writing and Directing the Oscar-Nominated ‘Frankenstein’**\
 `Ahead of this year’s Academy Awards, the director appeared on the Book Review podcast to speak about his latest film.`\
 https://nytimes.com/2026/02/20/books/review/the-book-review-guillermo-del-toro.html
-
-**Brooklyn Beckham Spices Up a Burger Bash**\
-`Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
-https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html
 
