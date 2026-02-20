@@ -1,3 +1,8 @@
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
 **How Antarctica turns your world upside down.**\
 `Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down

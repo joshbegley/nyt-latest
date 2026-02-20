@@ -1,3 +1,7 @@
+**As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
+`Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
+https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
+
 **Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
 `Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
 https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers
 **Manchester United 'proud of equality and diversity', says Carrick after Ratcliffe comments**\
 `Ratcliffe's claim that the UK had been "colonised by immigrants" was widely condemned, including by prime minister Keir Starmer.`\
 https://nytimes.com/athletic/7059999/2026/02/20/carrick-manchester-united-ratcliffe-immigration/
-
-**South Africa Pulls Out of Venice Biennale After Gaza Artwork Furor**\
-`The country, a major center for African art, will not have an official presence at this year’s event after a legal dispute over a Gaza-focused artwork.`\
-https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
 
