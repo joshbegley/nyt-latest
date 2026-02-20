@@ -1,3 +1,11 @@
+**British Police Search Mansion Used by Former Prince Andrew**\
+`Andrew Mountbatten-Windsor, who is being investigated on suspicion of misconduct in public office, was released after an arrest that plunged the British royal family into crisis.`\
+https://nytimes.com/2026/02/20/world/europe/british-police-search-mansion-used-by-former-prince-andrew.html
+
+**The Pulse: Two unforgettable gold medals**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7058114/2026/02/20/alysa-liu-usa-canada-hockey-olympics-the-pulse/
+
 **Ranking the Chiefs' top unrestricted free agents: Who makes most sense to bring back?**\
 `Which Chiefs free agents make the most sense to return in 2026? Here's a first look.`\
 https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-ranking/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7059368/2026/02/20/knicks-pistons-nba-eastern-confe
 **What we're seeing at Mets camp: Going inside the clubhouse and workouts**\
 `Carson Benge's demeanor, Sean Manaea's presence and Bo Bichette's work at third base helped fuel a lively vibe around camp. `\
 https://nytimes.com/athletic/7059069/2026/02/20/mets-spring-training-carson-benge-bo-bichette/
-
-**What I'm hearing about the Flyers: A Michkov meeting, and listening on Ristolainen**\
-`The Flyers were pleased with Michkov's game after a meeting with coaches and other team staff.`\
-https://nytimes.com/athletic/7058397/2026/02/20/flyers-michkov-tocchet-trade-deadline/
-
-**NFL Draft 2026 prospects to watch in Saturday's HBCU Legacy Bowl**\
-`There weren't any HBCU players invited to the NFL Scouting Combine, but that doesn’t mean these programs lack talent.`\
-https://nytimes.com/athletic/7057986/2026/02/20/nfl-draft-2026-hbcu-legacy-bowl-prospects/
 

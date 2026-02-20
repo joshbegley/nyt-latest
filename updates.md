@@ -1,3 +1,11 @@
+**British Police Search Mansion Used by Former Prince Andrew**\
+`Andrew Mountbatten-Windsor, who is being investigated on suspicion of misconduct in public office, was released after an arrest that plunged the British royal family into crisis.`\
+https://nytimes.com/2026/02/20/world/europe/british-police-search-mansion-used-by-former-prince-andrew.html
+
+**The Pulse: Two unforgettable gold medals**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7058114/2026/02/20/alysa-liu-usa-canada-hockey-olympics-the-pulse/
+
 **Ranking the Chiefs' top unrestricted free agents: Who makes most sense to bring back?**\
 `Which Chiefs free agents make the most sense to return in 2026? Here's a first look.`\
 https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-ranking/
