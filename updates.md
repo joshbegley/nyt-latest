@@ -1,3 +1,19 @@
+**Brooklyn Beckham Spices Up a Burger Bash**\
+`Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
+https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html
+
+**Park Service Workers Reinstall Exhibit on Slavery in Philadelphia**\
+`Plaques on the history of slavery in Philadelphia were reinstalled at the President’s House site after being taken down last month following a Trump administration directive.`\
+https://nytimes.com/video/us/100000010725758/slavery-exhibit-philadelphia-museum-trump.html
+
+**Canada needs ‘controlled chaos’ of Wilson, Bennett and Marchand in gold medal game**\
+`Canada will need physicality from Wilson, Bennett and Marchand more than ever as it gets set to face the U.S. in the gold medal game.`\
+https://nytimes.com/athletic/7061212/2026/02/20/canada-bennett-marchand-wilson-factor-gold-medal-game/
+
+**Frame by Frame, Moments From the Winter Games**\
+`See the Winter Olympics in a series of composite images.`\
+https://nytimes.com/interactive/2026/02/20/sports/winter-olympics-figure-skating-ski-snowboarding-photos.html
+
 **A.I. Is Coming for the 2026 Midterms**\
 `Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
 https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html

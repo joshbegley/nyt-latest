@@ -1,3 +1,19 @@
+**The U.S. Tariffs Causing the Most Pain for Canada Remain in Place**\
+`While the vast majority of Canadian exports were exempt from the tariffs now struck down, the ruling does not effect duties harming several key industries.`\
+https://nytimes.com/2026/02/20/us/politics/trump-canada-tariffs-supreme-court.html
+
+**Ask The Morning: The Supreme Court’s Tariff Ruling**\
+`The justices struck down a central piece of President Trump’s agenda. What does that mean?`\
+https://nytimes.com/2026/02/20/briefing/ask-the-morning-the-supreme-courts-tariff-ruling.html
+
+**Some Readers Thought Those Little Olympians Were A.I. Here’s How We Made Them.**\
+`The Times’s tiny animated athletes flip, spin and soar through the air just like their real-life counterparts.`\
+https://nytimes.com/2026/02/20/insider/winter-olympics-little-athletes.html
+
+**Guillermo del Toro on Writing and Directing the Oscar-Nominated ‘Frankenstein’**\
+`Ahead of this year’s Academy Awards, the director appeared on the Book Review podcast to speak about his latest film.`\
+https://nytimes.com/2026/02/20/books/review/the-book-review-guillermo-del-toro.html
+
 **Brooklyn Beckham Spices Up a Burger Bash**\
 `Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
 https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
 **USA to face Canada for Olympic gold after overpowering Slovakia in men's hockey**\
 `For the third time since the NHL began participating in the Olympics in 1998, the U.S. and Canada will meet for the ultimate prize.`\
 https://nytimes.com/athletic/7060963/2026/02/20/usa-slovakia-result-olympic-gold-medal-canada/
-
-**Trump Promises New Tariffs After Justices Rule Against Him**\
-`Also, Cuba nears collapse. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/02/20/briefing/supreme-court-tariffs-cuba-oil.html
-
-**SPECIAL EPISODE: TRUMP’S TARIFFS STRUCK DOWN**\
-`In a 6-3 decision, the Supreme Court struck down President Trump’s global tariffs, a cornerstone of his second term.`\
-https://nytimes.com/2026/02/20/podcasts/the-daily/special-episode-trumps-tariffs-struck-down.html
-
-**Supreme Court Tariff Ruling to Spur Chaotic Refund Process**\
-`The Trump administration says it could take years and additional litigation for importers to get their money back.`\
-https://nytimes.com/2026/02/20/business/supreme-court-tariffs-refunds.html
-
-**John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
-`He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
-https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
 

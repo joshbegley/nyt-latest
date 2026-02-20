@@ -1,3 +1,19 @@
+**Brooklyn Beckham Spices Up a Burger Bash**\
+`Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
+https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html
+
+**Park Service Workers Reinstall Exhibit on Slavery in Philadelphia**\
+`Plaques on the history of slavery in Philadelphia were reinstalled at the President’s House site after being taken down last month following a Trump administration directive.`\
+https://nytimes.com/video/us/100000010725758/slavery-exhibit-philadelphia-museum-trump.html
+
+**Canada needs ‘controlled chaos’ of Wilson, Bennett and Marchand in gold medal game**\
+`Canada will need physicality from Wilson, Bennett and Marchand more than ever as it gets set to face the U.S. in the gold medal game.`\
+https://nytimes.com/athletic/7061212/2026/02/20/canada-bennett-marchand-wilson-factor-gold-medal-game/
+
+**Frame by Frame, Moments From the Winter Games**\
+`See the Winter Olympics in a series of composite images.`\
+https://nytimes.com/interactive/2026/02/20/sports/winter-olympics-figure-skating-ski-snowboarding-photos.html
+
 **A.I. Is Coming for the 2026 Midterms**\
 `Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
 https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/20/business/supreme-court-tariffs-refunds.html
 **John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
 `He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
 https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
-
-**'This is an emergency': Tudor '100 per cent' confident of Spurs rescue mission**\
-`Tudor, who was sacked by Juventus in October, says he is "100 per cent" confident that Spurs will still be in the top flight next season.`\
-https://nytimes.com/athletic/7060346/2026/02/20/igor-tudor-tottenham-press-conference/
-
-**The 2.22.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/02/20/the-22226-issue
-
-**Supreme Court Rules Against Trump’s Tariff Policy**\
-`In a bipartisan 6-3 decision, the Supreme Court ruled that President Trump exceeded his authority in imposing tariffs on nearly every U.S. trading partner.`\
-https://nytimes.com/video/us/politics/100000010726290/supreme-court-rules-against-trumps-tariffs.html
-
-**The Save America Act Is an Assault on Democracy**\
-`President Trump would have you think that voter fraud is rampant, says the Opinion columnist Jamelle Bouie. The reality? That’s just not true. So why are Trump and his allies so preoccupied with passing the Save America Act?`\
-https://nytimes.com/video/opinion/100000010726627/the-save-america-act-is-an-assault-on-democracy.html
 
