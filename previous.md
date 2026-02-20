@@ -1,3 +1,7 @@
+**UCLA's Mick Cronin apologizes for sending Steven Jamerson to locker room during loss**\
+`Cronin said he thought Jamerson's foul was dirty in real time but acknowledges that he misjudged the play. `\
+https://nytimes.com/athletic/7060598/2026/02/20/mick-cronin-apology-ucla-steven-jamerson/
+
 **Trump Calls Justices Who Ruled Against Him ‘Fools and Lap Dogs’**\
 `“I’m ashamed of certain members of the court, absolutely ashamed for not having the courage to do what’s right for our country,” the president said.`\
 https://nytimes.com/2026/02/20/us/politics/trump-justices-gorsuch-barrett-roberts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/arts/dance/alysa-liu-figure-skating-winter-olympi
 **F1's preseason is done, but the 2026 pecking order is still anyone's guess**\
 `F1 has completed its longest preseason in years with its new cars. But heading to race one, there's no clear favorite team`\
 https://nytimes.com/athletic/7060337/2026/02/20/f1-preseason-testing-takeaways/
-
-**Review: A Pulitzer Winner Imagines Emily Dickinson Anew**\
-`Kevin Puts’s song cycle “Emily — No Prisoner Be” was brought to life by Time for Three and Joyce DiDonato in its New York premiere at Carnegie Hall.`\
-https://nytimes.com/2026/02/20/arts/music/emily-dickinson-no-prisoner-be-review-kevin-puts.html
 

@@ -1,3 +1,7 @@
+**UCLA's Mick Cronin apologizes for sending Steven Jamerson to locker room during loss**\
+`Cronin said he thought Jamerson's foul was dirty in real time but acknowledges that he misjudged the play. `\
+https://nytimes.com/athletic/7060598/2026/02/20/mick-cronin-apology-ucla-steven-jamerson/
+
 **Trump Calls Justices Who Ruled Against Him ‘Fools and Lap Dogs’**\
 `“I’m ashamed of certain members of the court, absolutely ashamed for not having the courage to do what’s right for our country,” the president said.`\
 https://nytimes.com/2026/02/20/us/politics/trump-justices-gorsuch-barrett-roberts.html
