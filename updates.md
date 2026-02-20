@@ -1,3 +1,7 @@
+**The Tariff Chaos Is Over. The Tariff Chaos Is Just Beginning.**\
+`The Supreme Court has spoken. What now?`\
+https://nytimes.com/2026/02/20/opinion/trump-tariff-supreme-court-ruling.html
+
 **Alysa Liu's defining Olympic night and a shine that bucks her sport's expectations**\
 `Liu's gold medal, a first for an American woman in figure skating since 2002, challenges the sport's conventions about rigidity.`\
 https://nytimes.com/athletic/7060355/2026/02/20/alysa-liu-olympics-figure-skating-milan-expectations-oakland-background/
