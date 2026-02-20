@@ -1,3 +1,7 @@
+**Eric Dane, McSteamy on ‘Grey’s Anatomy,’ Dies at 53**\
+`His breakout role came in 2006 as the handsome Dr. Mark Sloan, nicknamed McSteamy, the head of plastic surgery at a Seattle hospital.`\
+https://nytimes.com/2026/02/19/arts/eric-dane-mcsteamy-dead.html
+
 **Amber Glenn closed her Olympics well after faltering. Can she carry it forward?**\
 `Glenn said that when it comes to her future: "I’ll be kind of helping on the sidelines."`\
 https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/

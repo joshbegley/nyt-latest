@@ -1,3 +1,7 @@
+**Eric Dane, McSteamy on ‘Grey’s Anatomy,’ Dies at 53**\
+`His breakout role came in 2006 as the handsome Dr. Mark Sloan, nicknamed McSteamy, the head of plastic surgery at a Seattle hospital.`\
+https://nytimes.com/2026/02/19/arts/eric-dane-mcsteamy-dead.html
+
 **Amber Glenn closed her Olympics well after faltering. Can she carry it forward?**\
 `Glenn said that when it comes to her future: "I’ll be kind of helping on the sidelines."`\
 https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/us/politics/trump-banner-doj.html
 **City of Beverly Hills apologizes to Jaylen Brown for 'inaccurate' statement**\
 `The city said no permit application was submitted or denied, and the residence where Brown's event was held had no previous violations.`\
 https://nytimes.com/athletic/7058970/2026/02/19/jaylen-brown-beverly-hills-police-apology/
-
-**At her home rink, Alysa Liu a 'hero' for making Oakland golden**\
-`Liu is being lauded as a hero at her home ice rink in Oakland, Calif. `\
-https://nytimes.com/athletic/7058855/2026/02/19/alysa-liu-olympics-oakland-watch-party-figure-skating/
 
