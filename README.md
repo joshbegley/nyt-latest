@@ -1,3 +1,7 @@
+**A Royal Arrest**\
+`We look at the case of Andrew Mountbatten-Windsor.`\
+https://nytimes.com/2026/02/20/briefing/a-royal-arrest.html
+
 **Is 3-on-3 overtime ruining Olympic hockey?**\
 `Plus: Three hockey medals were awarded Thursday, including a thrilling women's gold, and three more are still to come.`\
 https://nytimes.com/athletic/7059660/2026/02/20/olympics-hockey-overtime-rules-3-on-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058114/2026/02/20/alysa-liu-usa-canada-hockey-olym
 **Ranking the Chiefs' top unrestricted free agents: Who makes most sense to bring back?**\
 `Which Chiefs free agents make the most sense to return in 2026? Here's a first look.`\
 https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-ranking/
-
-**Barcelona desperately need Pedri back, but with that comes a big risk**\
-`A series of injuries in recent seasons means Hansi Flick has to manage the 23-year-old midfielder carefully`\
-https://nytimes.com/athletic/7059560/2026/02/20/barcelona-pedri-injury-flick-la-liga-champions-league/
 
