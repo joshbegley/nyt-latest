@@ -1,3 +1,7 @@
+**White House Dims Lights as Trump Responds to Tariff Ruling**\
+`The mood lighting appeared to be borrowing from the playbook of former President Joseph R. Biden Jr., and the old meme of “Dark Brandon.”`\
+https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
+
 **How Does Trump Really Spend His Time?**\
 `President Trump is running the White House on “gut instinct” and late-night phone calls, Ashley Parker and Michael Scherer, staff writers for The Atlantic, tell Ezra Klein on a recent episode of “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010718515/how-does-trump-really-spend-his-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061212/2026/02/20/canada-bennett-marchand-wilson-f
 **Frame by Frame, Moments From the Winter Games**\
 `See the Winter Olympics in a series of composite images.`\
 https://nytimes.com/interactive/2026/02/20/sports/winter-olympics-figure-skating-ski-snowboarding-photos.html
-
-**A.I. Is Coming for the 2026 Midterms**\
-`Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
-https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
 
