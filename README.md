@@ -1,3 +1,11 @@
+**A Fatal ICE Shooting Occurred in Texas Months Before Renee Good’s Killing**\
+`A 23-year-old American was shot last March in South Padre Island. ICE’s involvement in the shooting was not disclosed until this week.`\
+https://nytimes.com/2026/02/20/us/texas-shooting-ice-renee-good.html
+
+**Longtime Virginia Lawyer Named by Judges as U.S. Attorney**\
+`The appointment of James W. Hundley teed up a potential conflict with the Trump administration, which has already suggested that it would dismiss any prosecutor chosen by district judges.`\
+https://nytimes.com/2026/02/20/us/politics/us-attorney-eastern-district-of-virginia.html
+
 **How Stephen Miller Is Perceived in the White House**\
 `Stephen Miller is at the “top of the totem pole” in Donald Trump’s White House. On a recent episode of “The Ezra Klein Show,” the Atlantic staff writers Ashley Parker and Michael Scherer describe the scale of Miller’s influence.`\
 https://nytimes.com/video/opinion/100000010718523/how-stephen-miller-is-perceived-in-the-white-house.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/books/review/the-book-review-guillermo-del-toro.h
 **Brooklyn Beckham Spices Up a Burger Bash**\
 `Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
 https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html
-
-**Park Service Workers Reinstall Exhibit on Slavery in Philadelphia**\
-`Plaques on the history of slavery in Philadelphia were reinstalled at the President’s House site after being taken down last month following a Trump administration directive.`\
-https://nytimes.com/video/us/100000010725758/slavery-exhibit-philadelphia-museum-trump.html
-
-**Canada needs ‘controlled chaos’ of Wilson, Bennett and Marchand in gold medal game**\
-`Canada will need physicality from Wilson, Bennett and Marchand more than ever as it gets set to face the U.S. in the gold medal game.`\
-https://nytimes.com/athletic/7061212/2026/02/20/canada-bennett-marchand-wilson-factor-gold-medal-game/
 

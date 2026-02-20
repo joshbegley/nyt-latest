@@ -1,3 +1,7 @@
+**How Stephen Miller Is Perceived in the White House**\
+`Stephen Miller is at the “top of the totem pole” in Donald Trump’s White House. On a recent episode of “The Ezra Klein Show,” the Atlantic staff writers Ashley Parker and Michael Scherer describe the scale of Miller’s influence.`\
+https://nytimes.com/video/opinion/100000010718523/how-stephen-miller-is-perceived-in-the-white-house.html
+
 **White House Dims Lights as Trump Responds to Tariff Ruling**\
 `The mood lighting appeared to be borrowing from the playbook of former President Joseph R. Biden Jr., and the old meme of “Dark Brandon.”`\
 https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010725758/slavery-exhibit-philadelphia-museum
 **Canada needs ‘controlled chaos’ of Wilson, Bennett and Marchand in gold medal game**\
 `Canada will need physicality from Wilson, Bennett and Marchand more than ever as it gets set to face the U.S. in the gold medal game.`\
 https://nytimes.com/athletic/7061212/2026/02/20/canada-bennett-marchand-wilson-factor-gold-medal-game/
-
-**Frame by Frame, Moments From the Winter Games**\
-`See the Winter Olympics in a series of composite images.`\
-https://nytimes.com/interactive/2026/02/20/sports/winter-olympics-figure-skating-ski-snowboarding-photos.html
 
