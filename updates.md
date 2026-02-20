@@ -18,6 +18,11 @@ https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-
 `\
 https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
 
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **Stephen Colbert Balks at Trump’s Board of Peace**\
 `“The Late Show” host called the group “kind of like the U.N., except instead of passing binding resolutions, you pass a greasy bag of money to Donald Trump.”`\
 https://nytimes.com/2026/02/20/arts/television/stephen-colbert-trump-board-of-peace.html
