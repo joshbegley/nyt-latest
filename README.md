@@ -1,3 +1,7 @@
+**Trump Says He’ll Release Alien and U.F.O. Files**\
+`After former President Obama made viral comments about aliens, President Trump said his administration would begin to release government files related to aliens and extraterrestrial life.`\
+https://nytimes.com/video/us/100000010724694/trump-ufos-aliens-files-obama.html
+
 **East-leading Pistons cap season sweep of Knicks with blowout in New York**\
 `Every Detroit win this season against New York has been by double digits.`\
 https://nytimes.com/athletic/7059247/2026/02/19/pistons-knicks-season-sweep-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-c
 **Relive the Biggest Olympic Skating Jumps, in Miniature**\
 `These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
 https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html
-
-**Cardinals' new performance center shows greater commitment, something fans long to see**\
-`After a dismal season, Thursday's groundbreaking ceremony changed the vibe, giving the Cardinals much-needed offseason optimism.`\
-https://nytimes.com/athletic/7058824/2026/02/19/arizona-cardinals-new-performance-center-fans/
 
