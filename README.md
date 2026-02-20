@@ -1,3 +1,11 @@
+**Palestinian-American Teenager Killed in West Bank Is Laid to Rest**\
+`Nasrallah Abu Siyam, 19, was shot dead by an Israeli settler, according to a witness and Palestinian health officials, amid rising violent settler attacks in the Israeli-occupied territory.`\
+https://nytimes.com/2026/02/20/world/middleeast/palestinian-american-teenager-killed-west-bank.html
+
+**The Supreme Court’s Declaration of Independence**\
+`The court’s rejection of President Trump’s tariffs program is the latest in a series of clashes between him and Chief Justice John G. Roberts Jr.`\
+https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-roberts-tariffs.html
+
 **Vikings mailbag: Submit your combine and free-agency questions for reporter Alec Lewis**\
 `With the NFL combine on tap next week, it's a good time to take your offseason questions on free agency and the draft. Submit them here.`\
 https://nytimes.com/athletic/7060569/2026/02/20/vikings-mailbag-nfl-combine-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7060456/2026/02/20/ioc-infantino-trump-hat-board-of
 **Apple Is One of the Companies Hit Hardest by Tariffs**\
 `The company makes almost all of its products in countries facing steep levies, running up a tariff bill of $3.3 billion over the past three quarters.`\
 https://nytimes.com/2026/02/20/us/politics/trump-tariffs-apple.html
-
-**India’s Hindu Right Seems Unstoppable. This City Shows How.**\
-`Muslims make up a majority in Sambhal, but after deadly clashes over a mosque, they say they the arms of the state are now stifling them.`\
-https://nytimes.com/2026/02/20/world/asia/india-hindu-muslims-mosque.html
-
-**Spring 2026 Theater, Music and Dance**\
-`Your guide on what to see this season — including theater, music and dance.`\
-https://nytimes.com/spotlight/theater-music-dance-2026
 
