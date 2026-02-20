@@ -1,3 +1,16 @@
+**Chat live with Eno Sarris on Friday, Feb. 20 at 1pm PT!**\
+`<p>Spring training games are officially underway and Opening Day is just around the corner. Chat live with Eno Sarris at 1pm PT on Friday about who you should target in your fantasy drafts, which pitching staffs look ready to dominate this season and anything else that comes to mind.</p>
+`\
+https://nytimes.com/athletic/7058886/2026/02/20/eno-sarris-live-chat-february-20/
+
+**The New York Times in Print for Friday, Feb. 20, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/20/todays-new-york-times
+
+**Americans Don’t Want War With Iran. Trump Doesn’t Care.**\
+`All that matters to him is whether he thinks an attack is in his interests.`\
+https://nytimes.com/2026/02/20/opinion/trump-iran-public-opinion.html
+
 **What to watch on Day 14 of Winter Olympics: Men's hockey semifinals, U.S. curling history and more**\
 `The United States and Canada are both a win away from clinching a second North American hockey duel for gold in Milan.`\
 https://nytimes.com/athletic/7058273/2026/02/20/milan-cortina-winter-olympics-what-to-watch-day-14/
@@ -26,16 +39,4 @@ https://nytimes.com/athletic/6993604/2026/02/20/brighton-set-pieces-approach/
 **Ben Foster interview: 'Any time anyone sees me, all they mention is the penalty save'**\
 `Ben Foster won promotion from the National League with Wrexham. He spoke to The Athletic about his experience`\
 https://nytimes.com/athletic/7023760/2026/02/20/ben-foster-wrexham-podcast-interview/
-
-**This was not meant to be Forest's most important game this week. It might be for Pereira**\
-`Vitor Pereira oversaw a 3-0 win during his first match as Nottingham Forest head coach`\
-https://nytimes.com/athletic/7058650/2026/02/20/nottingham-forest-fenerbahce-analysis/
-
-**What Man United and their fans are doing with so few matches this season – holidays, youth games and hoping for Europe**\
-`Manchester United have gone almost two weeks without a game and play only two of the next seven weekends. So what is everyone doing instead?`\
-https://nytimes.com/athletic/7054951/2026/02/20/manchester-united-no-football/
-
-**Woltemade's move to midfield has unlocked the £65m signing's significant talents**\
-`The German has adapted to his new role remarkably quickly and Eddie Howe's side have benefitted hugely as a result`\
-https://nytimes.com/athletic/7057187/2026/02/20/woltemade-howe-newcastle-united-premier-league-champions-league/
 
