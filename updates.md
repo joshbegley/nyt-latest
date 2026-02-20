@@ -1,3 +1,11 @@
+**White House Dims Lights as Trump Responds to Tariff Ruling**\
+`The mood lighting appeared to be borrowing from the playbook of former President Joseph R. Biden Jr., and the old meme of “Dark Brandon.”`\
+https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
+
+**How Does Trump Really Spend His Time?**\
+`President Trump is running the White House on “gut instinct” and late-night phone calls, Ashley Parker and Michael Scherer, staff writers for The Atlantic, tell Ezra Klein on a recent episode of “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010718515/how-does-trump-really-spend-his-time.html
+
 **The U.S. Tariffs Causing the Most Pain for Canada Remain in Place**\
 `While the vast majority of Canadian exports were exempt from the tariffs now struck down, the ruling does not effect duties harming several key industries.`\
 https://nytimes.com/2026/02/20/us/politics/trump-canada-tariffs-supreme-court.html
