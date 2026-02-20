@@ -1,3 +1,11 @@
+**Fantasy Premier League live Q&A: Gameweek 27 advice from Ben Dinnery**\
+`To get your side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and to avoid`\
+https://nytimes.com/athletic/7059556/2026/02/20/fantasy-premier-league-live-qa-gameweek-27-advice-from-ben-dinnery/
+
+**In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
+`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold medal game is set to be a classic.`\
+https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
+
 **In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
 `Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold-medal game is set to be a classic.`\
 https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
