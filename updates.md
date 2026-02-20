@@ -1,3 +1,7 @@
+**A.I. Is Coming for the 2026 Midterms**\
+`Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
+https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
+
 **USA to face Canada for Olympic gold after overpowering Slovakia in men's hockey**\
 `For the third time since the NHL began participating in the Olympics in 1998, the U.S. and Canada will meet for the ultimate prize.`\
 https://nytimes.com/athletic/7060963/2026/02/20/usa-slovakia-result-olympic-gold-medal-canada/

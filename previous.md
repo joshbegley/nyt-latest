@@ -1,3 +1,7 @@
+**A.I. Is Coming for the 2026 Midterms**\
+`Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
+https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
+
 **USA to face Canada for Olympic gold after overpowering Slovakia in men's hockey**\
 `For the third time since the NHL began participating in the Olympics in 1998, the U.S. and Canada will meet for the ultimate prize.`\
 https://nytimes.com/athletic/7060963/2026/02/20/usa-slovakia-result-olympic-gold-medal-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010726290/supreme-court-rules-agains
 **The Save America Act Is an Assault on Democracy**\
 `President Trump would have you think that voter fraud is rampant, says the Opinion columnist Jamelle Bouie. The reality? That’s just not true. So why are Trump and his allies so preoccupied with passing the Save America Act?`\
 https://nytimes.com/video/opinion/100000010726627/the-save-america-act-is-an-assault-on-democracy.html
-
-**Russia Takes the Gulag Out of the Gulag History Museum in Moscow**\
-`The museum had preserved the history of brutality inflicted by the Soviet Union on its people. It will now focus on Nazi war crimes.`\
-https://nytimes.com/2026/02/20/world/europe/russia-gulag-history-museum-stalin.html
 
