@@ -1,3 +1,7 @@
+**Trump Calls Justices Who Ruled Against Him ‘Fools and Lap Dogs’**\
+`“I’m ashamed of certain members of the court, absolutely ashamed for not having the courage to do what’s right for our country,” the president said.`\
+https://nytimes.com/2026/02/20/us/politics/trump-justices-gorsuch-barrett-roberts.html
+
 **These Skiers Cleared Out as Group That Would Be Hit by Avalanche Arrived**\
 `If the party had waited out the storm in their cabins, one of the skiers said, the outcome might have been different.`\
 https://nytimes.com/2026/02/20/us/avalanche-tahoe-huts.html

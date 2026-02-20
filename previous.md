@@ -1,3 +1,7 @@
+**Trump Calls Justices Who Ruled Against Him ‘Fools and Lap Dogs’**\
+`“I’m ashamed of certain members of the court, absolutely ashamed for not having the courage to do what’s right for our country,” the president said.`\
+https://nytimes.com/2026/02/20/us/politics/trump-justices-gorsuch-barrett-roberts.html
+
 **These Skiers Cleared Out as Group That Would Be Hit by Avalanche Arrived**\
 `If the party had waited out the storm in their cabins, one of the skiers said, the outcome might have been different.`\
 https://nytimes.com/2026/02/20/us/avalanche-tahoe-huts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060337/2026/02/20/f1-preseason-testing-takeaways/
 **Review: A Pulitzer Winner Imagines Emily Dickinson Anew**\
 `Kevin Puts’s song cycle “Emily — No Prisoner Be” was brought to life by Time for Three and Joyce DiDonato in its New York premiere at Carnegie Hall.`\
 https://nytimes.com/2026/02/20/arts/music/emily-dickinson-no-prisoner-be-review-kevin-puts.html
-
-**A ‘Gratifying’ Supreme Court Decision on Tariffs**\
-`Readers react to the Supreme Court decision overturning President Trump’s tariffs. Also: Former Prince Andrew’s arrest; trade pacts based on whims.`\
-https://nytimes.com/2026/02/20/opinion/supreme-court-tariffs-trump.html
 
