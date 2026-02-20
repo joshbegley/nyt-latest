@@ -1,3 +1,7 @@
+**Dog Poop Wars: In New York, the Snow Is Foul, and So Is the Discourse**\
+`As melting snow reveals weeks’ worth of uncollected dog waste, frustration at the state of the sidewalks has boiled over.`\
+https://nytimes.com/2026/02/20/nyregion/new-york-snow-dog-waste.html
+
 **Canada to play for gold in Olympic men's hockey with win over Finland**\
 `Team Canada defeated Finland in the Olympic men's hockey semifinal on Friday to punch its ticket to the gold medal game.`\
 https://nytimes.com/athletic/7060232/2026/02/20/canada-finland-olympics-mens-hockey-semifinal/
