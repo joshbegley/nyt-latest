@@ -1,3 +1,15 @@
+**The Best Stain Removers for Anything You Need to Get Out**\
+`Text by Andrea Barnes`\
+https://nytimes.com/card/2026/02/20/smarter-living/wirecutter/
+
+**Benn leaves Hearns' Matchroom Sport and signs with White's Zuffa Boxing**\
+`Benn announced he will be moving to the Dana White-led Zuffa after they presented him with an opportunity he “simply couldn’t refuse."`\
+https://nytimes.com/athletic/7061062/2026/02/20/boxing-news-benn-dana-white-eddie-hearn-matchroom-zuffa-sign/
+
+**Businesses Celebrate Tariff Relief, and Brace for New Uncertainty**\
+`The Supreme Court’s ruling against many of President Trump’s tariffs cheered executives who set to work seeking refunds on their duties.`\
+https://nytimes.com/2026/02/20/business/supreme-court-tariffs-reaction-businesses.html
+
 **Why ‘Wuthering Heights’ Falls Flat**\
 `Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
 https://nytimes.com/video/arts/100000010727034/why-wuthering-heights-falls-flat.html
