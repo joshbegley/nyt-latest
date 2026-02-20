@@ -1,3 +1,27 @@
+**How to watch Nuggets vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7061010/2026/02/20/nuggets-vs-trail-blazers-stream-how-to-watch-feb-20/
+
+**How to watch Mavericks vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7061004/2026/02/20/mavericks-vs-timberwolves-stream-how-to-watch-feb-20/
+
+**Deadly Avalanche Breaks Loose in Austrian Alps**\
+`A deadly avalanche spanning roughly 1,300 feet broke loose near St. Anton am Arlberg, Austria, on Friday, according to the police.`\
+https://nytimes.com/video/world/europe/100000010726647/austrian-avalanche-deaths.html
+
+**How to watch Nets vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7061001/2026/02/20/nets-vs-thunder-stream-how-to-watch-feb-20/
+
+**How to watch Clippers vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Clippers play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060994/2026/02/20/clippers-vs-lakers-stream-how-to-watch-feb-20/
+
+**Flashback: Your Weekly History Quiz, Feb. 21, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/02/20/upshot/flashback.html
+
 **How to watch Heat vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7060986/2026/02/20/heat-vs-hawks-stream-how-to-watch-feb-20/
