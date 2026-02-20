@@ -1,3 +1,7 @@
+**Why ‘Wuthering Heights’ Falls Flat**\
+`Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
+https://nytimes.com/video/arts/100000010727034/why-wuthering-heights-falls-flat.html
+
 **Blue Jays, Max Scherzer remain in constant contact about potential reunion**\
 `The Blue Jays' clubhouse would welcome back Scherzer with open arms but he isn't a natural fit on their roster at the moment.`\
 https://nytimes.com/athletic/7061143/2026/02/20/toronto-blue-jays-max-scherzer-potential-return/
