@@ -1,3 +1,7 @@
+**‘A Victory for the Rule of Law’: 3 Experts Assess How Much the Court Reined In Trump**\
+`What does this mean for the president, the economy — and your bank account?`\
+https://nytimes.com/2026/02/20/opinion/trump-tariffs-supreme-court.html
+
 **3 People Are Killed in Series of Avalanches in Austrian Alps**\
 `The police said several other rescues took place. The avalanches happened amid severe weather warnings across the region.`\
 https://nytimes.com/2026/02/20/world/europe/austrian-alps-avalanche-skiing-death.html
