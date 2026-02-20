@@ -1,3 +1,19 @@
+**Husbands and Boyfriends Step Into the Olympic Spotlight**\
+`Here come the “HABs,” the attention-seeking husbands and boyfriends of medal-winning athletes.`\
+https://nytimes.com/2026/02/20/style/husbands-and-boyfriends-step-into-the-olympic-spotlight.html
+
+**Hungary Poses Unexpected Hurdle to Europe’s 90-Billion Euro Loan to Ukraine**\
+`While the delay may prove to be procedural, Hungary signaled that it could cause problems as the European Union works to send money to Ukraine.`\
+https://nytimes.com/2026/02/20/world/europe/euro-loan-ukraine-hungary-obstacle.html
+
+**Judge denies Vols QB Joey Aguilar’s request for injunction in eligibility case**\
+`The NCAA previously denied Tennessee’s request for what would be counted as a seventh season of eligibility for Aguilar.`\
+https://nytimes.com/athletic/7061018/2026/02/20/tennessee-joey-aguilar-injunction-eligibility-denied/
+
+**Love or Hate Emerald Fennell’s ‘Wuthering Heights’?**\
+`Her films, including “Saltburn” and “Promising Young Woman,” are exhilarating to some, enraging to others. Where do you stand?`\
+https://nytimes.com/interactive/2026/02/20/movies/emerald-fennell-films-love-hate-wuthering-heights.html
+
 **‘A Victory for the Rule of Law’: 3 Experts Assess How Much the Court Reined In Trump**\
 `What does this mean for the president, the economy — and your bank account?`\
 https://nytimes.com/2026/02/20/opinion/trump-tariffs-supreme-court.html
