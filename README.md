@@ -1,3 +1,23 @@
+**Trump blasts the tariff ruling on Truth Social.**\
+`(No description)`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/trump-blasts-the-tariff-ruling-on-truth-social
+
+**Pablo López to undergo Tommy John surgery, will miss the season**\
+`López was injured on Monday during the team's first full-squad workout. This will be the second Tommy John surgery of his career.`\
+https://nytimes.com/athletic/7060808/2026/02/20/twins-pablo-lopez-tommy-john-surgery/
+
+**Arsenal technical director Ellis to leave club after just seven months in role**\
+`Ellis was promoted to technical director last summer, having previously been Arsenal’s head of recruitment.`\
+https://nytimes.com/athletic/7060870/2026/02/20/arsenal-news-director-ellis-update/
+
+**San José State Graduate Who Went Skiing Is Found Dead in Tree Well**\
+`The recent graduate, 21, was on a trail in the Lake Tahoe region of California on Tuesday and did not return, prompting a search. His death is under investigation, the authorities said.`\
+https://nytimes.com/2026/02/20/us/san-jose-state-skier-dead.html
+
+**In This Novel, It’s the Student Who Shapes the Teacher’s Life**\
+`“The Optimists,” by Brian Platzer, is an account of an extraordinary character, as remembered by her middle-school instructor.`\
+https://nytimes.com/2026/02/20/books/review/brian-platzer-optimists.html
+
 **UCLA's Mick Cronin apologizes for sending Steven Jamerson to locker room during loss**\
 `Cronin said he thought Jamerson's foul was dirty in real time but acknowledges that he misjudged the play. `\
 https://nytimes.com/athletic/7060598/2026/02/20/mick-cronin-apology-ucla-steven-jamerson/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/20/nyregion/nyc-air-quality.html
 **Cuba Energy Crisis Deepens Under United States Blockade on Oil**\
 `Fuel shortages have made everyday life more challenging for residents in Cuba, as the country faces the United States’ first effective blockade since the Cuban Missile Crisis.`\
 https://nytimes.com/video/world/americas/100000010726386/cuba-oil-blockade-us-energy.html
-
-**Russell Westbrook's wife shares email wishing death upon family after loss**\
-`The message expressed hope the Westbrooks would die in a car crash because the Kings point guard finished with fewer than 10 points.`\
-https://nytimes.com/athletic/7060324/2026/02/20/russell-westbrook-wife-sports-betting-email-instagram-kings/
-
-**Venus Williams gets an Indian Wells wild card – for real, this time**\
-`Williams, 45, was awarded a wild card last year but had to miss the tournament due to other commitments.`\
-https://nytimes.com/athletic/7060651/2026/02/20/tennis-venus-williams-indian-wells-wild-card/
-
-**The Wild and Weird at the 2026 Olympics**\
-`People won gold medals. People broke records. And also these things happened.`\
-https://nytimes.com/interactive/2026/02/20/world/olympics/milan-italy-quiz.html
-
-**In Her Big Olympic Moment, Alysa Liu Celebrated Her Freedom**\
-`Competition can wreck a figure skater, but Liu and other Olympians shed the pressure and delivered transcendent performances focused on artistry.`\
-https://nytimes.com/2026/02/20/arts/dance/alysa-liu-figure-skating-winter-olympics.html
-
-**F1's preseason is done, but the 2026 pecking order is still anyone's guess**\
-`F1 has completed its longest preseason in years with its new cars. But heading to race one, there's no clear favorite team`\
-https://nytimes.com/athletic/7060337/2026/02/20/f1-preseason-testing-takeaways/
 
