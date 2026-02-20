@@ -1,3 +1,23 @@
+**Sweden, Switzerland to meet for Olympic women's curling gold; U.S.-Canada for bronze**\
+`Sweden and Switzerland will play for gold on Sunday, while the North American border battle will be for bronze Saturday afternoon.`\
+https://nytimes.com/athletic/7060123/2026/02/20/winter-olympics-curling-semifinals-us-canada-sweden-switzerland/
+
+**How to watch VCU vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the VCU Rams play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060361/2026/02/20/vcu-vs-saint-louis-stream-how-to-watch-feb-20/
+
+**Indiana bumps Curt Cignetti's salary to $13.2 million after winning national championship**\
+`Cignetti, 64, is 27-2 in two seasons since taking over what was at the time the losingest program in major college football history.`\
+https://nytimes.com/athletic/7060307/2026/02/20/curt-cignetti-contract-extension-indiana-hooisers/
+
+**Sword Strikes Playgoer During ‘Richard III’ in Berlin**\
+`The German actor Lars Eidinger lost control of the weapon in the final scene of Shakespeare’s play.`\
+https://nytimes.com/2026/02/20/arts/sword-hits-audience-member-theater-berlin.html
+
+**Norway breaks its own record for most gold medals at a single Winter Olympics**\
+`Johannes Dale-Skjevdal's win in the 15-kilometer mass start biathlon event set a new mark for most golds by one nation at a Winter Olympics.`\
+https://nytimes.com/athletic/7060274/2026/02/20/norway-winter-olympics-gold-medal-record/
+
 **Ski. Breathe. Shoot. The wonderful chaos of biathlon.**\
 `Johannes Dale-Skjevdal of Norway hit all 20 of his shots to win the gold medal in the mass start event.`\
 https://nytimes.com/2026/02/20/world/biathlon-johannes-dale-skjevdal-norway.html
@@ -13,24 +33,4 @@ https://nytimes.com/2026/02/20/movies/action-movies-streaming.html
 **A Better Butter Chicken**\
 `Amandeep Sharma’s recipe, adapted by Sam Sifton, is a five-star reader favorite.`\
 https://nytimes.com/2026/02/20/dining/a-better-butter-chicken.html
-
-**Here’s the latest.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/heres-the-latest
-
-**Michigan-Duke showdown in February? Why programs are playing big nonconference games now**\
-`The new wave is driven by coaches who want their teams to be tested like they could be in fast-approaching March Madness.`\
-https://nytimes.com/athletic/7060097/2026/02/20/michigan-duke-college-basketball-nonconference/
-
-**Read the Supreme Court’s Decision on Trump’s Sweeping Tariffs**\
-`In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke an emergency power to set tariffs on imports.`\
-https://nytimes.com/interactive/2026/02/20/us/politics/supreme-court-tariffs-decision.html
-
-**NASA Conducts Successful Launchpad Test of the Massive Artemis Rocket**\
-`The next moon mission, carrying four astronauts, could launch as soon as early March.`\
-https://nytimes.com/2026/02/20/science/artemis-moon-mission-nasa.html
-
-**What are tariffs?**\
-`The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs
 
