@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
 
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **Word of the Day: progeny**\
 `This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/20/learning/word-of-the-day-progeny.html
