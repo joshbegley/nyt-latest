@@ -1,3 +1,11 @@
+**Michigan-Duke showdown in February? Why programs are playing big nonconference games now**\
+`The new wave is driven by coaches who want their teams to be tested like they could be in fast-approaching March Madness.`\
+https://nytimes.com/athletic/7060097/2026/02/20/michigan-duke-college-basketball-nonconference/
+
+**Read the Supreme Court’s Decision on Trump’s Sweeping Tariffs**\
+`In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke an emergency power to set tariffs on imports.`\
+https://nytimes.com/interactive/2026/02/20/us/politics/supreme-court-tariffs-decision.html
+
 **NASA Conducts Successful Launchpad Tests of the Massive Artemis Rocket**\
 `The next moon mission, carrying four astronauts, could launch as soon as early March.`\
 https://nytimes.com/2026/02/20/science/artemis-moon-mission-nasa.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7060096/2026/02/20/crystal-palace-banner-fans-fores
 **In Ukraine, Senators See War’s Impact and Press for Stronger U.S. Support**\
 `Senate Democrats traveled to Kyiv and Odessa to show solidarity with the war-torn nation and make the case that the United States should do more, including imposing harsh sanctions on Russia.`\
 https://nytimes.com/2026/02/20/us/politics/senators-ukraine-visit.html
-
-**Before the ruling, companies raced to secure refunds from tariffs they had paid.**\
-`By Tony Romm and Ana Swanson`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/before-the-ruling-companies-raced-to-secure-refunds-from-tariffs-they-had-paid
-
-**What is IEEPA, the Law Trump Used to Levy Tariffs?**\
-`The 1977 law gives the president broad economic powers during a national emergency.`\
-https://nytimes.com/2026/02/20/us/politics/what-is-ieepa-trump-tariffs.html
 

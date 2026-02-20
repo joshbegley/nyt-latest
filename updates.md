@@ -1,3 +1,7 @@
+**NASA Conducts Successful Launchpad Tests of the Massive Artemis Rocket**\
+`The next moon mission, carrying four astronauts, could launch as soon as early March.`\
+https://nytimes.com/2026/02/20/science/artemis-moon-mission-nasa.html
+
 **What are tariffs?**\
 `The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs

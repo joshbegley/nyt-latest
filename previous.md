@@ -1,3 +1,7 @@
+**NASA Conducts Successful Launchpad Tests of the Massive Artemis Rocket**\
+`The next moon mission, carrying four astronauts, could launch as soon as early March.`\
+https://nytimes.com/2026/02/20/science/artemis-moon-mission-nasa.html
+
 **What are tariffs?**\
 `The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs
@@ -29,8 +33,4 @@ https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/before-the-ru
 **What is IEEPA, the Law Trump Used to Levy Tariffs?**\
 `The 1977 law gives the president broad economic powers during a national emergency.`\
 https://nytimes.com/2026/02/20/us/politics/what-is-ieepa-trump-tariffs.html
-
-**Here’s the latest.**\
-`President Trump is the first to invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imported goods from more than 100 countries.`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
 
