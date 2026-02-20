@@ -1,3 +1,11 @@
+**In Ukraine, Senators See War’s Impact and Press for Stronger U.S. Support**\
+`Senate Democrats traveled to Kyiv and Odessa to show solidarity with the war-torn nation and make the case that the United States should do more, including imposing harsh sanctions on Russia.`\
+https://nytimes.com/2026/02/20/us/politics/senators-ukraine-visit.html
+
+**Before the ruling, companies raced to secure refunds from tariffs they had paid.**\
+`By Tony Romm and Ana Swanson`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/before-the-ruling-companies-raced-to-secure-refunds-from-tariffs-they-had-paid
+
 **What is IEEPA, the Law Trump Used to Levy Tariffs?**\
 `The 1977 law gives the president broad economic powers during a national emergency.`\
 https://nytimes.com/2026/02/20/us/politics/what-is-ieepa-trump-tariffs.html
@@ -14,7 +22,7 @@ https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
 `The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
 https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
 
-**'Love me after I draw and I lose' - Arteta's demand of Arsenal players**\
+**'Love me after I draw and I lose' - Arteta's demand of Arsenal**\
 `The Premier League leaders have won just two of their last seven Premier League matches.`\
 https://nytimes.com/athletic/7060115/2026/02/20/arteta-arsenal-players-demand/
 
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-o
 **As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
 `Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
 https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
-
-**Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
-`Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
-https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
 

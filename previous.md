@@ -1,3 +1,7 @@
+**What is IEEPA, the Law Trump Used to Levy Tariffs?**\
+`The 1977 law gives the president broad economic powers during a national emergency.`\
+https://nytimes.com/2026/02/20/us/politics/what-is-ieepa-trump-tariffs.html
+
 **Here’s the latest.**\
 `President Trump is the first to invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imported goods from more than 100 countries.`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
 **Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
 `Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
 https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
-
-**How Antarctica turns your world upside down.**\
-`Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
-https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down
 
