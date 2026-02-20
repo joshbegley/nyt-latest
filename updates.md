@@ -1,3 +1,11 @@
+**Games Briefing: Canada's through!**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7060688/2026/02/20/canada-finland-us-slovakia-mens-hockey-olympic-games-briefing/
+
+**2 N.Y.P.D. Officers Charged With Covering Up a Colleague’s Drunken Crash**\
+`Manhattan prosecutors say that Officers Michael Caligiuri and Ryan McLoughlin hid another officer’s crash in 2024. Dozens of their colleagues appeared in court on Friday to support them.`\
+https://nytimes.com/2026/02/20/nyregion/nypd-dui-coverup-arraignment.html
+
 **Dog Poop Wars: In New York, the Snow Is Foul, and So Is the Discourse**\
 `As melting snow reveals weeks’ worth of uncollected dog waste, frustration at the state of the sidewalks has boiled over.`\
 https://nytimes.com/2026/02/20/nyregion/new-york-snow-dog-waste.html
