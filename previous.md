@@ -1,3 +1,19 @@
+**USA to face Canada for Olympic gold after overpowering Slovakia in men's hockey**\
+`For the third time since the NHL began participating in the Olympics in 1998, the U.S. and Canada will meet for the ultimate prize.`\
+https://nytimes.com/athletic/7060963/2026/02/20/usa-slovakia-result-olympic-gold-medal-canada/
+
+**Trump Promises New Tariffs After Justices Rule Against Him**\
+`Also, Cuba nears collapse. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/02/20/briefing/supreme-court-tariffs-cuba-oil.html
+
+**SPECIAL EPISODE: TRUMP’S TARIFFS STRUCK DOWN**\
+`In a 6-3 decision, the Supreme Court struck down President Trump’s global tariffs, a cornerstone of his second term.`\
+https://nytimes.com/2026/02/20/podcasts/the-daily/special-episode-trumps-tariffs-struck-down.html
+
+**Supreme Court Tariff Ruling to Spur Chaotic Refund Process**\
+`The Trump administration says it could take years and additional litigation for importers to get their money back.`\
+https://nytimes.com/2026/02/20/business/supreme-court-tariffs-refunds.html
+
 **John Shirreffs, 80, Dies; Trainer of a Nearly Perfect Horse**\
 `He guided Zenyatta, a spectacular mare, to 19 consecutive wins and won the Kentucky Derby in 2005 with Giacomo, a 50-1 long shot.`\
 https://nytimes.com/2026/02/20/sports/horse-racing/john-shirreffs-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010726627/the-save-america-act-is-an-ass
 **Russia Takes the Gulag Out of the Gulag History Museum in Moscow**\
 `The museum had preserved the history of brutality inflicted by the Soviet Union on its people. It will now focus on Nazi war crimes.`\
 https://nytimes.com/2026/02/20/world/europe/russia-gulag-history-museum-stalin.html
-
-**The Best Stain Removers for Anything You Need to Get Out**\
-`Text by Andrea Barnes`\
-https://nytimes.com/card/2026/02/20/smarter-living/wirecutter/
-
-**Benn leaves Hearns' Matchroom Sport and signs with White's Zuffa Boxing**\
-`Benn announced he will be moving to the Dana White-led Zuffa after they presented him with an opportunity he “simply couldn’t refuse."`\
-https://nytimes.com/athletic/7061062/2026/02/20/boxing-news-benn-dana-white-eddie-hearn-matchroom-zuffa-sign/
-
-**Businesses Celebrate Tariff Relief, and Brace for New Uncertainty**\
-`The Supreme Court’s ruling against many of President Trump’s tariffs cheered executives who set to work seeking refunds on their duties.`\
-https://nytimes.com/2026/02/20/business/supreme-court-tariffs-reaction-businesses.html
-
-**Why ‘Wuthering Heights’ Falls Flat**\
-`Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
-https://nytimes.com/video/arts/100000010727034/why-wuthering-heights-falls-flat.html
 
