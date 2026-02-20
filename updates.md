@@ -1,3 +1,7 @@
+**Quote of the Day: They Trade Agony for a Few Inches of Stature**\
+`Quotation of the Day for Friday, February 20, 2026.`\
+https://nytimes.com/2026/02/19/pageoneplus/quote-of-the-day-they-trade-agony-for-a-few-inches-of-stature.html
+
 **Trump Says He’ll Release Alien and U.F.O. Files**\
 `After former President Obama made viral comments about aliens, President Trump said his administration would begin to release government files related to aliens and extraterrestrial life.`\
 https://nytimes.com/video/us/100000010724694/trump-ufos-aliens-files-obama.html

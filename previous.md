@@ -1,3 +1,7 @@
+**Quote of the Day: They Trade Agony for a Few Inches of Stature**\
+`Quotation of the Day for Friday, February 20, 2026.`\
+https://nytimes.com/2026/02/19/pageoneplus/quote-of-the-day-they-trade-agony-for-a-few-inches-of-stature.html
+
 **Trump Says He’ll Release Alien and U.F.O. Files**\
 `After former President Obama made viral comments about aliens, President Trump said his administration would begin to release government files related to aliens and extraterrestrial life.`\
 https://nytimes.com/video/us/100000010724694/trump-ufos-aliens-files-obama.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-futur
 **Winter Olympics Day 13 recap: USA women's hockey beats Canada; Liu wins gold**\
 `Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
 https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
-
-**Relive the Biggest Olympic Skating Jumps, in Miniature**\
-`These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
-https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html
 
