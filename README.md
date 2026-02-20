@@ -1,5 +1,21 @@
+**NBA trends I'm watching: Swarming Hornets, the malleable Pistons and more**\
+`Sure, Charlotte's offense stands out in its recent hot stretch, but the Hornets have dominated on both ends of the floor.`\
+https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers-nba-trends/
+
+**Manchester United 'proud of equality and diversity', says Carrick after Ratcliffe comments**\
+`Ratcliffe's claim that the UK had been "colonised by immigrants" was widely condemned, including by prime minister Keir Starmer.`\
+https://nytimes.com/athletic/7059999/2026/02/20/carrick-manchester-united-ratcliffe-immigration/
+
+**South Africa Pulls Out of Venice Biennale After Gaza Artwork Furor**\
+`The country, a major center for African art, will not have an official presence at this year’s event after a legal dispute over a Gaza-focused artwork.`\
+https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
+
+**Rams promote Nate Scheelhaase to offensive coordinator: Source**\
+`Scheelhaase, who interviewed for several head-coaching vacancies, spent last season as the Rams' pass game coordinator. `\
+https://nytimes.com/athletic/7017541/2026/02/20/rams-nathan-scheelhaase-offensive-coordinator/
+
 **Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
-`For Collin Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
+`For Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
 https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
 
 **Three Dodgers storylines to watch as spring training games begin**\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
 **'You never know' - Glasner non-committal on short-term Palace future**\
 `Glasner was jeered by Palace fans on Thursday after their 1-1 Conference League draw with Zrinjski Mostar.`\
 https://nytimes.com/athletic/7059886/2026/02/20/oliver-glasner-crystal-palace-future-latest/
-
-**How Mike Conley's wild trade deadline journey led him right back to Minnesota**\
-`Conley thought his Minnesota tenure was over when he was traded to Chicago and then Charlotte. However, he came back home.`\
-https://nytimes.com/athletic/7058049/2026/02/20/mike-conleys-minnesota-trade-deadline/
-
-**Nebraska spring football primer: 5 observations as the Huskers return to the field**\
-`Here are five of the most compelling storylines for Nebraska as it enters the spring.`\
-https://nytimes.com/athletic/7059850/2026/02/20/nebraska-spring-football-matt-rhule-anthony-colandrea/
-
-**Tigers’ Kerry Carpenter on quest to stay healthy after hamstring strains**\
-`Carpenter played in 130 games but was not always at full strength in 2025. Can offseason changes keep him going in a new season?`\
-https://nytimes.com/athletic/7058487/2026/02/20/tigers-kerry-carpenter-quest-healthy/
-
-**After a torrid start, how much did Alex Bregman's quad injury impact his second half?**\
-`Hampered by a quad injury in 2025 with the Red Sox, Bregman's mechanics appeared off when he returned, Cubs hitting coach Dustin Kelly says.`\
-https://nytimes.com/athletic/7058432/2026/02/20/alex-bregman-cubs-quad-injury-2026/
 
