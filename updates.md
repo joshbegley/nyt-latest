@@ -1,3 +1,7 @@
+**C.I.A. Retracts Reports Flagged for Bias**\
+`Former officials said the documents were not examples of shoddy work and simply reflected the priorities of past administrations.`\
+https://nytimes.com/2026/02/20/us/politics/cia-retracts-reports.html
+
 **The Biggest Olympic Skating Jumps, in Miniature**\
 `Alysa Liu became the first American woman to win an individual Olympic medal in figure skating in 20 years. Watch a head-to-head match-up of her jumps with silver medalist Kaori Sakamoto in the women’s figure skating final.`\
 https://nytimes.com/video/sports/100000010726286/the-biggest-olympic-skating-jumps-in-miniature.html
