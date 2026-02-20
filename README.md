@@ -1,9 +1,13 @@
+**These Skiers Cleared Out as Group That Would Be Hit by Avalanche Arrived**\
+`If the party had waited out the storm in their cabins, one of the skiers said, the outcome might have been different.`\
+https://nytimes.com/2026/02/20/us/avalanche-tahoe-huts.html
+
 **What’s Up With New York’s Bad Air Quality This Week?**\
 `Did you notice a dip in the air quality the last few days? It’s winter’s fault.`\
 https://nytimes.com/2026/02/20/nyregion/nyc-air-quality.html
 
 **Cuba Energy Crisis Deepens Under United States Blockade on Oil**\
-`Oil shortages have made everyday life more challenging for residents in Cuba, as the country faces the United States’ first effective blockade since the Cuban Missile Crisis.`\
+`Fuel shortages have made everyday life more challenging for residents in Cuba, as the country faces the United States’ first effective blockade since the Cuban Missile Crisis.`\
 https://nytimes.com/video/world/americas/100000010726386/cuba-oil-blockade-us-energy.html
 
 **Russell Westbrook's wife shares email wishing death upon family after loss**\
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/7060651/2026/02/20/tennis-venus-williams-indian-wel
 
 **The Wild and Weird at the 2026 Olympics**\
 `People won gold medals. People broke records. And also these things happened.`\
-https://nytimes.com/interactive/2026/02/20/world/olympics/19olympics-quiz.html
+https://nytimes.com/interactive/2026/02/20/world/olympics/milan-italy-quiz.html
 
 **In Her Big Olympic Moment, Alysa Liu Celebrated Her Freedom**\
 `Competition can wreck a figure skater, but Liu and other Olympians shed the pressure and delivered transcendent performances focused on artistry.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/arts/music/emily-dickinson-no-prisoner-be-review-
 **A ‘Gratifying’ Supreme Court Decision on Tariffs**\
 `Readers react to the Supreme Court decision overturning President Trump’s tariffs. Also: Former Prince Andrew’s arrest; trade pacts based on whims.`\
 https://nytimes.com/2026/02/20/opinion/supreme-court-tariffs-trump.html
-
-**Games Briefing: Canada's through!**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7060688/2026/02/20/canada-finland-us-slovakia-mens-hockey-olympic-games-briefing/
 
