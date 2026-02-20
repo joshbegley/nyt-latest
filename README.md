@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7058234/2026/02/19/f1-sprint-races-increase-stefano
 
 **Brewers, manager Pat Murphy in agreement on three-year contract: Source**\
 `Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
-https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract-source/
+https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
 
 **Trump Calls Himself a ‘Schmuck’ for Donating His Presidential Salary**\
 `President Trump complained that he gets “no credit” for the donations, though his family has done more to monetize the presidency than anyone who has ever occupied the White House.`\
