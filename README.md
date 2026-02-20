@@ -1,3 +1,7 @@
+**Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
+`For Collin Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
+https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
+
 **Three Dodgers storylines to watch as spring training games begin**\
 `A short offfseason for the Dodgers means they will be cautious about working their veteran players into action. `\
 https://nytimes.com/athletic/7058591/2026/02/20/dodgers-spring-training-storylines/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058487/2026/02/20/tigers-kerry-carpenter-quest-hea
 **After a torrid start, how much did Alex Bregman's quad injury impact his second half?**\
 `Hampered by a quad injury in 2025 with the Red Sox, Bregman's mechanics appeared off when he returned, Cubs hitting coach Dustin Kelly says.`\
 https://nytimes.com/athletic/7058432/2026/02/20/alex-bregman-cubs-quad-injury-2026/
-
-**Is This Private Credit’s ‘Canary in the Coal Mine’?**\
-`Steep declines in the shares of private lenders, after a major fund changed how investors can withdraw money, have sparked worries about more trouble to come.`\
-https://nytimes.com/2026/02/20/business/dealbook/private-credit-blue-owl.html
 
