@@ -1,3 +1,7 @@
+**How Did Draco Malfoy Get Mixed Up With Lunar New Year?**\
+`It all comes down to a love of wordplay.`\
+https://nytimes.com/2026/02/19/world/asia/lunar-new-year-china-felton-malfoy-harry-potter.html
+
 **Freddie Freeman wants to keep playing — all 162 games in 2026, and beyond**\
 `The Dodgers want to give Freeman more days off with an eye toward keeping him fresh for October. But will he push back?`\
 https://nytimes.com/athletic/7058723/2026/02/19/dodgers-freddie-freeman-future-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7058749/2026/02/19/joe-gibbs-racing-lawsuit-chris-g
 **Blue Owl Sets Off New Private Credit Fears**\
 `The lender’s announcement that investors would no longer be able to ask for a set amount of money back from its funds prompted worries about the private credit industry.`\
 https://nytimes.com/2026/02/19/business/blue-owl-stock-private-credit.html
-
-**Police Investigate ICE Arrest of a Man Who Suffered Severe Head Injuries**\
-`The police in St. Paul, Minn., are investigating an arrest last month during the immigration crackdown. The man has said he was beaten by agents. ICE asserted that he ran into a wall.`\
-https://nytimes.com/2026/02/19/us/police-investigation-ice.html
 

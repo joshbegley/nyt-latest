@@ -18,6 +18,10 @@ https://nytimes.com/athletic/7057925/2026/02/19/stefano-domenicali-f1-new-cars/
 `Six sprint races will be held in the 2026 season, hosted by China, Miami, Montreal, Silverstone, Zandvoort and Singapore.`\
 https://nytimes.com/athletic/7058234/2026/02/19/f1-sprint-races-increase-stefano-domenicali/
 
+**Want to Age Well at Home? Take Our Room-by-Room Tour.**\
+`Aging in place — growing old in your own home rather than a nursing home — offers a lot of benefits.`\
+https://nytimes.com/wirecutter/reviews/aging-in-place/
+
 **Brewers, manager Pat Murphy in agreement on 3-year contract: Source**\
 `Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
 https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
