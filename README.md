@@ -1,3 +1,19 @@
+**What Happens to All These Trade Deals Now?**\
+`The Supreme Court’s decision to invalidate many of President Trump’s tariffs raised questions about what would become of agreements struck with major U.S. trading partners.`\
+https://nytimes.com/2026/02/20/business/economy/trump-tariffs-supreme-court-trade-deals.html
+
+**Rocky Mountaineer and the Romance of Rail**\
+`From a lifelong dream fulfilled to a pre-wedding adventure, these travelers found that a journey by train was the perfect way to see the world.`\
+https://nytimes.com/paidpost/rocky-mountaineer/rocky-mountaineer-and-the-romance-of-rail.html
+
+**FIFA Fan Fest for New York/New Jersey cancelled four months before World Cup**\
+`Planning had been underway for a year and tickets had been sold, with ambitions of being open for all 104 games during the tournament`\
+https://nytimes.com/athletic/7060549/2026/02/20/world-cup-2026-fifa-fan-new-york-new-jersey-cancelled/
+
+**‘Very Successful Day’: NASA Completes Artemis II Launchpad Test**\
+`NASA successfully completed a rehearsal to launch the Artemis II rocket on Thursday. The mission would send astronauts around the Moon’s orbit for the first time in more than 50 years.`\
+https://nytimes.com/video/science/space/100000010726727/nasa-moon-rocket-artemis-mission.html
+
 **Husbands and Boyfriends Step Into the Olympic Spotlight**\
 `Here come the “HABs,” the attention-seeking husbands and boyfriends of medal-winning athletes.`\
 https://nytimes.com/2026/02/20/style/husbands-and-boyfriends-step-into-the-olympic-spotlight.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/20/world/europe/austrian-alps-avalanche-skiing-death
 **‘A Victory for the Rule of Law’: 3 Experts Assess How Much the Court Reined In Trump**\
 `What does this mean for the president, the economy — and your bank account?`\
 https://nytimes.com/2026/02/20/opinion/trump-tariffs-supreme-court.html
-
-**How to Create a ‘No-Makeup Makeup’ Look**\
-`Tips and techniques from a beauty-industry veteran, an artist and a model.`\
-https://nytimes.com/2026/02/20/t-magazine/subtle-no-makeup-makeup-look.html
-
-**Ferreira completes his halfpipe set with gold.**\
-`The American Alex Ferreira nailed his final run to win gold in the ski halfpipe.`\
-https://nytimes.com/2026/02/20/world/alex-ferreira-halpipe-gold.html
-
-**Tariff Whiplash Clouds Outlook for Federal Budget**\
-`The tariffs thrown out by the Supreme Court had become an important revenue source. President Trump said he could replace that money with other levies.`\
-https://nytimes.com/2026/02/20/us/politics/trump-tariffs-federal-budget.html
-
-**How to watch Nuggets vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061010/2026/02/20/nuggets-vs-trail-blazers-stream-how-to-watch-feb-20/
 
