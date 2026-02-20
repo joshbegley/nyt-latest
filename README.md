@@ -1,3 +1,7 @@
+**Trump Has a Head-Spinning Day, but Republicans Want Him to Focus**\
+`President Trump’s advisers want him to lock down a message on the economy that will resonate ahead of the midterms. But Mr. Trump is never one to stay on message.`\
+https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
+
 **HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
 `When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
 https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/19/world/asia/lunar-new-year-china-felton-malfoy-har
 **Freddie Freeman wants to keep playing — all 162 games in 2026, and beyond**\
 `The Dodgers want to give Freeman more days off with an eye toward keeping him fresh for October. But will he push back?`\
 https://nytimes.com/athletic/7058723/2026/02/19/dodgers-freddie-freeman-future-contract/
-
-**Three Words That Shape Our Politics**\
-`Is Donald Trump “country” or “cowboy”? The Times Opinion columnist Tressie McMillan Cottom breaks down a cultural trend she sees shaping politics today.`\
-https://nytimes.com/video/opinion/100000010722916/three-words-that-shape-our-politics.html
 
