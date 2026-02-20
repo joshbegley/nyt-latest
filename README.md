@@ -1,3 +1,7 @@
+**New York Man Tried to Ram a Nevada Substation in an Act of Terrorism, Police Say**\
+`The man, Dawson Maloney, of Albany, was heavily armed during the attack on Thursday in Boulder City, Nev. He died of a self-inflicted gunshot wound, the police said.`\
+https://nytimes.com/2026/02/20/us/las-vegas-car-ramming-terrorism.html
+
 **64% of Americans Disapprove of Trump’s Tariffs**\
 `The poll found disapproval among men, women, all racial and ethnic groups and across educational backgrounds.`\
 https://nytimes.com/2026/02/20/us/politics/trump-tariffs-poll-approval.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/briefing/ask-the-morning-the-supreme-courts-tarif
 **Some Readers Thought Those Little Olympians Were A.I. Here’s How We Made Them.**\
 `The Times’s tiny animated athletes flip, spin and soar through the air just like their real-life counterparts.`\
 https://nytimes.com/2026/02/20/insider/winter-olympics-little-athletes.html
-
-**Guillermo del Toro on Writing and Directing the Oscar-Nominated ‘Frankenstein’**\
-`Ahead of this year’s Academy Awards, the director appeared on the Book Review podcast to speak about his latest film.`\
-https://nytimes.com/2026/02/20/books/review/the-book-review-guillermo-del-toro.html
 
