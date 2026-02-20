@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
 
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **What to watch on Day 14 of Winter Olympics: Men's hockey semifinals, U.S. curling history and more**\
 `The United States and Canada are both a win away from clinching a second North American hockey duel for gold in Milan.`\
 https://nytimes.com/athletic/7058273/2026/02/20/milan-cortina-winter-olympics-what-to-watch-day-14/
