@@ -1,3 +1,7 @@
+**Trump Has a Head-Spinning Day, but Republicans Want Him to Focus**\
+`President Trump’s advisers want him to lock down a message on the economy that will resonate ahead of the midterms. But Mr. Trump is never one to stay on message.`\
+https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
+
 **MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied To’**\
 `President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
 https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
