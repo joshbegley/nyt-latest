@@ -1,3 +1,11 @@
+**Canada to play for gold in Olympic men's hockey with win over Finland**\
+`Team Canada defeated Finland in the Olympic men's hockey semifinal on Friday to punch its ticket to the gold medal game.`\
+https://nytimes.com/athletic/7060232/2026/02/20/canada-finland-olympics-mens-hockey-semifinal/
+
+**Greece to Acquire Nazi Execution Photographs That Were Up for Sale Online**\
+`The images of political prisoners, taken just before they were killed by Nazis in 1944, were put up for auction on eBay. The sale was pulled shortly thereafter.`\
+https://nytimes.com/2026/02/20/world/europe/greece-nazi-execution-photos.html
+
 **Mural made of McTominay goal that helped secure Scotland's World Cup qualification**\
 `The win over Denmark saw Scotland qualify for their first World Cup in 28 years.`\
 https://nytimes.com/athletic/7060578/2026/02/20/scotland-world-cup-mctominay-mural/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7060569/2026/02/20/vikings-mailbag-nfl-combine-free
 **Supreme Court Ruling Could Dash Trump’s Spending Dreams**\
 `Tariff revenue was always unlikely to be sufficient to cover the cost of his raft of promises, but the president still seemed to describe it as essentially limitless.`\
 https://nytimes.com/2026/02/20/us/politics/supreme-court-tariffs-trump-spending.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/02/20/movies/new-movies-this-week-critics.html
-
-**Post-MLB, ESPN rebooting its Sunday night with ‘Women’s Sports Sundays’**\
-`ESPN replaces its longstanding Sunday night MLB game with WNBA and NWSL, both surging in popularity with TV audiences.`\
-https://nytimes.com/athletic/7060363/2026/02/20/espn-womens-sports-sundays-wnba-nwsl/
 
