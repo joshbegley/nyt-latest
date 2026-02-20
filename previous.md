@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Tries to Build Suspense Over More Government Documents**\
+``\
+https://nytimes.com/live/2026/02/20/us/trump-news
+
+**The 76ers have an identity problem — and it starts with Joel Embiid's availability**\
+`Embiid missed Thursday's loss against the Hawks. His teammates are losing their grip when he's gone.`\
+https://nytimes.com/athletic/7059468/2026/02/20/sixers-joel-embiid-loss-hawks/
+
+**'It's a huge mistake' - Kompany criticises Mourinho's comments on Vinicius Jr**\
+`After Tuesday's match, Mourinho said that “every stadium where Vinicius plays, something happens”.`\
+https://nytimes.com/athletic/7059652/2026/02/20/mourinho-vinicius-racism-kompany/
+
 **Charlie McAvoy’s Olympic diary: On U.S. women's gold and men's semifinal vs. Slovakia**\
 `Ahead of Team USA's semifinal matchup with Slovakia, McAvoy chronicles his latest Olympic adventures for The Athletic.`\
 https://nytimes.com/athletic/7059737/2026/02/20/charlie-mcavoy-olympics-diary-usa-slovakia/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-st
 **Men's college basketball watch guide: Michigan-Duke, Arizona-Houston and bubble teams**\
 `This weekend, there are two top-four tilts on the same day, happening for just the fifth time since the AP poll was established. `\
 https://nytimes.com/athletic/7056174/2026/02/20/michigan-duke-arizona-houston-college-basketball-how-to-watch/
-
-**The Phillies are bullish on their new bullpen, which will have more defined roles**\
-`The Phillies are moving back toward a more defined bullpen with roles, bucking a trend across baseball. `\
-https://nytimes.com/athletic/7058519/2026/02/20/phillies-bullpen-roles-2026-season/
-
-**Jerome Tang situation is indefensible, but it’s not easy out there for athletic directors**\
-`Here’s what won’t change: ADs giving contracts to coaches that are loaded with guaranteed money and subject to regret shortly after.`\
-https://nytimes.com/athletic/7058333/2026/02/20/jerome-tang-kansas-state-athletic-directors-contracts/
-
-**Deciphering what coaches told us about their teams through the transfer portal**\
-`By not dipping into the portal for a QB, Alabama made it clear it trusts its development at the position. What else did we learn in January?`\
-https://nytimes.com/athletic/7058053/2026/02/20/college-football-coaches-transfer-portal/
 

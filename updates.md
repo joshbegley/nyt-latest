@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: President Tries to Build Suspense Over More Government Documents**\
+``\
+https://nytimes.com/live/2026/02/20/us/trump-news
+
+**The 76ers have an identity problem — and it starts with Joel Embiid's availability**\
+`Embiid missed Thursday's loss against the Hawks. His teammates are losing their grip when he's gone.`\
+https://nytimes.com/athletic/7059468/2026/02/20/sixers-joel-embiid-loss-hawks/
+
+**'It's a huge mistake' - Kompany criticises Mourinho's comments on Vinicius Jr**\
+`After Tuesday's match, Mourinho said that “every stadium where Vinicius plays, something happens”.`\
+https://nytimes.com/athletic/7059652/2026/02/20/mourinho-vinicius-racism-kompany/
+
 **Charlie McAvoy’s Olympic diary: On U.S. women's gold and men's semifinal vs. Slovakia**\
 `Ahead of Team USA's semifinal matchup with Slovakia, McAvoy chronicles his latest Olympic adventures for The Athletic.`\
 https://nytimes.com/athletic/7059737/2026/02/20/charlie-mcavoy-olympics-diary-usa-slovakia/

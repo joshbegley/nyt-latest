@@ -1,3 +1,19 @@
+**From rankings to features, columns to analysis, how The Athletic will cover MLS in 2026**\
+`MLS fans can expect a wide range of content offerings from The Athletic in 2026.`\
+https://nytimes.com/athletic/7056955/2026/02/20/athletic-mls-2026-messi/
+
+**Lowetide: What Paul Coffey's return to Oilers' bench could change on defence**\
+`As an assistant coach, Coffey was part of the success the Oilers enjoyed during the previous two seasons.`\
+https://nytimes.com/athletic/7058658/2026/02/20/edmonton-oilers-coach-paul-coffey-defence-return/
+
+**What to watch for as the Reds kick off Cactus League play**\
+`Though there may not currently be glaring holes for Francona to fill, there's still plenty to analyze as the Reds lean into spring training.`\
+https://nytimes.com/athletic/7058846/2026/02/20/cincinnati-reds-cactus-league-play-2026/
+
+**Chargers 7-round mock draft, 1.0: Fix the interior offensive line**\
+`The Chargers need to upgrade their pass protection for Justin Herbert by investing in linemen in this year's draft.`\
+https://nytimes.com/athletic/7058757/2026/02/20/chargers-2026-nfl-mock-draft-1/
+
 **Trump Administration Live Updates: President Tries to Build Suspense Over More Government Documents**\
 ``\
 https://nytimes.com/live/2026/02/20/us/trump-news
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/20/nyregion/nyc-nurses-strike-reach-deal.html
 **Sources: Toronto agrees to sign Sargent from Norwich, ending transfer saga**\
 `The U.S. international forward has his wish, securing a move to MLS and closing the door on his time with Norwich City`\
 https://nytimes.com/athletic/7036805/2026/02/20/josh-sargent-transfer-toronto-fc-norwich-city-usmnt/
-
-**Fantasy Premier League live Q&A: Gameweek 27 advice from Ben Dinnery**\
-`To get your side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and to avoid`\
-https://nytimes.com/athletic/7059556/2026/02/20/fantasy-premier-league-live-qa-gameweek-27-advice-from-ben-dinnery/
-
-**In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
-`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold medal game is set to be a classic.`\
-https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
-
-**What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
-`Michigan is moving on from general manager Sean Magee and targeting Dave Peloquin, a former fixture at Notre Dame for two decades.`\
-https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-staff-whittingham/
-
-**Men's college basketball watch guide: Michigan-Duke, Arizona-Houston and bubble teams**\
-`This weekend, there are two top-four tilts on the same day, happening for just the fifth time since the AP poll was established. `\
-https://nytimes.com/athletic/7056174/2026/02/20/michigan-duke-arizona-houston-college-basketball-how-to-watch/
 
