@@ -1,3 +1,15 @@
+**Venezuela Releases Political Prisoners, With Conditions**\
+`Since Nicolás Maduro’s capture by the United States, Venezuela has released hundreds of political prisoners and approved a new amnesty law, although the restrictions on those freed have raised questions about whether this signals real change.`\
+https://nytimes.com/video/world/americas/100000010703424/venezuela-releases-political-prisoners-with-conditions.html
+
+**E.P.A. Weakens Limits on Mercury From Coal Plants**\
+`The move appeared to undercut the Make America Healthy Again movement led by Robert F. Kennedy Jr., a onetime campaigner against mercury pollution.`\
+https://nytimes.com/2026/02/20/climate/epa-mercury-coal-plants.html
+
+**At a Festival Stirred by Controversy, the Politics Are Onscreen, Too**\
+`Some directors and stars at the Berlin Film Festival rejected a political view of cinema. But the movies there suggest that politics is broader than just activism.`\
+https://nytimes.com/2026/02/20/movies/berlin-film-festival-berlinale.html
+
 **Iran Says U.S. Has Not Asked It to Stop Enriching Uranium**\
 `The comments by Iran’s foreign minister on Friday contradicted the Trump administration’s position.`\
 https://nytimes.com/2026/02/20/world/middleeast/iran-us-nuclear-uranium.html
