@@ -1,3 +1,11 @@
+**Relive the Biggest Olympic Skating Jumps, in Miniature**\
+`These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
+https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html
+
+**Cardinals' new performance center shows greater commitment, something fans long to see**\
+`After a dismal season, Thursday's groundbreaking ceremony changed the vibe, giving the Cardinals much-needed offseason optimism.`\
+https://nytimes.com/athletic/7058824/2026/02/19/arizona-cardinals-new-performance-center-fans/
+
 **Steph Curry to miss at least 10 more days as he tends to right knee injury**\
 `Curry has been dealing with "runner's knee" and will miss his sixth straight game Thursday. It's unclear when he will return.`\
 https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury-out/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
 **HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
 `When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
 https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
-
-**Bard College Opens Review of Its President’s Ties to Jeffrey Epstein**\
-`The move comes after a trove of documents released by the Justice Department showed Leon Botstein had a relationship that was closer than previously known with the convicted sex offender.`\
-https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
-
-**Venezuela Passes Amnesty Bill Denounced by Some as ‘Unjust’**\
-`The bill may bring the release of hundreds of political prisoners. But many critics say the legislation, passed after major pressure from the Trump administration, raises concerns.`\
-https://nytimes.com/2026/02/19/world/americas/venezuela-amnesty-bill-prisoners.html
 
