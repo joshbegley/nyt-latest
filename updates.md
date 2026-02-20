@@ -1,3 +1,15 @@
+**In Dissent, Three Conservative Justices Warn Tariff Decision May Unleash Chaos, At Least in Short-Term**\
+`The trio warned of immediate chaos over refunds and trade deals. They also provided President Trump with a list of other possible avenues for imposing tariffs.`\
+https://nytimes.com/2026/02/20/us/politics/in-dissent-three-conservative-justices-warn-tariff-decision-may-unleash-chaos-at-least-in-short-term.html
+
+**Villa's buy clause for Elliott only applies to Premier League matches**\
+`Appearances made by the 23-year-old in the Europa League and domestic cups do not count towards the match total for the clause.`\
+https://nytimes.com/athletic/7060300/2026/02/20/liverpool-aston-villa-harvey-elliott-clause/
+
+**How to watch Pacers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060414/2026/02/20/pacers-vs-wizards-stream-how-to-watch-feb-20/
+
 **How to watch Jazz vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7060411/2026/02/20/jazz-vs-grizzlies-stream-how-to-watch-feb-20/
