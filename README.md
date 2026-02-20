@@ -1,11 +1,3 @@
-**Sword Strikes Playgoer During ‘Richard III’ in Berlin**\
-`The German actor Lars Eidinger lost control of the weapon in the final scene of Shakespeare’s play.`\
-https://nytimes.com/2026/02/20/arts/sword-hits-audience-member-theater-berlin.html
-
-**Norway breaks its own record for most gold medals at a single Winter Olympics**\
-`Johannes Dale-Skjevdal's win in the 15-kilometer mass start biathlon event set a new mark for most golds by one nation at a Winter Olympics.`\
-https://nytimes.com/athletic/7060274/2026/02/20/norway-winter-olympics-gold-medal-record/
-
 **Ski. Breathe. Shoot. The wonderful chaos of biathlon.**\
 `Johannes Dale-Skjevdal of Norway hit all 20 of his shots to win the gold medal in the mass start event.`\
 https://nytimes.com/2026/02/20/world/biathlon-johannes-dale-skjevdal-norway.html
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/7060097/2026/02/20/michigan-duke-college-basketball
 **Read the Supreme Court’s Decision on Trump’s Sweeping Tariffs**\
 `In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke an emergency power to set tariffs on imports.`\
 https://nytimes.com/interactive/2026/02/20/us/politics/supreme-court-tariffs-decision.html
+
+**NASA Conducts Successful Launchpad Test of the Massive Artemis Rocket**\
+`The next moon mission, carrying four astronauts, could launch as soon as early March.`\
+https://nytimes.com/2026/02/20/science/artemis-moon-mission-nasa.html
+
+**What are tariffs?**\
+`The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs
 
