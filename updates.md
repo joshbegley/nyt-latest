@@ -1,3 +1,19 @@
+**The U.S. Tariffs Causing the Most Pain for Canada Remain in Place**\
+`While the vast majority of Canadian exports were exempt from the tariffs now struck down, the ruling does not effect duties harming several key industries.`\
+https://nytimes.com/2026/02/20/us/politics/trump-canada-tariffs-supreme-court.html
+
+**Ask The Morning: The Supreme Court’s Tariff Ruling**\
+`The justices struck down a central piece of President Trump’s agenda. What does that mean?`\
+https://nytimes.com/2026/02/20/briefing/ask-the-morning-the-supreme-courts-tariff-ruling.html
+
+**Some Readers Thought Those Little Olympians Were A.I. Here’s How We Made Them.**\
+`The Times’s tiny animated athletes flip, spin and soar through the air just like their real-life counterparts.`\
+https://nytimes.com/2026/02/20/insider/winter-olympics-little-athletes.html
+
+**Guillermo del Toro on Writing and Directing the Oscar-Nominated ‘Frankenstein’**\
+`Ahead of this year’s Academy Awards, the director appeared on the Book Review podcast to speak about his latest film.`\
+https://nytimes.com/2026/02/20/books/review/the-book-review-guillermo-del-toro.html
+
 **Brooklyn Beckham Spices Up a Burger Bash**\
 `Amid a family spat that has kept his name in headlines, Brooklyn Beckham appeared at a food festival with a hot sauce from his condiment line.`\
 https://nytimes.com/2026/02/20/style/brooklyn-beckham-hot-sauce-miami.html

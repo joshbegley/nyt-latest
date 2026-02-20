@@ -1,3 +1,7 @@
+**How Does Trump Really Spend His Time?**\
+`President Trump is running the White House on “gut instinct” and late-night phone calls, Ashley Parker and Michael Scherer, staff writers for The Atlantic, tell Ezra Klein on a recent episode of “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010718515/how-does-trump-really-spend-his-time.html
+
 **The U.S. Tariffs Causing the Most Pain for Canada Remain in Place**\
 `While the vast majority of Canadian exports were exempt from the tariffs now struck down, the ruling does not effect duties harming several key industries.`\
 https://nytimes.com/2026/02/20/us/politics/trump-canada-tariffs-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/20/sports/winter-olympics-figure-skating
 **A.I. Is Coming for the 2026 Midterms**\
 `Our tech columnist Kevin Roose explains A.I.’s potential impact.`\
 https://nytimes.com/2026/02/20/us/politics/ai-midterms-elections.html
-
-**USA to face Canada for Olympic gold after overpowering Slovakia in men's hockey**\
-`For the third time since the NHL began participating in the Olympics in 1998, the U.S. and Canada will meet for the ultimate prize.`\
-https://nytimes.com/athletic/7060963/2026/02/20/usa-slovakia-result-olympic-gold-medal-canada/
 
