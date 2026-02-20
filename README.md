@@ -1,3 +1,15 @@
+**The Wall, Bennedict Mathurin jump-start Clippers out of the All-Star break**\
+`And after a surprising and disappointing start, LA has a chance to reach .500 against its crosstown rival.`\
+https://nytimes.com/athletic/7059541/2026/02/20/the-wall-clippers-bennedict-mathurin/
+
+**The Bounce: The Pistons send another message to the Knicks. Plus, tanking fixes!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7060086/2026/02/20/pistons-knicks-nba-tanking-the-bounce/
+
+**Palace fined £500k for banner displayed by fans against Forest**\
+`An independent commission had "no hesitation" in finding the banner to be "improper, offensive, abusive, insulting and/or provocative".`\
+https://nytimes.com/athletic/7060096/2026/02/20/crystal-palace-banner-fans-forest-fine/
+
 **In Ukraine, Senators See War’s Impact and Press for Stronger U.S. Support**\
 `Senate Democrats traveled to Kyiv and Odessa to show solidarity with the war-torn nation and make the case that the United States should do more, including imposing harsh sanctions on Russia.`\
 https://nytimes.com/2026/02/20/us/politics/senators-ukraine-visit.html
@@ -21,20 +33,4 @@ https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
 **Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
 `The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
 https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
-
-**'Love me after I draw and I lose' - Arteta's demand of Arsenal**\
-`The Premier League leaders have won just two of their last seven Premier League matches.`\
-https://nytimes.com/athletic/7060115/2026/02/20/arteta-arsenal-players-demand/
-
-**Mamdani to Use New Power to Speed Up Housing Development in the Bronx**\
-`Projects that used to take as much as seven months to get approved can now go forward in as little as 90 days. Mayor Zohran Mamdani is taking advantage.`\
-https://nytimes.com/2026/02/20/nyregion/bronx-housing-fast-track.html
-
-**Marie-Philip Poulin didn't win another Olympic gold medal. She's still the greatest of all time**\
-`Canada came up short in the Olympic women's hockey finale, but make no mistake, Poulin's legacy as the GOAT is cemented.`\
-https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-olympics-womens-hockey/
-
-**As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
-`Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
-https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
 
