@@ -1,3 +1,7 @@
+**Trae Young, Anthony Davis 'progressing,' but Wizards debuts won't be anytime soon**\
+`“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
+https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
+
 **Trump Has a Head-Spinning Day, but Republicans Want Him to Focus**\
 `President Trump’s advisers want him to lock down a message on the economy that will resonate ahead of the midterms. But Mr. Trump is never one to stay on message.`\
 https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
