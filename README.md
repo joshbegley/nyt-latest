@@ -1,3 +1,15 @@
+**How to watch Heat vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060986/2026/02/20/heat-vs-hawks-stream-how-to-watch-feb-20/
+
+**How to watch Bucks vs. Pelicans: Time, TV, streaming**\
+`Find out how to watch the Milwaukee Bucks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060984/2026/02/20/bucks-vs-pelicans-stream-how-to-watch-feb-20/
+
+**There's no defending Finland's defensive mindset in come-from-ahead loss to Canada**\
+`Finland took a 2-0 lead in the Olympic men's hockey semifinal with well-timed aggression. They lost it with constant conservatism.`\
+https://nytimes.com/athletic/7060856/2026/02/20/finland-canada-olympics-mens-hockey-semifinal/
+
 **Flashback: Your Weekly History Quiz, Feb. 21, 202**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/02/20/upshot/flashback.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/20/business/media/christopher-wren-dead.html
 **Bench Presses, Pull Ups … Kid Rock? The White House Had a Very Manly Week.**\
 `President Trump’s top cabinet officials are pumping iron in public.`\
 https://nytimes.com/2026/02/20/us/politics/trump-hegseth-rfk-manliness.html
-
-**Trump blasts the tariff ruling on Truth Social.**\
-`(No description)`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/trump-blasts-the-tariff-ruling-on-truth-social
-
-**Pablo López to undergo Tommy John surgery, will miss the season**\
-`López was injured on Monday during the team's first full-squad workout. This will be the second Tommy John surgery of his career.`\
-https://nytimes.com/athletic/7060808/2026/02/20/twins-pablo-lopez-tommy-john-surgery/
-
-**Arsenal technical director Ellis to leave club after just seven months in role**\
-`Ellis was promoted to technical director last summer, having previously been Arsenal’s head of recruitment.`\
-https://nytimes.com/athletic/7060870/2026/02/20/arsenal-news-director-ellis-update/
 
