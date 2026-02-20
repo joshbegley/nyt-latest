@@ -1,3 +1,15 @@
+**New York Man Tried to Ram a Nevada Substation in an Act of Terrorism, Police Say**\
+`The man, Dawson Maloney, of Albany, was heavily armed during the attack on Thursday in Boulder City, Nev. He died of a self-inflicted gunshot wound, the police said.`\
+https://nytimes.com/2026/02/20/us/las-vegas-car-ramming-terrorism.html
+
+**64% of Americans Disapprove of Trump’s Tariffs**\
+`The poll found disapproval among men, women, all racial and ethnic groups and across educational backgrounds.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-poll-approval.html
+
+**A Fatal ICE Shooting Occurred in Texas Months Before Renee Good’s Killing**\
+`A 23-year-old American was shot last March in South Padre Island. ICE’s involvement in the shooting was not disclosed until this week.`\
+https://nytimes.com/2026/02/20/us/ruben-ray-martinez-ice-shooting-texas.html
+
 **A Fatal ICE Shooting Occurred in Texas Months Before Renee Good’s Killing**\
 `A 23-year-old American was shot last March in South Padre Island. ICE’s involvement in the shooting was not disclosed until this week.`\
 https://nytimes.com/2026/02/20/us/texas-shooting-ice-renee-good.html
