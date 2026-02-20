@@ -1,3 +1,7 @@
+**'It doesn't fit our values' - Werder Bremen bin U.S. tour proposals**\
+`Werder Bremen had provisionally been planning to spend a week between Minnesota and Detroit in May, playing two friendly matches.`\
+https://nytimes.com/athletic/7059481/2026/02/20/werder-bremen-usa-tour/
+
 **‘The Secret Agent’ | Anatomy of a Scene**\
 `The director Kleber Mendonça Filho narrates an ensemble sequence from his film, which is nominated for best picture.`\
 https://nytimes.com/video/movies/100000010720773/the-secret-agent-scene.html
