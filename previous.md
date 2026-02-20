@@ -1,3 +1,7 @@
+**Word of the Day: progeny**\
+`This word has appeared in 43 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/20/learning/word-of-the-day-progeny.html
+
 **Trump and Indonesia Sign Trade Deal, Locking in 19% Tariffs**\
 `The countries made official an agreement reached last year, with Indonesia avoiding a higher tariff and committing to cooperate on export controls.`\
 https://nytimes.com/2026/02/20/business/trump-tariffs-indonesia.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6995822/2026/02/20/paco-jemez-west-ham-nuno/
 **Crystal Palace have won once in 15 matches – something needs to change**\
 `Could a change in system and approach bring two quick wins that start to lift the gloom around Selhurst Park?`\
 https://nytimes.com/athletic/7054705/2026/02/20/crystal-palace-mostar-analysis/
-
-**Brighton changed their approach to set pieces this season – has it worked?**\
-`The Seagulls led the Premier League for goals from set pieces last season, but this time around they have dropped off...`\
-https://nytimes.com/athletic/6993604/2026/02/20/brighton-set-pieces-approach/
 
