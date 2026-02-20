@@ -1,3 +1,11 @@
+**Amber Glenn closed her Olympics well after faltering. Can she carry it forward?**\
+`Glenn said that when it comes to her future: "I’ll be kind of helping on the sidelines."`\
+https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/
+
+**Winter Olympics Day 13 recap: USA women's hockey beats Canada in OT; Alysa Liu wins gold**\
+`Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
+https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
+
 **Relive the Biggest Olympic Skating Jumps, in Miniature**\
 `These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
 https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html

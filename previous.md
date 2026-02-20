@@ -1,3 +1,11 @@
+**Amber Glenn closed her Olympics well after faltering. Can she carry it forward?**\
+`Glenn said that when it comes to her future: "I’ll be kind of helping on the sidelines."`\
+https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/
+
+**Winter Olympics Day 13 recap: USA women's hockey beats Canada in OT; Alysa Liu wins gold**\
+`Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
+https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
+
 **Relive the Biggest Olympic Skating Jumps, in Miniature**\
 `These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
 https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7058970/2026/02/19/jaylen-brown-beverly-hills-polic
 **At her home rink, Alysa Liu a 'hero' for making Oakland golden**\
 `Liu is being lauded as a hero at her home ice rink in Oakland, Calif. `\
 https://nytimes.com/athletic/7058855/2026/02/19/alysa-liu-olympics-oakland-watch-party-figure-skating/
-
-**Trump Has a Head-Spinning Day, but Republicans Want Him to Focus**\
-`President Trump’s advisers want him to lock down a message on the economy that will resonate ahead of the midterms. But Mr. Trump is never one to stay on message.`\
-https://nytimes.com/2026/02/19/us/politics/trump-republicans-focus-economy.html
-
-**HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
-`When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
-https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
 
