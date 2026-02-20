@@ -1,5 +1,9 @@
+**Prime Tire: Preseason grades for each team ... kinda**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7061134/2026/02/20/preseason-grades-f1-prime-tire/
+
 **Michael Silverblatt, Radio ‘Bookworm’ Who Interviewed Authors, Dies at 73**\
-`His public radio show, “Bookworm,” was a literary salon of the air for 33 years, drawing guests like Susan Sontag, David Foster Wallace and Joan Didion.`\
+`His public radio show, “Bookworm,” was a literary salon of the air for 33 years, drawing guests like Joan Didion, Susan Sontag and David Foster Wallace.`\
 https://nytimes.com/2026/02/20/books/michael-silverblatt-dead.html
 
 **‘A Disgrace’: How Trump Found Out the Supreme Court Ruled Against Him**\
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/rocky-mountaineer/rocky-mountaineer-and-the-romance
 **FIFA Fan Fest for New York/New Jersey cancelled four months before World Cup**\
 `Planning had been underway for a year and tickets had been sold, with ambitions of being open for all 104 games during the tournament`\
 https://nytimes.com/athletic/7060549/2026/02/20/world-cup-2026-fifa-fan-new-york-new-jersey-cancelled/
-
-**‘Very Successful Day’: NASA Completes Artemis II Launchpad Test**\
-`NASA successfully completed a rehearsal to launch the Artemis II rocket on Thursday. The mission would send astronauts around the Moon’s orbit for the first time in more than 50 years.`\
-https://nytimes.com/video/science/space/100000010726727/nasa-moon-rocket-artemis-mission.html
 

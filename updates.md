@@ -1,3 +1,11 @@
+**Prime Tire: Preseason grades for each team ... kinda**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7061134/2026/02/20/preseason-grades-f1-prime-tire/
+
+**Michael Silverblatt, Radio ‘Bookworm’ Who Interviewed Authors, Dies at 73**\
+`His public radio show, “Bookworm,” was a literary salon of the air for 33 years, drawing guests like Joan Didion, Susan Sontag and David Foster Wallace.`\
+https://nytimes.com/2026/02/20/books/michael-silverblatt-dead.html
+
 **Michael Silverblatt, Radio ‘Bookworm’ Who Interviewed Authors, Dies at 73**\
 `His public radio show, “Bookworm,” was a literary salon of the air for 33 years, drawing guests like Susan Sontag, David Foster Wallace and Joan Didion.`\
 https://nytimes.com/2026/02/20/books/michael-silverblatt-dead.html
