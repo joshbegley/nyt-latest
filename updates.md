@@ -1,3 +1,7 @@
+**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied To’**\
+`President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
+https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
+
 **HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
 `When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
 https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
