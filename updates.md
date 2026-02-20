@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
 
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **Chat live with Eno Sarris on Friday, Feb. 20 at 1pm PT!**\
 `<p>Spring training games are officially underway and Opening Day is just around the corner. Chat live with Eno Sarris at 1pm PT on Friday about who you should target in your fantasy drafts, which pitching staffs look ready to dominate this season and anything else that comes to mind.</p>
 `\
