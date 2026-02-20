@@ -1,3 +1,19 @@
+**Bobsled costs are skyrocketing. Can the U.S. keep up in a bedrock Olympic sport?**\
+`You think everyday items have gotten more expensive in recent years? Imagine how much it costs to send a bobsled around the world.`\
+https://nytimes.com/athletic/7057649/2026/02/20/winter-olympics-bobsled-costs-rising-team-usa/
+
+**In the Dolomites, the Olympics get translated into Ladin, the Alps' oldest language**\
+`For the Ladin people, the Winter Games are a source of pride and a site of missed opportunities.`\
+https://nytimes.com/athletic/7057329/2026/02/20/winter-olympics-dolomites-ladin-language-coverage/
+
+**How did Italy get so good at the Winter Olympics? Money, a 'ghost' and a little luck**\
+`The Italian federation was haunted by what happened at the 2006 Turin Olympics. Twenty years later, their performance is meeting the moment.`\
+https://nytimes.com/athletic/7058493/2026/02/20/italy-winter-olympics-medals-sports/
+
+**FIFA and Trump's Board of Peace enter partnership aimed at Gaza regeneration**\
+`The United States president and the FIFA chief continue to connect on multiple fronts.`\
+https://nytimes.com/athletic/7059472/2026/02/20/fifa-trump-peace-gaza/
+
 **An Enemy’s Fall Frees Up South Korea’s Leader. Now Comes the Tough Part.**\
 `President Lee Jae Myung gained legitimacy from his predecessor’s conviction​. But South Korea’s political polarization is caustic, and could get worse.`\
 https://nytimes.com/2026/02/20/world/asia/south-korea-lee-yoon.html
