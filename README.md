@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
 `The bill may bring the release of hundreds of political prisoners. But many critics say the legislation, passed after major pressure from the Trump administration, raises concerns.`\
 https://nytimes.com/2026/02/19/world/americas/venezuela-amnesty-bill-prisoners.html
 
-**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied to’**\
+**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied To’**\
 `President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
 https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
 

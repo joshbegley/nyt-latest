@@ -1,3 +1,7 @@
+**HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
+`When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
+https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
+
 **Bard College Opens Review of Its President’s Ties to Jeffrey Epstein**\
 `The move comes after a trove of documents released by the Justice Department showed Leon Botstein had a relationship that was closer than previously known with the convicted sex offender.`\
 https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
