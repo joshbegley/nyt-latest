@@ -1,3 +1,7 @@
+**Investigators Blame NASA and Boeing for Starliner Failures**\
+`Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
+https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
+
 **Trae Young, Anthony Davis 'progressing' but returns won't be anytime soon**\
 `“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
 https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new
 **Trump Calls Himself a ‘Schmuck’ for Donating His Presidential Salary**\
 `President Trump complained that he gets “no credit” for the donations, though his family has done more to monetize the presidency than anyone who has ever occupied the White House.`\
 https://nytimes.com/2026/02/19/us/politics/trump-president-salary.html
-
-**Joe Gibbs Racing sues former competition director alleging 'brazen scheme'**\
-`Chris Gabehart was JGR competition director from November 2024 through November 2025.`\
-https://nytimes.com/athletic/7058749/2026/02/19/joe-gibbs-racing-lawsuit-chris-gabehart-spire/
 

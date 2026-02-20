@@ -1,3 +1,7 @@
+**As Trump Weighs Iran Strikes, He Declines to Make Clear Case for Why, or Why Now**\
+`Rarely in modern times has the United States prepared to conduct a major act of war with so little explanation or public debate.`\
+https://nytimes.com/2026/02/19/us/politics/trump-iran-military-strikes.html
+
 **Investigators Blame NASA and Boeing for Starliner Failures**\
 `Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
 https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
@@ -33,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/aging-in-place/
 **Brewers, manager Pat Murphy in agreement on 3-year contract: Source**\
 `Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
 https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
-
-**Trump Calls Himself a ‘Schmuck’ for Donating His Presidential Salary**\
-`President Trump complained that he gets “no credit” for the donations, though his family has done more to monetize the presidency than anyone who has ever occupied the White House.`\
-https://nytimes.com/2026/02/19/us/politics/trump-president-salary.html
 

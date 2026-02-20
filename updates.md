@@ -1,3 +1,7 @@
+**Investigators Blame NASA and Boeing for Starliner Failures**\
+`Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
+https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
+
 **Trae Young, Anthony Davis 'progressing' but returns won't be anytime soon**\
 `“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
 https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
