@@ -1,3 +1,11 @@
+**What are tariffs?**\
+`The Supreme Court will hear arguments about presidential power to impose tariffs. But what are they?`\
+https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-are-tariffs
+
+**The Major Supreme Court Decisions in 2026**\
+`The Supreme Court is deciding a series of cases central to President Trump’s second-term agenda.`\
+https://nytimes.com/interactive/2026/02/20/us/supreme-court-major-cases-2026.html
+
 **The Wall, Bennedict Mathurin jump-start Clippers out of the All-Star break**\
 `And after a surprising and disappointing start, LA has a chance to reach .500 against its crosstown rival.`\
 https://nytimes.com/athletic/7059541/2026/02/20/the-wall-clippers-bennedict-mathurin/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/7059541/2026/02/20/the-wall-clippers-bennedict-math
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7060086/2026/02/20/pistons-knicks-nba-tanking-the-bounce/
 
-**Palace fined £500k for banner displayed by fans against Forest**\
+**Palace fined £50k for banner displayed by fans against Forest**\
 `An independent commission had "no hesitation" in finding the banner to be "improper, offensive, abusive, insulting and/or provocative".`\
 https://nytimes.com/athletic/7060096/2026/02/20/crystal-palace-banner-fans-forest-fine/
 
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/20/us/politics/what-is-ieepa-trump-tariffs.html
 **Here’s the latest.**\
 `President Trump is the first to invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imported goods from more than 100 countries.`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
-
-**Live Updates: Supreme Court Strikes Down Trump’s Sweeping Tariffs**\
-`In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imports.`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
-
-**Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
-`The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
-https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
 
