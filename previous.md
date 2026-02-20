@@ -1,3 +1,24 @@
+**How Antarctica turns your world upside down.**\
+`Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
+https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down
+
+**Jaden Ivey's surprise DNP raises more questions for the confusing Bulls**\
+`Chicago found its roster crammed with guards after the trade deadline. On Thursday, Ivey was the odd man out.`\
+https://nytimes.com/athletic/7059633/2026/02/20/jaden-ivey-dnp-bulls/
+
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
+**Hunter Hess says last two weeks 'probably hardest' of his life after President Trump remarks**\
+`Trump called Hess 'a real loser' after the freestyle skier had said representing the U.S. was was “a little hard.'`\
+https://nytimes.com/athletic/7059744/2026/02/20/hunter-hess-president-trump-controversy/
+
+**Grail’s Cancer Detection Test Fails in Major Study**\
+`A closely watched clinical trial in Britain that screened blood for early detection of cancer did not show a reduction in later stages of the disease.`\
+https://nytimes.com/2026/02/20/health/cancer-detection-test-grail.html
+
 **NBA trends I'm watching: Swarming Hornets, the malleable Pistons and more**\
 `Sure, Charlotte's offense stands out in its recent hot stretch, but the Hornets have dominated on both ends of the floor.`\
 https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers-nba-trends/
@@ -13,28 +34,4 @@ https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
 **Rams promote Nate Scheelhaase to offensive coordinator: Source**\
 `Scheelhaase, who interviewed for several head-coaching vacancies, spent last season as the Rams' pass game coordinator. `\
 https://nytimes.com/athletic/7017541/2026/02/20/rams-nathan-scheelhaase-offensive-coordinator/
-
-**Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
-`For Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
-https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
-
-**Three Dodgers storylines to watch as spring training games begin**\
-`A short offfseason for the Dodgers means they will be cautious about working their veteran players into action. `\
-https://nytimes.com/athletic/7058591/2026/02/20/dodgers-spring-training-storylines/
-
-**Newcastle plan adjustment to traditional black-and-white-striped home kit**\
-`The new kit will still clearly identifiable as the club's iconic colours, albeit in a new form.`\
-https://nytimes.com/athletic/7059920/2026/02/20/newcastle-home-kit-new-2026-27/
-
-**Aston Martin ends F1 testing program early, capping off nightmare preseason for team**\
-`The team's running on Friday came to a total of only six laps, all completed by Lance Stroll and without setting a time.`\
-https://nytimes.com/athletic/7059980/2026/02/20/aston-martin-ends-f1-testing-early/
-
-**U.S. Economy Grew More Slowly at End of 2025**\
-`Gross domestic product expanded at a 1.4 percent annual rate in the last quarter of the year, hit by the effects of the government shutdown.`\
-https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
-
-**'You never know' - Glasner non-committal on short-term Palace future**\
-`Glasner was jeered by Palace fans on Thursday after their 1-1 Conference League draw with Zrinjski Mostar.`\
-https://nytimes.com/athletic/7059886/2026/02/20/oliver-glasner-crystal-palace-future-latest/
 

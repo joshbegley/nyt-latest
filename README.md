@@ -1,3 +1,7 @@
+**Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
+`Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
+https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
+
 **How Antarctica turns your world upside down.**\
 `Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/7059999/2026/02/20/carrick-manchester-united-ratcli
 **South Africa Pulls Out of Venice Biennale After Gaza Artwork Furor**\
 `The country, a major center for African art, will not have an official presence at this year’s event after a legal dispute over a Gaza-focused artwork.`\
 https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
-
-**Rams promote Nate Scheelhaase to offensive coordinator: Source**\
-`Scheelhaase, who interviewed for several head-coaching vacancies, spent last season as the Rams' pass game coordinator. `\
-https://nytimes.com/athletic/7017541/2026/02/20/rams-nathan-scheelhaase-offensive-coordinator/
 
