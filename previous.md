@@ -1,3 +1,11 @@
+**Ranking the Chiefs' top unrestricted free agents: Who makes most sense to bring back?**\
+`Which Chiefs free agents make the most sense to return in 2026? Here's a first look.`\
+https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-ranking/
+
+**Barcelona desperately need Pedri back, but with that comes a big risk**\
+`A series of injuries in recent seasons means Hansi Flick has to manage the 23-year-old midfielder carefully`\
+https://nytimes.com/athletic/7059560/2026/02/20/barcelona-pedri-injury-flick-la-liga-champions-league/
+
 **On anniversary of blood clot, Victor Wembanyama reflects on journey back to basketball**\
 `For Wembanyama, through adversity came purpose, and a clearer understanding of why he plays basketball at such a high level.`\
 https://nytimes.com/athletic/7059413/2026/02/20/wembanyama-blood-clot-spurs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7058397/2026/02/20/flyers-michkov-tocchet-trade-dea
 **NFL Draft 2026 prospects to watch in Saturday's HBCU Legacy Bowl**\
 `There weren't any HBCU players invited to the NFL Scouting Combine, but that doesn’t mean these programs lack talent.`\
 https://nytimes.com/athletic/7057986/2026/02/20/nfl-draft-2026-hbcu-legacy-bowl-prospects/
-
-**2026 MLS Watchability Rankings: Which clubs are most entertaining?**\
-`If you're a neutral fan seeking out an MLS game, which clubs will give you the biggest return on your time investment? We've got you covered`\
-https://nytimes.com/athletic/7056848/2026/02/20/mls-watchability-rankings-2026-messi-miami-lafc-son/
-
-**Raptors face 3 big questions: Jakob Poeltl's impact and more**\
-`Will the Raptors' offence benefit from a true 7-footer?`\
-https://nytimes.com/athletic/7059333/2026/02/20/toronto-raptors-jakob-poeltl-impact-questions/
 

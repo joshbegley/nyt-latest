@@ -1,3 +1,11 @@
+**Ranking the Chiefs' top unrestricted free agents: Who makes most sense to bring back?**\
+`Which Chiefs free agents make the most sense to return in 2026? Here's a first look.`\
+https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-ranking/
+
+**Barcelona desperately need Pedri back, but with that comes a big risk**\
+`A series of injuries in recent seasons means Hansi Flick has to manage the 23-year-old midfielder carefully`\
+https://nytimes.com/athletic/7059560/2026/02/20/barcelona-pedri-injury-flick-la-liga-champions-league/
+
 **On anniversary of blood clot, Victor Wembanyama reflects on journey back to basketball**\
 `For Wembanyama, through adversity came purpose, and a clearer understanding of why he plays basketball at such a high level.`\
 https://nytimes.com/athletic/7059413/2026/02/20/wembanyama-blood-clot-spurs/
