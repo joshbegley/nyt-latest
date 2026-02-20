@@ -1,3 +1,7 @@
+**Trump Says He’ll Release Alien and U.F.O. Files**\
+`After former President Obama made viral comments about aliens, President Trump said his administration would begin to release government files related to aliens and extraterrestrial life.`\
+https://nytimes.com/video/us/100000010724694/trump-ufos-aliens-files-obama.html
+
 **East-leading Pistons cap season sweep of Knicks with blowout in New York**\
 `Every Detroit win this season against New York has been by double digits.`\
 https://nytimes.com/athletic/7059247/2026/02/19/pistons-knicks-season-sweep-nba/
