@@ -1,3 +1,7 @@
+**The Tariff Chaos Is Over. The Tariff Chaos Is Just Beginning.**\
+`The Supreme Court has spoken. What now?`\
+https://nytimes.com/2026/02/20/opinion/trump-tariff-supreme-court-ruling.html
+
 **Alysa Liu's defining Olympic night and a shine that bucks her sport's expectations**\
 `Liu's gold medal, a first for an American woman in figure skating since 2002, challenges the sport's conventions about rigidity.`\
 https://nytimes.com/athletic/7060355/2026/02/20/alysa-liu-olympics-figure-skating-milan-expectations-oakland-background/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060123/2026/02/20/winter-olympics-curling-semifina
 **How to watch VCU vs. Saint Louis men's basketball: Time, TV, streaming**\
 `Find out how to watch the VCU Rams play the Saint Louis Billikens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7060361/2026/02/20/vcu-vs-saint-louis-stream-how-to-watch-feb-20/
-
-**Indiana bumps Curt Cignetti's salary to $13.2 million after winning national championship**\
-`Cignetti, 64, is 27-2 in two seasons since taking over what was at the time the losingest program in major college football history.`\
-https://nytimes.com/athletic/7060307/2026/02/20/curt-cignetti-contract-extension-indiana-hooisers/
 
