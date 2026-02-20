@@ -1,3 +1,11 @@
+**Games Briefing: Canada's through!**\
+`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
+https://nytimes.com/athletic/7060688/2026/02/20/canada-finland-us-slovakia-mens-hockey-olympic-games-briefing/
+
+**2 N.Y.P.D. Officers Charged With Covering Up a Colleague’s Drunken Crash**\
+`Manhattan prosecutors say that Officers Michael Caligiuri and Ryan McLoughlin hid another officer’s crash in 2024. Dozens of their colleagues appeared in court on Friday to support them.`\
+https://nytimes.com/2026/02/20/nyregion/nypd-dui-coverup-arraignment.html
+
 **Dog Poop Wars: In New York, the Snow Is Foul, and So Is the Discourse**\
 `As melting snow reveals weeks’ worth of uncollected dog waste, frustration at the state of the sidewalks has boiled over.`\
 https://nytimes.com/2026/02/20/nyregion/new-york-snow-dog-waste.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-tariffs-plans.html
 **Palestinian-American Teenager Killed in West Bank Is Laid to Rest**\
 `Nasrallah Abu Siyam, 19, was shot dead by an Israeli settler, according to a witness and Palestinian health officials, amid rising violent settler attacks in the Israeli-occupied territory.`\
 https://nytimes.com/2026/02/20/world/middleeast/palestinian-american-teenager-killed-west-bank.html
-
-**The Supreme Court’s Declaration of Independence**\
-`The court’s rejection of President Trump’s tariffs program is the latest in a series of clashes between him and Chief Justice John G. Roberts Jr.`\
-https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-roberts-tariffs.html
-
-**Vikings mailbag: Submit your combine and free-agency questions for reporter Alec Lewis**\
-`With the NFL combine on tap next week, it's a good time to take your offseason questions on free agency and the draft. Submit them here.`\
-https://nytimes.com/athletic/7060569/2026/02/20/vikings-mailbag-nfl-combine-free-agency/
 
