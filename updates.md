@@ -1,3 +1,11 @@
+**A Fatal ICE Shooting Occurred in Texas Months Before Renee Good’s Killing**\
+`A 23-year-old American was shot last March in South Padre Island. ICE’s involvement in the shooting was not disclosed until this week.`\
+https://nytimes.com/2026/02/20/us/texas-shooting-ice-renee-good.html
+
+**Longtime Virginia Lawyer Named by Judges as U.S. Attorney**\
+`The appointment of James W. Hundley teed up a potential conflict with the Trump administration, which has already suggested that it would dismiss any prosecutor chosen by district judges.`\
+https://nytimes.com/2026/02/20/us/politics/us-attorney-eastern-district-of-virginia.html
+
 **How Stephen Miller Is Perceived in the White House**\
 `Stephen Miller is at the “top of the totem pole” in Donald Trump’s White House. On a recent episode of “The Ezra Klein Show,” the Atlantic staff writers Ashley Parker and Michael Scherer describe the scale of Miller’s influence.`\
 https://nytimes.com/video/opinion/100000010718523/how-stephen-miller-is-perceived-in-the-white-house.html
