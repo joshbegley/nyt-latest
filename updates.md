@@ -1,3 +1,7 @@
+**East-leading Pistons cap season sweep of Knicks with blowout in New York**\
+`Every Detroit win this season against New York has been by double digits.`\
+https://nytimes.com/athletic/7059247/2026/02/19/pistons-knicks-season-sweep-nba/
+
 **Pistons cap season sweep of Knicks with blowout in New York**\
 `Every Detroit win this season against New York has been by double digits.`\
 https://nytimes.com/athletic/7059247/2026/02/19/pistons-knicks-season-sweep-nba/
