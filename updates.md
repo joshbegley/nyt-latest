@@ -1,3 +1,7 @@
+**‘The Secret Agent’ | Anatomy of a Scene**\
+`The director Kleber Mendonça Filho narrates an ensemble sequence from his film, which is nominated for best picture.`\
+https://nytimes.com/video/movies/100000010720773/the-secret-agent-scene.html
+
 **Bobsled costs are skyrocketing. Can the U.S. keep up in a bedrock Olympic sport?**\
 `You think everyday items have gotten more expensive in recent years? Imagine how much it costs to send a bobsled around the world.`\
 https://nytimes.com/athletic/7057649/2026/02/20/winter-olympics-bobsled-costs-rising-team-usa/
