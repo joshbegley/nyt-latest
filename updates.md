@@ -1,3 +1,23 @@
+**A Royal Arrest**\
+`We look at the case of Andrew Mountbatten-Windsor.`\
+https://nytimes.com/2026/02/20/briefing/a-royal-arrest.html
+
+**Is 3-on-3 overtime ruining Olympic hockey?**\
+`Plus: Three hockey medals were awarded Thursday, including a thrilling women's gold, and three more are still to come.`\
+https://nytimes.com/athletic/7059660/2026/02/20/olympics-hockey-overtime-rules-3-on-3/
+
+**'Sweden cannot perform like Tottenham': Swedish politician mocks Spurs**\
+`Mikael Damberg, of the Social Democratic Party, was speaking during a debate on fiscal policy in the Swedish parliament on Thursday.`\
+https://nytimes.com/athletic/7059645/2026/02/20/swedish-politician-spurs-spursy-tottenham/
+
+**Former Prince Andrew’s Arrest Upends Royal Effort to Move Past His Scandal**\
+`King Charles III’s family, long rocked by infighting and grievous losses, is facing what could be the gravest threat to its moral authority in more than a generation.`\
+https://nytimes.com/2026/02/20/world/europe/prince-andrew-arrest-epstein-royal-family-uk.html
+
+**Eileen Gu responds to JD Vance’s comments suggesting she should represent the U.S.**\
+`Gu was born in San Francisco but has represented China internationally since 2019.`\
+https://nytimes.com/athletic/7059625/2026/02/20/eileen-gu-jd-vance-olympics-us-china/
+
 **Using bat speed, swing shape to find potential MLB breakout stars**\
 `How the swing metrics Bat Speed, Swing Tilt and Intercept Point can help identify potential breakout hitters for the 2026 season.`\
 https://nytimes.com/athletic/7056525/2026/02/20/mlb-breakout-predictions-bat-speed-swing-shape/
