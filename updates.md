@@ -1,3 +1,7 @@
+**U.S. Economy Grew Modestly at End of 2025**\
+`Gross domestic product grew at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
+https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
+
 **'You never know' - Glasner non-committal on short-term Palace future**\
 `Glasner was jeered by Palace fans on Thursday after their 1-1 Conference League draw with Zrinjski Mostar.`\
 https://nytimes.com/athletic/7059886/2026/02/20/oliver-glasner-crystal-palace-future-latest/

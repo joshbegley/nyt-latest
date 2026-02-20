@@ -1,3 +1,7 @@
+**Aston Martin ends F1 testing program early, capping off nightmare preseason for team**\
+`The team's running on Friday came to a total of only six laps, all completed by Lance Stroll and without setting a time.`\
+https://nytimes.com/athletic/7059980/2026/02/20/aston-martin-ends-f1-testing-early/
+
 **U.S. Economy Grew Modestly at End of 2025**\
 `Gross domestic product grew at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
 https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7059291/2026/02/20/darryn-peterson-kansas-basketbal
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/20/us/nancy-guthrie-updates
-
-**Where Do You Go to Get Away From It All?**\
-`Would you want to live alone in the woods, as the author Henry David Thoreau did when he wrote “Walden”? What does escape look like to you?`\
-https://nytimes.com/2026/02/20/learning/where-do-you-go-to-get-away-from-it-all.html
 
