@@ -1,3 +1,12 @@
+**Marie-Philip Poulin didn't win another Olympic gold medal. She's still the greatest of all time**\
+`Canada came up short in the Olympic women's hockey finale, but make no mistake, Poulin's legacy as the GOAT is cemented.`\
+https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-olympics-womens-hockey/
+
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
 **UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
 `Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
 `\

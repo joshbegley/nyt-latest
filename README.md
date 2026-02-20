@@ -1,15 +1,3 @@
-**Marie-Philip Poulin didn't win another Olympic gold medal. She's still the greatest of all time**\
-`Canada came up short in the Olympic women's hockey finale, but make no mistake, Poulin's legacy as the GOAT is cemented.`\
-https://nytimes.com/athletic/7059978/2026/02/20/marie-philip-poulin-canada-usa-olympics-womens-hockey/
-
-**As Trump Considers Second Iran War, It Could Be Deadlier Than the First**\
-`Within days of the U.S. strikes on Iran’s nuclear facilities last year, all sides agreed to a cease-fire. This time could be different.`\
-https://nytimes.com/2026/02/20/us/politics/trump-iran-risks.html
-
-**Everywhere at these Olympics, athlete moms are shattering a tired sports myth**\
-`Can't be an elite athlete and a mom at the same time? There's a long list of medalists from these Olympics who would beg to differ.`\
-https://nytimes.com/athletic/7059840/2026/02/20/winter-olympics-2026-athlete-moms-mothers/
-
 **How Antarctica turns your world upside down.**\
 `Now back on land in New Zealand, Raymond reflects on the two-month expedition in The World newsletter.`\
 https://nytimes.com/live/2025/climate/antarctica-thwaites-glacier/how-antarctica-turns-your-world-upside-down
@@ -34,4 +22,20 @@ https://nytimes.com/2026/02/20/health/cancer-detection-test-grail.html
 **NBA trends I'm watching: Swarming Hornets, the malleable Pistons and more**\
 `Sure, Charlotte's offense stands out in its recent hot stretch, but the Hornets have dominated on both ends of the floor.`\
 https://nytimes.com/athletic/7059399/2026/02/20/hornets-pistons-knicks-cavaliers-nba-trends/
+
+**Manchester United 'proud of equality and diversity', says Carrick after Ratcliffe comments**\
+`Ratcliffe's claim that the UK had been "colonised by immigrants" was widely condemned, including by prime minister Keir Starmer.`\
+https://nytimes.com/athletic/7059999/2026/02/20/carrick-manchester-united-ratcliffe-immigration/
+
+**South Africa Pulls Out of Venice Biennale After Gaza Artwork Furor**\
+`The country, a major center for African art, will not have an official presence at this year’s event after a legal dispute over a Gaza-focused artwork.`\
+https://nytimes.com/2026/02/20/arts/design/south-africa-venice-biennale.html
+
+**Rams promote Nate Scheelhaase to offensive coordinator: Source**\
+`Scheelhaase, who interviewed for several head-coaching vacancies, spent last season as the Rams' pass game coordinator. `\
+https://nytimes.com/athletic/7017541/2026/02/20/rams-nathan-scheelhaase-offensive-coordinator/
+
+**Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
+`For Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
+https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
 
