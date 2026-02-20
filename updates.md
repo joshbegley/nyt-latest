@@ -1,3 +1,15 @@
+**Supreme Court Rules Against Trump’s Tariff Policy**\
+`In a bipartisan 6-3 decision, the Supreme Court ruled that President Trump exceeded his authority in imposing tariffs on nearly every U.S. trading partner.`\
+https://nytimes.com/video/us/politics/100000010726290/supreme-court-rules-against-trumps-tariffs.html
+
+**The Save America Act Is an Assault on Democracy**\
+`President Trump would have you think that voter fraud is rampant, says the Opinion columnist Jamelle Bouie. The reality? That’s just not true. So why are Trump and his allies so preoccupied with passing the Save America Act?`\
+https://nytimes.com/video/opinion/100000010726627/the-save-america-act-is-an-assault-on-democracy.html
+
+**Russia Takes the Gulag Out of the Gulag History Museum in Moscow**\
+`The museum had preserved the history of brutality inflicted by the Soviet Union on its people. It will now focus on Nazi war crimes.`\
+https://nytimes.com/2026/02/20/world/europe/russia-gulag-history-museum-stalin.html
+
 **The Best Stain Removers for Anything You Need to Get Out**\
 `Text by Andrea Barnes`\
 https://nytimes.com/card/2026/02/20/smarter-living/wirecutter/
