@@ -1,3 +1,7 @@
+**Collin Morikawa won his first golf tournament in 847 days. This photo helps explain why**\
+`For Collin Morikawa, it came down to focus. Just not the kind of hyper-detailed, shot-specific focus you might normally associate with golf.`\
+https://nytimes.com/athletic/7056546/2026/02/20/collin-morikawa-first-win-pga-tour-focus/
+
 **Three Dodgers storylines to watch as spring training games begin**\
 `A short offfseason for the Dodgers means they will be cautious about working their veteran players into action. `\
 https://nytimes.com/athletic/7058591/2026/02/20/dodgers-spring-training-storylines/

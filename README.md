@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7059920/2026/02/20/newcastle-home-kit-new-2026-27/
 https://nytimes.com/athletic/7059980/2026/02/20/aston-martin-ends-f1-testing-early/
 
 **U.S. Economy Grew More Slowly at End of 2025**\
-`Gross domestic product expanded at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
+`Gross domestic product expanded at a 1.4 percent annual rate in the last quarter of the year, hit by the effects of the government shutdown.`\
 https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
 
 **'You never know' - Glasner non-committal on short-term Palace future**\
