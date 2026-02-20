@@ -3,7 +3,7 @@
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/supreme-court-trump-tariffs
 
 **Live Updates: Supreme Court Strikes Down Trump’s Sweeping Tariffs**\
-`The court ruled that President Trump could not invoke the International Emergency Economic Powers Act of 1977 to set tariffs on goods imported from more than 100 countries.`\
+`In a major setback for President Trump’s economic agenda, the court ruled that he could not invoke the International Emergency Economic Powers Act of 1977 to set tariffs on imports.`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court
 
 **Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\

@@ -1,3 +1,8 @@
+**UK Athletics pleads guilty to corporate manslaughter following death of Paralympian**\
+`Abdullah Hayayei was killed when parts of a metal discus cage collapsed and struck his head at the Newham Leisure Centre in London in 2017.
+`\
+https://nytimes.com/athletic/7059714/2026/02/20/abdullah-hayayei-uk-athletics-corporate-manslaughter/
+
 **Why the Christian Yelich-Pat Murphy relationship is central to the Brewers' success**\
 `The bond Pat Murphy and Christian Yelich have built over nearly 10 years together makes the Brewers run.`\
 https://nytimes.com/athletic/7059901/2026/02/20/christian-yelich-pat-murphy-relationship-brewers/
