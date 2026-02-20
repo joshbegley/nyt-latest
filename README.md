@@ -1,3 +1,11 @@
+**Villa's buy clause for Elliott only applies to Premier League matches**\
+`The 23-year-old joined Villa last summer from Liverpool on an initial loan deal which would become permanent if he plays league ten games.`\
+https://nytimes.com/athletic/7060300/2026/02/20/liverpool-aston-villa-harvey-elliott-clause/
+
+**How to watch Pacers vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7060414/2026/02/20/pacers-vs-wizards-stream-how-to-watch-feb-20/
+
 **How to watch Jazz vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7060411/2026/02/20/jazz-vs-grizzlies-stream-how-to-watch-feb-20/
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/7060274/2026/02/20/norway-winter-olympics-gold-meda
 **Ski. Breathe. Shoot. The wonderful chaos of biathlon.**\
 `Johannes Dale-Skjevdal of Norway hit all 20 of his shots to win the gold medal in the mass start event.`\
 https://nytimes.com/2026/02/20/world/biathlon-johannes-dale-skjevdal-norway.html
-
-**Mikaela Shiffrin’s Silent Victory**\
-`I savor the Olympic achievements that don’t make it into any record book.`\
-https://nytimes.com/2026/02/20/opinion/shiffrin-olympics-gold.html
 
