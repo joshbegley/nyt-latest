@@ -1,3 +1,15 @@
+**6 Weeks Later, These Nurses Are Still on Strike. But They’re Frustrated.**\
+`While workers at four other New York hospitals voted to end their walkout, nurses at NewYork-Presbyterian/Columbia remain on the picket line.`\
+https://nytimes.com/2026/02/20/nyregion/nyc-nurses-still-on-strike.html
+
+**He Was a Climate Activist. One Day, the F.B.I. Came Knocking.**\
+`As the Trump administration cracks down on climate change activism, members of environmental groups like Extinction Rebellion fear they are being targeted.`\
+https://nytimes.com/2026/02/20/nyregion/environmental-activists-trump-crackdown.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/20/crosswords/spelling-bee-forum.html
+
 **Has FPL momentum swung back towards Liverpool?**\
 `As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
 `\

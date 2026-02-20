@@ -1,3 +1,15 @@
+**6 Weeks Later, These Nurses Are Still on Strike. But They’re Frustrated.**\
+`While workers at four other New York hospitals voted to end their walkout, nurses at NewYork-Presbyterian/Columbia remain on the picket line.`\
+https://nytimes.com/2026/02/20/nyregion/nyc-nurses-still-on-strike.html
+
+**He Was a Climate Activist. One Day, the F.B.I. Came Knocking.**\
+`As the Trump administration cracks down on climate change activism, members of environmental groups like Extinction Rebellion fear they are being targeted.`\
+https://nytimes.com/2026/02/20/nyregion/environmental-activists-trump-crackdown.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/20/crosswords/spelling-bee-forum.html
+
 **Stephen Colbert Balks at Trump’s Board of Peace**\
 `“The Late Show” host called the group “kind of like the U.N., except instead of passing binding resolutions, you pass a greasy bag of money to Donald Trump.”`\
 https://nytimes.com/2026/02/20/arts/television/stephen-colbert-trump-board-of-peace.html
@@ -26,17 +38,4 @@ https://nytimes.com/2026/02/20/opinion/trump-iran-public-opinion.html
 **What to watch on Day 14 of Winter Olympics: Men's hockey semifinals, U.S. curling history and more**\
 `The United States and Canada are both a win away from clinching a second North American hockey duel for gold in Milan.`\
 https://nytimes.com/athletic/7058273/2026/02/20/milan-cortina-winter-olympics-what-to-watch-day-14/
-
-**Can Arsenal fix this?**\
-`Building bigger leads and more composure in the closing stages are two issues Mikel Arteta simply has to address`\
-https://nytimes.com/athletic/7057143/2026/02/20/arsenal-problems-fix/
-
-**Has FPL momentum swung back towards Liverpool?**\
-`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
-`\
-https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
-
-**Why Nuno Espirito Santo turned to Paco Jemez to help save West Ham's season**\
-`When the opportunity arose to add to his coaching staff this winter, Nuno knew just the man he wanted...`\
-https://nytimes.com/athletic/6995822/2026/02/20/paco-jemez-west-ham-nuno/
 
