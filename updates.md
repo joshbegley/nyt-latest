@@ -1,3 +1,11 @@
+**Using bat speed, swing shape to find potential MLB breakout stars**\
+`How the swing metrics Bat Speed, Swing Tilt and Intercept Point can help identify potential breakout hitters for the 2026 season.`\
+https://nytimes.com/athletic/7056525/2026/02/20/mlb-breakout-predictions-bat-speed-swing-shape/
+
+**What women's college basketball games to watch as March Madness nears**\
+`Games to watch: Iowa versus Michigan, Kentucky against Vanderbilt, Duke facing UNC. `\
+https://nytimes.com/athletic/7059129/2026/02/20/womens-college-basketball-games-to-watch/
+
 **British Police Search Mansion Used by Former Prince Andrew**\
 `Andrew Mountbatten-Windsor, who is being investigated on suspicion of misconduct in public office, was released after an arrest that plunged the British royal family into crisis.`\
 https://nytimes.com/2026/02/20/world/europe/prince-andrew-search-epstein.html

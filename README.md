@@ -1,3 +1,19 @@
+**Is 3-on-3 overtime ruining Olympic hockey?**\
+`Plus: Three hockey medals were awarded Thursday, including a thrilling women's gold, and three more are still to come.`\
+https://nytimes.com/athletic/7059660/2026/02/20/olympics-hockey-overtime-rules-3-on-3/
+
+**'Sweden cannot perform like Tottenham': Swedish politician mocks Spurs**\
+`Mikael Damberg, of the Social Democratic Party, was speaking during a debate on fiscal policy in the Swedish parliament on Thursday.`\
+https://nytimes.com/athletic/7059645/2026/02/20/swedish-politician-spurs-spursy-tottenham/
+
+**Former Prince Andrew’s Arrest Upends Royal Effort to Move Past His Scandal**\
+`King Charles III’s family, long rocked by infighting and grievous losses, is facing what could be the gravest threat to its moral authority in more than a generation.`\
+https://nytimes.com/2026/02/20/world/europe/prince-andrew-arrest-epstein-royal-family-uk.html
+
+**Eileen Gu responds to JD Vance’s comments suggesting she should represent the U.S.**\
+`Gu was born in San Francisco but has represented China internationally since 2019.`\
+https://nytimes.com/athletic/7059625/2026/02/20/eileen-gu-jd-vance-olympics-us-china/
+
 **Using bat speed, swing shape to find potential MLB breakout stars**\
 `How the swing metrics Bat Speed, Swing Tilt and Intercept Point can help identify potential breakout hitters for the 2026 season.`\
 https://nytimes.com/athletic/7056525/2026/02/20/mlb-breakout-predictions-bat-speed-swing-shape/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7057932/2026/02/20/chiefs-unrestricted-free-agents-
 **Barcelona desperately need Pedri back, but with that comes a big risk**\
 `A series of injuries in recent seasons means Hansi Flick has to manage the 23-year-old midfielder carefully`\
 https://nytimes.com/athletic/7059560/2026/02/20/barcelona-pedri-injury-flick-la-liga-champions-league/
-
-**On anniversary of blood clot, Victor Wembanyama reflects on journey back to basketball**\
-`For Wembanyama, through adversity came purpose, and a clearer understanding of why he plays basketball at such a high level.`\
-https://nytimes.com/athletic/7059413/2026/02/20/wembanyama-blood-clot-spurs/
-
-**Men's NCAA Tournament bubble watch: About 12 at-large bids seem up for grabs. Who will seize them?**\
-`A bubble brawl will unfold over the next three weeks as teams try and stack a few more quality wins.`\
-https://nytimes.com/athletic/7058986/2026/02/20/mens-ncaa-tournament-bubble-watch-bracket-bids/
-
-**Book excerpt: When the NHL made history, a 'reuniting' on the ice in Florida**\
-`NHL history occurred almost five years ago in a game featuring Tampa Bay Lightning teammates Gemel Smith, Daniel Walcott and Mathieu Joseph.`\
-https://nytimes.com/athletic/7058232/2026/02/20/lightning-gemel-smith-daniel-walcott-mathieu-joseph-nhl/
-
-**Minnesota Vikings big board 1.0: 10 prospects to watch on each of the draft's three days**\
-`Defense dominates this early list of draft fits and targets for the Vikings ahead of the NFL combine next week.`\
-https://nytimes.com/athletic/7058726/2026/02/20/minnesota-vikings-big-board-2026-nfl-draft/
 
