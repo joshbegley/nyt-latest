@@ -1,3 +1,7 @@
+**Ex-footballer charged with attempted murder after shooting**\
+`A man in his 20s was shot in the driveway of an address on Radway Road on November 28, and was taken to hospital with serious leg injuries.`\
+https://nytimes.com/athletic/7059581/2026/02/20/patrick-lacey-attempted-murder-charge/
+
 **March in contention for Brighton return**\
 `The versatile 31-year-old has played just 20 times in two-and-a-half seasons.`\
 https://nytimes.com/athletic/7059603/2026/02/20/brighton-team-news-solly-march/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2026/02/20/todays-new-york-times-internatio
 **How China Is Stoking Fear About Travel to Japan**\
 `From earthquake warnings to bear attack alerts, Beijing is deploying a campaign of exaggeration and disinformation to punish Tokyo’s support for Taiwan.`\
 https://nytimes.com/2026/02/20/world/asia/china-travel-japan-fear.html
-
-**Jakub Menšík stuns Jannik Sinner at Qatar Open as Carlos Alcaraz survives Karen Khachanov**\
-`Alcaraz displayed an improved ability to defuse a peaking opponent, while Sinner was unable to fend off a Menšík barrage.`\
-https://nytimes.com/athletic/7058531/2026/02/20/tennis-mensik-sinner-qatar-open-upset/
 
