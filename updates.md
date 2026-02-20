@@ -1,3 +1,19 @@
+**Three Dodgers storylines to watch as spring training games begin**\
+`A short offfseason for the Dodgers means they will be cautious about working their veteran players into action. `\
+https://nytimes.com/athletic/7058591/2026/02/20/dodgers-spring-training-storylines/
+
+**Newcastle plan adjustment to traditional black-and-white-striped home kit**\
+`The new kit will still clearly identifiable as the club's iconic colours, albeit in a new form.`\
+https://nytimes.com/athletic/7059920/2026/02/20/newcastle-home-kit-new-2026-27/
+
+**Aston Martin ends F1 testing program early, capping off nightmare preseason for team**\
+`The team's running on Friday came to a total of only six laps, all completed by Lance Stroll and without setting a time.`\
+https://nytimes.com/athletic/7059980/2026/02/20/aston-martin-ends-f1-testing-early/
+
+**U.S. Economy Grew More Slowly at End of 2025**\
+`Gross domestic product expanded at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
+https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
+
 **U.S. Economy Grew Modestly at End of 2025**\
 `Gross domestic product grew at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
 https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html

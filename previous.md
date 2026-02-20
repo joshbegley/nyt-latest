@@ -1,5 +1,17 @@
-**U.S. Economy Grew Modestly at End of 2025**\
-`Gross domestic product grew at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
+**Three Dodgers storylines to watch as spring training games begin**\
+`A short offfseason for the Dodgers means they will be cautious about working their veteran players into action. `\
+https://nytimes.com/athletic/7058591/2026/02/20/dodgers-spring-training-storylines/
+
+**Newcastle plan adjustment to traditional black-and-white-striped home kit**\
+`The new kit will still clearly identifiable as the club's iconic colours, albeit in a new form.`\
+https://nytimes.com/athletic/7059920/2026/02/20/newcastle-home-kit-new-2026-27/
+
+**Aston Martin ends F1 testing program early, capping off nightmare preseason for team**\
+`The team's running on Friday came to a total of only six laps, all completed by Lance Stroll and without setting a time.`\
+https://nytimes.com/athletic/7059980/2026/02/20/aston-martin-ends-f1-testing-early/
+
+**U.S. Economy Grew More Slowly at End of 2025**\
+`Gross domestic product expanded at a 1.4 percent annual rate in the last quarter of the year, slowed by the effects of the government shutdown.`\
 https://nytimes.com/2026/02/20/business/economy/us-economy-gdp.html
 
 **'You never know' - Glasner non-committal on short-term Palace future**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7058432/2026/02/20/alex-bregman-cubs-quad-injury-20
 **Is This Private Credit’s ‘Canary in the Coal Mine’?**\
 `Steep declines in the shares of private lenders, after a major fund changed how investors can withdraw money, have sparked worries about more trouble to come.`\
 https://nytimes.com/2026/02/20/business/dealbook/private-credit-blue-owl.html
-
-**What's going on with Darryn Peterson? Kansas may worry, but NBA scouts aren't concerned**\
-`Despite playing less than 40 percent of Kansas' minutes this season, when Peterson does play, NBA evaluators continue to be wowed.`\
-https://nytimes.com/athletic/7059291/2026/02/20/darryn-peterson-kansas-basketball-questions/
-
-**What to Know About the Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/20/us/nancy-guthrie-updates
-
-**Where Do You Go to Get Away From It All?**\
-`Would you want to live alone in the woods, as the author Henry David Thoreau did when he wrote “Walden”? What does escape look like to you?`\
-https://nytimes.com/2026/02/20/learning/where-do-you-go-to-get-away-from-it-all.html
 
