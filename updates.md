@@ -1,3 +1,11 @@
+**City of Beverly Hills apologizes to Jaylen Brown for 'inaccurate' statement**\
+`The city said no permit application was submitted or denied, and the residence where Brown's event was held had no previous violations.`\
+https://nytimes.com/athletic/7058970/2026/02/19/jaylen-brown-beverly-hills-police-apology/
+
+**At her home rink, Alysa Liu a 'hero' for making Oakland golden**\
+`Liu is being lauded as a hero at her home ice rink in Oakland, Calif. `\
+https://nytimes.com/athletic/7058855/2026/02/19/alysa-liu-olympics-oakland-watch-party-figure-skating/
+
 **Trae Young, Anthony Davis 'progressing,' but Wizards debuts won't be anytime soon**\
 `“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
 https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
