@@ -1,3 +1,7 @@
+**The Biggest Olympic Skating Jumps, in Miniature**\
+`Alysa Liu became the first American woman to win an individual Olympic medal in figure skating in 20 years. Watch a head-to-head match-up of her jumps with silver medalist Kaori Sakamoto in the women’s figure skating final.`\
+https://nytimes.com/video/sports/100000010726286/the-biggest-olympic-skating-jumps-in-miniature.html
+
 **What Happens to All These Trade Deals Now?**\
 `The Supreme Court’s decision to invalidate many of President Trump’s tariffs raised questions about what would become of agreements struck with major U.S. trading partners.`\
 https://nytimes.com/2026/02/20/business/economy/trump-tariffs-supreme-court-trade-deals.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/20/movies/emerald-fennell-films-love-hat
 **3 People Are Killed in Series of Avalanches in Austrian Alps**\
 `The police said several other rescues took place. The avalanches happened amid severe weather warnings across the region.`\
 https://nytimes.com/2026/02/20/world/europe/austrian-alps-avalanche-skiing-death.html
-
-**‘A Victory for the Rule of Law’: 3 Experts Assess How Much the Court Reined In Trump**\
-`What does this mean for the president, the economy — and your bank account?`\
-https://nytimes.com/2026/02/20/opinion/trump-tariffs-supreme-court.html
 
