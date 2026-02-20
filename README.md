@@ -1,3 +1,7 @@
+**Is This Private Credit’s ‘Canary in the Coal Mine’?**\
+`Steep declines in the shares of private lenders, after a major fund changed how investors can withdraw money, have sparked worries about more trouble to come.`\
+https://nytimes.com/2026/02/20/business/dealbook/private-credit-blue-owl.html
+
 **What's going on with Darryn Peterson? Kansas may worry, but NBA scouts aren't concerned**\
 `Despite playing less than 40 percent of Kansas' minutes this season, when Peterson does play, NBA evaluators continue to be wowed.`\
 https://nytimes.com/athletic/7059291/2026/02/20/darryn-peterson-kansas-basketball-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/20/us/trump-news
 **The 76ers have an identity problem — and it starts with Joel Embiid's availability**\
 `Embiid missed Thursday's loss against the Hawks. His teammates are losing their grip when he's gone.`\
 https://nytimes.com/athletic/7059468/2026/02/20/sixers-joel-embiid-loss-hawks/
-
-**'It's a huge mistake' - Kompany criticises Mourinho's comments on Vinicius Jr**\
-`After Tuesday's match, Mourinho said that “every stadium where Vinicius plays, something happens”.`\
-https://nytimes.com/athletic/7059652/2026/02/20/mourinho-vinicius-racism-kompany/
 
