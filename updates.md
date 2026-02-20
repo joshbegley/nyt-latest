@@ -1,3 +1,19 @@
+**Iran Says U.S. Has Not Asked It to Stop Enriching Uranium**\
+`The comments by Iran’s foreign minister on Friday contradicted the Trump administration’s position.`\
+https://nytimes.com/2026/02/20/world/middleeast/iran-us-nuclear-uranium.html
+
+**Five Free Movies to Stream Now**\
+`This month’s lineup includes Spike Lee’s “Crooklyn” and other Black films that are just as rich, sharp and teeming with life.`\
+https://nytimes.com/2026/02/20/movies/free-movies-streaming.html
+
+**‘Psycho Killer’ Review: Better the Devil You Don’t Know**\
+`A highway patrol officer travels the country to track down a hulking killing machine in this unsuccessful slasher.`\
+https://nytimes.com/2026/02/20/movies/psycho-killer-review-better-the-devil-you-dont-know.html
+
+**Gerrit Cole touches 97 mph in first time facing hitters since Tommy John surgery**\
+`“I thought he was sharp," Yankees pitching coach Matt Blake said of Cole's first live batting practice since his surgery last March. `\
+https://nytimes.com/athletic/7060425/2026/02/20/gerrrit-cole-yankees-return-tommy-john-surgery/
+
 **The Tariff Chaos Is Over. The Tariff Chaos Is Just Beginning.**\
 `The Supreme Court has spoken. What now?`\
 https://nytimes.com/2026/02/20/opinion/trump-tariff-supreme-court-ruling.html

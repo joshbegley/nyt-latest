@@ -34,7 +34,3 @@ https://nytimes.com/2026/02/20/us/politics/trump-tariffs-supreme-court-dissent-r
 `Appearances made by the 23-year-old in the Europa League and domestic cups do not count towards the total needed to activate the clause.`\
 https://nytimes.com/athletic/7060300/2026/02/20/liverpool-aston-villa-harvey-elliott-clause/
 
-**How to watch Pacers vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7060414/2026/02/20/pacers-vs-wizards-stream-how-to-watch-feb-20/
-
