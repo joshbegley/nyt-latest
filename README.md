@@ -1,3 +1,7 @@
+**HUD Revives First-Term Trump Proposal to Eject Undocumented Immigrants from Public Housing**\
+`When the Trump administration proposed the rule in 2019, housing officials estimated it would also displace thousands of U.S. citizens and legal residents.`\
+https://nytimes.com/2026/02/19/us/politics/hud-trump-immigrants-housing.html
+
 **Bard College Opens Review of Its President’s Ties to Jeffrey Epstein**\
 `The move comes after a trove of documents released by the Justice Department showed Leon Botstein had a relationship that was closer than previously known with the convicted sex offender.`\
 https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058723/2026/02/19/dodgers-freddie-freeman-future-c
 **Three Words That Shape Our Politics**\
 `Is Donald Trump “country” or “cowboy”? The Times Opinion columnist Tressie McMillan Cottom breaks down a cultural trend she sees shaping politics today.`\
 https://nytimes.com/video/opinion/100000010722916/three-words-that-shape-our-politics.html
-
-**F1 president Domenicali warns against 'panicking' over new cars**\
-`F1 has overhauled its car and engine designs for the 2026 season, placing a greater emphasis on energy management.`\
-https://nytimes.com/athletic/7057925/2026/02/19/stefano-domenicali-f1-new-cars/
 

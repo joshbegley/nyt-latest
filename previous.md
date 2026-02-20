@@ -1,3 +1,19 @@
+**Bard College Opens Review of Its President’s Ties to Jeffrey Epstein**\
+`The move comes after a trove of documents released by the Justice Department showed Leon Botstein had a relationship that was closer than previously known with the convicted sex offender.`\
+https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
+
+**Venezuela Passes Amnesty Bill Denounced by Some as ‘Unjust’**\
+`The bill may bring the release of hundreds of political prisoners. But many critics say the legislation, passed after major pressure from the Trump administration, raises concerns.`\
+https://nytimes.com/2026/02/19/world/americas/venezuela-amnesty-bill-prisoners.html
+
+**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied to’**\
+`President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
+https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
+
+**As Trump Weighs Iran Strikes, He Declines to Make Clear Case for Why, or Why Now**\
+`Rarely in modern times has the United States prepared to conduct a major act of war with so little explanation or public debate.`\
+https://nytimes.com/2026/02/19/us/politics/trump-iran-military-strikes.html
+
 **Investigators Blame NASA and Boeing for Starliner Failures**\
 `Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
 https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010722916/three-words-that-shape-our-pol
 **F1 president Domenicali warns against 'panicking' over new cars**\
 `F1 has overhauled its car and engine designs for the 2026 season, placing a greater emphasis on energy management.`\
 https://nytimes.com/athletic/7057925/2026/02/19/stefano-domenicali-f1-new-cars/
-
-**Discussions being held to increase amount of F1 sprint races 'up to 12', says Domenicali**\
-`Six sprint races will be held in the 2026 season, hosted by China, Miami, Montreal, Silverstone, Zandvoort and Singapore.`\
-https://nytimes.com/athletic/7058234/2026/02/19/f1-sprint-races-increase-stefano-domenicali/
-
-**Want to Age Well at Home? Take Our Room-by-Room Tour.**\
-`Aging in place — growing old in your own home rather than a nursing home — offers a lot of benefits.`\
-https://nytimes.com/wirecutter/reviews/aging-in-place/
-
-**Brewers, manager Pat Murphy in agreement on 3-year contract: Source**\
-`Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
-https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
-
-**Trump Calls Himself a ‘Schmuck’ for Donating His Presidential Salary**\
-`President Trump complained that he gets “no credit” for the donations, though his family has done more to monetize the presidency than anyone who has ever occupied the White House.`\
-https://nytimes.com/2026/02/19/us/politics/trump-president-salary.html
 

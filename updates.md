@@ -1,3 +1,19 @@
+**Bard College Opens Review of Its President’s Ties to Jeffrey Epstein**\
+`The move comes after a trove of documents released by the Justice Department showed Leon Botstein had a relationship that was closer than previously known with the convicted sex offender.`\
+https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
+
+**Venezuela Passes Amnesty Bill Denounced by Some as ‘Unjust’**\
+`The bill may bring the release of hundreds of political prisoners. But many critics say the legislation, passed after major pressure from the Trump administration, raises concerns.`\
+https://nytimes.com/2026/02/19/world/americas/venezuela-amnesty-bill-prisoners.html
+
+**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied to’**\
+`President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
+https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
+
+**As Trump Weighs Iran Strikes, He Declines to Make Clear Case for Why, or Why Now**\
+`Rarely in modern times has the United States prepared to conduct a major act of war with so little explanation or public debate.`\
+https://nytimes.com/2026/02/19/us/politics/trump-iran-military-strikes.html
+
 **Investigators Blame NASA and Boeing for Starliner Failures**\
 `Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
 https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
