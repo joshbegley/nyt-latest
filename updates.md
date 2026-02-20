@@ -1,3 +1,12 @@
+**This Is How an Autocrat Goes to War**\
+`All that matters to Trump is whether he thinks attacking Iran is in his interests.`\
+https://nytimes.com/2026/02/20/opinion/trump-iran-public-opinion.html
+
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **Has FPL momentum swung back towards Liverpool?**\
 `As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
 `\
