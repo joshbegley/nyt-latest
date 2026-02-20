@@ -1,3 +1,11 @@
+**Christopher S. Wren, Times Bureau Chief in Hostile Lands, Dies at 89**\
+`Over three decades, he reported from Moscow, Beijing, Tehran and elsewhere and wrote well-received books based on his reporting, including one about his globe-trotting cat.`\
+https://nytimes.com/2026/02/20/business/media/christopher-wren-dead.html
+
+**Bench Presses, Pull Ups … Kid Rock? The White House Had a Very Manly Week.**\
+`President Trump’s top cabinet officials are pumping iron in public.`\
+https://nytimes.com/2026/02/20/us/politics/trump-hegseth-rfk-manliness.html
+
 **Trump blasts the tariff ruling on Truth Social.**\
 `(No description)`\
 https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/trump-blasts-the-tariff-ruling-on-truth-social
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-justices-gorsuch-barrett-robert
 **These Skiers Cleared Out as Group That Would Be Hit by Avalanche Arrived**\
 `If the party had waited out the storm in their cabins, one of the skiers said, the outcome might have been different.`\
 https://nytimes.com/2026/02/20/us/avalanche-tahoe-huts.html
-
-**What’s Up With New York’s Bad Air Quality This Week?**\
-`Did you notice a dip in the air quality the last few days? It’s winter’s fault.`\
-https://nytimes.com/2026/02/20/nyregion/nyc-air-quality.html
-
-**Cuba Energy Crisis Deepens Under United States Blockade on Oil**\
-`Fuel shortages have made everyday life more challenging for residents in Cuba, as the country faces the United States’ first effective blockade since the Cuban Missile Crisis.`\
-https://nytimes.com/video/world/americas/100000010726386/cuba-oil-blockade-us-energy.html
 

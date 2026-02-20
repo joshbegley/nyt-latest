@@ -1,3 +1,11 @@
+**Christopher S. Wren, Times Bureau Chief in Hostile Lands, Dies at 89**\
+`Over three decades, he reported from Moscow, Beijing, Tehran and elsewhere and wrote well-received books based on his reporting, including one about his globe-trotting cat.`\
+https://nytimes.com/2026/02/20/business/media/christopher-wren-dead.html
+
+**Bench Presses, Pull Ups … Kid Rock? The White House Had a Very Manly Week.**\
+`President Trump’s top cabinet officials are pumping iron in public.`\
+https://nytimes.com/2026/02/20/us/politics/trump-hegseth-rfk-manliness.html
+
 **UCLA's Mick Cronin apologizes for sending Steven Jamerson to locker room during loss**\
 `Cronin said he thought Jamerson's foul was dirty in real time but acknowledged that he misjudged the play.`\
 https://nytimes.com/athletic/7060598/2026/02/20/mick-cronin-apology-ucla-steven-jamerson/
