@@ -1,3 +1,15 @@
+**‘The Pitt’ Season 2, Episode 7 Recap: Emotional Rescue**\
+`Robby and Langdon have an awkward encounter in an elevator. Dana struggles to keep it together in a difficult case involving sexual assault.`\
+https://nytimes.com/2026/02/19/arts/television/the-pitt-recap-season-2-episode-7.html
+
+**Has to Keep Going**\
+`Kate Hawkins opens our solving weekend.`\
+https://nytimes.com/2026/02/19/crosswords/daily-puzzle-2026-02-20.html
+
+**Winter Olympics Day 13 recap: USA women's hockey beats Canada; Liu wins gold**\
+`Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
+https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
+
 **How Alysa Liu Won Gold in Women’s Figure Skating**\
 `With seven clean triple jumps, Alysa Liu skated effortlessly to Olympic gold, becoming the first American woman in 20 years to win a medal.`\
 https://nytimes.com/interactive/2026/02/19/sports/alysa-liu-olympics-gold-figure-skating.html

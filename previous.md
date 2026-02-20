@@ -1,3 +1,11 @@
+**‘The Pitt’ Season 2, Episode 7 Recap: Emotional Rescue**\
+`Robby and Langdon have an awkward encounter in an elevator. Dana struggles to keep it together in a difficult case involving sexual assault.`\
+https://nytimes.com/2026/02/19/arts/television/the-pitt-recap-season-2-episode-7.html
+
+**Has to Keep Going**\
+`Kate Hawkins opens our solving weekend.`\
+https://nytimes.com/2026/02/19/crosswords/daily-puzzle-2026-02-20.html
+
 **How Alysa Liu Won Gold in Women’s Figure Skating**\
 `With seven clean triple jumps, Alysa Liu skated effortlessly to Olympic gold, becoming the first American woman in 20 years to win a medal.`\
 https://nytimes.com/interactive/2026/02/19/sports/alysa-liu-olympics-gold-figure-skating.html
@@ -10,7 +18,7 @@ https://nytimes.com/2026/02/19/arts/eric-dane-mcsteamy-dead.html
 `Glenn said that when it comes to her future, "I'll be kind of helping on the sidelines."`\
 https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/
 
-**Winter Olympics Day 13 recap: USA women's hockey beats Canada in OT; Alysa Liu wins gold**\
+**Winter Olympics Day 13 recap: USA women's hockey beats Canada; Liu wins gold**\
 `Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
 https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury
 **Hilary Knight gets storybook ending to Olympic career: 'Legends do legendary things'**\
 `One hundred twenty-four seconds away from a Canadian upset victory, Knight — in her last Olympic game — played the hero and forced overtime.`\
 https://nytimes.com/athletic/7058996/2026/02/19/hilary-knight-usa-canada-hockey-olympics-gold-medal/
-
-**How new MLBPA head Bruce Meyer plans to build support for bargaining**\
-`The union has a new leader at a time when the stakes are particularly high, and there’s a lot to determine in short order. `\
-https://nytimes.com/athletic/7058947/2026/02/19/mlbpa-bruce-meyer-introductory-conference/
-
-**New Trump Banner Hung on Justice Department Headquarters**\
-`Other federal buildings across Washington, D.C., are also adorned with huge banners of President Trump.`\
-https://nytimes.com/2026/02/19/us/politics/trump-banner-doj.html
 
