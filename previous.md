@@ -1,3 +1,7 @@
+**Trae Young, Anthony Davis 'progressing' but returns won't be anytime soon**\
+`“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
+https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
+
 **How Did Draco Malfoy Get Mixed Up With Lunar New Year?**\
 `It all comes down to a love of wordplay.`\
 https://nytimes.com/2026/02/19/world/asia/lunar-new-year-china-felton-malfoy-harry-potter.html
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/7057925/2026/02/19/stefano-domenicali-f1-new-cars/
 `Six sprint races will be held in the 2026 season, hosted by China, Miami, Montreal, Silverstone, Zandvoort and Singapore.`\
 https://nytimes.com/athletic/7058234/2026/02/19/f1-sprint-races-increase-stefano-domenicali/
 
+**Want to Age Well at Home? Take Our Room-by-Room Tour.**\
+`Aging in place — growing old in your own home rather than a nursing home — offers a lot of benefits.`\
+https://nytimes.com/wirecutter/reviews/aging-in-place/
+
 **Brewers, manager Pat Murphy in agreement on 3-year contract: Source**\
 `Murphy, the NL's back-to-back manager of the year, will be around in Milwaukee for the foreseeable future. `\
 https://nytimes.com/athletic/7058804/2026/02/19/milwaukee-brewers-pat-murphy-new-contract/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/02/19/us/politics/trump-president-salary.html
 **Joe Gibbs Racing sues former competition director alleging 'brazen scheme'**\
 `Chris Gabehart was JGR competition director from November 2024 through November 2025.`\
 https://nytimes.com/athletic/7058749/2026/02/19/joe-gibbs-racing-lawsuit-chris-gabehart-spire/
-
-**Blue Owl Sets Off New Private Credit Fears**\
-`The lender’s announcement that investors would no longer be able to ask for a set amount of money back from its funds prompted worries about the private credit industry.`\
-https://nytimes.com/2026/02/19/business/blue-owl-stock-private-credit.html
 

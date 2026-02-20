@@ -1,3 +1,11 @@
+**Trae Young, Anthony Davis 'progressing' but returns won't be anytime soon**\
+`“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
+https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
+
+**Want to Age Well at Home? Take Our Room-by-Room Tour.**\
+`Aging in place — growing old in your own home rather than a nursing home — offers a lot of benefits.`\
+https://nytimes.com/wirecutter/reviews/aging-in-place/
+
 **How Did Draco Malfoy Get Mixed Up With Lunar New Year?**\
 `It all comes down to a love of wordplay.`\
 https://nytimes.com/2026/02/19/world/asia/lunar-new-year-china-felton-malfoy-harry-potter.html
