@@ -1,5 +1,9 @@
+**Fantasy Premier League live Q&A: Gameweek 27 advice from Ben Dinnery**\
+`To get your side into shape, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and to avoid`\
+https://nytimes.com/athletic/7059556/2026/02/20/fantasy-premier-league-live-qa-gameweek-27-advice-from-ben-dinnery/
+
 **In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
-`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold-medal game is set to be a classic.`\
+`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold medal game is set to be a classic.`\
 https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
 
 **What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058289/2026/02/20/new-york-rangers-prospect-dylan-
 **The Athletic’s Friday football quiz question #94**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/7047999/2026/02/20/the-athletics-friday-football-quiz-question-94/
-
-**Former Giants exec aims to spread the Oakland Ballers experience to entire Bay Area**\
-`Yeshayah Goldfarb joins the Ballers as the team's first president after 24 years as a key member of the Giants' baseball operations group.`\
-https://nytimes.com/athletic/7055685/2026/02/20/oakland-ballers-yeshayah-goldfarb-team-president/
 

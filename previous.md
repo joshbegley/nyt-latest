@@ -1,3 +1,7 @@
+**In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
+`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold-medal game is set to be a classic.`\
+https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
+
 **What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
 `Michigan is moving on from general manager Sean Magee and targeting Dave Peloquin, a former fixture at Notre Dame for two decades.`\
 https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-staff-whittingham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7047999/2026/02/20/the-athletics-friday-football-qu
 **Former Giants exec aims to spread the Oakland Ballers experience to entire Bay Area**\
 `Yeshayah Goldfarb joins the Ballers as the team's first president after 24 years as a key member of the Giants' baseball operations group.`\
 https://nytimes.com/athletic/7055685/2026/02/20/oakland-ballers-yeshayah-goldfarb-team-president/
-
-**Chelsea's new contract reality: Players have long deals, but some want improved terms**\
-`Chelsea introduced a policy of long-term contracts, but they will still have to be tackled in the near future`\
-https://nytimes.com/athletic/7058402/2026/02/20/chelsea-new-contracts-analysis/
 

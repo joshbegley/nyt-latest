@@ -1,3 +1,7 @@
+**In Olympic men's curling, it's Canada vs. Great Britain in heavyweight bout for gold**\
+`Bruce Mouat's top-ranked Scots vs. Brad Jacobs' seasoned Canadians. Saturday's men's curling Olympic gold-medal game is set to be a classic.`\
+https://nytimes.com/athletic/7058240/2026/02/20/winter-olympics-mens-curling-canada-great-britain-gold-medal/
+
 **What does Michigan's football GM swap mean? 5 thoughts on Kyle Whittingham's changes**\
 `Michigan is moving on from general manager Sean Magee and targeting Dave Peloquin, a former fixture at Notre Dame for two decades.`\
 https://nytimes.com/athletic/7058585/2026/02/20/michigan-football-gm-coaching-staff-whittingham/
