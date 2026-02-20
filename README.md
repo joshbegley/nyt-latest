@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/19/arts/eric-dane-mcsteamy-dead.html
 `Glenn said that when it comes to her future, "I'll be kind of helping on the sidelines."`\
 https://nytimes.com/athletic/7058950/2026/02/19/amber-glenn-figure-skating-future-milan-olympics/
 
-**Winter Olympics Day 13 recap: USA women's hockey beats Canada in OT; Alysa Liu wins gold**\
+**Winter Olympics Day 13 recap: USA women's hockey beats Canada; Liu wins gold**\
 `Hilary Knight scored the tying goal to become the U.S. leader in goals and points in Olympic history.`\
 https://nytimes.com/athletic/7059027/2026/02/19/winter-olympics-2026-recap-usa-canada-hockey-alysa-liu/
 
