@@ -1,40 +1,40 @@
-**'It doesn't fit our values' - Werder Bremen bin U.S. tour proposals**\
-`Werder Bremen had provisionally been planning to spend a week between Minnesota and Detroit in May, playing two friendly matches.`\
-https://nytimes.com/athletic/7059481/2026/02/20/werder-bremen-usa-tour/
+**Jakub Menšík stuns Jannik Sinner at Qatar Open as Carlos Alcaraz survives Karen Khachanov**\
+`Alcaraz displayed an improved ability to defuse a peaking opponent, while Sinner was unable to fend off a Menšík barrage.`\
+https://nytimes.com/athletic/7058531/2026/02/20/tennis-mensik-sinner-qatar-open-upset/
 
-**‘The Secret Agent’ | Anatomy of a Scene**\
-`The director Kleber Mendonça Filho narrates an ensemble sequence from his film, which is nominated for best picture.`\
-https://nytimes.com/video/movies/100000010720773/the-secret-agent-scene.html
+**What Canada can learn from ... Canada**\
+`Canada's men's soccer team is co-hosting a World Cup this summer. What can it learn from Canada’s men’s Olympic hockey team?`\
+https://nytimes.com/athletic/7058212/2026/02/20/olympics-world-cup-canada-soccer-hockey/
 
-**Bobsled costs are skyrocketing. Can the U.S. keep up in a bedrock Olympic sport?**\
-`You think everyday items have gotten more expensive in recent years? Imagine how much it costs to send a bobsled around the world.`\
-https://nytimes.com/athletic/7057649/2026/02/20/winter-olympics-bobsled-costs-rising-team-usa/
+**Inside Trump’s ‘Royal Court’**\
+`The Atlantic staff writers Ashley Parker and Michael Scherer explain how Trump’s White House works.`\
+https://nytimes.com/2026/02/20/opinion/ezra-klein-podcast-ashley-parker-michael-scherer.html
 
-**In the Dolomites, the Olympics get translated into Ladin, the Alps' oldest language**\
-`For the Ladin people, the Winter Games are a source of pride and a site of missed opportunities.`\
-https://nytimes.com/athletic/7057329/2026/02/20/winter-olympics-dolomites-ladin-language-coverage/
+**Mixed Signals Churn Stock Market Despite Recent Highs**\
+`Major indexes have mostly been treading water for months, as investors’ exuberance for artificial intelligence wears off.`\
+https://nytimes.com/2026/02/20/business/stocks-markets-mixed-signals.html
 
-**How did Italy get so good at the Winter Olympics? Money, a 'ghost' and a little luck**\
-`The Italian federation was haunted by what happened at the 2006 Turin Olympics. Twenty years later, their performance is meeting the moment.`\
-https://nytimes.com/athletic/7058493/2026/02/20/italy-winter-olympics-medals-sports/
+**How to Get Through the Rest of Winter**\
+`Well staffers share how they weather the “enough already” part of the season.`\
+https://nytimes.com/2026/02/20/well/get-through-winter-tips.html
 
-**FIFA and Trump's Board of Peace enter partnership aimed at Gaza regeneration**\
-`The United States president and the FIFA chief continue to connect on multiple fronts.`\
-https://nytimes.com/athletic/7059472/2026/02/20/fifa-trump-peace-gaza/
+**The New York Times News Quiz, Feb. 20, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/02/20/briefing/epstein-files-iran-jesse-jackson-news-quiz.html
 
-**An Enemy’s Fall Frees Up South Korea’s Leader. Now Comes the Tough Part.**\
-`President Lee Jae Myung gained legitimacy from his predecessor’s conviction​. But South Korea’s political polarization is caustic, and could get worse.`\
-https://nytimes.com/2026/02/20/world/asia/south-korea-lee-yoon.html
+**As Inquiries Begin in Avalanche Deaths, a Question Emerges: Was Anyone at Fault?**\
+`Few laws govern backcountry skiing in California. Experts say that people engage in the sport at their own risk, but guides have responsibilities to keep clients safe.`\
+https://nytimes.com/2026/02/20/us/tahoe-area-avalanche-deaths-investigation.html
 
-**6 Weeks Later, These Nurses Are Still on Strike. But They’re Frustrated.**\
-`While workers at four other New York hospitals voted to end their walkout, nurses at NewYork-Presbyterian/Columbia remain on the picket line.`\
-https://nytimes.com/2026/02/20/nyregion/nyc-nurses-still-on-strike.html
+**The Problem With Hot, White Heathcliff**\
+`It’s time to end the era of colorblind casting.`\
+https://nytimes.com/2026/02/20/opinion/wuthering-heights-jacob-elordi-bridgerton.html
 
-**He Was a Climate Activist. One Day, the F.B.I. Came Knocking.**\
-`As the Trump administration cracks down on climate change activism, members of environmental groups like Extinction Rebellion fear they are being targeted.`\
-https://nytimes.com/2026/02/20/nyregion/environmental-activists-trump-crackdown.html
+**It’s Dangerous. Sometimes Deadly. I Won’t Stop.**\
+`Skiing the backcountry remains essential to me — to find solace, recharge, sweat, laugh, cry and unplug from the ills of the world.`\
+https://nytimes.com/2026/02/20/opinion/tahoe-avalance-backcountry-skiing-risks.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/20/crosswords/spelling-bee-forum.html
+**Watch an Ensemble Scene From ‘The Secret Agent’**\
+`Kleber Mendonça Filho narrates a sequence from his Oscar-nominated film, starring Wagner Moura.`\
+https://nytimes.com/2026/02/20/movies/the-secret-agent-clip.html
 
