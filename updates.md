@@ -1,3 +1,7 @@
+**Head of Russia’s Antidoping Agency Was Involved in 2014 Doping Scheme, Whistle-Blower Claims**\
+`The accusation surfaced as Russia tries to re-establish its Olympics eligibility.`\
+https://nytimes.com/2026/02/20/world/europe/olympics-doping-russia.html
+
 **Ex-footballer charged with attempted murder after shooting**\
 `A man in his 20s was shot in the driveway of an address on Radway Road on November 28, and was taken to hospital with serious leg injuries.`\
 https://nytimes.com/athletic/7059581/2026/02/20/patrick-lacey-attempted-murder-charge/

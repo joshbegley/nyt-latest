@@ -1,40 +1,40 @@
-**Head of Russia’s Antidoping Agency Was Involved in 2014 Doping Scheme, Whistle-Blower Claims**\
-`The accusation surfaced as Russia tries to re-establish its Olympics eligibility.`\
-https://nytimes.com/2026/02/20/world/europe/olympics-doping-russia.html
+**On anniversary of blood clot, Victor Wembanyama reflects on journey back to basketball**\
+`For Wembanyama, through adversity came purpose, and a clearer understanding of why he plays basketball at such a high level.`\
+https://nytimes.com/athletic/7059413/2026/02/20/wembanyama-blood-clot-spurs/
 
-**Ex-footballer charged with attempted murder after shooting**\
-`A man in his 20s was shot in the driveway of an address on Radway Road on November 28, and was taken to hospital with serious leg injuries.`\
-https://nytimes.com/athletic/7059581/2026/02/20/patrick-lacey-attempted-murder-charge/
+**Men's NCAA Tournament bubble watch: About 12 at-large bids seem up for grabs. Who will seize them?**\
+`A bubble brawl will unfold over the next three weeks as teams try and stack a few more quality wins.`\
+https://nytimes.com/athletic/7058986/2026/02/20/mens-ncaa-tournament-bubble-watch-bracket-bids/
 
-**March in contention for Brighton return**\
-`The versatile 31-year-old has played just 20 times in two-and-a-half seasons.`\
-https://nytimes.com/athletic/7059603/2026/02/20/brighton-team-news-solly-march/
+**Book excerpt: When the NHL made history, a 'reuniting' on the ice in Florida**\
+`NHL history occurred almost five years ago in a game featuring Tampa Bay Lightning teammates Gemel Smith, Daniel Walcott and Mathieu Joseph.`\
+https://nytimes.com/athletic/7058232/2026/02/20/lightning-gemel-smith-daniel-walcott-mathieu-joseph-nhl/
 
-**Frank Reich is the master of the comeback. The Jets might be his biggest challenge yet**\
-`After getting fired midseason two years in a row, Reich thought his NFL coaching career was over, then his old friend Aaron Glenn called.`\
-https://nytimes.com/athletic/7055211/2026/02/20/frank-reich-is-the-master-of-the-comeback-the-jets-might-be-his-biggest-challenge-yet/
+**Minnesota Vikings big board 1.0: 10 prospects to watch on each of the draft's three days**\
+`Defense dominates this early list of draft fits and targets for the Vikings ahead of the NFL combine next week.`\
+https://nytimes.com/athletic/7058726/2026/02/20/minnesota-vikings-big-board-2026-nfl-draft/
 
-**The NFL's 2026 coaching cycle still leaned offense, but what are the other trends?**\
-`Six of the league's new hires have offensive backgrounds, though Mike Macdonald's success could create a new future model.`\
-https://nytimes.com/athletic/7058451/2026/02/20/nfl-2026-coaching-cycle-trends/
+**The Knicks need to get ’90s tough … or else they are done**\
+`With a chance to give Detroit something to think about ahead of a possible playoff matchup, New York was beaten Bad Boy-style.`\
+https://nytimes.com/athletic/7059368/2026/02/20/knicks-pistons-nba-eastern-conference-toughness/
 
-**He had the best NFL combine interview a GM has seen. What can anyone learn from it?**\
-`Every year there are stories of awkward or bad combine interviews. Robert Turbin is the opposite: A player whose interviews helped him.`\
-https://nytimes.com/athletic/7057543/2026/02/20/nfl-combine-interview-job-tips-advice/
+**What we're seeing at Mets camp: Going inside the clubhouse and workouts**\
+`Carson Benge's demeanor, Sean Manaea's presence and Bo Bichette's work at third base helped fuel a lively vibe around camp. `\
+https://nytimes.com/athletic/7059069/2026/02/20/mets-spring-training-carson-benge-bo-bichette/
 
-**MLB teams, managers and front offices that'll be feeling the heat: Insiders weigh in**\
-`Which front offices, managers and players are feeling the most heat heading into this season? Here's who our panel singled out. `\
-https://nytimes.com/athletic/7058065/2026/02/20/mlb-teams-players-managers-under-pressure/
+**What I'm hearing about the Flyers: A Michkov meeting, and listening on Ristolainen**\
+`The Flyers were pleased with Michkov's game after a meeting with coaches and other team staff.`\
+https://nytimes.com/athletic/7058397/2026/02/20/flyers-michkov-tocchet-trade-deadline/
 
-**How will teams decide which players get to make ABS challenge calls? It's complicated**\
-`Many teams are using their time in spring training to analyze which of their players are the best at challenging calls.`\
-https://nytimes.com/athletic/7055392/2026/02/20/mlb-abs-team-challenge-pitchers/
+**NFL Draft 2026 prospects to watch in Saturday's HBCU Legacy Bowl**\
+`There weren't any HBCU players invited to the NFL Scouting Combine, but that doesn’t mean these programs lack talent.`\
+https://nytimes.com/athletic/7057986/2026/02/20/nfl-draft-2026-hbcu-legacy-bowl-prospects/
 
-**Another Winter Storm Could Hit the Northeast This Weekend**\
-`There’s a lot of hype, but not a lot of certainty among forecasters yet. Here are three scenarios to watch.`\
-https://nytimes.com/2026/02/20/weather/new-york-snow-forecast.html
+**2026 MLS Watchability Rankings: Which clubs are most entertaining?**\
+`If you're a neutral fan seeking out an MLS game, which clubs will give you the biggest return on your time investment? We've got you covered`\
+https://nytimes.com/athletic/7056848/2026/02/20/mls-watchability-rankings-2026-messi-miami-lafc-son/
 
-**The New York Times International Edition in Print for Saturday, Feb. 21, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/20/todays-new-york-times-international-edition
+**Raptors face 3 big questions: Jakob Poeltl's impact and more**\
+`Will the Raptors' offence benefit from a true 7-footer?`\
+https://nytimes.com/athletic/7059333/2026/02/20/toronto-raptors-jakob-poeltl-impact-questions/
 
