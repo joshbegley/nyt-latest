@@ -1,3 +1,15 @@
+**India’s Hindu Right Seems Unstoppable. This City Shows How.**\
+`Muslims make up a majority in Sambhal, but after deadly clashes over a mosque, they say they the arms of the state are now stifling them.`\
+https://nytimes.com/2026/02/20/world/asia/india-hindu-muslims-mosque.html
+
+**Spring 2026 Theater, Music and Dance**\
+`Your guide on what to see this season — including theater, music and dance.`\
+https://nytimes.com/spotlight/theater-music-dance-2026
+
+**Epstein Scandal Leaves Some Young Trump Voters Feeling Betrayed**\
+`Drawn to President Trump for his pledge to take down the political elite, some of his young constituents say he has failed them.`\
+https://nytimes.com/2026/02/20/style/epstein-files-young-conservatives.html
+
 **Venezuela Releases Political Prisoners, With Conditions**\
 `Since Nicolás Maduro’s capture by the United States, Venezuela has released hundreds of political prisoners and approved a new amnesty law, although the restrictions on those freed have raised questions about whether this signals real change.`\
 https://nytimes.com/video/world/americas/100000010703424/venezuela-releases-political-prisoners-with-conditions.html
