@@ -1,3 +1,15 @@
+**Blue Jays, Max Scherzer remain in constant contact about potential reunion**\
+`The Blue Jays' clubhouse would welcome back Scherzer with open arms but he isn't a natural fit on their roster at the moment.`\
+https://nytimes.com/athletic/7061143/2026/02/20/toronto-blue-jays-max-scherzer-potential-return/
+
+**Coaches don't get an Olympic medal? U.S.'s John Wroblewski says he'd have it no other way**\
+`The U.S. women's coach: "My satisfaction was watching those women last night fulfill their dream and get the gold medals that they earned."`\
+https://nytimes.com/athletic/7060937/2026/02/20/coaches-olympic-medals-john-wroblewski-womens-hockey/
+
+**Melania Trump Presents Her 2025 Inaugural Gown to the Smithsonian**\
+`The dress joined an exhibit of gowns belonging to first ladies stretching back to Helen Taft in 1909, and Mrs. Trump spoke about how high fashion reflected humanity.`\
+https://nytimes.com/2026/02/20/us/politics/melania-trump-smithsonian-dress.html
+
 **Prime Tire: Preseason grades for each team ... kinda**\
 `Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
 https://nytimes.com/athletic/7061134/2026/02/20/preseason-grades-f1-prime-tire/

@@ -1,3 +1,15 @@
+**Blue Jays, Max Scherzer remain in constant contact about potential reunion**\
+`The Blue Jays' clubhouse would welcome back Scherzer with open arms but he isn't a natural fit on their roster at the moment.`\
+https://nytimes.com/athletic/7061143/2026/02/20/toronto-blue-jays-max-scherzer-potential-return/
+
+**Coaches don't get an Olympic medal? U.S.'s John Wroblewski says he'd have it no other way**\
+`The U.S. women's coach: "My satisfaction was watching those women last night fulfill their dream and get the gold medals that they earned."`\
+https://nytimes.com/athletic/7060937/2026/02/20/coaches-olympic-medals-john-wroblewski-womens-hockey/
+
+**Melania Trump Presents Her 2025 Inaugural Gown to the Smithsonian**\
+`The dress joined an exhibit of gowns belonging to first ladies stretching back to Helen Taft in 1909, and Mrs. Trump spoke about how high fashion reflected humanity.`\
+https://nytimes.com/2026/02/20/us/politics/melania-trump-smithsonian-dress.html
+
 **Prime Tire: Preseason grades for each team ... kinda**\
 `Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
 https://nytimes.com/athletic/7061134/2026/02/20/preseason-grades-f1-prime-tire/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/cia-retracts-reports.html
 **The Biggest Olympic Skating Jumps, in Miniature**\
 `Alysa Liu became the first American woman to win an individual Olympic medal in figure skating in 20 years. Watch a head-to-head match-up of her jumps with silver medalist Kaori Sakamoto in the women’s figure skating final.`\
 https://nytimes.com/video/sports/100000010726286/the-biggest-olympic-skating-jumps-in-miniature.html
-
-**What Happens to All These Trade Deals Now?**\
-`The Supreme Court’s decision to invalidate many of President Trump’s tariffs raised questions about what would become of agreements struck with major U.S. trading partners.`\
-https://nytimes.com/live/2026/02/20/us/trump-tariffs-supreme-court/what-happens-to-all-these-trade-deals-now
-
-**Rocky Mountaineer and the Romance of Rail**\
-`From a lifelong dream fulfilled to a pre-wedding adventure, these travelers found that a journey by train was the perfect way to see the world.`\
-https://nytimes.com/paidpost/rocky-mountaineer/rocky-mountaineer-and-the-romance-of-rail.html
-
-**FIFA Fan Fest for New York/New Jersey cancelled four months before World Cup**\
-`Planning had been underway for a year and tickets had been sold, with ambitions of being open for all 104 games during the tournament`\
-https://nytimes.com/athletic/7060549/2026/02/20/world-cup-2026-fifa-fan-new-york-new-jersey-cancelled/
 
