@@ -1,3 +1,15 @@
+**Russell Westbrook's wife shares email wishing death upon family after loss**\
+`The message expressed hope the Westbrooks would die in a car crash because the Kings point guard finished with fewer than 10 points.`\
+https://nytimes.com/athletic/7060324/2026/02/20/russell-westbrook-wife-sports-betting-email-instagram-kings/
+
+**Venus Williams gets an Indian Wells wild card – for real, this time**\
+`Williams, 45, was awarded a wild card last year but had to miss the tournament due to other commitments.`\
+https://nytimes.com/athletic/7060651/2026/02/20/tennis-venus-williams-indian-wells-wild-card/
+
+**The Wild and Weird at the Olympics**\
+`People won gold medals. People broke records. And also these things happened.`\
+https://nytimes.com/interactive/2026/02/20/world/olympics/19olympics-quiz.html
+
 **In Her Big Olympic Moment, Alysa Liu Celebrated Her Freedom**\
 `Competition can wreck a figure skater, but Liu and other Olympians shed the pressure and delivered transcendent performances focused on artistry.`\
 https://nytimes.com/2026/02/20/arts/dance/alysa-liu-figure-skating-winter-olympics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/20/nyregion/nypd-dui-coverup-arraignment.html
 **Dog Poop Wars: In New York, the Snow Is Foul, and So Is the Discourse**\
 `As melting snow reveals weeks’ worth of uncollected dog waste, frustration at the state of the sidewalks has boiled over.`\
 https://nytimes.com/2026/02/20/nyregion/new-york-snow-dog-waste.html
-
-**Canada to play for gold in Olympic men's hockey with win over Finland**\
-`Team Canada defeated Finland in the Olympic men's hockey semifinal on Friday to punch its ticket to the gold medal game.`\
-https://nytimes.com/athletic/7060232/2026/02/20/canada-finland-olympics-mens-hockey-semifinal/
-
-**Greece to Acquire Nazi Execution Photographs That Were Up for Sale Online**\
-`The images of political prisoners, taken just before they were killed by Nazis in 1944, were put up for auction on eBay. The sale was pulled shortly thereafter.`\
-https://nytimes.com/2026/02/20/world/europe/greece-nazi-execution-photos.html
-
-**Mural made of McTominay goal that helped secure Scotland's World Cup qualification**\
-`The win over Denmark saw Scotland qualify for their first World Cup in 28 years.`\
-https://nytimes.com/athletic/7060578/2026/02/20/scotland-world-cup-mctominay-mural/
 
