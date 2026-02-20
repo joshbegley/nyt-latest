@@ -1,3 +1,11 @@
+**Relive the Biggest Olympic Skating Jumps, in Miniature**\
+`These animations show the jumps that, in dramatic fashion, made the difference between gold and silver in the women’s and men’s competitions.`\
+https://nytimes.com/interactive/2026/02/19/sports/olympics-figure-skating-jumps-milan-cortina.html
+
+**Cardinals' new performance center shows greater commitment, something fans long to see**\
+`After a dismal season, Thursday's groundbreaking ceremony changed the vibe, giving the Cardinals much-needed offseason optimism.`\
+https://nytimes.com/athletic/7058824/2026/02/19/arizona-cardinals-new-performance-center-fans/
+
 **Steph Curry to miss at least 10 more days as he tends to right knee injury**\
 `Curry has been dealing with "runner's knee" and will miss his sixth straight game Thursday. It's unclear when he will return.`\
 https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury-out/
