@@ -1,3 +1,11 @@
+**Some G.O.P. Lawmakers Laud Ruling, Reflecting Intraparty Angst Over Tariffs**\
+`While President Trump’s staunchest supporters condemned the decision, some Republicans suggested it restored Congress’s rightful role in weighing in on trade policy.`\
+https://nytimes.com/2026/02/20/us/politics/some-gop-lawmakers-laud-ruling-reflecting-intraparty-angst-over-tariffs.html
+
+**Trump Plans to Impose Tariffs a Different Way After Supreme Court Loss**\
+`The administration has been preparing for months for the possibility that the court would rule against the president and developed contingency plans.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-plans.html
+
 **Palestinian-American Teenager Killed in West Bank Is Laid to Rest**\
 `Nasrallah Abu Siyam, 19, was shot dead by an Israeli settler, according to a witness and Palestinian health officials, amid rising violent settler attacks in the Israeli-occupied territory.`\
 https://nytimes.com/2026/02/20/world/middleeast/palestinian-american-teenager-killed-west-bank.html

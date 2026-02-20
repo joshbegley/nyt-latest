@@ -1,3 +1,11 @@
+**Some G.O.P. Lawmakers Laud Ruling, Reflecting Intraparty Angst Over Tariffs**\
+`While President Trump’s staunchest supporters condemned the decision, some Republicans suggested it restored Congress’s rightful role in weighing in on trade policy.`\
+https://nytimes.com/2026/02/20/us/politics/some-gop-lawmakers-laud-ruling-reflecting-intraparty-angst-over-tariffs.html
+
+**Trump Plans to Impose Tariffs a Different Way After Supreme Court Loss**\
+`The administration has been preparing for months for the possibility that the court would rule against the president and developed contingency plans.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-plans.html
+
 **Palestinian-American Teenager Killed in West Bank Is Laid to Rest**\
 `Nasrallah Abu Siyam, 19, was shot dead by an Israeli settler, according to a witness and Palestinian health officials, amid rising violent settler attacks in the Israeli-occupied territory.`\
 https://nytimes.com/2026/02/20/world/middleeast/palestinian-american-teenager-killed-west-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-other-options-tariffs.html
 **'It required a lot of plates and screws': Lindsey Vonn posts latest injury update**\
 `Vonn posted an image of her surgically repaired knee and more information about the extent and seriousness of her injury.`\
 https://nytimes.com/athletic/7060473/2026/02/20/olympics-lindsey-vonn-injury-update-surgery/
-
-**IOC to investigate FIFA's Infantino over Trump hat and collaboration**\
-`Infantino appeared at The Board of Peace meeting wearing a red hat, emblazoned with 'USA' and '45-47' — a reference to Trump's presidencies.`\
-https://nytimes.com/athletic/7060456/2026/02/20/ioc-infantino-trump-hat-board-of-peace/
-
-**Apple Is One of the Companies Hit Hardest by Tariffs**\
-`The company makes almost all of its products in countries facing steep levies, running up a tariff bill of $3.3 billion over the past three quarters.`\
-https://nytimes.com/2026/02/20/us/politics/trump-tariffs-apple.html
 

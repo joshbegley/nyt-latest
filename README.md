@@ -1,6 +1,14 @@
+**Mural made of McTominay goal that helped secure Scotland's World Cup qualification**\
+`The win over Denmark saw Scotland qualify for their first World Cup in 28 years.`\
+https://nytimes.com/athletic/7060578/2026/02/20/scotland-world-cup-mctominay-mural/
+
+**Were Trump’s Tariffs Working?**\
+`The Census Bureau released data showing that the U.S. trade deficit in goods last year was the highest on record. Our chief economics correspondent, Ben Casselman, breaks down whether President Trump’s tariff policies had their intended impact in 2025.`\
+https://nytimes.com/video/us/100000010720959/were-trumps-tariffs-working.html
+
 **Some G.O.P. Lawmakers Laud Ruling, Reflecting Intraparty Angst Over Tariffs**\
 `While President Trump’s staunchest supporters condemned the decision, some Republicans suggested it restored Congress’s rightful role in weighing in on trade policy.`\
-https://nytimes.com/2026/02/20/us/politics/some-gop-lawmakers-laud-ruling-reflecting-intraparty-angst-over-tariffs.html
+https://nytimes.com/2026/02/20/us/politics/gop-supreme-court-tariff-ruling.html
 
 **Trump Plans to Impose Tariffs a Different Way After Supreme Court Loss**\
 `The administration has been preparing for months for the possibility that the court would rule against the president and developed contingency plans.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/movies/new-movies-this-week-critics.html
 **Post-MLB, ESPN rebooting its Sunday night with ‘Women’s Sports Sundays’**\
 `ESPN replaces its longstanding Sunday night MLB game with WNBA and NWSL, both surging in popularity with TV audiences.`\
 https://nytimes.com/athletic/7060363/2026/02/20/espn-womens-sports-sundays-wnba-nwsl/
-
-**Trump Has Other Options to Impose Tariffs**\
-`The Supreme Court ruling is a blow, but the administration has other trade tools at its disposal.`\
-https://nytimes.com/2026/02/20/us/politics/trump-other-options-tariffs.html
-
-**'It required a lot of plates and screws': Lindsey Vonn posts latest injury update**\
-`Vonn posted an image of her surgically repaired knee and more information about the extent and seriousness of her injury.`\
-https://nytimes.com/athletic/7060473/2026/02/20/olympics-lindsey-vonn-injury-update-surgery/
 
