@@ -1,3 +1,19 @@
+**Steph Curry to miss at least 10 more days with right knee injury**\
+`Curry has been dealing with "runner's knee" and will miss his sixth straight game Thursday. It's unclear when he will return.`\
+https://nytimes.com/athletic/7059019/2026/02/19/steph-curry-warriors-knee-injury-out/
+
+**Hilary Knight gets storybook ending to Olympic career: 'Legends do legendary things'**\
+`One hundred twenty-four seconds away from a Canadian upset victory, Knight — in her last Olympic game — played the hero and forced overtime.`\
+https://nytimes.com/athletic/7058996/2026/02/19/hilary-knight-usa-canada-hockey-olympics-gold-medal/
+
+**How new MLBPA head Bruce Meyer plans to build support for bargaining**\
+`The union has a new leader at a time when the stakes are particularly high, and there’s a lot to determine in short order. `\
+https://nytimes.com/athletic/7058947/2026/02/19/mlbpa-bruce-meyer-introductory-conference/
+
+**New Trump Banner Hung on Justice Department Headquarters**\
+`Other federal buildings across Washington, D.C., are also adorned with huge banners of President Trump.`\
+https://nytimes.com/2026/02/19/us/politics/trump-banner-doj.html
+
 **City of Beverly Hills apologizes to Jaylen Brown for 'inaccurate' statement**\
 `The city said no permit application was submitted or denied, and the residence where Brown's event was held had no previous violations.`\
 https://nytimes.com/athletic/7058970/2026/02/19/jaylen-brown-beverly-hills-police-apology/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/19/us/bard-president-botstein-epstein.html
 **Venezuela Passes Amnesty Bill Denounced by Some as ‘Unjust’**\
 `The bill may bring the release of hundreds of political prisoners. But many critics say the legislation, passed after major pressure from the Trump administration, raises concerns.`\
 https://nytimes.com/2026/02/19/world/americas/venezuela-amnesty-bill-prisoners.html
-
-**MAHA Moms Turn Against Trump: ‘Women Feel Like They Were Lied To’**\
-`President Trump’s executive order aimed at spurring production of a pesticide has infuriated leaders of Health Secretary Robert F. Kennedy Jr.’s MAHA movement.`\
-https://nytimes.com/2026/02/19/us/politics/maha-moms-glyphosate-roundup-robert-kennedy.html
-
-**As Trump Weighs Iran Strikes, He Declines to Make Clear Case for Why, or Why Now**\
-`Rarely in modern times has the United States prepared to conduct a major act of war with so little explanation or public debate.`\
-https://nytimes.com/2026/02/19/us/politics/trump-iran-military-strikes.html
-
-**Investigators Blame NASA and Boeing for Starliner Failures**\
-`Technical and oversight problems left two astronauts aboard the International Space Station for months longer than had been expected.`\
-https://nytimes.com/2026/02/19/science/starliner-boeing-nasa-iss.html
-
-**Trae Young, Anthony Davis 'progressing,' but Wizards debuts won't be anytime soon**\
-`“You just follow the process. That’s what we always do," Wizards coach Brian Keefe said when asked whether either would play this season.`\
-https://nytimes.com/athletic/7058863/2026/02/19/trae-young-anthony-davis-wizards-injury-updates/
 
