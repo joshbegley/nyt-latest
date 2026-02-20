@@ -11,8 +11,8 @@ https://nytimes.com/athletic/7058886/2026/02/20/eno-sarris-live-chat-february-20
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/20/todays-new-york-times
 
-**Americans Don’t Want War With Iran. Trump Doesn’t Care.**\
-`All that matters to him is whether he thinks an attack is in his interests.`\
+**This Is How an Autocrat Goes to War**\
+`All that matters to Trump is whether he thinks attacking Iran is in his interests.`\
 https://nytimes.com/2026/02/20/opinion/trump-iran-public-opinion.html
 
 **What to watch on Day 14 of Winter Olympics: Men's hockey semifinals, U.S. curling history and more**\

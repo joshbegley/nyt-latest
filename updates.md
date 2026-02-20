@@ -13,6 +13,11 @@ https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-
 `\
 https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
 
+**Has FPL momentum swung back towards Liverpool?**\
+`As form and fixtures begin to collide for Arne Slot's team going into Gameweek 27, now might be the time to invest in Liverpool assets
+`\
+https://nytimes.com/athletic/7057103/2026/02/20/fantasy-premier-league-gameweek-27-fpl-tips-liverpool-salah/
+
 **Trump and Indonesia Sign Trade Deal, Locking in 19% Tariffs**\
 `The countries made official an agreement reached last year, with Indonesia avoiding a higher tariff and committing to cooperate on export controls.`\
 https://nytimes.com/2026/02/20/business/trump-tariffs-indonesia.html
