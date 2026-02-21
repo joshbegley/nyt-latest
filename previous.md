@@ -1,3 +1,11 @@
+**Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
+`The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
+https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/
+
+**U.S. bobsledder Kaillie Humphries wins sixth Olympic medal, a bronze with Jasmine Jones**\
+`Humphries' bronze tied teammate Elana Meyers Taylor for the most career Olympic medals in women's bobsled.`\
+https://nytimes.com/athletic/7062658/2026/02/21/winter-olympics-kaillie-humphries-bobsled-bronze-jasmine-jones/
+
 **It's raining goals at Wrexham. But the great entertainers must cut out the generosity**\
 `As pleasing on the eye as Wrexham's attacking was against Ipswich, some of their play at the other end was less palatable`\
 https://nytimes.com/athletic/7062281/2026/02/21/wrexham-goals-moore-windass-parkinson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-ho
 **How to watch Pacific vs. Gonzaga men's basketball: Time, TV, streaming**\
 `Find out how to watch the Pacific Tigers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062585/2026/02/21/pacific-vs-gonzaga-stream-how-to-watch-feb-21/
-
-**How to watch Iowa State vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062583/2026/02/21/iowa-state-vs-byu-stream-how-to-watch-feb-21/
-
-**Prosecutors Oppose Sean Combs’s Appeal, Asserting Sentence Was Just**\
-`Mr. Combs, who is serving a 50-month sentence after his conviction on prostitution-related charges, has argued that a judge sentenced him improperly.`\
-https://nytimes.com/2026/02/21/arts/sean-combs-appeal-prison.html
 

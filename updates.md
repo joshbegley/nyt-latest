@@ -1,3 +1,11 @@
+**Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
+`The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
+https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/
+
+**U.S. bobsledder Kaillie Humphries wins sixth Olympic medal, a bronze with Jasmine Jones**\
+`Humphries' bronze tied teammate Elana Meyers Taylor for the most career Olympic medals in women's bobsled.`\
+https://nytimes.com/athletic/7062658/2026/02/21/winter-olympics-kaillie-humphries-bobsled-bronze-jasmine-jones/
+
 **It's raining goals at Wrexham. But the great entertainers must cut out the generosity**\
 `As pleasing on the eye as Wrexham's attacking was against Ipswich, some of their play at the other end was less palatable`\
 https://nytimes.com/athletic/7062281/2026/02/21/wrexham-goals-moore-windass-parkinson/
