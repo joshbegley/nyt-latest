@@ -1,3 +1,19 @@
+**U.S. gold-medal win over Canada is most-watched women's hockey game on record**\
+`The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
+https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
+
+**Judge Blocks Texas Law Banning L.G.B.T.Q. Clubs in Some School Districts**\
+`The law was the first in the nation to explicitly ban L.G.B.T.Q. student clubs. The ruling applies only to the Houston, Katy and Plano school districts.`\
+https://nytimes.com/2026/02/20/us/texas-ban-lgbtq-clubs.html
+
+**Floyd Mayweather Jr. to come out of retirement after Mike Tyson fight**\
+`Mayweather's last professional fight came in 2017, when he beat Conor McGregor via TKO to move to 50-0.`\
+https://nytimes.com/athletic/7061329/2026/02/20/floyd-mayweather-jr-unretiring-mike-tyson/
+
+**Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**\
+`A federal appeals court vacated a temporary block on the 2024 law, tossing a previous decision that called it “plainly unconstitutional.”`\
+https://nytimes.com/2026/02/20/us/louisiana-classrooms-ten-commandments.html
+
 **Judge Rebukes U.S. Over Application to Search Reporter’s Home**\
 `A prosecutor apologized for failing to alert the magistrate to a 1980 law that restricts searches for reporting materials.`\
 https://nytimes.com/2026/02/20/us/politics/washington-post-reporter-home-search.html
