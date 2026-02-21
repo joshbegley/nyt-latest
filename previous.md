@@ -1,3 +1,11 @@
+**Air Force, basketball coach Joe Scott part ways after 6 seasons**\
+`Scott, in his second stint as the Falcons' coach, had been suspended since Jan. 17.`\
+https://nytimes.com/athletic/7061325/2026/02/20/air-force-coach-joe-scott-part-ways/
+
+**Trump Presses on With Tariffs Despite Court, and Court of Public Opinion**\
+`The president is plowing ahead with an unpopular policy after the Supreme Court’s rebuke, deepening his party’s risk in the midterm elections.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-midterms.html
+
 **Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
 `Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
 https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-g
 https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-tariffs-takeaways.html
 
 **U.S. gold medal win over Canada is most-watched women's hockey game on record**\
-`The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
+`The game topped the 2022 women's hockey gold medal game, itself a record-setter, by 2 million viewers.`\
 https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
 
 **Judge Blocks Texas Law Banning L.G.B.T.Q. Clubs in Some School Districts**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/washington-post-reporter-home-search.
 **Steve Kerr says he needs to help Draymond Green more with Stephen Curry out**\
 `Green went 0-for-7 from the field with a minus-28 in the Warriors' loss to the Boston Celtics Thursday night.`\
 https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-warriors-help/
-
-**Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
-`At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
-https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
-
-**With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
-`Some companies could decide to temper price increases, but the effect would take time to materialize.`\
-https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
 

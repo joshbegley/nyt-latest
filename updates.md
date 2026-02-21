@@ -1,3 +1,15 @@
+**Air Force, basketball coach Joe Scott part ways after 6 seasons**\
+`Scott, in his second stint as the Falcons' coach, had been suspended since Jan. 17.`\
+https://nytimes.com/athletic/7061325/2026/02/20/air-force-coach-joe-scott-part-ways/
+
+**Trump Presses on With Tariffs Despite Court, and Court of Public Opinion**\
+`The president is plowing ahead with an unpopular policy after the Supreme Court’s rebuke, deepening his party’s risk in the midterm elections.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-midterms.html
+
+**U.S. gold medal win over Canada is most-watched women's hockey game on record**\
+`The game topped the 2022 women's hockey gold medal game, itself a record-setter, by 2 million viewers.`\
+https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
+
 **Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
 `Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
 https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
