@@ -1,3 +1,7 @@
+**Trump Doubles Down on Closing Tax Loophole on Cheap Imports**\
+`The exemption was shut down last year by President Trump based, in part, on the same legal grounds as the tariffs that were invalidated by the Supreme Court.`\
+https://nytimes.com/2026/02/21/business/trump-deminimis-loophole-closed.html
+
 **A rare interview with Johan Lange – but what can Tottenham fans learn from it?**\
 `Lange addressed the sacking of Frank, hiring Tudor, the transfer market and injuries, and The Athletic has analysed the key talking points`\
 https://nytimes.com/athletic/7060318/2026/02/21/johan-lange-interview-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/nyregion/ice-world-cup-fans.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/21/crosswords/spelling-bee-forum.html
-
-**Newcastle attempting to trademark 'Howay the lads'**\
-`Opposition to Newcastle's application has been registered by another party, who are contesting the club's attempts to trademark the phrase.`\
-https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-trademark/
 
