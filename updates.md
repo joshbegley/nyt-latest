@@ -1,3 +1,11 @@
+**France take Olympic gold in gripping ski mountaineering mixed relay race, U.S. fourth**\
+`It was another thrilling race in ski mountaineering, a new event which has proved to be a hit at these Games. `\
+https://nytimes.com/athletic/7062002/2026/02/21/france-ski-mountaineering-mixed-relay-winter-olympics-2026/
+
+**Inside Johannes Høsflot Klæbo's pursuit of the most dominant Winter Olympics ever**\
+`Before the Norwegian great won his record sixth gold at these Olympics, he sat with The Athletic for an exclusive interview.`\
+https://nytimes.com/athletic/7061037/2026/02/21/johannes-hosflot-klaebo-interview-gold-medals-winter-olympics/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/21/us/nancy-guthrie-case-updates

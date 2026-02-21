@@ -1,3 +1,7 @@
+**Searching for Rejuvenation Where Skiers Chase Olympic Gold**\
+`The thermal waters of the Italian Alps, long praised for their restorative properties, are well known to elite athletes. During the Winter Games, they’ve drawn spectators, too.`\
+https://nytimes.com/2026/02/21/world/europe/italy-winter-olympics-hot-springs.html
+
 **France take Olympic gold in gripping ski mountaineering mixed relay race, U.S. fourth**\
 `It was another thrilling race in ski mountaineering, a new event which has proved to be a hit at these Games. `\
 https://nytimes.com/athletic/7062002/2026/02/21/france-ski-mountaineering-mixed-relay-winter-olympics-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/world/johannes-klaeb-cross-country.html
 **The Pulse: Hockey's marquee matchup**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7061696/2026/02/21/hockeys-marquee-matchup-plus-selfs-advice-to-peterson/
-
-**How Johannes Klaebo’s 6 Gold Medals Ranks Among the All-Time Olympic Performances**\
-`The Norwegian cross-country skier completed the biggest medal haul ever by an athlete at a Winter Games, and one of the biggest at any single Olympics.`\
-https://nytimes.com/2026/02/21/world/olympics/best-olympic-performances.html
 
