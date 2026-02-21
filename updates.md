@@ -1,3 +1,11 @@
+**UCLA will play 2026 home football games in Rose Bowl**\
+`UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
+https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
+
+**JPMorgan Admits It Shut Trump’s Accounts After Jan. 6 Capitol Attack**\
+`Nation’s largest bank, in response to a lawsuit filed by the president, confirmed his longstanding complaint about “debanking.”`\
+https://nytimes.com/2026/02/21/business/jpmorgan-trump-debanking.html
+
 **Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
 `One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
 https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
