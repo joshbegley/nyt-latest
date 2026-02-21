@@ -1,4 +1,12 @@
-**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 98**\
+**Lakers 'perfection' against the Clippers keeps everyone guessing on what's real and what's not**\
+`While it was a slim win over the Clippers, the Lakers hope to have "a consistent level of effort and execution" for their postseason push.`\
+https://nytimes.com/athletic/7061759/2026/02/21/lakers-vs-clippers-maximize-lebron-doncic-takeaways/
+
+**Limes and Lemons and Oranges, Oh My!**\
+`Baked lemon pudding, citrusy cheesecake and upside-down blood orange cake make the most of winter citrus.`\
+https://nytimes.com/2026/02/21/dining/limes-and-lemons-and-oranges-oh-my.html
+
+**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 89**\
 `Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
 https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7061470/2026/02/21/timberwolves-rudy-gobert-flagran
 **How to watch Arizona vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062076/2026/02/21/arizona-vs-houston-stream-how-to-watch-feb-21/
-
-**How to watch Georgia Tech vs. Louisville men's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgia Tech Yellow Jackets play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062074/2026/02/21/georgia-tech-vs-louisville-stream-how-to-watch-feb-21/
-
-**Six Questions on the Future of Trump’s Tariffs**\
-`The Supreme Court’s ruling on the president’s tariffs has jolted Washington and the business world. Here’s what to watch next.`\
-https://nytimes.com/2026/02/21/business/dealbook/six-questions-trump-tariffs.html
 
