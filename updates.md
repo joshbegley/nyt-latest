@@ -1,3 +1,15 @@
+**Political Drama ‘Yellow Letters’ Wins Top Prize at Berlin Film Festival**\
+`The film, from the director Ilker Catak, explores political repression in Turkey. Another movie set in the country, “Salvation,” took the runner-up prize.`\
+https://nytimes.com/2026/02/21/movies/berlinale-film-festival-winners.html
+
+**Kennedy Center Performance Canceled After Substance Poured on Ice Rink**\
+`An individual poured an unknown dark liquid onto a temporary skating rink at the Kennedy Center late Thursday night, in what the venue called a “calculated” attack.`\
+https://nytimes.com/2026/02/21/arts/design/kennedy-center-protest-ice-rink.html
+
+**Books of the Bible**\
+`Jill Rafaloff and Michelle Sontarp’s collaboration takes us to school, but it’s all in good fun.`\
+https://nytimes.com/2026/02/21/crosswords/daily-puzzle-2026-02-22.html
+
 **Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
 `The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
 https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
