@@ -2,7 +2,7 @@
 `An Austrian sled tipped over during Saturday's 4-man bobsled heats at the Olympics. One of the athletes required medical attention.`\
 https://nytimes.com/athletic/7061841/2026/02/21/winter-olympics-bobsled-tip-austria-jakob-mandlbauer/
 
-**Team USA soar above rivals to defend mixed team aerials Olympic gold**\
+**Team USA soars above rivals to defend mixed team aerials Olympic gold**\
 `Four years after topping the podium in the inaugural competition in Beijing, the U.S. trio beat out Switzerland and China to take the title.`\
 https://nytimes.com/athletic/7061822/2026/02/21/usa-gold-mixed-team-aerials-olympics/
 
