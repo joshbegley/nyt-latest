@@ -1,3 +1,7 @@
+**At A.I. Summit, India Tries to Find a Way Between the U.S. and China**\
+`India is using technology as a tool of foreign policy, casting itself as a moral voice for smaller, developing countries.`\
+https://nytimes.com/2026/02/21/world/asia/ai-summit-india-foreign-policy.html
+
 **Trump Official Backs Russia’s Return to Global Sports**\
 `Paolo Zampolli, a special envoy for President Trump, endorsed Russia’s participation at next month’s Paralympics, a move greeted with dismay in European capitals.`\
 https://nytimes.com/2026/02/21/world/europe/trump-administration-russia-global-sports-return.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-tradema
 **The New York Times in Print for Saturday, Feb. 21, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
-
-**What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
-`Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
-https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/
 
