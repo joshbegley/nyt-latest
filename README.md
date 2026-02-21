@@ -1,3 +1,11 @@
+**JPMorgan Admits It Shut Trump’s Accounts After Jan. 6 Capitol Attack**\
+`Nation’s largest bank, in response to a lawsuit filed by the president, confirmed his longstanding complaint about “debanking.”`\
+https://nytimes.com/2026/02/21/business/jpmorgan-trump-debanking.html
+
+**Games Briefing: High-stakes last day**\
+`This is the Games Briefing, The Athletic's daily Olympics newsletter. `\
+https://nytimes.com/athletic/7062413/2026/02/21/olympics-last-day-hockey-final-games-briefing/
+
 **After the Olympians Skate, Toys Rain Onto the Ice. Where Do They All Go?**\
 `Young skaters known as flower kids jump into action. They have their own Olympic dreams.`\
 https://nytimes.com/2026/02/21/world/europe/olympics-figure-skating-flower-kids.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062339/2026/02/21/pistons-vs-bulls-stream-how-to-w
 **How to watch 76ers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062336/2026/02/21/76ers-vs-pelicans-stream-how-to-watch-feb-21/
-
-**How to watch Kings vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062334/2026/02/21/kings-vs-spurs-stream-how-to-watch-feb-21/
-
-**Canada international Davies' injury 'doesn't look so bad' - Kompany**\
-`The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
-https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
 
