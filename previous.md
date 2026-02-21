@@ -1,3 +1,7 @@
+**After the Olympians Skate, Toys Rain Onto the Ice. Where Do They All Go?**\
+`Young skaters known as flower kids jump into action. They have their own Olympic dreams.`\
+https://nytimes.com/2026/02/21/world/europe/olympics-figure-skating-flower-kids.html
+
 **Bulls' Zach Collins to undergo season-ending toe surgery; Jaden Ivey out 2 weeks**\
 `Collins appeared in only 10 games this season after undergoing a procedure for a fractured wrist in October.`\
 https://nytimes.com/athletic/7062343/2026/02/21/bulls-zach-collins-toe-surgery-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062334/2026/02/21/kings-vs-spurs-stream-how-to-wat
 **Canada international Davies' injury 'doesn't look so bad' - Kompany**\
 `The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
 https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
-
-**Problem With Artemis Rocket Will Delay NASA’s Moon Mission**\
-`The rocket will be removed from the launchpad in order for technicians to investigate and fix a malfunctioning helium system.`\
-https://nytimes.com/2026/02/21/science/nasa-artemis-helium-flaw.html
 
