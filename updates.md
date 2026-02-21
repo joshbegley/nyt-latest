@@ -1,3 +1,11 @@
+**Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
+`One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
+https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
+
+**UCLA will play 2026 home football games in Rose Bowl amid lawsuit**\
+`UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
+https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
+
 **Adams returns from MCL injury for Bournemouth in World Cup boost for the USMNT**\
 `The U.S. midfielder returned to Bournemouth’s starting XI and played 65 minutes against West Ham.`\
 https://nytimes.com/athletic/7062490/2026/02/21/usmnt-tyler-adams-return-world-cup-bournemouth/

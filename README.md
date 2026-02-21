@@ -1,3 +1,7 @@
+**Jordan Stolz, with three medals, has stamped himself one of the biggest Olympic stars**\
+`Stolz is poised for celebrity after his performance at the Milan Games: three medals, including two golds and one silver.`\
+https://nytimes.com/athletic/7060476/2026/02/21/jordan-stolz-milan-olympics-speedskating-fame-three-medals/
+
 **Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
 `One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
 https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
 **Saint Louis, VCU benches clear late in No. 18 Billikens’ comeback win**\
 `The ejections with 1.1 seconds to play left VCU with only four players on the floor to finish things out.`\
 https://nytimes.com/athletic/7062433/2026/02/21/saint-louis-vcu-fight-benches-clear/
-
-**At Least 10 Killed in Lebanon, Officials Say, After Israel Strikes Hezbollah**\
-`The Lebanese militant group said eight of its members were among those killed late Friday. The attacks threaten to further destabilize an already tenuous cease-fire.`\
-https://nytimes.com/2026/02/21/world/middleeast/israel-strikes-lebanon-hezbollah.html
 
