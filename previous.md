@@ -1,40 +1,40 @@
-**Phillies spring training notes: Bench battle, 'belief' in Bowlan, Duran's secret pitch?**\
-`Dylan Moore, a 33-year-old utility player in camp on a minor-league deal, is among the Phillies' options for the final bench spot. `\
-https://nytimes.com/athletic/7061075/2026/02/21/phillies-roster-dylan-moore-jhoan-duran-jonathan-bowlan/
+**Don't panic: F1's 2026 cars still deliver the sounds and speed we love**\
+`With so much change for the new season, F1 still has all the qualities that make it truly special.`\
+https://nytimes.com/athletic/7061633/2026/02/21/f1-new-car-sounds-speed-takeaways/
 
-**Nick Goepper risked it all for a chance at history and finished fourth: 'That took guts'**\
-`Nick Goepper attempted to win gold with a trick he had never attempted in competition but crashed into the lip of the halfpipe.`\
-https://nytimes.com/athletic/7061149/2026/02/21/nick-goepper-freeski-halfpipe-winter-olympics-2026/
+**I played with Steve Kerr in college. This is how he changed my life**\
+`This story is part of Peak, The Athletic’s desk covering the mental side of sports.`\
+https://nytimes.com/athletic/7060483/2026/02/21/steve-kerr-leadership-college-arizona-warriors/
 
-**Before these Olympics Alex Ferreira's dad told him he had to win gold. So he did**\
-`Ferreira set out to win gold at these Games and did it, becoming Olympic champion after a thrilling men's freeski halfpipe final.`\
-https://nytimes.com/athletic/7061385/2026/02/21/alex-ferreira-mens-freeski-halfpipe-gold-winter-olympics-2026/
+**3 lessons from the captain of the 1980 ‘Miracle on Ice’ Olympic hockey team**\
+`“You're always going to find somebody that's critical of you," Mike Eruzione said. "So ignore it.`\
+https://nytimes.com/athletic/7060847/2026/02/21/miracle-on-ice-hockey-mike-eruzione/
 
-**Chris Pronger: Canada's biggest test awaits in gold medal game showdown with USA**\
-`All that remains at these Olympics is one game, and for Canada, it's just about continuing to find ways to win.`\
-https://nytimes.com/athletic/7061710/2026/02/21/canada-usa-olympic-gold-medal-game-test/
+**For India, Buying Russian Oil Just Got More Complicated**\
+`India’s prime minister acceded to many of President Trump’s demands under pressure of heavy tariffs. It would be awkward to reject them now.`\
+https://nytimes.com/2026/02/21/business/india-russia-oil-trump-tariffs.html
 
-**The Ruling Striking Down Trump’s Tariffs Changes Little for Canada**\
-`The president’s tariffs that are inflicting the most harm to Canada’s economy are outside the scope of the Supreme Court case.`\
-https://nytimes.com/2026/02/21/world/canada/canada-tariffs-trade-trump-carney.html
+**The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
+`The self-help influencer on his values, his journey and criticism of his work.`\
+https://nytimes.com/2026/02/21/magazine/jay-shetty-wellness-influencer-interview.html
 
-**Inside Scottie Scheffler's emotional journey to make the cut at the Genesis Invitational**\
-`"When things don't go as planned, I think it's healthy to have a level of frustration with that."`\
-https://nytimes.com/athletic/7061444/2026/02/21/scottie-scheffler-genesis-invitational-cut-streak-mental-game/
+**U.S. Tariff Ruling Brings Uncertainty Just as Europe Hoped to Move On**\
+`The decision could distract from other challenges facing the continent, like issues with China and the war in Ukraine.`\
+https://nytimes.com/2026/02/21/world/europe/political-uncertainty-trump-tariff-loss.html
 
-**How to watch Alysa Liu, Ilia Malinin, Amber Glenn in Olympics figure skating gala**\
-`Alysa Liu, Ilia Malinin and more U.S. stars take the ice one last time at these Winter Olympics for Saturday's exhibition gala. `\
-https://nytimes.com/athletic/7060917/2026/02/21/figure-skating-exhibition-gala-2026-olympics-how-to-watch/
+**Foundational utility players and late-round outfielders: Fantasy baseball rundown**\
+`Eno Sarris and Derek VanRiper finish previewing the outfield after discussing Utility bats. `\
+https://nytimes.com/athletic/7055998/2026/02/21/foundational-utility-players-outfielders-fantasy-baseball-preview/
 
-**Four things to watch as Mets open their spring schedule**\
-`Will the Mets play better defense at the corners? Who are the breakout candidates? Spring training games could provide answers.`\
-https://nytimes.com/athletic/7061431/2026/02/21/mets-spring-traning-games-carson-benge/
+**How Lunar New Year Traditions Take Root Across America**\
+`The New York Times traveled to Honolulu, Los Angeles, Minneapolis, New Orleans and New York to see how Asian American communities blend old and new customs to celebrate the Lunar New Year.`\
+https://nytimes.com/video/us/100000010726784/lunar-new-year-across-america.html
 
-**Wordle Review No. 1,709**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Feb. 22, 2026.`\
-https://nytimes.com/2026/02/21/crosswords/wordle-review-1709.html
+**In Gorsuch’s Homage to Legislative Power, a Subtle Reproach of a Neutered Congress**\
+`In his concurrence to the ruling invalidating President Trump’s tariffs, Justice Neil M. Gorsuch made a forceful case for the sanctity of the legislative process — and an implicit critique of its current dysfunction.`\
+https://nytimes.com/2026/02/21/us/politics/gorsuch-congress-trump-tariffs.html
 
-**We’re the Guardians of a Difficult Teenager. What Do We Owe Them?**\
-`I’ve found myself carrying negative feelings that I don’t want but can’t quite shake.`\
-https://nytimes.com/2026/02/21/magazine/guardians-teenager-ethics.html
+**‘Shoresy’ Review: Heated (Brotherly) Rivalry**\
+`The Canadian comedy with creative ties to “Heated Rivalry,” in its fifth season on Hulu, has its own very different take on love among men.`\
+https://nytimes.com/2026/02/21/arts/television/shoresy-review-heated-brotherly-rivalry.html
 
