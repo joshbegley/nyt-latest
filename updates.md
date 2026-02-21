@@ -1,3 +1,11 @@
+**Dylan Larkin's long-awaited opportunity on the grandest stage is exactly what he deserves**\
+`The Olympics are Larkin’s first chance to win something on such a big stage, and he’s proved willing to do anything for his team.`\
+https://nytimes.com/athletic/7061440/2026/02/20/usa-olympic-hockey-dylan-larkin-gold/
+
+**Winter Olympics Day 14 recap: U.S., Canadian men win hockey semis; Ferreira gets gold**\
+`Also, Norway breaks the record for most golds by one nation at one Olympics. The old record was held by — you guessed it — Norway, in 2022.`\
+https://nytimes.com/athletic/7061345/2026/02/20/olympics-recap-feb-20-mens-hockey-usa-canada-freeski/
+
 **Air Force, basketball coach Joe Scott part ways after 6 seasons**\
 `Scott, in his second stint as the Falcons' coach, had been suspended since Jan. 17.`\
 https://nytimes.com/athletic/7061325/2026/02/20/air-force-coach-joe-scott-part-ways/
