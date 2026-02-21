@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-w
 `At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
 https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
 
-**For Consumers, Tariff Ruling Brings Hope of Price Relief**\
+**With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
 `Some companies could decide to temper price increases, but the effect would take time to materialize.`\
 https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
 
