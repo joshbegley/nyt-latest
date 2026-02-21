@@ -1,3 +1,15 @@
+**Theodore Conklin, 77, Dies; His Rescue of an Inn Helped Save Sag Harbor**\
+`By rehabilitating the American Hotel, he turned a hard-luck village on the East End of Long Island into a mecca for pop stars and plumbers alike.`\
+https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
+
+**Saint Louis, VCU benches clear late in No. 18 Billikens’ comeback win**\
+`The ejections with 1.1 seconds to play left VCU with only four players on the floor to finish things out.`\
+https://nytimes.com/athletic/7062433/2026/02/21/saint-louis-vcu-fight-benches-clear/
+
+**At Least 10 Killed in Lebanon, Officials Say, After Israel Strikes Hezbollah**\
+`The Lebanese militant group said eight of its members were among those killed late Friday. The attacks threaten to further destabilize an already tenuous cease-fire.`\
+https://nytimes.com/2026/02/21/world/middleeast/israel-strikes-lebanon-hezbollah.html
+
 **JPMorgan Admits It Shut Trump’s Accounts After Jan. 6 Capitol Attack**\
 `Nation’s largest bank, in response to a lawsuit filed by the president, confirmed his longstanding complaint about “debanking.”`\
 https://nytimes.com/2026/02/21/business/jpmorgan-trump-debanking.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-ga
 **Powder’s Siren Song: The Risks and Rewards of Backcountry Skiing**\
 `A string of recent tragedies, including a fatal avalanche near Lake Tahoe and an unusually deadly winter in Europe, has cast a spotlight on the sport’s inherent dangers.`\
 https://nytimes.com/2026/02/21/travel/backcountry-skiing-risks-rewards.html
-
-**How to watch Grizzlies vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062341/2026/02/21/grizzlies-vs-heat-stream-how-to-watch-feb-21/
-
-**How to watch Pistons vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062339/2026/02/21/pistons-vs-bulls-stream-how-to-watch-feb-21/
-
-**How to watch 76ers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062336/2026/02/21/76ers-vs-pelicans-stream-how-to-watch-feb-21/
 
