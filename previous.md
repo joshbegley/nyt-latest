@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7061759/2026/02/21/lakers-vs-clippers-maximize-lebr
 `Baked lemon pudding, citrusy cheesecake and upside-down blood orange cake make the most of winter citrus.`\
 https://nytimes.com/2026/02/21/dining/limes-and-lemons-and-oranges-oh-my.html
 
-**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 98**\
+**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 89**\
 `Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
 https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
 
