@@ -1,3 +1,11 @@
+**Chicago coach Billy Donovan provides info, but little clarity, on Jaden Ivey benching**\
+`Jaden Ivey was available to play Thursday, but a crowded backcourt and lingering knee soreness led the Bulls to sit him, coaches said.`\
+https://nytimes.com/athletic/7061678/2026/02/21/nba-bulls-billy-donovan-jaden-ivey-dnp/
+
+**Bill Mazeroski, 89, Whose 9th-Inning Blast Made Pirates Champs, Is Dead**\
+`It was Game 7 of the 1960 World Series, when an infielder known for his glove, not his bat, crushed the powerful Yankees with one swing, bringing joy to Pittsburgh.`\
+https://nytimes.com/2026/02/21/sports/baseball/bill-mazeroski-dead.html
+
 **A modern melodrama: Bundesliga club Frankfurt hit back at critic over 'penis video'**\
 `“Eintracht attack Kruse with penis video” ran a headline in German tabloid Bild on Saturday, as the club hit back at a vocal critic.`\
 https://nytimes.com/athletic/7062098/2026/02/21/eintracht-frankfurt-penis-video-max-kruse-x/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watc
 **How to watch Missouri vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062082/2026/02/21/missouri-vs-arkansas-stream-how-to-watch-feb-21/
-
-**How to watch Kansas State vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062080/2026/02/21/kansas-state-vs-texas-tech-stream-how-to-watch-feb-21/
-
-**Rudy Gobert has to walk a fine line as the Timberwolves push for the playoffs**\
-`After picking up another Flagrant-1 foul, Gobert now has seven flagrant points on the season and will likely be suspended for Sunday's game.`\
-https://nytimes.com/athletic/7061470/2026/02/21/timberwolves-rudy-gobert-flagrant-fouls/
 
