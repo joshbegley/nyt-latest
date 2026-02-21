@@ -1,3 +1,7 @@
+**At A.I. Summit, India Tries to Find a Way Between the U.S. and China**\
+`India is using technology as a tool of foreign policy, casting itself as a moral voice for smaller, developing countries.`\
+https://nytimes.com/2026/02/21/world/asia/ai-summit-india-foreign-policy.html
+
 **Trump Official Backs Russia’s Return to Global Sports**\
 `Paolo Zampolli, a special envoy for President Trump, endorsed Russia’s participation at next month’s Paralympics, a move greeted with dismay in European capitals.`\
 https://nytimes.com/2026/02/21/world/europe/trump-administration-russia-global-sports-return.html
