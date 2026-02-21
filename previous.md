@@ -1,3 +1,7 @@
+**Gold medal favorite Frida Karlsson withdraws from 50km cross-country with fever**\
+`Karlsson's withdrawal suddenly blows Sunday’s race wide open`\
+https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympics-50km-cross-country-ski/
+
 **Iran’s Students Hold Anti-Regime Protests as Universities Reopen**\
 `Students helped grow initial protests into a national movement crushed by the government. As the new semester began, they chanted and marched again.`\
 https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062643/2026/02/21/wnba-housing-cba-counterproposal
 **Darryn Peterson plays 32 minutes but KU suffers history-making blowout loss to Cincy**\
 `What began as a back-and-forth grind deteriorated into Kansas’ largest home loss since a 83-60 defeat to TCU on Jan. 21, 2023.`\
 https://nytimes.com/athletic/7062571/2026/02/21/kansas-cincinnati-darryn-peterson-bill-self/
-
-**Trump’s Trade Gamble Will Continue, Despite Supreme Court Rebuke**\
-`The president seems as intent on tariffs as ever and argues that his trade agenda is succeeding, despite little evidence to support it`\
-https://nytimes.com/2026/02/21/business/economy/trump-tariffs-trade-war.html
 

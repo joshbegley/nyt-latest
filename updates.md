@@ -1,3 +1,7 @@
+**Gold medal favorite Frida Karlsson withdraws from 50km cross-country with fever**\
+`Karlsson's withdrawal suddenly blows Sunday’s race wide open`\
+https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympics-50km-cross-country-ski/
+
 **Iran’s Students Hold Anti-Regime Protests as Universities Reopen**\
 `Students helped grow initial protests into a national movement crushed by the government. As the new semester began, they chanted and marched again.`\
 https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
