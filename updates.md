@@ -1,3 +1,7 @@
+**For Team USA, winning Olympic gold in men's hockey won't be a miracle — but the stakes are high**\
+`It wouldn't be shocking if the United States beats Canada and wins gold Sunday, but it will be slaying the dragon nonetheless. `\
+https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-game/
+
 **Canada international Davies' injury 'doesn't look so bad' - Kompany**\
 `The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
 https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
