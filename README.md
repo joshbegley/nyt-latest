@@ -1,3 +1,7 @@
+**Vinicius Jr scores in first game since alleged racist abuse as Real lose to Osasuna**\
+`The Brazil international scored Real Madrid's only goal of the game and was whistled and taunted Osasuna fans. `\
+https://nytimes.com/athletic/7062560/2026/02/21/vinicius-junior-racist-abuse-real-madrid-osasuna-benfica-news-update/
+
 **WNBA offers housing concession in CBA counterproposal to players**\
 `Overall revenue-sharing system remains largely unchanged from the league's previous offer.`\
 https://nytimes.com/athletic/7062643/2026/02/21/wnba-housing-cba-counterproposal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/arts/sean-combs-appeal-prison.html
 **Jordan Stolz, with three medals, has stamped himself one of the biggest Olympic stars**\
 `Stolz is poised for celebrity after his performance at the Milan Games: three medals, including two golds and one silver.`\
 https://nytimes.com/athletic/7060476/2026/02/21/jordan-stolz-milan-olympics-speedskating-fame-three-medals/
-
-**Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
-`One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
-https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
 

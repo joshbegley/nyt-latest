@@ -1,3 +1,15 @@
+**WNBA offers housing concession in CBA counterproposal to players**\
+`Overall revenue-sharing system remains largely unchanged from the league's previous offer.`\
+https://nytimes.com/athletic/7062643/2026/02/21/wnba-housing-cba-counterproposal/
+
+**Darryn Peterson plays 32 minutes but KU suffers history-making blowout loss to Cincy**\
+`What began as a back-and-forth grind deteriorated into Kansas’ largest home loss since a 83-60 defeat to TCU on Jan. 21, 2023.`\
+https://nytimes.com/athletic/7062571/2026/02/21/kansas-cincinnati-darryn-peterson-bill-self/
+
+**Trump’s Trade Gamble Will Continue, Despite Supreme Court Rebuke**\
+`The president seems as intent on tariffs as ever and argues that his trade agenda is succeeding, despite little evidence to support it`\
+https://nytimes.com/2026/02/21/business/economy/trump-tariffs-trade-war.html
+
 **How to watch Rockets vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062596/2026/02/21/rockets-vs-knicks-stream-how-to-watch-feb-21/
