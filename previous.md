@@ -1,3 +1,7 @@
+**Chelsea and Burnley condemn racist abuse of Wesley Fofana and Hannibal Mejbri**\
+`Wesley Fofana and Hannibal Mejbri shared images of racist abuse they had received`\
+https://nytimes.com/athletic/7062853/2026/02/21/chelsea-burnley-fofana-mejbri-racist-abuse-news/
+
 **Political Drama ‘Yellow Letters’ Wins Top Prize at Berlin Film Festival**\
 `The film, from the director Ilker Catak, explores political repression in Turkey. Another movie set in the country, “Salvation,” took the runner-up prize.`\
 https://nytimes.com/2026/02/21/movies/berlinale-film-festival-winners.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062761/2026/02/21/javonte-williams-cowboys-contrac
 **Man City 2 Newcastle 1 — Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
 `Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
 https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
-
-**Gold medal favorite Frida Karlsson withdraws from 50km cross-country with fever**\
-`Karlsson's withdrawal suddenly blows Sunday’s race wide open`\
-https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympics-50km-cross-country-ski/
 
