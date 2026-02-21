@@ -1,3 +1,7 @@
+**Powder’s Siren Song: The Risks and Rewards of Backcountry Skiing**\
+`A string of recent tragedies, including a fatal avalanche near Lake Tahoe and an unusually deadly winter in Europe, has cast a spotlight on the sport’s inherent dangers.`\
+https://nytimes.com/2026/02/21/travel/backcountry-skiing-risks-rewards.html
+
 **How to watch Grizzlies vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062341/2026/02/21/grizzlies-vs-heat-stream-how-to-watch-feb-21/
