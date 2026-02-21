@@ -1,3 +1,15 @@
+**'We have an obligation when the people come to create a good show. Football is a pleasure'**\
+`The Portuguese coach is loving life in Ligue 1. After a nine-month suspension, he is spearheading Lyon's push for silverware`\
+https://nytimes.com/athletic/7059571/2026/02/21/paulo-fonseca-lyon-head-coach-ban-interview/
+
+**Explained: The Premier League medals you might not know about**\
+`Did you know that, since the summer of 2017, players have received medals for certain numbers of appearances, goals and clean sheets?`\
+https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-chelsea/
+
+**The curious case of Divock Origi, the Champions League winner without a club**\
+`As two of his former clubs meet this weekend, it is almost two years since the Belgium forward played a match`\
+https://nytimes.com/athletic/7059930/2026/02/21/divock-origi-liverpool-nottingham-forest-milan-no-club/
+
 **Meet Maureen: She's cooked for more Premier League players than she can remember**\
 `Rio Ferdinand and Micah Richards both ate at the same Caribbean food shop in Leeds — many others have flocked to Maureen's since`\
 https://nytimes.com/athletic/7060313/2026/02/21/maureens-leeds-ferdinand-richards-caribbean-food/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/21/business/economy/tariffs-supreme-court-global-bus
 **Connections: Sports Edition Coach: Hints and answers for Feb. 21, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7061442/2026/02/21/connections-sports-edition-hints-answers-feb-21-2026/
-
-**Quote of the Day: Athletes Live on the Edge. Their Parents Teeter on It.**\
-`Quotation of the Day for Saturday, February 21, 2026.`\
-https://nytimes.com/2026/02/20/pageoneplus/quote-of-the-day-athletes-live-on-the-edge-their-parents-teeter-on-it.html
-
-**Mavs coach Jason Kidd expects NBA to make 'big change' to address tanking**\
-`There is a difference between intentionally losing and not having "enough firepower to win," Kidd said.`\
-https://nytimes.com/athletic/7061653/2026/02/20/nba-jason-kidd-mavs-tanking-change/
-
-**Big Times**\
-`Josh Knapp’s latest themeless puzzle presents a lot of obstacles to move through.`\
-https://nytimes.com/2026/02/20/crosswords/daily-puzzle-2026-02-21.html
 
