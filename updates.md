@@ -1,3 +1,7 @@
+**For Olympic athletes and collectors, pin trading has become a sport of its own**\
+`Collectors travel from all over the world to trade and purchase pins representing past, present and future Olympic Games.`\
+https://nytimes.com/athletic/7061608/2026/02/21/olympics-2026-milan-pin-trading/
+
 **Spring training games have begun. These are the Blue Jays to watch**\
 `For these players, contributions to a Blue Jays team with postseason aspirations starts with how they perform in spring training. `\
 https://nytimes.com/athletic/7061371/2026/02/21/blue-jays-players-worth-watching-spring-training-mlb-2026/
