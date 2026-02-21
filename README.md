@@ -1,5 +1,9 @@
+**The Pulse: Hockey's marquee matchup**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7061696/2026/02/21/hockeys-marquee-matchup-plus-selfs-advice-to-peterson/
+
 **How Johannes Klaebo’s 6 Gold Medals Ranks Among the All-Time Olympic Performances**\
-`With his win on Saturday, the Norwegian cross-country skier broke into the ranks of athletes to win the most Olympic gold medals.`\
+`With his win on Saturday, the Norwegian cross-country skier completed one of the biggest medal hauls ever at a single Olympics.`\
 https://nytimes.com/2026/02/21/world/olympics/best-olympic-performances.html
 
 **Johannes Høsflot Klæbo wins sixth gold, most ever in a single Winter Olympics**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061564/2026/02/21/sf-giants-hit-and-run-luis-arrae
 **4 Big U.F.O. Questions for the White House**\
 `What a declassification effort could help us resolve.`\
 https://nytimes.com/2026/02/21/opinion/obama-trump-aliens.html
-
-**‘A Cocked Pistol Aimed at Iran’**\
-`Three Opinion writers on Iran, Epstein and what power really looks like.`\
-https://nytimes.com/2026/02/21/opinion/iran-epstein-power.html
 
