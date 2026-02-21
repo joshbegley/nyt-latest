@@ -1,3 +1,15 @@
+**What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
+`Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
+https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/
+
+**Eileen Gu, as told by her Stanford roommate: 'One of the smartest people I've ever met'**\
+`Eileen Gu's Stanford University roommate says the Olympian is 'no different' to the Gu seen on TV. `\
+https://nytimes.com/athletic/7059570/2026/02/21/eileen-gu-stanford-friends/
+
+**Talk of the Devils: Goalkeepers edition – Steele on Lammens' strong' start, what next for Vitek?**\
+`This week in our Talk of the Devils column — Eric Steele on what Lammens brings to United and the dilemma over Vitek`\
+https://nytimes.com/athletic/7055223/2026/02/21/manchester-united-goalkeepers-lammens-vitek/
+
 **Arsenal have faced six 'new' managers this season. How have they fared?**\
 `Igor Tudor will lead Tottenham Hotspur for the first time against Arsenal on Sunday. But the omens are good for Mikel Arteta's side`\
 https://nytimes.com/athletic/7054698/2026/02/21/arsenal-new-managers-tottenham-tudor/
