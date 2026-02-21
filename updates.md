@@ -1,3 +1,7 @@
+**New Haven Police Chief Embezzled As Online Bets Soared, Investigators Say**\
+`Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
+https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
+
 **Dylan Larkin's long-awaited opportunity on the grandest stage is exactly what he deserves**\
 `The Olympics are Larkin’s first chance to win something on such a big stage, and he’s proved willing to do anything for his team.`\
 https://nytimes.com/athletic/7061440/2026/02/20/usa-olympic-hockey-dylan-larkin-gold/

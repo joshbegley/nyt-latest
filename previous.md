@@ -1,3 +1,7 @@
+**New Haven Police Chief Embezzled As Online Bets Soared, Investigators Say**\
+`Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
+https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
+
 **Dylan Larkin's long-awaited opportunity on the grandest stage is exactly what he deserves**\
 `The Olympics are Larkin’s first chance to win something on such a big stage, and he’s proved willing to do anything for his team.`\
 https://nytimes.com/athletic/7061440/2026/02/20/usa-olympic-hockey-dylan-larkin-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-med
 **Judge Blocks Texas Law Banning L.G.B.T.Q. Clubs in Some School Districts**\
 `The law was the first in the nation to explicitly ban L.G.B.T.Q. student clubs. The ruling applies only to the Houston, Katy and Plano school districts.`\
 https://nytimes.com/2026/02/20/us/texas-ban-lgbtq-clubs.html
-
-**Floyd Mayweather Jr. to come out of retirement after Mike Tyson fight**\
-`Mayweather's last professional fight came in 2017, when he beat Conor McGregor via TKO to move to 50-0.`\
-https://nytimes.com/athletic/7061329/2026/02/20/floyd-mayweather-jr-unretiring-mike-tyson/
 
