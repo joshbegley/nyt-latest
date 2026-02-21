@@ -1,3 +1,11 @@
+**Kennedy Center Performance Canceled After Substance Poured on Ice Rink**\
+`An individual poured an unknown dark liquid onto a temporary skating rink at the Kennedy Center late Thursday night, in what the venue called a “calculated” attack.`\
+https://nytimes.com/2026/02/21/arts/design/kennedy-center-protest-ice-rink.html
+
+**Books of the Bible**\
+`Jill Rafaloff and Michelle Sontarp’s collaboration takes us to school, but it’s all in good fun.`\
+https://nytimes.com/2026/02/21/crosswords/daily-puzzle-2026-02-22.html
+
 **Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
 `The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
 https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympic
 **Iran’s Students Hold Anti-Regime Protests as Universities Reopen**\
 `Students helped grow initial protests into a national movement crushed by the government. As the new semester began, they chanted and marched again.`\
 https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
-
-**Canada reclaims Olympic men's curling throne, beats Great Britain for gold**\
-`Canada returned to the top of men's curling, winning Olympic gold for the first time since 2014 — when Brad Jacobs was last the team's skip.`\
-https://nytimes.com/athletic/7062510/2026/02/21/winter-olympics-mens-curling-canada-great-britain-gold/
-
-**Sewage leaks into Yankees' clubhouse, pools around stadium**\
-`“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
-https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-steinbrenner-field-spring-training/
 

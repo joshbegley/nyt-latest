@@ -1,3 +1,7 @@
+**Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
+`The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
+https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
+
 **Why game action is especially important for Bo Bichette this spring**\
 `Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
 https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062510/2026/02/21/winter-olympics-mens-curling-can
 **Sewage leaks into Yankees' clubhouse, pools around stadium**\
 `“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
 https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-steinbrenner-field-spring-training/
-
-**Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
-`The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
-https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/
 

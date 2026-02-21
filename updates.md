@@ -1,3 +1,7 @@
+**Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
+`The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
+https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
+
 **Why game action is especially important for Bo Bichette this spring**\
 `Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
 https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
