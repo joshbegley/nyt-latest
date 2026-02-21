@@ -1,3 +1,11 @@
+**New Dads Aren’t a ‘Waste of Time and Space’**\
+`Why are we still debating paternity leave?`\
+https://nytimes.com/2026/02/21/opinion/paternity-leave-debate.html
+
+**Explaining why World Cup minnows can't beat top-12 sides at the T20 World Cup**\
+`Despite coming close, no 'associate' ICC member won a match at the men's T20 World Cup. Sukhman Singh explains the obstacles they face...`\
+https://nytimes.com/athletic/7059433/2026/02/21/t20-world-cup-associate-members-nepal-england/
+
 **Inside the Big Tech Lobbying Machine Aiming to Halt Social Media Bans**\
 `Tech giants, including Meta and Alphabet, are spending lavishly on splashy billboard ads, courting on-the-fence politicians and bulking up their ranks of lobbyists.`\
 https://nytimes.com/2026/02/21/business/dealbook/big-tech-lobbying-social-media-bans.html

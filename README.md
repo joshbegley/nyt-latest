@@ -1,3 +1,7 @@
+**Tupac bobblehead shaping up to be Orioles' most anticipated giveaway ever**\
+`The team quickly ordered an additional 5,000 bobbleheads after seeing the level of interest they were generating. `\
+https://nytimes.com/athletic/7059315/2026/02/21/baltimore-orioles-tupac-shakur-bobblehead/
+
 **New Dads Aren’t a ‘Waste of Time and Space’**\
 `Why are we still debating paternity leave?`\
 https://nytimes.com/2026/02/21/opinion/paternity-leave-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062002/2026/02/21/france-ski-mountaineering-mixed-
 **Inside Johannes Høsflot Klæbo's pursuit of the most dominant Winter Olympics ever**\
 `Before the Norwegian great won his record sixth gold at these Olympics, he sat with The Athletic for an exclusive interview.`\
 https://nytimes.com/athletic/7061037/2026/02/21/johannes-hosflot-klaebo-interview-gold-medals-winter-olympics/
-
-**What to Know About the Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/21/us/nancy-guthrie-case-updates
 

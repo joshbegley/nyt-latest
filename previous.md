@@ -1,8 +1,12 @@
+**New Dads Aren’t a ‘Waste of Time and Space’**\
+`Why are we still debating paternity leave?`\
+https://nytimes.com/2026/02/21/opinion/paternity-leave-debate.html
+
 **Inside the Big Tech Lobbying Machine Aiming to Halt Social Media Bans**\
 `Tech giants, including Meta and Alphabet, are spending lavishly on splashy billboard ads, courting on-the-fence politicians and bulking up their ranks of lobbyists.`\
 https://nytimes.com/2026/02/21/business/dealbook/big-tech-lobbying-social-media-bans.html
 
-**Explaining why no World Cup minnows win a match at the T20 World Cup**\
+**Explaining why World Cup minnows can't beat top-12 sides at the T20 World Cup**\
 `Despite coming close, no 'associate' ICC member won a match at the men's T20 World Cup. Sukhman Singh explains the obstacles they face...`\
 https://nytimes.com/athletic/7059433/2026/02/21/t20-world-cup-associate-members-nepal-england/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061037/2026/02/21/johannes-hosflot-klaebo-intervie
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/21/us/nancy-guthrie-case-updates
-
-**For Olympic athletes and collectors, pin trading has become a sport of its own**\
-`Collectors travel from all over the world to trade and purchase pins representing past, present and future Olympic Games.`\
-https://nytimes.com/athletic/7061608/2026/02/21/olympics-2026-milan-pin-trading/
 
