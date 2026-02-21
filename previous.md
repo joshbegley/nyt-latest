@@ -1,3 +1,7 @@
+**Trump Official Backs Russia’s Return to Global Sports**\
+`Paolo Zampolli, a special envoy for President Trump, endorsed Russia’s participation at next month’s Paralympics, a move greeted with dismay in European capitals.`\
+https://nytimes.com/2026/02/21/world/europe/trump-administration-russia-global-sports-return.html
+
 **'I will never hide': Brighton's Hurzeler welcomes criticism from fans**\
 `Hurzeler has come under fire from some supporters during a run of one win in 13 league games`\
 https://nytimes.com/athletic/7059682/2026/02/21/fabian-hurzeler-brighton-criticism-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
 **What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
 `Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
 https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/
-
-**Eileen Gu, as told by her Stanford roommate: 'One of the smartest people I've ever met'**\
-`Eileen Gu's Stanford University roommate says the Olympian is 'no different' to the Gu seen on TV. `\
-https://nytimes.com/athletic/7059570/2026/02/21/eileen-gu-stanford-friends/
 

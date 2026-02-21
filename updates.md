@@ -1,3 +1,7 @@
+**Trump Official Backs Russia’s Return to Global Sports**\
+`Paolo Zampolli, a special envoy for President Trump, endorsed Russia’s participation at next month’s Paralympics, a move greeted with dismay in European capitals.`\
+https://nytimes.com/2026/02/21/world/europe/trump-administration-russia-global-sports-return.html
+
 **'I will never hide': Brighton's Hurzeler welcomes criticism from fans**\
 `Hurzeler has come under fire from some supporters during a run of one win in 13 league games`\
 https://nytimes.com/athletic/7059682/2026/02/21/fabian-hurzeler-brighton-criticism-fans/
