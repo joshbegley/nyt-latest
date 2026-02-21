@@ -1,40 +1,40 @@
-**Austrian bobsled tips during Olympic race, team member apparently injured**\
-`An Austrian sled tipped over during Saturday's 4-man bobsled heats at the Olympics. One of the athletes required medical attention.`\
-https://nytimes.com/athletic/7061841/2026/02/21/winter-olympics-bobsled-tip-austria-jakob-mandlbauer/
+**Have Canada's struggles tilted the odds in Team USA's favor for gold-medal game?**\
+`Canada is a small favorite against the United States in the men's hockey gold medal game at the Olympics.`\
+https://nytimes.com/athletic/7061198/2026/02/21/canada-usa-hockey-olympics-gold-medal-odds/
 
-**Team USA soars above rivals to defend mixed team aerials Olympic gold**\
-`Four years after topping the podium in the inaugural competition in Beijing, the U.S. trio beat out Switzerland and China to take the title.`\
-https://nytimes.com/athletic/7061822/2026/02/21/usa-gold-mixed-team-aerials-olympics/
+**Jackson Merrill won't play in the WBC. He and the Padres see it as an opportunity**\
+`"Being more of a leader this year," Merrill said, "is more important to me than (playing in the World Baseball Classic) right now."`\
+https://nytimes.com/athletic/7061229/2026/02/21/padres-jackson-merrill-world-baseball-classic-participation/
 
-**How to watch North Carolina vs. Syracuse men's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Syracuse Orange, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061839/2026/02/21/north-carolina-vs-syracuse-stream-how-to-watch-feb-21/
+**Twins' bullpen math problem: How many left-handed relievers are too many?**\
+`By adding veterans Taylor Rogers, Andrew Chafin and Anthony Banda to holdover Kody Funderburk, the Twins' have created a lefty logjam.`\
+https://nytimes.com/athletic/7059748/2026/02/21/twins-bullpen-left-handed-relievers/
 
-**How to watch Oklahoma State vs. West Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowgirls play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061837/2026/02/21/oklahoma-state-vs-west-virginia-stream-how-to-watch-feb-21/
+**How to watch the 2026 HBCU Legacy Bowl and players to know**\
+`The HBCU Legacy Bowl goes down Saturday, putting ample talent on display in New Orleans. Here's what to know before kickoff.`\
+https://nytimes.com/athletic/7061295/2026/02/21/hbcu-legacy-bowl-2026-how-to-watch/
 
-**How to watch Penn State vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061835/2026/02/21/penn-state-vs-nebraska-stream-how-to-watch-feb-21/
+**Britain’s Jewel-Encrusted Shell of Privilege Has Been Thoroughly Breached**\
+`At least monarchies have developed limits on arbitrary power.`\
+https://nytimes.com/2026/02/21/opinion/andrew-arrest-epstein.html
 
-**How to watch Miami (FL) vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the Miami Hurricanes play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061833/2026/02/21/miami-fl-vs-virginia-stream-how-to-watch-feb-21/
+**With Luis Arraez and Jung Hoo Lee, could Giants make the hit-and-run fashionable again?**\
+`If the nearly extinct hit-and-run play will ever have a renaissance, the Giants might be the team to do it.`\
+https://nytimes.com/athletic/7061564/2026/02/21/sf-giants-hit-and-run-luis-arraez-jung-hoo-lee/
 
-**How to watch Florida vs. Ole Miss men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061830/2026/02/21/florida-vs-ole-miss-stream-how-to-watch-feb-21/
+**‘A Cocked Pistol Aimed at Iran’**\
+`Three Opinion writers on Iran, Epstein and what power really looks like.`\
+https://nytimes.com/2026/02/21/opinion/iran-epstein-power.html
 
-**How to watch Creighton vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the Creighton Bluejays play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061828/2026/02/21/creighton-vs-st-john-s-stream-how-to-watch-feb-21/
+**4 Big U.F.O. Questions for the White House**\
+`What a declassification effort could help us resolve.`\
+https://nytimes.com/2026/02/21/opinion/obama-trump-aliens.html
 
-**How to watch Cincinnati vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bearcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061826/2026/02/21/cincinnati-vs-kansas-stream-how-to-watch-feb-21/
+**What Trafficked Girls Think of Jeffrey Epstein and His Pals**\
+`Every year, more than 100,000 children may be sold for sex in the United States. Are we willing to do something about that?`\
+https://nytimes.com/2026/02/21/opinion/epstein-sex-trafficking.html
 
-**How to watch Tennessee vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061824/2026/02/21/tennessee-vs-vanderbilt-stream-how-to-watch-feb-21/
+**Shocker! SCOTUS Schools POTUS**\
+`The high court asserts itself as tariff sheriff.`\
+https://nytimes.com/2026/02/21/opinion/scotus-trump-tariffs-epstein.html
 

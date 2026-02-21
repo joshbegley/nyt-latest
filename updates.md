@@ -1,3 +1,43 @@
+**Have Canada's struggles tilted the odds in Team USA's favor for gold-medal game?**\
+`Canada is a small favorite against the United States in the men's hockey gold medal game at the Olympics.`\
+https://nytimes.com/athletic/7061198/2026/02/21/canada-usa-hockey-olympics-gold-medal-odds/
+
+**Jackson Merrill won't play in the WBC. He and the Padres see it as an opportunity**\
+`"Being more of a leader this year," Merrill said, "is more important to me than (playing in the World Baseball Classic) right now."`\
+https://nytimes.com/athletic/7061229/2026/02/21/padres-jackson-merrill-world-baseball-classic-participation/
+
+**Twins' bullpen math problem: How many left-handed relievers are too many?**\
+`By adding veterans Taylor Rogers, Andrew Chafin and Anthony Banda to holdover Kody Funderburk, the Twins' have created a lefty logjam.`\
+https://nytimes.com/athletic/7059748/2026/02/21/twins-bullpen-left-handed-relievers/
+
+**How to watch the 2026 HBCU Legacy Bowl and players to know**\
+`The HBCU Legacy Bowl goes down Saturday, putting ample talent on display in New Orleans. Here's what to know before kickoff.`\
+https://nytimes.com/athletic/7061295/2026/02/21/hbcu-legacy-bowl-2026-how-to-watch/
+
+**Britain’s Jewel-Encrusted Shell of Privilege Has Been Thoroughly Breached**\
+`At least monarchies have developed limits on arbitrary power.`\
+https://nytimes.com/2026/02/21/opinion/andrew-arrest-epstein.html
+
+**With Luis Arraez and Jung Hoo Lee, could Giants make the hit-and-run fashionable again?**\
+`If the nearly extinct hit-and-run play will ever have a renaissance, the Giants might be the team to do it.`\
+https://nytimes.com/athletic/7061564/2026/02/21/sf-giants-hit-and-run-luis-arraez-jung-hoo-lee/
+
+**‘A Cocked Pistol Aimed at Iran’**\
+`Three Opinion writers on Iran, Epstein and what power really looks like.`\
+https://nytimes.com/2026/02/21/opinion/iran-epstein-power.html
+
+**4 Big U.F.O. Questions for the White House**\
+`What a declassification effort could help us resolve.`\
+https://nytimes.com/2026/02/21/opinion/obama-trump-aliens.html
+
+**What Trafficked Girls Think of Jeffrey Epstein and His Pals**\
+`Every year, more than 100,000 children may be sold for sex in the United States. Are we willing to do something about that?`\
+https://nytimes.com/2026/02/21/opinion/epstein-sex-trafficking.html
+
+**Shocker! SCOTUS Schools POTUS**\
+`The high court asserts itself as tariff sheriff.`\
+https://nytimes.com/2026/02/21/opinion/scotus-trump-tariffs-epstein.html
+
 **Austrian bobsled tips during Olympic race, team member apparently injured**\
 `An Austrian sled tipped over during Saturday's 4-man bobsled heats at the Olympics. One of the athletes required medical attention.`\
 https://nytimes.com/athletic/7061841/2026/02/21/winter-olympics-bobsled-tip-austria-jakob-mandlbauer/
