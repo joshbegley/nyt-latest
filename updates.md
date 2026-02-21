@@ -1,3 +1,11 @@
+**Jayson Tatum has no return date in mind: 'Nothing is set in stone'**\
+`“I know what 100 percent feels like,” Tatum said. “And if and when that time comes, I’ll be ready.”`\
+https://nytimes.com/athletic/7062842/2026/02/21/jayson-tatum-return-date-injury-rehab/
+
+**Traveling This Weekend? Here’s What to Know About the Snowstorm.**\
+`A major winter storm on Sunday and Monday is expected to bring delays and cancellations across much of the Northeast.`\
+https://nytimes.com/2026/02/21/travel/flight-cancellations-blizzard.html
+
 **Chelsea and Burnley condemn racist abuse of Wesley Fofana and Hannibal Mejbri**\
 `Wesley Fofana and Hannibal Mejbri shared images of racist abuse they had received`\
 https://nytimes.com/athletic/7062853/2026/02/21/chelsea-burnley-fofana-mejbri-racist-abuse-news/
