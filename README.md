@@ -26,13 +26,13 @@ https://nytimes.com/athletic/7056869/2026/02/21/kompany-speech-mourinho-vinicius
 `As a child, Zoe Atkin was intimidated by the halfpipe. She has learned to embrace her fear.`\
 https://nytimes.com/athletic/7059863/2026/02/21/zoe-atkin-freeski-halfpipe-eileen-gu-winter-olympics-2026/
 
-**'We have an obligation when the people come to create a good show. Football is a pleasure'**\
-`The Portuguese coach is loving life in Ligue 1. After a nine-month suspension, he is spearheading Lyon's push for silverware`\
-https://nytimes.com/athletic/7059571/2026/02/21/paulo-fonseca-lyon-head-coach-ban-interview/
-
 **Explained: The Premier League medals you might not know about**\
 `Did you know that, since the summer of 2017, players have received medals for certain numbers of appearances, goals and clean sheets?`\
 https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-chelsea/
+
+**Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
+`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special.`\
+https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
 
 **The curious case of Divock Origi, the Champions League winner without a club**\
 `As two of his former clubs meet this weekend, it is almost two years since the Belgium forward played a match`\
