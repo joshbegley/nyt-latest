@@ -1,3 +1,11 @@
+**A modern melodrama: Bundesliga club Frankfurt hit back at critic over 'penis video'**\
+`“Eintracht attack Kruse with penis video” ran a headline in German tabloid Bild on Saturday, as the club hit back at a vocal critic.`\
+https://nytimes.com/athletic/7062098/2026/02/21/eintracht-frankfurt-penis-video-max-kruse-x/
+
+**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 98**\
+`Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
+https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
+
 **Lakers 'perfection' against the Clippers keeps everyone guessing on what's real and what's not**\
 `While it was a slim win over the Clippers, the Lakers hope to have "a consistent level of effort and execution" for their postseason push.`\
 https://nytimes.com/athletic/7061759/2026/02/21/lakers-vs-clippers-maximize-lebron-doncic-takeaways/
