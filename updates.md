@@ -1,3 +1,7 @@
+**A rare interview with Johan Lange – but what can Tottenham fans learn from it?**\
+`Lange addressed the sacking of Frank, hiring Tudor, the transfer market and injuries, and The Athletic has analysed the key talking points`\
+https://nytimes.com/athletic/7060318/2026/02/21/johan-lange-interview-tottenham/
+
 **At A.I. Summit, India Tries to Find a Way Between the U.S. and China**\
 `India is using technology as a tool of foreign policy, casting itself as a moral voice for smaller, developing countries.`\
 https://nytimes.com/2026/02/21/world/asia/ai-summit-india-foreign-policy.html

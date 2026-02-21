@@ -1,3 +1,7 @@
+**A rare interview with Johan Lange – but what can Tottenham fans learn from it?**\
+`Lange addressed the sacking of Frank, hiring Tudor, the transfer market and injuries, and The Athletic has analysed the key talking points`\
+https://nytimes.com/athletic/7060318/2026/02/21/johan-lange-interview-tottenham/
+
 **At A.I. Summit, India Tries to Find a Way Between the U.S. and China**\
 `India is using technology as a tool of foreign policy, casting itself as a moral voice for smaller, developing countries.`\
 https://nytimes.com/2026/02/21/world/asia/ai-summit-india-foreign-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/crosswords/spelling-bee-forum.html
 **Newcastle attempting to trademark 'Howay the lads'**\
 `Opposition to Newcastle's application has been registered by another party, who are contesting the club's attempts to trademark the phrase.`\
 https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-trademark/
-
-**The New York Times in Print for Saturday, Feb. 21, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
 
