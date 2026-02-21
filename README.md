@@ -1,11 +1,3 @@
-**Jordan Stolz, with three medals, has stamped himself one of the biggest Olympic stars**\
-`Stolz is poised for celebrity after his performance at the Milan Games: three medals, including two golds and one silver.`\
-https://nytimes.com/athletic/7060476/2026/02/21/jordan-stolz-milan-olympics-speedskating-fame-three-medals/
-
-**Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
-`One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
-https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
-
 **Adams returns from MCL injury for Bournemouth in World Cup boost for the USMNT**\
 `The U.S. midfielder returned to Bournemouth’s starting XI and played 65 minutes against West Ham.`\
 https://nytimes.com/athletic/7062490/2026/02/21/usmnt-tyler-adams-return-world-cup-bournemouth/
@@ -18,7 +10,7 @@ https://nytimes.com/2026/02/21/world/speedskating-jordan-stolz.html
 `The woman, Rebecca Auborn, pleaded guilty to murder in December. The men, whom she had met for sex in exchange for money, overdosed on fentanyl, the authorities said.`\
 https://nytimes.com/2026/02/21/us/ohio-woman-sentenced-drugging-killing-4-men.html
 
-**UCLA will play 2026 home football games in Rose Bowl amid lawsuit**\
+**UCLA will play 2026 home football games in Rose Bowl**\
 `UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
 https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
 
@@ -37,4 +29,12 @@ https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
 **Saint Louis, VCU benches clear late in No. 18 Billikens’ comeback win**\
 `The ejections with 1.1 seconds to play left VCU with only four players on the floor to finish things out.`\
 https://nytimes.com/athletic/7062433/2026/02/21/saint-louis-vcu-fight-benches-clear/
+
+**At Least 10 Killed in Lebanon, Officials Say, After Israel Strikes Hezbollah**\
+`The Lebanese militant group said eight of its members were among those killed late Friday. The attacks threaten to further destabilize an already tenuous cease-fire.`\
+https://nytimes.com/2026/02/21/world/middleeast/israel-strikes-lebanon-hezbollah.html
+
+**JPMorgan Admits It Shut Trump’s Accounts After Jan. 6 Capitol Attack**\
+`Nation’s largest bank, in response to a lawsuit filed by the president, confirmed his longstanding complaint about “debanking.”`\
+https://nytimes.com/2026/02/21/business/jpmorgan-trump-debanking.html
 
