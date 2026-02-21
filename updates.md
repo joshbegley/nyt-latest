@@ -1,3 +1,11 @@
+**Why game action is especially important for Bo Bichette this spring**\
+`Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
+https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
+
+**Nine Bodies of Skiers Recovered in Sierra Nevada Avalanche, Officials Say**\
+`A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
+https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
+
 **Willie Colón, a Luminary of Salsa Music, Dies at 75**\
 `A trombonist, singer, bandleader, composer and arranger, he collaborated with Rubén Blades on “Siembra,” a 1978 release that became one of the top-selling salsa albums of all time.`\
 https://nytimes.com/2026/02/21/arts/music/willie-colon-dead.html
