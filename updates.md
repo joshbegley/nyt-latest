@@ -1,3 +1,19 @@
+**Arsenal had 'heated' discussions after 'sickening' Wolves draw - Rice**\
+`The mid-week result leaves Arsenal five points clear at the top of the Premier League, having played a game more than Manchester City.`\
+https://nytimes.com/athletic/7062190/2026/02/21/arsenal-news-rice-tottenham-wolves-premier-league/
+
+**What Exactly Is a ‘Concentration Camp’?**\
+`A Q & A with Andrea Pitzer.`\
+https://nytimes.com/2026/02/21/opinion/concentration-camp-andrea-pitzer.html
+
+**Jordan Stolz ends Milan Olympics with 3 medals and 4th place showing in mass start**\
+`Stolz won gold in the 500-meter and 1,000-meter races and took silver in the 1,500-meter race.`\
+https://nytimes.com/athletic/7062186/2026/02/21/jordan-stolz-speedskating-mass-start-milan-olympics/
+
+**Canada fights off U.S. for Olympic women's curling bronze in high-quality showdown**\
+`Rachel Homan's rink scored three in the sixth and again in the eight to fend off the American challenge and leave Italy with a medal.`\
+https://nytimes.com/athletic/7062131/2026/02/21/winter-olympics-womens-curling-canada-usa-bronze-medal/
+
 **Red-Braised Pork Belly, an Ideal Weekend Cook**\
 `Just think of the leftovers this deeply flavorful Shanghainese braise will yield.`\
 https://nytimes.com/2026/02/21/dining/red-braised-pork-belly-an-ideal-weekend-cook.html
