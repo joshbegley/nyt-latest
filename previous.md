@@ -1,3 +1,7 @@
+**Quote of the Day: Athletes Live on the Edge. Their Parents Teeter on It.**\
+`Quotation of the Day for Saturday, February 21, 2026.`\
+https://nytimes.com/2026/02/20/pageoneplus/quote-of-the-day-athletes-live-on-the-edge-their-parents-teeter-on-it.html
+
 **Mavs coach Jason Kidd expects NBA to make 'big change' to address tanking**\
 `There is a difference between intentionally losing and not having "enough firepower to win," Kidd said.`\
 https://nytimes.com/athletic/7061653/2026/02/20/nba-jason-kidd-mavs-tanking-change/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle
 **Dylan Larkin's long-awaited opportunity on the grandest stage is exactly what he deserves**\
 `The Olympics are Larkin’s first chance to win something on such a big stage, and he’s proved willing to do anything for his team.`\
 https://nytimes.com/athletic/7061440/2026/02/20/usa-olympic-hockey-dylan-larkin-gold/
-
-**Winter Olympics Day 14 recap: U.S., Canadian men win hockey semis; Ferreira gets gold**\
-`Also, Norway breaks the record for most golds by one nation at one Olympics. The old record was held by — you guessed it — Norway, in 2022.`\
-https://nytimes.com/athletic/7061345/2026/02/20/olympics-recap-feb-20-mens-hockey-usa-canada-freeski/
 

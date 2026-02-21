@@ -1,3 +1,7 @@
+**Quote of the Day: Athletes Live on the Edge. Their Parents Teeter on It.**\
+`Quotation of the Day for Saturday, February 21, 2026.`\
+https://nytimes.com/2026/02/20/pageoneplus/quote-of-the-day-athletes-live-on-the-edge-their-parents-teeter-on-it.html
+
 **Mavs coach Jason Kidd expects NBA to make 'big change' to address tanking**\
 `There is a difference between intentionally losing and not having "enough firepower to win," Kidd said.`\
 https://nytimes.com/athletic/7061653/2026/02/20/nba-jason-kidd-mavs-tanking-change/
