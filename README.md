@@ -1,3 +1,7 @@
+**NCAA Tournament bracket preview: Iowa State edges UConn for final No. 1 seed**\
+`The NCAA selection committee set its current top 16 three weeks and a day before the official bracket is announced.`\
+https://nytimes.com/athletic/7062327/2026/02/21/ncaa-tournament-bracket-preview-top-seeds/
+
 **For Team USA, winning Olympic gold in men's hockey won't be a miracle — but the stakes are high**\
 `It wouldn't be shocking if the United States beats Canada and wins gold Sunday, but it will be slaying the dragon nonetheless. `\
 https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/science/nasa-artemis-helium-flaw.html
 **How to watch Illinois vs. UCLA men's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062304/2026/02/21/illinois-vs-ucla-stream-how-to-watch-feb-21/
-
-**How to watch UConn vs. Villanova men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062302/2026/02/21/uconn-vs-villanova-stream-how-to-watch-feb-21/
 
