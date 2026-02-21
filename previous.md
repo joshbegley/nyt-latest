@@ -1,4 +1,8 @@
-**Team USA soar above rivals to defend mixed team aerials Olympic gold**\
+**Austrian bobsled tips during Olympic race, team member apparently injured**\
+`An Austrian sled tipped over during Saturday's 4-man bobsled heats at the Olympics. One of the athletes required medical attention.`\
+https://nytimes.com/athletic/7061841/2026/02/21/winter-olympics-bobsled-tip-austria-jakob-mandlbauer/
+
+**Team USA soars above rivals to defend mixed team aerials Olympic gold**\
 `Four years after topping the podium in the inaugural competition in Beijing, the U.S. trio beat out Switzerland and China to take the title.`\
 https://nytimes.com/athletic/7061822/2026/02/21/usa-gold-mixed-team-aerials-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061826/2026/02/21/cincinnati-vs-kansas-stream-how-
 **How to watch Tennessee vs. Vanderbilt men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7061824/2026/02/21/tennessee-vs-vanderbilt-stream-how-to-watch-feb-21/
-
-**Phillies spring training notes: Bench battle, 'belief' in Bowlan, Duran's secret pitch?**\
-`Dylan Moore, a 33-year-old utility player in camp on a minor-league deal, is among the Phillies' options for the final bench spot. `\
-https://nytimes.com/athletic/7061075/2026/02/21/phillies-roster-dylan-moore-jhoan-duran-jonathan-bowlan/
 
