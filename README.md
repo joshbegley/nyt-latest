@@ -1,3 +1,11 @@
+**Jayson Tatum has no return date in mind: 'Nothing is set in stone'**\
+`“I know what 100 percent feels like,” Tatum said. “And if and when that time comes, I’ll be ready.”`\
+https://nytimes.com/athletic/7062842/2026/02/21/jayson-tatum-return-date-injury-rehab/
+
+**Traveling This Weekend? Here’s What to Know About the Snowstorm.**\
+`A major winter storm on Sunday and Monday is expected to bring delays and cancellations across much of the Northeast.`\
+https://nytimes.com/2026/02/21/travel/flight-cancellations-blizzard.html
+
 **Chelsea and Burnley condemn racist abuse of Wesley Fofana and Hannibal Mejbri**\
 `Wesley Fofana and Hannibal Mejbri shared images of racist abuse they had received`\
 https://nytimes.com/athletic/7062853/2026/02/21/chelsea-burnley-fofana-mejbri-racist-abuse-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/21/arts/music/willie-colon-dead.html
 **Nine Bodies of Skiers Recovered in Sierra Nevada Avalanche, Officials Say**\
 `A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
 https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
-
-**Cowboys, RB Javonte Williams agree to three-year contract: Sources**\
-`Getting Williams' deal done before the start of NFL free agency takes a major need off the board for the Dallas Cowboys.`\
-https://nytimes.com/athletic/7062761/2026/02/21/javonte-williams-cowboys-contract-nfl-free-agency/
-
-**Man City 2 Newcastle 1 — Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
-`Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
-https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
 
