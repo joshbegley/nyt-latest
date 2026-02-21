@@ -1,3 +1,7 @@
+**Trump Presses on With Tariffs Despite Court, and Court of Public Opinion**\
+`The president is plowing ahead with an unpopular policy after the Supreme Court’s rebuke, deepening his party’s risk in the midterm elections.`\
+https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-midterms.html
+
 **Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
 `Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
 https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-w
 **Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
 `At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
 https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
-
-**With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
-`Some companies could decide to temper price increases, but the effect would take time to materialize.`\
-https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
 

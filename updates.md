@@ -1,3 +1,11 @@
+**Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
+`Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
+https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
+
+**U.S. gold medal win over Canada is most-watched women's hockey game on record**\
+`The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
+https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
+
 **As Canada and USA battle for gold on Olympic stage, the whole world will be watching**\
 `For an entire generation of NHL stars waiting more than a decade to live out their Olympic dreams, two rivals have a shot at gold Sunday.`\
 https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-game-hockey/
