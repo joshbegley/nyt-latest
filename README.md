@@ -1,3 +1,11 @@
+**How to watch Grizzlies vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062341/2026/02/21/grizzlies-vs-heat-stream-how-to-watch-feb-21/
+
+**How to watch Pistons vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062339/2026/02/21/pistons-vs-bulls-stream-how-to-watch-feb-21/
+
 **How to watch 76ers vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062336/2026/02/21/76ers-vs-pelicans-stream-how-to-watch-feb-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062299/2026/02/21/arizona-vs-baylor-stream-how-to-
 **How to watch Michigan vs. Duke men's basketball: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062296/2026/02/21/michigan-vs-duke-stream-how-to-watch-feb-21/
-
-**Amid scrutiny of their roster decisions, nothing but respect between U.S. and Canada GMs**\
-`Doug Armstrong and Bill Guerin, who have taken their share of arrows with the second-guessing of their selections, will battle for gold.`\
-https://nytimes.com/athletic/7062196/2026/02/21/canada-usa-olympic-hockey-rosters-gold/
-
-**Women's freeski halfpipe, Eileen Gu's final Olympic event, postponed due to snow**\
-`The women's freestyle skiing halfpipe event is the final event in Livigno, the town that has hosted all snowboarding and freestyle skiing.`\
-https://nytimes.com/athletic/7062241/2026/02/21/winter-olympics-womens-freeski-halfpipe-postponed-eileen-gu/
 
