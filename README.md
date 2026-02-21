@@ -1,3 +1,15 @@
+**What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
+`Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
+https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/
+
+**Eileen Gu, as told by her Stanford roommate: 'One of the smartest people I've ever met'**\
+`Eileen Gu's Stanford University roommate says the Olympian is 'no different' to the Gu seen on TV. `\
+https://nytimes.com/athletic/7059570/2026/02/21/eileen-gu-stanford-friends/
+
+**Talk of the Devils: Goalkeepers edition – Steele on Lammens' strong' start, what next for Vitek?**\
+`This week in our Talk of the Devils column — Eric Steele on what Lammens brings to United and the dilemma over Vitek`\
+https://nytimes.com/athletic/7055223/2026/02/21/manchester-united-goalkeepers-lammens-vitek/
+
 **Arsenal have faced six 'new' managers this season. How have they fared?**\
 `Igor Tudor will lead Tottenham Hotspur for the first time against Arsenal on Sunday. But the omens are good for Mikel Arteta's side`\
 https://nytimes.com/athletic/7054698/2026/02/21/arsenal-new-managers-tottenham-tudor/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7059930/2026/02/21/divock-origi-liverpool-nottingha
 **Meet Maureen: She's cooked for more Premier League players than she can remember**\
 `Rio Ferdinand and Micah Richards both ate at the same Caribbean food shop in Leeds — many others have flocked to Maureen's since`\
 https://nytimes.com/athletic/7060313/2026/02/21/maureens-leeds-ferdinand-richards-caribbean-food/
-
-**Is the Brentford managerial theory correct… or has Keith Andrews made them better?**\
-`It borders on a footballing miracle that a man with no previous managerial experience has guided Brentford into European contention`\
-https://nytimes.com/athletic/7057644/2026/02/21/brentford-managerial-theory-keith-andrews-premier-league/
-
-**At the Olympics, Drama on the Ice Is Not Limited to the Skaters**\
-`A team of skilled technicians and drivers keep the frozen surface at the right temperature and thickness. The challenge? Each event needs a different kind of ice.`\
-https://nytimes.com/2026/02/21/world/europe/olympics-ice-maintenance-zamboni-drama.html
-
-**She Survived Mass Rape. Now, She’s Speaking Out to Build a Better Future.**\
-`Gisèle Pelicot stayed silent after dozens of men were convicted of raping her. Now, Ms. Pelicot is finding peace by publicizing her ordeal and explaining how she survived it.`\
-https://nytimes.com/2026/02/21/gisele-pelicot-interview-hymn-to-life.html
 
