@@ -1,3 +1,11 @@
+**Nine Bodies Recovered in Deadly Sierra Nevada Avalanche, Officials Say**\
+`A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
+https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
+
+**Cowboys, RB Javonte Williams agree to three-year contract: Sources**\
+`Getting Williams' deal done before the start of NFL free agency takes a major need off the board for the Dallas Cowboys.`\
+https://nytimes.com/athletic/7062761/2026/02/21/javonte-williams-cowboys-contract-nfl-free-agency/
+
 **Man City 2 Newcastle 1 - Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
 `Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
 https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
