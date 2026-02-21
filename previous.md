@@ -1,3 +1,11 @@
+**As Canada and USA battle for gold on Olympic stage, the whole world will be watching**\
+`For an entire generation of NHL stars waiting more than a decade to live out their Olympic dreams, two rivals have a shot at gold Sunday.`\
+https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-game-hockey/
+
+**6 Takeaways From the Supreme Court’s Tariff Decision**\
+`The court displayed its independence in what was a stinging rebuke to President Trump, though the ruling is unlikely to have an immediate effect on prices.`\
+https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-tariffs-takeaways.html
+
 **U.S. gold-medal win over Canada is most-watched women's hockey game on record**\
 `The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
 https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.ht
 **Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**\
 `A federal appeals court vacated a temporary block on the 2024 law, tossing a previous decision that called it “plainly unconstitutional.”`\
 https://nytimes.com/2026/02/20/us/louisiana-classrooms-ten-commandments.html
-
-**New York Man Tried to Ram a Nevada Substation in an Act of Terrorism, Police Say**\
-`The man, Dawson Maloney, of Albany, was heavily armed during the attack on Thursday in Boulder City, Nev. He died of a self-inflicted gunshot wound, the police said.`\
-https://nytimes.com/2026/02/20/us/las-vegas-car-ramming-terrorism.html
-
-**64% of Americans Disapprove of Trump’s Tariffs**\
-`The poll found disapproval among men, women, all racial and ethnic groups and across educational backgrounds.`\
-https://nytimes.com/2026/02/20/us/politics/trump-tariffs-poll-approval.html
 

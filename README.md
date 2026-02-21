@@ -1,3 +1,7 @@
+**Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
+`Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
+https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
+
 **As Canada and USA battle for gold on Olympic stage, the whole world will be watching**\
 `For an entire generation of NHL stars waiting more than a decade to live out their Olympic dreams, two rivals have a shot at gold Sunday.`\
 https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-game-hockey/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-g
 `The court displayed its independence in what was a stinging rebuke to President Trump, though the ruling is unlikely to have an immediate effect on prices.`\
 https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-tariffs-takeaways.html
 
-**U.S. gold-medal win over Canada is most-watched women's hockey game on record**\
+**U.S. gold medal win over Canada is most-watched women's hockey game on record**\
 `The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
 https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
 **With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
 `Some companies could decide to temper price increases, but the effect would take time to materialize.`\
 https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
-
-**Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**\
-`A federal appeals court vacated a temporary block on the 2024 law, tossing a previous decision that called it “plainly unconstitutional.”`\
-https://nytimes.com/2026/02/20/us/louisiana-classrooms-ten-commandments.html
 

@@ -1,3 +1,11 @@
+**As Canada and USA battle for gold on Olympic stage, the whole world will be watching**\
+`For an entire generation of NHL stars waiting more than a decade to live out their Olympic dreams, two rivals have a shot at gold Sunday.`\
+https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-game-hockey/
+
+**6 Takeaways From the Supreme Court’s Tariff Decision**\
+`The court displayed its independence in what was a stinging rebuke to President Trump, though the ruling is unlikely to have an immediate effect on prices.`\
+https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-tariffs-takeaways.html
+
 **U.S. gold-medal win over Canada is most-watched women's hockey game on record**\
 `The game topped the 2022 women's hockey gold-medal game, itself a record-setter, by 2 million viewers.`\
 https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
