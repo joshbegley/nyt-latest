@@ -1,3 +1,7 @@
+**Red-Braised Pork Belly, an Ideal Weekend Cook**\
+`Just think of the leftovers this deeply flavorful Shanghainese braise will yield.`\
+https://nytimes.com/2026/02/21/dining/red-braised-pork-belly-an-ideal-weekend-cook.html
+
 **Chicago coach Billy Donovan provides info, but little clarity, on Jaden Ivey benching**\
 `Jaden Ivey was available to play Thursday, but a crowded backcourt and lingering knee soreness led the Bulls to sit him, coaches said.`\
 https://nytimes.com/athletic/7061678/2026/02/21/nba-bulls-billy-donovan-jaden-ivey-dnp/

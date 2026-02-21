@@ -1,3 +1,7 @@
+**Red-Braised Pork Belly, an Ideal Weekend Cook**\
+`Just think of the leftovers this deeply flavorful Shanghainese braise will yield.`\
+https://nytimes.com/2026/02/21/dining/red-braised-pork-belly-an-ideal-weekend-cook.html
+
 **Chicago coach Billy Donovan provides info, but little clarity, on Jaden Ivey benching**\
 `Jaden Ivey was available to play Thursday, but a crowded backcourt and lingering knee soreness led the Bulls to sit him, coaches said.`\
 https://nytimes.com/athletic/7061678/2026/02/21/nba-bulls-billy-donovan-jaden-ivey-dnp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061762/2026/02/21/la-clippers-competitors-kawhi-le
 **How to watch Magic vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watch-feb-21/
-
-**How to watch Missouri vs. Arkansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062082/2026/02/21/missouri-vs-arkansas-stream-how-to-watch-feb-21/
 
