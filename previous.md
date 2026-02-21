@@ -1,3 +1,7 @@
+**How to watch Magic vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watch-feb-21/
+
 **How to watch Missouri vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062082/2026/02/21/missouri-vs-arkansas-stream-how-to-watch-feb-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7059315/2026/02/21/baltimore-orioles-tupac-shakur-b
 **New Dads Aren’t a ‘Waste of Time and Space’**\
 `Why are we still debating paternity leave?`\
 https://nytimes.com/2026/02/21/opinion/paternity-leave-debate.html
-
-**Inside the Big Tech Lobbying Machine Aiming to Halt Social Media Bans**\
-`Tech giants, including Meta and Alphabet, are spending lavishly on splashy billboard ads, courting on-the-fence politicians and bulking up their ranks of lobbyists.`\
-https://nytimes.com/2026/02/21/business/dealbook/big-tech-lobbying-social-media-bans.html
 

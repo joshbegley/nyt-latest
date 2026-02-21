@@ -1,3 +1,7 @@
+**How to watch Magic vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watch-feb-21/
+
 **How to watch Missouri vs. Arkansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062082/2026/02/21/missouri-vs-arkansas-stream-how-to-watch-feb-21/

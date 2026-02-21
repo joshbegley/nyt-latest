@@ -1,3 +1,7 @@
+**'We're playing to win': Clippers may not be contenders, but Tyronn Lue focuses on competing**\
+`After a close loss to the Lakers, Clippers coach Ty Lue lauded his team's effort: "We're gonna compete. We're going to fight every night."`\
+https://nytimes.com/athletic/7061762/2026/02/21/la-clippers-competitors-kawhi-leonard-ty-lue/
+
 **How to watch Magic vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watch-feb-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062037/2026/02/21/jon-rahm-ryder-cup-future-2027-d
 **Tupac bobblehead shaping up to be Orioles' most anticipated giveaway ever**\
 `The team quickly ordered an additional 5,000 bobbleheads after seeing the level of interest they were generating. `\
 https://nytimes.com/athletic/7059315/2026/02/21/baltimore-orioles-tupac-shakur-bobblehead/
-
-**New Dads Aren’t a ‘Waste of Time and Space’**\
-`Why are we still debating paternity leave?`\
-https://nytimes.com/2026/02/21/opinion/paternity-leave-debate.html
 
