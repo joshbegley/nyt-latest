@@ -1,3 +1,7 @@
+**Man City 2 Newcastle 1 - Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
+`Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
+https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
+
 **Gold medal favorite Frida Karlsson withdraws from 50km cross-country with fever**\
 `Karlsson's withdrawal suddenly blows Sunday’s race wide open`\
 https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympics-50km-cross-country-ski/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062560/2026/02/21/vinicius-junior-racist-abuse-rea
 **WNBA offers housing concession in CBA counterproposal to players**\
 `Overall revenue-sharing system remains largely unchanged from the league's previous offer.`\
 https://nytimes.com/athletic/7062643/2026/02/21/wnba-housing-cba-counterproposal/
-
-**Darryn Peterson plays 32 minutes but KU suffers history-making blowout loss to Cincy**\
-`What began as a back-and-forth grind deteriorated into Kansas’ largest home loss since a 83-60 defeat to TCU on Jan. 21, 2023.`\
-https://nytimes.com/athletic/7062571/2026/02/21/kansas-cincinnati-darryn-peterson-bill-self/
 

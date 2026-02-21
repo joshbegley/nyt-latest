@@ -1,3 +1,7 @@
+**Man City 2 Newcastle 1 - Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
+`Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
+https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
+
 **Gold medal favorite Frida Karlsson withdraws from 50km cross-country with fever**\
 `Karlsson's withdrawal suddenly blows Sunday’s race wide open`\
 https://nytimes.com/athletic/7062599/2026/02/21/frida-karlsson-withdraws-olympics-50km-cross-country-ski/

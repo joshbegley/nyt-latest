@@ -1,3 +1,7 @@
+**Cowboys, RB Javonte Williams agree to three-year contract: Sources**\
+`Getting Williams' deal done before the start of NFL free agency takes a major need off the board for the Dallas Cowboys.`\
+https://nytimes.com/athletic/7062761/2026/02/21/javonte-williams-cowboys-contract-nfl-free-agency/
+
 **Man City 2 Newcastle 1 - Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
 `Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
 https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062281/2026/02/21/wrexham-goals-moore-windass-park
 **Vinicius Jr scores in first game since alleged racist abuse as Real lose to Osasuna**\
 `The Brazil international scored Real Madrid's only goal of the game and was whistled and taunted by Osasuna fans. `\
 https://nytimes.com/athletic/7062560/2026/02/21/vinicius-junior-racist-abuse-real-madrid-osasuna-benfica-news-update/
-
-**WNBA offers housing concession in CBA counterproposal to players**\
-`Overall revenue-sharing system remains largely unchanged from the league's previous offer.`\
-https://nytimes.com/athletic/7062643/2026/02/21/wnba-housing-cba-counterproposal/
 
