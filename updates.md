@@ -1,3 +1,15 @@
+**Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
+`At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
+https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
+
+**For Consumers, Tariff Ruling Brings Hope of Price Relief**\
+`Some companies could decide to temper price increases, but the effect would take time to materialize.`\
+https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
+
+**Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**\
+`A federal appeals court vacated a temporary block on the 2024 law, tossing a previous decision that called it “plainly unconstitutional.”`\
+https://nytimes.com/2026/02/20/us/louisiana-ten-commandments.html
+
 **New York Man Tried to Ram a Nevada Substation in an Act of Terrorism, Police Say**\
 `The man, Dawson Maloney, of Albany, was heavily armed during the attack on Thursday in Boulder City, Nev. He died of a self-inflicted gunshot wound, the police said.`\
 https://nytimes.com/2026/02/20/us/las-vegas-car-ramming-terrorism.html
