@@ -1,3 +1,19 @@
+**Prosecutors Oppose Sean Combs’s Appeal, Asserting Sentence Was Just**\
+`Mr. Combs, who is serving a 50-month sentence after his conviction on prostitution-related charges, has argued that a judge sentenced him improperly.`\
+https://nytimes.com/2026/02/21/arts/sean-combs-appeal-prison.html
+
+**Jordan Stolz, with three medals, has stamped himself one of the biggest Olympic stars**\
+`Stolz is poised for celebrity after his performance at the Milan Games: three medals, including two golds and one silver.`\
+https://nytimes.com/athletic/7060476/2026/02/21/jordan-stolz-milan-olympics-speedskating-fame-three-medals/
+
+**Debate, confusion and a 'message' sent: Inside the NBA's call with GMs on tanking**\
+`One NBA executive said Adam Silver channeled his predecessor David Stern in addressing tanking with his teams on Thursday's private call.`\
+https://nytimes.com/athletic/7062473/2026/02/21/nba-tanking-inside-gm-call-adam-silver/
+
+**UCLA will play 2026 home football games in Rose Bowl amid lawsuit**\
+`UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
+https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
+
 **UCLA will play 2026 home football games in Rose Bowl**\
 `UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
 https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
