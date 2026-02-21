@@ -1,3 +1,11 @@
+**Divide Among Supreme Court’s Conservatives Could Test Trump’s Agenda**\
+`In rejecting President Trump’s tariffs, the court’s six conservative justices displayed subtle differences in their views of executive power.`\
+https://nytimes.com/2026/02/21/us/politics/supreme-court-tariffs-conservatives.html
+
+**'We're playing to win': Clippers may not be contenders, but Tyronn Lue focuses on competing**\
+`After a close loss to the Lakers, Clippers coach Ty Lue lauded his team's effort: "We're gonna compete. We're going to fight every night."`\
+https://nytimes.com/athletic/7061762/2026/02/21/la-clippers-competitors-kawhi-leonard-ty-lue/
+
 **How to watch Magic vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062104/2026/02/21/magic-vs-suns-stream-how-to-watch-feb-21/
