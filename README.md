@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062596/2026/02/21/rockets-vs-knicks-stream-how-to-watch-feb-21/
+
 **How to watch Texas Tech vs. Colorado women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Lady Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-how-to-watch-feb-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/world/speedskating-jordan-stolz.html
 **Ohio Woman Who Fatally Drugged 4 Men Is Sentenced to 60 Years**\
 `The woman, Rebecca Auborn, pleaded guilty to murder in December. The men, whom she had met for sex in exchange for money, overdosed on fentanyl, the authorities said.`\
 https://nytimes.com/2026/02/21/us/ohio-woman-sentenced-drugging-killing-4-men.html
-
-**UCLA will play 2026 home football games in Rose Bowl amid lawsuit**\
-`UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
-https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
 
