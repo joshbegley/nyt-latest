@@ -1,3 +1,7 @@
+**The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
+`The self-help influencer on his values, his journey and criticism of his work.`\
+https://nytimes.com/2026/02/21/magazine/jay-shetty-wellness-influencer-interview.html
+
 **U.S. Tariff Ruling Brings Uncertainty Just as Europe Hoped to Move On**\
 `The decision could distract from other challenges facing the continent, like issues with China and the war in Ukraine.`\
 https://nytimes.com/2026/02/21/world/europe/political-uncertainty-trump-tariff-loss.html

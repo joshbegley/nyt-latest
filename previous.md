@@ -1,3 +1,7 @@
+**The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
+`The self-help influencer on his values, his journey and criticism of his work.`\
+https://nytimes.com/2026/02/21/magazine/jay-shetty-wellness-influencer-interview.html
+
 **U.S. Tariff Ruling Brings Uncertainty Just as Europe Hoped to Move On**\
 `The decision could distract from other challenges facing the continent, like issues with China and the war in Ukraine.`\
 https://nytimes.com/2026/02/21/world/europe/political-uncertainty-trump-tariff-loss.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/us/minnesota-politics-immigration-crackdown.html
 **He Researched Dishonesty. He Got Friendly With Jeffrey Epstein.**\
 `Dan Ariely, a behavioral scientist at Duke, sought out the convicted sex offender for his research. Their yearslong correspondence suggests it wasn’t all business.`\
 https://nytimes.com/2026/02/21/business/jeffrey-epstein-dan-ariely-dishonesty.html
-
-**Why Attacking Iran Could Be Riskier Than Capturing Maduro**\
-`Iran’s extensive military abilities and network of regional proxies could draw the United States into a prolonged conflict.`\
-https://nytimes.com/2026/02/21/world/middleeast/iran-military-operation-venezuela.html
 
