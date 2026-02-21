@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7062336/2026/02/21/76ers-vs-pelicans-stream-how-to-
 `Find out how to watch the Sacramento Kings play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062334/2026/02/21/kings-vs-spurs-stream-how-to-watch-feb-21/
 
-**Canada's Davies forced to leave Bayern Munich game with apparent injury**\
+**Canada international Davies' injury 'doesn't look so bad' - Kompany**\
 `The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
 https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
 
