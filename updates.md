@@ -1,3 +1,7 @@
+**U.S. Kills 3 in Latest Boat Strike**\
+`Legal specialists on the use of lethal force have said the strikes are illegal, extrajudicial killings.`\
+https://nytimes.com/2026/02/20/us/politics/boat-strike-pacific-ocean.html
+
 **New Haven Police Chief Embezzled As Online Bets Soared, Investigators Say**\
 `Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
 https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
