@@ -1,3 +1,7 @@
+**Bulls' Zach Collins to undergo season-ending toe surgery; Jaden Ivey out 2 weeks**\
+`Collins appeared in only 10 games this season after undergoing a procedure for a fractured wrist in October.`\
+https://nytimes.com/athletic/7062343/2026/02/21/bulls-zach-collins-toe-surgery-nba/
+
 **NCAA Tournament bracket preview: Iowa State edges UConn for final No. 1 seed**\
 `The NCAA selection committee set its current top 16 three weeks and a day before the official bracket is announced.`\
 https://nytimes.com/athletic/7062327/2026/02/21/ncaa-tournament-bracket-preview-top-seeds/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/7062334/2026/02/21/kings-vs-spurs-stream-how-to-wat
 `The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
 https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
 
-**Problem With Artemis Rocket Is Likely to Delay NASA’s Moon Mission**\
-`An interruption in the flow of helium to the upper stage may require that the rocket be removed from the launchpad for repairs.`\
+**Problem With Artemis Rocket Will Delay NASA’s Moon Mission**\
+`The rocket will be removed from the launchpad in order for technicians to investigate and fix a malfunctioning helium system.`\
 https://nytimes.com/2026/02/21/science/nasa-artemis-helium-flaw.html
-
-**How to watch Illinois vs. UCLA men's basketball: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062304/2026/02/21/illinois-vs-ucla-stream-how-to-watch-feb-21/
 

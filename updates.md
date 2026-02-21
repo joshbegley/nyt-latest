@@ -1,3 +1,7 @@
+**NCAA Tournament bracket preview: Iowa State edges UConn for final No. 1 seed**\
+`The NCAA selection committee set its current top 16 three weeks and a day before the official bracket is announced.`\
+https://nytimes.com/athletic/7062327/2026/02/21/ncaa-tournament-bracket-preview-top-seeds/
+
 **For Team USA, winning Olympic gold in men's hockey won't be a miracle — but the stakes are high**\
 `It wouldn't be shocking if the United States beats Canada and wins gold Sunday, but it will be slaying the dragon nonetheless. `\
 https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-game/
