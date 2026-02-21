@@ -1,3 +1,7 @@
+**What I'm seeing at Dodgers camp: pitching progress, high expectations and more**\
+`Dave Roberts likes to operate in a state of endless optimism. He’d much rather praise a player than break him down.`\
+https://nytimes.com/athletic/7061342/2026/02/20/dodgers-spring-training-betts-yamamoto/
+
 **Corrections: Feb. 21, 2026**\
 `Corrections that appeared in print on Saturday, Feb. 21, 2026.`\
 https://nytimes.com/2026/02/20/pageoneplus/corrections-feb-21-2026.html
