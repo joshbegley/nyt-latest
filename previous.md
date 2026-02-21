@@ -1,3 +1,7 @@
+**Big Times**\
+`Josh Knapp’s latest themeless puzzle presents a lot of obstacles to move through.`\
+https://nytimes.com/2026/02/20/crosswords/daily-puzzle-2026-02-21.html
+
 **Who Is Not Funding This Antarctic Expedition?**\
 `Our climate reporter Raymond Zhong describes America’s shifting relationship with polar research amid the threat of rising sea levels.`\
 https://nytimes.com/video/climate/100000010696442/antarctica-expedition-funding-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061345/2026/02/20/olympics-recap-feb-20-mens-hocke
 **Air Force, basketball coach Joe Scott part ways after 6 seasons**\
 `Scott, in his second stint as the Falcons' coach, had been suspended since Jan. 17.`\
 https://nytimes.com/athletic/7061325/2026/02/20/air-force-coach-joe-scott-part-ways/
-
-**Trump Presses on With Tariffs Despite Court, and Court of Public Opinion**\
-`The president is plowing ahead with an unpopular policy after the Supreme Court’s rebuke, deepening his party’s risk in the midterm elections.`\
-https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-midterms.html
 

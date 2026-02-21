@@ -1,3 +1,7 @@
+**Big Times**\
+`Josh Knapp’s latest themeless puzzle presents a lot of obstacles to move through.`\
+https://nytimes.com/2026/02/20/crosswords/daily-puzzle-2026-02-21.html
+
 **Bridge Owner Donated $1 Million to MAGA Group Before Trump Blasted Competitor**\
 `The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
 https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html
