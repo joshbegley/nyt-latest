@@ -1,3 +1,11 @@
+**Ohio Woman Who Fatally Drugged 4 Men Is Sentenced to 60 Years**\
+`The woman, Rebecca Auborn, pleaded guilty to murder in December. The men, whom she had met for sex in exchange for money, overdosed on fentanyl, the authorities said.`\
+https://nytimes.com/2026/02/21/us/ohio-woman-sentenced-drugging-killing-4-men.html
+
+**UCLA will play 2026 football home games in Rose Bowl**\
+`UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
+https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
+
 **The Queen Stuck by Andrew. King Charles Is Pulling Away.**\
 `Andrew Mountbatten-Windsor, the former prince, is getting no help from the throne as the crisis over his ties to Jeffrey Epstein intensifies.`\
 https://nytimes.com/2026/02/21/world/europe/andrew-epstein-queen-elizabeth-charles.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062413/2026/02/21/olympics-last-day-hockey-final-g
 **After the Olympians Skate, Toys Rain Onto the Ice. Where Do They All Go?**\
 `Young skaters known as flower kids jump into action. They have their own Olympic dreams.`\
 https://nytimes.com/2026/02/21/world/europe/olympics-figure-skating-flower-kids.html
-
-**Bulls' Zach Collins to undergo season-ending toe surgery; Jaden Ivey out 2 weeks**\
-`Collins appeared in only 10 games this season after undergoing a procedure for a fractured wrist in October.`\
-https://nytimes.com/athletic/7062343/2026/02/21/bulls-zach-collins-toe-surgery-nba/
-
-**NCAA Tournament bracket preview: Iowa State edges UConn for final No. 1 seed**\
-`The NCAA selection committee set its current top 16 three weeks and a day before the official bracket is announced.`\
-https://nytimes.com/athletic/7062327/2026/02/21/ncaa-tournament-bracket-preview-top-seeds/
 
