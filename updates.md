@@ -1,3 +1,7 @@
+**Steve Kerr says he needs to help Draymond Green more with Stephen Curry out**\
+`Green went 0-for-7 from the field with a minus-28 in the Warriors' loss to the Boston Celtics Thursday night.`\
+https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-warriors-help/
+
 **Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
 `At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
 https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
