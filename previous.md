@@ -1,3 +1,19 @@
+**Don't panic: F1's 2026 cars still deliver the sounds and speed we love**\
+`With so much change for the new season, F1 still has all the qualities that make it truly special.`\
+https://nytimes.com/athletic/7061633/2026/02/21/f1-new-car-sounds-speed-takeaways/
+
+**I played with Steve Kerr in college. This is how he changed my life**\
+`This story is part of Peak, The Athletic’s desk covering the mental side of sports.`\
+https://nytimes.com/athletic/7060483/2026/02/21/steve-kerr-leadership-college-arizona-warriors/
+
+**3 lessons from the captain of the 1980 ‘Miracle on Ice’ Olympic hockey team**\
+`“You're always going to find somebody that's critical of you," Mike Eruzione said. "So ignore it.`\
+https://nytimes.com/athletic/7060847/2026/02/21/miracle-on-ice-hockey-mike-eruzione/
+
+**For India, Buying Russian Oil Just Got More Complicated**\
+`India’s prime minister acceded to many of President Trump’s demands under pressure of heavy tariffs. It would be awkward to reject them now.`\
+https://nytimes.com/2026/02/21/business/india-russia-oil-trump-tariffs.html
+
 **The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
 `The self-help influencer on his values, his journey and criticism of his work.`\
 https://nytimes.com/2026/02/21/magazine/jay-shetty-wellness-influencer-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/21/us/politics/gorsuch-congress-trump-tariffs.html
 **‘Shoresy’ Review: Heated (Brotherly) Rivalry**\
 `The Canadian comedy with creative ties to “Heated Rivalry,” in its fifth season on Hulu, has its own very different take on love among men.`\
 https://nytimes.com/2026/02/21/arts/television/shoresy-review-heated-brotherly-rivalry.html
-
-**Fred Segal Has a New Owner. Again.**\
-`The storied Los Angeles retailer, once recognized as an arbiter of West Coast style, has been acquired by the mass-market brand Aritzia.`\
-https://nytimes.com/2026/02/21/style/fred-segal-has-a-new-owner-again.html
-
-**9 Songs We’re Talking About This Week**\
-`U2 released a seething protest song, and Lana Del Rey put out a dreamy ode to her home life.`\
-https://nytimes.com/2026/02/21/arts/music/u2-lana-del-rey-new-songs.html
-
-**Minnesota Republicans Were Bullish. Then Came the Immigration Crackdown.**\
-`A fraud scandal had Democrats on the defensive and led Gov. Tim Walz to end his re-election bid. But the ICE surge upended the political landscape.`\
-https://nytimes.com/2026/02/21/us/minnesota-politics-immigration-crackdown.html
-
-**He Researched Dishonesty. He Got Friendly With Jeffrey Epstein.**\
-`Dan Ariely, a behavioral scientist at Duke, sought out the convicted sex offender for his research. Their yearslong correspondence suggests it wasn’t all business.`\
-https://nytimes.com/2026/02/21/business/jeffrey-epstein-dan-ariely-dishonesty.html
 
