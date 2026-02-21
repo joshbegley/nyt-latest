@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062596/2026/02/21/rockets-vs-knicks-stream-how-to-watch-feb-21/
+
 **How to watch Texas Tech vs. Colorado women's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Lady Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-how-to-watch-feb-21/
