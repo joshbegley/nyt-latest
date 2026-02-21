@@ -1,3 +1,11 @@
+**Corrections: Feb. 21, 2026**\
+`Corrections that appeared in print on Saturday, Feb. 21, 2026.`\
+https://nytimes.com/2026/02/20/pageoneplus/corrections-feb-21-2026.html
+
+**Police Chief Placed Millions in Bets as He Embezzled, Investigators Say**\
+`Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
+https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
+
 **U.S. Kills 3 in Latest Boat Strike**\
 `Legal specialists on the use of lethal force have said the strikes are illegal, extrajudicial killings.`\
 https://nytimes.com/2026/02/20/us/politics/boat-strike-pacific-ocean.html

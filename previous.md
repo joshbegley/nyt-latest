@@ -1,8 +1,12 @@
+**Corrections: Feb. 21, 2026**\
+`Corrections that appeared in print on Saturday, Feb. 21, 2026.`\
+https://nytimes.com/2026/02/20/pageoneplus/corrections-feb-21-2026.html
+
 **U.S. Kills 3 in Latest Boat Strike**\
 `Legal specialists on the use of lethal force have said the strikes are illegal, extrajudicial killings.`\
 https://nytimes.com/2026/02/20/us/politics/boat-strike-pacific-ocean.html
 
-**New Haven Police Chief Embezzled As Online Bets Soared, Investigators Say**\
+**Police Chief Placed Millions in Bets as He Embezzled, Investigators Say**\
 `Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
 https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-g
 **6 Takeaways From the Supreme Court’s Tariff Decision**\
 `The court displayed its independence in what was a stinging rebuke to President Trump, though the ruling is unlikely to have an immediate effect on prices.`\
 https://nytimes.com/2026/02/20/us/politics/supreme-court-trump-tariffs-takeaways.html
-
-**U.S. gold medal win over Canada is most-watched women's hockey game on record**\
-`The game topped the 2022 women's hockey gold medal game, itself a record-setter, by 2 million viewers.`\
-https://nytimes.com/athletic/7061387/2026/02/20/us-canada-womens-hockey-gold-medal-nbc/
 
