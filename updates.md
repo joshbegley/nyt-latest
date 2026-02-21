@@ -1,3 +1,15 @@
+**How to watch Texas Tech vs. Colorado women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-how-to-watch-feb-21/
+
+**How to watch Pacific vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pacific Tigers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062585/2026/02/21/pacific-vs-gonzaga-stream-how-to-watch-feb-21/
+
+**How to watch Iowa State vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062583/2026/02/21/iowa-state-vs-byu-stream-how-to-watch-feb-21/
+
 **Prosecutors Oppose Sean Combs’s Appeal, Asserting Sentence Was Just**\
 `Mr. Combs, who is serving a 50-month sentence after his conviction on prostitution-related charges, has argued that a judge sentenced him improperly.`\
 https://nytimes.com/2026/02/21/arts/sean-combs-appeal-prison.html
