@@ -1,8 +1,12 @@
+**Why game action is especially important for Bo Bichette this spring**\
+`Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
+https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
+
 **Willie Colón, a Luminary of Salsa Music, Dies at 75**\
 `A trombonist, singer, bandleader, composer and arranger, he collaborated with Rubén Blades on “Siembra,” a 1978 release that became one of the top-selling salsa albums of all time.`\
 https://nytimes.com/2026/02/21/arts/music/willie-colon-dead.html
 
-**Nine Bodies Recovered in Deadly Sierra Nevada Avalanche, Officials Say**\
+**Nine Bodies of Skiers Recovered in Sierra Nevada Avalanche, Officials Say**\
 `A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
 https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-ste
 **Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
 `The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
 https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/
-
-**U.S. bobsledder Kaillie Humphries wins sixth Olympic medal, a bronze with Jasmine Jones**\
-`Humphries' bronze tied teammate Elana Meyers Taylor for the most career Olympic medals in women's bobsled.`\
-https://nytimes.com/athletic/7062658/2026/02/21/winter-olympics-kaillie-humphries-bobsled-bronze-jasmine-jones/
 
