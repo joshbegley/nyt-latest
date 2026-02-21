@@ -1,3 +1,7 @@
+**Arsenal have faced six 'new' managers this season. How have they fared?**\
+`Igor Tudor will lead Tottenham Hotspur for the first time against Arsenal on Sunday. But the omens are good for Mikel Arteta's side`\
+https://nytimes.com/athletic/7054698/2026/02/21/arsenal-new-managers-tottenham-tudor/
+
 **Were you listening, Jose Mourinho? Vincent Kompany's 12-minute monologue on Vinicius and racism**\
 `The Bayern Munich coach delivered an impassioned and articulate speech that was highly critical of Mourinho's comments about Vinicius Jr`\
 https://nytimes.com/athletic/7056869/2026/02/21/kompany-speech-mourinho-vinicius-junior-racism/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/world/europe/olympics-ice-maintenance-zamboni-dra
 **She Survived Mass Rape. Now, She’s Speaking Out to Build a Better Future.**\
 `Gisèle Pelicot stayed silent after dozens of men were convicted of raping her. Now, Ms. Pelicot is finding peace by publicizing her ordeal and explaining how she survived it.`\
 https://nytimes.com/2026/02/21/gisele-pelicot-interview-hymn-to-life.html
-
-**Vampires Won’t Die. What’s Behind Their Bite?**\
-`With “The Lost Boys” on Broadway and Cynthia Erivo in “Dracula” in London, our horror expert looks at how bloodsuckers sunk their teeth into pop culture.`\
-https://nytimes.com/2026/02/21/theater/vampires-lost-boys-dracula-erivo-broadway.html
 
