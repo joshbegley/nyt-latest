@@ -1,3 +1,15 @@
+**Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
+`At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
+https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
+
+**For Consumers, Tariff Ruling Brings Hope of Price Relief**\
+`Some companies could decide to temper price increases, but the effect would take time to materialize.`\
+https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
+
+**Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**\
+`A federal appeals court vacated a temporary block on the 2024 law, tossing a previous decision that called it “plainly unconstitutional.”`\
+https://nytimes.com/2026/02/20/us/louisiana-ten-commandments.html
+
 **New York Man Tried to Ram a Nevada Substation in an Act of Terrorism, Police Say**\
 `The man, Dawson Maloney, of Albany, was heavily armed during the attack on Thursday in Boulder City, Nev. He died of a self-inflicted gunshot wound, the police said.`\
 https://nytimes.com/2026/02/20/us/las-vegas-car-ramming-terrorism.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
 **How Does Trump Really Spend His Time?**\
 `President Trump is running the White House on “gut instinct” and late-night phone calls, Ashley Parker and Michael Scherer, staff writers for The Atlantic, tell Ezra Klein on a recent episode of “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010718515/how-does-trump-really-spend-his-time.html
-
-**The U.S. Tariffs Causing the Most Pain for Canada Remain in Place**\
-`While the vast majority of Canadian exports were exempt from the tariffs now struck down, the ruling does not effect duties harming several key industries.`\
-https://nytimes.com/2026/02/20/us/politics/trump-canada-tariffs-supreme-court.html
-
-**Ask The Morning: The Supreme Court’s Tariff Ruling**\
-`The justices struck down a central piece of President Trump’s agenda. What does that mean?`\
-https://nytimes.com/2026/02/20/briefing/ask-the-morning-the-supreme-courts-tariff-ruling.html
-
-**Some Readers Thought Those Little Olympians Were A.I. Here’s How We Made Them.**\
-`The Times’s tiny animated athletes flip, spin and soar through the air just like their real-life counterparts.`\
-https://nytimes.com/2026/02/20/insider/winter-olympics-little-athletes.html
 
