@@ -1,3 +1,7 @@
+**How Johannes Klaebo’s 6 Gold Medals Ranks Among the All-Time Olympic Performances**\
+`With his win on Saturday, the Norwegian cross-country skier broke into the ranks of athletes to win the most Olympic gold medals.`\
+https://nytimes.com/2026/02/21/world/olympics/best-olympic-performances.html
+
 **Johannes Høsflot Klæbo wins sixth gold, most ever in a single Winter Olympics**\
 `Klaebo became the winningest athlete at a single Winter Olympics, sweeping the men's cross-country golds in Italy.`\
 https://nytimes.com/athletic/7061867/2026/02/21/johannes-hosflot-klaebo-winter-olympics-sixth-gold-sweep-50km/
