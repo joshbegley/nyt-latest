@@ -1,3 +1,23 @@
+**Problem With Artemis Rocket Is Likely to Delay NASA’s Moon Mission**\
+`An interruption in the flow of helium to the upper stage may require that the rocket be removed from the launchpad for repairs.`\
+https://nytimes.com/2026/02/21/science/nasa-artemis-helium-flaw.html
+
+**How to watch Illinois vs. UCLA men's basketball: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062304/2026/02/21/illinois-vs-ucla-stream-how-to-watch-feb-21/
+
+**How to watch UConn vs. Villanova men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062302/2026/02/21/uconn-vs-villanova-stream-how-to-watch-feb-21/
+
+**How to watch Arizona vs. Baylor women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062299/2026/02/21/arizona-vs-baylor-stream-how-to-watch-feb-21/
+
+**How to watch Michigan vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062296/2026/02/21/michigan-vs-duke-stream-how-to-watch-feb-21/
+
 **Amid scrutiny of their roster decisions, nothing but respect between U.S. and Canada GMs**\
 `Doug Armstrong and Bill Guerin, who have taken their share of arrows with the second-guessing of their selections, will battle for gold.`\
 https://nytimes.com/athletic/7062196/2026/02/21/canada-usa-olympic-hockey-rosters-gold/
@@ -14,27 +34,7 @@ https://nytimes.com/athletic/7018149/2026/02/21/james-milner-premier-league-reco
 `Abraham's late goal rescued a point for Villa but their recent home form is worrying`\
 https://nytimes.com/athletic/7053319/2026/02/21/aston-villa-1-leeds-1-abraham-responds-to-stach-wondergoal-but-what-is-going-wrong-for-villa-at-home/
 
-**The Briefing: Chelsea 1 Burnley 1 - Indiscipline proves costly despite Joao Pedro form**\
+**The Briefing: Chelsea 1 Burnley 1 — How costly was Fofana's red card? Is Joao Pedro league's form striker?**\
 `Chelsea took their tally of points dropped from winning positions in the Premier League this season to a staggering 19.`\
 https://nytimes.com/athletic/7053321/2026/02/21/chelsea-1-burnley-1-fofana-joao-pedro/
-
-**Trump Says He Will Raise Global Tariff to 15 Percent**\
-`The move signaled that the president would press ahead with steep global tariffs despite the legal setback from the Supreme Court.`\
-https://nytimes.com/2026/02/21/business/trump-tariffs.html
-
-**Charlie McAvoy’s Olympic diary: On the 'chance to make a dream come true' with gold medal**\
-`On the eve of Team USA's clash against Canada in the gold medal game, McAvoy reflects on his Olympic experience and his focus on the prize.`\
-https://nytimes.com/athletic/7062183/2026/02/21/charlie-mcavoy-olympics-team-usa-gold-medal/
-
-**Arsenal had 'heated' discussions after 'sickening' Wolves draw - Rice**\
-`The mid-week result leaves Arsenal five points clear at the top of the Premier League, having played a game more than Manchester City.`\
-https://nytimes.com/athletic/7062190/2026/02/21/arsenal-news-rice-tottenham-wolves-premier-league/
-
-**What Exactly Is a ‘Concentration Camp’?**\
-`A Q & A with Andrea Pitzer.`\
-https://nytimes.com/2026/02/21/opinion/concentration-camp-andrea-pitzer.html
-
-**Jordan Stolz ends Milan Olympics with 3 medals and 4th place showing in mass start**\
-`Stolz won gold in the 500-meter and 1,000-meter races and took silver in the 1,500-meter race.`\
-https://nytimes.com/athletic/7062186/2026/02/21/jordan-stolz-speedskating-mass-start-milan-olympics/
 
