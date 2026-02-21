@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7059863/2026/02/21/zoe-atkin-freeski-halfpipe-eilee
 https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-chelsea/
 
 **Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
-`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special.`\
+`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special`\
 https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
 

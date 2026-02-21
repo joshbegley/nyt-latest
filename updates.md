@@ -1,3 +1,7 @@
+**Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
+`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special`\
+https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
+
 **Newcastle attempting to trademark 'Howay the lads'**\
 `Opposition to Newcastle's application has been registered by another party, who are contesting the club's attempts to trademark the phrase.`\
 https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-trademark/
