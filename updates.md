@@ -1,3 +1,7 @@
+**Trump Says He Will Raise Global Tariff to 15 Percent**\
+`The move signaled anew that the president would press ahead with his trade war despite the legal setback from the Supreme Court.`\
+https://nytimes.com/2026/02/21/business/trump-tariffs.html
+
 **Charlie McAvoy’s Olympic diary: On the 'chance to make a dream come true' with gold medal**\
 `On the eve of Team USA's clash against Canada in the gold medal game, McAvoy reflects on his Olympic experience and his focus on the prize.`\
 https://nytimes.com/athletic/7062183/2026/02/21/charlie-mcavoy-olympics-team-usa-gold-medal/
