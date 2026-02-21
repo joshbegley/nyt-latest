@@ -1,3 +1,7 @@
+**Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
+`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special.`\
+https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
+
 **The New York Times in Print for Saturday, Feb. 21, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
