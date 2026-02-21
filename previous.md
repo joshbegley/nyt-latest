@@ -1,40 +1,40 @@
-**Quote of the Day: Athletes Live on the Edge. Their Parents Teeter on It.**\
-`Quotation of the Day for Saturday, February 21, 2026.`\
-https://nytimes.com/2026/02/20/pageoneplus/quote-of-the-day-athletes-live-on-the-edge-their-parents-teeter-on-it.html
+**'We have an obligation when the people come to create a good show. Football is a pleasure'**\
+`The Portuguese coach is loving life in Ligue 1. After a nine-month suspension, he is spearheading Lyon's push for silverware`\
+https://nytimes.com/athletic/7059571/2026/02/21/paulo-fonseca-lyon-head-coach-ban-interview/
 
-**Mavs coach Jason Kidd expects NBA to make 'big change' to address tanking**\
-`There is a difference between intentionally losing and not having "enough firepower to win," Kidd said.`\
-https://nytimes.com/athletic/7061653/2026/02/20/nba-jason-kidd-mavs-tanking-change/
+**Explained: The Premier League medals you might not know about**\
+`Did you know that, since the summer of 2017, players have received medals for certain numbers of appearances, goals and clean sheets?`\
+https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-chelsea/
 
-**Big Times**\
-`Josh Knapp’s latest themeless puzzle presents a lot of obstacles to move through.`\
-https://nytimes.com/2026/02/20/crosswords/daily-puzzle-2026-02-21.html
+**The curious case of Divock Origi, the Champions League winner without a club**\
+`As two of his former clubs meet this weekend, it is almost two years since the Belgium forward played a match`\
+https://nytimes.com/athletic/7059930/2026/02/21/divock-origi-liverpool-nottingham-forest-milan-no-club/
 
-**Who Is Not Funding This Antarctic Expedition?**\
-`Our climate reporter Raymond Zhong describes America’s shifting relationship with polar research amid the threat of rising sea levels.`\
-https://nytimes.com/video/climate/100000010696442/antarctica-expedition-funding-us.html
+**Meet Maureen: She's cooked for more Premier League players than she can remember**\
+`Rio Ferdinand and Micah Richards both ate at the same Caribbean food shop in Leeds — many others have flocked to Maureen's since`\
+https://nytimes.com/athletic/7060313/2026/02/21/maureens-leeds-ferdinand-richards-caribbean-food/
 
-**Bridge Owner Donated $1 Million to MAGA Group Before Trump Blasted Competitor**\
-`The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
-https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html
+**Is the Brentford managerial theory correct… or has Keith Andrews made them better?**\
+`It borders on a footballing miracle that a man with no previous managerial experience has guided Brentford into European contention`\
+https://nytimes.com/athletic/7057644/2026/02/21/brentford-managerial-theory-keith-andrews-premier-league/
 
-**What I'm seeing at Dodgers camp: pitching progress, high expectations and more**\
-`Dave Roberts likes to operate in a state of endless optimism. He’d much rather praise a player than break him down.`\
-https://nytimes.com/athletic/7061342/2026/02/20/dodgers-spring-training-betts-yamamoto/
+**At the Olympics, Drama on the Ice Is Not Limited to the Skaters**\
+`A team of skilled technicians and drivers keep the frozen surface at the right temperature and thickness. The challenge? Each event needs a different kind of ice.`\
+https://nytimes.com/2026/02/21/world/europe/olympics-ice-maintenance-zamboni-drama.html
 
-**Corrections: Feb. 21, 2026**\
-`Corrections that appeared in print on Saturday, Feb. 21, 2026.`\
-https://nytimes.com/2026/02/20/pageoneplus/corrections-feb-21-2026.html
+**She Survived Mass Rape. Now, She’s Speaking Out to Build a Better Future.**\
+`Gisèle Pelicot stayed silent after dozens of men were convicted of raping her. Now, Ms. Pelicot is finding peace by publicizing her ordeal and explaining how she survived it.`\
+https://nytimes.com/2026/02/21/gisele-pelicot-interview-hymn-to-life.html
 
-**U.S. Kills 3 in Latest Boat Strike**\
-`Legal specialists on the use of lethal force have said the strikes are illegal, extrajudicial killings.`\
-https://nytimes.com/2026/02/20/us/politics/boat-strike-pacific-ocean.html
+**Vampires Won’t Die. What’s Behind Their Bite?**\
+`With “The Lost Boys” on Broadway and Cynthia Erivo in “Dracula” in London, our horror expert looks at how bloodsuckers sunk their teeth into pop culture.`\
+https://nytimes.com/2026/02/21/theater/vampires-lost-boys-dracula-erivo-broadway.html
 
-**Police Chief Placed Millions in Bets as He Embezzled, Investigators Say**\
-`Karl R. Jacobson was arrested and accused of stealing from city coffers as he placed $4.5 million in online bets. He resigned in January, when the accusations first surfaced.`\
-https://nytimes.com/2026/02/20/nyregion/new-haven-police-chief-gambling-embezzle.html
+**‘Murky Waters’ for Global Businesses After Trump’s Tariff Loss**\
+`Even after the Supreme Court invalidated many of the president’s levies, foreign leaders and executives assume that U.S. tariffs are here to stay, in one form or another.`\
+https://nytimes.com/2026/02/21/business/economy/tariffs-supreme-court-global-busines-reaction.html
 
-**Dylan Larkin's long-awaited opportunity on the grandest stage is exactly what he deserves**\
-`The Olympics are Larkin’s first chance to win something on such a big stage, and he’s proved willing to do anything for his team.`\
-https://nytimes.com/athletic/7061440/2026/02/20/usa-olympic-hockey-dylan-larkin-gold/
+**Connections: Sports Edition Coach: Hints and answers for Feb. 21, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7061442/2026/02/21/connections-sports-edition-hints-answers-feb-21-2026/
 

@@ -1,3 +1,11 @@
+**Were you listening, Jose Mourinho? Vincent Kompany's 12-minute monologue on Vinicius and racism**\
+`The Bayern Munich coach delivered an impassioned and articulate speech that was highly critical of Mourinho's comments about Vinicius Jr`\
+https://nytimes.com/athletic/7056869/2026/02/21/kompany-speech-mourinho-vinicius-junior-racism/
+
+**The world champion aiming to take Eileen Gu's Olympic title is embracing her fear**\
+`As a child, Zoe Atkin was intimidated by the halfpipe. She has learned to embrace her fear.`\
+https://nytimes.com/athletic/7059863/2026/02/21/zoe-atkin-freeski-halfpipe-eileen-gu-winter-olympics-2026/
+
 **'We have an obligation when the people come to create a good show. Football is a pleasure'**\
 `The Portuguese coach is loving life in Ligue 1. After a nine-month suspension, he is spearheading Lyon's push for silverware`\
 https://nytimes.com/athletic/7059571/2026/02/21/paulo-fonseca-lyon-head-coach-ban-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/21/gisele-pelicot-interview-hymn-to-life.html
 **Vampires Won’t Die. What’s Behind Their Bite?**\
 `With “The Lost Boys” on Broadway and Cynthia Erivo in “Dracula” in London, our horror expert looks at how bloodsuckers sunk their teeth into pop culture.`\
 https://nytimes.com/2026/02/21/theater/vampires-lost-boys-dracula-erivo-broadway.html
-
-**‘Murky Waters’ for Global Businesses After Trump’s Tariff Loss**\
-`Even after the Supreme Court invalidated many of the president’s levies, foreign leaders and executives assume that U.S. tariffs are here to stay, in one form or another.`\
-https://nytimes.com/2026/02/21/business/economy/tariffs-supreme-court-global-busines-reaction.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 21, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7061442/2026/02/21/connections-sports-edition-hints-answers-feb-21-2026/
 
