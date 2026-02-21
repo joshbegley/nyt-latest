@@ -1,3 +1,15 @@
+**How to watch Texas Tech vs. Colorado women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Lady Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-how-to-watch-feb-21/
+
+**How to watch Pacific vs. Gonzaga men's basketball: Time, TV, streaming**\
+`Find out how to watch the Pacific Tigers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062585/2026/02/21/pacific-vs-gonzaga-stream-how-to-watch-feb-21/
+
+**How to watch Iowa State vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7062583/2026/02/21/iowa-state-vs-byu-stream-how-to-watch-feb-21/
+
 **Prosecutors Oppose Sean Combs’s Appeal, Asserting Sentence Was Just**\
 `Mr. Combs, who is serving a 50-month sentence after his conviction on prostitution-related charges, has argued that a judge sentenced him improperly.`\
 https://nytimes.com/2026/02/21/arts/sean-combs-appeal-prison.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/21/us/ohio-woman-sentenced-drugging-killing-4-men.ht
 **UCLA will play 2026 home football games in Rose Bowl amid lawsuit**\
 `UCLA has been looking into moving the team's home games to SoFi Stadium in Inglewood, Calif.`\
 https://nytimes.com/athletic/7062430/2026/02/21/ucla-rose-bowl-2026-football-season/
-
-**The Queen Stuck by Andrew. King Charles Is Pulling Away.**\
-`Andrew Mountbatten-Windsor, the former prince, is getting no help from the throne as the crisis over his ties to Jeffrey Epstein intensifies.`\
-https://nytimes.com/2026/02/21/world/europe/andrew-epstein-queen-elizabeth-charles.html
-
-**Rosenior says Chelsea marked wrong player for Burnley equaliser**\
-`Zian Fleming was unmarked when he headed in Burnley's equaliser but Rosenior refused to reveal the Chelsea player he was talking about.`\
-https://nytimes.com/athletic/7062443/2026/02/21/chelsea-burnley-goal-mistake-rosenior-marking/
-
-**Theodore Conklin, 77, Dies; His Rescue of an Inn Helped Save Sag Harbor**\
-`By rehabilitating the American Hotel, he turned a hard-luck village on the East End of Long Island into a mecca for pop stars and plumbers alike.`\
-https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
 
