@@ -1,3 +1,7 @@
+**Steve Kerr says he needs to help Draymond Green more with Stephen Curry out**\
+`Green went 0-for-7 from the field with a minus-28 in the Warriors' loss to the Boston Celtics Thursday night.`\
+https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-warriors-help/
+
 **Dozens of U.S. Planes Are at Jordan Base, Satellite Images and Flight Data Show**\
 `At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
 https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010718523/how-stephen-miller-is-perceive
 **White House Dims Lights as Trump Responds to Tariff Ruling**\
 `The mood lighting appeared to be borrowing from the playbook of former President Joseph R. Biden Jr., and the old meme of “Dark Brandon.”`\
 https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
-
-**How Does Trump Really Spend His Time?**\
-`President Trump is running the White House on “gut instinct” and late-night phone calls, Ashley Parker and Michael Scherer, staff writers for The Atlantic, tell Ezra Klein on a recent episode of “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010718515/how-does-trump-really-spend-his-time.html
 
