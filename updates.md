@@ -1,3 +1,27 @@
+**'I will never hide': Brighton's Hurzeler welcomes criticism from fans**\
+`Hurzeler has come under fire from some supporters during a run of one win in 13 league games`\
+https://nytimes.com/athletic/7059682/2026/02/21/fabian-hurzeler-brighton-criticism-fans/
+
+**Mamdani Announces Plan to Enforce Time-Off Protections for N.Y.C. Workers**\
+`Ahead of a new worker protection law taking effect, Mayor Zohran Mamdani introduced the additional measures his administration will take to ensure employees get the time off they are owed.`\
+https://nytimes.com/2026/02/21/nyregion/mamdani-time-off-enforcement.html
+
+**N.J. Democrats Send Coarse but Clear Message to ICE With New Bill**\
+`New Jersey lawmakers have added some the state’s trademark in-your-face attitude to a measure that would expand residents’ ability to sue federal immigration officials.`\
+https://nytimes.com/2026/02/21/nyregion/new-jersey-democrats-ice-laws.html
+
+**How a Physical Therapist and a Retiree Live on $208,000 in Harlem**\
+`Charles and Marian Wade splurge on theater and music, but save on groceries by comparison shopping at three nearby supermarkets.`\
+https://nytimes.com/interactive/2026/02/21/nyregion/nyc-budgeting-affordability-wade.html
+
+**Will ICE Scare Some Fans Away From the World Cup?**\
+`The congresswoman representing the district where the final will be played asked the director of ICE about his plans. She was not encouraged by his response.`\
+https://nytimes.com/2026/02/21/nyregion/ice-world-cup-fans.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/21/crosswords/spelling-bee-forum.html
+
 **Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
 `The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special`\
 https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
