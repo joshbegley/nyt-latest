@@ -1,3 +1,7 @@
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/21/us/nancy-guthrie-case-updates
+
 **For Olympic athletes and collectors, pin trading has become a sport of its own**\
 `Collectors travel from all over the world to trade and purchase pins representing past, present and future Olympic Games.`\
 https://nytimes.com/athletic/7061608/2026/02/21/olympics-2026-milan-pin-trading/
@@ -23,7 +27,7 @@ https://nytimes.com/2026/02/21/world/johannes-klaeb-cross-country.html
 https://nytimes.com/athletic/7061696/2026/02/21/hockeys-marquee-matchup-plus-selfs-advice-to-peterson/
 
 **How Johannes Klaebo’s 6 Gold Medals Ranks Among the All-Time Olympic Performances**\
-`With his win on Saturday, the Norwegian cross-country skier completed one of the biggest medal hauls ever at a single Olympics.`\
+`The Norwegian cross-country skier completed the biggest medal haul ever by an athlete at a Winter Games, and one of the biggest at any single Olympics.`\
 https://nytimes.com/2026/02/21/world/olympics/best-olympic-performances.html
 
 **Johannes Høsflot Klæbo wins sixth gold, most ever in a single Winter Olympics**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061867/2026/02/21/johannes-hosflot-klaebo-winter-o
 **Have Canada's struggles tilted the odds in Team USA's favor for gold-medal game?**\
 `Canada is a small favorite against the United States in the men's hockey gold medal game at the Olympics.`\
 https://nytimes.com/athletic/7061198/2026/02/21/canada-usa-hockey-olympics-gold-medal-odds/
-
-**Jackson Merrill won't play in the WBC. He and the Padres see it as an opportunity**\
-`"Being more of a leader this year," Merrill said, "is more important to me than (playing in the World Baseball Classic) right now."`\
-https://nytimes.com/athletic/7061229/2026/02/21/padres-jackson-merrill-world-baseball-classic-participation/
 

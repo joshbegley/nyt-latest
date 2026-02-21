@@ -1,3 +1,11 @@
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/21/us/nancy-guthrie-case-updates
+
+**How Johannes Klaebo’s 6 Gold Medals Ranks Among the All-Time Olympic Performances**\
+`The Norwegian cross-country skier completed the biggest medal haul ever by an athlete at a Winter Games, and one of the biggest at any single Olympics.`\
+https://nytimes.com/2026/02/21/world/olympics/best-olympic-performances.html
+
 **For Olympic athletes and collectors, pin trading has become a sport of its own**\
 `Collectors travel from all over the world to trade and purchase pins representing past, present and future Olympic Games.`\
 https://nytimes.com/athletic/7061608/2026/02/21/olympics-2026-milan-pin-trading/
