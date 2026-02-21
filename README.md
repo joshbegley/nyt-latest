@@ -1,3 +1,7 @@
+**For Team USA, winning Olympic gold in men's hockey won't be a miracle — but the stakes are high**\
+`It wouldn't be shocking if the United States beats Canada and wins gold Sunday, but it will be slaying the dragon nonetheless. `\
+https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-game/
+
 **Powder’s Siren Song: The Risks and Rewards of Backcountry Skiing**\
 `A string of recent tragedies, including a fatal avalanche near Lake Tahoe and an unusually deadly winter in Europe, has cast a spotlight on the sport’s inherent dangers.`\
 https://nytimes.com/2026/02/21/travel/backcountry-skiing-risks-rewards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062304/2026/02/21/illinois-vs-ucla-stream-how-to-w
 **How to watch UConn vs. Villanova men's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the Villanova Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062302/2026/02/21/uconn-vs-villanova-stream-how-to-watch-feb-21/
-
-**How to watch Arizona vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062299/2026/02/21/arizona-vs-baylor-stream-how-to-watch-feb-21/
 

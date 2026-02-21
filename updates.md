@@ -1,3 +1,7 @@
+**Canada international Davies' injury 'doesn't look so bad' - Kompany**\
+`The defender had to be replaced during Bayern’s 3-2 win over Eintracht Frankfurt on Saturday.`\
+https://nytimes.com/athletic/7062268/2026/02/21/alphonso-davies-injury-bayern-munich-canada/
+
 **Powder’s Siren Song: The Risks and Rewards of Backcountry Skiing**\
 `A string of recent tragedies, including a fatal avalanche near Lake Tahoe and an unusually deadly winter in Europe, has cast a spotlight on the sport’s inherent dangers.`\
 https://nytimes.com/2026/02/21/travel/backcountry-skiing-risks-rewards.html
