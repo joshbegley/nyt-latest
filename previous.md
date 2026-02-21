@@ -1,3 +1,7 @@
+**Judge Rebukes U.S. Over Application to Search Reporter’s Home**\
+`A prosecutor apologized for failing to alert the magistrate to a 1980 law that restricts searches for reporting materials.`\
+https://nytimes.com/2026/02/20/us/politics/washington-post-reporter-home-search.html
+
 **Steve Kerr says he needs to help Draymond Green more with Stephen Curry out**\
 `Green went 0-for-7 from the field with a minus-28 in the Warriors' loss to the Boston Celtics Thursday night.`\
 https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-warriors-help/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-w
 `At least 60 attack aircraft are parked at the base, which has become a key hub for U.S. military planning for possible strikes on Iran.`\
 https://nytimes.com/2026/02/20/us/politics/us-military-jordan-iran.html
 
-**For Consumers, Tariff Ruling Brings Hope of Price Relief**\
+**With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
 `Some companies could decide to temper price increases, but the effect would take time to materialize.`\
 https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/us-attorney-eastern-district-of-virgi
 **How Stephen Miller Is Perceived in the White House**\
 `Stephen Miller is at the “top of the totem pole” in Donald Trump’s White House. On a recent episode of “The Ezra Klein Show,” the Atlantic staff writers Ashley Parker and Michael Scherer describe the scale of Miller’s influence.`\
 https://nytimes.com/video/opinion/100000010718523/how-stephen-miller-is-perceived-in-the-white-house.html
-
-**White House Dims Lights as Trump Responds to Tariff Ruling**\
-`The mood lighting appeared to be borrowing from the playbook of former President Joseph R. Biden Jr., and the old meme of “Dark Brandon.”`\
-https://nytimes.com/2026/02/20/us/politics/trump-lighting-dark-maga.html
 

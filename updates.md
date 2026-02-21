@@ -1,3 +1,11 @@
+**Judge Rebukes U.S. Over Application to Search Reporter’s Home**\
+`A prosecutor apologized for failing to alert the magistrate to a 1980 law that restricts searches for reporting materials.`\
+https://nytimes.com/2026/02/20/us/politics/washington-post-reporter-home-search.html
+
+**With Tariff Changes, Consumers May Be Stuck in a Waiting Game**\
+`Some companies could decide to temper price increases, but the effect would take time to materialize.`\
+https://nytimes.com/2026/02/20/business/economy/tariff-ruling-consumer-prices.html
+
 **Steve Kerr says he needs to help Draymond Green more with Stephen Curry out**\
 `Green went 0-for-7 from the field with a minus-28 in the Warriors' loss to the Boston Celtics Thursday night.`\
 https://nytimes.com/athletic/7061313/2026/02/20/nba-draymond-green-steph-curry-warriors-help/
