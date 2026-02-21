@@ -1,3 +1,15 @@
+**Willie Colón, a Luminary of Salsa Music, Dies at 75**\
+`A trombonist, singer, bandleader, composer and arranger, he collaborated with Rubén Blades on “Siembra,” a 1978 release that became one of the top-selling salsa albums of all time.`\
+https://nytimes.com/2026/02/21/arts/music/willie-colon-dead.html
+
+**Man City 2 Newcastle 1 — Where does it leave the title race? How good is O'Reilly? Was Burn pushed offside?**\
+`Analysis of title-chasing Manchester City's Premier League game at home to Newcastle United`\
+https://nytimes.com/athletic/7053322/2026/02/21/man-city-2-newcastle-1-highlights/
+
+**Sewage leaks into Yankees' clubhouse, pools around stadium**\
+`“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
+https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-steinbrenner-field-spring-training/
+
 **Nine Bodies Recovered in Deadly Sierra Nevada Avalanche, Officials Say**\
 `A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
 https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
