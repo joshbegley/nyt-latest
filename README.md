@@ -1,3 +1,7 @@
+**Bridge Owner Donated $1 Million to MAGA Inc. PAC Before Trump Blasted New Span**\
+`The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
+https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html
+
 **What I'm seeing at Dodgers camp: pitching progress, high expectations and more**\
 `Dave Roberts likes to operate in a state of endless optimism. He’d much rather praise a player than break him down.`\
 https://nytimes.com/athletic/7061342/2026/02/20/dodgers-spring-training-betts-yamamoto/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-m
 **Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
 `Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
 https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
-
-**As Canada and USA battle for gold on Olympic stage, the whole world will be watching**\
-`For an entire generation of NHL stars waiting more than a decade to live out their Olympic dreams, two rivals have a shot at gold Sunday.`\
-https://nytimes.com/athletic/7061346/2026/02/20/canada-usa-olympics-gold-medal-game-hockey/
 
