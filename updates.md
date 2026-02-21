@@ -1,3 +1,11 @@
+**Chicago coach Billy Donovan provides info, but little clarity, on Jaden Ivey benching**\
+`Jaden Ivey was available to play Thursday, but a crowded backcourt and lingering knee soreness led the Bulls to sit him, coaches said.`\
+https://nytimes.com/athletic/7061678/2026/02/21/nba-bulls-billy-donovan-jaden-ivey-dnp/
+
+**Bill Mazeroski, 89, Whose 9th-Inning Blast Made Pirates Champs, Is Dead**\
+`It was Game 7 of the 1960 World Series, when an infielder known for his glove, not his bat, crushed the powerful Yankees with one swing, bringing joy to Pittsburgh.`\
+https://nytimes.com/2026/02/21/sports/baseball/bill-mazeroski-dead.html
+
 **Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 89**\
 `Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
 https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
