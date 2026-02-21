@@ -4,7 +4,7 @@ https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
 
 **Canada reclaims Olympic men's curling throne, beats Great Britain for gold**\
 `Canada returned to the top of men's curling, winning Olympic gold for the first time since 2014 — when Brad Jacobs was last the team's skip.`\
-https://nytimes.com/athletic/7062510/2026/02/21/canada-reclaims-olympic-mens-curling-throne-beats-great-britain-for-gold/
+https://nytimes.com/athletic/7062510/2026/02/21/winter-olympics-mens-curling-canada-great-britain-gold/
 
 **Sewage leaks into Yankees' clubhouse bathrooms, pools around stadium**\
 `“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
