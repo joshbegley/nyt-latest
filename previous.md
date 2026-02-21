@@ -1,3 +1,11 @@
+**The Queen Stuck by Andrew. King Charles Is Pulling Away.**\
+`Andrew Mountbatten-Windsor, the former prince, is getting no help from the throne as the crisis over his ties to Jeffrey Epstein intensifies.`\
+https://nytimes.com/2026/02/21/world/europe/andrew-epstein-queen-elizabeth-charles.html
+
+**Rosenior says Chelsea marked wrong player for Burnley equaliser**\
+`Zian Fleming was unmarked when he headed in Burnley's equaliser but Rosenior refused to reveal the Chelsea player he was talking about.`\
+https://nytimes.com/athletic/7062443/2026/02/21/chelsea-burnley-goal-mistake-rosenior-marking/
+
 **Theodore Conklin, 77, Dies; His Rescue of an Inn Helped Save Sag Harbor**\
 `By rehabilitating the American Hotel, he turned a hard-luck village on the East End of Long Island into a mecca for pop stars and plumbers alike.`\
 https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062343/2026/02/21/bulls-zach-collins-toe-surgery-n
 **NCAA Tournament bracket preview: Iowa State edges UConn for final No. 1 seed**\
 `The NCAA selection committee set its current top 16 three weeks and a day before the official bracket is announced.`\
 https://nytimes.com/athletic/7062327/2026/02/21/ncaa-tournament-bracket-preview-top-seeds/
-
-**For Team USA, winning gold in men's hockey won't be a miracle — but stakes are high**\
-`It wouldn't be shocking if the United States beats Canada and wins gold Sunday, but it will be slaying the dragon nonetheless. `\
-https://nytimes.com/athletic/7062234/2026/02/21/usa-canada-olympic-gold-medal-game/
-
-**Powder’s Siren Song: The Risks and Rewards of Backcountry Skiing**\
-`A string of recent tragedies, including a fatal avalanche near Lake Tahoe and an unusually deadly winter in Europe, has cast a spotlight on the sport’s inherent dangers.`\
-https://nytimes.com/2026/02/21/travel/backcountry-skiing-risks-rewards.html
 

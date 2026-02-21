@@ -1,3 +1,11 @@
+**The Queen Stuck by Andrew. King Charles Is Pulling Away.**\
+`Andrew Mountbatten-Windsor, the former prince, is getting no help from the throne as the crisis over his ties to Jeffrey Epstein intensifies.`\
+https://nytimes.com/2026/02/21/world/europe/andrew-epstein-queen-elizabeth-charles.html
+
+**Rosenior says Chelsea marked wrong player for Burnley equaliser**\
+`Zian Fleming was unmarked when he headed in Burnley's equaliser but Rosenior refused to reveal the Chelsea player he was talking about.`\
+https://nytimes.com/athletic/7062443/2026/02/21/chelsea-burnley-goal-mistake-rosenior-marking/
+
 **Theodore Conklin, 77, Dies; His Rescue of an Inn Helped Save Sag Harbor**\
 `By rehabilitating the American Hotel, he turned a hard-luck village on the East End of Long Island into a mecca for pop stars and plumbers alike.`\
 https://nytimes.com/2026/02/21/dining/theodore-conklin-dead.html
