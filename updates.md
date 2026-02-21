@@ -1,3 +1,7 @@
+**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 98**\
+`Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
+https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
+
 **Divide Among Supreme Court’s Conservatives Could Test Trump’s Agenda**\
 `In rejecting President Trump’s tariffs, the court’s six conservative justices displayed subtle differences in their views of executive power.`\
 https://nytimes.com/2026/02/21/us/politics/supreme-court-tariffs-conservatives.html

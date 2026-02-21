@@ -1,3 +1,7 @@
+**Bill Mazeroski, Pirates World Series hero and Hall of Famer, dies at 98**\
+`Mazeroski is known for his walk-off homer in Game 7 of the 1960 World Series, but his defense earned him a spot in the Hall of Fame.`\
+https://nytimes.com/athletic/6021388/2026/02/21/bill-mazeroski-dies-pittsburgh-pirates-legend/
+
 **Divide Among Supreme Court’s Conservatives Could Test Trump’s Agenda**\
 `In rejecting President Trump’s tariffs, the court’s six conservative justices displayed subtle differences in their views of executive power.`\
 https://nytimes.com/2026/02/21/us/politics/supreme-court-tariffs-conservatives.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062074/2026/02/21/georgia-tech-vs-louisville-strea
 **Six Questions on the Future of Trump’s Tariffs**\
 `The Supreme Court’s ruling on the president’s tariffs has jolted Washington and the business world. Here’s what to watch next.`\
 https://nytimes.com/2026/02/21/business/dealbook/six-questions-trump-tariffs.html
-
-**Jon Rahm's Ryder Cup future in question**\
-`Tyrrell Hatton and seven others agreed to terms with the DP World Tour in order to resolve issues related to playing for LIV.`\
-https://nytimes.com/athletic/7062037/2026/02/21/jon-rahm-ryder-cup-future-2027-dp-world-tour/
 
