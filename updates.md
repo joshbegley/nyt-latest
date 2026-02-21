@@ -1,3 +1,7 @@
+**Mavs coach Jason Kidd expects NBA to make 'big change' to address tanking**\
+`There is a difference between intentionally losing and not having "enough firepower to win," Kidd said.`\
+https://nytimes.com/athletic/7061653/2026/02/20/nba-jason-kidd-mavs-tanking-change/
+
 **Big Times**\
 `Josh Knapp’s latest themeless puzzle presents a lot of obstacles to move through.`\
 https://nytimes.com/2026/02/20/crosswords/daily-puzzle-2026-02-21.html
