@@ -1,3 +1,7 @@
+**U.S. Tariff Ruling Brings Uncertainty Just as Europe Hoped to Move On**\
+`The decision could distract from other challenges facing the continent, like issues with China and the war in Ukraine.`\
+https://nytimes.com/2026/02/21/world/europe/political-uncertainty-trump-tariff-loss.html
+
 **Foundational utility players and late-round outfielders: Fantasy baseball rundown**\
 `Eno Sarris and Derek VanRiper finish previewing the outfield after discussing Utility bats. `\
 https://nytimes.com/athletic/7055998/2026/02/21/foundational-utility-players-outfielders-fantasy-baseball-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/business/jeffrey-epstein-dan-ariely-dishonesty.ht
 **Why Attacking Iran Could Be Riskier Than Capturing Maduro**\
 `Iran’s extensive military abilities and network of regional proxies could draw the United States into a prolonged conflict.`\
 https://nytimes.com/2026/02/21/world/middleeast/iran-military-operation-venezuela.html
-
-**How the Save America Act Could Change Voting**\
-`Legislation that would require proof of citizenship to register to vote is only the beginning as Republicans press to sharply limit voting in line with President Trump’s false claims of widespread fraud. Our congressional correspondent Annie Karni describes two of the bills and their prospects.`\
-https://nytimes.com/video/us/politics/100000010718358/how-the-save-america-act-could-change-voting.html
 
