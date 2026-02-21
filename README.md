@@ -1,3 +1,7 @@
+**Adams returns from MCL injury for Bournemouth in World Cup boost for the USMNT**\
+`The U.S. midfielder returned to Bournemouth’s starting XI and played 65 minutes against West Ham.`\
+https://nytimes.com/athletic/7062490/2026/02/21/usmnt-tyler-adams-return-world-cup-bournemouth/
+
 **For Dutch speedskater, age doesn’t matter.**\
 `Jorrit Bergsma, a gold medalist back in 2014, is now 40. But he rolled back the years to win gold. `\
 https://nytimes.com/2026/02/21/world/speedskating-jordan-stolz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/world/middleeast/israel-strikes-lebanon-hezbollah
 **JPMorgan Admits It Shut Trump’s Accounts After Jan. 6 Capitol Attack**\
 `Nation’s largest bank, in response to a lawsuit filed by the president, confirmed his longstanding complaint about “debanking.”`\
 https://nytimes.com/2026/02/21/business/jpmorgan-trump-debanking.html
-
-**Games Briefing: High-stakes last day**\
-`This is the Games Briefing, The Athletic's daily Olympics newsletter. `\
-https://nytimes.com/athletic/7062413/2026/02/21/olympics-last-day-hockey-final-games-briefing/
 
