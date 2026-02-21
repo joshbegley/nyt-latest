@@ -1,3 +1,15 @@
+**Iran’s Students Hold Anti-Regime Protests as Universities Reopen**\
+`Students helped grow initial protests into a national movement crushed by the government. As the new semester began, they chanted and marched again.`\
+https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
+
+**Canada reclaims Olympic men's curling throne, beats Great Britain for gold**\
+`Canada returned to the top of men's curling, winning Olympic gold for the first time since 2014 — when Brad Jacobs was last the team's skip.`\
+https://nytimes.com/athletic/7062510/2026/02/21/winter-olympics-mens-curling-canada-great-britain-gold/
+
+**Sewage leaks into Yankees' clubhouse bathrooms, pools around stadium**\
+`“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
+https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-steinbrenner-field-spring-training/
+
 **Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
 `The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
 https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/

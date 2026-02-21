@@ -1,3 +1,15 @@
+**Iran’s Students Hold Anti-Regime Protests as Universities Reopen**\
+`Students helped grow initial protests into a national movement crushed by the government. As the new semester began, they chanted and marched again.`\
+https://nytimes.com/2026/02/21/world/middleeast/iran-student-protests.html
+
+**Canada reclaims Olympic men's curling throne, beats Great Britain for gold**\
+`Canada returned to the top of men's curling, winning Olympic gold for the first time since 2014 — when Brad Jacobs was last the team's skip.`\
+https://nytimes.com/athletic/7062510/2026/02/21/winter-olympics-mens-curling-canada-great-britain-gold/
+
+**Sewage leaks into Yankees' clubhouse bathrooms, pools around stadium**\
+`“It’s spring training for the toilets, too,” a Yankees spokesperson said.`\
+https://nytimes.com/athletic/7062645/2026/02/21/yankees-sewage-league-george-steinbrenner-field-spring-training/
+
 **Cam Smith was 'just a guy.' Now U.S. ski mountaineering's evangelist is among world's best**\
 `The U.S. team of Smith and Anna Gibson finished fourth out of 12 teams in the Winter Olympics debut of ski mountaineering mixed relay.`\
 https://nytimes.com/athletic/7062526/2026/02/21/cam-smith-ski-mountaineering-milan-cortina-olympics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7062571/2026/02/21/kansas-cincinnati-darryn-peterso
 **Trump’s Trade Gamble Will Continue, Despite Supreme Court Rebuke**\
 `The president seems as intent on tariffs as ever and argues that his trade agenda is succeeding, despite little evidence to support it`\
 https://nytimes.com/2026/02/21/business/economy/trump-tariffs-trade-war.html
-
-**How to watch Rockets vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062596/2026/02/21/rockets-vs-knicks-stream-how-to-watch-feb-21/
-
-**How to watch Texas Tech vs. Colorado women's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Lady Raiders play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062588/2026/02/21/texas-tech-vs-colorado-stream-how-to-watch-feb-21/
-
-**How to watch Pacific vs. Gonzaga men's basketball: Time, TV, streaming**\
-`Find out how to watch the Pacific Tigers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7062585/2026/02/21/pacific-vs-gonzaga-stream-how-to-watch-feb-21/
 
