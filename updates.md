@@ -1,3 +1,7 @@
+**Adams returns from MCL injury for Bournemouth in World Cup boost for the USMNT**\
+`The U.S. midfielder returned to Bournemouth’s starting XI and played 65 minutes against West Ham.`\
+https://nytimes.com/athletic/7062490/2026/02/21/usmnt-tyler-adams-return-world-cup-bournemouth/
+
 **For Dutch speedskater, age doesn’t matter.**\
 `Jorrit Bergsma, a gold medalist back in 2014, is now 40. But he rolled back the years to win gold. `\
 https://nytimes.com/2026/02/21/world/speedskating-jordan-stolz.html
