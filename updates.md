@@ -1,3 +1,7 @@
+**Who Is Not Funding This Antarctic Expedition?**\
+`Our climate reporter Raymond Zhong describes America’s shifting relationship with polar research amid the threat of rising sea levels.`\
+https://nytimes.com/video/climate/100000010696442/antarctica-expedition-funding-us.html
+
 **Bridge Owner Donated $1 Million to MAGA Inc. PAC Before Trump Blasted New Span**\
 `The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
 https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html

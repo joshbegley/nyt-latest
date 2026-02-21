@@ -1,3 +1,7 @@
+**Who Is Not Funding This Antarctic Expedition?**\
+`Our climate reporter Raymond Zhong describes America’s shifting relationship with polar research amid the threat of rising sea levels.`\
+https://nytimes.com/video/climate/100000010696442/antarctica-expedition-funding-us.html
+
 **Bridge Owner Donated $1 Million to MAGA Inc. PAC Before Trump Blasted New Span**\
 `The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
 https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061325/2026/02/20/air-force-coach-joe-scott-part-w
 **Trump Presses on With Tariffs Despite Court, and Court of Public Opinion**\
 `The president is plowing ahead with an unpopular policy after the Supreme Court’s rebuke, deepening his party’s risk in the midterm elections.`\
 https://nytimes.com/2026/02/20/us/politics/trump-tariffs-republicans-democrats-midterms.html
-
-**Con Men Posing as Lawyers and Judges Preyed on Immigrants, U.S. Says**\
-`Five Colombian citizens were charged with bilking people facing immigration proceedings by staging fake versions of those proceedings.`\
-https://nytimes.com/2026/02/20/nyregion/immigration-scam-new-york.html
 
