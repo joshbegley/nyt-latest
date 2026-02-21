@@ -1,3 +1,27 @@
+**'I will never hide': Brighton's Hurzeler welcomes criticism from fans**\
+`Hurzeler has come under fire from some supporters during a run of one win in 13 league games`\
+https://nytimes.com/athletic/7059682/2026/02/21/fabian-hurzeler-brighton-criticism-fans/
+
+**Mamdani Announces Plan to Enforce Time-Off Protections for N.Y.C. Workers**\
+`Ahead of a new worker protection law taking effect, Mayor Zohran Mamdani introduced the additional measures his administration will take to ensure employees get the time off they are owed.`\
+https://nytimes.com/2026/02/21/nyregion/mamdani-time-off-enforcement.html
+
+**N.J. Democrats Send Coarse but Clear Message to ICE With New Bill**\
+`New Jersey lawmakers have added some the state’s trademark in-your-face attitude to a measure that would expand residents’ ability to sue federal immigration officials.`\
+https://nytimes.com/2026/02/21/nyregion/new-jersey-democrats-ice-laws.html
+
+**How a Physical Therapist and a Retiree Live on $208,000 in Harlem**\
+`Charles and Marian Wade splurge on theater and music, but save on groceries by comparison shopping at three nearby supermarkets.`\
+https://nytimes.com/interactive/2026/02/21/nyregion/nyc-budgeting-affordability-wade.html
+
+**Will ICE Scare Some Fans Away From the World Cup?**\
+`The congresswoman representing the district where the final will be played asked the director of ICE about his plans. She was not encouraged by his response.`\
+https://nytimes.com/2026/02/21/nyregion/ice-world-cup-fans.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/21/crosswords/spelling-bee-forum.html
+
 **Newcastle attempting to trademark 'Howay the lads'**\
 `Opposition to Newcastle's application has been registered by another party, who are contesting the club's attempts to trademark the phrase.`\
 https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-trademark/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-wh
 **Eileen Gu, as told by her Stanford roommate: 'One of the smartest people I've ever met'**\
 `Eileen Gu's Stanford University roommate says the Olympian is 'no different' to the Gu seen on TV. `\
 https://nytimes.com/athletic/7059570/2026/02/21/eileen-gu-stanford-friends/
-
-**Talk of the Devils: Goalkeepers edition – Steele on Lammens' strong' start, what next for Vitek?**\
-`This week in our Talk of the Devils column — Eric Steele on what Lammens brings to United and the dilemma over Vitek`\
-https://nytimes.com/athletic/7055223/2026/02/21/manchester-united-goalkeepers-lammens-vitek/
-
-**Arsenal have faced six 'new' managers this season. How have they fared?**\
-`Igor Tudor will lead Tottenham Hotspur for the first time against Arsenal on Sunday. But the omens are good for Mikel Arteta's side`\
-https://nytimes.com/athletic/7054698/2026/02/21/arsenal-new-managers-tottenham-tudor/
-
-**Were you listening, Jose Mourinho? Vincent Kompany's 12-minute monologue on Vinicius and racism**\
-`The Bayern Munich coach delivered an impassioned and articulate speech that was highly critical of Mourinho's comments about Vinicius Jr`\
-https://nytimes.com/athletic/7056869/2026/02/21/kompany-speech-mourinho-vinicius-junior-racism/
-
-**The world champion aiming to take Eileen Gu's Olympic title is embracing her fear**\
-`As a child, Zoe Atkin was intimidated by the halfpipe. She has learned to embrace her fear.`\
-https://nytimes.com/athletic/7059863/2026/02/21/zoe-atkin-freeski-halfpipe-eileen-gu-winter-olympics-2026/
-
-**Explained: The Premier League medals you might not know about**\
-`Did you know that, since the summer of 2017, players have received medals for certain numbers of appearances, goals and clean sheets?`\
-https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-chelsea/
-
-**Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
-`The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special`\
-https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
 
