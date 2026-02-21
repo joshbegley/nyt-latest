@@ -1,3 +1,7 @@
+**Nine Bodies Recovered in Deadly Sierra Nevada Avalanche, Officials Say**\
+`A ninth victim who had been missing was found and recovered, officials said Saturday, from an avalanche that was the deadliest in modern California history.`\
+https://nytimes.com/2026/02/21/us/lake-tahoe-avalanche-victims-bodies-recovery.html
+
 **Cowboys, RB Javonte Williams agree to three-year contract: Sources**\
 `Getting Williams' deal done before the start of NFL free agency takes a major need off the board for the Dallas Cowboys.`\
 https://nytimes.com/athletic/7062761/2026/02/21/javonte-williams-cowboys-contract-nfl-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062658/2026/02/21/winter-olympics-kaillie-humphrie
 **It's raining goals at Wrexham. But the great entertainers must cut out the generosity**\
 `As pleasing on the eye as Wrexham's attacking was against Ipswich, some of their play at the other end was less palatable`\
 https://nytimes.com/athletic/7062281/2026/02/21/wrexham-goals-moore-windass-parkinson/
-
-**Vinicius Jr scores in first game since alleged racist abuse as Real lose to Osasuna**\
-`The Brazil international scored Real Madrid's only goal of the game and was whistled and taunted by Osasuna fans. `\
-https://nytimes.com/athletic/7062560/2026/02/21/vinicius-junior-racist-abuse-real-madrid-osasuna-benfica-news-update/
 
