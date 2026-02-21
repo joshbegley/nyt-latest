@@ -1,3 +1,7 @@
+**Spring training games have begun. These are the Blue Jays to watch**\
+`For these players, contributions to a Blue Jays team with postseason aspirations starts with how they perform in spring training. `\
+https://nytimes.com/athletic/7061371/2026/02/21/blue-jays-players-worth-watching-spring-training-mlb-2026/
+
 **North London Derby picks and markets: Tottenham underdogs against rivals Arsenal**\
 `What are the key stats that will inform the outcome of the north London derby, and what markets do they highlight value in?`\
 https://nytimes.com/athletic/7059713/2026/02/21/tottenham-v-arsenal-picks-and-markets-over-five-yellow-cards-and-solanke-to-score/
