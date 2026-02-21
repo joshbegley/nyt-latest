@@ -1,3 +1,7 @@
+**Problem With Artemis Rocket Is Likely to Delay NASA’s Moon Mission**\
+`An interruption in the flow of helium to the upper stage may require that the rocket be removed from the launchpad for repairs.`\
+https://nytimes.com/2026/02/21/science/nasa-artemis-helium-flaw.html
+
 **How to watch Illinois vs. UCLA men's basketball: Time, TV, streaming**\
 `Find out how to watch the Illinois Fighting Illini play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7062304/2026/02/21/illinois-vs-ucla-stream-how-to-watch-feb-21/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/7018149/2026/02/21/james-milner-premier-league-reco
 `Abraham's late goal rescued a point for Villa but their recent home form is worrying`\
 https://nytimes.com/athletic/7053319/2026/02/21/aston-villa-1-leeds-1-abraham-responds-to-stach-wondergoal-but-what-is-going-wrong-for-villa-at-home/
 
-**The Briefing: Chelsea 1 Burnley 1 - Indiscipline proves costly despite Joao Pedro form**\
+**The Briefing: Chelsea 1 Burnley 1 — How costly was Fofana's red card? Is Joao Pedro league's form striker?**\
 `Chelsea took their tally of points dropped from winning positions in the Premier League this season to a staggering 19.`\
 https://nytimes.com/athletic/7053321/2026/02/21/chelsea-1-burnley-1-fofana-joao-pedro/
-
-**Trump Says He Will Raise Global Tariff to 15 Percent**\
-`The move signaled that the president would press ahead with steep global tariffs despite the legal setback from the Supreme Court.`\
-https://nytimes.com/2026/02/21/business/trump-tariffs.html
 
