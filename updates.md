@@ -1,3 +1,7 @@
+**Charlie McAvoy’s Olympic diary: On the 'chance to make a dream come true' with gold medal**\
+`On the eve of Team USA's clash against Canada in the gold medal game, McAvoy reflects on his Olympic experience and his focus on the prize.`\
+https://nytimes.com/athletic/7062183/2026/02/21/charlie-mcavoy-olympics-team-usa-gold-medal/
+
 **Arsenal had 'heated' discussions after 'sickening' Wolves draw - Rice**\
 `The mid-week result leaves Arsenal five points clear at the top of the Premier League, having played a game more than Manchester City.`\
 https://nytimes.com/athletic/7062190/2026/02/21/arsenal-news-rice-tottenham-wolves-premier-league/
