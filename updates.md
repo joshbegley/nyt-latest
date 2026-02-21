@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 21, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
+
 **What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
 `Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
 https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/

@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 21, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
+
 **What to watch on Day 15 of Winter Olympics: Eileen Gu goes for gold, U.S. bobsledders chase medals**\
 `Medals will be up for grabs in 12 events on the second-to-last day of the Milan Cortina Winter Olympics.`\
 https://nytimes.com/athletic/7061087/2026/02/21/milan-cortina-winter-olympics-what-to-watch-day-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-che
 **The curious case of Divock Origi, the Champions League winner without a club**\
 `As two of his former clubs meet this weekend, it is almost two years since the Belgium forward played a match`\
 https://nytimes.com/athletic/7059930/2026/02/21/divock-origi-liverpool-nottingham-forest-milan-no-club/
-
-**Meet Maureen: She's cooked for more Premier League players than she can remember**\
-`Rio Ferdinand and Micah Richards both ate at the same Caribbean food shop in Leeds — many others have flocked to Maureen's since`\
-https://nytimes.com/athletic/7060313/2026/02/21/maureens-leeds-ferdinand-richards-caribbean-food/
 
