@@ -1,3 +1,7 @@
+**Johannes Høsflot Klæbo wins sixth gold, most ever in a single Winter Olympics**\
+`Klaebo became the winningest athlete at a single Winter Olympics, sweeping the men's cross-country golds in Italy.`\
+https://nytimes.com/athletic/7061867/2026/02/21/johannes-hosflot-klaebo-winter-olympics-sixth-gold-sweep-50km/
+
 **Have Canada's struggles tilted the odds in Team USA's favor for gold-medal game?**\
 `Canada is a small favorite against the United States in the men's hockey gold medal game at the Olympics.`\
 https://nytimes.com/athletic/7061198/2026/02/21/canada-usa-hockey-olympics-gold-medal-odds/

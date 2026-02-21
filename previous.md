@@ -1,3 +1,7 @@
+**Johannes Høsflot Klæbo wins sixth gold, most ever in a single Winter Olympics**\
+`Klaebo became the winningest athlete at a single Winter Olympics, sweeping the men's cross-country golds in Italy.`\
+https://nytimes.com/athletic/7061867/2026/02/21/johannes-hosflot-klaebo-winter-olympics-sixth-gold-sweep-50km/
+
 **Have Canada's struggles tilted the odds in Team USA's favor for gold-medal game?**\
 `Canada is a small favorite against the United States in the men's hockey gold medal game at the Olympics.`\
 https://nytimes.com/athletic/7061198/2026/02/21/canada-usa-hockey-olympics-gold-medal-odds/
@@ -22,19 +26,15 @@ https://nytimes.com/2026/02/21/opinion/andrew-arrest-epstein.html
 `If the nearly extinct hit-and-run play will ever have a renaissance, the Giants might be the team to do it.`\
 https://nytimes.com/athletic/7061564/2026/02/21/sf-giants-hit-and-run-luis-arraez-jung-hoo-lee/
 
-**‘A Cocked Pistol Aimed at Iran’**\
-`Three Opinion writers on Iran, Epstein and what power really looks like.`\
-https://nytimes.com/2026/02/21/opinion/iran-epstein-power.html
-
 **4 Big U.F.O. Questions for the White House**\
 `What a declassification effort could help us resolve.`\
 https://nytimes.com/2026/02/21/opinion/obama-trump-aliens.html
 
+**‘A Cocked Pistol Aimed at Iran’**\
+`Three Opinion writers on Iran, Epstein and what power really looks like.`\
+https://nytimes.com/2026/02/21/opinion/iran-epstein-power.html
+
 **What Trafficked Girls Think of Jeffrey Epstein and His Pals**\
 `Every year, more than 100,000 children may be sold for sex in the United States. Are we willing to do something about that?`\
 https://nytimes.com/2026/02/21/opinion/epstein-sex-trafficking.html
-
-**Shocker! SCOTUS Schools POTUS**\
-`The high court asserts itself as tariff sheriff.`\
-https://nytimes.com/2026/02/21/opinion/scotus-trump-tariffs-epstein.html
 
