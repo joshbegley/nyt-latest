@@ -1,3 +1,7 @@
+**Divide Among Supreme Court’s Conservatives Could Test Trump’s Agenda**\
+`In rejecting President Trump’s tariffs, the court’s six conservative justices displayed subtle differences in their views of executive power.`\
+https://nytimes.com/2026/02/21/us/politics/supreme-court-tariffs-conservatives.html
+
 **'We're playing to win': Clippers may not be contenders, but Tyronn Lue focuses on competing**\
 `After a close loss to the Lakers, Clippers coach Ty Lue lauded his team's effort: "We're gonna compete. We're going to fight every night."`\
 https://nytimes.com/athletic/7061762/2026/02/21/la-clippers-competitors-kawhi-leonard-ty-lue/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/business/dealbook/six-questions-trump-tariffs.htm
 **Jon Rahm's Ryder Cup future in question**\
 `Tyrrell Hatton and seven others agreed to terms with the DP World Tour in order to resolve issues related to playing for LIV.`\
 https://nytimes.com/athletic/7062037/2026/02/21/jon-rahm-ryder-cup-future-2027-dp-world-tour/
-
-**Tupac bobblehead shaping up to be Orioles' most anticipated giveaway ever**\
-`The team quickly ordered an additional 5,000 bobbleheads after seeing the level of interest they were generating. `\
-https://nytimes.com/athletic/7059315/2026/02/21/baltimore-orioles-tupac-shakur-bobblehead/
 
