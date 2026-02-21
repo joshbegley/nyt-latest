@@ -1,3 +1,7 @@
+**‘A Cocked Pistol Aimed at Iran’**\
+`Three Opinion writers on Iran, Epstein and what power really looks like.`\
+https://nytimes.com/video/opinion/100000010723999/a-cocked-pistol-aimed-at-iran.html
+
 **Austrian bobsled tips during Olympic race, team member apparently injured**\
 `An Austrian sled tipped over during Saturday's 4-man bobsled heats at the Olympics. One of the athletes required medical attention.`\
 https://nytimes.com/athletic/7061841/2026/02/21/winter-olympics-bobsled-tip-austria-jakob-mandlbauer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061828/2026/02/21/creighton-vs-st-john-s-stream-ho
 **How to watch Cincinnati vs. Kansas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bearcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7061826/2026/02/21/cincinnati-vs-kansas-stream-how-to-watch-feb-21/
-
-**How to watch Tennessee vs. Vanderbilt men's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7061824/2026/02/21/tennessee-vs-vanderbilt-stream-how-to-watch-feb-21/
 
