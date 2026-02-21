@@ -1,3 +1,7 @@
+**Trump Says He Will Raise Global Tariff to 15 Percent**\
+`The move signaled anew that the president would press ahead with his trade war despite the legal setback from the Supreme Court.`\
+https://nytimes.com/2026/02/21/business/trump-tariffs.html
+
 **Charlie McAvoy’s Olympic diary: On the 'chance to make a dream come true' with gold medal**\
 `On the eve of Team USA's clash against Canada in the gold medal game, McAvoy reflects on his Olympic experience and his focus on the prize.`\
 https://nytimes.com/athletic/7062183/2026/02/21/charlie-mcavoy-olympics-team-usa-gold-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/sports/baseball/bill-mazeroski-dead.html
 **A modern melodrama: Bundesliga club Frankfurt hit back at critic over 'penis video'**\
 `“Eintracht attack Kruse with penis video” ran a headline in German tabloid Bild on Saturday, as the club hit back at a vocal critic.`\
 https://nytimes.com/athletic/7062098/2026/02/21/eintracht-frankfurt-penis-video-max-kruse-x/
-
-**Lakers 'perfection' against the Clippers keeps everyone guessing on what's real and what's not**\
-`While it was a slim win over the Clippers, the Lakers hope to have "a consistent level of effort and execution" for their postseason push.`\
-https://nytimes.com/athletic/7061759/2026/02/21/lakers-vs-clippers-maximize-lebron-doncic-takeaways/
 
