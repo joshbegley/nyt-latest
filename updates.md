@@ -1,3 +1,7 @@
+**Bridge Owner Donated $1 Million to MAGA Inc. PAC Before Trump Blasted New Span**\
+`The PAC and the White House say the donation had nothing to do with President Trump’s tirade against a new bridge connecting Detroit and Windsor, Ontario.`\
+https://nytimes.com/2026/02/20/us/politics/trump-canada-bridge-maga-inc-donation.html
+
 **What I'm seeing at Dodgers camp: pitching progress, high expectations and more**\
 `Dave Roberts likes to operate in a state of endless optimism. He’d much rather praise a player than break him down.`\
 https://nytimes.com/athletic/7061342/2026/02/20/dodgers-spring-training-betts-yamamoto/
