@@ -1,3 +1,7 @@
+**Newcastle attempting to trademark 'Howay the lads'**\
+`Opposition to Newcastle's application has been registered by another party, who are contesting the club's attempts to trademark the phrase.`\
+https://nytimes.com/athletic/7060392/2026/02/21/newcastle-howay-the-lads-trademark/
+
 **The New York Times in Print for Saturday, Feb. 21, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/21/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060480/2026/02/21/premier-league-medals-awards-che
 **Playing in the Women's FA Cup was life-changing. What makes it so special could be at risk**\
 `The FA is considering removing seventh tier teams from the FA Cup. In doing so, they could hurt what makes the tournament so special.`\
 https://nytimes.com/athletic/7061691/2026/02/21/womens-fa-cup-uncertain-future-impact-community/
-
-**The curious case of Divock Origi, the Champions League winner without a club**\
-`As two of his former clubs meet this weekend, it is almost two years since the Belgium forward played a match`\
-https://nytimes.com/athletic/7059930/2026/02/21/divock-origi-liverpool-nottingham-forest-milan-no-club/
 
