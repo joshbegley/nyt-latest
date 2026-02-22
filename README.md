@@ -1,3 +1,7 @@
+**Denmark Rejects Trump’s Plan to Send Hospital Boat to Greenland**\
+`Denmark’s defense minister said Greenland did not need health care assistance, a day after President Trump said he planned to send a “great hospital boat” to the island.`\
+https://nytimes.com/2026/02/22/us/politics/trump-greenland-hospital-ship.html
+
 **You Can Bet on It**\
 `Today, a Morning writer explains how he became a grudging participant in the world of online gambling.`\
 https://nytimes.com/2026/02/22/briefing/prediction-market-bets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062095/2026/02/22/hamate-bone-mlb-injuries-francis
 **CFB rules committee to examine targeting, pants length punishments: Sources**\
 `The targeting penalty has drawn fans' ire since it was introduced in 2008. Uniform violations are a more recent concern for refs.`\
 https://nytimes.com/athletic/7062162/2026/02/22/targeting-suspensions-pants-length-ncaa-rules-changes/
-
-**Is This the Most Important Supreme Court Case of the Century?**\
-`The tariff ruling may have just helped save the Republic.`\
-https://nytimes.com/2026/02/22/opinion/tariffs-trump-supreme-court.html
 
