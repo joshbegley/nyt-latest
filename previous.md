@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
 `The result gives the Blue Devils the upper hand in securing the no. 1 overall seed in the upcoming 2026 NCAA Tournament. `\
 https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1-michigan-wolverines-basketball-2026/
 
-**Vikings receiver Rondale Moore dies at 25**\
+**Vikings receiver Rondale Moore found dead at 25**\
 `Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
 https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
 
