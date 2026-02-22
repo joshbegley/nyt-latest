@@ -1,3 +1,7 @@
+**Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
+`The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
+https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
+
 **Devotion at the Olympics**\
 `As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
 https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html

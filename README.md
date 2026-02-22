@@ -1,3 +1,7 @@
+**2026 BAFTA Film Awards: Looks From the Red Carpet**\
+`Stars have begun to arrive at the Royal Festival Hall in London for Britain’s biggest celebration of film.`\
+https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html
+
 **Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
 `The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
 https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
@@ -6,8 +10,8 @@ https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.h
 `As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
 https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html
 
-**Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
-`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at the president’s resort in Florida, the agency said. The president was not at the club at the time.`\
+**Armed Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
+`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at President Trump’s resort in Florida, the agency said. The president was not at the club at the time.`\
 https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
 
 **Brazilian soccer club apologises after player's sexist remarks**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063523/2026/02/22/sheffield-wednesday-efl-champion
 **Rockets’ struggles with adversity come to forefront again in collapse against Knicks**\
 `Late-game losses, Houston's Kevin Durant on Saturday, have occurred because "we don’t play with that dominant trait."`\
 https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks-nba/
-
-**This storm came as a surprise to many, including forecasters.**\
-`By Judson Jones and Erin McCann`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
 
