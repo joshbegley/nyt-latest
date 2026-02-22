@@ -1,3 +1,7 @@
+**Ronaldo reaffirms Al Nassr commitment: 'I belong to Saudi Arabia'**\
+`The 41-year-old said he wanted to stay at the Saudi Pro League side after a disagreement with the club saw him miss three games this month.`\
+https://nytimes.com/athletic/7063279/2026/02/22/cristiano-ronaldo-al-nassr-saudi-pro-league/
+
 **'I've been disappointed with my club' – Benfica, the team with the eyes of the world on it**\
 `The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
 https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/

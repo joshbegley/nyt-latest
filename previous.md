@@ -1,3 +1,7 @@
+**Ronaldo reaffirms Al Nassr commitment: 'I belong to Saudi Arabia'**\
+`The 41-year-old said he wanted to stay at the Saudi Pro League side after a disagreement with the club saw him miss three games this month.`\
+https://nytimes.com/athletic/7063279/2026/02/22/cristiano-ronaldo-al-nassr-saudi-pro-league/
+
 **New York Braces for Another Fierce Winter Storm**\
 `The storm was expected to hit much of the Northeast and coastal Mid-Atlantic region on Sunday, and could bring at least 13 to 18 inches of snow to the city, according to the National Weather Service.`\
 https://nytimes.com/2026/02/22/weather/new-york-braces-for-another-fierce-winter-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzze
 **What's next for USWNT and Chelsea striker Catarina Macario?**\
 `Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
 https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
-
-**Our Leaders Are Not Us**\
-`Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
-https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
 
