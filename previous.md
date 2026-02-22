@@ -1,3 +1,7 @@
+**Snoop Dogg isn't just a TV fixture. He's become the U.S. Olympic mayor**\
+`Snoop Dogg has become a fixture of NBC's Olympics coverage, making the rounds in Northern Italy to bring a little extra cheer for Team USA.`\
+https://nytimes.com/athletic/7062886/2026/02/22/snoop-dogg-winter-olympics-milan-cortina-nbc/
+
 **Sidney Crosby ruled out for Canada in gold medal game vs. Team USA**\
 `Crosby, who was injured in Canada's quarterfinal game on Wednesday, will not play in the gold medal game against the United States.`\
 https://nytimes.com/athletic/7063361/2026/02/22/sidney-crosby-injury-olympics-gold-medal-game-canada-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062785/2026/02/22/don-mattingly-phillies-coach-blu
 **What I'm seeing in Red Sox camp: New locker locations, Willson Contreras' intensity and more**\
 `How this camp feels different from a year ago, plus Sonny Gray's "veteran program" and an under-the-radar bench option.`\
 https://nytimes.com/athletic/7061349/2026/02/22/red-sox-spring-training-atmosphere-willson-contreras/
-
-**The Bible Tells Us to Love Immigrants**\
-`The biblical moral revolution was to love those not of one’s own land.`\
-https://nytimes.com/2026/02/22/opinion/immigrants-religion-bible-politics.html
 

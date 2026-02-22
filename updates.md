@@ -1,3 +1,7 @@
+**Snoop Dogg isn't just a TV fixture. He's become the U.S. Olympic mayor**\
+`Snoop Dogg has become a fixture of NBC's Olympics coverage, making the rounds in Northern Italy to bring a little extra cheer for Team USA.`\
+https://nytimes.com/athletic/7062886/2026/02/22/snoop-dogg-winter-olympics-milan-cortina-nbc/
+
 **Sidney Crosby ruled out for Canada in gold medal game vs. Team USA**\
 `Crosby, who was injured in Canada's quarterfinal game on Wednesday, will not play in the gold medal game against the United States.`\
 https://nytimes.com/athletic/7063361/2026/02/22/sidney-crosby-injury-olympics-gold-medal-game-canada-usa/
