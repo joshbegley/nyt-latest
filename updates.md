@@ -1,3 +1,11 @@
+**How to watch Wisconsin vs. UCLA women's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063754/2026/02/22/wisconsin-vs-ucla-stream-how-to-watch-feb-22/
+
+**How to watch Michigan State vs. Minnesota women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063752/2026/02/22/michigan-state-vs-minnesota-stream-how-to-watch-feb-22/
+
 **USA wins Olympic gold in thrilling men's hockey final against Canada**\
 `Forty-six years after the United States won its last men’s hockey gold medal at the Olympics, the U.S. has reached the top of the mountain.`\
 https://nytimes.com/athletic/7063381/2026/02/22/usa-olympics-mens-hockey-gold-medal-win-canada-takeaways/
