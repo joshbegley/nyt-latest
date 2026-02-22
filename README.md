@@ -1,3 +1,11 @@
+**How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
+
+**Iran Could Direct Proxies to Attack U.S. Targets Abroad, Officials Warn**\
+`Security officials are monitoring increasingly worrisome signs as President Trump considers another military campaign against Iran.`\
+https://nytimes.com/2026/02/22/us/politics/iran-terrorist-attacks-proxies-trump.html
+
 **The Case for Striking Iran**\
 `The Iranian people should not be let down again.`\
 https://nytimes.com/2026/02/22/opinion/iran-military-strike-trump.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/7063963/2026/02/22/usa-gold-medal-olympics-hockey-c
 **The Briefing: Tottenham 1 Arsenal 4 – Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
 `Mikel Arteta's side breathed fresh life into their title pursuit with a comprehensive victory in the north London derby`\
 https://nytimes.com/athletic/7054733/2026/02/22/tottenham-1-arsenal-4-gyokeres-eze-rice/
-
-**Photos of more than 200 gold medalists in the 2026 Winter Olympics**\
-`<p>Here you’ll find photos of every gold medalist at the 2026 Winter Olympics — more than two hundred athletes who competed across 16 sports and 116 events in the Milan Cortina Games.</p>
-`\
-https://nytimes.com/athletic/7057627/2026/02/22/photos-of-more-than-200-gold-medalists-in-the-2026-winter-olympics/
-
-**Angels players, MLBPA 'took notice' when Arte Moreno suggested fans don't prioritize winning**\
-`“If you can’t have a successful operation in Los Angeles, it’s hard to see what the problem is," said MLBPA director Bruce Meyer.`\
-https://nytimes.com/athletic/7063931/2026/02/22/arte-moreno-comments-winning-angels-players-union/
 
