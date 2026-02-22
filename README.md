@@ -1,3 +1,7 @@
+**New York City Faces Its Second Big Storm in Weeks**\
+`The storm in late January was bad enough. This one is bringing true blizzard conditions, and the city has stepped up its response.`\
+https://nytimes.com/2026/02/22/weather/storm-nyc-preparations-mamdani.html
+
 **Remains Believed to Be St. Francis’ Are on Rare Public Display**\
 `The bones of St. Francis, preserved in a nitrogen-filled plexiglass case, were shown to the public just once, briefly, in 1978.`\
 https://nytimes.com/video/world/europe/100000010729128/italy-assisi-st-francis.html
@@ -34,8 +38,4 @@ https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/ahead-of-the-storm-a
 `From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
 `\
 https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
-
-**Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
-`The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
-https://nytimes.com/2026/02/22/us/politics/trump-iran-strike-attack.html
 
