@@ -2,7 +2,7 @@
 `Kash Patel’s trip to Italy came at a fraught and frenetic time for the bureau and Mr. Patel, who has shown little willingness to curb his jet-setting.`\
 https://nytimes.com/2026/02/22/us/politics/fbi-director-patel-olympics-mar-a-lago.html
 
-**Olympic difference-making moments will feel heavy, but hockey in Canada is more than fine**\
+**The gold medal loss will linger, but there's no hockey crisis in Canada**\
 `Canada's loss in the gold medal game is a source of national disappointment, but the state of the game in Canada should not be questioned.`\
 https://nytimes.com/athletic/7064014/2026/02/22/team-canada-olympics-mens-hockey-gold-medal-mackinnon/
 
