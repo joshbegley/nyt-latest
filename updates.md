@@ -1,3 +1,11 @@
+**Brandon Nimmo on his Mets departure, his leadership style and his Rangers future**\
+`Nimmo opened up about his bond with Steve Cohen, the clubhouse dynamic with Francisco Lindor and his new role as a mentor in Texas. `\
+https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade/
+
+**New York City Public Schools Will Have a Snow Day on Monday**\
+`Mayor Zohran Mamdani said that no remote classes would be held. The last official snow day in the city’s schools was in March 2019.`\
+https://nytimes.com/2026/02/22/nyregion/nyc-schools-closed-monday-snow-day.html
+
 **Pep Guardiola said Newcastle are a 'nightmare' but how can they actually beat Man City in FA Cup?**\
 `The Athletic analyses what Howe must change over the next fortnight if Newcastle are to get a result against City on March 7`\
 https://nytimes.com/athletic/7062160/2026/02/22/newcastle-man-city-nightmatre-improve/
