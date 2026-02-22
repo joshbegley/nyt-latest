@@ -1,3 +1,11 @@
+**Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
+`The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
+https://nytimes.com/2026/02/22/us/politics/trump-considers-targeted-strike-against-iran-followed-by-larger-attack.html
+
+**Courting China Again**\
+`The German chancellor will travel to Beijing this week, the latest high-level visitor as Western countries pivot back to China.`\
+https://nytimes.com/2026/02/22/world/china-germany-diplomacy-trump-tariffs-mexico.html
+
 **Offline and off the ice, Canadians and Americans are getting along just fine**\
 `The hockey was great when the U.S. and Canada played for gold, topped only by the good spirit in the crowd.`\
 https://nytimes.com/athletic/7064172/2026/02/22/usa-hockey-canada-politics/

@@ -1,3 +1,12 @@
+**Ahead of the storm, a coyote took shelter at a Manhattan ice rink.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/ahead-of-the-storm-a-coyote-took-shelter-at-a-manhattan-ice-rink
+
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
 **Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
 `The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
 https://nytimes.com/2026/02/22/us/politics/trump-considers-targeted-strike-against-iran-followed-by-larger-attack.html
@@ -29,12 +38,4 @@ https://nytimes.com/2026/02/22/movies/baftas-2026.html
 **USA's gold medal is no 'Miracle on Ice' — but its impact on the nation could be the same**\
 `The Americans' gold-medal win helps USA Hockey turn the page on that 1980 story and inspire a new generation of U.S. fans and players.`\
 https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-on-ice/
-
-**Warriors' Kristaps Porziņģis, Draymond Green out vs. Nuggets**\
-`Porziņģis was declared out with an undisclosed illness earlier Sunday. Green was scratched before the opening tip with a lower back issue.`\
-https://nytimes.com/athletic/7064179/2026/02/22/draymond-green-kristaps-porzingis-warriors-nuggets-nba/
-
-**During a cold snap earlier this year, 20 New Yorkers didn’t survive.**\
-`Last month’s snowstorm was follow by 18 days of bone-chilling weather. The New York Times dug into the stories of those who died.`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/during-a-cold-snap-earlier-this-year-20-new-yorkers-didnt-survive
 
