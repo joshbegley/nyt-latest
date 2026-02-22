@@ -1,3 +1,7 @@
+**College basketball observations: OK, now who's the No. 1 overall seed?**\
+`After a wild Saturday, it's a delightful question to consider as March Madness draws near: Are we sure we know which team is best?`\
+https://nytimes.com/athletic/7063179/2026/02/22/college-basketball-results-arizona-duke-michigan/
+
 **Eileen Gu defends Olympic gold in women’s freeski halfpipe**\
 `Gu further cements her legacy as the most decorated women’s freestyle skier in history.`\
 https://nytimes.com/athletic/7063380/2026/02/22/eileen-gu-olympics-gold-womens-freeski-halfpipe/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/here-is-the-latest
 **Here’s What to Know About This Winter Storm Forecast**\
 `Boston and New York were bracing for a punishing mix of heavy snow and strong winds that will bring blizzard conditions. “Stay home and stay inside,” forecasters said.`\
 https://nytimes.com/2026/02/22/weather/noreaster-forecast.html
-
-**Live Updates: Major Winter Storm Takes Aim at the East Coast**\
-`The storm, which is expected to pummel the Northeast and Mid-Atlantic regions through Monday, could bring 20 inches or more of snow to New York City.`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow
 
