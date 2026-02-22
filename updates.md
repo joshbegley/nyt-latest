@@ -1,3 +1,11 @@
+**You Can Bet on It**\
+`Today, a Morning writer explains how he became a grudging participant in the world of online gambling.`\
+https://nytimes.com/2026/02/22/briefing/prediction-market-bets.html
+
+**The Pulse: The state of MLS**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7063223/2026/02/22/the-state-of-mls-plus-duke-impresses-and-a-monster-hockey-finale/
+
 **Snoop Dogg isn't just a TV fixture. He's become the U.S. Olympic mayor**\
 `Snoop Dogg has become a fixture of NBC's Olympics coverage, making the rounds in Northern Italy to bring a little extra cheer for Team USA.`\
 https://nytimes.com/athletic/7062886/2026/02/22/snoop-dogg-winter-olympics-milan-cortina-nbc/
