@@ -1,3 +1,19 @@
+**Kristaps Porziņģis out vs. Nuggets with illness**\
+`Warriors coach Steve Kerr said it's unclear whether Porziņģis will travel during the team's upcoming two-game trip.`\
+https://nytimes.com/athletic/7064179/2026/02/22/kristaps-porzingis-illness-warriors-nuggets-nba/
+
+**During a cold snap earlier this year, 20 New Yorkers didn’t survive.**\
+`Last month’s snowstorm was follow by 18 days of bone-chilling weather. The New York Times dug into the stories of those who died.`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/during-a-cold-snap-earlier-this-year-20-new-yorkers-didnt-survive
+
+**Israel withdraws Olympic bobsled team after members lied to doctors**\
+`The Israelis took part in the first two heats of the competition on Saturday, but it was the slowest sled to complete both runs.`\
+https://nytimes.com/athletic/7064168/2026/02/22/olympics-israel-withdraws-bobsled-team/
+
+**Hunter College to Review Professor’s ‘Abhorrent’ Remarks at Meeting**\
+`A student objected to the potential closure of her New York City middle school. The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school.” The comment was assailed as racist.`\
+https://nytimes.com/2026/02/22/nyregion/hunter-college-professor-remarks-students.html
+
 **Iowa puts clamps down on Michigan for signature victory**\
 `The gritty victory boosted Iowa's hopes of hosting games in the first two rounds of the NCAA Tournament.`\
 https://nytimes.com/athletic/7064004/2026/02/22/iowa-michigan-womens-basketball-win/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7063360/2026/02/22/pep-guardiola-manchester-city-wi
 **When Faced With Claims of Racism, Trump Points to His Black Friends**\
 `President Trump has often invoked his unnamed Black friends, or name-checked celebrities and athletes, when asked to discuss anything related to Black voters.`\
 https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
-
-**How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
-`The American men's hockey team paid tribute to the late Gaudreau brothers when they got their gold medals on Sunday.`\
-https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
-
-**President Donald Trump calls U.S. men's Olympic hockey team after gold-medal win**\
-`It's unclear whether players will visit with Trump before the NHL season resumes.`\
-https://nytimes.com/athletic/7064047/2026/02/22/trump-usa-hockey-call-gold-medal/
-
-**NJ Transit Will Suspend Service as Storm Disrupts Monday Commute**\
-`Other transit agencies, including the Long Island Rail Road and Metro-North, were adjusting their schedules starting Sunday evening because of the winter storm.`\
-https://nytimes.com/2026/02/22/weather/public-transit-storm-monday.html
-
-**12 Unforgettable Looks at the BAFTAs**\
-`Swishy suits, mermaid skirts, skunk feet and more.`\
-https://nytimes.com/2026/02/22/style/bafta-2026-awards-red-carpet-looks.html
 
