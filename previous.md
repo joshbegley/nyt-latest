@@ -1,3 +1,27 @@
+**Our 26 favorite gold-medal moments from the 2026 Milan Cortina games**\
+`A look back at our favorite podium-topping moments from the 2026 Games, with at least one for every sport.`\
+https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-moments/
+
+**MLS reviewing incident after video appears to show Messi trying to confront referee**\
+`After Inter Miami's 3-0 defeat to LAFC, Luis Suárez, Messi’s longtime friend and teammate, appeared to try restrain Messi.`\
+https://nytimes.com/athletic/7063757/2026/02/22/lionel-messi-mls-referees-incident/
+
+**Games Briefing: Olympics' final day lives up to hype**\
+`This is the Games Briefing, The Athletic's daily Olympics newsletter.`\
+https://nytimes.com/athletic/7063789/2026/02/22/olympics-usa-mens-hockey-gold-games-briefing/
+
+**Slot hopeful Wirtz will return for Liverpool next week after back issue**\
+`The Germany international was named in the starting line-up against Nottingham Forest but was forced to withdraw before kick-off. `\
+https://nytimes.com/athletic/7063804/2026/02/22/florian-wirtz-liverpool-back-injury-update/
+
+**Trump Aides Project Confidence on Tariffs After Court Loss**\
+`Administration officials maintain that they can replicate the sky-high duties recently invalidated by the Supreme Court.`\
+https://nytimes.com/2026/02/22/business/trump-administration-tariffs-supreme-court-loss.html
+
+**See the Storm Take Shape From Space**\
+`Early Sunday, the storm was a comma-shaped swirl off the Carolinas.`\
+https://nytimes.com/2026/02/22/weather/nyc-noreaster-space-satellite.html
+
 **How to watch 76ers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063784/2026/02/22/76ers-vs-timberwolves-stream-how-to-watch-feb-22/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7063675/2026/02/22/joe-ryan-twins-pitcher-mri-mlb/
 **How to watch Mavericks vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063777/2026/02/22/mavericks-vs-pacers-stream-how-to-watch-feb-22/
-
-**How to watch Celtics vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063769/2026/02/22/celtics-vs-lakers-stream-how-to-watch-feb-22/
-
-**The Briefing: Forest 0 Liverpool 1 - Late Mac Allister winner after elbow goal ruled out, but was this worst first half of season?**\
-`Liverpool needed a 97th-minute winner from the Argentinian to seal three points against Forest after a disappointing performance`\
-https://nytimes.com/athletic/7054732/2026/02/22/liverpool-mac-allister-goal-winner-forest-salah/
-
-**How to watch Wisconsin vs. UCLA women's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063754/2026/02/22/wisconsin-vs-ucla-stream-how-to-watch-feb-22/
-
-**How to watch Michigan State vs. Minnesota women's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063752/2026/02/22/michigan-state-vs-minnesota-stream-how-to-watch-feb-22/
-
-**USA wins Olympic gold in thrilling men's hockey final against Canada**\
-`Forty-six years after the United States won its last men’s hockey gold medal at the Olympics, the U.S. has reached the top of the mountain.`\
-https://nytimes.com/athletic/7063381/2026/02/22/usa-olympics-mens-hockey-gold-medal-win-canada-takeaways/
-
-**Supersmart Sheet-Pan Charred Meat Pitas**\
-`They come together quickly, and if you make the meat mixture today, you can spread and broil it on the bread tomorrow for a 15-minute dinner.`\
-https://nytimes.com/2026/02/22/dining/supersmart-sheet-pan-charred-meat-pitas.html
 

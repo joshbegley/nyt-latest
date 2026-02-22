@@ -1,3 +1,27 @@
+**Our 26 favorite gold-medal moments from the 2026 Milan Cortina games**\
+`A look back at our favorite podium-topping moments from the 2026 Games, with at least one for every sport.`\
+https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-moments/
+
+**MLS reviewing incident after video appears to show Messi trying to confront referee**\
+`After Inter Miami's 3-0 defeat to LAFC, Luis Suárez, Messi’s longtime friend and teammate, appeared to try restrain Messi.`\
+https://nytimes.com/athletic/7063757/2026/02/22/lionel-messi-mls-referees-incident/
+
+**Games Briefing: Olympics' final day lives up to hype**\
+`This is the Games Briefing, The Athletic's daily Olympics newsletter.`\
+https://nytimes.com/athletic/7063789/2026/02/22/olympics-usa-mens-hockey-gold-games-briefing/
+
+**Slot hopeful Wirtz will return for Liverpool next week after back issue**\
+`The Germany international was named in the starting line-up against Nottingham Forest but was forced to withdraw before kick-off. `\
+https://nytimes.com/athletic/7063804/2026/02/22/florian-wirtz-liverpool-back-injury-update/
+
+**Trump Aides Project Confidence on Tariffs After Court Loss**\
+`Administration officials maintain that they can replicate the sky-high duties recently invalidated by the Supreme Court.`\
+https://nytimes.com/2026/02/22/business/trump-administration-tariffs-supreme-court-loss.html
+
+**See the Storm Take Shape From Space**\
+`Early Sunday, the storm was a comma-shaped swirl off the Carolinas.`\
+https://nytimes.com/2026/02/22/weather/nyc-noreaster-space-satellite.html
+
 **The Briefing: Forest 0 Liverpool 1 - Late Mac Allister winner after elbow goal ruled out, but was this worst first half of season?**\
 `Liverpool needed a 97th-minute winner from the Argentinian to seal three points against Forest after a disappointing performance`\
 https://nytimes.com/athletic/7054732/2026/02/22/liverpool-mac-allister-goal-winner-forest-salah/
