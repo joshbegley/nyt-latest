@@ -1,3 +1,7 @@
+**Eileen Gu defends Olympic gold in women’s freeski halfpipe**\
+`Gu further cements her legacy as the most decorated women’s freestyle skier in history.`\
+https://nytimes.com/athletic/7063380/2026/02/22/eileen-gu-olympics-gold-womens-freeski-halfpipe/
+
 **Inside Cubs camp: How elite talent, data and discipline are shaping spring training**\
 `At Cubs camp, every swing, throw and step is measured, revealing how preparation and precision define success.`\
 https://nytimes.com/athletic/7062438/2026/02/22/cubs-spring-training-alex-bregman-technology-jaxon-wiggins-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/weather/noreaster-forecast.html
 **Live Updates: Major Winter Storm Takes Aim at the East Coast**\
 `The storm, which is expected to pummel the Northeast and Mid-Atlantic regions through Monday, could bring 20 inches or more of snow to New York City.`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow
-
-**How to watch the Winter Olympics closing ceremony: Streaming, performers and theme**\
-`The Winter Games have reached their conclusion. The closing ceremony honors the spirit of the Olympics from the historic Verona Arena. `\
-https://nytimes.com/athletic/7062551/2026/02/22/winter-olympics-closing-ceremony-how-to-watch-2026/
 
