@@ -1,3 +1,15 @@
+**Tyrese Haliburton diagnosed with shingles, away from Pacers for at least 2-3 weeks**\
+`Sunday’s news is a continuation of what has already been a rough eight months for Haliburton.`\
+https://nytimes.com/athletic/7064474/2026/02/22/tyrese-haliburton-shingles-pacers-nba/
+
+**Showed Again**\
+`Hannah Binney returns with another Monday puzzle.`\
+https://nytimes.com/2026/02/22/crosswords/daily-puzzle-2026-02-23.html
+
+**‘Marcel on the Train’ Review: A Famous Mime’s Little-Known Back Story**\
+`This bio play about Marcel Marceau, which delves into his part in the French Resistance, stars Ethan Slater (yes, that’s Boq from the “Wicked” movies).`\
+https://nytimes.com/2026/02/22/theater/marcel-on-the-train-review-marceau-ethan-slater.html
+
 **Willie Colón Played Up the Bad Guy With Purpose**\
 `By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón, the legend of salsa music who died on Saturday, crafted an everlasting image.`\
 https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html

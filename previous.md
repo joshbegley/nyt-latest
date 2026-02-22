@@ -1,3 +1,15 @@
+**Tyrese Haliburton diagnosed with shingles, away from Pacers for at least 2-3 weeks**\
+`Sunday’s news is a continuation of what has already been a rough eight months for Haliburton.`\
+https://nytimes.com/athletic/7064474/2026/02/22/tyrese-haliburton-shingles-pacers-nba/
+
+**Showed Again**\
+`Hannah Binney returns with another Monday puzzle.`\
+https://nytimes.com/2026/02/22/crosswords/daily-puzzle-2026-02-23.html
+
+**‘Marcel on the Train’ Review: A Famous Mime’s Little-Known Back Story**\
+`This bio play about Marcel Marceau, which delves into his part in the French Resistance, stars Ethan Slater (yes, that’s Boq from the “Wicked” movies).`\
+https://nytimes.com/2026/02/22/theater/marcel-on-the-train-review-marceau-ethan-slater.html
+
 **Willie Colón Played Up the Bad Guy With Purpose**\
 `By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón, the legend of salsa music who died on Saturday, crafted an everlasting image.`\
 https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/22/us/politics/fbi-director-patel-olympics-mar-a-lag
 **The gold medal loss will linger, but there's no hockey crisis in Canada**\
 `Canada's loss in the gold medal game is a source of national disappointment, but the state of the game in Canada should not be questioned.`\
 https://nytimes.com/athletic/7064014/2026/02/22/team-canada-olympics-mens-hockey-gold-medal-mackinnon/
-
-**Norman Francis, Who Led Xavier University Into a New Era, Dies at 94**\
-`He was America’s longest-serving college president, with 47 years of service, by the time he retired in 2015.`\
-https://nytimes.com/2026/02/22/us/norman-francis-dead.html
-
-**N.C. Man Shot and Killed at Mar-a-Lago Liked to Draw Golf Courses**\
-`The 21-year-old man was killed by law enforcement officers after he entered Mar-a-Lago with a weapon.`\
-https://nytimes.com/2026/02/22/us/north-carolina-man-killed-mar-a-lago.html
-
-**What 3 Olympic gold medals mean for Wild stretch run: 'They got a taste of winning'**\
-`While Quinn Hughes, Brock Faber and Matt Boldy were playing for Olympic gold, their Wild teammates were just as excited.`\
-https://nytimes.com/athletic/7064210/2026/02/22/minnesota-wild-olympics-usa-gold-medal-playoffs/
 
