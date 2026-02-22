@@ -1,3 +1,11 @@
+**Former FIFA chief Blatter criticises World Cup format, says U.S. has too many matches**\
+`Blatter also said that the relationship between President Trump and FIFA's Gianni Infantino "changed the game" for the tournament.`\
+https://nytimes.com/athletic/7063393/2026/02/22/sepp-blatter-fifa-world-cup-united-states/
+
+**Guardians agree to minor-league deal with Rhys Hoskins: Sources**\
+`The first baseman, who still needs to pass a physical, can earn a $1.5 million base salary if he makes Cleveland's major-league roster.`\
+https://nytimes.com/athletic/6836463/2026/02/22/mlb-rhys-hoskins-free-agency-signing-guardians/
+
 **2026 BAFTA Film Awards: Looks From the Red Carpet**\
 `Stars have begun to arrive at the Royal Festival Hall in London for Britain’s biggest celebration of film.`\
 https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html

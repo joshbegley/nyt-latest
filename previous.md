@@ -1,3 +1,11 @@
+**Former FIFA chief Blatter criticises World Cup format, says U.S. has too many matches**\
+`Blatter also said that the relationship between President Trump and FIFA's Gianni Infantino "changed the game" for the tournament.`\
+https://nytimes.com/athletic/7063393/2026/02/22/sepp-blatter-fifa-world-cup-united-states/
+
+**Guardians agree to minor-league deal with Rhys Hoskins: Sources**\
+`The first baseman, who still needs to pass a physical, can earn a $1.5 million base salary if he makes Cleveland's major-league roster.`\
+https://nytimes.com/athletic/6836463/2026/02/22/mlb-rhys-hoskins-free-agency-signing-guardians/
+
 **2026 BAFTA Film Awards: Looks From the Red Carpet**\
 `Stars have begun to arrive at the Royal Festival Hall in London for Britain’s biggest celebration of film.`\
 https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/22/opinion/men-prison-pardons.html
 **The Many Gifts of Kidney Donation**\
 `Readers respond to an Opinion essay by German Lopez about his decision to become a living kidney donor.`\
 https://nytimes.com/2026/02/22/opinion/kidney-donation.html
-
-**Sheffield Wednesday suffer earliest relegation in EFL history**\
-`The Championship club's defeat to city rivals Sheffield United has left them on minus seven points, 41 from safety. `\
-https://nytimes.com/athletic/7063523/2026/02/22/sheffield-wednesday-efl-championship-earliest-relegation/
-
-**Rockets’ struggles with adversity come to forefront again in collapse against Knicks**\
-`Late-game losses, Houston's Kevin Durant on Saturday, have occurred because "we don’t play with that dominant trait."`\
-https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks-nba/
 
