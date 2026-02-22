@@ -1,3 +1,7 @@
+**What's next for USWNT and Chelsea striker Catarina Macario?**\
+`Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
+https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
+
 **Our Leaders Are Not Us**\
 `Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
 https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062010/2026/02/22/hardest-coaching-job-world-sport
 **Spurs vs Arsenal: Can Tudor frustrate Arteta? Our writers have their say**\
 `Could Tottenham's change of manager inspire an upset that would blow the Premier League title race wide open?`\
 https://nytimes.com/athletic/7061781/2026/02/22/spurs-arsenal-tudor-arteta-preview-predictions/
-
-**How Manchester United's analysts are helping Michael Carrick with more than just set pieces**\
-`Sitting in the stands with laptops and a direct line to the dugout, what role do the first-team analysts play?`\
-https://nytimes.com/athletic/7059416/2026/02/22/manchester-united-analysts/
 

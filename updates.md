@@ -1,3 +1,7 @@
+**What's next for USWNT and Chelsea striker Catarina Macario?**\
+`Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
+https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
+
 **Our Leaders Are Not Us**\
 `Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
 https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
