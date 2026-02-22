@@ -1,3 +1,15 @@
+**What is the hardest coaching job in world sport? Our reader rankings revealed**\
+`Real Madrid? The New York Yankees? The England men's football job? Which role did you vote for as the hardest in world sport?`\
+https://nytimes.com/athletic/7062010/2026/02/22/hardest-coaching-job-world-sport-rankings/
+
+**Spurs vs Arsenal: Can Tudor frustrate Arteta? Our writers have their say**\
+`Could Tottenham's change of manager inspire an upset that would blow the Premier League title race wide open?`\
+https://nytimes.com/athletic/7061781/2026/02/22/spurs-arsenal-tudor-arteta-preview-predictions/
+
+**Academy aftercare: How football is helping young players after they are released**\
+`Only a tiny percentage of academy players will become professionals — and dealing with that reality can be a traumatic experience `\
+https://nytimes.com/athletic/7023682/2026/02/22/academy-aftercare-football-mental-health/
+
 **Aston Villa have the Premier League's 'easiest' run-in — but it's not so simple**\
 `Aston Villa have a statistically favourable fixture list, but their draw against Leeds demonstrated how that doesn't tell the whole story`\
 https://nytimes.com/athletic/7061964/2026/02/22/aston-villa-premier-league-run-in-stats/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/22/world/asia/japan-ai-politics-election.html
 **After Battling on Ice and Snow, Athletes Face a New Test: Post-Olympics Blues**\
 `“It just goes by so quick,” one speedskater said. Some Olympic officials are trying to help competitors better navigate the aftermath of elite competition.`\
 https://nytimes.com/2026/02/22/sports/athletes-post-winter-olympics-blues.html
-
-**Rose Byrne Can, and Does, Do It All**\
-`An Oscar nominee for a movie in which everything crashes down on her (literally), Byrne is shifting gears with the Broadway comedy “Fallen Angels.”`\
-https://nytimes.com/2026/02/22/theater/rose-byrne-oscars-fallen-angels-broadway.html
-
-**The Ex-Taxi Driver at the Center of Russia’s Shadow War**\
-`The Kremlin’s sabotage campaign against European allies of Ukraine has been escalating. It needs people like Aleksei Kolosovsky, 42, to carry it out.`\
-https://nytimes.com/2026/02/22/world/europe/russia-sabotage-europe.html
-
-**How Do Snowboarders Reach Those Heights? Meet Their Invisible Army of Technicians.**\
-`In snowboarding, preparation for events begins weeks before the Games. `\
-https://nytimes.com/card/2026/02/22/world/olympic-snowboarders-jump-heights-tech-crew
 
