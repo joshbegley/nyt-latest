@@ -1,3 +1,15 @@
+**Our Leaders Are Not Us**\
+`Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
+https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
+
+**Ukraine Has Passed a Point of No Return**\
+`Four years that changed everything.`\
+https://nytimes.com/2026/02/22/opinion/ukraine-russia-war-four-years.html
+
+**The New York Times in Print for Sunday, Feb. 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/22/todays-new-york-times
+
 **Inside Iran’s Preparation for War and Plans for Survival**\
 `Supreme Leader Ayatollah Ali Khamenei has entrusted Ali Larijani, the top national security official, to ensure the Islamic Republic endures possible war and assassination.`\
 https://nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7061781/2026/02/22/spurs-arsenal-tudor-arteta-previ
 **How Manchester United's analysts are helping Michael Carrick with more than just set pieces**\
 `Sitting in the stands with laptops and a direct line to the dugout, what role do the first-team analysts play?`\
 https://nytimes.com/athletic/7059416/2026/02/22/manchester-united-analysts/
-
-**Academy aftercare: How football is helping young players after they are released**\
-`Only a tiny percentage of academy players will become professionals — and dealing with that reality can be a traumatic experience `\
-https://nytimes.com/athletic/7023682/2026/02/22/academy-aftercare-football-mental-health/
-
-**Aston Villa have the Premier League's 'easiest' run-in — but it's not so simple**\
-`Aston Villa have a statistically favourable fixture list, but their draw against Leeds demonstrated how that doesn't tell the whole story`\
-https://nytimes.com/athletic/7061964/2026/02/22/aston-villa-premier-league-run-in-stats/
-
-**Why Chelsea have 'set fire' to 17 points from winning positions at Stamford Bridge**\
-`"I'm learning about the players. I'm learning about the people you can lean on." said Rosenior`\
-https://nytimes.com/athletic/7062764/2026/02/22/chelsea-17-points-lost/
 
