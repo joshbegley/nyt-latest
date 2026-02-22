@@ -1,3 +1,7 @@
+**Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
+
 **Map: 7.1-Magnitude Earthquake Shakes the South China Sea**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/02/22/world/quake-tracker-malaysia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063804/2026/02/22/florian-wirtz-liverpool-back-inj
 **Trump Aides Project Confidence on Tariffs After Court Loss**\
 `Administration officials maintain that they can replicate the sky-high duties recently invalidated by the Supreme Court.`\
 https://nytimes.com/2026/02/22/business/trump-administration-tariffs-supreme-court-loss.html
-
-**See the Storm Take Shape From Space**\
-`Early Sunday, the storm was a comma-shaped swirl off the Carolinas.`\
-https://nytimes.com/2026/02/22/weather/nyc-noreaster-space-satellite.html
 
