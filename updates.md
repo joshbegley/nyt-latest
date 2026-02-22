@@ -1,3 +1,15 @@
+**Willie Colón Played Up the Bad Guy With Purpose**\
+`By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón crafted an everlasting image.`\
+https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
+
+**Here Are the Rare Instances of Fatal Shootings by the Secret Service**\
+`Sunday’s shooting of an armed man at President Trump’s Florida club is one of only a handful of fatal encounters that the agency has had in its 160-year history.`\
+https://nytimes.com/2026/02/22/us/politics/secret-service-fatal-shootings.html
+
+**New York City Faces Its Second Big Storm in Weeks**\
+`The storm in late January was bad enough. This one is bringing true blizzard conditions, and the city has stepped up its response.`\
+https://nytimes.com/2026/02/22/weather/storm-nyc-preparations-mamdani.html
+
 **Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
 `From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
 `\

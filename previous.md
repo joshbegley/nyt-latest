@@ -1,3 +1,15 @@
+**Willie Colón Played Up the Bad Guy With Purpose**\
+`By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón crafted an everlasting image.`\
+https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
+
+**Here Are the Rare Instances of Fatal Shootings by the Secret Service**\
+`Sunday’s shooting of an armed man at President Trump’s Florida club is one of only a handful of fatal encounters that the agency has had in its 160-year history.`\
+https://nytimes.com/2026/02/22/us/politics/secret-service-fatal-shootings.html
+
+**New York City Faces Its Second Big Storm in Weeks**\
+`The storm in late January was bad enough. This one is bringing true blizzard conditions, and the city has stepped up its response.`\
+https://nytimes.com/2026/02/22/weather/storm-nyc-preparations-mamdani.html
+
 **Remains Believed to Be St. Francis’ Are on Rare Public Display**\
 `The bones of St. Francis, preserved in a nitrogen-filled plexiglass case, were shown to the public just once, briefly, in 1978.`\
 https://nytimes.com/video/world/europe/100000010729128/italy-assisi-st-francis.html
@@ -25,17 +37,4 @@ https://nytimes.com/2026/02/22/us/north-carolina-man-killed-mar-a-lago.html
 **What 3 Olympic gold medals mean for Wild stretch run: 'They got a taste of winning'**\
 `While Quinn Hughes, Brock Faber and Matt Boldy were playing for Olympic gold, their Wild teammates were just as excited.`\
 https://nytimes.com/athletic/7064210/2026/02/22/minnesota-wild-olympics-usa-gold-medal-playoffs/
-
-**Ahead of the storm, a coyote took shelter at a Manhattan ice rink.**\
-`By Miles G. Cohen`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/ahead-of-the-storm-a-coyote-took-shelter-at-a-manhattan-ice-rink
-
-**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
-`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
-`\
-https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
-
-**Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
-`The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
-https://nytimes.com/2026/02/22/us/politics/trump-iran-strike-attack.html
 
