@@ -1,3 +1,7 @@
+**Macklin Celebrini's Olympic success for Team Canada a joy for Steve Kerr, Warriors**\
+`"Everybody's engaged," Kerr said. "Especially the guys who have been here a while, who know Rick so well and Macklin and the family."`\
+https://nytimes.com/athletic/7062986/2026/02/21/warriors-macklin-celebrini-olympics-usa-canada-steve-kerr/
+
 **How the Blue Jays shift from World Series Game 7 to spring training Game 1**\
 `Eric Lauer's leg twitched with nerves in his first spring outing since pitching in the longest game in World Series history.`\
 https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-series-hangover-eric-lauer/
