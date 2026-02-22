@@ -1,3 +1,7 @@
+**St. Francis’s Remains, Rarely Seen, Go on Display in Assisi**\
+`The bones of Italy’s patron saint will be shown to the public for a month, to mark the 800th anniversary of his death.`\
+https://nytimes.com/2026/02/22/world/europe/italy-saint-francis-remains-assisi.html
+
 **Denmark Rejects Trump’s Plan to Send Hospital Boat to Greenland**\
 `Denmark’s defense minister said Greenland did not need health care assistance, a day after President Trump said he planned to send a “great hospital boat” to the island.`\
 https://nytimes.com/2026/02/22/us/politics/trump-greenland-hospital-ship.html

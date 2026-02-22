@@ -1,3 +1,7 @@
+**St. Francis’s Remains, Rarely Seen, Go on Display in Assisi**\
+`The bones of Italy’s patron saint will be shown to the public for a month, to mark the 800th anniversary of his death.`\
+https://nytimes.com/2026/02/22/world/europe/italy-saint-francis-remains-assisi.html
+
 **Denmark Rejects Trump’s Plan to Send Hospital Boat to Greenland**\
 `Denmark’s defense minister said Greenland did not need health care assistance, a day after President Trump said he planned to send a “great hospital boat” to the island.`\
 https://nytimes.com/2026/02/22/us/politics/trump-greenland-hospital-ship.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061515/2026/02/22/sf-giants-tony-vitello-manageria
 **What is the hamate bone injury that has plagued MLB stars?**\
 `Hamate bone injuries sidelined the D-Backs' Corbin Carroll, Mets' Francisco Lindor and Orioles' Jackson Holliday before spring training.`\
 https://nytimes.com/athletic/7062095/2026/02/22/hamate-bone-mlb-injuries-francisco-lindor/
-
-**CFB rules committee to examine targeting, pants length punishments: Sources**\
-`The targeting penalty has drawn fans' ire since it was introduced in 2008. Uniform violations are a more recent concern for refs.`\
-https://nytimes.com/athletic/7062162/2026/02/22/targeting-suspensions-pants-length-ncaa-rules-changes/
 
