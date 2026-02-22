@@ -1,3 +1,11 @@
+**How to watch Celtics vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063769/2026/02/22/celtics-vs-lakers-stream-how-to-watch-feb-22/
+
+**The Briefing: Forest 0 Liverpool 1 - Late Mac Allister winner after elbow goal ruled out, but was this worst first half of season?**\
+`Liverpool needed a 97th-minute winner from the Argentine to seal three points against Forest after a disappointing performance`\
+https://nytimes.com/athletic/7054732/2026/02/22/liverpool-mac-allister-goal-winner-forest-salah/
+
 **How to watch Wisconsin vs. UCLA women's basketball: Time, TV, streaming**\
 `Find out how to watch the Wisconsin Badgers play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063754/2026/02/22/wisconsin-vs-ucla-stream-how-to-watch-feb-22/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html
 **Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
 `The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
 https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
-
-**Devotion at the Olympics**\
-`As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
-https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html
-
-**Armed Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
-`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at President Trump’s resort in Florida, the agency said. The president was not at the club at the time.`\
-https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
 
