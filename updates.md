@@ -1,3 +1,7 @@
+**Warriors' Kristaps Porziņģis, Draymond Green out vs. Nuggets**\
+`Porziņģis was declared out with an undisclosed illness earlier Sunday. Green was scratched before the opening tip with a lower back issue.`\
+https://nytimes.com/athletic/7064179/2026/02/22/draymond-green-kristaps-porzingis-warriors-nuggets-nba/
+
 **Canada’s Spirit Rises and Falls With Its Olympic Hockey Teams**\
 `Canadians jammed bars that opened at dawn across the nation on Sunday but the United States dealt the team, and the country, a devastating blow in overtime.`\
 https://nytimes.com/2026/02/22/world/canada/2026-olympics-hockey-canada-united-states.html

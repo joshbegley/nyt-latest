@@ -1,3 +1,7 @@
+**Offline and off the ice, Canadians and Americans are getting along just fine**\
+`The hockey was great when the U.S. and Canada played for gold, topped only by the good spirit in the crowd.`\
+https://nytimes.com/athletic/7064172/2026/02/22/usa-hockey-canada-politics/
+
 **Canada’s Spirit Rises and Falls With Its Olympic Hockey Teams**\
 `Canadians jammed bars that opened at dawn across the nation on Sunday but the United States dealt the team, and the country, a devastating blow in overtime.`\
 https://nytimes.com/2026/02/22/world/canada/2026-olympics-hockey-canada-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064168/2026/02/22/olympics-israel-withdraws-bobsle
 **Hunter College to Review Professor’s ‘Abhorrent’ Remarks at Meeting**\
 `A student objected to the potential closure of her New York City middle school. The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school.” The comment was assailed as racist.`\
 https://nytimes.com/2026/02/22/nyregion/hunter-college-professor-remarks-students.html
-
-**Iowa puts clamps down on Michigan for signature victory**\
-`The gritty victory boosted Iowa's hopes of hosting games in the first two rounds of the NCAA Tournament.`\
-https://nytimes.com/athletic/7064004/2026/02/22/iowa-michigan-womens-basketball-win/
 

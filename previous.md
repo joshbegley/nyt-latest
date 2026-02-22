@@ -20,7 +20,7 @@ https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-o
 
 **Warriors' Kristaps Porziņģis, Draymond Green out vs. Nuggets**\
 `Porziņģis was declared out with an undisclosed illness earlier Sunday. Green was scratched before the opening tip with a lower back issue.`\
-https://nytimes.com/athletic/7064179/2026/02/22/kristaps-porzingis-illness-warriors-nuggets-nba/
+https://nytimes.com/athletic/7064179/2026/02/22/draymond-green-kristaps-porzingis-warriors-nuggets-nba/
 
 **During a cold snap earlier this year, 20 New Yorkers didn’t survive.**\
 `Last month’s snowstorm was follow by 18 days of bone-chilling weather. The New York Times dug into the stories of those who died.`\
