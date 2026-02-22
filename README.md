@@ -1,4 +1,4 @@
-**North London derby delayed for six minutes after issues with officials' communication**\
+**North London derby delayed for six minutes after officials' technical issues**\
 `Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
 https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/
 
