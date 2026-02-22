@@ -1,3 +1,11 @@
+**2026 BAFTA Film Awards: Looks From the Red Carpet**\
+`Stars have begun to arrive at the Royal Festival Hall in London for Britain’s biggest celebration of film.`\
+https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html
+
+**Armed Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
+`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at President Trump’s resort in Florida, the agency said. The president was not at the club at the time.`\
+https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
+
 **Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
 `The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
 https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
