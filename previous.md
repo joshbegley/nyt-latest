@@ -1,3 +1,7 @@
+**Iowa puts clamps down on Michigan for signature victory**\
+`The gritty victory boosted Iowa's hopes of hosting games in the first two rounds of the NCAA Tournament.`\
+https://nytimes.com/athletic/7064004/2026/02/22/iowa-michigan-womens-basketball-win/
+
 **How free-agent addition Rhys Hoskins fits with the Guardians**\
 `Why did Hoskins settle for a minor-league deal? What does he do well? Where does this addition leave Cleveland's roster?`\
 https://nytimes.com/athletic/7063811/2026/02/22/rhys-hoskins-guardians-free-agency-fit/
@@ -22,7 +26,7 @@ https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
 `The American men's hockey team paid tribute to the late Gaudreau brothers when they got their gold medals on Sunday.`\
 https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
 
-**President Donald Trump calls U.S. Olympic hockey team after gold-medal win**\
+**President Donald Trump calls U.S. men's Olympic hockey team after gold-medal win**\
 `It's unclear whether players will visit with Trump before the NHL season resumes.`\
 https://nytimes.com/athletic/7064047/2026/02/22/trump-usa-hockey-call-gold-medal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/weather/public-transit-storm-monday.html
 **12 Unforgettable Looks at the BAFTAs**\
 `Swishy suits, mermaid skirts, skunk feet and more.`\
 https://nytimes.com/2026/02/22/style/bafta-2026-awards-red-carpet-looks.html
-
-**Wolves condemn 'abhorrent and unlawful' online racist abuse directed towards Arokodare**\
-`It comes a day after similar abuse was aimed at Wesley Fofana of Chelsea and Burnley’s Hannibal Mejbri.`\
-https://nytimes.com/athletic/7064157/2026/02/22/wolves-tolu-arokodare-racist-abuse/
 

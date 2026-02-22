@@ -1,3 +1,11 @@
+**Iowa puts clamps down on Michigan for signature victory**\
+`The gritty victory boosted Iowa's hopes of hosting games in the first two rounds of the NCAA Tournament.`\
+https://nytimes.com/athletic/7064004/2026/02/22/iowa-michigan-womens-basketball-win/
+
+**President Donald Trump calls U.S. men's Olympic hockey team after gold-medal win**\
+`It's unclear whether players will visit with Trump before the NHL season resumes.`\
+https://nytimes.com/athletic/7064047/2026/02/22/trump-usa-hockey-call-gold-medal/
+
 **How free-agent addition Rhys Hoskins fits with the Guardians**\
 `Why did Hoskins settle for a minor-league deal? What does he do well? Where does this addition leave Cleveland's roster?`\
 https://nytimes.com/athletic/7063811/2026/02/22/rhys-hoskins-guardians-free-agency-fit/
