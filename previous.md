@@ -18,7 +18,7 @@ https://nytimes.com/2026/02/22/world/canada/fat-signing-bonuses-and-concierge-se
 `Tenants said one of the city’s most notorious landlords let rats run free and left them cold during the winter. Now, charged with harassment, he’s facing up to four years in prison.`\
 https://nytimes.com/2026/02/22/nyregion/nyc-landlords-daniel-ohebshalom.html
 
-**'I've been disappointed with my club' — Benfica, the team with the eyes of the world on it**\
+**'I've been disappointed with my club' – Benfica, the team with the eyes of the world on it**\
 `The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
 https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
 

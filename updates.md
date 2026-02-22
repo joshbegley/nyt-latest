@@ -1,3 +1,7 @@
+**'I've been disappointed with my club' – Benfica, the team with the eyes of the world on it**\
+`The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
+https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
+
 **New York Braces for Another Fierce Winter Storm**\
 `The storm was expected to hit much of the Northeast and coastal Mid-Atlantic region on Sunday, and could bring at least 13 to 18 inches of snow to the city, according to the National Weather Service.`\
 https://nytimes.com/2026/02/22/weather/new-york-braces-for-another-fierce-winter-storm.html
