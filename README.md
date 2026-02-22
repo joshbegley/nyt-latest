@@ -1,3 +1,11 @@
+**Brandon Nimmo on his Mets departure, his leadership style and his Rangers future**\
+`Nimmo opened up about his bond with Steve Cohen, the clubhouse dynamic with Francisco Lindor and his new role as a mentor in Texas. `\
+https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade/
+
+**New York City Public Schools Will Have a Snow Day on Monday**\
+`Mayor Zohran Mamdani said that no remote classes would be held. The last official snow day in the city’s schools was in March 2019.`\
+https://nytimes.com/2026/02/22/nyregion/nyc-schools-closed-monday-snow-day.html
+
 **Pep Guardiola said Newcastle are a 'nightmare' but how can they actually beat Man City in FA Cup?**\
 `The Athletic analyses what Howe must change over the next fortnight if Newcastle are to get a result against City on March 7`\
 https://nytimes.com/athletic/7062160/2026/02/22/newcastle-man-city-nightmatre-improve/
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/2026/02/22/weather/noreaster-snowfall-map.html
 **In final Olympic race, Jessie Diggins says goodbye her way, with an all-out effort**\
 `Beyond her four Olympic medals, Diggins' legacy is in demonstrating to the winter sport community there is another way of excellence.`\
 https://nytimes.com/athletic/7063637/2026/02/22/olympics-jessie-diggins-milan-cross-country-skiing/
-
-**Winter Storm Disrupts Travel at Major Airports in the Northeast**\
-`With significant snowfall and strong winds expected across the region, many flights were canceled. New York City’s airports were among the hardest hit.`\
-https://nytimes.com/2026/02/22/weather/winter-storm-travel-disruptions-flight-cancellations-delays.html
-
-**Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
-`By Miles G. Cohen`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
 
