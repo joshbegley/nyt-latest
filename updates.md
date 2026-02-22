@@ -1,3 +1,11 @@
+**U.S.-Canada Tensions Turn Olympic Hockey Final Into a ‘Grudge Match’**\
+`Amid growing cross-border political animosity, the game meant even more than usual to Canadian fans who had flown in for one of the marquee events of the Winter Games.`\
+https://nytimes.com/2026/02/22/world/europe/us-canada-hockey-gold-medal-olympics.html
+
+**How to watch Raptors vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063567/2026/02/22/raptors-vs-bucks-stream-how-to-watch-feb-22/
+
 **How to watch Mississippi State vs. Texas women's basketball: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063561/2026/02/22/mississippi-state-vs-texas-stream-how-to-watch-feb-22/
