@@ -1,3 +1,7 @@
+**Offline and off the ice, Canadians and Americans are getting along just fine**\
+`The hockey was great when the U.S. and Canada played for gold, topped only by the good spirit in the crowd.`\
+https://nytimes.com/athletic/7064172/2026/02/22/usa-hockey-canada-politics/
+
 **Warriors' Kristaps Porziņģis, Draymond Green out vs. Nuggets**\
 `Porziņģis was declared out with an undisclosed illness earlier Sunday. Green was scratched before the opening tip with a lower back issue.`\
 https://nytimes.com/athletic/7064179/2026/02/22/draymond-green-kristaps-porzingis-warriors-nuggets-nba/

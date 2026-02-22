@@ -1,3 +1,11 @@
+**Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
+`The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
+https://nytimes.com/2026/02/22/us/politics/trump-considers-targeted-strike-against-iran-followed-by-larger-attack.html
+
+**Courting China Again**\
+`The German chancellor will travel to Beijing this week, the latest high-level visitor as Western countries pivot back to China.`\
+https://nytimes.com/2026/02/22/world/china-germany-diplomacy-trump-tariffs-mexico.html
+
 **Offline and off the ice, Canadians and Americans are getting along just fine**\
 `The hockey was great when the U.S. and Canada played for gold, topped only by the good spirit in the crowd.`\
 https://nytimes.com/athletic/7064172/2026/02/22/usa-hockey-canada-politics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7064179/2026/02/22/draymond-green-kristaps-porzingi
 **During a cold snap earlier this year, 20 New Yorkers didn’t survive.**\
 `Last month’s snowstorm was follow by 18 days of bone-chilling weather. The New York Times dug into the stories of those who died.`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/during-a-cold-snap-earlier-this-year-20-new-yorkers-didnt-survive
-
-**Israel withdraws Olympic bobsled team after members lied to doctors**\
-`The Israelis took part in the first two heats of the competition on Saturday, but it was the slowest sled to complete both runs.`\
-https://nytimes.com/athletic/7064168/2026/02/22/olympics-israel-withdraws-bobsled-team/
-
-**Hunter College to Review Professor’s ‘Abhorrent’ Remarks at Meeting**\
-`A student objected to the potential closure of her New York City middle school. The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school.” The comment was assailed as racist.`\
-https://nytimes.com/2026/02/22/nyregion/hunter-college-professor-remarks-students.html
 
