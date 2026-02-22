@@ -1,3 +1,7 @@
+**USA's gold medal is no 'Miracle on Ice' — but its impact on the nation could be the same**\
+`The Americans' gold-medal win helps USA Hockey turn the page on that 1980 story and inspire a new generation of U.S. fans and players.`\
+https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-on-ice/
+
 **Kristaps Porziņģis out vs. Nuggets with illness**\
 `Warriors coach Steve Kerr said it's unclear whether Porziņģis will travel during the team's upcoming two-game trip.`\
 https://nytimes.com/athletic/7064179/2026/02/22/kristaps-porzingis-illness-warriors-nuggets-nba/
