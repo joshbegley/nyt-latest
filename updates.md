@@ -1,3 +1,7 @@
+**Messi and Inter Miami suffer on MLS opening night in road defeat to LAFC**\
+`The Argentine icon and Miami's collection of stars could not prevent LAFC from running riot.`\
+https://nytimes.com/athletic/7063245/2026/02/22/messi-son-inter-miami-lafc-mls-season/
+
 **Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\
 `UCLA finds legs, erases 23-point deficit and earns dramatic win with a finish reminiscent of Tyus Edney's classic 1995 moment.`\
 https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzzer-beater/
