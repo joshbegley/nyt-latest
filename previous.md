@@ -1,5 +1,5 @@
 **Willie Colón Played Up the Bad Guy With Purpose**\
-`By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón crafted an everlasting image.`\
+`By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón, the legend of salsa music who died on Saturday, crafted an everlasting image.`\
 https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
 
 **Here Are the Rare Instances of Fatal Shootings by the Secret Service**\
