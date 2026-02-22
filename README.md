@@ -1,3 +1,7 @@
+**How the Times Weather Team Tracks Big Storms: More Data, Less Hype**\
+`When making forecasts, our reporters aim to visualize severe weather possibilities rather than focus on the most dire predictions. A possible blizzard this weekend is the latest test.`\
+https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html
+
 **What to watch on Day 16 of Winter Olympics: Men's hockey final, Eileen Gu in postponed halfpipe**\
 `U.S. cross-country skier Jessie Diggins' final Olympic appearance comes as women race 50 kilometers in the Olympics for the first time.`\
 https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-usa-canada-gu-halfpipe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062764/2026/02/22/chelsea-17-points-lost/
 **Quote of the Day: After Enduring Horrors, Offering ‘A Hymn to Life’**\
 `Quotation of the Day for Sunday, February 22, 2026.`\
 https://nytimes.com/2026/02/22/pageoneplus/quote-of-the-day-after-enduring-horrors-offering-a-hymn-to-life.html
-
-**Trump Looks Ahead to Summit With China’s Xi, but Tariffs and Taiwan Loom**\
-`President Trump said his planned meeting with President Xi Jinping would be a grand display, but tensions over trade and defense could dampen the mood.`\
-https://nytimes.com/2026/02/22/world/asia/trump-xi-jinping-meeting-china.html
 
