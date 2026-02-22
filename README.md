@@ -22,7 +22,7 @@ https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-york
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/02/22/world/quake-tracker-malaysia.html
 
-**Mexico’s Most-Wanted Cartel Boss Killed By Security Forces, Officials Say**\
+**Mexico’s Most-Wanted Cartel Boss Killed by Security Forces, Officials Say**\
 `Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel and widely regarded as one of the country’s most violent criminal figures.`\
 https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
 
