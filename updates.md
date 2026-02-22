@@ -1,3 +1,7 @@
+**Rockets’ struggles with adversity come to forefront again in collapse against Knicks**\
+`Late-game losses, Houston's Kevin Durant on Saturday, have occurred because "we don’t play with that dominant trait."`\
+https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks-nba/
+
 **This storm came as a surprise to many, including forecasters.**\
 `By Judson Jones and Erin McCann`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
