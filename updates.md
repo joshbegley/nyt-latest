@@ -1,3 +1,7 @@
+**Inside Iran’s Preparation for War and Plans for Survival**\
+`Supreme Leader Ayatollah Ali Khamenei has entrusted Ali Larijani, the top national security official, to ensure the Islamic Republic endures possible war and assassination.`\
+https://nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html
+
 **How the Times Weather Team Tracks Big Storms: More Data, Less Hype**\
 `When making forecasts, our reporters aim to visualize severe weather possibilities rather than focus on the most dire predictions. A possible blizzard this weekend is the latest test.`\
 https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html

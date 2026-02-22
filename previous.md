@@ -1,3 +1,7 @@
+**Inside Iran’s Preparation for War and Plans for Survival**\
+`Supreme Leader Ayatollah Ali Khamenei has entrusted Ali Larijani, the top national security official, to ensure the Islamic Republic endures possible war and assassination.`\
+https://nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html
+
 **How the Times Weather Team Tracks Big Storms: More Data, Less Hype**\
 `When making forecasts, our reporters aim to visualize severe weather possibilities rather than focus on the most dire predictions. A possible blizzard this weekend is the latest test.`\
 https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7061964/2026/02/22/aston-villa-premier-league-run-i
 **Why Chelsea have 'set fire' to 17 points from winning positions at Stamford Bridge**\
 `"I'm learning about the players. I'm learning about the people you can lean on." said Rosenior`\
 https://nytimes.com/athletic/7062764/2026/02/22/chelsea-17-points-lost/
-
-**Quote of the Day: After Enduring Horrors, Offering ‘A Hymn to Life’**\
-`Quotation of the Day for Sunday, February 22, 2026.`\
-https://nytimes.com/2026/02/22/pageoneplus/quote-of-the-day-after-enduring-horrors-offering-a-hymn-to-life.html
 
