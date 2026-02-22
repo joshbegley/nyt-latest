@@ -1,3 +1,7 @@
+**Lindsey Vonn competed for 13 seconds. She still owned the Winter Olympics**\
+`From the shocking end of her comeback to the near-daily updates on her injury, there was a little Lindsey Vonn throughout the Olympics.`\
+https://nytimes.com/athletic/7060782/2026/02/22/lindsey-vonn-winter-olympics-crash-injury-acl-updates/
+
 **How to watch Cavaliers vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063366/2026/02/22/cavaliers-vs-thunder-stream-how-to-watch-feb-22/
