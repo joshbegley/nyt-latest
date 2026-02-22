@@ -1,3 +1,15 @@
+**Interactive Maps and Charts: Tracking the Northeast Winter Storm**\
+`See where snowfall and cold temperatures are expected.`\
+https://nytimes.com/interactive/2026/02/22/weather/noreaster-snowfall-map.html
+
+**In final Olympic race, Jessie Diggins says goodbye her way, with an all-out effort**\
+`Beyond her four Olympic medals, Diggins' legacy is in demonstrating to the winter sport community there is another way of excellence.`\
+https://nytimes.com/athletic/7063637/2026/02/22/olympics-jessie-diggins-milan-cross-country-skiing/
+
+**Winter Storm Disrupts Travel at Major Airports in the Northeast**\
+`With significant snowfall and strong winds expected across the region, many flights were canceled. New York City’s airports were among the hardest hit.`\
+https://nytimes.com/2026/02/22/weather/winter-storm-travel-disruptions-flight-cancellations-delays.html
+
 **Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
 `By Miles G. Cohen`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-
 **MLS reviewing incident after video appears to show Messi trying to confront referee**\
 `After Inter Miami's 3-0 defeat to LAFC, Luis Suárez, Messi’s longtime friend and teammate, appeared to try restrain Messi.`\
 https://nytimes.com/athletic/7063757/2026/02/22/lionel-messi-mls-referees-incident/
-
-**Games Briefing: Olympics' final day lives up to hype**\
-`This is the Games Briefing, The Athletic's daily Olympics newsletter.`\
-https://nytimes.com/athletic/7063789/2026/02/22/olympics-usa-mens-hockey-gold-games-briefing/
-
-**Slot hopeful Wirtz will return for Liverpool next week after back issue**\
-`The Germany international was named in the starting line-up against Nottingham Forest but was forced to withdraw before kick-off. `\
-https://nytimes.com/athletic/7063804/2026/02/22/florian-wirtz-liverpool-back-injury-update/
-
-**Trump Aides Project Confidence on Tariffs After Court Loss**\
-`Administration officials maintain that they can replicate the sky-high duties recently invalidated by the Supreme Court.`\
-https://nytimes.com/2026/02/22/business/trump-administration-tariffs-supreme-court-loss.html
 
