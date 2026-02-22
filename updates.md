@@ -1,3 +1,8 @@
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
 **What 3 Olympic gold medals mean for Wild stretch run: 'They got a taste of winning'**\
 `While Quinn Hughes, Brock Faber and Matt Boldy were playing for Olympic gold, their Wild teammates were just as excited.`\
 https://nytimes.com/athletic/7064210/2026/02/22/minnesota-wild-olympics-usa-gold-medal-playoffs/
