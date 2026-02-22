@@ -1,8 +1,16 @@
+**Pep Guardiola said Newcastle are a 'nightmare' but how can they actually beat Man City in FA Cup?**\
+`The Athletic analyses what Howe must change over the next fortnight if Newcastle are to get a result against City on March 7`\
+https://nytimes.com/athletic/7062160/2026/02/22/newcastle-man-city-nightmatre-improve/
+
+**These might have been Crosby’s final Olympics, and he put Canada first to the end**\
+`As injury in the quarterfinals put his availability for the gold medal game in doubt, the Canadian captain thought of his teammates first.`\
+https://nytimes.com/athletic/7064010/2026/02/22/sidney-crosby-olympics-mens-hockey-canada-captain/
+
 **How Team USA wrote a new story with logic-defying gold-medal victory over Canada**\
 `Canada was better than the United States in the gold medal game, but Team USA pulled off a win that American hockey fans will never forget.`\
 https://nytimes.com/athletic/7063963/2026/02/22/usa-gold-medal-olympics-hockey-connor-hellebuyck/
 
-**The Briefing: Tottenham 1 Arsenal 4 — Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
+**The Briefing: Tottenham 1 Arsenal 4 – Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
 `Mikel Arteta's side breathed fresh life into their title pursuit with a comprehensive victory in the north London derby`\
 https://nytimes.com/athletic/7054733/2026/02/22/tottenham-1-arsenal-4-gyokeres-eze-rice/
 
@@ -30,12 +38,4 @@ https://nytimes.com/2026/02/22/weather/winter-storm-travel-disruptions-flight-ca
 **Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
 `By Miles G. Cohen`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
-
-**Map: 7.1-Magnitude Earthquake Shakes the South China Sea**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/02/22/world/quake-tracker-malaysia.html
-
-**Mexico’s Most-Wanted Cartel Boss Killed by Security Forces, Officials Say**\
-`Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel and widely regarded as one of the country’s most violent criminal figures.`\
-https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
 
