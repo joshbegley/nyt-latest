@@ -1,3 +1,7 @@
+**'I've been disappointed with my club' — Benfica, the team with the eyes of the world on it**\
+`The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
+https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
+
 **Messi and Inter Miami suffer on MLS opening night in road defeat to LAFC**\
 `The Argentine icon and Miami's collection of stars could not prevent LAFC from running riot.`\
 https://nytimes.com/athletic/7063245/2026/02/22/messi-son-inter-miami-lafc-mls-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html
 **What to watch on Day 16 of Winter Olympics: Men's hockey final, Eileen Gu in postponed halfpipe**\
 `U.S. cross-country skier Jessie Diggins' final Olympic appearance comes as women race 50 kilometers in the Olympics for the first time.`\
 https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-usa-canada-gu-halfpipe/
-
-**It's a two-point Premier League title race. But can this Manchester City do a Manchester City?**\
-`"I don't know if we are able to win three, four, five, six games in a row. I don't know. I don't know," Pep Guardiola has said`\
-https://nytimes.com/athletic/7060139/2026/02/22/manchester-city-arsenal-title-race/
 
