@@ -1,3 +1,7 @@
+**Messi and Inter Miami suffer on MLS opening night in road defeat to LAFC**\
+`The Argentine icon and Miami's collection of stars could not prevent LAFC from running riot.`\
+https://nytimes.com/athletic/7063245/2026/02/22/messi-son-inter-miami-lafc-mls-season/
+
 **Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\
 `UCLA finds legs, erases 23-point deficit and earns dramatic win with a finish reminiscent of Tyus Edney's classic 1995 moment.`\
 https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzzer-beater/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-us
 **It's a two-point Premier League title race. But can this Manchester City do a Manchester City?**\
 `"I don't know if we are able to win three, four, five, six games in a row. I don't know. I don't know," Pep Guardiola has said`\
 https://nytimes.com/athletic/7060139/2026/02/22/manchester-city-arsenal-title-race/
-
-**What is the hardest coaching job in world sport? Our reader rankings revealed**\
-`Real Madrid? The New York Yankees? The England men's football job? Which role did you vote for as the hardest in world sport?`\
-https://nytimes.com/athletic/7062010/2026/02/22/hardest-coaching-job-world-sport-rankings/
 
