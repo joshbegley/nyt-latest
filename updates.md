@@ -1,3 +1,15 @@
+**Our Leaders Are Not Us**\
+`Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
+https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
+
+**Ukraine Has Passed a Point of No Return**\
+`Four years that changed everything.`\
+https://nytimes.com/2026/02/22/opinion/ukraine-russia-war-four-years.html
+
+**The New York Times in Print for Sunday, Feb. 22, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/22/todays-new-york-times
+
 **Inside Iran’s Preparation for War and Plans for Survival**\
 `Supreme Leader Ayatollah Ali Khamenei has entrusted Ali Larijani, the top national security official, to ensure the Islamic Republic endures possible war and assassination.`\
 https://nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html
