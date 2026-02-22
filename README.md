@@ -1,40 +1,40 @@
-**Tom Noonan, Actor Renowned for Onscreen Menace, Dies at 74**\
-`He played memorable screen villains, notably a psychopath in “Manhunter,” but also wrote, directed and starred in well-received plays at a theater he founded in Manhattan.`\
-https://nytimes.com/2026/02/21/movies/tom-noonan-dead.html
+**Aston Villa have the Premier League's 'easiest' run-in — but it's not so simple**\
+`Aston Villa have a statistically favourable fixture list, but their draw against Leeds demonstrated how that doesn't tell the whole story`\
+https://nytimes.com/athletic/7061964/2026/02/22/aston-villa-premier-league-run-in-stats/
 
-**T206 Honus Wagner card sells for $5.1 million**\
-`This marks the third-highest sale of the iconic Wagner card ever. `\
-https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
+**Why Chelsea have 'set fire' to 17 points from winning positions at Stamford Bridge**\
+`"I'm learning about the players. I'm learning about the people you can lean on." said Rosenior`\
+https://nytimes.com/athletic/7062764/2026/02/22/chelsea-17-points-lost/
 
-**Tony Vitello's exhibition debut as Giants manager: Cool, calm and 'nothing crazy'**\
-`Just as at Tennessee, Vitello intently watched every moment — so intently, he got locked on to a pitcher and couldn't avoid a foul ball.`\
-https://nytimes.com/athletic/7063102/2026/02/21/giants-manager-tony-vitello-debut-exhibition/
+**Quote of the Day: After Enduring Horrors, Offering ‘A Hymn to Life’**\
+`Quotation of the Day for Sunday, February 22, 2026.`\
+https://nytimes.com/2026/02/22/pageoneplus/quote-of-the-day-after-enduring-horrors-offering-a-hymn-to-life.html
 
-**Winter Olympics Day 15 recap: Canada wins men's curling, Klæbo claims sixth gold medal**\
-`Plus Jordan Stolz caps stellar Games, 2-woman bobsled bronze is sixth medal for Kaillie Humphries, other news from Day 15 of the Olympics.`\
-https://nytimes.com/athletic/7062735/2026/02/21/olympics-recap-canada-curling-gold-klaebo-record/
+**Trump Looks Ahead to Summit With China’s Xi, but Tariffs and Taiwan Loom**\
+`President Trump said his planned meeting with President Xi Jinping would be a grand display, but tensions over trade and defense could dampen the mood.`\
+https://nytimes.com/2026/02/22/world/asia/trump-xi-jinping-meeting-china.html
 
-**Willie Colón: 14 Essential Songs and Albums**\
-`The trombonist, singer, bandleader, composer and producer from the Bronx helped shape the sound of salsa.`\
-https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
+**Norway’s Record Olympic Medal Haul Is a Welcome Distraction From Scandal**\
+`Norway, led by the cross-country skiing sensation Johannes Hoesflot Klaebo, topped the medal table for the fourth straight Winter Games.`\
+https://nytimes.com/2026/02/22/world/europe/2026-winter-olympics-klaebo-norway-epstein.html
 
-**No. 3 Duke knocks off No. 1 Michigan for inside track to top tournament seed**\
-`The result gives the Blue Devils the upper hand in securing the no. 1 overall seed in the upcoming 2026 NCAA Tournament. `\
-https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1-michigan-wolverines-basketball-2026/
+**The A.I. Evangelists on a Mission to Shake Up Japan**\
+`Team Mirai, a political party founded by software engineers, won 11 seats in Japan’s legislature by promising chatbots, self-driving buses and high-tech jobs.`\
+https://nytimes.com/2026/02/22/world/asia/japan-ai-politics-election.html
 
-**Vikings receiver Rondale Moore found dead at 25**\
-`Police say Moore was found dead inside the garage of a property in New Albany, Ind.`\
-https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
+**After Battling on Ice and Snow, Athletes Face a New Test: Post-Olympics Blues**\
+`“It just goes by so quick,” one speedskater said. Some Olympic officials are trying to help competitors better navigate the aftermath of elite competition.`\
+https://nytimes.com/2026/02/22/sports/athletes-post-winter-olympics-blues.html
 
-**Already sans Devin Booker, Suns add Dillon Brooks, Jordan Goodwin to injury list**\
-`The Suns (33-24) have been one of the league’s top surprises, but their health has caused issues of late.`\
-https://nytimes.com/athletic/7063117/2026/02/21/devin-booker-hip-injury-suns-jalen-green-game-winner/
+**Rose Byrne Can, and Does, Do It All**\
+`An Oscar nominee for a movie in which everything crashes down on her (literally), Byrne is shifting gears with the Broadway comedy “Fallen Angels.”`\
+https://nytimes.com/2026/02/22/theater/rose-byrne-oscars-fallen-angels-broadway.html
 
-**New York Nurses’ Strike Ends After 6 Weeks as Last Holdouts Approve Deal**\
-`Workers at NewYork-Presbyterian/Columbia hospital voted for a contract with raises and layoff protections, meaning more than 4,000 nurses will return.`\
-https://nytimes.com/2026/02/21/nyregion/nyc-nurses-strike-ends.html
+**The Ex-Taxi Driver at the Center of Russia’s Shadow War**\
+`The Kremlin’s sabotage campaign against European allies of Ukraine has been escalating. It needs people like Aleksei Kolosovsky, 42, to carry it out.`\
+https://nytimes.com/2026/02/22/world/europe/russia-sabotage-europe.html
 
-**Macklin Celebrini's Olympic success for Team Canada a joy for Steve Kerr, Warriors**\
-`"Everybody's engaged," Kerr said. "Especially the guys who have been here a while, who know Rick so well and Macklin and the family."`\
-https://nytimes.com/athletic/7062986/2026/02/21/warriors-macklin-celebrini-olympics-usa-canada-steve-kerr/
+**How Do Snowboarders Reach Those Heights? Meet Their Invisible Army of Technicians.**\
+`In snowboarding, preparation for events begins weeks before the Games. `\
+https://nytimes.com/card/2026/02/22/world/olympic-snowboarders-jump-heights-tech-crew
 
