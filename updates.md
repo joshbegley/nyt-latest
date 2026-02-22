@@ -1,3 +1,7 @@
+**How the Blue Jays shift from World Series Game 7 to spring training Game 1**\
+`Eric Lauer's leg twitched with nerves in his first spring outing since pitching in the longest game in World Series history.`\
+https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-series-hangover-eric-lauer/
+
 **Trump Pulls Support From House Republican Who Opposed Tariffs**\
 `The president yanked his endorsement of Representative Jeff Hurd of Colorado, imperiling Republicans’ chances of holding onto his seat as they brace for midterm losses.`\
 https://nytimes.com/2026/02/21/us/trump-pulls-endorsement-hurd-tariffs.html
