@@ -1,3 +1,8 @@
+**Photos of more than 200 gold medalists in the 2026 Winter Olympics**\
+`<p>Here you’ll find photos of every gold medalist at the 2026 Winter Olympics — more than two hundred athletes who competed across 16 sports and 116 events in the Milan Cortina Games.</p>
+`\
+https://nytimes.com/athletic/7057627/2026/02/22/photos-of-more-than-200-gold-medalists-in-the-2026-winter-olympics/
+
 **Mexico’s Most-Wanted Cartel Boss Killed by Security Forces, Officials Say**\
 `Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel and widely regarded as one of the country’s most violent criminal figures.`\
 https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
