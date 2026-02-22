@@ -1,3 +1,11 @@
+**Does an Olympic gold medal change Auston Matthews' legacy?**\
+`"Doesn’t matter what anyone says now, Auston Matthews is a winner," Team USA forward Jack Hughes said.`\
+https://nytimes.com/athletic/7064090/2026/02/22/auston-matthews-olympics-maple-leafs-legacy/
+
+**BAFTAs 2026: ‘One Battle After Another’ Wins Best Film**\
+`Paul Thomas Anderson’s comedy drama won six awards at the British equivalent of the Oscars. The best actor choice, however, was a surprise.`\
+https://nytimes.com/2026/02/22/movies/baftas-2026.html
+
 **USA's gold medal is no 'Miracle on Ice' — but its impact on the nation could be the same**\
 `The Americans' gold-medal win helps USA Hockey turn the page on that 1980 story and inspire a new generation of U.S. fans and players.`\
 https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-on-ice/
