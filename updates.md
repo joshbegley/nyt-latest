@@ -1,3 +1,7 @@
+**2 Skiers Are Injured After Being Buried in Utah Avalanche**\
+`The men were skiing on Saturday in a backcountry area of the Big Cottonwood Canyon near Salt Lake City, said officials, who urged caution in unstable snow conditions.`\
+https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
+
 **As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
 `Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
 https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
