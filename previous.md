@@ -1,3 +1,7 @@
+**Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\
+`UCLA finds legs, erases 23-point deficit and earns dramatic win with a finish reminiscent of Tyus Edney's classic 1995 moment.`\
+https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzzer-beater/
+
 **What's next for USWNT and Chelsea striker Catarina Macario?**\
 `Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
 https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060139/2026/02/22/manchester-city-arsenal-title-ra
 **What is the hardest coaching job in world sport? Our reader rankings revealed**\
 `Real Madrid? The New York Yankees? The England men's football job? Which role did you vote for as the hardest in world sport?`\
 https://nytimes.com/athletic/7062010/2026/02/22/hardest-coaching-job-world-sport-rankings/
-
-**Spurs vs Arsenal: Can Tudor frustrate Arteta? Our writers have their say**\
-`Could Tottenham's change of manager inspire an upset that would blow the Premier League title race wide open?`\
-https://nytimes.com/athletic/7061781/2026/02/22/spurs-arsenal-tudor-arteta-preview-predictions/
 

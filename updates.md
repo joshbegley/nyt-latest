@@ -1,3 +1,7 @@
+**Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\
+`UCLA finds legs, erases 23-point deficit and earns dramatic win with a finish reminiscent of Tyus Edney's classic 1995 moment.`\
+https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzzer-beater/
+
 **What's next for USWNT and Chelsea striker Catarina Macario?**\
 `Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
 https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
