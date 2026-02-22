@@ -1,3 +1,15 @@
+**Lowetide: Oilers hard target search for a second pair right-handed defenceman**\
+`The Oilers could spend their trade assets on a substantial right-handed defenceman at the deadline.`\
+https://nytimes.com/athletic/7062330/2026/02/22/edmonton-oilers-trade-targets-defencemen-right-side/
+
+**Tigers roster projection 2.0: How set is this team, really?**\
+`Justin Verlander and Framber Valdez add to a Tigers team featuring an otherwise familiar cast. `\
+https://nytimes.com/athletic/7062750/2026/02/22/tigers-roster-projection-2-0-how-set-is-this-team-really/
+
+**Reds' fifth starter competition off to strong start in Cactus League opener**\
+`Rotation candidates Julian Aguiar, Chase Burns and Rhett Lowder were solid in spring training debuts.`\
+https://nytimes.com/athletic/7062935/2026/02/22/reds-fifth-starter-cactus-league-opener-2026/
+
 **St. Francis’s Remains, Rarely Seen, Go on Display in Assisi**\
 `The bones of Italy’s patron saint will be shown to the public for a month, to mark the 800th anniversary of his death.`\
 https://nytimes.com/2026/02/22/world/europe/italy-saint-francis-remains-assisi.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7063361/2026/02/22/sidney-crosby-injury-olympics-go
 **Homeland Security to Shut T.S.A. PreCheck and Global Entry at Airports**\
 `The department said that it would suspend the priority airport security programs on Sunday, about a week after its funding lapsed.`\
 https://nytimes.com/2026/02/22/us/tsa-precheck-global-entry-homeland-security-shutdown.html
-
-**Russia Attacks Ukraine Ahead of Invasion’s 4th Anniversary**\
-`At least one man was killed in Kyiv as Moscow launched a wave of drones and missiles, days after the latest round of U.S.-mediated talks to end the war.`\
-https://nytimes.com/2026/02/22/world/europe/ukraine-russia-attacks-lviv.html
-
-**With spring games underway, Giants fans can finally get to know Tony Vitello as a manager**\
-`Vitello's soliloquy about how he left Tennessee doesn't tell us much about how he will be as a manager. The proof will be in the managing. `\
-https://nytimes.com/athletic/7061515/2026/02/22/sf-giants-tony-vitello-managerial-style-spring-training/
-
-**What is the hamate bone injury that has plagued MLB stars?**\
-`Hamate bone injuries sidelined the D-Backs' Corbin Carroll, Mets' Francisco Lindor and Orioles' Jackson Holliday before spring training.`\
-https://nytimes.com/athletic/7062095/2026/02/22/hamate-bone-mlb-injuries-francisco-lindor/
 
