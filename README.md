@@ -1,3 +1,7 @@
+**How the Blue Jays shift from World Series Game 7 to spring training Game 1**\
+`Eric Lauer's leg twitched with nerves in his first spring outing since pitching in the longest game in World Series history.`\
+https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-series-hangover-eric-lauer/
+
 **Trump Pulls Support From House Republican Who Opposed Tariffs**\
 `The president yanked his endorsement of Representative Jeff Hurd of Colorado, imperiling Republicans’ chances of holding onto his seat as they brace for midterm losses.`\
 https://nytimes.com/2026/02/21/us/trump-pulls-endorsement-hurd-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/movies/berlinale-film-festival-winners.html
 **Kennedy Center Performance Canceled After Substance Poured on Ice Rink**\
 `An individual poured an unknown dark liquid onto a temporary skating rink at the Kennedy Center late Thursday night, in what the venue called a “calculated” attack.`\
 https://nytimes.com/2026/02/21/arts/design/kennedy-center-protest-ice-rink.html
-
-**Books of the Bible**\
-`Jill Rafaloff and Michelle Sontarp’s collaboration takes us to school, but it’s all in good fun.`\
-https://nytimes.com/2026/02/21/crosswords/daily-puzzle-2026-02-22.html
 
