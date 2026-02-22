@@ -1,3 +1,19 @@
+**How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
+`When the American men's hockey team won Olympic gold for the first time in 46 years, they paid tribute to the late Johnny Gaudreau.`\
+https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
+
+**President Donald Trump calls U.S. Olympic hockey team after gold-medal win**\
+`It's unclear whether players will visit with Trump before the NHL season resumes.`\
+https://nytimes.com/athletic/7064047/2026/02/22/trump-usa-hockey-call-gold-medal/
+
+**NJ Transit Will Suspend Service as Storm Disrupts Monday Commute**\
+`Other transit agencies, including the Long Island Rail Road and Metro-North, were adjusting their schedules starting Sunday evening because of the winter storm.`\
+https://nytimes.com/2026/02/22/weather/public-transit-storm-monday.html
+
+**12 Unforgettable Looks at the BAFTAs**\
+`Swishy suits, mermaid skirts, skunk feet and more.`\
+https://nytimes.com/2026/02/22/style/bafta-2026-awards-red-carpet-looks.html
+
 **Wolves condemn 'abhorrent and unlawful' online racist abuse directed towards Arokodare**\
 `It comes a day after similar abuse was aimed at Wesley Fofana of Chelsea and Burnley’s Hannibal Mejbri.`\
 https://nytimes.com/athletic/7064157/2026/02/22/wolves-tolu-arokodare-racist-abuse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how
 **Iran Could Direct Proxies to Attack U.S. Targets Abroad, Officials Warn**\
 `Security officials are monitoring increasingly worrisome signs as President Trump considers another military campaign against Iran.`\
 https://nytimes.com/2026/02/22/us/politics/iran-terrorist-attacks-proxies-trump.html
-
-**The Case for Striking Iran**\
-`The Iranian people should not be let down again.`\
-https://nytimes.com/2026/02/22/opinion/iran-military-strike-trump.html
-
-**‘The Waterfall’ Review: A Mother’s Blessing and a Daughter’s Burden**\
-`Phanésia Pharel’s wistful two-hander starring Patrice Johnson Chevannes and Natalie Paul looks at a Haitian American family and questions of legacy.`\
-https://nytimes.com/2026/02/22/theater/waterfall-review-patrice-johnson-chevannes.html
-
-**Brandon Nimmo on his Mets departure, his leadership style and his Rangers future**\
-`Nimmo opened up about his bond with Steve Cohen, the clubhouse dynamic with Francisco Lindor and his new role as a mentor in Texas. `\
-https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade/
-
-**New York City Public Schools Will Have a Snow Day on Monday**\
-`Mayor Zohran Mamdani said that no remote classes would be held. The last official snow day in the city’s schools was in March 2019.`\
-https://nytimes.com/2026/02/22/nyregion/nyc-schools-closed-monday-snow-day.html
 

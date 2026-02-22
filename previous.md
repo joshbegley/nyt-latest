@@ -1,3 +1,11 @@
+**Wolves condemn 'abhorrent and unlawful' online racist abuse directed towards Arokodare**\
+`It comes a day after similar abuse was aimed at Wesley Fofana of Chelsea and Burnley’s Hannibal Mejbri.`\
+https://nytimes.com/athletic/7064157/2026/02/22/wolves-tolu-arokodare-racist-abuse/
+
+**Iran Students Protest for Second Day Despite State Crackdown**\
+`Student groups reported protests at universities in Iran’s two largest cities as the government grapples with domestic discontent and the threat of U.S. strikes.`\
+https://nytimes.com/2026/02/22/world/middleeast/iran-student-protests.html
+
 **How to watch Knicks vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the New York Knicks play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7064153/2026/02/22/knicks-vs-bulls-stream-how-to-watch-feb-22/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade
 **New York City Public Schools Will Have a Snow Day on Monday**\
 `Mayor Zohran Mamdani said that no remote classes would be held. The last official snow day in the city’s schools was in March 2019.`\
 https://nytimes.com/2026/02/22/nyregion/nyc-schools-closed-monday-snow-day.html
-
-**Pep Guardiola said Newcastle are a 'nightmare' but how can they actually beat Man City in FA Cup?**\
-`The Athletic analyses what Howe must change over the next fortnight if Newcastle are to get a result against City on March 7`\
-https://nytimes.com/athletic/7062160/2026/02/22/newcastle-man-city-nightmatre-improve/
-
-**These might have been Crosby’s final Olympics, and he put Canada first to the end**\
-`As injury in the quarterfinals put his availability for the gold medal game in doubt, the Canadian captain thought of his teammates first.`\
-https://nytimes.com/athletic/7064010/2026/02/22/sidney-crosby-olympics-mens-hockey-canada-captain/
 
