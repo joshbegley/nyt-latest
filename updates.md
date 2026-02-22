@@ -1,3 +1,7 @@
+**Denmark Rejects Trump’s Plan to Send Hospital Boat to Greenland**\
+`Denmark’s defense minister said Greenland did not need health care assistance, a day after President Trump said he planned to send a “great hospital boat” to the island.`\
+https://nytimes.com/2026/02/22/us/politics/trump-greenland-hospital-ship.html
+
 **You Can Bet on It**\
 `Today, a Morning writer explains how he became a grudging participant in the world of online gambling.`\
 https://nytimes.com/2026/02/22/briefing/prediction-market-bets.html
