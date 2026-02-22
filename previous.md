@@ -22,7 +22,7 @@ https://nytimes.com/2026/02/22/us/norman-francis-dead.html
 `The 21-year-old man was killed by law enforcement officers after he entered Mar-a-Lago with a weapon.`\
 https://nytimes.com/2026/02/22/us/north-carolina-man-killed-mar-a-lago.html
 
-**What 3 Olympic gold medals means for Wild stretch run: 'They got a taste of winning'**\
+**What 3 Olympic gold medals mean for Wild stretch run: 'They got a taste of winning'**\
 `While Quinn Hughes, Brock Faber and Matt Boldy were playing for Olympic gold, their Wild teammates were just as excited.`\
 https://nytimes.com/athletic/7064210/2026/02/22/minnesota-wild-olympics-usa-gold-medal-playoffs/
 
