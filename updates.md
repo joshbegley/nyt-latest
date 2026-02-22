@@ -1,3 +1,7 @@
+**When Faced With Claims of Racism, Trump Points to His Black Friends**\
+`President Trump has often invoked his unnamed Black friends, or name-checked celebrities and athletes, when asked to discuss anything related to Black voters.`\
+https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
+
 **How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
 `The American men's hockey team paid tribute to the late Gaudreau brothers when they got their gold medals on Sunday.`\
 https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
