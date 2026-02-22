@@ -1,3 +1,11 @@
+**USA wins Olympic gold in thrilling men's hockey final against Canada**\
+`Forty-six years after the United States won its last men’s hockey gold medal at the Olympics, the U.S. has reached the top of the mountain.`\
+https://nytimes.com/athletic/7063381/2026/02/22/usa-olympics-mens-hockey-gold-medal-win-canada-takeaways/
+
+**Supersmart Sheet-Pan Charred Meat Pitas**\
+`They come together quickly, and if you make the meat mixture today, you can spread and broil it on the bread tomorrow for a 15-minute dinner.`\
+https://nytimes.com/2026/02/22/dining/supersmart-sheet-pan-charred-meat-pitas.html
+
 **Former FIFA chief Blatter criticises World Cup format, says U.S. has too many matches**\
 `Blatter also said that the relationship between President Trump and FIFA's Gianni Infantino "changed the game" for the tournament.`\
 https://nytimes.com/athletic/7063393/2026/02/22/sepp-blatter-fifa-world-cup-united-states/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7063436/2026/02/22/red-bull-bragantino-brazil-sexis
 **Trump Administration Live Updates: President Presses On With New Tariffs After Supreme Court Ruling**\
 ``\
 https://nytimes.com/live/2026/02/22/us/trump-news
-
-**I Went to Prison and Found Support and Community**\
-`Unlike the version of prison conjured on TV and in the movies, I found a community quick to be generous and kind.`\
-https://nytimes.com/2026/02/22/opinion/men-prison-pardons.html
-
-**The Many Gifts of Kidney Donation**\
-`Readers respond to an Opinion essay by German Lopez about his decision to become a living kidney donor.`\
-https://nytimes.com/2026/02/22/opinion/kidney-donation.html
 
