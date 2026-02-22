@@ -1,3 +1,8 @@
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
 **Remains Believed to Be St. Francis’ Are on Rare Public Display**\
 `The bones of St. Francis, preserved in a nitrogen-filled plexiglass case, were shown to the public just once, briefly, in 1978.`\
 https://nytimes.com/video/world/europe/100000010729128/italy-assisi-st-francis.html
