@@ -1,3 +1,20 @@
+**Remains Believed to Be St. Francis’ Are on Rare Public Display**\
+`The bones of St. Francis, preserved in a nitrogen-filled plexiglass case, were shown to the public just once, briefly, in 1978.`\
+https://nytimes.com/video/world/europe/100000010729128/italy-assisi-st-francis.html
+
+**Olympics close out Milan Cortina Games with Major Lazer, opera and anthems**\
+`Athletes were clearly in a loose mood as the Olympics bid them farewell.`\
+https://nytimes.com/athletic/7063879/2026/02/22/closing-ceremony-milan-cortina-winter-olympics-verona/
+
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
+**Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
+`The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
+https://nytimes.com/2026/02/22/us/politics/trump-iran-strike-attack.html
+
 **Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
 `From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
 `\
