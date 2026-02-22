@@ -1,3 +1,11 @@
+**How to watch Knicks vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064153/2026/02/22/knicks-vs-bulls-stream-how-to-watch-feb-22/
+
+**How to watch Magic vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064150/2026/02/22/magic-vs-clippers-stream-how-to-watch-feb-22/
+
 **How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062160/2026/02/22/newcastle-man-city-nightmatre-im
 **These might have been Crosby’s final Olympics, and he put Canada first to the end**\
 `As injury in the quarterfinals put his availability for the gold medal game in doubt, the Canadian captain thought of his teammates first.`\
 https://nytimes.com/athletic/7064010/2026/02/22/sidney-crosby-olympics-mens-hockey-canada-captain/
-
-**How Team USA wrote a new story with logic-defying gold-medal victory over Canada**\
-`Canada was better than the United States in the gold medal game, but Team USA pulled off a win that American hockey fans will never forget.`\
-https://nytimes.com/athletic/7063963/2026/02/22/usa-gold-medal-olympics-hockey-connor-hellebuyck/
-
-**The Briefing: Tottenham 1 Arsenal 4 – Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
-`Mikel Arteta's side breathed fresh life into their title pursuit with a comprehensive victory in the north London derby`\
-https://nytimes.com/athletic/7054733/2026/02/22/tottenham-1-arsenal-4-gyokeres-eze-rice/
 

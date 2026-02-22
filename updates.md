@@ -1,3 +1,11 @@
+**How to watch Knicks vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064153/2026/02/22/knicks-vs-bulls-stream-how-to-watch-feb-22/
+
+**How to watch Magic vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064150/2026/02/22/magic-vs-clippers-stream-how-to-watch-feb-22/
+
 **How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
