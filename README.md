@@ -1,3 +1,19 @@
+**How to watch 76ers vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063784/2026/02/22/76ers-vs-timberwolves-stream-how-to-watch-feb-22/
+
+**How to watch Hornets vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063782/2026/02/22/hornets-vs-wizards-stream-how-to-watch-feb-22/
+
+**All-Star pitcher Joe Ryan, Twins receive good MRI news: 'All we could ask for'**\
+`Ryan is only dealing with inflammation and will "be down for a few days here just to let things calm down,” Twins manager Jeremy Zoll said.`\
+https://nytimes.com/athletic/7063675/2026/02/22/joe-ryan-twins-pitcher-mri-mlb/
+
+**How to watch Mavericks vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063777/2026/02/22/mavericks-vs-pacers-stream-how-to-watch-feb-22/
+
 **How to watch Celtics vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063769/2026/02/22/celtics-vs-lakers-stream-how-to-watch-feb-22/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7063381/2026/02/22/usa-olympics-mens-hockey-gold-me
 **Supersmart Sheet-Pan Charred Meat Pitas**\
 `They come together quickly, and if you make the meat mixture today, you can spread and broil it on the bread tomorrow for a 15-minute dinner.`\
 https://nytimes.com/2026/02/22/dining/supersmart-sheet-pan-charred-meat-pitas.html
-
-**Former FIFA chief Blatter criticises World Cup format, says U.S. has too many matches**\
-`Blatter also said that the relationship between President Trump and FIFA's Gianni Infantino "changed the game" for the tournament.`\
-https://nytimes.com/athletic/7063393/2026/02/22/sepp-blatter-fifa-world-cup-united-states/
-
-**Guardians agree to minor-league deal with Rhys Hoskins: Sources**\
-`The first baseman, who still needs to pass a physical, can earn a $1.5 million base salary if he makes Cleveland's major-league roster.`\
-https://nytimes.com/athletic/6836463/2026/02/22/mlb-rhys-hoskins-free-agency-signing-guardians/
-
-**2026 BAFTA Film Awards: Looks From the Red Carpet**\
-`Stars have begun to arrive at the Royal Festival Hall in London for Britain’s biggest celebration of film.`\
-https://nytimes.com/2026/02/22/style/baftas-red-carpet-photos-2026.html
-
-**Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
-`The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
-https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
 
