@@ -1,40 +1,40 @@
-**Eileen Gu defends Olympic gold in women’s freeski halfpipe**\
-`Gu further cements her legacy as the most decorated women’s freestyle skier in history.`\
-https://nytimes.com/athletic/7063380/2026/02/22/eileen-gu-olympics-gold-womens-freeski-halfpipe/
+**Russia Attacks Ukraine Ahead of Invasion’s 4th Anniversary**\
+`At least one man was killed in Kyiv as Moscow launched a wave of drones and missiles, days after the latest round of U.S.-mediated talks to end the war.`\
+https://nytimes.com/2026/02/22/world/europe/ukraine-russia-attacks-lviv.html
 
-**Inside Cubs camp: How elite talent, data and discipline are shaping spring training**\
-`At Cubs camp, every swing, throw and step is measured, revealing how preparation and precision define success.`\
-https://nytimes.com/athletic/7062438/2026/02/22/cubs-spring-training-alex-bregman-technology-jaxon-wiggins-pitching/
+**With spring games underway, Giants fans can finally get to know Tony Vitello as a manager**\
+`Vitello's soliloquy about how he left Tennessee doesn't tell us much about how he will be as a manager. The proof will be in the managing. `\
+https://nytimes.com/athletic/7061515/2026/02/22/sf-giants-tony-vitello-managerial-style-spring-training/
 
-**Is the Swipe Era Over?**\
-`Meet the new (and old) ways we’re finding love in 2026.`\
-https://nytimes.com/2026/02/22/podcasts/the-daily/is-the-swipe-era-over.html
+**What is the hamate bone injury that has plagued MLB stars?**\
+`Hamate bone injuries sidelined the D-Backs' Corbin Carroll, Mets' Francisco Lindor and Orioles' Jackson Holliday before spring training.`\
+https://nytimes.com/athletic/7062095/2026/02/22/hamate-bone-mlb-injuries-francisco-lindor/
 
-**Connections Companion No. 988**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 23, 2026.`\
-https://nytimes.com/2026/02/22/crosswords/connections-companion-988.html
+**CFB rules committee to examine targeting, pants length punishments: Sources**\
+`The targeting penalty has drawn fans' ire since it was introduced in 2008. Uniform violations are a more recent concern for refs.`\
+https://nytimes.com/athletic/7062162/2026/02/22/targeting-suspensions-pants-length-ncaa-rules-changes/
 
-**Strands Sidekick No. 722**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 23, 2026.`\
-https://nytimes.com/2026/02/22/crosswords/strands-sidekick-722.html
+**Is This the Most Important Supreme Court Case of the Century?**\
+`The tariff ruling may have just helped save the Republic.`\
+https://nytimes.com/2026/02/22/opinion/tariffs-trump-supreme-court.html
 
-**Wordle Review No. 1,710**\
-`Scroll down for hints and conversation about the puzzle for Monday, Feb. 23, 2026.`\
-https://nytimes.com/2026/02/22/crosswords/wordle-review-1710.html
+**New Phillies coach Don Mattingly faces old team while getting to know his new one**\
+`Mattingly took out the lineup card for the Grapefruit League opener because his old friends were on the other side.`\
+https://nytimes.com/athletic/7062785/2026/02/22/don-mattingly-phillies-coach-blue-jays/
 
-**Here are the five biggest snowstorms in New York City since 1869.**\
-`By Ashley Ahn`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/here-are-the-five-biggest-snowstorms-in-new-york-city-since-1869
+**What I'm seeing in Red Sox camp: New locker locations, Willson Contreras' intensity and more**\
+`How this camp feels different from a year ago, plus Sonny Gray's "veteran program" and an under-the-radar bench option.`\
+https://nytimes.com/athletic/7061349/2026/02/22/red-sox-spring-training-atmosphere-willson-contreras/
 
-**Here is the latest.**\
-`(No description)`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/here-is-the-latest
+**The Bible Tells Us to Love Immigrants**\
+`The biblical moral revolution was to love those not of one’s own land.`\
+https://nytimes.com/2026/02/22/opinion/immigrants-religion-bible-politics.html
 
-**Here’s What to Know About This Winter Storm Forecast**\
-`Boston and New York were bracing for a punishing mix of heavy snow and strong winds that will bring blizzard conditions. “Stay home and stay inside,” forecasters said.`\
-https://nytimes.com/2026/02/22/weather/noreaster-forecast.html
+**Historians Confirm: Tomorrow Won’t Be Better Than Today**\
+`The human capacity for hope is an essential quality. But hope can also turn into delusion.`\
+https://nytimes.com/2026/02/22/opinion/history-hope-delusion.html
 
-**Live Updates: Major Winter Storm Takes Aim at the East Coast**\
-`The storm, which is expected to pummel the Northeast and Mid-Atlantic regions through Monday, could bring 20 inches or more of snow to New York City.`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow
+**College basketball observations: OK, now who's the No. 1 overall seed?**\
+`After a wild Saturday, it's a delightful question to consider as March Madness draws near: Are we sure we know which team is best?`\
+https://nytimes.com/athletic/7063179/2026/02/22/college-basketball-results-arizona-duke-michigan/
 
