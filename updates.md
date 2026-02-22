@@ -1,3 +1,11 @@
+**Tony Vitello's exhibition debut as Giants manager: Cool, calm and 'nothing crazy'**\
+`Just as at Tennessee, Vitello intently watched every moment — so intently, he got locked on to a pitcher and couldn't avoid a foul ball.`\
+https://nytimes.com/athletic/7063102/2026/02/21/giants-manager-tony-vitello-debut-exhibition/
+
+**Winter Olympics Day 15 recap: Canada wins men's curling, Klæbo claims sixth gold medal**\
+`Plus Jordan Stolz caps stellar Games, 2-woman bobsled bronze is sixth medal for Kaillie Humphries, other news from Day 15 of the Olympics.`\
+https://nytimes.com/athletic/7062735/2026/02/21/olympics-recap-canada-curling-gold-klaebo-record/
+
 **Vikings receiver Rondale Moore found dead at 25**\
 `Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
 https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/

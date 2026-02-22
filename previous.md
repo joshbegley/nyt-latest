@@ -1,3 +1,11 @@
+**Tony Vitello's exhibition debut as Giants manager: Cool, calm and 'nothing crazy'**\
+`Just as at Tennessee, Vitello intently watched every moment — so intently, he got locked on to a pitcher and couldn't avoid a foul ball.`\
+https://nytimes.com/athletic/7063102/2026/02/21/giants-manager-tony-vitello-debut-exhibition/
+
+**Winter Olympics Day 15 recap: Canada wins men's curling, Klæbo claims sixth gold medal**\
+`Plus Jordan Stolz caps stellar Games, 2-woman bobsled bronze is sixth medal for Kaillie Humphries, other news from Day 15 of the Olympics.`\
+https://nytimes.com/athletic/7062735/2026/02/21/olympics-recap-canada-curling-gold-klaebo-record/
+
 **Willie Colón: 14 Essential Songs and Albums**\
 `The trombonist, singer, bandleader, composer and producer from the Bronx helped shape the sound of salsa.`\
 https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-
 **Trump Pulls Support From House Republican Who Opposed Tariffs**\
 `The president yanked his endorsement of Representative Jeff Hurd of Colorado, imperiling Republicans’ chances of holding onto his seat as they brace for midterm losses.`\
 https://nytimes.com/2026/02/21/us/trump-pulls-endorsement-hurd-tariffs.html
-
-**2 Skiers Are Injured After Being Buried in Utah Avalanche**\
-`The men were skiing on Saturday in a backcountry area of the Big Cottonwood Canyon near Salt Lake City, said officials, who urged caution in unstable snow conditions.`\
-https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
-
-**As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
-`Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
-https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
 
