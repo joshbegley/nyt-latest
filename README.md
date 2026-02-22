@@ -1,40 +1,40 @@
-**Ronaldo reaffirms Al Nassr commitment: 'I belong to Saudi Arabia'**\
-`The 41-year-old said he wanted to stay at the Saudi Pro League side after a disagreement with the club saw him miss three games this month.`\
-https://nytimes.com/athletic/7063279/2026/02/22/cristiano-ronaldo-al-nassr-saudi-pro-league/
+**They Did Deals With Trump to Get Lower Tariffs. Now They Are Stuck.**\
+`Countries that under the threat of tariffs made commitments like enormous investment pledges face the reality that they may have been better off waiting.`\
+https://nytimes.com/2026/02/22/business/trump-tariffs-japan-indonesia.html
 
-**New York Braces for Another Fierce Winter Storm**\
-`The storm was expected to hit much of the Northeast and coastal Mid-Atlantic region on Sunday, and could bring at least 13 to 18 inches of snow to the city, according to the National Weather Service.`\
-https://nytimes.com/2026/02/22/weather/new-york-braces-for-another-fierce-winter-storm.html
+**At Least 15 Have Died on Tahoe-Area Slopes This Year**\
+`Three more skiers have died in the Lake Tahoe area since the deadliest avalanche in California history on Tuesday killed nine.`\
+https://nytimes.com/2026/02/22/us/tahoe-ski-deaths.html
 
-**‘I Pushed Him Hard Into a Pile of Black Bags Covering the Sidewalk’**\
-`A rough first take in SoHo, a triple bill at the Fillmore East and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/02/22/nyregion/metropolitan-diary.html
+**A Fractured ‘Never Trump’ Movement Eyes an Uncertain Future**\
+`Divisions over what and who should come next were evident as G.O.P. critics of the president, weakened in their party, gathered at a summit near Washington.`\
+https://nytimes.com/2026/02/22/us/politics/anti-trump-republicans-divisions-2028-president.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/22/crosswords/spelling-bee-forum.html
+**Newsom, Targeting Red States, Kicks Off Book Tour in Nashville**\
+`Scores of Californians have moved to Tennessee for its friendlier business environment and conservative politics. On Saturday, the Democratic governor accused of driving them away paid a visit.`\
+https://nytimes.com/2026/02/22/us/newsom-book-tour-nashville-conservatives.html
 
-**Fat Signing Bonuses, and Concierge Service, for Family Doctors**\
-`In a country where a quarter of the population lacks a family doctor, Canadian communities compete in a zero-sum battle to recruit family doctors.`\
-https://nytimes.com/2026/02/22/world/canada/fat-signing-bonuses-and-concierge-service-for-family-doctors.html
+**How to watch Team USA vs. Canada in men's hockey gold-medal match**\
+`Team USA is seeking its first gold medal since 1980, exactly 46 years after the Miracle on Ice. Canada is aiming for its 10th Olympic gold. `\
+https://nytimes.com/athletic/7062370/2026/02/22/usa-canada-mens-hockey-gold-olympics-how-to-watch/
 
-**Will Threat of Prison Make One of New York’s ‘Worst Landlords’ Change?**\
-`Tenants said one of the city’s most notorious landlords let rats run free and left them cold during the winter. Now, charged with harassment, he’s facing up to four years in prison.`\
-https://nytimes.com/2026/02/22/nyregion/nyc-landlords-daniel-ohebshalom.html
+**Should I Tell My Housekeeper, ‘I’m Here for You’?**\
+`Plus, what to do when your job interviewer spouts off on things better left unsaid.`\
+https://nytimes.com/2026/02/22/business/should-i-tell-my-housekeeper-im-here-for-you.html
 
-**'I've been disappointed with my club' – Benfica, the team with the eyes of the world on it**\
-`The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
-https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
+**Shutdown at D.H.S. Extends to Cyber Agency, Adding to Setbacks**\
+`The Cybersecurity and Infrastructure Security Agency has navigated staffing cuts without a Senate-confirmed leader. Employees have become demoralized and concerned about the agency’s ability to ward off threats.`\
+https://nytimes.com/2026/02/22/us/politics/cyber-agency-dhs-security-setbacks.html
 
-**Lionel Messi and Inter Miami suffer on MLS opening night as Son and LAFC run riot in front of 75,673**\
-`The Argentine icon and Miami's other stars could not prevent LAFC dominating a game that drew the second-largest crowd in MLS history`\
-https://nytimes.com/athletic/7063245/2026/02/22/messi-son-inter-miami-lafc-mls-season/
+**Observing Ramadan Feels Different This Year for Minnesota’s Somali Community**\
+`Faith leaders said many people were still afraid to leave their homes, even after the weekslong federal immigration crackdown ended.`\
+https://nytimes.com/2026/02/22/us/ramadan-minnesota-somali.html
 
-**Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\
-`UCLA finds legs, erases 23-point deficit and earns dramatic win with a finish reminiscent of Tyus Edney's classic 1995 moment.`\
-https://nytimes.com/athletic/7063184/2026/02/22/donovan-dent-ucla-illinois-buzzer-beater/
+**Trump’s Challenge to Free Market Capitalism**\
+`Stakes in private companies. Handshake deals with chief executives. The president’s economic policy has drifted far from principles that long defined the Republican Party. Is it capitalism at all?`\
+https://nytimes.com/2026/02/22/business/economy/trump-republicans-economy-capitalism.html
 
-**What's next for USWNT and Chelsea striker Catarina Macario?**\
-`Injuries have kept the 2025 USWNT leading goal scorer out of the SheBelieves Cup as well as Champions League action with Chelsea.`\
-https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scorer-chelsea-women/
+**Sex, Secrets and Neglect Fuel Lauren Groff’s New Book**\
+`The best stories in “Brawler” find the writer tackling the tectonic shifts that can suddenly crack open seemingly secure families.`\
+https://nytimes.com/2026/02/22/books/review/lauren-groff-brawler.html
 
