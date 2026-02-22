@@ -1,3 +1,7 @@
+**North London derby delayed for six minutes after issues with officials' communication**\
+`Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
+https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
