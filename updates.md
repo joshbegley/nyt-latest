@@ -1,3 +1,7 @@
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
+
 **Our 26 favorite gold-medal moments from the 2026 Milan Cortina games**\
 `A look back at our favorite podium-topping moments from the 2026 Games, with at least one for every sport.`\
 https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-moments/

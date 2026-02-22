@@ -1,3 +1,7 @@
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
+
 **Our 26 favorite gold-medal moments from the 2026 Milan Cortina games**\
 `A look back at our favorite podium-topping moments from the 2026 Games, with at least one for every sport.`\
 https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-moments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063782/2026/02/22/hornets-vs-wizards-stream-how-to
 **All-Star pitcher Joe Ryan, Twins receive good MRI news: 'All we could ask for'**\
 `Ryan is only dealing with inflammation and will "be down for a few days here just to let things calm down,” Twins manager Jeremy Zoll said.`\
 https://nytimes.com/athletic/7063675/2026/02/22/joe-ryan-twins-pitcher-mri-mlb/
-
-**How to watch Mavericks vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063777/2026/02/22/mavericks-vs-pacers-stream-how-to-watch-feb-22/
 
