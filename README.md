@@ -1,3 +1,7 @@
+**Tom Noonan, Actor Renowned for Onscreen Menace, Dies at 74**\
+`He played memorable screen villains, notably a psychopath in “Manhunter,” but also wrote, directed and starred in well-received plays at a theater he founded in Manhattan.`\
+https://nytimes.com/2026/02/21/movies/tom-noonan-dead.html
+
 **T206 Honus Wagner card sells for $5.1 million**\
 `This marks the third-highest sale of the iconic Wagner card ever. `\
 https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/nyregion/nyc-nurses-strike-ends.html
 **Macklin Celebrini's Olympic success for Team Canada a joy for Steve Kerr, Warriors**\
 `"Everybody's engaged," Kerr said. "Especially the guys who have been here a while, who know Rick so well and Macklin and the family."`\
 https://nytimes.com/athletic/7062986/2026/02/21/warriors-macklin-celebrini-olympics-usa-canada-steve-kerr/
-
-**How the Blue Jays shift from World Series Game 7 to spring training Game 1**\
-`Eric Lauer's leg twitched with nerves in his first spring outing since pitching in the longest game in World Series history.`\
-https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-series-hangover-eric-lauer/
 

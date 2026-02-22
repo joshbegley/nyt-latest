@@ -1,4 +1,12 @@
 **T206 Honus Wagner card sells for $5.1 million**\
+`This marks the third-highest sale of the iconic Wagner card ever. `\
+https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
+
+**Vikings receiver Rondale Moore found dead at 25**\
+`Police say Moore was found dead inside the garage of a property in New Albany, Ind.`\
+https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
+
+**T206 Honus Wagner card sells for $5.1 million**\
 `This marks the third highest sale of the iconic Wagner card ever. `\
 https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
 

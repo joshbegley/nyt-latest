@@ -1,5 +1,5 @@
 **T206 Honus Wagner card sells for $5.1 million**\
-`This marks the third highest sale of the iconic Wagner card ever. `\
+`This marks the third-highest sale of the iconic Wagner card ever. `\
 https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
 
 **Tony Vitello's exhibition debut as Giants manager: Cool, calm and 'nothing crazy'**\
@@ -19,7 +19,7 @@ https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
 https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1-michigan-wolverines-basketball-2026/
 
 **Vikings receiver Rondale Moore found dead at 25**\
-`Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
+`Police say Moore was found dead inside the garage of a property in New Albany, Ind.`\
 https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
 
 **Already sans Devin Booker, Suns add Dillon Brooks, Jordan Goodwin to injury list**\
