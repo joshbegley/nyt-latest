@@ -1,3 +1,11 @@
+**How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
+
+**Iran Could Direct Proxies to Attack U.S. Targets Abroad, Officials Warn**\
+`Security officials are monitoring increasingly worrisome signs as President Trump considers another military campaign against Iran.`\
+https://nytimes.com/2026/02/22/us/politics/iran-terrorist-attacks-proxies-trump.html
+
 **The Case for Striking Iran**\
 `The Iranian people should not be let down again.`\
 https://nytimes.com/2026/02/22/opinion/iran-military-strike-trump.html
