@@ -1,3 +1,19 @@
+**How free-agent addition Rhys Hoskins fits with the Guardians**\
+`Why did Hoskins settle for a minor-league deal? What does he do well? Where does this addition leave Cleveland's roster?`\
+https://nytimes.com/athletic/7063811/2026/02/22/rhys-hoskins-guardians-free-agency-fit/
+
+**Trump Calls on Netflix to Oust Susan Rice From Its Board**\
+`The president made the attack as Netflix and Paramount Skydance face a key deadline in a bidding war for Warner Bros. Discovery.`\
+https://nytimes.com/2026/02/22/business/media/trump-netflix-susan-rice.html
+
+**Relegated at their city rivals. This was the ultimate humiliation for Sheffield Wednesday**\
+`The Championship's bottom side, who have endured one of the most miserable seasons in EFL history, had their fate sealed at Bramall Lane`\
+https://nytimes.com/athletic/7057169/2026/02/22/sheffield-wednesday-relegated-sheffield-united/
+
+**How Pep Guardiola has adapted Manchester City's attack to thrive without wingers**\
+`Manchester City are hunting down Arsenal and they are doing it without wingers who have been so important to Guardiola`\
+https://nytimes.com/athletic/7063360/2026/02/22/pep-guardiola-manchester-city-wingers/
+
 **When Faced With Claims of Racism, Trump Points to His Black Friends**\
 `President Trump has often invoked his unnamed Black friends, or name-checked celebrities and athletes, when asked to discuss anything related to Black voters.`\
 https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/22/style/bafta-2026-awards-red-carpet-looks.html
 **Wolves condemn 'abhorrent and unlawful' online racist abuse directed towards Arokodare**\
 `It comes a day after similar abuse was aimed at Wesley Fofana of Chelsea and Burnley’s Hannibal Mejbri.`\
 https://nytimes.com/athletic/7064157/2026/02/22/wolves-tolu-arokodare-racist-abuse/
-
-**Iran Students Protest for Second Day Despite State Crackdown**\
-`Student groups reported protests at universities in Iran’s two largest cities as the government grapples with domestic discontent and the threat of U.S. strikes.`\
-https://nytimes.com/2026/02/22/world/middleeast/iran-student-protests.html
-
-**How to watch Knicks vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7064153/2026/02/22/knicks-vs-bulls-stream-how-to-watch-feb-22/
-
-**How to watch Magic vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7064150/2026/02/22/magic-vs-clippers-stream-how-to-watch-feb-22/
-
-**How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
 
