@@ -1,3 +1,11 @@
+**How to watch Mississippi State vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063561/2026/02/22/mississippi-state-vs-texas-stream-how-to-watch-feb-22/
+
+**How to watch Iowa vs. Wisconsin men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063559/2026/02/22/iowa-vs-wisconsin-stream-how-to-watch-feb-22/
+
 **How to watch Iowa State vs. TCU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa State Cyclones play the TCU Horned Frogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063557/2026/02/22/iowa-state-vs-tcu-stream-how-to-watch-feb-22/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/22/upshot/winter-olympics-leaders-nations.html
 **Lowetide: Oilers hard target search for a second pair right-handed defenceman**\
 `The Oilers could spend their trade assets on a substantial right-handed defenceman at the deadline.`\
 https://nytimes.com/athletic/7062330/2026/02/22/edmonton-oilers-trade-targets-defencemen-right-side/
-
-**Tigers roster projection 2.0: How set is this team, really?**\
-`Justin Verlander and Framber Valdez add to a Tigers team featuring an otherwise familiar cast. `\
-https://nytimes.com/athletic/7062750/2026/02/22/tigers-roster-projection-2-0-how-set-is-this-team-really/
-
-**Reds' fifth starter competition off to strong start in Cactus League opener**\
-`Rotation candidates Julian Aguiar, Chase Burns and Rhett Lowder were solid in spring training debuts.`\
-https://nytimes.com/athletic/7062935/2026/02/22/reds-fifth-starter-cactus-league-opener-2026/
 
