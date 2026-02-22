@@ -1,3 +1,7 @@
+**New York Nurses’ Strike Ends After 6 Weeks as Last Holdouts Approve Deal**\
+`Workers at NewYork-Presbyterian/Columbia hospital voted for a contract with raises and layoff protections, meaning more than 4,000 nurses will return.`\
+https://nytimes.com/2026/02/21/nyregion/nyc-nurses-strike-ends.html
+
 **Macklin Celebrini's Olympic success for Team Canada a joy for Steve Kerr, Warriors**\
 `"Everybody's engaged," Kerr said. "Especially the guys who have been here a while, who know Rick so well and Macklin and the family."`\
 https://nytimes.com/athletic/7062986/2026/02/21/warriors-macklin-celebrini-olympics-usa-canada-steve-kerr/
