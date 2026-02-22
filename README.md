@@ -1,3 +1,7 @@
+**Devotion at the Olympics**\
+`As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
+https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html
+
 **Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
 `The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at the president’s resort in Florida, the agency said. The president was not at the club at the time.`\
 https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a
 **How to watch Nuggets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-to-watch-feb-22/
-
-**How to watch Nets vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063571/2026/02/22/nets-vs-hawks-stream-how-to-watch-feb-22/
 
