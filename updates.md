@@ -1,3 +1,7 @@
+**Tom Noonan, Actor Renowned for Onscreen Menace, Dies at 74**\
+`He played memorable screen villains, notably a psychopath in “Manhunter,” but also wrote, directed and starred in well-received plays at a theater he founded in Manhattan.`\
+https://nytimes.com/2026/02/21/movies/tom-noonan-dead.html
+
 **T206 Honus Wagner card sells for $5.1 million**\
 `This marks the third-highest sale of the iconic Wagner card ever. `\
 https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
