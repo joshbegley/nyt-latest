@@ -1,3 +1,7 @@
+**'I looked on the ice and saw my teeth': Jack Hughes scores golden goal with shattered smile**\
+`Hughes' shattered smile drew a lot of attention on Sunday in Team USA's Olympic gold medal win.`\
+https://nytimes.com/athletic/7064324/2026/02/22/jack-hughes-teeth-usa-olympics-hockey-gold-medal/
+
 **Does an Olympic gold medal change Auston Matthews' legacy?**\
 `"Doesn’t matter what anyone says now, Auston Matthews is a winner," Team USA forward Jack Hughes said.`\
 https://nytimes.com/athletic/7064090/2026/02/22/auston-matthews-olympics-maple-leafs-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064004/2026/02/22/iowa-michigan-womens-basketball-
 **How free-agent addition Rhys Hoskins fits with the Guardians**\
 `Why did Hoskins settle for a minor-league deal? What does he do well? Where does this addition leave Cleveland's roster?`\
 https://nytimes.com/athletic/7063811/2026/02/22/rhys-hoskins-guardians-free-agency-fit/
-
-**Trump Calls on Netflix to Oust Susan Rice From Its Board**\
-`The president made the attack as Netflix and Paramount Skydance face a key deadline in a bidding war for Warner Bros. Discovery.`\
-https://nytimes.com/2026/02/22/business/media/trump-netflix-susan-rice.html
 
