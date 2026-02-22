@@ -1,3 +1,7 @@
+**Macklin Celebrini's Olympic success for Team Canada a joy for Steve Kerr, Warriors**\
+`"Everybody's engaged," Kerr said. "Especially the guys who have been here a while, who know Rick so well and Macklin and the family."`\
+https://nytimes.com/athletic/7062986/2026/02/21/warriors-macklin-celebrini-olympics-usa-canada-steve-kerr/
+
 **How the Blue Jays shift from World Series Game 7 to spring training Game 1**\
 `Eric Lauer's leg twitched with nerves in his first spring outing since pitching in the longest game in World Series history.`\
 https://nytimes.com/athletic/7062962/2026/02/21/blue-jays-spring-training-world-series-hangover-eric-lauer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062853/2026/02/21/chelsea-burnley-fofana-mejbri-ra
 **Political Drama ‘Yellow Letters’ Wins Top Prize at Berlin Film Festival**\
 `The film, from the director Ilker Catak, explores political repression in Turkey. Another movie set in the country, “Salvation,” took the runner-up prize.`\
 https://nytimes.com/2026/02/21/movies/berlinale-film-festival-winners.html
-
-**Kennedy Center Performance Canceled After Substance Poured on Ice Rink**\
-`An individual poured an unknown dark liquid onto a temporary skating rink at the Kennedy Center late Thursday night, in what the venue called a “calculated” attack.`\
-https://nytimes.com/2026/02/21/arts/design/kennedy-center-protest-ice-rink.html
 
