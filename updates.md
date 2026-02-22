@@ -1,3 +1,7 @@
+**The Briefing: Forest 0 Liverpool 1 - Late Mac Allister winner after elbow goal ruled out, but was this worst first half of season?**\
+`Liverpool needed a 97th-minute winner from the Argentinian to seal three points against Forest after a disappointing performance`\
+https://nytimes.com/athletic/7054732/2026/02/22/liverpool-mac-allister-goal-winner-forest-salah/
+
 **How to watch 76ers vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063784/2026/02/22/76ers-vs-timberwolves-stream-how-to-watch-feb-22/

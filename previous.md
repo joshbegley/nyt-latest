@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7063777/2026/02/22/mavericks-vs-pacers-stream-how-t
 https://nytimes.com/athletic/7063769/2026/02/22/celtics-vs-lakers-stream-how-to-watch-feb-22/
 
 **The Briefing: Forest 0 Liverpool 1 - Late Mac Allister winner after elbow goal ruled out, but was this worst first half of season?**\
-`Liverpool needed a 97th-minute winner from the Argentine to seal three points against Forest after a disappointing performance`\
+`Liverpool needed a 97th-minute winner from the Argentinian to seal three points against Forest after a disappointing performance`\
 https://nytimes.com/athletic/7054732/2026/02/22/liverpool-mac-allister-goal-winner-forest-salah/
 
 **How to watch Wisconsin vs. UCLA women's basketball: Time, TV, streaming**\
