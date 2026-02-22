@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Arsenal 4 — Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
+`Mikel Arteta's side breathed fresh life into their title pursuit with a comprehensive victory in the north London derby`\
+https://nytimes.com/athletic/7054733/2026/02/22/tottenham-1-arsenal-4-gyokeres-eze-rice/
+
 **Photos of more than 200 gold medalists in the 2026 Winter Olympics**\
 `<p>Here you’ll find photos of every gold medalist at the 2026 Winter Olympics — more than two hundred athletes who competed across 16 sports and 116 events in the Milan Cortina Games.</p>
 `\

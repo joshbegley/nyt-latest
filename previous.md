@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Arsenal 4 — Gyokeres and Eze spare Rice's blushes to get title charge back on track**\
+`Mikel Arteta's side breathed fresh life into their title pursuit with a comprehensive victory in the north London derby`\
+https://nytimes.com/athletic/7054733/2026/02/22/tottenham-1-arsenal-4-gyokeres-eze-rice/
+
 **Photos of more than 200 gold medalists in the 2026 Winter Olympics**\
 `<p>Here you’ll find photos of every gold medalist at the 2026 Winter Olympics — more than two hundred athletes who competed across 16 sports and 116 events in the Milan Cortina Games.</p>
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-lead
 **North London derby delayed for six minutes after officials' technical issues**\
 `Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
 https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/
-
-**What to Know About the Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
 
