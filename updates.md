@@ -1,3 +1,15 @@
+**Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
+
+**Map: 7.1-Magnitude Earthquake Shakes the South China Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/02/22/world/quake-tracker-malaysia.html
+
+**Top Mexico Cartel Leader Has Been Killed, Government Says**\
+`Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel. The Mexican government said he was killed on Sunday.`\
+https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
+
 **North London derby delayed for six minutes after officials' technical issues**\
 `Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
 https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/

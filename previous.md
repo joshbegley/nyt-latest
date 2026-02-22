@@ -1,3 +1,15 @@
+**Hundreds of New Yorkers are expected to work as emergency snow shovelers.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/hundreds-of-new-yorkers-are-expected-to-work-as-emergency-snow-shovelers
+
+**Map: 7.1-Magnitude Earthquake Shakes the South China Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/02/22/world/quake-tracker-malaysia.html
+
+**Top Mexico Cartel Leader Has Been Killed, Government Says**\
+`Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel. The Mexican government said he was killed on Sunday.`\
+https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
+
 **North London derby delayed for six minutes after officials' technical issues**\
 `Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
 https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7063804/2026/02/22/florian-wirtz-liverpool-back-inj
 **Trump Aides Project Confidence on Tariffs After Court Loss**\
 `Administration officials maintain that they can replicate the sky-high duties recently invalidated by the Supreme Court.`\
 https://nytimes.com/2026/02/22/business/trump-administration-tariffs-supreme-court-loss.html
-
-**See the Storm Take Shape From Space**\
-`Early Sunday, the storm was a comma-shaped swirl off the Carolinas.`\
-https://nytimes.com/2026/02/22/weather/nyc-noreaster-space-satellite.html
-
-**How to watch 76ers vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063784/2026/02/22/76ers-vs-timberwolves-stream-how-to-watch-feb-22/
-
-**How to watch Hornets vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063782/2026/02/22/hornets-vs-wizards-stream-how-to-watch-feb-22/
 
