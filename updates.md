@@ -1,3 +1,11 @@
+**Sidney Crosby ruled out for Canada in gold medal game vs. Team USA**\
+`Crosby, who was injured in Canada's quarterfinal game on Wednesday, will not play in the gold medal game against the United States.`\
+https://nytimes.com/athletic/7063361/2026/02/22/sidney-crosby-injury-olympics-gold-medal-game-canada-usa/
+
+**Homeland Security to Shut T.S.A. PreCheck and Global Entry at Airports**\
+`The department said that it would suspend the priority airport security programs on Sunday, about a week after its funding lapsed.`\
+https://nytimes.com/2026/02/22/us/tsa-precheck-global-entry-homeland-security-shutdown.html
+
 **Russia Attacks Ukraine Ahead of Invasion’s 4th Anniversary**\
 `At least one man was killed in Kyiv as Moscow launched a wave of drones and missiles, days after the latest round of U.S.-mediated talks to end the war.`\
 https://nytimes.com/2026/02/22/world/europe/ukraine-russia-attacks-lviv.html
