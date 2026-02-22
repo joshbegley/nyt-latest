@@ -1,3 +1,7 @@
+**What to watch on Day 16 of Winter Olympics: Men's hockey final, Eileen Gu in postponed halfpipe**\
+`U.S. cross-country skier Jessie Diggins' final Olympic appearance comes as women race 50 kilometers in the Olympics for the first time.`\
+https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-usa-canada-gu-halfpipe/
+
 **It's a two-point Premier League title race. But can this Manchester City do a Manchester City?**\
 `"I don't know if we are able to win three, four, five, six games in a row. I don't know. I don't know," Pep Guardiola has said`\
 https://nytimes.com/athletic/7060139/2026/02/22/manchester-city-arsenal-title-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/pageoneplus/quote-of-the-day-after-enduring-horro
 **Trump Looks Ahead to Summit With China’s Xi, but Tariffs and Taiwan Loom**\
 `President Trump said his planned meeting with President Xi Jinping would be a grand display, but tensions over trade and defense could dampen the mood.`\
 https://nytimes.com/2026/02/22/world/asia/trump-xi-jinping-meeting-china.html
-
-**Norway’s Record Olympic Medal Haul Is a Welcome Distraction From Scandal**\
-`Norway, led by the cross-country skiing sensation Johannes Hoesflot Klaebo, topped the medal table for the fourth straight Winter Games.`\
-https://nytimes.com/2026/02/22/world/europe/2026-winter-olympics-klaebo-norway-epstein.html
 
