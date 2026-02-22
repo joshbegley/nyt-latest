@@ -1,3 +1,7 @@
+**As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
+`Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
+https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
+
 **For Ilia Malinin, Amber Glenn, Alysa Liu, Olympic gala is about messaging, with some fun**\
 `There was a catharsis for the stars of figure skating as they skated in the Olympic exhibition gala.`\
 https://nytimes.com/athletic/7062906/2026/02/21/ilia-malinin-amber-glenn-alysa-liu-olympics-figure-skating-gala/
