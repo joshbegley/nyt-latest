@@ -10,8 +10,8 @@ https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1
 `Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
 https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
 
-**Sans Devin Booker, Jalen Green and Suns win double-OT thriller but injury woes persist**\
-`The Suns (33-24) have been one of the league’s top surprises, but their health has recently caused issues.`\
+**Sans Devin Booker, Jalen Green and Suns win double-OT thriller, but injury woes persist**\
+`The Suns (33-24) have been one of the league’s top surprises, but their health has caused issues of late.`\
 https://nytimes.com/athletic/7063117/2026/02/21/devin-booker-hip-injury-suns-jalen-green-game-winner/
 
 **New York Nurses’ Strike Ends After 6 Weeks as Last Holdouts Approve Deal**\
