@@ -1,3 +1,7 @@
+**How to watch Nuggets vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-to-watch-feb-22/
+
 **How to watch Nets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063571/2026/02/22/nets-vs-hawks-stream-how-to-watch-feb-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063553/2026/02/22/duke-vs-clemson-stream-how-to-wa
 **How to watch USC vs. Ohio State women's basketball: Time, TV, streaming**\
 `Find out how to watch the USC Trojans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063551/2026/02/22/usc-vs-ohio-state-stream-how-to-watch-feb-22/
-
-**How to watch Tennessee vs. Oklahoma women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063547/2026/02/22/tennessee-vs-oklahoma-stream-how-to-watch-feb-22/
 

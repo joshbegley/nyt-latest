@@ -1,3 +1,7 @@
+**How to watch Nets vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7063571/2026/02/22/nets-vs-hawks-stream-how-to-watch-feb-22/
+
 **U.S.-Canada Tensions Turn Olympic Hockey Final Into a ‘Grudge Match’**\
 `Amid growing cross-border political animosity, the game meant even more than usual to Canadian fans who had flown in for one of the marquee events of the Winter Games.`\
 https://nytimes.com/2026/02/22/world/europe/us-canada-hockey-gold-medal-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063551/2026/02/22/usc-vs-ohio-state-stream-how-to-
 **How to watch Tennessee vs. Oklahoma women's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Lady Volunteers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063547/2026/02/22/tennessee-vs-oklahoma-stream-how-to-watch-feb-22/
-
-**How to watch Kentucky vs. Vanderbilt women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063544/2026/02/22/kentucky-vs-vanderbilt-stream-how-to-watch-feb-22/
 
