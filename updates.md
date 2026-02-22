@@ -1,3 +1,15 @@
+**Canada’s Spirit Rises and Falls With Its Olympic Hockey Teams**\
+`Canadians jammed bars that opened at dawn across the nation on Sunday but the United States dealt the team, and the country, a devastating blow in overtime.`\
+https://nytimes.com/2026/02/22/world/canada/2026-olympics-hockey-canada-united-states.html
+
+**'I looked on the ice and saw my teeth': Jack Hughes scores golden goal with shattered smile**\
+`Hughes' shattered smile drew a lot of attention on Sunday in Team USA's Olympic gold medal win.`\
+https://nytimes.com/athletic/7064324/2026/02/22/jack-hughes-teeth-usa-olympics-hockey-gold-medal/
+
+**Warriors' Kristaps Porziņģis, Draymond Green out vs. Nuggets**\
+`Porziņģis was declared out with an undisclosed illness earlier Sunday. Green was scratched before the opening tip with a lower back issue.`\
+https://nytimes.com/athletic/7064179/2026/02/22/kristaps-porzingis-illness-warriors-nuggets-nba/
+
 **Does an Olympic gold medal change Auston Matthews' legacy?**\
 `"Doesn’t matter what anyone says now, Auston Matthews is a winner," Team USA forward Jack Hughes said.`\
 https://nytimes.com/athletic/7064090/2026/02/22/auston-matthews-olympics-maple-leafs-legacy/
