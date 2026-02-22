@@ -1,3 +1,11 @@
+**Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
+`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at the president’s resort in Florida, the agency said. The president was not at the club at the time.`\
+https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
+
+**Brazilian soccer club apologises after player's sexist remarks**\
+`RB Bragantino's Gustavo Marques said the Sao Paulo football federation has to "not appoint a female referee" after a quarter-final defeat.`\
+https://nytimes.com/athletic/7063436/2026/02/22/red-bull-bragantino-brazil-sexist-apology/
+
 **Trump Administration Live Updates: President Presses On With New Tariffs After Supreme Court Ruling**\
 ``\
 https://nytimes.com/live/2026/02/22/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-t
 **How to watch Nets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063571/2026/02/22/nets-vs-hawks-stream-how-to-watch-feb-22/
-
-**U.S.-Canada Tensions Turn Olympic Hockey Final Into a ‘Grudge Match’**\
-`Amid growing cross-border political animosity, the game meant even more than usual to Canadian fans who had flown in for one of the marquee events of the Winter Games.`\
-https://nytimes.com/2026/02/22/world/europe/us-canada-hockey-gold-medal-olympics.html
-
-**How to watch Raptors vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063567/2026/02/22/raptors-vs-bucks-stream-how-to-watch-feb-22/
 
