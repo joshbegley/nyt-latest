@@ -1,3 +1,11 @@
+**N.C. Man Shot and Killed at Mar-a-Lago Liked to Draw Golf Courses**\
+`The 21-year-old man was killed by law enforcement officers after he entered Mar-a-Lago with a weapon.`\
+https://nytimes.com/2026/02/22/us/north-carolina-man-shot-.html
+
+**What 3 Olympic gold medals means for Wild stretch run: 'They got a taste of winning'**\
+`While Quinn Hughes, Brock Faber and Matt Boldy were playing for Olympic gold, their Wild teammates were just as excited.`\
+https://nytimes.com/athletic/7064210/2026/02/22/minnesota-wild-olympics-usa-gold-medal-playoffs/
+
 **Ahead of the storm, a coyote took shelter at a Manhattan ice rink.**\
 `By Miles G. Cohen`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/ahead-of-the-storm-a-coyote-took-shelter-at-a-manhattan-ice-rink
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7064324/2026/02/22/jack-hughes-teeth-usa-olympics-h
 **Does an Olympic gold medal change Auston Matthews' legacy?**\
 `"Doesn’t matter what anyone says now, Auston Matthews is a winner," Team USA forward Jack Hughes said.`\
 https://nytimes.com/athletic/7064090/2026/02/22/auston-matthews-olympics-maple-leafs-legacy/
-
-**BAFTAs 2026: ‘One Battle After Another’ Wins Best Film**\
-`Paul Thomas Anderson’s comedy drama won six awards at the British equivalent of the Oscars. The best actor choice, however, was a surprise.`\
-https://nytimes.com/2026/02/22/movies/baftas-2026.html
-
-**USA's gold medal is no 'Miracle on Ice' — but its impact on the nation could be the same**\
-`The Americans' gold-medal win helps USA Hockey turn the page on that 1980 story and inspire a new generation of U.S. fans and players.`\
-https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-on-ice/
 
