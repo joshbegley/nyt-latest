@@ -1,3 +1,7 @@
+**Devotion at the Olympics**\
+`As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
+https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html
+
 **Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
 `The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at the president’s resort in Florida, the agency said. The president was not at the club at the time.`\
 https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
