@@ -1,3 +1,7 @@
+**T206 Honus Wagner card sells for $5.1 million**\
+`This marks the third highest sale of the iconic Wagner card ever. `\
+https://nytimes.com/athletic/7063171/2026/02/21/t206-honus-wagner-card-sale-goldin/
+
 **Tony Vitello's exhibition debut as Giants manager: Cool, calm and 'nothing crazy'**\
 `Just as at Tennessee, Vitello intently watched every moment — so intently, he got locked on to a pitcher and couldn't avoid a foul ball.`\
 https://nytimes.com/athletic/7063102/2026/02/21/giants-manager-tony-vitello-debut-exhibition/
