@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: President Presses On With New Tariffs After Supreme Court Ruling**\
+``\
+https://nytimes.com/live/2026/02/22/us/trump-news
+
+**I Went to Prison and Found Support and Community**\
+`Unlike the version of prison conjured on TV and in the movies, I found a community quick to be generous and kind.`\
+https://nytimes.com/2026/02/22/opinion/men-prison-pardons.html
+
+**The Many Gifts of Kidney Donation**\
+`Readers respond to an Opinion essay by German Lopez about his decision to become a living kidney donor.`\
+https://nytimes.com/2026/02/22/opinion/kidney-donation.html
+
+**Sheffield Wednesday suffer earliest relegation in EFL history**\
+`The Championship club's defeat to city rivals Sheffield United has left them on minus seven points, 41 from safety. `\
+https://nytimes.com/athletic/7063523/2026/02/22/sheffield-wednesday-efl-championship-earliest-relegation/
+
 **Rockets’ struggles with adversity come to forefront again in collapse against Knicks**\
 `Late-game losses, Houston's Kevin Durant on Saturday, have occurred because "we don’t play with that dominant trait."`\
 https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/22/world/europe/us-canada-hockey-gold-medal-olympics
 **How to watch Raptors vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063567/2026/02/22/raptors-vs-bucks-stream-how-to-watch-feb-22/
-
-**How to watch Mississippi State vs. Texas women's basketball: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063561/2026/02/22/mississippi-state-vs-texas-stream-how-to-watch-feb-22/
-
-**How to watch Iowa vs. Wisconsin men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063559/2026/02/22/iowa-vs-wisconsin-stream-how-to-watch-feb-22/
-
-**How to watch Iowa State vs. TCU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063557/2026/02/22/iowa-state-vs-tcu-stream-how-to-watch-feb-22/
-
-**How to watch Missouri vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063555/2026/02/22/missouri-vs-lsu-stream-how-to-watch-feb-22/
 
