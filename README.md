@@ -1,3 +1,7 @@
+**Arab Leaders Condemn Remarks by U.S. Ambassador to Israel**\
+`The ambassador, Mike Huckabee, seemed to endorse Israeli control of lands stretching from Egypt to Iraq. He said his comments were taken out of context.`\
+https://nytimes.com/2026/02/22/world/middleeast/huckabee-israel-tucker-carlson.html
+
 **Devotion at the Olympics**\
 `As the Games close, we reflect on how the athletes are like modern ascetics. Through commitment and sacrifice, they achieve a higher form.`\
 https://nytimes.com/2026/02/22/briefing/devotion-at-the-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks
 **This storm came as a surprise to many, including forecasters.**\
 `By Judson Jones and Erin McCann`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
-
-**How to watch Nuggets vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-to-watch-feb-22/
 
