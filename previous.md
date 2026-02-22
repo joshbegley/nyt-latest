@@ -1,3 +1,7 @@
+**This storm came as a surprise to many, including forecasters.**\
+`By Judson Jones and Erin McCann`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
+
 **How to watch Nuggets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-to-watch-feb-22/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063555/2026/02/22/missouri-vs-lsu-stream-how-to-wa
 **How to watch Duke vs. Clemson women's basketball: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063553/2026/02/22/duke-vs-clemson-stream-how-to-watch-feb-22/
-
-**How to watch USC vs. Ohio State women's basketball: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063551/2026/02/22/usc-vs-ohio-state-stream-how-to-watch-feb-22/
 

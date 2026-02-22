@@ -1,3 +1,7 @@
+**Rockets’ struggles with adversity come to forefront again in collapse against Knicks**\
+`Late-game losses, Houston's Kevin Durant on Saturday, have occurred because "we don’t play with that dominant trait."`\
+https://nytimes.com/athletic/7063270/2026/02/22/rockets-loss-kevin-durant-knicks-nba/
+
 **This storm came as a surprise to many, including forecasters.**\
 `By Judson Jones and Erin McCann`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063557/2026/02/22/iowa-state-vs-tcu-stream-how-to-
 **How to watch Missouri vs. LSU women's basketball: Time, TV, streaming**\
 `Find out how to watch the Missouri Tigers play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063555/2026/02/22/missouri-vs-lsu-stream-how-to-watch-feb-22/
-
-**How to watch Duke vs. Clemson women's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7063553/2026/02/22/duke-vs-clemson-stream-how-to-watch-feb-22/
 

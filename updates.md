@@ -1,3 +1,7 @@
+**This storm came as a surprise to many, including forecasters.**\
+`By Judson Jones and Erin McCann`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/this-storm-came-as-a-surprise-to-many-including-forecasters
+
 **How to watch Nuggets vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063578/2026/02/22/nuggets-vs-warriors-stream-how-to-watch-feb-22/
