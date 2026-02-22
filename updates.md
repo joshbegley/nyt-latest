@@ -1,3 +1,8 @@
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
 **F.B.I. Director Celebrates Hockey Victory as Bureau Stares Down Crises**\
 `Kash Patel’s trip to Italy came at a fraught and frenetic time for the bureau and Mr. Patel, who has shown little willingness to curb his jet-setting.`\
 https://nytimes.com/2026/02/22/us/politics/fbi-director-patel-olympics-mar-a-lago.html

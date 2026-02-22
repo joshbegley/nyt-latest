@@ -1,3 +1,7 @@
+**Olympics close out Milan Cortina Games with Major Lazer, opera and anthems**\
+`Athletes were clearly in a loose mood as the Olympics bid them farewell.`\
+https://nytimes.com/athletic/7063879/2026/02/22/closing-ceremony-milan-cortina-winter-olympics-verona/
+
 **F.B.I. Director Celebrates Hockey Victory as Bureau Stares Down Crises**\
 `Kash Patel’s trip to Italy came at a fraught and frenetic time for the bureau and Mr. Patel, who has shown little willingness to curb his jet-setting.`\
 https://nytimes.com/2026/02/22/us/politics/fbi-director-patel-olympics-mar-a-lago.html
@@ -29,13 +33,9 @@ https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-b
 
 **Trump Considers Targeted Strike Against Iran, Followed by Larger Attack**\
 `The top negotiators plan to meet in Geneva on Thursday for last-ditch talks, debating a new proposal that could create an off-ramp as two carrier groups massed within striking distance of Iran.`\
-https://nytimes.com/2026/02/22/us/politics/trump-considers-targeted-strike-against-iran-followed-by-larger-attack.html
+https://nytimes.com/2026/02/22/us/politics/trump-iran-strike-attack.html
 
 **Courting China Again**\
 `The German chancellor will travel to Beijing this week, the latest high-level visitor as Western countries pivot back to China.`\
 https://nytimes.com/2026/02/22/world/china-germany-diplomacy-trump-tariffs-mexico.html
-
-**Offline and off the ice, Canadians and Americans are getting along just fine**\
-`The hockey was great when the U.S. and Canada played for gold, topped only by the good spirit in the crowd.`\
-https://nytimes.com/athletic/7064172/2026/02/22/usa-hockey-canada-politics/
 
