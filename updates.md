@@ -1,3 +1,11 @@
+**Man Is Fatally Shot at Mar-a-Lago, Secret Service Says**\
+`The man was killed early Sunday after an “unauthorized entry” into the secure perimeter at the president’s resort in Florida, the agency said. The president was not at the club at the time.`\
+https://nytimes.com/2026/02/22/us/politics/mar-a-lago-shooting-secret-service.html
+
+**Brazilian soccer club apologises after player's sexist remarks**\
+`RB Bragantino's Gustavo Marques said the Sao Paulo football federation has to "not appoint a female referee" after a quarter-final defeat.`\
+https://nytimes.com/athletic/7063436/2026/02/22/red-bull-bragantino-brazil-sexist-apology/
+
 **Trump Administration Live Updates: President Presses On With New Tariffs After Supreme Court Ruling**\
 ``\
 https://nytimes.com/live/2026/02/22/us/trump-news
