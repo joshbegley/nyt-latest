@@ -1,3 +1,7 @@
+**2 Skiers Are Injured After Being Buried in Utah Avalanche**\
+`The men were skiing on Saturday in a backcountry area of the Big Cottonwood Canyon near Salt Lake City, said officials, who urged caution in unstable snow conditions.`\
+https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
+
 **As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
 `Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
 https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/crosswords/daily-puzzle-2026-02-22.html
 **Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
 `The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
 https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
-
-**Why game action is especially important for Bo Bichette this spring**\
-`Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
-https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
 
