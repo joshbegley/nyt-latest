@@ -1,3 +1,8 @@
+**Photos of more than 200 gold medalists in the 2026 Winter Olympics**\
+`<p>Here you’ll find photos of every gold medalist at the 2026 Winter Olympics — more than two hundred athletes who competed across 16 sports and 116 events in the Milan Cortina Games.</p>
+`\
+https://nytimes.com/athletic/7057627/2026/02/22/photos-of-more-than-200-gold-medalists-in-the-2026-winter-olympics/
+
 **Angels players, MLBPA 'took notice' when Arte Moreno suggested fans don't prioritize winning**\
 `“If you can’t have a successful operation in Los Angeles, it’s hard to see what the problem is," said MLBPA director Bruce Meyer.`\
 https://nytimes.com/athletic/7063931/2026/02/22/arte-moreno-comments-winning-angels-players-union/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-totte
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
-
-**Our 26 favorite gold-medal moments from the 2026 Milan Cortina games**\
-`A look back at our favorite podium-topping moments from the 2026 Games, with at least one for every sport.`\
-https://nytimes.com/athletic/7063488/2026/02/22/winter-olympics-best-gold-medal-moments/
 
