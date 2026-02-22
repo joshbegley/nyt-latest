@@ -2,8 +2,8 @@
 `The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
 https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
 
-**Messi and Inter Miami suffer on MLS opening night in road defeat to LAFC**\
-`The Argentine icon and Miami's collection of stars could not prevent LAFC from running riot.`\
+**Lionel Messi and Inter Miami suffer on MLS opening night as Son and LAFC run riot in front of 75,673**\
+`The Argentine icon and Miami's other stars could not prevent LAFC dominating a game that drew the second-largest crowd in MLS history`\
 https://nytimes.com/athletic/7063245/2026/02/22/messi-son-inter-miami-lafc-mls-season/
 
 **Donovan Dent's coast-to-coast buzzer-beater lifts UCLA over Illinois in OT**\

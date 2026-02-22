@@ -1,3 +1,23 @@
+**New York Braces for Another Fierce Winter Storm**\
+`The storm was expected to hit much of the Northeast and coastal Mid-Atlantic region on Sunday, and could bring at least 13 to 18 inches of snow to the city, according to the National Weather Service.`\
+https://nytimes.com/2026/02/22/weather/new-york-braces-for-another-fierce-winter-storm.html
+
+**‘I Pushed Him Hard Into a Pile of Black Bags Covering the Sidewalk’**\
+`A rough first take in SoHo, a triple bill at the Fillmore East and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/02/22/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/22/crosswords/spelling-bee-forum.html
+
+**Fat Signing Bonuses, and Concierge Service, for Family Doctors**\
+`In a country where a quarter of the population lacks a family doctor, Canadian communities compete in a zero-sum battle to recruit family doctors.`\
+https://nytimes.com/2026/02/22/world/canada/fat-signing-bonuses-and-concierge-service-for-family-doctors.html
+
+**Will Threat of Prison Make One of New York’s ‘Worst Landlords’ Change?**\
+`Tenants said one of the city’s most notorious landlords let rats run free and left them cold during the winter. Now, charged with harassment, he’s facing up to four years in prison.`\
+https://nytimes.com/2026/02/22/nyregion/nyc-landlords-daniel-ohebshalom.html
+
 **'I've been disappointed with my club' — Benfica, the team with the eyes of the world on it**\
 `The Athletic attended Benfica's first match since the shameful incidents in the week involving alleged racist abuse of Vinicius Junior`\
 https://nytimes.com/athletic/7057428/2026/02/22/benfica-vinicius-prestianni-mourinho-avs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7059100/2026/02/22/catarina-macario-uswnt-goal-scor
 **Our Leaders Are Not Us**\
 `Nationalism may be on the rise, but at the Olympics our shared humanity easily crossed borders.`\
 https://nytimes.com/2026/02/22/opinion/olympics-nationalism-trump.html
-
-**Ukraine Has Passed a Point of No Return**\
-`Four years that changed everything.`\
-https://nytimes.com/2026/02/22/opinion/ukraine-russia-war-four-years.html
-
-**The New York Times in Print for Sunday, Feb. 22, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/22/todays-new-york-times
-
-**Inside Iran’s Preparation for War and Plans for Survival**\
-`Supreme Leader Ayatollah Ali Khamenei has entrusted Ali Larijani, the top national security official, to ensure the Islamic Republic endures possible war and assassination.`\
-https://nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html
-
-**How the Times Weather Team Tracks Big Storms: More Data, Less Hype**\
-`When making forecasts, our reporters aim to visualize severe weather possibilities rather than focus on the most dire predictions. A possible blizzard this weekend is the latest test.`\
-https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html
-
-**What to watch on Day 16 of Winter Olympics: Men's hockey final, Eileen Gu in postponed halfpipe**\
-`U.S. cross-country skier Jessie Diggins' final Olympic appearance comes as women race 50 kilometers in the Olympics for the first time.`\
-https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-usa-canada-gu-halfpipe/
 
