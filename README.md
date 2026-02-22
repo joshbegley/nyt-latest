@@ -1,3 +1,7 @@
+**North London derby delayed for six minutes after issues with officials' communication**\
+`Sky Sports commentator Gary Neville described the situation as an "absolute shambles" on the broadcast.`\
+https://nytimes.com/athletic/7063844/2026/02/22/north-london-derby-delayed-tottenham-arsenal/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/22/us/nancy-guthrie-case-updates
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063784/2026/02/22/76ers-vs-timberwolves-stream-how
 **How to watch Hornets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7063782/2026/02/22/hornets-vs-wizards-stream-how-to-watch-feb-22/
-
-**All-Star pitcher Joe Ryan, Twins receive good MRI news: 'All we could ask for'**\
-`Ryan is only dealing with inflammation and will "be down for a few days here just to let things calm down,” Twins manager Jeremy Zoll said.`\
-https://nytimes.com/athletic/7063675/2026/02/22/joe-ryan-twins-pitcher-mri-mlb/
 
