@@ -1,3 +1,7 @@
+**Trump Pulls Support From House Republican Who Opposed Tariffs**\
+`The president yanked his endorsement of Representative Jeff Hurd of Colorado, imperiling Republicans’ chances of holding onto his seat as they brace for midterm losses.`\
+https://nytimes.com/2026/02/21/us/trump-pulls-endorsement-hurd-tariffs.html
+
 **2 Skiers Are Injured After Being Buried in Utah Avalanche**\
 `The men were skiing on Saturday in a backcountry area of the Big Cottonwood Canyon near Salt Lake City, said officials, who urged caution in unstable snow conditions.`\
 https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/21/arts/design/kennedy-center-protest-ice-rink.html
 **Books of the Bible**\
 `Jill Rafaloff and Michelle Sontarp’s collaboration takes us to school, but it’s all in good fun.`\
 https://nytimes.com/2026/02/21/crosswords/daily-puzzle-2026-02-22.html
-
-**Twins' Joe Ryan misses start with sore back, putting WBC participation in jeopardy**\
-`The Twins sent their All-Star righty to get an MRI after announcing he was a late scratch before a scheduled start against the Red Sox.`\
-https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-wbc/
 
