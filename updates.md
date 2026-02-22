@@ -1,3 +1,7 @@
+**Mexico’s Most-Wanted Cartel Boss Killed by Security Forces, Officials Say**\
+`Nemesio Oseguera Cervantes, also known as “El Mencho,” was the head of the Jalisco New Generation Cartel and widely regarded as one of the country’s most violent criminal figures.`\
+https://nytimes.com/2026/02/22/world/americas/jalisco-new-generation-cartel-leader-killed.html
+
 **Angels players, MLBPA 'took notice' when Arte Moreno suggested fans don't prioritize winning**\
 `“If you can’t have a successful operation in Los Angeles, it’s hard to see what the problem is," said MLBPA director Bruce Meyer.`\
 https://nytimes.com/athletic/7063931/2026/02/22/arte-moreno-comments-winning-angels-players-union/
