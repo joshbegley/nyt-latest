@@ -1,3 +1,11 @@
+**The Case for Striking Iran**\
+`The Iranian people should not be let down again.`\
+https://nytimes.com/2026/02/22/opinion/iran-military-strike-trump.html
+
+**‘The Waterfall’ Review: A Mother’s Blessing and a Daughter’s Burden**\
+`Phanésia Pharel’s wistful two-hander starring Patrice Johnson Chevannes and Natalie Paul looks at a Haitian American family and questions of legacy.`\
+https://nytimes.com/2026/02/22/theater/waterfall-review-patrice-johnson-chevannes.html
+
 **Brandon Nimmo on his Mets departure, his leadership style and his Rangers future**\
 `Nimmo opened up about his bond with Steve Cohen, the clubhouse dynamic with Francisco Lindor and his new role as a mentor in Texas. `\
 https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7057627/2026/02/22/photos-of-more-than-200-gold-med
 **Angels players, MLBPA 'took notice' when Arte Moreno suggested fans don't prioritize winning**\
 `“If you can’t have a successful operation in Los Angeles, it’s hard to see what the problem is," said MLBPA director Bruce Meyer.`\
 https://nytimes.com/athletic/7063931/2026/02/22/arte-moreno-comments-winning-angels-players-union/
-
-**Interactive Maps and Charts: Tracking the Northeast Winter Storm**\
-`See where snowfall and cold temperatures are expected.`\
-https://nytimes.com/interactive/2026/02/22/weather/noreaster-snowfall-map.html
-
-**In final Olympic race, Jessie Diggins says goodbye her way, with an all-out effort**\
-`Beyond her four Olympic medals, Diggins' legacy is in demonstrating to the winter sport community there is another way of excellence.`\
-https://nytimes.com/athletic/7063637/2026/02/22/olympics-jessie-diggins-milan-cross-country-skiing/
 

@@ -1,3 +1,11 @@
+**The Case for Striking Iran**\
+`The Iranian people should not be let down again.`\
+https://nytimes.com/2026/02/22/opinion/iran-military-strike-trump.html
+
+**‘The Waterfall’ Review: A Mother’s Blessing and a Daughter’s Burden**\
+`Phanésia Pharel’s wistful two-hander starring Patrice Johnson Chevannes and Natalie Paul looks at a Haitian American family and questions of legacy.`\
+https://nytimes.com/2026/02/22/theater/waterfall-review-patrice-johnson-chevannes.html
+
 **Brandon Nimmo on his Mets departure, his leadership style and his Rangers future**\
 `Nimmo opened up about his bond with Steve Cohen, the clubhouse dynamic with Francisco Lindor and his new role as a mentor in Texas. `\
 https://nytimes.com/athletic/7063524/2026/02/22/mets-rangers-brandon-nimmo-trade/
