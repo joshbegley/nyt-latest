@@ -1,3 +1,8 @@
+**Team USA's gold medal is vindication for Bill Guerin: 'I'm sure he feels a lot better now'**\
+`From before and after making the bold roster decisions that made the gold medal team, Guerin never cared what his critics said. 
+`\
+https://nytimes.com/athletic/7064222/2026/02/22/usa-gold-medal-olympics-hockey-bill-guerin/
+
 **Ahead of the storm, a coyote took shelter at a Manhattan ice rink.**\
 `By Miles G. Cohen`\
 https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/ahead-of-the-storm-a-coyote-took-shelter-at-a-manhattan-ice-rink
