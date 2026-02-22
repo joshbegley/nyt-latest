@@ -1,3 +1,19 @@
+**Willie Colón: 14 Essential Songs and Albums**\
+`The trombonist, singer, bandleader, composer and producer from the Bronx helped shape the sound of salsa.`\
+https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
+
+**No. 3 Duke knocks off No. 1 Michigan for inside track to top tournament seed**\
+`The result gives the Blue Devils the upper hand in securing the no. 1 overall seed in the upcoming 2026 NCAA Tournament. `\
+https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1-michigan-wolverines-basketball-2026/
+
+**Vikings receiver Rondale Moore dies at 25**\
+`Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
+https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
+
+**Sans Devin Booker, Jalen Green and Suns win double-OT thriller but injury woes persist**\
+`The Suns (33-24) have been one of the league’s top surprises, but their health has recently caused issues.`\
+https://nytimes.com/athletic/7063117/2026/02/21/devin-booker-hip-injury-suns-jalen-green-game-winner/
+
 **New York Nurses’ Strike Ends After 6 Weeks as Last Holdouts Approve Deal**\
 `Workers at NewYork-Presbyterian/Columbia hospital voted for a contract with raises and layoff protections, meaning more than 4,000 nurses will return.`\
 https://nytimes.com/2026/02/21/nyregion/nyc-nurses-strike-ends.html

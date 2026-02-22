@@ -1,3 +1,19 @@
+**Willie Colón: 14 Essential Songs and Albums**\
+`The trombonist, singer, bandleader, composer and producer from the Bronx helped shape the sound of salsa.`\
+https://nytimes.com/2026/02/21/arts/music/willie-colon-songs.html
+
+**No. 3 Duke knocks off No. 1 Michigan for inside track to top tournament seed**\
+`The result gives the Blue Devils the upper hand in securing the no. 1 overall seed in the upcoming 2026 NCAA Tournament. `\
+https://nytimes.com/athletic/7063068/2026/02/21/no-3-duke-blue-devils-upset-no-1-michigan-wolverines-basketball-2026/
+
+**Vikings receiver Rondale Moore dies at 25**\
+`Officials have not released a cause of death for the former Purdue star receiver. An autopsy has been scheduled for Sunday.`\
+https://nytimes.com/athletic/7063110/2026/02/21/vikings-rondale-moore-dies-at-25/
+
+**Sans Devin Booker, Jalen Green and Suns win double-OT thriller but injury woes persist**\
+`The Suns (33-24) have been one of the league’s top surprises, but their health has recently caused issues.`\
+https://nytimes.com/athletic/7063117/2026/02/21/devin-booker-hip-injury-suns-jalen-green-game-winner/
+
 **New York Nurses’ Strike Ends After 6 Weeks as Last Holdouts Approve Deal**\
 `Workers at NewYork-Presbyterian/Columbia hospital voted for a contract with raises and layoff protections, meaning more than 4,000 nurses will return.`\
 https://nytimes.com/2026/02/21/nyregion/nyc-nurses-strike-ends.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
 **As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
 `Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
 https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
-
-**For Ilia Malinin, Amber Glenn, Alysa Liu, Olympic gala is about messaging, with some fun**\
-`There was a catharsis for the stars of figure skating as they skated in the Olympic exhibition gala.`\
-https://nytimes.com/athletic/7062906/2026/02/21/ilia-malinin-amber-glenn-alysa-liu-olympics-figure-skating-gala/
-
-**Jayson Tatum has no return date in mind: 'Nothing is set in stone'**\
-`“I know what 100 percent feels like,” Tatum said. “And if and when that time comes, I’ll be ready.”`\
-https://nytimes.com/athletic/7062842/2026/02/21/jayson-tatum-return-date-injury-rehab/
-
-**Traveling This Weekend? Here’s What to Know About the Snowstorm.**\
-`A major winter storm on Sunday and Monday is expected to bring delays and cancellations across much of the Northeast.`\
-https://nytimes.com/2026/02/21/travel/flight-cancellations-blizzard.html
-
-**Chelsea and Burnley condemn racist abuse of Wesley Fofana and Hannibal Mejbri**\
-`Wesley Fofana and Hannibal Mejbri shared images of racist abuse they had received`\
-https://nytimes.com/athletic/7062853/2026/02/21/chelsea-burnley-fofana-mejbri-racist-abuse-news/
 
