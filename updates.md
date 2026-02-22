@@ -1,3 +1,7 @@
+**Trump Pulls Support From House Republican Who Opposed Tariffs**\
+`The president yanked his endorsement of Representative Jeff Hurd of Colorado, imperiling Republicans’ chances of holding onto his seat as they brace for midterm losses.`\
+https://nytimes.com/2026/02/21/us/trump-pulls-endorsement-hurd-tariffs.html
+
 **2 Skiers Are Injured After Being Buried in Utah Avalanche**\
 `The men were skiing on Saturday in a backcountry area of the Big Cottonwood Canyon near Salt Lake City, said officials, who urged caution in unstable snow conditions.`\
 https://nytimes.com/2026/02/21/us/avalanche-death-utah-skiers.html
