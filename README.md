@@ -1,3 +1,7 @@
+**As Finland claims bronze in Olympic men's hockey, Slovakia faces disappointment**\
+`Finland bounced back from its crushing Canada loss with a rout of upstart Slovakia, earning its fifth medal in six Olympics with NHLers.`\
+https://nytimes.com/athletic/7062927/2026/02/21/finland-slovakia-olympic-hockey-bronze-medal/
+
 **For Ilia Malinin, Amber Glenn, Alysa Liu, Olympic gala is about messaging, with some fun**\
 `There was a catharsis for the stars of figure skating as they skated in the Olympic exhibition gala.`\
 https://nytimes.com/athletic/7062906/2026/02/21/ilia-malinin-amber-glenn-alysa-liu-olympics-figure-skating-gala/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062860/2026/02/21/minnesota-twins-joe-ryan-injury-
 **Why game action is especially important for Bo Bichette this spring**\
 `Although he was the Toronto Blue Jays' mainstay at shortstop since 2019, a new club also means a new position for Bichette.`\
 https://nytimes.com/athletic/7062699/2026/02/21/bo-bichette-mets-spring-training-third-base/
-
-**Willie Colón, a Luminary of Salsa Music, Dies at 75**\
-`A trombonist, singer, bandleader, composer and arranger, he collaborated with Rubén Blades on “Siembra,” a 1978 release that became one of the top-selling salsa albums of all time.`\
-https://nytimes.com/2026/02/21/arts/music/willie-colon-dead.html
 
