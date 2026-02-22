@@ -1,3 +1,7 @@
+**USA's gold medal is no 'Miracle on Ice' — but its impact on the nation could be the same**\
+`The Americans' gold-medal win helps USA Hockey turn the page on that 1980 story and inspire a new generation of U.S. fans and players.`\
+https://nytimes.com/athletic/7064095/2026/02/22/usa-olympic-gold-medal-miracle-on-ice/
+
 **Kristaps Porziņģis out vs. Nuggets with illness**\
 `Warriors coach Steve Kerr said it's unclear whether Porziņģis will travel during the team's upcoming two-game trip.`\
 https://nytimes.com/athletic/7064179/2026/02/22/kristaps-porzingis-illness-warriors-nuggets-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057169/2026/02/22/sheffield-wednesday-relegated-sh
 **How Pep Guardiola has adapted Manchester City's attack to thrive without wingers**\
 `Manchester City are hunting down Arsenal and they are doing it without wingers who have been so important to Guardiola`\
 https://nytimes.com/athletic/7063360/2026/02/22/pep-guardiola-manchester-city-wingers/
-
-**When Faced With Claims of Racism, Trump Points to His Black Friends**\
-`President Trump has often invoked his unnamed Black friends, or name-checked celebrities and athletes, when asked to discuss anything related to Black voters.`\
-https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
 
