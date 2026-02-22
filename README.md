@@ -1,3 +1,7 @@
+**When Faced With Claims of Racism, Trump Points to His Black Friends**\
+`President Trump has often invoked his unnamed Black friends, or name-checked celebrities and athletes, when asked to discuss anything related to Black voters.`\
+https://nytimes.com/2026/02/22/us/politics/trump-black-people-history.html
+
 **How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
 `The American men's hockey team paid tribute to the late Gaudreau brothers when they got their gold medals on Sunday.`\
 https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064150/2026/02/22/magic-vs-clippers-stream-how-to-
 **How to watch Trail Blazers vs. Suns: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7064136/2026/02/22/trail-blazers-vs-suns-stream-how-to-watch-feb-22/
-
-**Iran Could Direct Proxies to Attack U.S. Targets Abroad, Officials Warn**\
-`Security officials are monitoring increasingly worrisome signs as President Trump considers another military campaign against Iran.`\
-https://nytimes.com/2026/02/22/us/politics/iran-terrorist-attacks-proxies-trump.html
 

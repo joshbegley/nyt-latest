@@ -1,4 +1,8 @@
 **How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
+`The American men's hockey team paid tribute to the late Gaudreau brothers when they got their gold medals on Sunday.`\
+https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
+
+**How Team USA honored late Johnny and Matthew Gaudreau with Olympic gold medal win**\
 `When the American men's hockey team won Olympic gold for the first time in 46 years, they paid tribute to the late Johnny Gaudreau.`\
 https://nytimes.com/athletic/7064053/2026/02/22/usa-hockey-olympics-gold-medal-johnny-gaudreau/
 
