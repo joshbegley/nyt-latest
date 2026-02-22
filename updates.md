@@ -1,3 +1,7 @@
+**How the Times Weather Team Tracks Big Storms: More Data, Less Hype**\
+`When making forecasts, our reporters aim to visualize severe weather possibilities rather than focus on the most dire predictions. A possible blizzard this weekend is the latest test.`\
+https://nytimes.com/2026/02/22/insider/weather-team-forecast-blizzard.html
+
 **What to watch on Day 16 of Winter Olympics: Men's hockey final, Eileen Gu in postponed halfpipe**\
 `U.S. cross-country skier Jessie Diggins' final Olympic appearance comes as women race 50 kilometers in the Olympics for the first time.`\
 https://nytimes.com/athletic/7062904/2026/02/22/olympics-what-to-watch-hockey-usa-canada-gu-halfpipe/
