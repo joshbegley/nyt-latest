@@ -1,3 +1,7 @@
+**Submit your questions for the college basketball mailbag**\
+`What's on your mind with three weeks until the NCAA Tournament?`\
+https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mailbag-2026/
+
 **Karl-Anthony Towns' curious season has taken a turn for the better**\
 `Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
 https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
