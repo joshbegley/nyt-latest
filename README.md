@@ -1,3 +1,15 @@
+**Another C.D.C. Vaccine Skeptic Steps Down**\
+`Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
+https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
+
+**Trinidad Chambliss jumps up Heisman odds board after eligibility ruling**\
+`Ole Miss quarterback Trinidad Chambliss will be back for one final year and will be one of the favorites to win the Heisman Trophy.`\
+https://nytimes.com/athletic/7065811/2026/02/23/trinidad-chambliss-heisman-odds-eligibility-ruling/
+
+**‘A Cocked Pistol Aimed at Iran’**\
+`Trump is gambling dangerously with military power, says the Times Opinion columnist David French on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010724005/a-cocked-pistol-aimed-at-iran.html
+
 **Nick Reiner Pleads Not Guilty in the Killing of His Parents**\
 `Mr. Reiner, 32, was charged with murdering his parents, the Hollywood director Rob Reiner and Michele Singer Reiner, last year.`\
 https://nytimes.com/2026/02/23/arts/nick-reiner-plea.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
 **Games Briefing: Your favorite moments**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7066101/2026/02/23/your-favorite-moments-milan-cortina-olympics-games-briefing/
-
-**‘One Battle After Another’ Wins Big at BAFTAs**\
-`Paul Thomas Anderson’s comedy drama “One Battle After Another“ took home six awards at Britain’s equivalent to the Oscars on Sunday.`\
-https://nytimes.com/video/world/europe/100000010730361/bafta-awards-winners.html
-
-**Scoop City: 4 freakish NFL combine athletes to know**\
-`Meet the athletic wonders your team might draft, plus look at this year's hardest free-agency group to assess`\
-https://nytimes.com/athletic/7065923/2026/02/23/nfl-combine-freaks-to-watch-prospects-scoop-city/
-
-**How a Tourette’s Outburst of a Racist Slur Caused a Backlash at the BAFTAs**\
-`A racist slur, shouted involuntarily while Michael B. Jordan and Delroy Lindo were presenting an award, raised questions about how the show’s host and the BBC responded.`\
-https://nytimes.com/2026/02/23/movies/baftas-tourettes.html
 

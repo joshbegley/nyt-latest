@@ -1,3 +1,7 @@
+**U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
+`Peter Mandelson is being investigated over accusations of “misconduct in public office” amid his dealings with Jeffrey Epstein, the sex offender.`\
+https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
+
 **Nick Reiner Pleads Not Guilty in the Killing of His Parents**\
 `Mr. Reiner, 32, was charged with murdering his parents, the Hollywood director Rob Reiner and Michele Singer Reiner, last year.`\
 https://nytimes.com/2026/02/23/arts/nick-reiner-plea.html
