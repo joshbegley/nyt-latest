@@ -1,3 +1,7 @@
+**Hunkering Down in Mexico, Some Hope for a Flight Out Amid Burning Cars**\
+`People from Canada and the United States tell of scrambling for safety, food and flights after violence erupted in Mexico when a cartel boss died in custody.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-visitors-flights-violence.html
+
 **Violence in Mexico After Cartel Boss Is Killed**\
 `Mexican officials carried out an operation that killed the nation’s most wanted cartel boss Nemesio Oseguera Cervantes, known as “El Mencho.” The death of Mr. Oseguera, who was the head of Mexico’s most powerful criminal organization, set off a wave of violence across the country.`\
 https://nytimes.com/video/world/americas/100000010730844/mexico-cartel-violence-mencho.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/dining/nyc-restaurants-blizzard.html
 **Carlos Mendoza reflects on what he could have done differently in 2025: 'I fell short'**\
 `Multiple team sources pointed to Mendoza’s communication as occasionally lacking in 2025, but they added that it was a fixable issue.`\
 https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-communicator-clubhouse/
-
-**The Briefing: Everton 0 Man United 1 - sub Sesko scores late again as Carrick run continues**\
-`Carl Anka analyses the main talking points from Manchester United's victory at Everton`\
-https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analysis/
 
