@@ -14,8 +14,8 @@ https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.htm
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times
 
-**No, Trump Isn’t Good for Putin**\
-`Russian hopes for respect have been dashed.`\
+**Putin Had High Hopes for Trump. They Have Been Dashed.**\
+`The U.S. president is actually pretty bad for Russia.`\
 https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
 
 **The ‘Scrubs’ Reboot, Plus 6 Things to Watch on TV This Week**\
