@@ -1,3 +1,5 @@
+
+
 **One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
 `Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
 https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
