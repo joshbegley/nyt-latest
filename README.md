@@ -1,3 +1,27 @@
+**How Arsenal adapted to Igor Tudor's tactical system much more effectively than Spurs did**\
+`It was an impressive performance from the league leaders – but no other Premier League opponent will afford them this much space`\
+https://nytimes.com/athletic/7065384/2026/02/23/tottenham-arsenal-premier-league-analysis-tudor-eze-gyokeres/
+
+**A Weeknight Winner for When You’re Sick of Winter**\
+`Melissa Clark’s recipe for five-star skillet chicken thighs with brown butter corn looks solidly to warmer weather.`\
+https://nytimes.com/2026/02/23/dining/a-weeknight-winner-for-when-youre-sick-of-winter.html
+
+**How a Horse Whinnies: With a Whistle and a Song**\
+`Horses, with their high-pitched whinnies, seemed to buck the trend of larger animals producing lower sounds, but a new study explains the mechanics behind the noises a horse makes.`\
+https://nytimes.com/2026/02/23/science/horses-whinny-sounds.html
+
+**‘Survivor’ Is America**\
+`It’s our greatest game and our truest mirror. And in its tiki-torch-festooned way, it’s captured our society as an ever-changing collection of tribes.`\
+https://nytimes.com/2026/02/23/arts/television/survivor-season-50.html
+
+**The Rise of Eyes Began With Just One**\
+`Even Charles Darwin was puzzled by the evolution of the vertebrate eye. New research suggests that it traces back to a cyclopean invertebrate with a single eye atop the head.`\
+https://nytimes.com/2026/02/23/science/evolution-vertebrate-eye.html
+
+**Key Witness Who Disputed ICE Account of Fatal Texas Shooting Dies in Car Accident**\
+`A passenger in the car with Ruben Ray Martinez wrote that the men were trying to comply with authorities before Mr. Martinez was shot. The passenger, Joshua Orta, died in a car accident on Saturday.`\
+https://nytimes.com/2026/02/23/us/ice-shooting-texas-witness-dead.html
+
 **The Bounce: A Stern-er Adam Silver? Plus, the sizzling Spurs and Pistons collide**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7065925/2026/02/23/the-bounce-a-stern-er-adam-silver-plus-the-sizzling-spurs-and-pistons-collide/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/23/world/europe/france-us-ambassador-kushner-activis
 **Blue Jackets Monday Gathering: Teammates revel in Werenski's gold, and a stirring Gaudreau tribute**\
 `Even the Canadians on the Columbus roster appreciated how Werenski represented himself and the team.`\
 https://nytimes.com/athletic/7061991/2026/02/23/werenski-gaudreau-olympics-blue-jackets/
-
-**Trump invites gold-winning U.S. men's hockey team to State of the Union**\
-`The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
-https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
-
-**Grading each NBA team as the season's stretch run begins**\
-`With less than two months left in the season, are teams performing up to their expectations, and what's the outlook the rest of the way?`\
-https://nytimes.com/athletic/7063911/2026/02/23/nba-team-grades-second-half/
-
-**The Bucks have a promising young trio of guards. Can they mesh with Giannis?**\
-`Ryan Rollins, Kevin Porter Jr. and Cam Thomas can all score and like to do so. But Giannis will need the ball in his hands when he returns.`\
-https://nytimes.com/athletic/7065349/2026/02/23/bucks-guards-rollins-porter-thomas-giannis/
-
-**Supreme Court to Weigh Oil-Industry Effort to End a Major Climate Suit**\
-`The case could have significant bearing on a range of other lawsuits brought against the fossil fuel industry by cities and states across the country.`\
-https://nytimes.com/2026/02/23/climate/supreme-court-boulder-climate-lawsuit.html
-
-**Cities May Be ‘Evolutionary Training Grounds’ for Spotted Lanternflies**\
-`Living in urban China may have given the insects the traits they needed to thrive in the United States, a new study suggests.`\
-https://nytimes.com/2026/02/23/science/evolution-lanternflies-invasive.html
-
-**Catherine, Princess of Wales, and a Projection of Royal Unity**\
-`After Andrew Mountbatten-Windsor’s arrest, the Prince and Princess of Wales made a pointed BAFTA appearance.`\
-https://nytimes.com/2026/02/23/style/catherine-william-princess-of-wales-bafta-dress.html
 
