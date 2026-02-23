@@ -1,3 +1,11 @@
+**Carlos Mendoza reflects on what he could have done differently in 2025: 'I fell short'**\
+`Multiple team sources pointed to Mendoza’s communication as occasionally lacking in 2025, but they added that it was a fixable issue.`\
+https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-communicator-clubhouse/
+
+**The Briefing: Everton 0 Man United 1 - sub Sesko scores late again as Carrick run continues**\
+`Carl Anka analyses the main talking points from Manchester United's victory at Everton`\
+https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analysis/
+
 **Griezmann in advanced discussions to join Orlando City from Atletico**\
 `Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/books/washington-post-book-world.html
 **Mayweather, Pacquiao agree to September rematch in Las Vegas**\
 `The former multi-weight world champions first met in 2015, in what was billed as the 'Fight of the Century'.`\
 https://nytimes.com/athletic/7066703/2026/02/23/mayweather-pacquiao-rematch-when-where/
-
-**Europe’s New Way of War**\
-`Can Europe defend itself without the United States? A new strategic vision says yes.`\
-https://nytimes.com/2026/02/23/world/europe-defense-us-ukraine-mexico-tariffs.html
-
-**Snow Day! What It Looks Like When New York City Comes Out to Play.**\
-`Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
-https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
 
