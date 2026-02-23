@@ -1,3 +1,7 @@
+**A Wake for The Washington Post’s Books Section**\
+`Literary and cultural denizens of the nation’s capital gathered on Saturday to eulogize The Post’s scuppered Book World supplement.`\
+https://nytimes.com/2026/02/23/books/washington-post-book-world.html
+
 **Mayweather, Pacquiao agree to September rematch in Las Vegas**\
 `The former multi-weight world champions first met in 2015, in what was billed as the 'Fight of the Century'.`\
 https://nytimes.com/athletic/7066703/2026/02/23/mayweather-pacquiao-rematch-when-where/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/style/jeff-and-lauren-sanchez-bezos-honorary-chai
 **After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
 `Richard Baker wanted to create a retail empire when he combined Saks Fifth Avenue and Neiman Marcus. About a year later, it filed for bankruptcy.`\
 https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
-
-**Anthony Edwards surprised by how much his most expensive rookie card sold for**\
-`Edwards' most expensive card sale came in 2022, but his second highest came just last week. `\
-https://nytimes.com/athletic/7066543/2026/02/23/anthony-edwards-trading-card-price-sale/
 
