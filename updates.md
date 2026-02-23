@@ -1,3 +1,7 @@
+**How to Shovel Snow Safely**\
+`The snow hitting the Northeast and Mid-Atlantic is heavier and wetter than other storms this season. Here’s why, and how to avoid injury while shoveling.`\
+https://nytimes.com/2026/02/23/well/snow-shovel-safety-blizzard-storm.html
+
 **Can an Influencer Really ‘Think Like a Monk’?**\
 `Jay Shetty’s podcast, “On Purpose,” is wildly popular, and he has written two bestselling books, “Think Like a Monk” and “8 Rules of Love.`\
 https://nytimes.com/video/podcasts/100000010730734/can-an-influencer-really-think-like-a-monk.html
