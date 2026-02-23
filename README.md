@@ -1,3 +1,11 @@
+**The Kremlin Banned These Books. You Can Find Them in a New York Library.**\
+`A professor at Hunter College has built one of the largest special collections of contraband Russian literature in the world.`\
+https://nytimes.com/2026/02/23/nyregion/hunter-college-soviet-banned-books.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/23/crosswords/spelling-bee-forum.html
+
 **Duterte’s Fans Rally in The Hague as the I.C.C. Weighs Evidence Against Him**\
 `The protests are a sign of the Philippine ex-leader’s ongoing influence, even as he faces a possible trial for the deaths of thousands during his war on drugs.`\
 https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7063130/2026/02/23/leeds-stach-free-kick-villa/
 **Forget 'Mavropanic', Mavropanos has become key to West Ham's survival hopes**\
 `Nuno Espirito Santo had to wait until his 20th league game for a clean sheet but West Ham have slowly improved defensively`\
 https://nytimes.com/athletic/7062344/2026/02/23/konstantinos-mavropanos-west-ham-defence/
-
-**Brighton veterans deliver for Hurzeler when he needs them most**\
-`Fabian Hurzeler named a particularly experienced team against Brentford and was rewarded with a much-needed victory`\
-https://nytimes.com/athletic/7062009/2026/02/23/brighton-hurzeler-milner-veterans/
-
-**Tudor's nightmare first game paints an even clearer picture: Spurs are in serious trouble**\
-`Despite some positives, the new head coach suffered a thrashing at the hands of Arsenal to begin his tenure. Things need to change, and fast`\
-https://nytimes.com/athletic/7064377/2026/02/23/tottenham-premier-league-tudor/
 
