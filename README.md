@@ -1,7 +1,3 @@
-**Key Witness Who Disputed ICE Account of Fatal Texas Shooting Dies in Car Accident**\
-`A passenger in the car with Ruben Ray Martinez wrote that the men were trying to comply with authorities before Mr. Martinez was shot. The passenger, Joshua Orta, died in a car accident on Saturday.`\
-https://nytimes.com/2026/02/23/us/ice-shooting-texas-witness-dead.html
-
 **The Bounce: A Stern-er Adam Silver? Plus, the sizzling Spurs and Pistons collide**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7065925/2026/02/23/the-bounce-a-stern-er-adam-silver-plus-the-sizzling-spurs-and-pistons-collide/
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/23/climate/supreme-court-boulder-climate-lawsuit.htm
 **Cities May Be ‘Evolutionary Training Grounds’ for Spotted Lanternflies**\
 `Living in urban China may have given the insects the traits they needed to thrive in the United States, a new study suggests.`\
 https://nytimes.com/2026/02/23/science/evolution-lanternflies-invasive.html
+
+**Catherine, Princess of Wales, and a Projection of Royal Unity**\
+`After Andrew Mountbatten-Windsor’s arrest, the Prince and Princess of Wales made a pointed BAFTA appearance.`\
+https://nytimes.com/2026/02/23/style/catherine-william-princess-of-wales-bafta-dress.html
 
