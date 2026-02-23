@@ -1,9 +1,13 @@
+**USMNT Player Tracker: Robinson woe, Pulisic starts and Pepi makes his mark**\
+`Our roundup of the U.S. players' contributions in Europe over the weekend includes more goals for Folarin Balogun and Tyler Adams' return`\
+https://nytimes.com/athletic/7065776/2026/02/23/usmnt-robinson-pulisic-pepi-adams-tracker/
+
 **Scouting top MLB Draft prospect Grady Emerson and a thinned Amegy College Series field**\
 `Emerson is the top high school prospect in this class. Injuries thinned the Amegy College Series talent pool but Wes Mendes looked strong.`\
 https://nytimes.com/athletic/7065158/2026/02/23/mlb-draft-scouting-grady-emerson/
 
 **Irish soccer is being divided by Republic of Ireland-Israel fallout**\
-`Byrne claimed she was informed by the club that her position “was no longer tenable” and it held “an expectation that I would resign”.`\
+`Republic of Ireland's Nations League draw has sparked debate at Irish club Drogheda United.`\
 https://nytimes.com/athletic/7058293/2026/02/23/republic-of-ireland-israel-draw-drogheda/
 
 **Sargent move to Toronto nets St. Louis windfall due to unique MLS setup**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/movies/baftas-tourettes.html
 **Page to Screen: Do You Know These Thriller Adaptations?**\
 `Test your knowledge of five books and their big-screen counterparts in this short quiz.`\
 https://nytimes.com/interactive/2026/02/23/books/review/spy-movies-quiz.html
-
-**An Easy Apple Screensharing Hack**\
-`Are you the go-to tech support family member? If so, this tip that writer Jon Chase accidentally discovered during an extended FaceTime Tech Talk with his dad may be just the thing for you.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010731053/an-easy-apple-screensharing-hack.html
 
