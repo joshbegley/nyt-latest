@@ -1,3 +1,7 @@
+**Advocaat resigns as Curacao manager months before nation's World Cup debut**\
+`The 78-year-old has resigned to look after his daughter, who has health issues. `\
+https://nytimes.com/athletic/7065442/2026/02/23/dick-advocaat-curacao-manager-world-cup/
+
 **Inside Real Madrid: 'Sadness but no surprise' after Vinicius Jr ‘die’ chants**\
 `The Brazilian 25-year-old was again targeted in Saturday's 2-1 defeat at Osasuna, a result that saw Barcelona retake the lead in La Liga`\
 https://nytimes.com/athletic/7065342/2026/02/23/real-madrid-vinicius-jr-osasuna-la-liga-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062594/2026/02/23/astros-roster-projection-josh-ha
 **What I'll be watching for the remainder of this Blackhawks season: 10 storylines**\
 `The Blackhawks have 25 games left in the 2025-26 season. With young players steadily earning more experience, here's where to look.`\
 https://nytimes.com/athletic/7062397/2026/02/23/blackhawks-stretch-run-storylines-nazar-defense-trade-deadline/
-
-**Broncos enter offseason with clear priority: Build a more dynamic offense**\
-`From schematic tweaks to the search for a consistent lead back, the Broncos have plenty to figure out about their offensive attack.`\
-https://nytimes.com/athletic/7060422/2026/02/23/broncos-offseason-offense-scouting-combine/
 
