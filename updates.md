@@ -1,3 +1,11 @@
+**How to watch Spurs vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7066093/2026/02/23/spurs-vs-pistons-stream-how-to-watch-feb-23/
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`Spring football is just a few weeks away — what's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/7066073/2026/02/23/submit-a-question-for-pete-sampsons-notre-dame-mailbag-110/
+
 **NHL players whose legacies changed most at the Olympics**\
 `From Connor Hellebuyck to Auston Matthews, these players rewrote their stories emphatically in just a few short weeks.`\
 https://nytimes.com/athletic/7066010/2026/02/23/olympics-mens-hockey-nhl-legacies-red-light/
