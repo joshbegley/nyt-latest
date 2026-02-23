@@ -1,3 +1,15 @@
+**Inside Real Madrid: 'Sadness but no surprise' after Vinicius Jr ‘die’ chants**\
+`The Brazilian 25-year-old was again targeted in Saturday's 2-1 defeat at Osasuna, a result that saw Barcelona retake the lead in La Liga`\
+https://nytimes.com/athletic/7065342/2026/02/23/real-madrid-vinicius-jr-osasuna-la-liga-barcelona/
+
+**FPL Gameweek 27 review: Arsenal and Chelsea’s turning tide, risky O’Reilly and Fulham’s ripe run**\
+`Whether you climbed the rankings or were left frustrated by missed chances and rotation, there’s plenty to unpack from the weekend’s action`\
+https://nytimes.com/athletic/7064104/2026/02/23/fantasy-premier-league-gameweek-27-fpl-tips-arsenal-oreilly/
+
+**Serie A Briefing: Como players' total faith in Cesc Fabregas is as clear as water**\
+`Como have beaten Juve back-to-back for the first time since 1952. It shows the level of their rise under Fabregas, who has surprised many`\
+https://nytimes.com/athletic/7065282/2026/02/23/serie-a-briefing-como-fabregas/
+
 **TAFC: Miami opener gets Messi, are Tottenham really relegation candidates?**\
 `Today in TAFC: Inter Miami's opening MLS match turns sour. Plus: Tottenham lurking just above relegation zone after loss to Arsenal.`\
 https://nytimes.com/athletic/7065303/2026/02/23/messi-mls-lafc-referee-tottenham-relegation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7062397/2026/02/23/blackhawks-stretch-run-storyline
 **Broncos enter offseason with clear priority: Build a more dynamic offense**\
 `From schematic tweaks to the search for a consistent lead back, the Broncos have plenty to figure out about their offensive attack.`\
 https://nytimes.com/athletic/7060422/2026/02/23/broncos-offseason-offense-scouting-combine/
-
-**Why the Hawks benched Zaccharie Risacher, and what it means**\
-`Now, Atlanta has multiple forwards it can use interchangeably behind and next to the All-Star Jalen Johnson. Risacher is just one of them.`\
-https://nytimes.com/athletic/7064938/2026/02/23/zaccharie-risacher-benched-hawks-season-outlook/
-
-**Flyers need two players to salvage their disastrous seasons after Olympic break**\
-`With their games resuming Wednesday, the Flyers sit eight points out of a playoff spot in the crowded Eastern Conference.`\
-https://nytimes.com/athletic/7062695/2026/02/23/flyers-hathaway-ersson-form-playoffs/
-
-**Five Chargers questions I will be looking to answer at the combine**\
-`Can the Chargers target Tyler Linderbaum in free agency? Which internal free agents will they prioritize? Who might they cut? `\
-https://nytimes.com/athletic/7060794/2026/02/23/chargers-nfl-combine-2026-questions/
 

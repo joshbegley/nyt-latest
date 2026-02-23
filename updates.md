@@ -1,3 +1,11 @@
+**TAFC: Miami opener gets Messi, are Tottenham really relegation candidates?**\
+`Today in TAFC: Inter Miami's opening MLS match turns sour. Plus: Tottenham lurking just above relegation zone after loss to Arsenal.`\
+https://nytimes.com/athletic/7065303/2026/02/23/messi-mls-lafc-referee-tottenham-relegation/
+
+**Julian Sayin has already been a Heisman finalist. What can he do to get even better?**\
+`The Ohio State quarterback nearly broke the FBS completion percentage record in his first year starting. Here's what could be next.`\
+https://nytimes.com/athletic/7060347/2026/02/23/julian-sayin-ohio-state-stats-film-2026/
+
 **The Next Conflict**\
 `We’re looking at the potential for a U.S. attack on Iran.`\
 https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
