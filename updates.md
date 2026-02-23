@@ -1,3 +1,7 @@
+**The Next Conflict**\
+`We’re looking at the potential for a U.S. attack on Iran.`\
+https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
+
 **Yankees roster projection: José Caballero's bat-speed focus, Luis Gil's rebound**\
 `The Yankees open the season against the San Francisco Giants on March 25. Here's our Opening Day roster projection, with notes on key names.`\
 https://nytimes.com/athletic/7064580/2026/02/23/yankees-opening-day-roster-projection/

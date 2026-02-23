@@ -1,3 +1,7 @@
+**The Next Conflict**\
+`We’re looking at the potential for a U.S. attack on Iran.`\
+https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
+
 **Yankees roster projection: José Caballero's bat-speed focus, Luis Gil's rebound**\
 `The Yankees open the season against the San Francisco Giants on March 25. Here's our Opening Day roster projection, with notes on key names.`\
 https://nytimes.com/athletic/7064580/2026/02/23/yankees-opening-day-roster-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065073/2026/02/23/tgl-week-8-preview-betting-picks
 **49ers combine priorities: Trade talks, free-agent targets and draft prospects to watch**\
 `Kyle Shanahan and John Lynch will spend this week preparing for what could be a busy offseason. Could they kick the tires on Maxx Crosby?`\
 https://nytimes.com/athletic/7061100/2026/02/23/49ers-nfl-combine-nfl-draft-free-agency/
-
-**Dodgers camp notes: Shohei Ohtani departs for WBC as Kyle Tucker makes spring debut**\
-`Ohtani will only be a DH during the WBC, but he plans to simulate live pitching sessions and throw bullpens while away from the Dodgers.`\
-https://nytimes.com/athletic/7064263/2026/02/23/dodgers-shohei-ohtani-wbc-kyle-tucker/
 
