@@ -1,3 +1,11 @@
+**C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
+`Mexican officials said they had found the elusive drug kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
+https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
+
+**New York City’s Homeless Population Faces Another Dangerous Storm**\
+`Mayor Zohran Mamdani said on Monday that his administration had taken lessons from the city’s last storm, when at least 20 people died after exposure to the cold.`\
+https://nytimes.com/2026/02/23/weather/nyc-blizzard-homeless.html
+
 **Anthropic Accuses 3 Chinese Companies of Harvesting Its Data**\
 `The San Francisco start-up claimed that DeepSeek, Moonshot and MiniMax used approximately 24,000 fraudulent accounts to train their own chatbots.`\
 https://nytimes.com/2026/02/23/technology/anthropic-chinese-startups-distillation.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
 **Having trouble finding Team USA hockey jerseys? You're not alone**\
 `Nike didn't account for Team USA winning gold, and did not produce enough hockey jerseys to meet demand.`\
 https://nytimes.com/athletic/7066268/2026/02/23/team-usa-hockey-jersey-mens-womens-2026-olympics/
-
-**Monday’s Snowfall Shatters a Record in Rhode Island**\
-`By the afternoon, the snowfall level near Providence — almost 33 inches — obliterated the two-day record set by the infamous Blizzard of 1978.`\
-https://nytimes.com/2026/02/23/weather/rhode-island-snow-record-blizzard-1978.html
-
-**Pentagon Summons Anthropic Chief in Dispute Over A.I. Limits**\
-`The artificial intelligence company has demanded that some guardrails be put in place as it negotiates a contract with the Defense Department.`\
-https://nytimes.com/2026/02/23/us/politics/pentagon-anthropic-ai.html
 
