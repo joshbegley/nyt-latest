@@ -1,3 +1,11 @@
+**Ushering In the Next Era of Aviation**\
+`JetZero and Siemens set out to reinvent flight with the Z4.`\
+https://nytimes.com/paidpost/siemens/ushering-in-the-next-era-of-aviation.html
+
+**Vinicius Jr: UEFA ban Benfica's Prestianni for Madrid decider after alleged abuse**\
+`Prestianni has been suspended for one game following an interim report by UEFA's Ethics and Disciplinary Inspector.`\
+https://nytimes.com/athletic/7065718/2026/02/23/prestianni-banned-uefa-real-madrid-racism-vinicius-jr/
+
 **College baseball week in review: UCLA looks the part, Auburn gets offensive**\
 `Kent State shocks Tennessee in Knoxville. USC's pitching continues to dominate. Injury concerns at Coastal Carolina? `\
 https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholowsky-auburn-tennessee/
