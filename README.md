@@ -1,9 +1,17 @@
+**Ex-Ambassador Peter Mandelson Arrested Over Epstein Accusations**\
+`The former British ambassador to the United States, Peter Mandelson, was arrested on Monday following allegations that he passed confidential government information to the sex offender Jeffrey Epstein.`\
+https://nytimes.com/video/world/europe/100000010731439/peter-mandelson-arrested-uk-epstein.html
+
+**Lindsey Vonn describes surgery that saved her leg from amputation after crash**\
+`The U.S. Olympian said trauma to her fractured left leg led to compartment syndrome, which could have caused her to lose the limb.`\
+https://nytimes.com/athletic/7066124/2026/02/23/olympics-lindsey-vonn-surgery-prevented-amputation/
+
 **AP men's hoops Top 25: Duke No. 1 for first time this season, Michigan drops to No. 3**\
 `Two days after Duke beat Michigan on a neutral court in the marquee game of the weekend, the teams traded places in the Associated Press Top 25 — with the Blue Devils ascending to No.`\
 https://nytimes.com/athletic/7066411/2026/02/23/ap-mens-basketball-poll-duke-no-1-michigan/
 
 **Leah Stavenhagen, Advocate for Young Women With A.L.S., Dies at 33**\
-`Ms. Stavenhagen started a group intend to counter the notion that A.L.S. was an “older white man’s disease.”`\
+`Ms. Stavenhagen started a group intended to counter the notion that A.L.S. was an “older white man’s disease.”`\
 https://nytimes.com/2026/02/23/health/leah-stavenhagen-als.html
 
 **Get a Close-up View of This ‘Classic’ Nor’easter**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/opinion/supreme-court-tariff-ruling-trump.html
 **Miguel Cabrera on Justin Verlander, Team Venezuela and the state of the Tigers**\
 `Miguel Cabrera returns to spring training as a Tigers special assistant, upbeat and ready to share his perspective. `\
 https://nytimes.com/athletic/7066252/2026/02/23/tigers-miguel-cabrera-justin-verlander-venezuela/
-
-**Facing angry ‘MAHA Moms,’ Kennedy defends Trump’s pesticide order.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2026/02/23/us/trump-news/facing-angry-maha-moms-kennedy-defends-trumps-pesticide-order
-
-**How Atlanta improbably became NASCAR's most consistently entertaining track**\
-`No matter the car or type of series, the reconfigured track keeps delivering, race after race.`\
-https://nytimes.com/athletic/7066183/2026/02/23/atlanta-speedway-motorsports-nascar-marcus-smith/
 
