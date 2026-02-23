@@ -1,3 +1,11 @@
+**Sargent move to Toronto nets St. Louis windfall due to unique MLS setup**\
+`Josh Sargent's hometown MLS team is getting something useful out of the player's transfer from Norwich City to Toronto`\
+https://nytimes.com/athletic/7066097/2026/02/23/josh-sargent-toronto-fc-transfer-norwich-city-st-louis-mls/
+
+**U.K. Police Arrest Ex-Ambassador to U.S. Over Epstein Accusations**\
+`Peter Mandelson is being investigated over accusations of “misconduct in public office offenses” over his dealings with Jeffrey Epstein, the sex offender and financier.`\
+https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
+
 **Games Briefing: Your favorite moments**\
 `Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
 https://nytimes.com/athletic/7066101/2026/02/23/your-favorite-moments-milan-cortina-olympics-games-briefing/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/the-snow-farms-in-bos
 **Senator Handcuffed After Interrupting Noem Will Give Spanish Rebuttal to Trump**\
 `Senator Alex Padilla, a Democrat from California, offered a preview of his remarks, which he expects to focus on the economy, immigration and fair elections.`\
 https://nytimes.com/2026/02/23/us/politics/alex-padilla-trump-state-of-the-union-spanish-democratic-response.html
-
-**The European Union Hits Pause on Its U.S. Trade Deal**\
-`The 27-nation bloc isn’t throwing out the deal it struck with the United States, but officials want more clarity before they implement it.`\
-https://nytimes.com/2026/02/23/world/europe/eu-us-trade-deal-pause-tariffs.html
-
-**Trump Administration Scrambles to Pick Up the Pieces of Broken Tariffs**\
-`President Trump is already working to piece his tariff program back together, after a Supreme Court ruling ruptured a centerpiece of his economic agenda.`\
-https://nytimes.com/2026/02/23/us/politics/trump-tariffs-supreme-court.html
 
