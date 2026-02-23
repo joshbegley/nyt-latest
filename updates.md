@@ -1,3 +1,11 @@
+**U.K., Australia and Others Worse Off Under Trump’s New Tariffs**\
+`Many important U.S. trading partners are facing higher duties after President Trump, reacting to a Supreme Court setback, set the rate on a new set of global tariffs at 15 percent.`\
+https://nytimes.com/2026/02/23/business/uk-australia-trump-tariffs.html
+
+**Women's college basketball rankings: How Louisville, Duke tripped against bubble teams**\
+`Plus, how Hannah Hidalgo keeps the Irish alive, and other highlights from the week in women's hoops.`\
+https://nytimes.com/athletic/7065074/2026/02/23/womens-college-basketball-rankings-duke-louisville/
+
 **European Support for Ukraine Stumbles on Eve of Invasion’s 4th Anniversary**\
 `Hungary said that it would block both the latest sanctions package on Russia and a financial aid package to Kyiv worth about $106 billion.`\
 https://nytimes.com/2026/02/23/world/europe/ukraine-war-russia-eu-hungary.html

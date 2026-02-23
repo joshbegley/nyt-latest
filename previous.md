@@ -1,3 +1,11 @@
+**U.K., Australia and Others Worse Off Under Trump’s New Tariffs**\
+`Many important U.S. trading partners are facing higher duties after President Trump, reacting to a Supreme Court setback, set the rate on a new set of global tariffs at 15 percent.`\
+https://nytimes.com/2026/02/23/business/uk-australia-trump-tariffs.html
+
+**Women's college basketball rankings: How Louisville, Duke tripped against bubble teams**\
+`Plus, how Hannah Hidalgo keeps the Irish alive, and other highlights from the week in women's hoops.`\
+https://nytimes.com/athletic/7065074/2026/02/23/womens-college-basketball-rankings-duke-louisville/
+
 **European Support for Ukraine Stumbles on Eve of Invasion’s 4th Anniversary**\
 `Hungary said that it would block both the latest sanctions package on Russia and a financial aid package to Kyiv worth about $106 billion.`\
 https://nytimes.com/2026/02/23/world/europe/ukraine-war-russia-eu-hungary.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7061264/2026/02/23/bears-mailbag-nfl-combine-dj-moo
 **Cowboys combine preview: Eyes on Maxx Crosby interest and George Pickens' situation**\
 `Will the Cowboys pursue Raiders defensive end Maxx Crosby? How do they plan to fill all of their defensive holes?`\
 https://nytimes.com/athletic/7060840/2026/02/23/cowboys-combine-preview-maxx-crosby-george-pickens/
-
-**Lions pre-combine analysis: Two big questions and positions we'll be watching**\
-`What approach will the Lions take to improving things along both lines? What positions are we monitoring at the combine?`\
-https://nytimes.com/athletic/7058934/2026/02/23/detroit-lions-combine-preview-positions-prospects/
-
-**The plan at OT and pursuing top edge rushers: 5 Panthers storylines at combine**\
-`Ikem Ekwonu's late-season injury likely means he'll miss a chunk of next season and creates a dilemma for GM Dan Morgan.`\
-https://nytimes.com/athletic/7060790/2026/02/23/panthers-nfl-combine-preview-ot-bryce-young/
 
