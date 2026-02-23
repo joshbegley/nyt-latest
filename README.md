@@ -1,3 +1,7 @@
+**Full Time: Checking up on U.S. players abroad**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7066858/2026/02/23/uswnt-international-players-full-time/
+
 **Blizzard Slams Northeast with Heavy Snow, Disrupting Travel**\
 `Several cities across the Northeast received at least two feet of snow, bringing many places to a standstill.`\
 https://nytimes.com/video/weather/100000010731277/blizzard-snow-nyc-new-jersey-boston.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/us/ai-writing-assignments-classrooms-callout.html
 **Canada Presses OpenAI for Answers on Mass Shooter’s Chatbot Use**\
 `The company suspended the killer’s ChatGPT account over a policy violation in June, eight months before the attacks in Tumbler Ridge, British Columbia.`\
 https://nytimes.com/2026/02/23/world/canada/canada-shooting-openai.html
-
-**Weekly Student News Quiz: Supreme Court, Winter Olympics, Lunar New Year**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/02/23/learning/23StudentNewsQuiz.html
 
