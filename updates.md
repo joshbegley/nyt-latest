@@ -1,3 +1,7 @@
+**Europe’s New Way of War**\
+`Can Europe defend itself without the United States? A new strategic vision says yes.`\
+https://nytimes.com/2026/02/23/world/europe-defense-us-ukraine-mexico-tariffs.html
+
 **Scenes From New York City’s First Real Snow Day in Years**\
 `Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
 https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
