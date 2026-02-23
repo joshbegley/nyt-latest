@@ -1,3 +1,27 @@
+**The Bucks have a promising young trio of guards. Can they mesh with Giannis?**\
+`Ryan Rollins, Kevin Porter Jr. and Cam Thomas can all score and like to do so. But Giannis will need the ball in his hands when he returns.`\
+https://nytimes.com/athletic/7065349/2026/02/23/bucks-guards-rollins-porter-thomas-giannis/
+
+**Supreme Court to Weigh Oil-Industry Effort to End a Major Climate Suit**\
+`The case could have significant bearing on a range of other lawsuits brought against the fossil fuel industry by cities and states across the country.`\
+https://nytimes.com/2026/02/23/climate/supreme-court-boulder-climate-lawsuit.html
+
+**Cities May Be ‘Evolutionary Training Grounds’ for Spotted Lanternflies**\
+`Living in urban China may have given the insects the traits they needed to thrive in the United States, a new study suggests.`\
+https://nytimes.com/2026/02/23/science/evolution-lanternflies-invasive.html
+
+**Catherine, Princess of Wales, and a Picture of Royal Unity**\
+`After Andrew Mountbatten-Windsor’s arrest, the Prince and Princess of Wales made a pointed BAFTA appearance.`\
+https://nytimes.com/2026/02/23/style/catherine-william-princess-of-wales-bafta-dress.html
+
+**Fantasy baseball Zero-SP draft strategy: Target hitters like Brent Rooker in early rounds**\
+`Michael Salfino highlights the high-floor hitters to target early in fantasy baseball drafts for those who are doing a Zero-SP roster build.`\
+https://nytimes.com/athletic/7060672/2026/02/23/zero-sp-draft-strategy-early-hitters-targets/
+
+**Lakers' offense is still inconsistent despite their big 3: 'We're not there yet'**\
+`In Sunday's loss to the Celtics, the Lakers showed they're still not as connected as they should be.`\
+https://nytimes.com/athletic/7065235/2026/02/23/lakers-celtics-loss-luka-doncic-lebron-james/
+
 **Sidney Crosby's NHL career deserves a better ending than his Olympic career received: Yohe**\
 `Crosby, as in the Olympics, will be the story when play resumes for the Penguins this week.`\
 https://nytimes.com/athletic/7064536/2026/02/23/sidney-crosby-canada-olympics-ending/

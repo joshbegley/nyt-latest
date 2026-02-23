@@ -1,3 +1,23 @@
+**The Bucks have a promising young trio of guards. Can they mesh with Giannis?**\
+`Ryan Rollins, Kevin Porter Jr. and Cam Thomas can all score and like to do so. But Giannis will need the ball in his hands when he returns.`\
+https://nytimes.com/athletic/7065349/2026/02/23/bucks-guards-rollins-porter-thomas-giannis/
+
+**Supreme Court to Weigh Oil-Industry Effort to End a Major Climate Suit**\
+`The case could have significant bearing on a range of other lawsuits brought against the fossil fuel industry by cities and states across the country.`\
+https://nytimes.com/2026/02/23/climate/supreme-court-boulder-climate-lawsuit.html
+
+**Cities May Be ‘Evolutionary Training Grounds’ for Spotted Lanternflies**\
+`Living in urban China may have given the insects the traits they needed to thrive in the United States, a new study suggests.`\
+https://nytimes.com/2026/02/23/science/evolution-lanternflies-invasive.html
+
+**Catherine, Princess of Wales, and a Picture of Royal Unity**\
+`After Andrew Mountbatten-Windsor’s arrest, the Prince and Princess of Wales made a pointed BAFTA appearance.`\
+https://nytimes.com/2026/02/23/style/catherine-william-princess-of-wales-bafta-dress.html
+
+**Fantasy baseball Zero-SP draft strategy: Target hitters like Brent Rooker in early rounds**\
+`Michael Salfino highlights the high-floor hitters to target early in fantasy baseball drafts for those who are doing a Zero-SP roster build.`\
+https://nytimes.com/athletic/7060672/2026/02/23/zero-sp-draft-strategy-early-hitters-targets/
+
 **Sidney Crosby's NHL career deserves a better ending than his Olympic career received: Yohe**\
 `Crosby, as in the Olympics, will be the story when play resumes for the Penguins this week.`\
 https://nytimes.com/athletic/7064536/2026/02/23/sidney-crosby-canada-olympics-ending/
@@ -6,7 +26,7 @@ https://nytimes.com/athletic/7064536/2026/02/23/sidney-crosby-canada-olympics-en
 `TCU has wins over two ranked teams but dropped out of the top 25 after going 0-4 for the week. `\
 https://nytimes.com/athletic/7065683/2026/02/23/college-baseball-rankings-southern-miss-tcu-lsu/
 
-**Lakers' offense is still inconsistent despite their Big 3: 'We're not there yet'**\
+**Lakers' offense is still inconsistent despite their big 3: 'We're not there yet'**\
 `In Sunday's loss to the Celtics, the Lakers showed they're still not as connected as they should be.`\
 https://nytimes.com/athletic/7065235/2026/02/23/lakers-celtics-loss-luka-doncic-lebron-james/
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7065408/2026/02/23/bundesliga-ache-scissor-kick-dor
 **Inside Barcelona: Why is it Joan Laporta making headlines after a key La Liga win?**\
 `A day after victory over Levante moved Barcelona back to the top of the table, the club moved to defend president Joan Laporta's integrity`\
 https://nytimes.com/athletic/7065618/2026/02/23/barcelona-laporta-yamal-flick-levante-la-liga/
-
-**Architecture Prize Responds After Tom Pritzker’s Epstein Ties Surface**\
-`A Pritzker Prize statement cited the award’s independence after Mr. Pritzker, who directs the foundation behind the award, resigned as chairman of the Hyatt Corporation.`\
-https://nytimes.com/2026/02/23/arts/design/pritzker-prize-epstein-architecture.html
-
-**Ushering In the Next Era of Aviation**\
-`JetZero and Siemens set out to reinvent flight with the Z4.`\
-https://nytimes.com/paidpost/siemens/ushering-in-the-next-era-of-aviation.html
-
-**Vinicius Jr: UEFA ban Benfica's Prestianni for Madrid decider after alleged abuse**\
-`Prestianni has been suspended for one game following an interim report by UEFA's Ethics and Disciplinary Inspector.`\
-https://nytimes.com/athletic/7065718/2026/02/23/prestianni-banned-uefa-real-madrid-racism-vinicius-jr/
-
-**College baseball week in review: UCLA looks the part, Auburn gets offensive**\
-`Kent State shocks Tennessee in Knoxville. USC's pitching continues to dominate. Injury concerns at Coastal Carolina? `\
-https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholowsky-auburn-tennessee/
-
-**What I'm hearing about Canucks' plans as NHL trade activity resumes**\
-`With the deadline approaching, the Canucks are focused on moving their pending unrestricted free agents.`\
-https://nytimes.com/athletic/7064175/2026/02/23/vancouver-canucks-trade-deadline-2026-olympics/
 
