@@ -1,3 +1,11 @@
+**Ushering In the Next Era of Aviation**\
+`JetZero and Siemens set out to reinvent flight with the Z4.`\
+https://nytimes.com/paidpost/siemens/ushering-in-the-next-era-of-aviation.html
+
+**Vinicius Jr: UEFA ban Benfica's Prestianni for Madrid decider after alleged abuse**\
+`Prestianni has been suspended for one game following an interim report by UEFA's Ethics and Disciplinary Inspector.`\
+https://nytimes.com/athletic/7065718/2026/02/23/prestianni-banned-uefa-real-madrid-racism-vinicius-jr/
+
 **College baseball week in review: UCLA looks the part, Auburn gets offensive**\
 `Kent State shocks Tennessee in Knoxville. USC's pitching continues to dominate. Injury concerns at Coastal Carolina? `\
 https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholowsky-auburn-tennessee/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
 **Tariff Turmoil Returns to Global Markets**\
 `Businesses and U.S. trade partners are again grappling with the uncertainty of President Trump’s trade war, even as he imposes new levies.`\
 https://nytimes.com/2026/02/23/business/dealbook/tariffs-trump-markets.html
-
-**Submit your questions for the college basketball mailbag**\
-`What's on your mind with three weeks until the NCAA Tournament?`\
-https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mailbag-2026/
-
-**Karl-Anthony Towns' curious season has taken a turn for the better**\
-`Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
-https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
 
