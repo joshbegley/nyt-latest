@@ -11,7 +11,7 @@ https://nytimes.com/2026/02/23/world/americas/mexico-violence-el-mencho-videos.h
 https://nytimes.com/2026/02/23/style/jeff-and-lauren-sanchez-bezos-honorary-chairs-met-gala.html
 
 **After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
-`Richard Baker wanted to create a high-end retail empire when he combined Saks Fifth Avenue and Neiman Marcus. In a little over a year, it filed for bankruptcy.`\
+`Richard Baker wanted to create a retail empire when he combined Saks Fifth Avenue and Neiman Marcus. About a year later, it filed for bankruptcy.`\
 https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
 
 **Anthony Edwards surprised by how much his most expensive rookie card sold for**\

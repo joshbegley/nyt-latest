@@ -1,3 +1,19 @@
+**Pentagon Summons Anthropic Chief in Dispute Over A.I. Limits**\
+`The artificial intelligence company has demanded that some guardrails be put in place as it negotiates a contract with the Defense Department.`\
+https://nytimes.com/2026/02/23/us/politics/pentagon-anthropic-ai.html
+
+**Videos Show How Mayhem Unfolded in Mexico**\
+`Armed groups blocked roads and set fire to supermarkets and banks after the Mexican government killed Mexico’s most-wanted cartel boss.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-violence-el-mencho-videos.html
+
+**Jeff and Lauren Sánchez Bezos Will Be Honorary Chairs of the Met Gala**\
+`The news came tucked into the second page of a recent news release.`\
+https://nytimes.com/2026/02/23/style/jeff-and-lauren-sanchez-bezos-honorary-chairs-met-gala.html
+
+**After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
+`Richard Baker wanted to create a high-end retail empire when he combined Saks Fifth Avenue and Neiman Marcus. In a little over a year, it filed for bankruptcy.`\
+https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
+
 **After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
 `Richard Baker wanted to create a high-end retail empire when he combined Saks Fifth Avenue and Neiman Marcus. In a little over a year, it was bankrupt.`\
 https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
