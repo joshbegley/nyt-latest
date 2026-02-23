@@ -1,3 +1,11 @@
+**Worst Part of Storm Ahead as it Moves to Boston**\
+`Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
+https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
+
+**Tariff Turmoil Returns to Global Markets**\
+`Businesses and U.S. trade partners are again grappling with the uncertainty of President Trump’s trade war, even as he imposes new levies.`\
+https://nytimes.com/2026/02/23/business/dealbook/tariffs-trump-markets.html
+
 **Submit your questions for the college basketball mailbag**\
 `What's on your mind with three weeks until the NCAA Tournament?`\
 https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mailbag-2026/
@@ -16,7 +24,7 @@ https://nytimes.com/live/2026/02/23/world/mexico/heres-the-latest
 
 **Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
 `Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
-https://nytimes.com/2026/02/23/business/waller-fed-supreme-court-tariffs-rates.html
+https://nytimes.com/2026/02/23/business/economy/waller-fed-supreme-court-tariffs-rates.html
 
 **Trump Administration Live Updates: U.S. to ‘Reconstruct’ Tariffs After Supreme Court Loss**\
 ``\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7064666/2026/02/23/reds-spring-training-tj-friedl-o
 **2026 MLS Anonymous Executive Survey, Part 1: Key figures dish on league's bests, worsts**\
 `For a fifth year running, we've asked top club officials for their candid thoughts on topics and themes around MLS. Here's what they said`\
 https://nytimes.com/athletic/7058062/2026/02/23/mls-anonymous-executive-survey-2026-best-worst-players-clubs-coaches/
-
-**Lowetide: Five takeaways for McDavid and the Oilers from the Olympics**\
-`What's to be learned by McDavid and the Oilers from the Olympic experience that wrapped up Sunday?`\
-https://nytimes.com/athletic/7063829/2026/02/23/connor-mcdavid-olympics-2026-edmonton-oilers-takeaways/
-
-**How to watch the 2026 NFL Scouting Combine this week**\
-`Here's how to see the next crop of NFL prospects show out, clock in and measure up.`\
-https://nytimes.com/athletic/7058882/2026/02/23/nfl-draft-combine-how-to-watch-2026-schedule/
 
