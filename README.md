@@ -1,3 +1,19 @@
+**Sidney Crosby's NHL career deserves a better ending than his Olympic career received: Yohe**\
+`Crosby, as in the Olympics, will be the story when play resumes for the Penguins this week.`\
+https://nytimes.com/athletic/7064536/2026/02/23/sidney-crosby-canada-olympics-ending/
+
+**The Athletic college baseball Top 25: Southern Miss jumps 9 spots, TCU falls out**\
+`TCU has wins over two ranked teams but dropped out of the top 25 after going 0-4 for the week. `\
+https://nytimes.com/athletic/7065683/2026/02/23/college-baseball-rankings-southern-miss-tcu-lsu/
+
+**Lakers' offense is still inconsistent despite their Big 3: 'We're not there yet'**\
+`In Sunday's loss to the Celtics, the Lakers showed they're still not as connected as they should be.`\
+https://nytimes.com/athletic/7065235/2026/02/23/lakers-celtics-loss-luka-doncic-lebron-james/
+
+**Bundesliga Briefing: Ache’s bicycle-kick brilliance, but celebration police out for Dortmund**\
+`Whatever else Ache does in his career, he has his signature moment — and a very high chance of having scored the goal of the season`\
+https://nytimes.com/athletic/7065408/2026/02/23/bundesliga-ache-scissor-kick-dortmund-fabio-silva/
+
 **Inside Barcelona: Why is it Joan Laporta making headlines after a key La Liga win?**\
 `A day after victory over Levante moved Barcelona back to the top of the table, the club moved to defend president Joan Laporta's integrity`\
 https://nytimes.com/athletic/7065618/2026/02/23/barcelona-laporta-yamal-flick-levante-la-liga/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholo
 **What I'm hearing about Canucks' plans as NHL trade activity resumes**\
 `With the deadline approaching, the Canucks are focused on moving their pending unrestricted free agents.`\
 https://nytimes.com/athletic/7064175/2026/02/23/vancouver-canucks-trade-deadline-2026-olympics/
-
-**Premier League data notebook: Gyokeres the worker, Chelsea's fragility, West Ham's wastefulness**\
-`The Athletic's data writers break down the key storylines from the weekend's action`\
-https://nytimes.com/athletic/7065461/2026/02/23/premier-league-data-notebook-md27-gyokeres-chelsea-liverpool/
-
-**Backed by Anthropic, a Super PAC Begins Ad Blitz in Support of A.I. Regulation**\
-`The ads by Public First Action, which started airing on Monday, are part of an escalating political war over artificial intelligence before the midterm elections.`\
-https://nytimes.com/2026/02/23/technology/ai-pac-ad-blitz.html
-
-**En directo: México vive brotes de violencia tras la muerte de El Mencho**\
-`La presidenta Claudia Sheinbaum abordó los disturbios provocados tras la muerte del jefe del Cártel Jalisco Nueva Generación. El caos dejó varados a los turistas y obligó a las aerolíneas a cancelar vuelos.`\
-https://nytimes.com/live/2026/02/23/espanol/mexico-mencho-violencia
-
-**The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
-`The self-help influencer Jay Shetty on his values, his journey and criticism of his work.`\
-https://nytimes.com/video/podcasts/100000010730645/the-wellness-guru-jay-shetty-has-raised-some-doubts-including-his-own.html
 
