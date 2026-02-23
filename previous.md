@@ -1,3 +1,19 @@
+**Word of the Day: specious**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/23/learning/word-of-the-day-specious.html
+
+**U.S. Hits Another Boat in the Caribbean, Killing 3**\
+`The Defense Department did not provide evidence of its claim that the vessel was carrying drugs. At least 150 people have been killed in the campaign since September.`\
+https://nytimes.com/2026/02/23/us/politics/us-hits-another-boat-in-the-caribbean-killing-3.html
+
+**Jeff Monken interested in moving Army-Navy game to Thanksgiving weekend**\
+`The Army-Navy game has been played on the second Saturday of December since 2009 to stand apart from conference championship games.`\
+https://nytimes.com/athletic/7066429/2026/02/23/army-navy-game-thanksgiving-jeff-monken/
+
+**Tigers' Tarik Skubal says he will make one start in World Baseball Classic**\
+`Tarik Skubal wanted to represent his country in the tournament, but he’s also keeping his focus with the Tigers this spring.`\
+https://nytimes.com/athletic/7066535/2026/02/23/tigers-tarik-skubal-world-baseball-classic/
+
 **WNBA reached revenue-sharing target for first time in 2025: Source**\
 `The WNBA generated enough revenue so that $16 million was shareable with the players.`\
 https://nytimes.com/athletic/7066523/2026/02/23/wnba-revenue-sharing-2025-source/
@@ -21,20 +37,4 @@ https://nytimes.com/video/podcasts/100000010730734/can-an-influencer-really-thin
 **Jay Shetty’s Advice for Getting Over Your Regrets**\
 `Jay Shetty, the host of the popular podcast “On Purpose,” shares some advice on how to think about life’s painful experiences on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010730788/jay-shettys-advice-for-getting-over-your-regrets.html
-
-**Can You Find Spirituality on Instagram?**\
-`What happens when mindfulness or dharma are decoupled from their religious roots? Jay Shetty, the host of the popular podcast “On Purpose,” shared his perspective on the value of spiritual paths that begin on social media on “The Interview.”`\
-https://nytimes.com/video/podcasts/100000010730742/can-you-find-spirituality-on-instagram.html
-
-**Edward Hoagland, Lyrical Chronicler of the Natural World, Dies at 93**\
-`In essays and books, he explored physical landscapes and the terrain of his own life, up to the blindness that overtook him in his later years.`\
-https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
-
-**Settlers Drive a Palestinian Family Off Its Land**\
-`For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
-https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
-
-**‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
-`The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
-https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html
 
