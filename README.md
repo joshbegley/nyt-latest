@@ -1,3 +1,7 @@
+**Ten of the weirdest and wildest moments we saw at the Milan Cortina Olympics**\
+`The Olympics are always about so much more than just the medals. Here are some of the most memorable strange moments from the Games.`\
+https://nytimes.com/athletic/7065290/2026/02/23/winter-olympics-weird-wild-moments-milan-cortina/
+
 **Loftus-Cheek to undergo surgery on fractured teeth and jaw**\
 `Loftus-Cheek, 30, was taken off on a stretcher with his head in a brace following a collision during Milan's defeat to Parma.`\
 https://nytimes.com/athletic/7065330/2026/02/23/ruben-loftus-cheek-injury-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064366/2026/02/23/ravens-offseason-questions-nfl-c
 **Will Charvarius Ward Sr. retire? 5 NFL combine questions for Colts GM Chris Ballard**\
 `Ward, Daniel Jones and Anthony Richardson Sr. will be among the players Ballard will be asked about this week at the combine.`\
 https://nytimes.com/athletic/7058456/2026/02/23/colts-chris-ballard-combine-questions/
-
-**Everything the Jets need to figure out at the NFL combine**\
-`In addition to the quarterback question and Breece Hall's future, the Jets are looking to establish new identities on offense and defense.`\
-https://nytimes.com/athletic/7063616/2026/02/23/new-york-jets-nfl-combine-draft-free-agency/
 
