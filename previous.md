@@ -1,3 +1,15 @@
+**Mirtle: What lessons can Canada's men take from silver-lined Olympics?**\
+`There's a lot more to consider regarding Canada's total experience at these Games than just Sunday's gold medal game loss.`\
+https://nytimes.com/athletic/7064845/2026/02/23/olympic-hockey-canada-men-lessons/
+
+**Tennis player serving doping ban seeks $20m in damages from WTA Tour**\
+`The 33-year-old is under a ban to 2028 but argues that the detected presence of anabolic steroids was due to contaminated meat. `\
+https://nytimes.com/athletic/7065366/2026/02/23/tara-moore-tennis-doping-lawsuit-ban-wta/
+
+**Eagles 2026 NFL combine primer: Nick Sirianni's 'win-now' staff, A.J. Brown watch, positional needs**\
+`The Eagles are in win-now mode while also building for the future.`\
+https://nytimes.com/athletic/7059879/2026/02/23/eagles-2026-nfl-combine-nick-sirianni-staff-aj-brown-needs/
+
 **Advocaat resigns as Curacao manager months before nation's World Cup debut**\
 `The 78-year-old has resigned to look after his daughter, who has health issues. `\
 https://nytimes.com/athletic/7065442/2026/02/23/dick-advocaat-curacao-manager-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7060347/2026/02/23/julian-sayin-ohio-state-stats-fi
 **The Next Conflict**\
 `We’re looking at the potential for a U.S. attack on Iran.`\
 https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
-
-**Yankees roster projection: José Caballero's bat-speed focus, Luis Gil's rebound**\
-`The Yankees open the season against the San Francisco Giants on March 25. Here's our Opening Day roster projection, with notes on key names.`\
-https://nytimes.com/athletic/7064580/2026/02/23/yankees-opening-day-roster-projection/
-
-**Astros roster projection 2.0: Josh Hader's injury and Isaac Paredes' predicament**\
-`With an infield surplus and a closer dealing with biceps inflammation, here's a look at what Houston's roster could look like on Opening Day`\
-https://nytimes.com/athletic/7062594/2026/02/23/astros-roster-projection-josh-hader-injury-isaac-paredes/
-
-**What I'll be watching for the remainder of this Blackhawks season: 10 storylines**\
-`The Blackhawks have 25 games left in the 2025-26 season. With young players steadily earning more experience, here's where to look.`\
-https://nytimes.com/athletic/7062397/2026/02/23/blackhawks-stretch-run-storylines-nazar-defense-trade-deadline/
 
