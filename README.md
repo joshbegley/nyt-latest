@@ -1,3 +1,19 @@
+**An Ugly Building in a Beautiful City Gets a Much-Debated Makeover**\
+`The Tour Montparnasse is one of Paris’s least-loved landmarks. After half a century, it’s finally being remodeled.`\
+https://nytimes.com/2026/02/23/world/europe/tour-montparnasse-paris-makeover-piano.html
+
+**No Corrections: Feb. 23, 2026**\
+`No corrections appeared in print on Monday, Feb. 23, 2026.`\
+https://nytimes.com/2026/02/23/corrections/no-corrections-feb-23-2026.html
+
+**Quote of the Day: These Black Medics Drove a Revolution In Emergency Care**\
+`Quotation of the Day for Monday, February 23, 2026.`\
+https://nytimes.com/2026/02/23/pageoneplus/quote-of-the-day-these-black-medics-drove-a-revolution-in-emergency-care.html
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 23, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7064954/2026/02/23/connections-sports-edition-hints-answers-feb-23-2026/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>After a week&#8217;s hiatus, hopefully you have some good questions stored up.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -23,20 +39,4 @@ https://nytimes.com/athletic/7064260/2026/02/22/olympics-recap-usa-hockey-gold-e
 **Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
 `From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
 https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
-
-**NFL players mourn Rondale Moore, urge mental-health awareness**\
-`Players around the league express grief over death of Moore, 25.`\
-https://nytimes.com/athletic/7064764/2026/02/22/rondale-moore-death-nfl-reaction-mental-health-awareness/
-
-**At homeless encampments in Queens, some plan to wait out the storm.**\
-`By Miles G. Cohen`\
-https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/at-homeless-encampments-in-queens-some-plan-to-wait-out-the-storm
-
-**Susan Sheehan, Chronicler of Lives on the Margins, Dies at 88**\
-`As a journalist and author, she wrote meticulous portraits of people for The New Yorker. Her book “Is There No Place on Earth for Me?” won the Pulitzer Prize.`\
-https://nytimes.com/2026/02/22/books/susan-sheehan-dead.html
-
-**Where were you when Team USA made unforgettable Olympic hockey history?**\
-`Team USA's win over Canada in the gold medal game of the Milan Cortina Winter Olympics was a shared moment of coast-to-coast jubilance.`\
-https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-history-2026/
 
