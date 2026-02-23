@@ -1,3 +1,7 @@
+**The Hardest Coaching Job in Sports, and an Olympic Recap from Milan**\
+`Plus, your M.L.B. spring training preview.`\
+https://nytimes.com/2026/02/23/podcasts/hardest-coaching-job-iolympic-recap-mlb-spring-training.html
+
 **Major Snowstorm Hits Northeast and Mid-Atlantic**\
 `The storm is moving across the Northeast and Mid-Atlantic regions. Parts of New England and the New York City region could receive up to 18 inches.`\
 https://nytimes.com/video/weather/100000010729984/snow-storm-nyc-northeast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065029/2026/02/23/brandin-podziemski-warriors-nugg
 **One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
 `Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
 https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
-
-**The anatomy of an Anton Stach wonder goal — and everything else he brings to Leeds' play**\
-`Stach's stunning free kick against Villa was one of the finest Leeds goals in recent memory`\
-https://nytimes.com/athletic/7063130/2026/02/23/leeds-stach-free-kick-villa/
 
