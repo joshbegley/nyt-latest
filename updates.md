@@ -1,3 +1,15 @@
+**USMNT Player Tracker: Robinson woe, Pulisic starts and Pepi makes his mark**\
+`Our roundup of the U.S. players' contributions in Europe over the weekend includes more goals for Folarin Balogun and Tyler Adams' return`\
+https://nytimes.com/athletic/7065776/2026/02/23/usmnt-robinson-pulisic-pepi-adams-tracker/
+
+**Scouting top MLB Draft prospect Grady Emerson and a thinned Amegy College Series field**\
+`Emerson is the top high school prospect in this class. Injuries thinned the Amegy College Series talent pool but Wes Mendes looked strong.`\
+https://nytimes.com/athletic/7065158/2026/02/23/mlb-draft-scouting-grady-emerson/
+
+**Irish soccer is being divided by Republic of Ireland-Israel fallout**\
+`Republic of Ireland's Nations League draw has sparked debate at Irish club Drogheda United.`\
+https://nytimes.com/athletic/7058293/2026/02/23/republic-of-ireland-israel-draw-drogheda/
+
 **Sargent move to Toronto nets St. Louis windfall due to unique MLS setup**\
 `Josh Sargent's hometown MLS team is getting something useful out of the player's transfer from Norwich City to Toronto`\
 https://nytimes.com/athletic/7066097/2026/02/23/josh-sargent-toronto-fc-transfer-norwich-city-st-louis-mls/
