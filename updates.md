@@ -1,3 +1,15 @@
+**Lakers unveil Pat Riley statue to honor pioneer of 'Showtime' basketball**\
+`In eight-plus seasons in Los Angeles, Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 percentage.`\
+https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/
+
+**Yankees radio legend John Sterling says he had a heart attack in January**\
+`Sterling said that "all things" are good and credited his children for taking care of him during his recovery.`\
+https://nytimes.com/athletic/7064718/2026/02/22/john-sterling-heart-attack-yankees/
+
+**Thunder's short-handed win over Cavaliers shows NBA markets stars too much**\
+`Oklahoma City and a growing number of NBA teams can lose stars and still win because their advantage is built on structure, not one player.`\
+https://nytimes.com/athletic/7064520/2026/02/22/thunder-cavaliers-nba-stars-donovan-mitchell/
+
 **Unrest in 2026 World Cup host city Guadalajara after Mexico kills drug lord 'El Mencho'**\
 `The governor’s office told The Athletic it had not received any communications from FIFA “that should concern us"`\
 https://nytimes.com/athletic/7064642/2026/02/22/world-cup-guadalajara-el-mencho/
