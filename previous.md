@@ -4,7 +4,7 @@
 `\
 https://nytimes.com/athletic/7065071/2026/02/22/submit-a-question-for-stewart-mandels-college-football-mailbag-335/
 
-**U.S fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
+**U.S. fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
 `Jack Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
 https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
 
