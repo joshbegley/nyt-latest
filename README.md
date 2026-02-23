@@ -1,3 +1,11 @@
+**Page to Screen: Do You Know These Thriller Adaptations?**\
+`Test your knowledge of five books and their big-screen counterparts in this short quiz.`\
+https://nytimes.com/interactive/2026/02/23/books/review/spy-movies-quiz.html
+
+**An Easy Apple Screensharing Hack**\
+`Are you the go-to tech support family member? If so, this tip that writer Jon Chase accidentally discovered during an extended FaceTime Tech Talk with his dad may be just the thing for you.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010731053/an-easy-apple-screensharing-hack.html
+
 **The ‘snow farms’ in Boston are preparing to store more of the stuff.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/the-snow-farms-in-boston-are-preparing-to-store-more-of-the-stuff
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/23/us/nancy-guthrie-case-updates
 **NBA Power Rankings: Fresh outlooks for many after the All-Star break**\
 `We have been having a lot of non-basketball conversations recently, so it's good that we have wall-to-wall basketball games back.`\
 https://nytimes.com/athletic/7065585/2026/02/23/nba-power-rankings-pistons-spurs-celtics-lakers/
-
-**How to watch Spurs vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7066093/2026/02/23/spurs-vs-pistons-stream-how-to-watch-feb-23/
-
-**Submit a question for Pete Sampson's Notre Dame mailbag**\
-`Spring football is just a few weeks away — what's on your mind about Notre Dame?`\
-https://nytimes.com/athletic/7066073/2026/02/23/submit-a-question-for-pete-sampsons-notre-dame-mailbag-110/
 

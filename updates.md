@@ -1,3 +1,11 @@
+**The ‘snow farms’ in Boston are preparing to store more of the stuff.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/the-snow-farms-in-boston-are-preparing-to-store-more-of-the-stuff
+
+**Senator Handcuffed After Interrupting Noem Will Give Spanish Rebuttal to Trump**\
+`Senator Alex Padilla, a Democrat from California, offered a preview of his remarks, which he expects to focus on the economy, immigration and fair elections.`\
+https://nytimes.com/2026/02/23/us/politics/alex-padilla-trump-state-of-the-union-spanish-democratic-response.html
+
 **The European Union Hits Pause on Its U.S. Trade Deal**\
 `The 27-nation bloc isn’t throwing out the deal it struck with the United States, but officials want more clarity before they implement it.`\
 https://nytimes.com/2026/02/23/world/europe/eu-us-trade-deal-pause-tariffs.html
