@@ -1,4 +1,4 @@
-**Worst Part of Storm Ahead as it Moves to Boston**\
+**Winter Storm Remains Intense as It Blasts Region With Snow**\
 `Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
 https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
 
