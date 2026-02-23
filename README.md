@@ -1,40 +1,40 @@
-**U.K., Australia and Others Worse Off Under Trump’s New Tariffs**\
-`Many important U.S. trading partners are facing higher duties after President Trump, reacting to a Supreme Court setback, set the rate on a new set of global tariffs at 15 percent.`\
-https://nytimes.com/2026/02/23/business/uk-australia-trump-tariffs.html
+**Yankees roster projection: José Caballero's bat-speed focus, Luis Gil's rebound**\
+`The Yankees open the season against the San Francisco Giants on March 25. Here's our Opening Day roster projection, with notes on key names.`\
+https://nytimes.com/athletic/7064580/2026/02/23/yankees-opening-day-roster-projection/
 
-**Women's college basketball rankings: How Louisville, Duke tripped against bubble teams**\
-`Plus, how Hannah Hidalgo keeps the Irish alive, and other highlights from the week in women's hoops.`\
-https://nytimes.com/athletic/7065074/2026/02/23/womens-college-basketball-rankings-duke-louisville/
+**Astros roster projection 2.0: Josh Hader's injury and Isaac Paredes' predicament**\
+`With an infield surplus and a closer dealing with biceps inflammation, here's a look at what Houston's roster could look like on Opening Day`\
+https://nytimes.com/athletic/7062594/2026/02/23/astros-roster-projection-josh-hader-injury-isaac-paredes/
 
-**European Support for Ukraine Stumbles on Eve of Invasion’s 4th Anniversary**\
-`Hungary said that it would block both the latest sanctions package on Russia and a financial aid package to Kyiv worth about $106 billion.`\
-https://nytimes.com/2026/02/23/world/europe/ukraine-war-russia-eu-hungary.html
+**What I'll be watching for the remainder of this Blackhawks season: 10 storylines**\
+`The Blackhawks have 25 games left in the 2025-26 season. With young players steadily earning more experience, here's where to look.`\
+https://nytimes.com/athletic/7062397/2026/02/23/blackhawks-stretch-run-storylines-nazar-defense-trade-deadline/
 
-**The Pulse: The Olympics’ best moments**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7064712/2026/02/23/olympics-usa-canada-hockey-closing-ceremony-the-pulse/
+**Broncos enter offseason with clear priority: Build a more dynamic offense**\
+`From schematic tweaks to the search for a consistent lead back, the Broncos have plenty to figure out about their offensive attack.`\
+https://nytimes.com/athletic/7060422/2026/02/23/broncos-offseason-offense-scouting-combine/
 
-**The 10 biggest lessons from college football's wild (and expensive) coaching carousel**\
-`What coaches, agents, athletic directors and search firms are taking away from one of the busiest college football coach carousels ever.`\
-https://nytimes.com/athletic/7060723/2026/02/23/college-football-coaching-carousel-takeaways/
+**Why the Hawks benched Zaccharie Risacher, and what it means**\
+`Now, Atlanta has multiple forwards it can use interchangeably behind and next to the All-Star Jalen Johnson. Risacher is just one of them.`\
+https://nytimes.com/athletic/7064938/2026/02/23/zaccharie-risacher-benched-hawks-season-outlook/
 
-**A sneaky Maple Leafs trade deadline consideration: What could the 2026-27 roster look like?**\
-`To get a sense of the task at hand, let's work through some of the (endless) possibilities by sketching out what the potential roster needs.`\
-https://nytimes.com/athletic/7041643/2026/02/23/maple-leafs-trade-deadline-2026-27-roster/
+**Flyers need two players to salvage their disastrous seasons after Olympic break**\
+`With their games resuming Wednesday, the Flyers sit eight points out of a playoff spot in the crowded Eastern Conference.`\
+https://nytimes.com/athletic/7062695/2026/02/23/flyers-hathaway-ersson-form-playoffs/
 
-**How the storm has snarled transit in the Northeast.**\
-`T`\
-https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/how-the-storm-has-snarled-transit-in-the-northeast
+**Five Chargers questions I will be looking to answer at the combine**\
+`Can the Chargers target Tyler Linderbaum in free agency? Which internal free agents will they prioritize? Who might they cut? `\
+https://nytimes.com/athletic/7060794/2026/02/23/chargers-nfl-combine-2026-questions/
 
-**Chiefs big board: 10 prospects each draft day that could make sense**\
-`Yes, it's early. But here are 30 early names to keep an eye on in the 2026 NFL Draft as the Chiefs look to address their needs.`\
-https://nytimes.com/athletic/7060434/2026/02/23/chiefs-nfl-draft-big-board-prospects/
+**TGL Week 8 preview: New York vs. Bay, Boston vs. Atlanta battle for first**\
+`The TGL is playing seven matches in the next nine days as the league coordinates its midseason break with the Genesis Invitational.`\
+https://nytimes.com/athletic/7065073/2026/02/23/tgl-week-8-preview-betting-picks-boston-atlanta-first-place/
 
-**How likely is a DJ Moore trade? Needs at linebacker? Bears pre-combine mailbag**\
-`It'll be rumor central in Indianapolis this week. Will the Bears move DJ Moore? Will they make a splash in free agency?`\
-https://nytimes.com/athletic/7061264/2026/02/23/bears-mailbag-nfl-combine-dj-moore/
+**49ers combine priorities: Trade talks, free-agent targets and draft prospects to watch**\
+`Kyle Shanahan and John Lynch will spend this week preparing for what could be a busy offseason. Could they kick the tires on Maxx Crosby?`\
+https://nytimes.com/athletic/7061100/2026/02/23/49ers-nfl-combine-nfl-draft-free-agency/
 
-**Cowboys combine preview: Eyes on Maxx Crosby interest and George Pickens' situation**\
-`Will the Cowboys pursue Raiders defensive end Maxx Crosby? How do they plan to fill all of their defensive holes?`\
-https://nytimes.com/athletic/7060840/2026/02/23/cowboys-combine-preview-maxx-crosby-george-pickens/
+**Dodgers camp notes: Shohei Ohtani departs for WBC as Kyle Tucker makes spring debut**\
+`Ohtani will only be a DH during the WBC, but he plans to simulate live pitching sessions and throw bullpens while away from the Dodgers.`\
+https://nytimes.com/athletic/7064263/2026/02/23/dodgers-shohei-ohtani-wbc-kyle-tucker/
 
