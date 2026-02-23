@@ -1,3 +1,11 @@
+**Edward Hoagland, Lyrical Chronicler of the Natural World, Dies at 93**\
+`In essays and books, he explored physical landscapes and the terrain of his own life, up to the blindness that overtook him in his later years.`\
+https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
+
+**Jewish Settlers Drive a Palestinian Family Off Its Land**\
+`For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
+https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
+
 **‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
 `The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
 https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html

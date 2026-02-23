@@ -1,8 +1,20 @@
+**Can an Influencer Really ‘Think Like a Monk’?**\
+`Jay Shetty’s podcast, “On Purpose,” is wildly popular, and he has written two bestselling books, “Think Like a Monk” and “8 Rules of Love.`\
+https://nytimes.com/video/podcasts/100000010730734/can-an-influencer-really-think-like-a-monk.html
+
+**Jay Shetty’s Advice for Getting Over Your Regrets**\
+`Jay Shetty, the host of the popular podcast “On Purpose,” shares some advice on how to think about life’s painful experiences on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010730788/jay-shettys-advice-for-getting-over-your-regrets.html
+
+**Can You Find Spirituality on Instagram?**\
+`What happens when mindfulness or dharma are decoupled from their religious roots? Jay Shetty, the host of the popular podcast “On Purpose,” shared his perspective on the value of spiritual paths that begin on social media on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010730742/can-you-find-spirituality-on-instagram.html
+
 **Edward Hoagland, Lyrical Chronicler of the Natural World, Dies at 93**\
 `In essays and books, he explored physical landscapes and the terrain of his own life, up to the blindness that overtook him in his later years.`\
 https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
 
-**Jewish Settlers Drive a Palestinian Family Off Its Land**\
+**Settlers Drive a Palestinian Family Off Its Land**\
 `For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
 https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010731439/peter-mandelson-arrested-
 **Lindsey Vonn describes surgery that saved her leg from amputation after crash**\
 `The U.S. Olympian said trauma to her fractured left leg led to compartment syndrome, which could have caused her to lose the limb.`\
 https://nytimes.com/athletic/7066124/2026/02/23/olympics-lindsey-vonn-surgery-prevented-amputation/
-
-**AP men's hoops Top 25: Duke No. 1 for first time this season, Michigan drops to No. 3**\
-`Two days after Duke beat Michigan on a neutral court in the marquee game of the weekend, the teams traded places in the Associated Press Top 25 — with the Blue Devils ascending to No.`\
-https://nytimes.com/athletic/7066411/2026/02/23/ap-mens-basketball-poll-duke-no-1-michigan/
-
-**Leah Stavenhagen, Advocate for Young Women With A.L.S., Dies at 33**\
-`Ms. Stavenhagen started a group intended to counter the notion that A.L.S. was an “older white man’s disease.”`\
-https://nytimes.com/2026/02/23/health/leah-stavenhagen-als.html
-
-**Get a Close-up View of This ‘Classic’ Nor’easter**\
-`Satellite images show the wide footprint of this storm, and explain why the snow fell where it did.`\
-https://nytimes.com/2026/02/23/weather/snowstorm-satellite-explained.html
 

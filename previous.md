@@ -1,3 +1,11 @@
+**Edward Hoagland, Lyrical Chronicler of the Natural World, Dies at 93**\
+`In essays and books, he explored physical landscapes and the terrain of his own life, up to the blindness that overtook him in his later years.`\
+https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
+
+**Jewish Settlers Drive a Palestinian Family Off Its Land**\
+`For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
+https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
+
 **‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
 `The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
 https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/health/leah-stavenhagen-als.html
 **Get a Close-up View of This ‘Classic’ Nor’easter**\
 `Satellite images show the wide footprint of this storm, and explain why the snow fell where it did.`\
 https://nytimes.com/2026/02/23/weather/snowstorm-satellite-explained.html
-
-**Johnson Will Bring Daughter of Jimmy Lai to State of the Union Address**\
-`Her appearance underscores that “America is determined” to secure the release of the Hong Kong democracy activist, Speaker Mike Johnson said.`\
-https://nytimes.com/2026/02/23/us/politics/jimmy-lai-mike-johnson-sotu.html
-
-**Texas Officials Share Blame in Camp Mystic Deaths, New Lawsuit Claims**\
-`“The lack of the state-required evacuation plan created chaos that cost 27 young lives,” the suit asserts.`\
-https://nytimes.com/2026/02/23/us/camp-mystic-lawsuit.html
 
