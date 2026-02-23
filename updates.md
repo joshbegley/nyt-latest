@@ -1,3 +1,11 @@
+**Key Witness Who Disputed ICE Account of Fatal Texas Shooting Dies in Car Accident**\
+`A passenger in the car with Ruben Ray Martinez wrote that the men were trying to comply with authorities before Mr. Martinez was shot. The passenger, Joshua Orta, died in a car accident on Saturday.`\
+https://nytimes.com/2026/02/23/us/ice-shooting-texas-witness-dead.html
+
+**The Bounce: A Stern-er Adam Silver? Plus, the sizzling Spurs and Pistons collide**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7065925/2026/02/23/the-bounce-a-stern-er-adam-silver-plus-the-sizzling-spurs-and-pistons-collide/
+
 **The Windup: Let's talk ABS strategies**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7065935/2026/02/23/automated-ball-strike-challenge-system-mlb-the-windup/
