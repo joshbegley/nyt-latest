@@ -1,3 +1,15 @@
+**Worst Part of Storm Ahead as it Moves to Boston**\
+`Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
+https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
+
+**Tariff Turmoil Returns to Global Markets**\
+`Businesses and U.S. trade partners are again grappling with the uncertainty of President Trump’s trade war, even as he imposes new levies.`\
+https://nytimes.com/2026/02/23/business/dealbook/tariffs-trump-markets.html
+
+**Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
+`Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
+https://nytimes.com/2026/02/23/business/economy/waller-fed-supreme-court-tariffs-rates.html
+
 **Submit your questions for the college basketball mailbag**\
 `What's on your mind with three weeks until the NCAA Tournament?`\
 https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mailbag-2026/
