@@ -1,3 +1,7 @@
+**Where were you when Team USA made unforgettable Olympic hockey history?**\
+`Team USA's win over Canada in the gold medal game of the Milan Cortina Winter Olympics was a shared moment of coast-to-coast jubilance.`\
+https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-history-2026/
+
 **What to Know About the Killing of ‘El Mencho’**\
 `The Mexican government has killed Nemesio Oseguera Cervantes, the longtime leader of one of Mexico’s most powerful gangs, the Jalisco New Generation Cartel.`\
 https://nytimes.com/2026/02/22/world/americas/el-mencho-mexico-what-we-know.html

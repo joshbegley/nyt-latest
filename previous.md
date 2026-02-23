@@ -1,3 +1,7 @@
+**Where were you when Team USA made unforgettable Olympic hockey history?**\
+`Team USA's win over Canada in the gold medal game of the Milan Cortina Winter Olympics was a shared moment of coast-to-coast jubilance.`\
+https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-history-2026/
+
 **What to Know About the Killing of ‘El Mencho’**\
 `The Mexican government has killed Nemesio Oseguera Cervantes, the longtime leader of one of Mexico’s most powerful gangs, the Jalisco New Generation Cartel.`\
 https://nytimes.com/2026/02/22/world/americas/el-mencho-mexico-what-we-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010729088/man-shot-mar-a-lago-trump.html
 **Tyrese Haliburton diagnosed with shingles, will be away from Pacers for 2-3 weeks**\
 `Sunday’s news is a continuation of what has been a rough eight months for Haliburton, who ruptured his Achilles in the NBA Finals in June.`\
 https://nytimes.com/athletic/7064474/2026/02/22/tyrese-haliburton-shingles-pacers-nba/
-
-**Showed Again**\
-`Hannah Binney returns with another Monday puzzle.`\
-https://nytimes.com/2026/02/22/crosswords/daily-puzzle-2026-02-23.html
 
