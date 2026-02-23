@@ -1,3 +1,19 @@
+**European Support for Ukraine Stumbles on Eve of Invasion’s 4th Anniversary**\
+`Hungary said that it would block both the latest sanctions package on Russia and a financial aid package to Kyiv worth about $106 billion.`\
+https://nytimes.com/2026/02/23/world/europe/ukraine-war-russia-eu-hungary.html
+
+**The Pulse: The Olympics’ best moments**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7064712/2026/02/23/olympics-usa-canada-hockey-closing-ceremony-the-pulse/
+
+**The 10 biggest lessons from college football's wild (and expensive) coaching carousel**\
+`What coaches, agents, athletic directors and search firms are taking away from one of the busiest college football coach carousels ever.`\
+https://nytimes.com/athletic/7060723/2026/02/23/college-football-coaching-carousel-takeaways/
+
+**A sneaky Maple Leafs trade deadline consideration: What could the 2026-27 roster look like?**\
+`To get a sense of the task at hand, let's work through some of the (endless) possibilities by sketching out what the potential roster needs.`\
+https://nytimes.com/athletic/7041643/2026/02/23/maple-leafs-trade-deadline-2026-27-roster/
+
 **How the storm has snarled transit in the Northeast.**\
 `T`\
 https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/how-the-storm-has-snarled-transit-in-the-northeast
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7058934/2026/02/23/detroit-lions-combine-preview-po
 **The plan at OT and pursuing top edge rushers: 5 Panthers storylines at combine**\
 `Ikem Ekwonu's late-season injury likely means he'll miss a chunk of next season and creates a dilemma for GM Dan Morgan.`\
 https://nytimes.com/athletic/7060790/2026/02/23/panthers-nfl-combine-preview-ot-bryce-young/
-
-**NHL training tips: 7 workouts players use to stay in shape during compressed Olympic season**\
-`Because of the Olympics, NHL players have less time between games than ever this season. How are they maintaining their bodies?`\
-https://nytimes.com/athletic/7038562/2026/02/23/nhl-training-tips-workouts-compressed-season/
-
-**Rosenthal: After losing Alex Bregman, can Red Sox defy underwhelming offensive projections?**\
-`With several players in their 20s who could take a step forward, Red Sox president Craig Breslow is optimistic about the lineup's potential.`\
-https://nytimes.com/athletic/7064258/2026/02/23/boston-red-sox-offense-projections/
-
-**Vikings mailbag: A plan for free agency and what's next for Aaron Jones and J.J. McCarthy**\
-`The Vikings' aggressiveness in free agency will likely depend on what they do at QB, while Jones' time in Minnesota may be done.`\
-https://nytimes.com/athletic/7062454/2026/02/23/vikings-nfl-combine-free-agency-aaron-jones-jj-mccarthy/
-
-**Tennessee's issues go beyond Kim Caldwell: Rocky Top no longer a prestige destination**\
-`The program has hit a new low with a string of blowout losses. But changing coaches won't necessarily change the Lady Vols' predicament.`\
-https://nytimes.com/athletic/7065182/2026/02/23/tennessee-womens-basketball-coach-kim-caldwell-2/
 
