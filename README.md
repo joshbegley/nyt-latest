@@ -1,3 +1,7 @@
+**Five Big Political Questions About Trump’s State of the Union Speech**\
+`Tariffs, the cost of living, immigration: The president has a careful line to walk on major issues.`\
+https://nytimes.com/2026/02/23/us/politics/trump-speech-state-of-union-questions.html
+
 **José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy.**\
 `Berríos stumbled in the second half last season but declared himself fit after his first spring outing: "I'm back. I'm healthy."`\
 https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/02/23/learning/23StudentNewsQuiz.html
 **Mexican Forces Say They Tracked El Mencho to Cabin by Following His Lover**\
 `Top security officials revealed details of the operation that led to the death of Mexico’s most wanted drug cartel leader.`\
 https://nytimes.com/2026/02/23/world/americas/el-mencho-mexico-cartel-military-raid.html
-
-**In New York City, the snow has stopped falling. But leaving is another question.**\
-`By Wesley Parnell`\
-https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/blizzard-moynihan-train-station-delays
 
