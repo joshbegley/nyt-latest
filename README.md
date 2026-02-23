@@ -1,3 +1,7 @@
+**The Bounce: A Stern-er Adam Silver? Plus, the sizzling Spurs and Pistons collide**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7065925/2026/02/23/the-bounce-a-stern-er-adam-silver-plus-the-sizzling-spurs-and-pistons-collide/
+
 **The Windup: Let's talk ABS strategies**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7065935/2026/02/23/automated-ball-strike-challenge-system-mlb-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/science/evolution-lanternflies-invasive.html
 **Catherine, Princess of Wales, and a Projection of Royal Unity**\
 `After Andrew Mountbatten-Windsor’s arrest, the Prince and Princess of Wales made a pointed BAFTA appearance.`\
 https://nytimes.com/2026/02/23/style/catherine-william-princess-of-wales-bafta-dress.html
-
-**Fantasy baseball Zero-SP draft strategy: Target hitters like Brent Rooker in early rounds**\
-`Michael Salfino highlights the high-floor hitters to target early in fantasy baseball drafts for those who are doing a Zero-SP roster build.`\
-https://nytimes.com/athletic/7060672/2026/02/23/zero-sp-draft-strategy-early-hitters-targets/
 
