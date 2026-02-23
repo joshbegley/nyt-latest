@@ -1,3 +1,19 @@
+**C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
+`Mexican officials said they had found the elusive drug kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
+https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
+
+**New York City’s Homeless Population Faces Another Dangerous Storm**\
+`Mayor Zohran Mamdani said on Monday that his administration had taken lessons from the city’s last storm, when at least 20 people died after exposure to the cold.`\
+https://nytimes.com/2026/02/23/weather/nyc-blizzard-homeless.html
+
+**Anthropic Accuses 3 Chinese Companies of Harvesting Its Data**\
+`The San Francisco start-up claimed that DeepSeek, Moonshot and MiniMax used approximately 24,000 fraudulent accounts to train their own chatbots.`\
+https://nytimes.com/2026/02/23/technology/anthropic-chinese-startups-distillation.html
+
+**‘It’s Going to Be a Long Speech’: Trump Prepares for State of the Union**\
+`President Trump does not like to practice reading the speech out loud, but he spent time mimicking the setup of the House chamber, officials familiar with his plans said.`\
+https://nytimes.com/2026/02/23/us/politics/speech-trump-state-of-the-union.html
+
 **Did Her White Father Marry Her Black Mother for Love, or for Research?**\
 `In “The Mixed Marriage Project,” Dorothy Roberts reflects on her anthropologist father’s lifelong project: to document — and promote — interracial marriages like his own.`\
 https://nytimes.com/2026/02/23/books/review/the-mixed-marriage-project-dorothy-roberts.html
