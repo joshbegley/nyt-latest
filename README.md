@@ -1,3 +1,7 @@
+**NHL players whose legacies changed most at the Olympics**\
+`From Connor Hellebuyck to Auston Matthews, these players rewrote their stories emphatically in just a few short weeks.`\
+https://nytimes.com/athletic/7066010/2026/02/23/olympics-mens-hockey-nhl-legacies-red-light/
+
 **How to watch Kansas State vs. Baylor women's basketball: Time, TV, streaming**\
 `Find out how to watch the Kansas State Wildcats play the Baylor Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7066062/2026/02/23/kansas-state-vs-baylor-stream-how-to-watch-feb-23/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/dining/a-weeknight-winner-for-when-youre-sick-of-
 **How a Horse Whinnies: With a Whistle and a Song**\
 `Horses, with their high-pitched whinnies, seemed to buck the trend of larger animals producing lower sounds, but a new study explains the mechanics behind the noises a horse makes.`\
 https://nytimes.com/2026/02/23/science/horses-whinny-sounds.html
-
-**‘Survivor’ Is America**\
-`It’s our greatest game and our truest mirror. And in its tiki-torch-festooned way, it’s captured our society as an ever-changing collection of tribes.`\
-https://nytimes.com/2026/02/23/arts/television/survivor-season-50.html
 
