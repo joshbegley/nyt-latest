@@ -1,3 +1,11 @@
+**Did Her White Father Marry Her Black Mother for Love, or for Research?**\
+`In “The Mixed Marriage Project,” Dorothy Roberts reflects on her anthropologist father’s lifelong project: to document — and promote — interracial marriages like his own.`\
+https://nytimes.com/2026/02/23/books/review/the-mixed-marriage-project-dorothy-roberts.html
+
+**Snow Day! What It Looks Like When New York City Comes Out to Play.**\
+`Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
+https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
+
 **A Wake for The Washington Post’s Books Section**\
 `Literary and cultural denizens of the nation’s capital gathered on Saturday to eulogize The Post’s scuppered Book World supplement.`\
 https://nytimes.com/2026/02/23/books/washington-post-book-world.html

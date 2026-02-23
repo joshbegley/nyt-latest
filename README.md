@@ -1,3 +1,11 @@
+**Anthropic Accuses 3 Chinese Companies of Harvesting Its Data**\
+`The San Francisco start-up claimed that DeepSeek, Moonshot and MiniMax used approximately 24,000 fraudulent accounts to train their own chatbots.`\
+https://nytimes.com/2026/02/23/technology/anthropic-chinese-startups-distillation.html
+
+**‘It’s Going to Be a Long Speech’: Trump Prepares for State of the Union**\
+`President Trump does not like to practice reading the speech out loud, but he spent time mimicking the setup of the House chamber, officials familiar with his plans said.`\
+https://nytimes.com/2026/02/23/us/politics/speech-trump-state-of-the-union.html
+
 **Did Her White Father Marry Her Black Mother for Love, or for Research?**\
 `In “The Mixed Marriage Project,” Dorothy Roberts reflects on her anthropologist father’s lifelong project: to document — and promote — interracial marriages like his own.`\
 https://nytimes.com/2026/02/23/books/review/the-mixed-marriage-project-dorothy-roberts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/weather/rhode-island-snow-record-blizzard-1978.ht
 **Pentagon Summons Anthropic Chief in Dispute Over A.I. Limits**\
 `The artificial intelligence company has demanded that some guardrails be put in place as it negotiates a contract with the Defense Department.`\
 https://nytimes.com/2026/02/23/us/politics/pentagon-anthropic-ai.html
-
-**Videos Show How Mayhem Unfolded in Mexico**\
-`Armed groups blocked roads and set fire to supermarkets and banks after the Mexican government killed Mexico’s most-wanted cartel boss.`\
-https://nytimes.com/2026/02/23/world/americas/mexico-violence-el-mencho-videos.html
-
-**Jeff and Lauren Sánchez Bezos Will Be Honorary Chairs of the Met Gala**\
-`The news came tucked into the second page of a recent news release.`\
-https://nytimes.com/2026/02/23/style/jeff-and-lauren-sanchez-bezos-honorary-chairs-met-gala.html
 
