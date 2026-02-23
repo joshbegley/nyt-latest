@@ -1,8 +1,12 @@
+**Blizzard Slams Northeast with Heavy Snow, Disrupting Travel**\
+`Several cities across the Northeast received at least two feet of snow, bringing many places to a standstill.`\
+https://nytimes.com/video/weather/100000010731277/blizzard-snow-nyc-new-jersey-boston.html
+
 **Five Big Political Questions About Trump’s State of the Union Speech**\
 `Tariffs, the cost of living, immigration: The president has a careful line to walk on major issues.`\
 https://nytimes.com/2026/02/23/us/politics/trump-speech-state-of-union-questions.html
 
-**José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy.**\
+**José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy**\
 `Berríos stumbled in the second half last season but declared himself fit after his first spring outing: "I'm back. I'm healthy."`\
 https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-update/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/world/canada/canada-shooting-openai.html
 **Weekly Student News Quiz: Supreme Court, Winter Olympics, Lunar New Year**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/02/23/learning/23StudentNewsQuiz.html
-
-**Mexican Forces Say They Tracked El Mencho to Cabin by Following His Lover**\
-`Top security officials revealed details of the operation that led to the death of Mexico’s most wanted drug cartel leader.`\
-https://nytimes.com/2026/02/23/world/americas/el-mencho-mexico-cartel-military-raid.html
 

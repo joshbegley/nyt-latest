@@ -1,3 +1,11 @@
+**Blizzard Slams Northeast with Heavy Snow, Disrupting Travel**\
+`Several cities across the Northeast received at least two feet of snow, bringing many places to a standstill.`\
+https://nytimes.com/video/weather/100000010731277/blizzard-snow-nyc-new-jersey-boston.html
+
+**José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy**\
+`Berríos stumbled in the second half last season but declared himself fit after his first spring outing: "I'm back. I'm healthy."`\
+https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-update/
+
 **Five Big Political Questions About Trump’s State of the Union Speech**\
 `Tariffs, the cost of living, immigration: The president has a careful line to walk on major issues.`\
 https://nytimes.com/2026/02/23/us/politics/trump-speech-state-of-union-questions.html
