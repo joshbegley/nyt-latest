@@ -1,3 +1,7 @@
+**Architecture Prize Responds After Tom Pritzker’s Epstein Ties Surface**\
+`A Pritzker Prize statement cited the award’s independence after Mr. Pritzker, who directs the foundation behind the award, resigned as chairman of the Hyatt Corporation.`\
+https://nytimes.com/2026/02/23/arts/design/pritzker-prize-epstein-architecture.html
+
 **Ushering In the Next Era of Aviation**\
 `JetZero and Siemens set out to reinvent flight with the Z4.`\
 https://nytimes.com/paidpost/siemens/ushering-in-the-next-era-of-aviation.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010730645/the-wellness-guru-jay-shetty-
 **Winter Storm Remains Intense as It Blasts Region With Snow**\
 `Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
 https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
-
-**Tariff Turmoil Returns to Global Markets**\
-`Businesses and U.S. trade partners are again grappling with the uncertainty of President Trump’s trade war, even as he imposes new levies.`\
-https://nytimes.com/2026/02/23/business/dealbook/tariffs-trump-markets.html
 
