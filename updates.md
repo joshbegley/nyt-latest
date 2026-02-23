@@ -1,3 +1,11 @@
+**In New York City, the snow has stopped falling. But leaving is another question.**\
+`By Wesley Parnell`\
+https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/blizzard-moynihan-train-station-delays
+
+**C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
+`Mexican officials said they had found the elusive cartel kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
+https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
+
 **Sources: Griezmann in advanced talks to join Orlando City from Atletico**\
 `Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
