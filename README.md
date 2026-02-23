@@ -1,3 +1,7 @@
+**Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
+`From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
+https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
+
 **NFL players mourn Rondale Moore, urge mental-health awareness**\
 `Players around the league express grief over death of Moore, 25.`\
 https://nytimes.com/athletic/7064764/2026/02/22/rondale-moore-death-nfl-reaction-mental-health-awareness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-t
 **Yankees radio legend John Sterling says he had a heart attack in January**\
 `Sterling said that "all things" are good and credited his children for taking care of him during his recovery.`\
 https://nytimes.com/athletic/7064718/2026/02/22/john-sterling-heart-attack-yankees/
-
-**Thunder's short-handed win over Cavaliers shows NBA markets stars too much**\
-`Oklahoma City and a growing number of NBA teams can lose stars and still win because their advantage is built on structure, not one player.`\
-https://nytimes.com/athletic/7064520/2026/02/22/thunder-cavaliers-nba-stars-donovan-mitchell/
 
