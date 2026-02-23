@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mai
 https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
 
 **Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
-`President Claudia Sheinbaum was expected to address the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
+`President Claudia Sheinbaum was addressing the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
 https://nytimes.com/live/2026/02/23/world/mexico
 

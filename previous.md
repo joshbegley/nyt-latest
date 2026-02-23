@@ -1,3 +1,23 @@
+**What I'm hearing about Canucks' plans as NHL trade activity resumes**\
+`With the deadline approaching, the Canucks are focused on moving their pending unrestricted free agents.`\
+https://nytimes.com/athletic/7064175/2026/02/23/vancouver-canucks-trade-deadline-2026-olympics/
+
+**Premier League data notebook: Gyokeres the worker, Chelsea's fragility, West Ham's wastefulness**\
+`The Athletic's data writers break down the key storylines from the weekend's action`\
+https://nytimes.com/athletic/7065461/2026/02/23/premier-league-data-notebook-md27-gyokeres-chelsea-liverpool/
+
+**Backed by Anthropic, a Super PAC Begins Ad Blitz in Support of A.I. Regulation**\
+`The ads by Public First Action, which started airing on Monday, are part of an escalating political war over artificial intelligence before the midterm elections.`\
+https://nytimes.com/2026/02/23/technology/ai-pac-ad-blitz.html
+
+**En directo: México vive brotes de violencia tras la muerte de El Mencho**\
+`Estaba previsto que la presidenta Claudia Sheinbaum abordara los disturbios provocados tras la muerte del jefe del Cártel Jalisco Nueva Generación. El caos ha dejado varados a los turistas y ha obligado a las aerolíneas a cancelar vuelos.`\
+https://nytimes.com/live/2026/02/23/espanol/mexico-mencho-violencia
+
+**The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
+`The self-help influencer Jay Shetty on his values, his journey and criticism of his work.`\
+https://nytimes.com/video/podcasts/100000010730645/the-wellness-guru-jay-shetty-has-raised-some-doubts-including-his-own.html
+
 **Winter Storm Remains Intense as It Blasts Region With Snow**\
 `Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
 https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season
 **Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
 `President Claudia Sheinbaum was expected to address the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
 https://nytimes.com/live/2026/02/23/world/mexico
-
-**Here’s the latest.**\
-`By Ravi Mattu`\
-https://nytimes.com/live/2026/02/23/world/mexico/heres-the-latest
-
-**Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
-`Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
-https://nytimes.com/2026/02/23/business/economy/waller-fed-supreme-court-tariffs-rates.html
-
-**Trump Administration Live Updates: U.S. to ‘Reconstruct’ Tariffs After Supreme Court Loss**\
-``\
-https://nytimes.com/live/2026/02/23/us/trump-news
-
-**Reds leadoff man TJ Friedl understands his assignment: get on base**\
-`Friedl's ability to generate offense is at the heart of the Reds' game-winning strategy. `\
-https://nytimes.com/athletic/7064666/2026/02/23/reds-spring-training-tj-friedl-on-base-2026/
-
-**2026 MLS Anonymous Executive Survey, Part 1: Key figures dish on league's bests, worsts**\
-`For a fifth year running, we've asked top club officials for their candid thoughts on topics and themes around MLS. Here's what they said`\
-https://nytimes.com/athletic/7058062/2026/02/23/mls-anonymous-executive-survey-2026-best-worst-players-clubs-coaches/
 
