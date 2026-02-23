@@ -1,3 +1,11 @@
+**U.S fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
+`Jack Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
+https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
+
+**‘A Knight of the Seven Kingdoms’ Season 1 Finale Recap: On the Road Again**\
+`A melancholy finale sees Dunk finally treated as a proper knight, which includes a royal request to take on Egg as his proper squire.`\
+https://nytimes.com/2026/02/22/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-6.html
+
 **Amid fire alarms and with 'boneheaded' base-running, Giants turn a wacky triple play**\
 `The Society for American Baseball Research keeps a database of all triple plays. None have begun with a base hit.`\
 https://nytimes.com/athletic/7064880/2026/02/22/matt-chapman-triple-play-giants-cubs-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-hist
 **What to Know About the Killing of ‘El Mencho’**\
 `The Mexican government has killed Nemesio Oseguera Cervantes, the longtime leader of one of Mexico’s most powerful gangs, the Jalisco New Generation Cartel.`\
 https://nytimes.com/2026/02/22/world/americas/el-mencho-mexico-what-we-know.html
-
-**Tyler Reddick goes back-to-back: Takeaways from NASCAR at Atlanta**\
-`Reddick is the sixth driver in NASCAR history to win the first two races of the season.`\
-https://nytimes.com/athletic/7064740/2026/02/22/tyler-reddick-michael-jordan-nascar-atlanta-autotrader-500/
-
-**Jacob Bridgeman's Genesis Invitational win signals a PGA Tour movement**\
-`The PGA Tour’s youth has finally been making its own claim for a place in this sport.`\
-https://nytimes.com/athletic/7064639/2026/02/22/jacob-bridgeman-genesis-invitational-win-pga-tour/
 
