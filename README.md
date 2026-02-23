@@ -1,3 +1,7 @@
+**Did Her White Father Marry Her Black Mother for Love, or for Research?**\
+`In “The Mixed Marriage Project,” Dorothy Roberts reflects on her anthropologist father’s lifelong project: to document — and promote — interracial marriages like his own.`\
+https://nytimes.com/2026/02/23/books/review/the-mixed-marriage-project-dorothy-roberts.html
+
 **A Wake for The Washington Post’s Books Section**\
 `Literary and cultural denizens of the nation’s capital gathered on Saturday to eulogize The Post’s scuppered Book World supplement.`\
 https://nytimes.com/2026/02/23/books/washington-post-book-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/world/americas/mexico-violence-el-mencho-videos.h
 **Jeff and Lauren Sánchez Bezos Will Be Honorary Chairs of the Met Gala**\
 `The news came tucked into the second page of a recent news release.`\
 https://nytimes.com/2026/02/23/style/jeff-and-lauren-sanchez-bezos-honorary-chairs-met-gala.html
-
-**After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
-`Richard Baker wanted to create a retail empire when he combined Saks Fifth Avenue and Neiman Marcus. About a year later, it filed for bankruptcy.`\
-https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
 
