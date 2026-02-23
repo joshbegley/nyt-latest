@@ -1,3 +1,7 @@
+**After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
+`Richard Baker wanted to create a high-end retail empire when he combined Saks Fifth Avenue and Neiman Marcus. In a little over a year, it was bankrupt.`\
+https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
+
 **Anthony Edwards surprised by how much his most expensive rookie card sold for**\
 `Edwards' most expensive card sale came in 2022, but his second highest came just last week. `\
 https://nytimes.com/athletic/7066543/2026/02/23/anthony-edwards-trading-card-price-sale/

@@ -1,3 +1,7 @@
+**After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
+`Richard Baker wanted to create a high-end retail empire when he combined Saks Fifth Avenue and Neiman Marcus. In a little over a year, it was bankrupt.`\
+https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
+
 **Anthony Edwards surprised by how much his most expensive rookie card sold for**\
 `Edwards' most expensive card sale came in 2022, but his second highest came just last week. `\
 https://nytimes.com/athletic/7066543/2026/02/23/anthony-edwards-trading-card-price-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/learning/word-of-the-day-specious.html
 **U.S. Hits Another Boat in the Caribbean, Killing 3**\
 `The Defense Department did not provide evidence of its claim that the vessel was carrying drugs. At least 150 people have been killed in the campaign since September.`\
 https://nytimes.com/2026/02/23/us/politics/boat-strike-carribean-us-deaths.html
-
-**Jeff Monken interested in moving Army-Navy game to Thanksgiving weekend**\
-`The Army-Navy game has been played on the second Saturday of December since 2009 to stand apart from conference championship games.`\
-https://nytimes.com/athletic/7066429/2026/02/23/army-navy-game-thanksgiving-jeff-monken/
 
