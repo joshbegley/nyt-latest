@@ -1,3 +1,7 @@
+**What to Know About the Killing of ‘El Mencho’**\
+`The Mexican government has killed Nemesio Oseguera Cervantes, the longtime leader of one of Mexico’s most powerful gangs, the Jalisco New Generation Cartel.`\
+https://nytimes.com/2026/02/22/world/americas/el-mencho-mexico-what-we-know.html
+
 **Tyler Reddick goes back-to-back: Takeaways from NASCAR at Atlanta**\
 `Reddick is the sixth driver in NASCAR history to win the first two races of the season.`\
 https://nytimes.com/athletic/7064740/2026/02/22/tyler-reddick-michael-jordan-nascar-atlanta-autotrader-500/
