@@ -1,3 +1,7 @@
+**Major Snowstorm Hits Northeast and Mid-Atlantic**\
+`The storm is moving across the Northeast and Mid-Atlantic regions. Parts of New England and the New York City region could receive up to 18 inches.`\
+https://nytimes.com/video/weather/100000010729984/snow-storm-nyc-northeast.html
+
 **The Kremlin Banned These Books. You Can Find Them in a New York Library.**\
 `A professor at Hunter College has built one of the largest special collections of contraband Russian literature in the world.`\
 https://nytimes.com/2026/02/23/nyregion/hunter-college-soviet-banned-books.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
 **The anatomy of an Anton Stach wonder goal — and everything else he brings to Leeds' play**\
 `Stach's stunning free kick against Villa was one of the finest Leeds goals in recent memory`\
 https://nytimes.com/athletic/7063130/2026/02/23/leeds-stach-free-kick-villa/
-
-**Forget 'Mavropanic', Mavropanos has become key to West Ham's survival hopes**\
-`Nuno Espirito Santo had to wait until his 20th league game for a clean sheet but West Ham have slowly improved defensively`\
-https://nytimes.com/athletic/7062344/2026/02/23/konstantinos-mavropanos-west-ham-defence/
 

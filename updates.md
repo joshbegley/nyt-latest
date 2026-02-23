@@ -1,3 +1,7 @@
+**Major Snowstorm Hits Northeast and Mid-Atlantic**\
+`The storm is moving across the Northeast and Mid-Atlantic regions. Parts of New England and the New York City region could receive up to 18 inches.`\
+https://nytimes.com/video/weather/100000010729984/snow-storm-nyc-northeast.html
+
 **Putin Had High Hopes for Trump. They Have Been Dashed.**\
 `The U.S. president is actually pretty bad for Russia.`\
 https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
