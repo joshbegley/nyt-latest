@@ -1,3 +1,15 @@
+**Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
+`From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
+https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
+
+**NFL players mourn Rondale Moore, urge mental-health awareness**\
+`Players around the league express grief over death of Moore, 25.`\
+https://nytimes.com/athletic/7064764/2026/02/22/rondale-moore-death-nfl-reaction-mental-health-awareness/
+
+**At homeless encampments in Queens, some plan to wait out the storm.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/at-homeless-encampments-in-queens-some-plan-to-wait-out-the-storm
+
 **Susan Sheehan, Chronicler of Lives on the Margins, Dies at 88**\
 `As a journalist and author, she wrote meticulous portraits of people for The New Yorker. Her book “Is There No Place on Earth for Me?” won the Pulitzer Prize.`\
 https://nytimes.com/2026/02/22/books/susan-sheehan-dead.html
