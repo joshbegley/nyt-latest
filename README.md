@@ -1,3 +1,11 @@
+**The ‘snow farms’ in Boston are preparing to store more of the stuff.**\
+`By Jenna Russell`\
+https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/the-snow-farms-in-boston-are-preparing-to-store-more-of-the-stuff
+
+**Senator Handcuffed After Interrupting Noem Will Give Spanish Rebuttal to Trump**\
+`Senator Alex Padilla, a Democrat from California, offered a preview of his remarks, which he expects to focus on the economy, immigration and fair elections.`\
+https://nytimes.com/2026/02/23/us/politics/alex-padilla-trump-state-of-the-union-spanish-democratic-response.html
+
 **The European Union Hits Pause on Its U.S. Trade Deal**\
 `The 27-nation bloc isn’t throwing out the deal it struck with the United States, but officials want more clarity before they implement it.`\
 https://nytimes.com/2026/02/23/world/europe/eu-us-trade-deal-pause-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066093/2026/02/23/spurs-vs-pistons-stream-how-to-w
 **Submit a question for Pete Sampson's Notre Dame mailbag**\
 `Spring football is just a few weeks away — what's on your mind about Notre Dame?`\
 https://nytimes.com/athletic/7066073/2026/02/23/submit-a-question-for-pete-sampsons-notre-dame-mailbag-110/
-
-**NHL players whose legacies changed most at the Olympics**\
-`From Connor Hellebuyck to Auston Matthews, these players rewrote their stories emphatically in just a few short weeks.`\
-https://nytimes.com/athletic/7066010/2026/02/23/olympics-mens-hockey-nhl-legacies-red-light/
-
-**How to watch Kansas State vs. Baylor women's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Baylor Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7066062/2026/02/23/kansas-state-vs-baylor-stream-how-to-watch-feb-23/
 
