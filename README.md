@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7058293/2026/02/23/republic-of-ireland-israel-draw-
 https://nytimes.com/athletic/7066097/2026/02/23/josh-sargent-toronto-fc-transfer-norwich-city-st-louis-mls/
 
 **U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
-`Peter Mandelson is being investigated over accusations of “misconduct in public office offenses” amid his dealings with Jeffrey Epstein, the sex offender and financier.`\
+`Peter Mandelson is being investigated over accusations of “misconduct in public office” amid his dealings with Jeffrey Epstein, the sex offender.`\
 https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
 
 **Games Briefing: Your favorite moments**\

@@ -1,3 +1,7 @@
+**Nick Reiner Pleads Not Guilty in the Killing of His Parents**\
+`Mr. Reiner, 32, was charged with murdering his parents, the Hollywood director Rob Reiner and Michele Singer Reiner, last year.`\
+https://nytimes.com/2026/02/23/arts/nick-reiner-plea.html
+
 **USMNT Player Tracker: Robinson woe, Pulisic starts and Pepi makes his mark**\
 `Our roundup of the U.S. players' contributions in Europe over the weekend includes more goals for Folarin Balogun and Tyler Adams' return`\
 https://nytimes.com/athletic/7065776/2026/02/23/usmnt-robinson-pulisic-pepi-adams-tracker/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/7058293/2026/02/23/republic-of-ireland-israel-draw-
 `Josh Sargent's hometown MLS team is getting something useful out of the player's transfer from Norwich City to Toronto`\
 https://nytimes.com/athletic/7066097/2026/02/23/josh-sargent-toronto-fc-transfer-norwich-city-st-louis-mls/
 
-**U.K. Police Arrest Ex-Ambassador to U.S. Over Epstein Accusations**\
-`Peter Mandelson is being investigated over accusations of “misconduct in public office offenses” over his dealings with Jeffrey Epstein, the sex offender and financier.`\
+**U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
+`Peter Mandelson is being investigated over accusations of “misconduct in public office offenses” amid his dealings with Jeffrey Epstein, the sex offender and financier.`\
 https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
 
 **Games Briefing: Your favorite moments**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065923/2026/02/23/nfl-combine-freaks-to-watch-pros
 **How a Tourette’s Outburst of a Racist Slur Caused a Backlash at the BAFTAs**\
 `A racist slur, shouted involuntarily while Michael B. Jordan and Delroy Lindo were presenting an award, raised questions about how the show’s host and the BBC responded.`\
 https://nytimes.com/2026/02/23/movies/baftas-tourettes.html
-
-**Page to Screen: Do You Know These Thriller Adaptations?**\
-`Test your knowledge of five books and their big-screen counterparts in this short quiz.`\
-https://nytimes.com/interactive/2026/02/23/books/review/spy-movies-quiz.html
 

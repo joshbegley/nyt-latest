@@ -1,3 +1,11 @@
+**Nick Reiner Pleads Not Guilty in the Killing of His Parents**\
+`Mr. Reiner, 32, was charged with murdering his parents, the Hollywood director Rob Reiner and Michele Singer Reiner, last year.`\
+https://nytimes.com/2026/02/23/arts/nick-reiner-plea.html
+
+**U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
+`Peter Mandelson is being investigated over accusations of “misconduct in public office offenses” amid his dealings with Jeffrey Epstein, the sex offender and financier.`\
+https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
+
 **USMNT Player Tracker: Robinson woe, Pulisic starts and Pepi makes his mark**\
 `Our roundup of the U.S. players' contributions in Europe over the weekend includes more goals for Folarin Balogun and Tyler Adams' return`\
 https://nytimes.com/athletic/7065776/2026/02/23/usmnt-robinson-pulisic-pepi-adams-tracker/
