@@ -1,3 +1,7 @@
+**Thunder's short-handed win over Cavaliers shows NBA markets stars too much**\
+`Oklahoma City and a growing number of NBA teams can lose stars and still win because their advantage is built on structure, not one player.`\
+https://nytimes.com/athletic/7064520/2026/02/22/thunder-cavaliers-nba-stars-donovan-mitchell/
+
 **Unrest in 2026 World Cup host city Guadalajara after Mexico kills drug lord 'El Mencho'**\
 `The governor’s office told The Athletic it had not received any communications from FIFA “that should concern us"`\
 https://nytimes.com/athletic/7064642/2026/02/22/world-cup-guadalajara-el-mencho/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/weather/storm-nyc-preparations-mamdani.html
 **Remains Believed to Be St. Francis’ Are on Rare Public Display**\
 `The bones of St. Francis, preserved in a nitrogen-filled plexiglass case, were shown to the public just once, briefly, in 1978.`\
 https://nytimes.com/video/world/europe/100000010729128/italy-assisi-st-francis.html
-
-**Olympics close out Milan Cortina Games with Major Lazer, opera and anthems**\
-`Athletes were clearly in a loose mood as the Olympics bid them farewell.`\
-https://nytimes.com/athletic/7063879/2026/02/22/closing-ceremony-milan-cortina-winter-olympics-verona/
 
