@@ -1,3 +1,15 @@
+**‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
+`The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
+https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html
+
+**If You’re Not Composting in New York City, It Could Cost You**\
+`The Mamdani administration is enforcing rules that require food and yard scraps to be separated, with fines ranging from $25 to $300.`\
+https://nytimes.com/2026/02/23/nyregion/nyc-composting-mamdani-fines.html
+
+**What Travelers Need to Know as Cartel Violence Rattles Mexico**\
+`The killing of a drug lord and the unrest that followed have prompted flight cancellations, roadblocks, cruise disruptions and “shelter in place” alerts.`\
+https://nytimes.com/2026/02/23/travel/cartel-violence-mexico-el-mencho-travel-flights.html
+
 **Ex-Ambassador Peter Mandelson Arrested Over Epstein Accusations**\
 `The former British ambassador to the United States, Peter Mandelson, was arrested on Monday following allegations that he passed confidential government information to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/world/europe/100000010731439/peter-mandelson-arrested-uk-epstein.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/23/us/politics/jimmy-lai-mike-johnson-sotu.html
 **Texas Officials Share Blame in Camp Mystic Deaths, New Lawsuit Claims**\
 `“The lack of the state-required evacuation plan created chaos that cost 27 young lives,” the suit asserts.`\
 https://nytimes.com/2026/02/23/us/camp-mystic-lawsuit.html
-
-**Falcons plan to franchise-tag tight end Kyle Pitts: Source**\
-`The franchise tag will cost the team around $16.5 million, all of which will count against the 2026 salary cap.`\
-https://nytimes.com/athletic/7066370/2026/02/23/falcons-franchise-tag-kyle-pitts/
-
-**Assessing the Supreme Court’s Tariff Ruling**\
-`Readers discuss the justices’ decision rejecting tariffs. Also: PEN America defends its record on free speech; a plea to old-guard Republicans.`\
-https://nytimes.com/2026/02/23/opinion/supreme-court-tariff-ruling-trump.html
-
-**Miguel Cabrera on Justin Verlander, Team Venezuela and the state of the Tigers**\
-`Miguel Cabrera returns to spring training as a Tigers special assistant, upbeat and ready to share his perspective. `\
-https://nytimes.com/athletic/7066252/2026/02/23/tigers-miguel-cabrera-justin-verlander-venezuela/
 
