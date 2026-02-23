@@ -1,3 +1,11 @@
+**Johnson Will Bring Daughter of Jimmy Lai to State of the Union Address**\
+`Her appearance underscores that “America is determined” to secure the release of the Hong Kong democracy activist, Speaker Mike Johnson said.`\
+https://nytimes.com/2026/02/23/us/politics/jimmy-lai-mike-johnson-sotu.html
+
+**Texas Officials Share Blame in Camp Mystic Deaths, New Lawsuit Claims**\
+`“The lack of the state-required evacuation plan created chaos that cost 27 young lives,” the suit asserts.`\
+https://nytimes.com/2026/02/23/us/camp-mystic-lawsuit.html
+
 **Falcons plan to franchise-tag tight end Kyle Pitts: Source**\
 `The franchise tag will cost the team around $16.5 million, all of which will count against the 2026 salary cap.`\
 https://nytimes.com/athletic/7066370/2026/02/23/falcons-franchise-tag-kyle-pitts/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
 **Martinez to miss Man Utd's trip to Everton due to injury**\
 `Martinez had started all of Michael Carrick's managers before Monday's game at Everton.`\
 https://nytimes.com/athletic/7065679/2026/02/23/lisandro-martinez-injury-everton-manchester-united/
-
-**Alabama's Charles Bediako appeals to state supreme court in eligibility fight**\
-`The former G League player seeks to be deemed “immediately eligible” after injunctive relief was denied in circuit court on Feb. 9.`\
-https://nytimes.com/athletic/7066311/2026/02/23/alabama-basketball-bediako-eligibility-appeal/
-
-**Border Patrol Shoots Armed Person Near Canadian Border, Authorities Say**\
-`The F.B.I. said that the person, who was not killed, “allegedly fired at” a Border Patrol agent in Pittsburg, N.H., around 1 a.m. on Sunday.`\
-https://nytimes.com/2026/02/23/us/politics/border-patrol-shooting-new-hampshire.html
 
