@@ -1,4 +1,4 @@
-**Trump invites gold-winning U.S. men's hockey teams to State of the Union**\
+**Trump invites gold-winning U.S. men's hockey team to State of the Union**\
 `The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
 https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
 

@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: Teammates revel in Werenski's gold, and a stirring Gaudreau tribute**\
+`Even the Canadians on the Columbus roster appreciated how Werenski represented himself and the team.`\
+https://nytimes.com/athletic/7061991/2026/02/23/werenski-gaudreau-olympics-blue-jackets/
+
 **Trump invites gold-winning U.S. men's hockey team to State of the Union**\
 `The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
 https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064536/2026/02/23/sidney-crosby-canada-olympics-en
 **The Athletic college baseball Top 25: Southern Miss jumps 9 spots, TCU falls out**\
 `TCU has wins over two ranked teams but dropped out of the top 25 after going 0-4 for the week. `\
 https://nytimes.com/athletic/7065683/2026/02/23/college-baseball-rankings-southern-miss-tcu-lsu/
-
-**Lakers' offense is still inconsistent despite their big 3: 'We're not there yet'**\
-`In Sunday's loss to the Celtics, the Lakers showed they're still not as connected as they should be.`\
-https://nytimes.com/athletic/7065235/2026/02/23/lakers-celtics-loss-luka-doncic-lebron-james/
 
