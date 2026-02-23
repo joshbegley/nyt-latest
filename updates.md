@@ -1,4 +1,8 @@
 **U.S. fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
+`Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
+https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
+
+**U.S. fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
 `Jack Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
 https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
 
