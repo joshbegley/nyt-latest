@@ -1,3 +1,7 @@
+**Griezmann in advanced discussions to join Orlando City from Atletico**\
+`Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
+https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
+
 **C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
 `Mexican officials said they had found the elusive drug kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
 https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/world/europe-defense-us-ukraine-mexico-tariffs.ht
 **Snow Day! What It Looks Like When New York City Comes Out to Play.**\
 `Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
 https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
-
-**Having trouble finding Team USA hockey jerseys? You're not alone**\
-`Nike didn't account for Team USA winning gold, and did not produce enough hockey jerseys to meet demand.`\
-https://nytimes.com/athletic/7066268/2026/02/23/team-usa-hockey-jersey-mens-womens-2026-olympics/
 
