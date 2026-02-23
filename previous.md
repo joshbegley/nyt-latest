@@ -1,3 +1,15 @@
+**How the storm has snarled transit in the Northeast.**\
+`T`\
+https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/how-the-storm-has-snarled-transit-in-the-northeast
+
+**Chiefs big board: 10 prospects each draft day that could make sense**\
+`Yes, it's early. But here are 30 early names to keep an eye on in the 2026 NFL Draft as the Chiefs look to address their needs.`\
+https://nytimes.com/athletic/7060434/2026/02/23/chiefs-nfl-draft-big-board-prospects/
+
+**How likely is a DJ Moore trade? Needs at linebacker? Bears pre-combine mailbag**\
+`It'll be rumor central in Indianapolis this week. Will the Bears move DJ Moore? Will they make a splash in free agency?`\
+https://nytimes.com/athletic/7061264/2026/02/23/bears-mailbag-nfl-combine-dj-moore/
+
 **Cowboys combine preview: Eyes on Maxx Crosby interest and George Pickens' situation**\
 `Will the Cowboys pursue Raiders defensive end Maxx Crosby? How do they plan to fill all of their defensive holes?`\
 https://nytimes.com/athletic/7060840/2026/02/23/cowboys-combine-preview-maxx-crosby-george-pickens/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7062454/2026/02/23/vikings-nfl-combine-free-agency-
 **Tennessee's issues go beyond Kim Caldwell: Rocky Top no longer a prestige destination**\
 `The program has hit a new low with a string of blowout losses. But changing coaches won't necessarily change the Lady Vols' predicament.`\
 https://nytimes.com/athletic/7065182/2026/02/23/tennessee-womens-basketball-coach-kim-caldwell-2/
-
-**The Verdict: MLS still thrives off brand-name stars, needs better self-promotion**\
-`The opening weekend of the 2026 season underscored some valuable truths for a league that yearns for domestic and global acclaim`\
-https://nytimes.com/athletic/7064914/2026/02/23/mls-opening-weekend-lafc-miami-son-messi-apple-tv/
-
-**Jaylen Brown: Payton Pritchard raising his play for rolling Celtics**\
-`Pritchard was demonstrative while scoring 30 points in a 111-89 win over the Los Angeles Lakers. "I think it's just the rivalry," he said.`\
-https://nytimes.com/athletic/7065098/2026/02/23/celtics-jaylen-brown-payton-pritchard-raising-play/
-
-**'Everybody thinks I'm him': The tale of two doppelgängers on the Guardians' coaching staff**\
-`Stephen Vogt and Tony Arnerich had long been confused for one another. Now, they’re on the same staff, and it has colleagues seeing double.`\
-https://nytimes.com/athletic/7056613/2026/02/23/guardians-doppleganger-vogt-arnerich-twins/
 
