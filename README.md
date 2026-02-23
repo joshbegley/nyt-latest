@@ -1,3 +1,11 @@
+**Having trouble finding Team USA hockey jerseys? You're not alone**\
+`Nike didn't account for Team USA winning gold, and did not produce enough hockey jerseys to meet demand.`\
+https://nytimes.com/athletic/7066268/2026/02/23/team-usa-hockey-jersey-mens-womens-2026-olympics/
+
+**Monday’s Snowfall Shatters a Record in Rhode Island**\
+`By the afternoon, the snowfall level near Providence — almost 33 inches — obliterated the two-day record set by the infamous Blizzard of 1978.`\
+https://nytimes.com/2026/02/23/weather/rhode-island-snow-record-blizzard-1978.html
+
 **Pentagon Summons Anthropic Chief in Dispute Over A.I. Limits**\
 `The artificial intelligence company has demanded that some guardrails be put in place as it negotiates a contract with the Defense Department.`\
 https://nytimes.com/2026/02/23/us/politics/pentagon-anthropic-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066637/2026/02/23/kings-vs-grizzlies-stream-how-to
 **The Pentagon vs. Anthropic**\
 `This week on Hard Fork from the New York Times, hosts Casey Newton and Kevin Roose discuss the dispute between the U.S. Government and the A.I. company Anthropic that became public this past week.`\
 https://nytimes.com/video/podcasts/100000010731276/the-pentagon-vs-anthropic.html
-
-**Who Is Peter Mandelson?**\
-`The former British ambassador to the United States was arrested on Monday, months after being fired over his ties to Jeffrey Epstein, the convicted sex offender.`\
-https://nytimes.com/2026/02/23/world/europe/who-is-peter-mandelson.html
-
-**How to watch Houston vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7066626/2026/02/23/houston-vs-kansas-stream-how-to-watch-feb-23/
 
