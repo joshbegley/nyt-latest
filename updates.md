@@ -1,3 +1,15 @@
+**Hunkering Down in Mexico, Some Hope for a Flight Out Amid Burning Cars**\
+`People from Canada and the United States tell of scrambling for safety, food and flights after violence erupted in Mexico when a cartel boss died in custody.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-visitors-flights-violence.html
+
+**Violence in Mexico After Cartel Boss Is Killed**\
+`Mexican officials carried out an operation that killed the nation’s most wanted cartel boss Nemesio Oseguera Cervantes, known as “El Mencho.” The death of Mr. Oseguera, who was the head of Mexico’s most powerful criminal organization, set off a wave of violence across the country.`\
+https://nytimes.com/video/world/americas/100000010730844/mexico-cartel-violence-mencho.html
+
+**Canada Presses OpenAI for Answers on Mass Shooter’s Chatbot Use**\
+`The company suspended the killer’s ChatGPT account over a policy violation in June, eight months before the attacks in Tumbler Ridge, British Columbia.`\
+https://nytimes.com/2026/02/23/world/canada/canada-shooting-openai.html
+
 **Mexico Is on Edge After the Killing of a Cartel Boss**\
 `Also, a blizzard sweeps through the Northeast. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/02/23/briefing/mexico-cartel-violence-snow-storm-northeast.html
