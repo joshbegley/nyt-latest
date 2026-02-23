@@ -1,3 +1,11 @@
+**U.S fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
+`Jack Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
+https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
+
+**‘A Knight of the Seven Kingdoms’ Season 1 Finale Recap: On the Road Again**\
+`A melancholy finale sees Dunk finally treated as a proper knight, which includes a royal request to take on Egg as his proper squire.`\
+https://nytimes.com/2026/02/22/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-6.html
+
 **Amid fire alarms and with 'boneheaded' base-running, Giants turn a wacky triple play**\
 `The Society for American Baseball Research keeps a database of all triple plays. None have begun with a base hit.`\
 https://nytimes.com/athletic/7064880/2026/02/22/matt-chapman-triple-play-giants-cubs-spring-training/
