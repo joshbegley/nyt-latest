@@ -1,3 +1,11 @@
+**Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
+`The department has 2,600 workers tasked to snow duty in 12-hour shifts. New Yorkers can track plowing progress on an app.`\
+https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
+
+**Martinez to miss Man Utd's trip to Everton due to injury**\
+`Martinez had started all of Michael Carrick's managers before Monday's game at Everton.`\
+https://nytimes.com/athletic/7065679/2026/02/23/lisandro-martinez-injury-everton-manchester-united/
+
 **Alabama's Charles Bediako appeals to state supreme court in eligibility fight**\
 `The former G League player seeks to be deemed “immediately eligible” after injunctive relief was denied in circuit court on Feb. 9.`\
 https://nytimes.com/athletic/7066311/2026/02/23/alabama-basketball-bediako-eligibility-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066185/2026/02/23/andy-roddick-tennis-coverage-wim
 **Another C.D.C. Vaccine Skeptic Steps Down**\
 `Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
 https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
-
-**Trinidad Chambliss jumps up Heisman odds board after eligibility ruling**\
-`Ole Miss quarterback Trinidad Chambliss will be back for one final year and will be one of the favorites to win the Heisman Trophy.`\
-https://nytimes.com/athletic/7065811/2026/02/23/trinidad-chambliss-heisman-odds-eligibility-ruling/
-
-**‘A Cocked Pistol Aimed at Iran’**\
-`Trump is gambling dangerously with military power, says the Times Opinion columnist David French on “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010724005/a-cocked-pistol-aimed-at-iran.html
 
