@@ -1,3 +1,11 @@
+**NFL players mourn Rondale Moore, urge mental-health awareness**\
+`Players around the league express grief over death of Moore, 25.`\
+https://nytimes.com/athletic/7064764/2026/02/22/rondale-moore-death-nfl-reaction-mental-health-awareness/
+
+**At homeless encampments in Queens, some plan to wait out the storm.**\
+`By Miles G. Cohen`\
+https://nytimes.com/live/2026/02/22/weather/nyc-winter-snow/at-homeless-encampments-in-queens-some-plan-to-wait-out-the-storm
+
 **Susan Sheehan, Chronicler of Lives on the Margins, Dies at 88**\
 `As a journalist and author, she wrote meticulous portraits of people for The New Yorker. Her book “Is There No Place on Earth for Me?” won the Pulitzer Prize.`\
 https://nytimes.com/2026/02/22/books/susan-sheehan-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7064718/2026/02/22/john-sterling-heart-attack-yanke
 **Thunder's short-handed win over Cavaliers shows NBA markets stars too much**\
 `Oklahoma City and a growing number of NBA teams can lose stars and still win because their advantage is built on structure, not one player.`\
 https://nytimes.com/athletic/7064520/2026/02/22/thunder-cavaliers-nba-stars-donovan-mitchell/
-
-**Unrest in 2026 World Cup host city Guadalajara after Mexico kills drug lord 'El Mencho'**\
-`The governor’s office told The Athletic it had not received any communications from FIFA “that should concern us"`\
-https://nytimes.com/athletic/7064642/2026/02/22/world-cup-guadalajara-el-mencho/
-
-**Armed Man Is Shot and Killed at Mar-a-Lago, Authorities Say**\
-`Officers fatally shot Austin Tucker Martin, 21, after he entered a secure perimeter at Mar-a-Lago, officials said. The authorities said he was carrying what appeared to be a shotgun and a fuel canister.`\
-https://nytimes.com/video/us/100000010729088/man-shot-mar-a-lago-trump.html
 
