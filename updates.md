@@ -1,3 +1,7 @@
+**Duterte’s Fans Rally in The Hague as the I.C.C. Weighs Evidence Against Him**\
+`The protests are a sign of the Philippine ex-leader’s ongoing influence, even as he faces a possible trial for the deaths of thousands during his war on drugs.`\
+https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.html
+
 **The New York Times in Print for Monday, Feb. 23, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times

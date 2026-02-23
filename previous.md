@@ -1,3 +1,7 @@
+**Duterte’s Fans Rally in The Hague as the I.C.C. Weighs Evidence Against Him**\
+`The protests are a sign of the Philippine ex-leader’s ongoing influence, even as he faces a possible trial for the deaths of thousands during his war on drugs.`\
+https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.html
+
 **The New York Times in Print for Monday, Feb. 23, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7062009/2026/02/23/brighton-hurzeler-milner-veteran
 **Tudor's nightmare first game paints an even clearer picture: Spurs are in serious trouble**\
 `Despite some positives, the new head coach suffered a thrashing at the hands of Arsenal to begin his tenure. Things need to change, and fast`\
 https://nytimes.com/athletic/7064377/2026/02/23/tottenham-premier-league-tudor/
-
-**Forest did everything but score against Liverpool. Where will the goals come from?**\
-`Vitor Pereira brought hope as Forest dominated Liverpool for long spells. But this was the 13th time they have failed to score this season`\
-https://nytimes.com/athletic/7063965/2026/02/23/nottingham-forest-goals-hudson-odoi-gibbs-white-pereira/
 
