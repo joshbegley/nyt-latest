@@ -1,3 +1,7 @@
+**Putin Had High Hopes for Trump. They Have Been Dashed.**\
+`The U.S. president is actually pretty bad for Russia.`\
+https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
+
 **The Kremlin Banned These Books. You Can Find Them in a New York Library.**\
 `A professor at Hunter College has built one of the largest special collections of contraband Russian literature in the world.`\
 https://nytimes.com/2026/02/23/nyregion/hunter-college-soviet-banned-books.html
