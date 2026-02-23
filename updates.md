@@ -1,3 +1,7 @@
+**Ten of the weirdest and wildest moments we saw at the Milan Cortina Olympics**\
+`The Olympics are always about so much more than just the medals. Here are some of the most memorable strange moments from the Games.`\
+https://nytimes.com/athletic/7065290/2026/02/23/winter-olympics-weird-wild-moments-milan-cortina/
+
 **Loftus-Cheek to undergo surgery on fractured teeth and jaw**\
 `Loftus-Cheek, 30, was taken off on a stretcher with his head in a brace following a collision during Milan's defeat to Parma.`\
 https://nytimes.com/athletic/7065330/2026/02/23/ruben-loftus-cheek-injury-surgery/
