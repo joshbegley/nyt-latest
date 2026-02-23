@@ -1,3 +1,7 @@
+**Amid fire alarms and with 'boneheaded' base-running, Giants turn a wacky triple play**\
+`The Society for American Baseball Research keeps a database of all triple plays. None have begun with a base hit.`\
+https://nytimes.com/athletic/7064880/2026/02/22/matt-chapman-triple-play-giants-cubs-spring-training/
+
 **Winter Olympics Day 16 recap: U.S. men win hockey gold; Eileen Gu defends freeski crown**\
 `Jack Hughes' "Golden Goal" lifts Team USA hockey past Canada, Gu cements freestyle legacy, other news from the final day of the Olympics.`\
 https://nytimes.com/athletic/7064260/2026/02/22/olympics-recap-usa-hockey-gold-eileen-gu-freeski/
