@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>After a week&#8217;s hiatus, hopefully you have some good questions stored up.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/7065071/2026/02/22/submit-a-question-for-stewart-mandels-college-football-mailbag-335/
+
 **U.S fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
 `Jack Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
 https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
@@ -33,8 +39,4 @@ https://nytimes.com/2026/02/22/books/susan-sheehan-dead.html
 **Where were you when Team USA made unforgettable Olympic hockey history?**\
 `Team USA's win over Canada in the gold medal game of the Milan Cortina Winter Olympics was a shared moment of coast-to-coast jubilance.`\
 https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-history-2026/
-
-**What to Know About the Killing of ‘El Mencho’**\
-`The Mexican government has killed Nemesio Oseguera Cervantes, the longtime leader of one of Mexico’s most powerful gangs, the Jalisco New Generation Cartel.`\
-https://nytimes.com/2026/02/22/world/americas/el-mencho-mexico-what-we-know.html
 
