@@ -1,40 +1,40 @@
-**The Hardest Coaching Job in Sports, and an Olympic Recap from Milan**\
-`Plus, your M.L.B. spring training preview.`\
-https://nytimes.com/2026/02/23/podcasts/hardest-coaching-job-iolympic-recap-mlb-spring-training.html
+**LeBron James says 'it's all good' between him and Jaylen Brown after Bronny comments**\
+`James said he and Brown have always had a respectful relationship, except for when Brown was seen in a video criticizing his son, Bronny.`\
+https://nytimes.com/athletic/7065125/2026/02/23/lebron-james-jaylen-brown-relationship-bronny-lakers-celtics/
 
-**Major Snowstorm Hits Northeast and Mid-Atlantic**\
-`The storm is moving across the Northeast and Mid-Atlantic regions. Parts of New England and the New York City region could receive up to 18 inches.`\
-https://nytimes.com/video/weather/100000010729984/snow-storm-nyc-northeast.html
+**Falcons head to NFL combine in Indianapolis with new decision-makers, new plan**\
+`The NFL combine begins this week in Indianapolis, where head coach Kevin Stefanski and GM Ian Cunningham will speak to the media.`\
+https://nytimes.com/athletic/7058530/2026/02/23/atlanta-falcons-nfl-combine-ryan-stefanski-cunningham/
 
-**The Kremlin Banned These Books. You Can Find Them in a New York Library.**\
-`A professor at Hunter College has built one of the largest special collections of contraband Russian literature in the world.`\
-https://nytimes.com/2026/02/23/nyregion/hunter-college-soviet-banned-books.html
+**The Television Show Every American Should Watch**\
+`An emergency room that’s a mirror.`\
+https://nytimes.com/2026/02/23/opinion/pitt-america-tv.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/23/crosswords/spelling-bee-forum.html
+**What’s Happened Since the Supreme Court’s Tariff Ruling**\
+`After the Trump administration’s punishing tariffs were invalidated, the president said he would impose new tariffs using a different authority. It’s been a whirlwind.`\
+https://nytimes.com/2026/02/23/business/supreme-court-trump-tariffs-updates.html
 
-**Duterte’s Fans Rally in The Hague as the I.C.C. Weighs Evidence Against Him**\
-`The protests are a sign of the Philippine ex-leader’s ongoing influence, even as he faces a possible trial for the deaths of thousands during his war on drugs.`\
-https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.html
+**Women’s Olympic Hockey Gold Medalist Has Her Brothers’ Eccentric Support**\
+`The three brothers of Haley Winn, a defender for the U.S. squad, gained a spotlight for the colorful ways they cheered on their sister’s dream.`\
+https://nytimes.com/2026/02/23/world/olympics/haley-winn-brothers-olympics-hockey.html
 
-**The New York Times in Print for Monday, Feb. 23, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times
+**Trump Claims a Historic Turnaround for the U.S. Here Are the Facts.**\
+`Trends on jobs, inflation and crime that began before Donald Trump retook office continued, largely unabated, in his first year back.`\
+https://nytimes.com/2026/02/23/us/politics/trump-economy-fact-check.html
 
-**Putin Had High Hopes for Trump. They Have Been Dashed.**\
-`The U.S. president is actually pretty bad for Russia.`\
-https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
+**Should I Stop Wearing My Greatcoat Because of ICE Raids?**\
+`Recently, the military-style outerwear has taken on new meaning. Our critic traces shifting clothing connotations and offers advice on how to react.`\
+https://nytimes.com/2026/02/23/fashion/greatcoat-ice-bovino.html
 
-**The ‘Scrubs’ Reboot, Plus 6 Things to Watch on TV This Week**\
-`The medical comedy is back for another run, and the 50th season of “Survivor” is set to begin.`\
-https://nytimes.com/2026/02/23/arts/television/scrubs-reboot-watch-on-tv-this-week.html
+**Why the Supreme Court Struck Down Trump’s Tariffs**\
+`Our reporter Ann E. Marimow describes the rationale of the Supreme Court’s 6-to-3 ruling to strike down President Trump’s sweeping tariffs.`\
+https://nytimes.com/video/us/100000010726142/why-the-supreme-court-struck-down-trumps-tariffs.html
 
-**Brandin Podziemski's late-game surge leads Warriors past Nuggets: 'It was phenomenal'**\
-`Podziemski came off the bench and finished with 18 points, a career-high 15 rebounds, nine assists and a steal in the Warriors' 128-117 win.`\
-https://nytimes.com/athletic/7065029/2026/02/23/brandin-podziemski-warriors-nuggets-result-score/
+**The Rise of the Bratty Machines**\
+`An autonomous OpenClaw chatbot seeks revenge.`\
+https://nytimes.com/2026/02/23/opinion/chatbots-open-claw.html
 
-**One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
-`Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
-https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
+**The Epstein Files Should Never Have Been Released**\
+`Putting millions of pages online is a sign of institutional failure.`\
+https://nytimes.com/2026/02/23/opinion/epstein-files-justice-department.html
 
