@@ -1,3 +1,15 @@
+**Assessing the Supreme Court’s Tariff Ruling**\
+`Readers discuss the justices’ decision rejecting tariffs. Also: PEN America defends its record on free speech; a plea to old-guard Republicans.`\
+https://nytimes.com/2026/02/23/opinion/supreme-court-tariff-ruling-trump.html
+
+**Miguel Cabrera on Justin Verlander, Team Venezuela and the state of the Tigers**\
+`Miguel Cabrera returns to spring training as a Tigers special assistant, upbeat and ready to share his perspective. `\
+https://nytimes.com/athletic/7066252/2026/02/23/tigers-miguel-cabrera-justin-verlander-venezuela/
+
+**Facing angry ‘MAHA Moms,’ Kennedy defends Trump’s pesticide order.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2026/02/23/us/trump-news/facing-angry-maha-moms-kennedy-defends-trumps-pesticide-order
+
 **How Atlanta improbably became NASCAR's most consistently entertaining track**\
 `No matter the car or type of series, the reconfigured track keeps delivering, race after race.`\
 https://nytimes.com/athletic/7066183/2026/02/23/atlanta-speedway-motorsports-nascar-marcus-smith/
@@ -24,17 +36,5 @@ https://nytimes.com/2026/02/23/us/politics/border-patrol-shooting-new-hampshire.
 
 **More Than Half a Million Customers Have Lost Power on East Coast**\
 `The outages were mostly caused by problems with local power lines, and coastal Massachusetts was particularly hard hit.`\
-https://nytimes.com/2026/02/23/business/more-than-half-a-million-customers-have-lost-power-on-east-coast.html
-
-**Training for New ICE Agents Is ‘Deficient’ and ‘Broken,’ Whistle-Blower Says**\
-`The former official will appear with congressional Democrats, who also released documents indicating significant reductions in instructional hours for recruits.`\
-https://nytimes.com/2026/02/23/us/politics/ice-training-whistle-blower.html
-
-**The Never-Ending Trial of Tyra Banks**\
-`A new docuseries has renewed criticism of the supermodel-turned-TV mogul. It’s just one cost of her barrier-breaking career.`\
-https://nytimes.com/2026/02/23/arts/television/tyra-banks-americas-next-top-model.html
-
-**How Much Does Capitalism Cost? Ask These Prospectors.**\
-`Ian McGuire’s new novel, “White River Crossing,” tracks a party of 18th-century fortune seekers through the northern Canadian wilds.`\
-https://nytimes.com/2026/02/23/books/review/ian-mcguire-white-river-crossing.html
+https://nytimes.com/2026/02/23/business/winter-storm-power-outages-east-coast.html
 

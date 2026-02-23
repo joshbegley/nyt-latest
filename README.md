@@ -1,3 +1,7 @@
+**Falcons plan to franchise-tag tight end Kyle Pitts: Source**\
+`The franchise tag will cost the team around $16.5 million, all of which will count against the 2026 salary cap.`\
+https://nytimes.com/athletic/7066370/2026/02/23/falcons-franchise-tag-kyle-pitts/
+
 **Assessing the Supreme Court’s Tariff Ruling**\
 `Readers discuss the justices’ decision rejecting tariffs. Also: PEN America defends its record on free speech; a plea to old-guard Republicans.`\
 https://nytimes.com/2026/02/23/opinion/supreme-court-tariff-ruling-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066311/2026/02/23/alabama-basketball-bediako-eligi
 **Border Patrol Shoots Armed Person Near Canadian Border, Authorities Say**\
 `The F.B.I. said that the person, who was not killed, “allegedly fired at” a Border Patrol agent in Pittsburg, N.H., around 1 a.m. on Sunday.`\
 https://nytimes.com/2026/02/23/us/politics/border-patrol-shooting-new-hampshire.html
-
-**More Than Half a Million Customers Have Lost Power on East Coast**\
-`The outages were mostly caused by problems with local power lines, and coastal Massachusetts was particularly hard hit.`\
-https://nytimes.com/2026/02/23/business/winter-storm-power-outages-east-coast.html
 
