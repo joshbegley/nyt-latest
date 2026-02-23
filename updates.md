@@ -1,3 +1,11 @@
+**A Wake for The Washington Post’s Books Section**\
+`Literary and cultural denizens of the nation’s capital gathered on Saturday to eulogize The Post’s scuppered Book World supplement.`\
+https://nytimes.com/2026/02/23/books/washington-post-book-world.html
+
+**Mayweather, Pacquiao agree to September rematch in Las Vegas**\
+`The former multi-weight world champions first met in 2015, in what was billed as the 'Fight of the Century'.`\
+https://nytimes.com/athletic/7066703/2026/02/23/mayweather-pacquiao-rematch-when-where/
+
 **Europe’s New Way of War**\
 `Can Europe defend itself without the United States? A new strategic vision says yes.`\
 https://nytimes.com/2026/02/23/world/europe-defense-us-ukraine-mexico-tariffs.html
