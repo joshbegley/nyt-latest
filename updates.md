@@ -1,3 +1,7 @@
+**Susan Sheehan, Chronicler of Lives on the Margins, Dies at 88**\
+`As a journalist and author, she wrote meticulous portraits of people for The New Yorker. Her book “Is There No Place on Earth for Me?” won the Pulitzer Prize.`\
+https://nytimes.com/2026/02/22/books/susan-sheehan-dead.html
+
 **Where were you when Team USA made unforgettable Olympic hockey history?**\
 `Team USA's win over Canada in the gold medal game of the Milan Cortina Winter Olympics was a shared moment of coast-to-coast jubilance.`\
 https://nytimes.com/athletic/7064406/2026/02/22/team-usa-canada-hockey-gold-history-2026/
