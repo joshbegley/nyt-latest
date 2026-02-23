@@ -1,4 +1,12 @@
-**Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
+**How Atlanta improbably became NASCAR's most consistently entertaining track**\
+`No matter the car or type of series, the reconfigured track keeps delivering, race after race.`\
+https://nytimes.com/athletic/7066183/2026/02/23/atlanta-speedway-motorsports-nascar-marcus-smith/
+
+**Met Gala Dress Code Makes a Statement of Its Own: ‘Fashion Is Art’**\
+`Three words of guidance is all guests will have to go on when preparing for this year’s Costume Institute benefit, celebrating a cerebral exhibition about the “dressed body.”`\
+https://nytimes.com/2026/02/23/style/met-gala-dress-code-fashion-is-art.html
+
+**N.Y.C. Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
 `The department has 2,600 workers tasked to snow duty in 12-hour shifts. New Yorkers can track plowing progress on an app.`\
 https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/arts/television/tyra-banks-americas-next-top-mode
 **How Much Does Capitalism Cost? Ask These Prospectors.**\
 `Ian McGuire’s new novel, “White River Crossing,” tracks a party of 18th-century fortune seekers through the northern Canadian wilds.`\
 https://nytimes.com/2026/02/23/books/review/ian-mcguire-white-river-crossing.html
-
-**Andy Roddick signs 'multi-year' deal with ESPN**\
-`Roddick will serve as an analyst for both match and studio coverage during Wimbledon and the U.S. Open.`\
-https://nytimes.com/athletic/7066185/2026/02/23/andy-roddick-tennis-coverage-wimbeldon-us-open/
-
-**Another C.D.C. Vaccine Skeptic Steps Down**\
-`Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
-https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
 

@@ -1,3 +1,23 @@
+**Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
+`The department has 2,600 workers tasked to snow duty in 12-hour shifts. New Yorkers can track plowing progress on an app.`\
+https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
+
+**Martinez to miss Man Utd's trip to Everton due to injury**\
+`Martinez had started all of Michael Carrick's managers before Monday's game at Everton.`\
+https://nytimes.com/athletic/7065679/2026/02/23/lisandro-martinez-injury-everton-manchester-united/
+
+**Alabama's Charles Bediako appeals to state supreme court in eligibility fight**\
+`The former G League player seeks to be deemed “immediately eligible” after injunctive relief was denied in circuit court on Feb. 9.`\
+https://nytimes.com/athletic/7066311/2026/02/23/alabama-basketball-bediako-eligibility-appeal/
+
+**Border Patrol Shoots Armed Person Near Canadian Border, Authorities Say**\
+`The F.B.I. said that the person, who was not killed, “allegedly fired at” a Border Patrol agent in Pittsburg, N.H., around 1 a.m. on Sunday.`\
+https://nytimes.com/2026/02/23/us/politics/border-patrol-shooting-new-hampshire.html
+
+**More Than Half a Million Customers Have Lost Power on East Coast**\
+`The outages were mostly caused by problems with local power lines, and coastal Massachusetts was particularly hard hit.`\
+https://nytimes.com/2026/02/23/business/more-than-half-a-million-customers-have-lost-power-on-east-coast.html
+
 **Training for New ICE Agents Is ‘Deficient’ and ‘Broken,’ Whistle-Blower Says**\
 `The former official will appear with congressional Democrats, who also released documents indicating significant reductions in instructional hours for recruits.`\
 https://nytimes.com/2026/02/23/us/politics/ice-training-whistle-blower.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7066185/2026/02/23/andy-roddick-tennis-coverage-wim
 **Another C.D.C. Vaccine Skeptic Steps Down**\
 `Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
 https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
-
-**Trinidad Chambliss jumps up Heisman odds board after eligibility ruling**\
-`Ole Miss quarterback Trinidad Chambliss will be back for one final year and will be one of the favorites to win the Heisman Trophy.`\
-https://nytimes.com/athletic/7065811/2026/02/23/trinidad-chambliss-heisman-odds-eligibility-ruling/
-
-**‘A Cocked Pistol Aimed at Iran’**\
-`Trump is gambling dangerously with military power, says the Times Opinion columnist David French on “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010724005/a-cocked-pistol-aimed-at-iran.html
-
-**Nick Reiner Pleads Not Guilty in the Killing of His Parents**\
-`Mr. Reiner, 32, was charged with murdering his parents, the Hollywood director Rob Reiner and Michele Singer Reiner, last year.`\
-https://nytimes.com/2026/02/23/arts/nick-reiner-plea.html
-
-**USMNT Player Tracker: Robinson woe, Pulisic starts and Pepi makes his mark**\
-`Our roundup of the U.S. players' contributions in Europe over the weekend includes more goals for Folarin Balogun and Tyler Adams' return`\
-https://nytimes.com/athletic/7065776/2026/02/23/usmnt-robinson-pulisic-pepi-adams-tracker/
-
-**Scouting top MLB Draft prospect Grady Emerson and a thinned Amegy College Series field**\
-`Emerson is the top high school prospect in this class. Injuries thinned the Amegy College Series talent pool but Wes Mendes looked strong.`\
-https://nytimes.com/athletic/7065158/2026/02/23/mlb-draft-scouting-grady-emerson/
 
