@@ -1,3 +1,11 @@
+**Page to Screen: Do You Know These Thriller Adaptations?**\
+`Test your knowledge of five books and their big-screen counterparts in this short quiz.`\
+https://nytimes.com/interactive/2026/02/23/books/review/spy-movies-quiz.html
+
+**An Easy Apple Screensharing Hack**\
+`Are you the go-to tech support family member? If so, this tip that writer Jon Chase accidentally discovered during an extended FaceTime Tech Talk with his dad may be just the thing for you.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010731053/an-easy-apple-screensharing-hack.html
+
 **The ‘snow farms’ in Boston are preparing to store more of the stuff.**\
 `By Jenna Russell`\
 https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/the-snow-farms-in-boston-are-preparing-to-store-more-of-the-stuff
