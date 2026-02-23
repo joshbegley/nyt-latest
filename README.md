@@ -1,5 +1,13 @@
+**WNBA reached revenue-sharing target for first time in 2025: Source**\
+`The WNBA generated enough revenue so that $16 million was shareable with the players.`\
+https://nytimes.com/athletic/7066523/2026/02/23/wnba-revenue-sharing-2025-source/
+
+**Peter Attia Leaves CBS News Amid Epstein Files Fallout**\
+`Emails showed that the longevity influencer had provided medical advice to Jeffrey Epstein and had made crude comments about women.`\
+https://nytimes.com/2026/02/23/well/peter-attia-cbs-epstein.html
+
 **U.S. women's hockey team will not attend State of the Union after Trump invitation**\
-`The United States women’s hockey team, which won gold at the Olympics in Milan last week, will not attend President Donald Trump’s State of the Union address in Washington, D.`\
+`The U.S. men's team also has been invited to Washington, D.C., this week`\
 https://nytimes.com/athletic/7066477/2026/02/23/olympics-hockey-trump-state-of-the-union/
 
 **How to Shovel Snow Safely**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement
 **‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
 `The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
 https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html
-
-**If You’re Not Composting in New York City, It Could Cost You**\
-`The Mamdani administration is enforcing rules that require food and yard scraps to be separated, with fines ranging from $25 to $300.`\
-https://nytimes.com/2026/02/23/nyregion/nyc-composting-mamdani-fines.html
-
-**What Travelers Need to Know as Cartel Violence Rattles Mexico**\
-`The killing of a drug lord and the unrest that followed have prompted flight cancellations, roadblocks, cruise disruptions and “shelter in place” alerts.`\
-https://nytimes.com/2026/02/23/travel/cartel-violence-mexico-el-mencho-travel-flights.html
 

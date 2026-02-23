@@ -1,3 +1,7 @@
+**U.S. women's hockey team will not attend State of the Union after Trump invitation**\
+`The United States women’s hockey team, which won gold at the Olympics in Milan last week, will not attend President Donald Trump’s State of the Union address in Washington, D.`\
+https://nytimes.com/athletic/7066477/2026/02/23/olympics-hockey-trump-state-of-the-union/
+
 **How to Shovel Snow Safely**\
 `The snow hitting the Northeast and Mid-Atlantic is heavier and wetter than other storms this season. Here’s why, and how to avoid injury while shoveling.`\
 https://nytimes.com/2026/02/23/well/snow-shovel-safety-blizzard-storm.html

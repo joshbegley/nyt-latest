@@ -1,3 +1,7 @@
+**U.S. women's hockey team will not attend State of the Union after Trump invitation**\
+`The United States women’s hockey team, which won gold at the Olympics in Milan last week, will not attend President Donald Trump’s State of the Union address in Washington, D.`\
+https://nytimes.com/athletic/7066477/2026/02/23/olympics-hockey-trump-state-of-the-union/
+
 **How to Shovel Snow Safely**\
 `The snow hitting the Northeast and Mid-Atlantic is heavier and wetter than other storms this season. Here’s why, and how to avoid injury while shoveling.`\
 https://nytimes.com/2026/02/23/well/snow-shovel-safety-blizzard-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/nyregion/nyc-composting-mamdani-fines.html
 **What Travelers Need to Know as Cartel Violence Rattles Mexico**\
 `The killing of a drug lord and the unrest that followed have prompted flight cancellations, roadblocks, cruise disruptions and “shelter in place” alerts.`\
 https://nytimes.com/2026/02/23/travel/cartel-violence-mexico-el-mencho-travel-flights.html
-
-**Ex-Ambassador Peter Mandelson Arrested Over Epstein Accusations**\
-`The former British ambassador to the United States, Peter Mandelson, was arrested on Monday following allegations that he passed confidential government information to the sex offender Jeffrey Epstein.`\
-https://nytimes.com/video/world/europe/100000010731439/peter-mandelson-arrested-uk-epstein.html
 
