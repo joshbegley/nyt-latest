@@ -1,40 +1,40 @@
-**What Is Your Reaction to the National Park Service Deleting Aspects of American History?**\
-`In national parks and at historic sites, the Trump administration has removed educational materials about slavery and other topics it deems inappropriate.`\
-https://nytimes.com/2026/02/23/learning/what-is-your-reaction-to-the-national-park-service-deleting-aspects-of-american-history.html
+**The Hardest Coaching Job in Sports, and an Olympic Recap from Milan**\
+`Plus, your M.L.B. spring training preview.`\
+https://nytimes.com/2026/02/23/podcasts/hardest-coaching-job-iolympic-recap-mlb-spring-training.html
 
-**Former F.B.I. Official, Ousted Under Trump, Will Run for Congress in Maryland**\
-`David Sundberg, who led the Washington Field Office, is joining a crowded Democratic primary for Steny H. Hoyer’s open House seat.`\
-https://nytimes.com/2026/02/23/us/politics/former-fbi-official-congress-maryland.html
+**Major Snowstorm Hits Northeast and Mid-Atlantic**\
+`The storm is moving across the Northeast and Mid-Atlantic regions. Parts of New England and the New York City region could receive up to 18 inches.`\
+https://nytimes.com/video/weather/100000010729984/snow-storm-nyc-northeast.html
 
-**Supreme Court Considers Fate of Docks and Other Assets Seized by Cuba in 1960**\
-`Amid rising tensions with Cuba, the Trump administration is backing lawsuits that would allow Americans to get compensation for property confiscated by Fidel Castro’s regime.`\
-https://nytimes.com/2026/02/23/us/politics/supreme-court-cuba-cruise-docks.html
+**The Kremlin Banned These Books. You Can Find Them in a New York Library.**\
+`A professor at Hunter College has built one of the largest special collections of contraband Russian literature in the world.`\
+https://nytimes.com/2026/02/23/nyregion/hunter-college-soviet-banned-books.html
 
-**With a Payout, She Left San Francisco Behind and Moved Back Home**\
-`A woman left the city she loved to return to Chico, Calif., where dozens of cousins and extended family were waiting for her.`\
-https://nytimes.com/2026/02/23/realestate/ellis-act-eviction-payout-chico-san-francisco-move.html
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/23/crosswords/spelling-bee-forum.html
 
-**Blue Cities and States Are in Trouble. Democrats Need to Change How They Run Them.**\
-`The need to push back against a core Democratic Party constituency.`\
-https://nytimes.com/2026/02/23/opinion/democrats-public-sector-unions.html
+**Duterte’s Fans Rally in The Hague as the I.C.C. Weighs Evidence Against Him**\
+`The protests are a sign of the Philippine ex-leader’s ongoing influence, even as he faces a possible trial for the deaths of thousands during his war on drugs.`\
+https://nytimes.com/2026/02/23/world/asia/philippines-icc-duterte-supporters.html
 
-**Some Chefs Balk at Abu Dhabi as Site of Best Restaurants Ceremony**\
-`The World’s 50 Best Restaurants will give out its awards this year in a country that has been accused of human rights violations.`\
-https://nytimes.com/2026/02/23/dining/worlds-50-best-restaurants-abu-dhabi-ceremony.html
+**The New York Times in Print for Monday, Feb. 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times
 
-**The Soundtrack of the Doomscroll Generation? It’s Phonk.**\
-`YouTube Shorts and TikToks are often set to electronic dance music with rap roots that’s become the unconscious hum of vertical video while making its creators rich.`\
-https://nytimes.com/2026/02/23/arts/music/phonk-youtube-tiktok-music.html
+**Putin Had High Hopes for Trump. They Have Been Dashed.**\
+`The U.S. president is actually pretty bad for Russia.`\
+https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
 
-**‘The Inquisitor’ Review: Barbara Jordan Is Speaking**\
-`This whirlwind biographical documentary puts Barbara Jordan, the esteemed congresswoman and professor who died in 1996, front and center as a voice of moral authority.`\
-https://nytimes.com/2026/02/23/movies/barbara-jordan-the-inquisitor-review.html
+**The ‘Scrubs’ Reboot, Plus 6 Things to Watch on TV This Week**\
+`The medical comedy is back for another run, and the 50th season of “Survivor” is set to begin.`\
+https://nytimes.com/2026/02/23/arts/television/scrubs-reboot-watch-on-tv-this-week.html
 
-**It’s a Buyer’s Market, but Homeownership Eludes Many Americans**\
-`A growing split between low-to-middle-income families and wealthy households is changing who has access to homeownership now.`\
-https://nytimes.com/2026/02/23/business/home-buying-market-real-estate-economy.html
+**Brandin Podziemski's late-game surge leads Warriors past Nuggets: 'It was phenomenal'**\
+`Podziemski came off the bench and finished with 18 points, a career-high 15 rebounds, nine assists and a steal in the Warriors' 128-117 win.`\
+https://nytimes.com/athletic/7065029/2026/02/23/brandin-podziemski-warriors-nuggets-result-score/
 
-**In Washington State, Democrats Consider Breaking a Taboo: Taxing the Rich**\
-`The state where Jeff Bezos and Bill Gates made fortunes might have progressive social policies, but its resistance to an income tax is similar to conservative states. That might change.`\
-https://nytimes.com/2026/02/23/us/politics/washington-taxing-the-rich.html
+**One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
+`Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
+https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
 
