@@ -1,3 +1,7 @@
+**Mexico Is on Edge After the Killing of a Cartel Boss**\
+`Also, a blizzard sweeps through the Northeast. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/02/23/briefing/mexico-cartel-violence-snow-storm-northeast.html
+
 **Is A.I. Changing the Way You Teach Writing? Tell Us.**\
 `We want to hear from high school teachers and college professors who assign writing.`\
 https://nytimes.com/2026/02/23/us/ai-writing-assignments-classrooms-callout.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analys
 **Sources: Griezmann in advanced talks to join Orlando City from Atletico**\
 `Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
-
-**C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
-`Mexican officials said they had found the elusive cartel kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
-https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
 
