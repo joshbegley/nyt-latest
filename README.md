@@ -1,3 +1,7 @@
+**Europe’s New Way of War**\
+`Can Europe defend itself without the United States? A new strategic vision says yes.`\
+https://nytimes.com/2026/02/23/world/europe-defense-us-ukraine-mexico-tariffs.html
+
 **Scenes From New York City’s First Real Snow Day in Years**\
 `Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
 https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066543/2026/02/23/anthony-edwards-trading-card-pri
 **How to watch Jazz vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7066639/2026/02/23/jazz-vs-rockets-stream-how-to-watch-feb-23/
-
-**How to watch Kings vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7066637/2026/02/23/kings-vs-grizzlies-stream-how-to-watch-feb-23/
 
