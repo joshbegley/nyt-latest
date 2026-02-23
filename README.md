@@ -1,3 +1,7 @@
+**Inside Barcelona: Why is it Joan Laporta making headlines after a key La Liga win?**\
+`A day after victory over Levante moved Barcelona back to the top of the table, the club moved to defend president Joan Laporta's integrity`\
+https://nytimes.com/athletic/7065618/2026/02/23/barcelona-laporta-yamal-flick-levante-la-liga/
+
 **Architecture Prize Responds After Tom Pritzker’s Epstein Ties Surface**\
 `A Pritzker Prize statement cited the award’s independence after Mr. Pritzker, who directs the foundation behind the award, resigned as chairman of the Hyatt Corporation.`\
 https://nytimes.com/2026/02/23/arts/design/pritzker-prize-epstein-architecture.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/7065461/2026/02/23/premier-league-data-notebook-md2
 https://nytimes.com/2026/02/23/technology/ai-pac-ad-blitz.html
 
 **En directo: México vive brotes de violencia tras la muerte de El Mencho**\
-`Estaba previsto que la presidenta Claudia Sheinbaum abordara los disturbios provocados tras la muerte del jefe del Cártel Jalisco Nueva Generación. El caos ha dejado varados a los turistas y ha obligado a las aerolíneas a cancelar vuelos.`\
+`La presidenta Claudia Sheinbaum abordó los disturbios provocados tras la muerte del jefe del Cártel Jalisco Nueva Generación. El caos dejó varados a los turistas y obligó a las aerolíneas a cancelar vuelos.`\
 https://nytimes.com/live/2026/02/23/espanol/mexico-mencho-violencia
 
 **The Wellness Guru Jay Shetty Has Raised Some Doubts. Including His Own.**\
 `The self-help influencer Jay Shetty on his values, his journey and criticism of his work.`\
 https://nytimes.com/video/podcasts/100000010730645/the-wellness-guru-jay-shetty-has-raised-some-doubts-including-his-own.html
-
-**Winter Storm Remains Intense as It Blasts Region With Snow**\
-`Forecasters warned that two feet or more of snow would create dangerous or impossible travel, as well as power outages, from New Jersey to Massachusetts.`\
-https://nytimes.com/2026/02/23/weather/blizzard-forecast-boston-nyc.html
 

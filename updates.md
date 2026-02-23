@@ -1,3 +1,7 @@
+**Architecture Prize Responds After Tom Pritzker’s Epstein Ties Surface**\
+`A Pritzker Prize statement cited the award’s independence after Mr. Pritzker, who directs the foundation behind the award, resigned as chairman of the Hyatt Corporation.`\
+https://nytimes.com/2026/02/23/arts/design/pritzker-prize-epstein-architecture.html
+
 **Ushering In the Next Era of Aviation**\
 `JetZero and Siemens set out to reinvent flight with the Z4.`\
 https://nytimes.com/paidpost/siemens/ushering-in-the-next-era-of-aviation.html
