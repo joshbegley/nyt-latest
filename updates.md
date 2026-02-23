@@ -1,3 +1,15 @@
+**How Atlanta improbably became NASCAR's most consistently entertaining track**\
+`No matter the car or type of series, the reconfigured track keeps delivering, race after race.`\
+https://nytimes.com/athletic/7066183/2026/02/23/atlanta-speedway-motorsports-nascar-marcus-smith/
+
+**Met Gala Dress Code Makes a Statement of Its Own: ‘Fashion Is Art’**\
+`Three words of guidance is all guests will have to go on when preparing for this year’s Costume Institute benefit, celebrating a cerebral exhibition about the “dressed body.”`\
+https://nytimes.com/2026/02/23/style/met-gala-dress-code-fashion-is-art.html
+
+**N.Y.C. Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
+`The department has 2,600 workers tasked to snow duty in 12-hour shifts. New Yorkers can track plowing progress on an app.`\
+https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
+
 **Sanitation Department Mobilizes Into ‘Full Force Posture’ for Storm Duty**\
 `The department has 2,600 workers tasked to snow duty in 12-hour shifts. New Yorkers can track plowing progress on an app.`\
 https://nytimes.com/2026/02/23/weather/nyc-sanitation-snow-shovel-plow.html
