@@ -1,3 +1,11 @@
+**José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy.**\
+`Berríos stumbled in the second half last season but declared himself fit after his first spring outing: "I'm back. I'm healthy."`\
+https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-update/
+
+**Quad God Dresses Like Mere Mortal**\
+`For his final skate at the Winter Olympics in Italy, Ilia Malinin traded a spangly body suit for a hoodie and (designer) jeans.`\
+https://nytimes.com/2026/02/23/style/ilia-malinin-balmain-olympics.html
+
 **Hunkering Down in Mexico, Some Hope for a Flight Out Amid Burning Cars**\
 `People from Canada and the United States tell of scrambling for safety, food and flights after violence erupted in Mexico when a cartel boss died in custody.`\
 https://nytimes.com/2026/02/23/world/americas/mexico-visitors-flights-violence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/world/americas/el-mencho-mexico-cartel-military-r
 **In New York City, the snow has stopped falling. But leaving is another question.**\
 `By Wesley Parnell`\
 https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/blizzard-moynihan-train-station-delays
-
-**Restaurants in a Blizzard Face a Make-or-Break Question: Do We Open?**\
-`Across New York City, restaurateurs and cafe owners weigh logistics and the safety of staff against the demands of customers and a slow winter.`\
-https://nytimes.com/2026/02/23/dining/nyc-restaurants-blizzard.html
-
-**Carlos Mendoza reflects on what he could have done differently in 2025: 'I fell short'**\
-`Multiple team sources pointed to Mendoza’s communication as occasionally lacking in 2025, but they added that it was a fixable issue.`\
-https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-communicator-clubhouse/
 
