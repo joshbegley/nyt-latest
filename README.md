@@ -1,3 +1,7 @@
+**Tigers' Tarik Skubal says he will make one start in World Baseball Classic**\
+`Tarik Skubal wanted to represent his country in the tournament, but he’s also keeping his focus with the Tigers this spring.`\
+https://nytimes.com/athletic/7066535/2026/02/23/tigers-tarik-skubal-world-baseball-classic/
+
 **WNBA reached revenue-sharing target for first time in 2025: Source**\
 `The WNBA generated enough revenue so that $16 million was shareable with the players.`\
 https://nytimes.com/athletic/7066523/2026/02/23/wnba-revenue-sharing-2025-source/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
 **Settlers Drive a Palestinian Family Off Its Land**\
 `For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
 https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
-
-**‘Angel Families’ Return to Washington to Back Up Trump Ahead of State of the Union**\
-`The families of people killed by undocumented immigrants have forged a bond with the president, who has invited some of them to his address on Tuesday.`\
-https://nytimes.com/2026/02/23/us/politics/trump-angel-families-undocumented-immigrants.html
 

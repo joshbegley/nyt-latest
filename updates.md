@@ -1,3 +1,15 @@
+**WNBA reached revenue-sharing target for first time in 2025: Source**\
+`The WNBA generated enough revenue so that $16 million was shareable with the players.`\
+https://nytimes.com/athletic/7066523/2026/02/23/wnba-revenue-sharing-2025-source/
+
+**Peter Attia Leaves CBS News Amid Epstein Files Fallout**\
+`Emails showed that the longevity influencer had provided medical advice to Jeffrey Epstein and had made crude comments about women.`\
+https://nytimes.com/2026/02/23/well/peter-attia-cbs-epstein.html
+
+**U.S. women's hockey team will not attend State of the Union after Trump invitation**\
+`The U.S. men's team also has been invited to Washington, D.C., this week`\
+https://nytimes.com/athletic/7066477/2026/02/23/olympics-hockey-trump-state-of-the-union/
+
 **U.S. women's hockey team will not attend State of the Union after Trump invitation**\
 `The United States women’s hockey team, which won gold at the Olympics in Milan last week, will not attend President Donald Trump’s State of the Union address in Washington, D.`\
 https://nytimes.com/athletic/7066477/2026/02/23/olympics-hockey-trump-state-of-the-union/
