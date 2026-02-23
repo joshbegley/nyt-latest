@@ -1,3 +1,7 @@
+**Karl-Anthony Towns' curious season has taken a turn for the better**\
+`Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
+https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
+
 **Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
 `President Claudia Sheinbaum was expected to address the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
 https://nytimes.com/live/2026/02/23/world/mexico
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7058882/2026/02/23/nfl-draft-combine-how-to-watch-2
 **Mirtle: What lessons can Canada's men take from silver-lined Olympics?**\
 `There's a lot more to consider regarding Canada's total experience at these Games than just Sunday's gold medal game loss.`\
 https://nytimes.com/athletic/7064845/2026/02/23/olympic-hockey-canada-men-lessons/
-
-**Tennis player serving doping ban seeks $20m in damages from WTA Tour**\
-`The 33-year-old is under a ban to 2028 but argues that the detected presence of anabolic steroids was due to contaminated meat. `\
-https://nytimes.com/athletic/7065366/2026/02/23/tara-moore-tennis-doping-lawsuit-ban-wta/
 
