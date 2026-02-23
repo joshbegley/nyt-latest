@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Duke No. 1 for first time this season, Michigan drops to No. 3**\
+`Two days after Duke beat Michigan on a neutral court in the marquee game of the weekend, the teams traded places in the Associated Press Top 25 — with the Blue Devils ascending to No.`\
+https://nytimes.com/athletic/7066411/2026/02/23/ap-mens-basketball-poll-duke-no-1-michigan/
+
 **Leah Stavenhagen, Advocate for Young Women With A.L.S., Dies at 33**\
 `Ms. Stavenhagen started a group intend to counter the notion that A.L.S. was an “older white man’s disease.”`\
 https://nytimes.com/2026/02/23/health/leah-stavenhagen-als.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/23/us/trump-news/facing-angry-maha-moms-kennedy
 **How Atlanta improbably became NASCAR's most consistently entertaining track**\
 `No matter the car or type of series, the reconfigured track keeps delivering, race after race.`\
 https://nytimes.com/athletic/7066183/2026/02/23/atlanta-speedway-motorsports-nascar-marcus-smith/
-
-**Met Gala Dress Code Makes a Statement of Its Own: ‘Fashion Is Art’**\
-`Three words of guidance is all guests will have to go on when preparing for this year’s Costume Institute benefit, celebrating a cerebral exhibition about the “dressed body.”`\
-https://nytimes.com/2026/02/23/style/met-gala-dress-code-fashion-is-art.html
 
