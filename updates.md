@@ -1,3 +1,11 @@
+**One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
+`Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
+https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
+
+**The anatomy of an Anton Stach wonder goal — and everything else he brings to Leeds' play**\
+`Stach's stunning free kick against Villa was one of the finest Leeds goals in recent memory`\
+https://nytimes.com/athletic/7063130/2026/02/23/leeds-stach-free-kick-villa/
+
 **Forget 'Mavropanic', Mavropanos has become key to West Ham's survival hopes**\
 `Nuno Espirito Santo had to wait until his 20th league game for a clean sheet but West Ham have slowly improved defensively`\
 https://nytimes.com/athletic/7062344/2026/02/23/konstantinos-mavropanos-west-ham-defence/

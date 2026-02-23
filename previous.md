@@ -1,3 +1,11 @@
+**One of the silliest red cards this season, or a bit soft? Krejci's error that 'cost' Wolves**\
+`Ladislav Krejci saw red after kicking the ball away a second after the referee had blown his whistle`\
+https://nytimes.com/athletic/7063926/2026/02/23/krejci-red-card/
+
+**The anatomy of an Anton Stach wonder goal — and everything else he brings to Leeds' play**\
+`Stach's stunning free kick against Villa was one of the finest Leeds goals in recent memory`\
+https://nytimes.com/athletic/7063130/2026/02/23/leeds-stach-free-kick-villa/
+
 **Forget 'Mavropanic', Mavropanos has become key to West Ham's survival hopes**\
 `Nuno Espirito Santo had to wait until his 20th league game for a clean sheet but West Ham have slowly improved defensively`\
 https://nytimes.com/athletic/7062344/2026/02/23/konstantinos-mavropanos-west-ham-defence/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7063472/2026/02/23/arsenal-saka-attack/
 **Ranking Bruno Fernandes' seasons at Manchester United — from worst to best**\
 `Fernandes is United's most important player, and this season has been one of his best in a United shirt. But which is his best?`\
 https://nytimes.com/athletic/7037026/2026/02/23/bruno-fernandes-man-united-seasons-ranking-best-worst/
-
-**Playing on after 40: 'What life do I want to live for the next 50 years?'**\
-`What tempts elite athletes to keep playing long after many of their contemporaries have retired?`\
-https://nytimes.com/athletic/7036216/2026/02/23/playing-sport-after-40/
-
-**Red card halts Kalvin Phillips' revival – ‘They love him to bits, we love him to bits. I'm disappointed’**\
-`The midfielder, on loan at Sheffield United from Manchester City, received a straight red card for a reckless challenge in the derby`\
-https://nytimes.com/athletic/7063912/2026/02/23/kalvin-phillips-future/
 
