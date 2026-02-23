@@ -1,3 +1,7 @@
+**College baseball week in review: UCLA looks the part, Auburn gets offensive**\
+`Kent State shocks Tennessee in Knoxville. USC's pitching continues to dominate. Injury concerns at Coastal Carolina? `\
+https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholowsky-auburn-tennessee/
+
 **What I'm hearing about Canucks' plans as NHL trade activity resumes**\
 `With the deadline approaching, the Canucks are focused on moving their pending unrestricted free agents.`\
 https://nytimes.com/athletic/7064175/2026/02/23/vancouver-canucks-trade-deadline-2026-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mai
 **Karl-Anthony Towns' curious season has taken a turn for the better**\
 `Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
 https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
-
-**Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
-`President Claudia Sheinbaum was addressing the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
-https://nytimes.com/live/2026/02/23/world/mexico
 
