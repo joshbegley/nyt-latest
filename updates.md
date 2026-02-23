@@ -1,3 +1,7 @@
+**Restaurants in a Blizzard Face a Make-or-Break Question: Do We Open?**\
+`Across New York City, restaurateurs and cafe owners weigh logistics and the safety of staff against the demands of customers and a slow winter.`\
+https://nytimes.com/2026/02/23/dining/nyc-restaurants-blizzard.html
+
 **Carlos Mendoza reflects on what he could have done differently in 2025: 'I fell short'**\
 `Multiple team sources pointed to Mendoza’s communication as occasionally lacking in 2025, but they added that it was a fixable issue.`\
 https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-communicator-clubhouse/
