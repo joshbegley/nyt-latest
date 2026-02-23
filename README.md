@@ -1,3 +1,7 @@
+**Andy Roddick signs 'multi-year' deal with ESPN**\
+`Roddick will serve as an analyst for both match and studio coverage during Wimbledon and the U.S. Open.`\
+https://nytimes.com/athletic/7066185/2026/02/23/andy-roddick-tennis-coverage-wimbeldon-us-open/
+
 **Another C.D.C. Vaccine Skeptic Steps Down**\
 `Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
 https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066097/2026/02/23/josh-sargent-toronto-fc-transfer
 **U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
 `Peter Mandelson is being investigated over accusations of “misconduct in public office” amid his dealings with Jeffrey Epstein, the sex offender.`\
 https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
-
-**Games Briefing: Your favorite moments**\
-`Welcome to Games Briefing, The Athletic’s daily newsletter for the Milan Cortina Olympics.`\
-https://nytimes.com/athletic/7066101/2026/02/23/your-favorite-moments-milan-cortina-olympics-games-briefing/
 
