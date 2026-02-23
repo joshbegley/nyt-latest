@@ -1,3 +1,7 @@
+**Unrest in 2026 World Cup host city Guadalajara after Mexico kills drug lord 'El Mencho'**\
+`The governor’s office told The Athletic it had not received any communications from FIFA “that should concern us"`\
+https://nytimes.com/athletic/7064642/2026/02/22/world-cup-guadalajara-el-mencho/
+
 **Tyrese Haliburton diagnosed with shingles, will be away from Pacers for 2-3 weeks**\
 `Sunday’s news is a continuation of what has been a rough eight months for Haliburton, who ruptured his Achilles in the NBA Finals in June.`\
 https://nytimes.com/athletic/7064474/2026/02/22/tyrese-haliburton-shingles-pacers-nba/
