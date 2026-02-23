@@ -1,3 +1,7 @@
+**Submit your questions for the college basketball mailbag**\
+`What's on your mind with three weeks until the NCAA Tournament?`\
+https://nytimes.com/athletic/7065567/2026/02/23/college-basketball-questions-mailbag-2026/
+
 **Karl-Anthony Towns' curious season has taken a turn for the better**\
 `Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
 https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7063829/2026/02/23/connor-mcdavid-olympics-2026-edm
 **How to watch the 2026 NFL Scouting Combine this week**\
 `Here's how to see the next crop of NFL prospects show out, clock in and measure up.`\
 https://nytimes.com/athletic/7058882/2026/02/23/nfl-draft-combine-how-to-watch-2026-schedule/
-
-**Mirtle: What lessons can Canada's men take from silver-lined Olympics?**\
-`There's a lot more to consider regarding Canada's total experience at these Games than just Sunday's gold medal game loss.`\
-https://nytimes.com/athletic/7064845/2026/02/23/olympic-hockey-canada-men-lessons/
 

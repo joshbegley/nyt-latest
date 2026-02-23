@@ -1,3 +1,15 @@
+**Karl-Anthony Towns' curious season has taken a turn for the better**\
+`Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
+https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
+
+**Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
+`President Claudia Sheinbaum was expected to address the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
+https://nytimes.com/live/2026/02/23/world/mexico
+
+**Here’s the latest.**\
+`By Ravi Mattu`\
+https://nytimes.com/live/2026/02/23/world/mexico/heres-the-latest
+
 **Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
 `Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
 https://nytimes.com/2026/02/23/business/waller-fed-supreme-court-tariffs-rates.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7058882/2026/02/23/nfl-draft-combine-how-to-watch-2
 **Mirtle: What lessons can Canada's men take from silver-lined Olympics?**\
 `There's a lot more to consider regarding Canada's total experience at these Games than just Sunday's gold medal game loss.`\
 https://nytimes.com/athletic/7064845/2026/02/23/olympic-hockey-canada-men-lessons/
-
-**Tennis player serving doping ban seeks $20m in damages from WTA Tour**\
-`The 33-year-old is under a ban to 2028 but argues that the detected presence of anabolic steroids was due to contaminated meat. `\
-https://nytimes.com/athletic/7065366/2026/02/23/tara-moore-tennis-doping-lawsuit-ban-wta/
-
-**Eagles 2026 NFL combine primer: Nick Sirianni's 'win-now' staff, A.J. Brown watch, positional needs**\
-`The Eagles are in win-now mode while also building for the future.`\
-https://nytimes.com/athletic/7059879/2026/02/23/eagles-2026-nfl-combine-nick-sirianni-staff-aj-brown-needs/
-
-**Advocaat resigns as Curacao manager months before nation's World Cup debut**\
-`The 78-year-old has resigned to look after his daughter, who has health issues. `\
-https://nytimes.com/athletic/7065442/2026/02/23/dick-advocaat-curacao-manager-world-cup/
 

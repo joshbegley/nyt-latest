@@ -1,3 +1,15 @@
+**Karl-Anthony Towns' curious season has taken a turn for the better**\
+`Towns has looked like his old self since the All-Star break, setting into a comfortable place in Knicks coach Mike Brown's offense.`\
+https://nytimes.com/athletic/7065150/2026/02/23/karl-anthony-towns-knicks-season/
+
+**Live Updates: Violence Flares in Mexico After Killing of Cartel Boss**\
+`President Claudia Sheinbaum was expected to address the unrest incited after the death of “El Mencho,” the longtime head of a powerful cartel. The mayhem has stranded travelers and forced airlines to cancel flights.`\
+https://nytimes.com/live/2026/02/23/world/mexico
+
+**Here’s the latest.**\
+`By Ravi Mattu`\
+https://nytimes.com/live/2026/02/23/world/mexico/heres-the-latest
+
 **Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
 `Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
 https://nytimes.com/2026/02/23/business/waller-fed-supreme-court-tariffs-rates.html
