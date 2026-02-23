@@ -1,3 +1,11 @@
+**Jacob Bridgeman's Genesis Invitational win signals a PGA Tour movement**\
+`The PGA Tour’s youth has finally been making its own claim for a place in this sport.`\
+https://nytimes.com/athletic/7064639/2026/02/22/jacob-bridgeman-genesis-invitational-win-pga-tour/
+
+**Lakers unveil Pat Riley statue to honor 'Showtime' basketball pioneer**\
+`In eight-plus seasons in Los Angeles, Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 percentage.`\
+https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/
+
 **Lakers unveil Pat Riley statue to honor pioneer of 'Showtime' basketball**\
 `In eight-plus seasons in Los Angeles, Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 percentage.`\
 https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/

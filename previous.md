@@ -1,4 +1,8 @@
-**Lakers unveil Pat Riley statue to honor pioneer of 'Showtime' basketball**\
+**Jacob Bridgeman's Genesis Invitational win signals a PGA Tour movement**\
+`The PGA Tour’s youth has finally been making its own claim for a place in this sport.`\
+https://nytimes.com/athletic/7064639/2026/02/22/jacob-bridgeman-genesis-invitational-win-pga-tour/
+
+**Lakers unveil Pat Riley statue to honor 'Showtime' basketball pioneer**\
 `In eight-plus seasons in Los Angeles, Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 percentage.`\
 https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/theater/marcel-on-the-train-review-marceau-ethan-
 **Willie Colón Played Up the Bad Guy With Purpose**\
 `By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón, the legend of salsa music who died on Saturday, crafted an everlasting image.`\
 https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
-
-**Here Are the Rare Instances of Fatal Shootings by the Secret Service**\
-`Sunday’s shooting of an armed man at President Trump’s Florida club is one of only a handful of fatal encounters that the agency has had in its 160-year history.`\
-https://nytimes.com/2026/02/22/us/politics/secret-service-fatal-shootings.html
 

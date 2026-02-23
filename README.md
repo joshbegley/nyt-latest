@@ -1,9 +1,13 @@
+**Tyler Reddick goes back-to-back: Takeaways from NASCAR at Atlanta**\
+`Reddick is the sixth driver in NASCAR history to win the first two races of the season.`\
+https://nytimes.com/athletic/7064740/2026/02/22/tyler-reddick-michael-jordan-nascar-atlanta-autotrader-500/
+
 **Jacob Bridgeman's Genesis Invitational win signals a PGA Tour movement**\
 `The PGA Tour’s youth has finally been making its own claim for a place in this sport.`\
 https://nytimes.com/athletic/7064639/2026/02/22/jacob-bridgeman-genesis-invitational-win-pga-tour/
 
 **Lakers unveil Pat Riley statue to honor 'Showtime' basketball pioneer**\
-`In eight-plus seasons in Los Angeles, Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 percentage.`\
+`In eight-plus seasons in L.A., Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 win percentage.`\
 https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/
 
 **Yankees radio legend John Sterling says he had a heart attack in January**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/22/crosswords/daily-puzzle-2026-02-23.html
 **‘Marcel on the Train’ Review: A Famous Mime’s Little-Known Back Story**\
 `This bio play about Marcel Marceau, which delves into his part in the French Resistance, stars Ethan Slater (yes, that’s Boq from the “Wicked” movies).`\
 https://nytimes.com/2026/02/22/theater/marcel-on-the-train-review-marceau-ethan-slater.html
-
-**Willie Colón Played Up the Bad Guy With Purpose**\
-`By styling himself after mobsters and blaxploitation characters early in his career, Mr. Colón, the legend of salsa music who died on Saturday, crafted an everlasting image.`\
-https://nytimes.com/2026/02/22/style/willie-colon-played-up-the-bad-guy-with-purpose.html
 
