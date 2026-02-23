@@ -1,3 +1,11 @@
+**How to watch Spurs vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7066093/2026/02/23/spurs-vs-pistons-stream-how-to-watch-feb-23/
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`Spring football is just a few weeks away — what's on your mind about Notre Dame?`\
+https://nytimes.com/athletic/7066073/2026/02/23/submit-a-question-for-pete-sampsons-notre-dame-mailbag-110/
+
 **NHL players whose legacies changed most at the Olympics**\
 `From Connor Hellebuyck to Auston Matthews, these players rewrote their stories emphatically in just a few short weeks.`\
 https://nytimes.com/athletic/7066010/2026/02/23/olympics-mens-hockey-nhl-legacies-red-light/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066004/2026/02/23/cubs-michael-conforto-sign-minor
 **How Arsenal adapted to Igor Tudor's tactical system much more effectively than Spurs did**\
 `It was an impressive performance from the league leaders – but no other Premier League opponent will afford them this much space`\
 https://nytimes.com/athletic/7065384/2026/02/23/tottenham-arsenal-premier-league-analysis-tudor-eze-gyokeres/
-
-**A Weeknight Winner for When You’re Sick of Winter**\
-`Melissa Clark’s recipe for five-star skillet chicken thighs with brown butter corn looks solidly to warmer weather.`\
-https://nytimes.com/2026/02/23/dining/a-weeknight-winner-for-when-youre-sick-of-winter.html
-
-**How a Horse Whinnies: With a Whistle and a Song**\
-`Horses, with their high-pitched whinnies, seemed to buck the trend of larger animals producing lower sounds, but a new study explains the mechanics behind the noises a horse makes.`\
-https://nytimes.com/2026/02/23/science/horses-whinny-sounds.html
 
