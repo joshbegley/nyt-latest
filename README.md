@@ -1,40 +1,40 @@
-**Milan Cortina Olympics in pictures: 20 captivating photos from the Winter Games**\
-`Here are some of our favorite shots from two weeks of Winter Olympic action in Northern Italy.`\
-https://nytimes.com/athletic/7063286/2026/02/23/olympics-milan-cortina-games-photos/
+**The Best and Worst Moments From the 2026 BAFTAs**\
+`Alan Cumming forced fishy British snacks onto movie stars. Paddington Bear presented an award. And there was more swearing, and racial curses, than this awards show has ever heard.`\
+https://nytimes.com/2026/02/23/movies/baftas-best-worst-moments.html
 
-**Violence Erupts Across Mexico After Cartel Boss Killed**\
-`After the Mexican government said it had killed one of the country’s most violent criminal figures, Nemesio Oseguera Cervantes, known as El Mencho, armed groups set fires to buildings and vehicles across Mexico.`\
-https://nytimes.com/video/world/americas/100000010730048/mexico-cartel-leader-killed.html
+**Four NFL combine week questions hanging over John Harbaugh's Giants**\
+`From what the Giants will do with the fifth overall pick, to what Harbaugh's program will look like in Year One.`\
+https://nytimes.com/athletic/7064019/2026/02/23/new-york-giants-nfl-draft-combine-free-agency/
 
-**LeBron James says 'it's all good' between him and Jaylen Brown after Bronny comments**\
-`James said he and Brown have always had a respectful relationship, except for when Brown was seen in a video criticizing his son, Bronny.`\
-https://nytimes.com/athletic/7065125/2026/02/23/lebron-james-jaylen-brown-relationship-bronny-lakers-celtics/
+**The robot umps are here: What to watch for with ABS this spring training**\
+`MLB's ABS challenge system is up and running this spring — and it's about to change baseball profoundly. Here's everything you need to know.`\
+https://nytimes.com/athletic/7064808/2026/02/23/mlb-abs-spring-training/
 
-**Falcons head to NFL combine in Indianapolis with new decision-makers, new plan**\
-`The NFL combine begins this week in Indianapolis, where head coach Kevin Stefanski and GM Ian Cunningham will speak to the media.`\
-https://nytimes.com/athletic/7058530/2026/02/23/atlanta-falcons-nfl-combine-ryan-stefanski-cunningham/
+**Upgrading the offense must be Browns' top priority this offseason: Mailbag**\
+`Ahead of the NFL combine, we answer questions about Cleveland's plans for April's draft, the future starter at QB and more. `\
+https://nytimes.com/athletic/7060154/2026/02/23/browns-offense-mailbag-nfl-scouting-combine-draft/
 
-**The Television Show Every American Should Watch**\
-`An emergency room that’s a mirror.`\
-https://nytimes.com/2026/02/23/opinion/pitt-america-tv.html
+**Salt Lake City's big venture to win MLB expansion and be the next great sports hotspot**\
+`The population of the Salt Lake City-Provo-Orem corridor, now nearly 3 million, has roughly doubled since MLB last expanded in 1998.`\
+https://nytimes.com/athletic/7044898/2026/02/23/utah-mlb-expansion-sports-city/
 
-**What’s Happened Since the Supreme Court’s Tariff Ruling**\
-`After the Trump administration’s punishing tariffs were invalidated, the president said he would impose new tariffs using a different authority. It’s been a whirlwind.`\
-https://nytimes.com/2026/02/23/business/supreme-court-trump-tariffs-updates.html
+**Ravens could start to get answers to some of their biggest questions at NFL combine**\
+`With the NFL combine beginning this week, Baltimore's decision-makers will start having conversations about how to improve the roster.`\
+https://nytimes.com/athletic/7064366/2026/02/23/ravens-offseason-questions-nfl-combine/
 
-**Women’s Olympic Hockey Gold Medalist Has Her Brothers’ Eccentric Support**\
-`The three brothers of Haley Winn, a defender for the U.S. squad, gained a spotlight for the colorful ways they cheered on their sister’s dream.`\
-https://nytimes.com/2026/02/23/world/olympics/haley-winn-brothers-olympics-hockey.html
+**Will Charvarius Ward Sr. retire? 5 NFL combine questions for Colts GM Chris Ballard**\
+`Ward, Daniel Jones and Anthony Richardson Sr. will be among the players Ballard will be asked about this week at the combine.`\
+https://nytimes.com/athletic/7058456/2026/02/23/colts-chris-ballard-combine-questions/
 
-**Trump Claims a Historic Turnaround for the U.S. Here Are the Facts.**\
-`Trends on jobs, inflation and crime that began before Donald Trump retook office continued, largely unabated, in his first year back.`\
-https://nytimes.com/2026/02/23/us/politics/trump-economy-fact-check.html
+**Everything the Jets need to figure out at the NFL combine**\
+`In addition to the quarterback question and Breece Hall's future, the Jets are looking to establish new identities on offense and defense.`\
+https://nytimes.com/athletic/7063616/2026/02/23/new-york-jets-nfl-combine-draft-free-agency/
 
-**Should I Stop Wearing My Greatcoat Because of ICE Raids?**\
-`Recently, the military-style outerwear has taken on new meaning. Our critic traces shifting clothing connotations and offers advice on how to react.`\
-https://nytimes.com/2026/02/23/fashion/greatcoat-ice-bovino.html
+**NFL free-agency rankings 2026: Top 10 players at each position**\
+`The running back class is both top-heavy and deep, but shopping at the top of the receiver market could be risky. What about the QB market?`\
+https://nytimes.com/athletic/7056606/2026/02/23/nfl-free-agency-rankings-2026-positions/
 
-**Why the Supreme Court Struck Down Trump’s Tariffs**\
-`Our reporter Ann E. Marimow describes the rationale of the Supreme Court’s 6-to-3 ruling to strike down President Trump’s sweeping tariffs.`\
-https://nytimes.com/video/us/100000010726142/why-the-supreme-court-struck-down-trumps-tariffs.html
+**Pressing questions and prospects to watch for the Steelers at the NFL Combine**\
+`What GM Omar Khan will be asked to address, and the players to keep an eye on.`\
+https://nytimes.com/athletic/7060353/2026/02/23/pittsburgh-steelers-nfl-combine-draft-free-agency/
 

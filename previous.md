@@ -1,3 +1,11 @@
+**Milan Cortina Olympics in pictures: 20 captivating photos from the Winter Games**\
+`Here are some of our favorite shots from two weeks of Winter Olympic action in Northern Italy.`\
+https://nytimes.com/athletic/7063286/2026/02/23/olympics-milan-cortina-games-photos/
+
+**Violence Erupts Across Mexico After Cartel Boss Killed**\
+`After the Mexican government said it had killed one of the country’s most violent criminal figures, Nemesio Oseguera Cervantes, known as El Mencho, armed groups set fires to buildings and vehicles across Mexico.`\
+https://nytimes.com/video/world/americas/100000010730048/mexico-cartel-leader-killed.html
+
 **LeBron James says 'it's all good' between him and Jaylen Brown after Bronny comments**\
 `James said he and Brown have always had a respectful relationship, except for when Brown was seen in a video criticizing his son, Bronny.`\
 https://nytimes.com/athletic/7065125/2026/02/23/lebron-james-jaylen-brown-relationship-bronny-lakers-celtics/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/fashion/greatcoat-ice-bovino.html
 **Why the Supreme Court Struck Down Trump’s Tariffs**\
 `Our reporter Ann E. Marimow describes the rationale of the Supreme Court’s 6-to-3 ruling to strike down President Trump’s sweeping tariffs.`\
 https://nytimes.com/video/us/100000010726142/why-the-supreme-court-struck-down-trumps-tariffs.html
-
-**The Rise of the Bratty Machines**\
-`An autonomous OpenClaw chatbot seeks revenge.`\
-https://nytimes.com/2026/02/23/opinion/chatbots-open-claw.html
-
-**The Epstein Files Should Never Have Been Released**\
-`Putting millions of pages online is a sign of institutional failure.`\
-https://nytimes.com/2026/02/23/opinion/epstein-files-justice-department.html
 

@@ -1,3 +1,11 @@
+**Milan Cortina Olympics in pictures: 20 captivating photos from the Winter Games**\
+`Here are some of our favorite shots from two weeks of Winter Olympic action in Northern Italy.`\
+https://nytimes.com/athletic/7063286/2026/02/23/olympics-milan-cortina-games-photos/
+
+**Violence Erupts Across Mexico After Cartel Boss Killed**\
+`After the Mexican government said it had killed one of the country’s most violent criminal figures, Nemesio Oseguera Cervantes, known as El Mencho, armed groups set fires to buildings and vehicles across Mexico.`\
+https://nytimes.com/video/world/americas/100000010730048/mexico-cartel-leader-killed.html
+
 **LeBron James says 'it's all good' between him and Jaylen Brown after Bronny comments**\
 `James said he and Brown have always had a respectful relationship, except for when Brown was seen in a video criticizing his son, Bronny.`\
 https://nytimes.com/athletic/7065125/2026/02/23/lebron-james-jaylen-brown-relationship-bronny-lakers-celtics/
