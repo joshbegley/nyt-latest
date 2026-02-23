@@ -1,3 +1,7 @@
+**Tyrese Haliburton diagnosed with shingles, will be away from Pacers for 2-3 weeks**\
+`Sunday’s news is a continuation of what has been a rough eight months for Haliburton, who ruptured his Achilles in the NBA Finals in June.`\
+https://nytimes.com/athletic/7064474/2026/02/22/tyrese-haliburton-shingles-pacers-nba/
+
 **Armed Man Is Shot and Killed at Mar-a-Lago, Authorities Say**\
 `Officers fatally shot Austin Tucker Martin, 21, after he entered a secure perimeter at Mar-a-Lago, officials said. The authorities said he was carrying what appeared to be a shotgun and a fuel canister.`\
 https://nytimes.com/video/us/100000010729088/man-shot-mar-a-lago-trump.html
