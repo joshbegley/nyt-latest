@@ -1,3 +1,7 @@
+**How to Shovel Snow Safely**\
+`The snow hitting the Northeast and Mid-Atlantic is heavier and wetter than other storms this season. Here’s why, and how to avoid injury while shoveling.`\
+https://nytimes.com/2026/02/23/well/snow-shovel-safety-blizzard-storm.html
+
 **Can an Influencer Really ‘Think Like a Monk’?**\
 `Jay Shetty’s podcast, “On Purpose,” is wildly popular, and he has written two bestselling books, “Think Like a Monk” and “8 Rules of Love.`\
 https://nytimes.com/video/podcasts/100000010730734/can-an-influencer-really-think-like-a-monk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/travel/cartel-violence-mexico-el-mencho-travel-fl
 **Ex-Ambassador Peter Mandelson Arrested Over Epstein Accusations**\
 `The former British ambassador to the United States, Peter Mandelson, was arrested on Monday following allegations that he passed confidential government information to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/video/world/europe/100000010731439/peter-mandelson-arrested-uk-epstein.html
-
-**Lindsey Vonn describes surgery that saved her leg from amputation after crash**\
-`The U.S. Olympian said trauma to her fractured left leg led to compartment syndrome, which could have caused her to lose the limb.`\
-https://nytimes.com/athletic/7066124/2026/02/23/olympics-lindsey-vonn-surgery-prevented-amputation/
 

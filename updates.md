@@ -1,3 +1,19 @@
+**Can an Influencer Really ‘Think Like a Monk’?**\
+`Jay Shetty’s podcast, “On Purpose,” is wildly popular, and he has written two bestselling books, “Think Like a Monk” and “8 Rules of Love.`\
+https://nytimes.com/video/podcasts/100000010730734/can-an-influencer-really-think-like-a-monk.html
+
+**Jay Shetty’s Advice for Getting Over Your Regrets**\
+`Jay Shetty, the host of the popular podcast “On Purpose,” shares some advice on how to think about life’s painful experiences on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010730788/jay-shettys-advice-for-getting-over-your-regrets.html
+
+**Can You Find Spirituality on Instagram?**\
+`What happens when mindfulness or dharma are decoupled from their religious roots? Jay Shetty, the host of the popular podcast “On Purpose,” shared his perspective on the value of spiritual paths that begin on social media on “The Interview.”`\
+https://nytimes.com/video/podcasts/100000010730742/can-you-find-spirituality-on-instagram.html
+
+**Settlers Drive a Palestinian Family Off Its Land**\
+`For two years, settlers attacked Rezeq Abu Naim’s land in the Israeli-occupied West Bank at all hours and in all manners. After another violent incursion over the weekend, his family abandoned their home.`\
+https://nytimes.com/2026/02/23/world/palestinian-west-bank-settlers-displacement.html
+
 **Edward Hoagland, Lyrical Chronicler of the Natural World, Dies at 93**\
 `In essays and books, he explored physical landscapes and the terrain of his own life, up to the blindness that overtook him in his later years.`\
 https://nytimes.com/2026/02/23/books/edward-hoagland-dead.html
