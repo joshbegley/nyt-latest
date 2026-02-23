@@ -1,3 +1,7 @@
+**Blue Jackets Monday Gathering: Teammates revel in Werenski's gold, and a stirring Gaudreau tribute**\
+`Even the Canadians on the Columbus roster appreciated how Werenski represented himself and the team.`\
+https://nytimes.com/athletic/7061991/2026/02/23/werenski-gaudreau-olympics-blue-jackets/
+
 **Trump invites gold-winning U.S. men's hockey team to State of the Union**\
 `The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
 https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
