@@ -1,3 +1,7 @@
+**In New York City, the snow has stopped falling. But leaving is another question.**\
+`By Wesley Parnell`\
+https://nytimes.com/live/2026/02/23/weather/nyc-snow-storm/blizzard-moynihan-train-station-delays
+
 **Restaurants in a Blizzard Face a Make-or-Break Question: Do We Open?**\
 `Across New York City, restaurateurs and cafe owners weigh logistics and the safety of staff against the demands of customers and a slow winter.`\
 https://nytimes.com/2026/02/23/dining/nyc-restaurants-blizzard.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analys
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
 
 **C.I.A. Intelligence Helped Lead Mexican Authorities to ‘El Mencho’**\
-`Mexican officials said they had found the elusive drug kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
+`Mexican officials said they had found the elusive cartel kingpin by tracking a romantic partner. The C.I.A. provided some intelligence critical to the operation.`\
 https://nytimes.com/2026/02/23/world/americas/cia-el-hencho-location-mexico.html
 
 **New York City’s Homeless Population Faces Another Dangerous Storm**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/us/politics/speech-trump-state-of-the-union.html
 **Did Her White Father Marry Her Black Mother for Love, or for Research?**\
 `In “The Mixed Marriage Project,” Dorothy Roberts reflects on her anthropologist father’s lifelong project: to document — and promote — interracial marriages like his own.`\
 https://nytimes.com/2026/02/23/books/review/the-mixed-marriage-project-dorothy-roberts.html
-
-**A Wake for The Washington Post’s Books Section**\
-`Literary and cultural denizens of the nation’s capital gathered on Saturday to eulogize The Post’s scuppered Book World supplement.`\
-https://nytimes.com/2026/02/23/books/washington-post-book-world.html
 
