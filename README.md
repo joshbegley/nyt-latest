@@ -1,3 +1,19 @@
+**The club who forced fans to swap buses for extra legroom on a 247-mile trip. Or did they?**\
+`The strange tale of a lower-league side embroiled in a controversy with their supporters over legroom on a team coach`\
+https://nytimes.com/athletic/7064031/2026/02/23/torquay-bus-supporters-leg-room-controversy/
+
+**Has Glasner's relationship with Crystal Palace fans been damaged beyond repair?**\
+`Supporters sang mockingly at the weekend about his 'humble' comments. His achievements last season are fading fast`\
+https://nytimes.com/athletic/7064128/2026/02/23/oliver-glasner-crystal-palace-fans-relationship/
+
+**Is it time Ngumoha was a Premier League starter for Liverpool?**\
+`The 17-year-old made another decisive contribution off the bench on Sunday and his case for more game time is hard to ignore`\
+https://nytimes.com/athletic/7063938/2026/02/23/rio-ngumoha-premier-league-start/
+
+**More games than anyone but fewer minutes than Distin – the numbers behind James Milner's record**\
+`James Milner is 654 appearances not out — here are the numbers behind his startling longevity in the Premier League`\
+https://nytimes.com/athletic/7024038/2026/02/23/milner-distin-record-premier-league/
+
 **An Ugly Building in a Beautiful City Gets a Much-Debated Makeover**\
 `The Tour Montparnasse is one of Paris’s least-loved landmarks. After half a century, it’s finally being remodeled.`\
 https://nytimes.com/2026/02/23/world/europe/tour-montparnasse-paris-makeover-piano.html
@@ -23,20 +39,4 @@ https://nytimes.com/athletic/7065071/2026/02/22/submit-a-question-for-stewart-ma
 **U.S. fans buying, Canadian fans selling Jack Hughes cards after Olympic finale**\
 `Hughes cards found a large number of new buyers and sellers after his winning goal against Canada. `\
 https://nytimes.com/athletic/7064885/2026/02/22/jack-hughes-cards-olympics-usa/
-
-**‘A Knight of the Seven Kingdoms’ Season 1 Finale Recap: On the Road Again**\
-`A melancholy finale sees Dunk finally treated as a proper knight, which includes a royal request to take on Egg as his proper squire.`\
-https://nytimes.com/2026/02/22/arts/television/a-knight-of-the-seven-kingdoms-recap-episode-6.html
-
-**Amid fire alarms and with 'boneheaded' base-running, Giants turn a wacky triple play**\
-`The Society for American Baseball Research keeps a database of all triple plays. None have begun with a base hit.`\
-https://nytimes.com/athletic/7064880/2026/02/22/matt-chapman-triple-play-giants-cubs-spring-training/
-
-**Winter Olympics Day 16 recap: U.S. men win hockey gold; Eileen Gu defends freeski crown**\
-`Jack Hughes' "Golden Goal" lifts Team USA hockey past Canada, Gu cements freestyle legacy, other news from the final day of the Olympics.`\
-https://nytimes.com/athletic/7064260/2026/02/22/olympics-recap-usa-hockey-gold-eileen-gu-freeski/
-
-**Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
-`From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
-https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
 
