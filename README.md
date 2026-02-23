@@ -1,3 +1,11 @@
+**TAFC: Miami opener gets Messi, are Tottenham really relegation candidates?**\
+`Today in TAFC: Inter Miami's opening MLS match turns sour. Plus: Tottenham lurking just above relegation zone after loss to Arsenal.`\
+https://nytimes.com/athletic/7065303/2026/02/23/messi-mls-lafc-referee-tottenham-relegation/
+
+**Julian Sayin has already been a Heisman finalist. What can he do to get even better?**\
+`The Ohio State quarterback nearly broke the FBS completion percentage record in his first year starting. Here's what could be next.`\
+https://nytimes.com/athletic/7060347/2026/02/23/julian-sayin-ohio-state-stats-film-2026/
+
 **The Next Conflict**\
 `We’re looking at the potential for a U.S. attack on Iran.`\
 https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7062695/2026/02/23/flyers-hathaway-ersson-form-play
 **Five Chargers questions I will be looking to answer at the combine**\
 `Can the Chargers target Tyler Linderbaum in free agency? Which internal free agents will they prioritize? Who might they cut? `\
 https://nytimes.com/athletic/7060794/2026/02/23/chargers-nfl-combine-2026-questions/
-
-**TGL Week 8 preview: New York vs. Bay, Boston vs. Atlanta battle for first**\
-`The TGL is playing seven matches in the next nine days as the league coordinates its midseason break with the Genesis Invitational.`\
-https://nytimes.com/athletic/7065073/2026/02/23/tgl-week-8-preview-betting-picks-boston-atlanta-first-place/
-
-**49ers combine priorities: Trade talks, free-agent targets and draft prospects to watch**\
-`Kyle Shanahan and John Lynch will spend this week preparing for what could be a busy offseason. Could they kick the tires on Maxx Crosby?`\
-https://nytimes.com/athletic/7061100/2026/02/23/49ers-nfl-combine-nfl-draft-free-agency/
 
