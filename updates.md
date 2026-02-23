@@ -1,3 +1,19 @@
+**Advocaat resigns as Curacao manager months before nation's World Cup debut**\
+`The 78-year-old has resigned to look after his daughter, who has health issues. `\
+https://nytimes.com/athletic/7065442/2026/02/23/dick-advocaat-curacao-manager-world-cup/
+
+**Inside Real Madrid: 'Sadness but no surprise' after Vinicius Jr ‘die’ chants**\
+`The Brazilian 25-year-old was again targeted in Saturday's 2-1 defeat at Osasuna, a result that saw Barcelona retake the lead in La Liga`\
+https://nytimes.com/athletic/7065342/2026/02/23/real-madrid-vinicius-jr-osasuna-la-liga-barcelona/
+
+**FPL Gameweek 27 review: Arsenal and Chelsea’s turning tide, risky O’Reilly and Fulham’s ripe run**\
+`Whether you climbed the rankings or were left frustrated by missed chances and rotation, there’s plenty to unpack from the weekend’s action`\
+https://nytimes.com/athletic/7064104/2026/02/23/fantasy-premier-league-gameweek-27-fpl-tips-arsenal-oreilly/
+
+**Serie A Briefing: Como players' total faith in Cesc Fabregas is as clear as water**\
+`Como have beaten Juve back-to-back for the first time since 1952. It shows the level of their rise under Fabregas, who has surprised many`\
+https://nytimes.com/athletic/7065282/2026/02/23/serie-a-briefing-como-fabregas/
+
 **TAFC: Miami opener gets Messi, are Tottenham really relegation candidates?**\
 `Today in TAFC: Inter Miami's opening MLS match turns sour. Plus: Tottenham lurking just above relegation zone after loss to Arsenal.`\
 https://nytimes.com/athletic/7065303/2026/02/23/messi-mls-lafc-referee-tottenham-relegation/
