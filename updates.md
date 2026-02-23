@@ -1,3 +1,7 @@
+**Sources: Griezmann in advanced talks to join Orlando City from Atletico**\
+`Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
+https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
+
 **Restaurants in a Blizzard Face a Make-or-Break Question: Do We Open?**\
 `Across New York City, restaurateurs and cafe owners weigh logistics and the safety of staff against the demands of customers and a slow winter.`\
 https://nytimes.com/2026/02/23/dining/nyc-restaurants-blizzard.html

@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-commu
 `Carl Anka analyses the main talking points from Manchester United's victory at Everton`\
 https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analysis/
 
-**Griezmann in advanced discussions to join Orlando City from Atletico**\
+**Sources: Griezmann in advanced talks to join Orlando City from Atletico**\
 `Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
 
