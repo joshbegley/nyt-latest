@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Feb. 23, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/23/todays-new-york-times
+
+**No, Trump Isn’t Good for Putin**\
+`Russian hopes for respect have been dashed.`\
+https://nytimes.com/2026/02/23/opinion/putin-trump-russia-ukraine.html
+
+**The ‘Scrubs’ Reboot, Plus 6 Things to Watch on TV This Week**\
+`The medical comedy is back for another run, and the 50th season of “Survivor” is set to begin.`\
+https://nytimes.com/2026/02/23/arts/television/scrubs-reboot-watch-on-tv-this-week.html
+
 **Brandin Podziemski's late-game surge leads Warriors past Nuggets: 'It was phenomenal'**\
 `Podziemski came off the bench and finished with 18 points, a career-high 15 rebounds, nine assists and a steal in the Warriors' 128-117 win.`\
 https://nytimes.com/athletic/7065029/2026/02/23/brandin-podziemski-warriors-nuggets-result-score/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7064377/2026/02/23/tottenham-premier-league-tudor/
 **Forest did everything but score against Liverpool. Where will the goals come from?**\
 `Vitor Pereira brought hope as Forest dominated Liverpool for long spells. But this was the 13th time they have failed to score this season`\
 https://nytimes.com/athletic/7063965/2026/02/23/nottingham-forest-goals-hudson-odoi-gibbs-white-pereira/
-
-**Inside the mind of Eileen Gu, Winter Olympics superstar — and so much more**\
-`She has won the most gold medals of any free skier, is the highest earner at the 2026 Winter Olympics and is so much more besides`\
-https://nytimes.com/athletic/7063817/2026/02/23/eileen-gu-inside-the-mind/
-
-**The Briefing: Will Arsenal's ability or mentality decide the title? Are Spurs the league's worst team right now?**\
-`The key talking points from the Premier League weekend`\
-https://nytimes.com/athletic/7064052/2026/02/23/arsenal-ability-mentality/
-
-**The day Arsenal went on the attack**\
-`“We showed what we are made of but then you have to show it again and again and again,” says Arteta`\
-https://nytimes.com/athletic/7063472/2026/02/23/arsenal-saka-attack/
 
