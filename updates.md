@@ -1,3 +1,19 @@
+**Andy Roddick signs 'multi-year' deal with ESPN**\
+`Roddick will serve as an analyst for both match and studio coverage during Wimbledon and the U.S. Open.`\
+https://nytimes.com/athletic/7066185/2026/02/23/andy-roddick-tennis-coverage-wimbeldon-us-open/
+
+**Another C.D.C. Vaccine Skeptic Steps Down**\
+`Dr. Ralph Abraham, the agency’s principal deputy director, has called the Covid vaccines “dangerous.” Other skeptics have recently left federal health roles.`\
+https://nytimes.com/2026/02/23/health/cdc-ralph-abraham.html
+
+**Trinidad Chambliss jumps up Heisman odds board after eligibility ruling**\
+`Ole Miss quarterback Trinidad Chambliss will be back for one final year and will be one of the favorites to win the Heisman Trophy.`\
+https://nytimes.com/athletic/7065811/2026/02/23/trinidad-chambliss-heisman-odds-eligibility-ruling/
+
+**‘A Cocked Pistol Aimed at Iran’**\
+`Trump is gambling dangerously with military power, says the Times Opinion columnist David French on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010724005/a-cocked-pistol-aimed-at-iran.html
+
 **U.K. Police Arrest Ex-Ambassador to U.S. Amid Epstein Accusations**\
 `Peter Mandelson is being investigated over accusations of “misconduct in public office” amid his dealings with Jeffrey Epstein, the sex offender.`\
 https://nytimes.com/2026/02/23/world/europe/peter-mandelson-epstein-uk.html
