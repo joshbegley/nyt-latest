@@ -1,3 +1,7 @@
+**Winter Olympics Day 16 recap: U.S. men win hockey gold; Eileen Gu defends freeski crown**\
+`Jack Hughes' "Golden Goal" lifts Team USA hockey past Canada, Gu cements freestyle legacy, other news from the final day of the Olympics.`\
+https://nytimes.com/athletic/7064260/2026/02/22/olympics-recap-usa-hockey-gold-eileen-gu-freeski/
+
 **Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
 `From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
 https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7064639/2026/02/22/jacob-bridgeman-genesis-invitati
 **Lakers unveil Pat Riley statue to honor 'Showtime' basketball pioneer**\
 `In eight-plus seasons in L.A., Riley won 533 games, second-most in team history, leading all Lakers coaches with a 73.3 win percentage.`\
 https://nytimes.com/athletic/7064654/2026/02/22/lakers-unveil-pat-riley-statue-to-honor-pioneer-of-showtime-basketball/
-
-**Yankees radio legend John Sterling says he had a heart attack in January**\
-`Sterling said that "all things" are good and credited his children for taking care of him during his recovery.`\
-https://nytimes.com/athletic/7064718/2026/02/22/john-sterling-heart-attack-yankees/
 

@@ -1,3 +1,7 @@
+**Winter Olympics Day 16 recap: U.S. men win hockey gold; Eileen Gu defends freeski crown**\
+`Jack Hughes' "Golden Goal" lifts Team USA hockey past Canada, Gu cements freestyle legacy, other news from the final day of the Olympics.`\
+https://nytimes.com/athletic/7064260/2026/02/22/olympics-recap-usa-hockey-gold-eileen-gu-freeski/
+
 **Pat Riley on LeBron, Heat Big Three: 'I saw something I thought could last 8-10 years'**\
 `From 2010-14, that Big Three core turned the NBA on its head one game, victory, NBA Finals appearance and alley-oop at a time.`\
 https://nytimes.com/athletic/7064790/2026/02/22/pat-riley-lebron-james-heat-legacy-big-three/
