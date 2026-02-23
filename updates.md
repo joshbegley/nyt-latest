@@ -1,3 +1,11 @@
+**Trump invites gold-winning U.S. men's hockey teams to State of the Union**\
+`The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
+https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
+
+**Grading each NBA team as the season's stretch run begins**\
+`With less than two months left in the season, are teams performing up to their expectations, and what's the outlook the rest of the way?`\
+https://nytimes.com/athletic/7063911/2026/02/23/nba-grades-all-star-break-stretch-run/
+
 **The Bucks have a promising young trio of guards. Can they mesh with Giannis?**\
 `Ryan Rollins, Kevin Porter Jr. and Cam Thomas can all score and like to do so. But Giannis will need the ball in his hands when he returns.`\
 https://nytimes.com/athletic/7065349/2026/02/23/bucks-guards-rollins-porter-thomas-giannis/
