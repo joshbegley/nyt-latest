@@ -1,3 +1,7 @@
+**Trump invites gold-winning U.S. men's hockey teams to State of the Union**\
+`The president called into the postgame celebration via FBI Director Kash Patel Sunday to deliver the invite.`\
+https://nytimes.com/athletic/7065529/2026/02/23/trump-state-of-union-gold-medal-hockey-teams/
+
 **Grading each NBA team as the season's stretch run begins**\
 `With less than two months left in the season, are teams performing up to their expectations, and what's the outlook the rest of the way?`\
 https://nytimes.com/athletic/7063911/2026/02/23/nba-grades-all-star-break-stretch-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065683/2026/02/23/college-baseball-rankings-southe
 **Lakers' offense is still inconsistent despite their big 3: 'We're not there yet'**\
 `In Sunday's loss to the Celtics, the Lakers showed they're still not as connected as they should be.`\
 https://nytimes.com/athletic/7065235/2026/02/23/lakers-celtics-loss-luka-doncic-lebron-james/
-
-**Bundesliga Briefing: Ache’s bicycle-kick brilliance, but celebration police out for Dortmund**\
-`Whatever else Ache does in his career, he has his signature moment — and a very high chance of having scored the goal of the season`\
-https://nytimes.com/athletic/7065408/2026/02/23/bundesliga-ache-scissor-kick-dortmund-fabio-silva/
 
