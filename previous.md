@@ -1,3 +1,27 @@
+**Top Fed Official Sees Little Effect on Rate Outlook From Supreme Court’s Tariff Ruling**\
+`Christopher J. Waller, a Federal Reserve governor, said he would support a pause in rate cuts in March if the labor market continued to show signs of stabilizing.`\
+https://nytimes.com/2026/02/23/business/waller-fed-supreme-court-tariffs-rates.html
+
+**Trump Administration Live Updates: U.S. to ‘Reconstruct’ Tariffs After Supreme Court Loss**\
+``\
+https://nytimes.com/live/2026/02/23/us/trump-news
+
+**Reds leadoff man TJ Friedl understands his assignment: get on base**\
+`Friedl's ability to generate offense is at the heart of the Reds' game-winning strategy. `\
+https://nytimes.com/athletic/7064666/2026/02/23/reds-spring-training-tj-friedl-on-base-2026/
+
+**2026 MLS Anonymous Executive Survey, Part 1: Key figures dish on league's bests, worsts**\
+`For a fifth year running, we've asked top club officials for their candid thoughts on topics and themes around MLS. Here's what they said`\
+https://nytimes.com/athletic/7058062/2026/02/23/mls-anonymous-executive-survey-2026-best-worst-players-clubs-coaches/
+
+**Lowetide: Five takeaways for McDavid and the Oilers from the Olympics**\
+`What's to be learned by McDavid and the Oilers from the Olympic experience that wrapped up Sunday?`\
+https://nytimes.com/athletic/7063829/2026/02/23/connor-mcdavid-olympics-2026-edmonton-oilers-takeaways/
+
+**How to watch the 2026 NFL Scouting Combine this week**\
+`Here's how to see the next crop of NFL prospects show out, clock in and measure up.`\
+https://nytimes.com/athletic/7058882/2026/02/23/nfl-draft-combine-how-to-watch-2026-schedule/
+
 **Mirtle: What lessons can Canada's men take from silver-lined Olympics?**\
 `There's a lot more to consider regarding Canada's total experience at these Games than just Sunday's gold medal game loss.`\
 https://nytimes.com/athletic/7064845/2026/02/23/olympic-hockey-canada-men-lessons/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7059879/2026/02/23/eagles-2026-nfl-combine-nick-sir
 **Advocaat resigns as Curacao manager months before nation's World Cup debut**\
 `The 78-year-old has resigned to look after his daughter, who has health issues. `\
 https://nytimes.com/athletic/7065442/2026/02/23/dick-advocaat-curacao-manager-world-cup/
-
-**Inside Real Madrid: 'Sadness but no surprise' after Vinicius Jr ‘die’ chants**\
-`The Brazilian 25-year-old was again targeted in Saturday's 2-1 defeat at Osasuna, a result that saw Barcelona retake the lead in La Liga`\
-https://nytimes.com/athletic/7065342/2026/02/23/real-madrid-vinicius-jr-osasuna-la-liga-barcelona/
-
-**FPL Gameweek 27 review: Arsenal and Chelsea’s turning tide, risky O’Reilly and Fulham’s ripe run**\
-`Whether you climbed the rankings or were left frustrated by missed chances and rotation, there’s plenty to unpack from the weekend’s action`\
-https://nytimes.com/athletic/7064104/2026/02/23/fantasy-premier-league-gameweek-27-fpl-tips-arsenal-oreilly/
-
-**Serie A Briefing: Como players' total faith in Cesc Fabregas is as clear as water**\
-`Como have beaten Juve back-to-back for the first time since 1952. It shows the level of their rise under Fabregas, who has surprised many`\
-https://nytimes.com/athletic/7065282/2026/02/23/serie-a-briefing-como-fabregas/
-
-**TAFC: Miami opener gets Messi, are Tottenham really relegation candidates?**\
-`Today in TAFC: Inter Miami's opening MLS match turns sour. Plus: Tottenham lurking just above relegation zone after loss to Arsenal.`\
-https://nytimes.com/athletic/7065303/2026/02/23/messi-mls-lafc-referee-tottenham-relegation/
-
-**Julian Sayin has already been a Heisman finalist. What can he do to get even better?**\
-`The Ohio State quarterback nearly broke the FBS completion percentage record in his first year starting. Here's what could be next.`\
-https://nytimes.com/athletic/7060347/2026/02/23/julian-sayin-ohio-state-stats-film-2026/
-
-**The Next Conflict**\
-`We’re looking at the potential for a U.S. attack on Iran.`\
-https://nytimes.com/2026/02/23/briefing/potential-conflict-iran.html
 
