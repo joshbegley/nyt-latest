@@ -1,3 +1,11 @@
+**Loftus-Cheek to undergo surgery on fractured teeth and jaw**\
+`Loftus-Cheek, 30, was taken off on a stretcher with his head in a brace following a collision during Milan's defeat to Parma.`\
+https://nytimes.com/athletic/7065330/2026/02/23/ruben-loftus-cheek-injury-surgery/
+
+**Widespread violence in Mexico forces matches to be suspended**\
+`Monday's fixture between Queretaro and FC Juarez was called off after the death of cartel leader 'El Mencho' has sparked major disruption.`\
+https://nytimes.com/athletic/7065274/2026/02/23/liga-mx-mexico-match-suspension-violence-world-cup/
+
 **The Best and Worst Moments From the 2026 BAFTAs**\
 `Alan Cumming forced fishy British snacks onto movie stars. Paddington Bear presented an award. And there was more swearing, and racial curses, than this awards show has ever heard.`\
 https://nytimes.com/2026/02/23/movies/baftas-best-worst-moments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7058456/2026/02/23/colts-chris-ballard-combine-ques
 **Everything the Jets need to figure out at the NFL combine**\
 `In addition to the quarterback question and Breece Hall's future, the Jets are looking to establish new identities on offense and defense.`\
 https://nytimes.com/athletic/7063616/2026/02/23/new-york-jets-nfl-combine-draft-free-agency/
-
-**NFL free-agency rankings 2026: Top 10 players at each position**\
-`The running back class is both top-heavy and deep, but shopping at the top of the receiver market could be risky. What about the QB market?`\
-https://nytimes.com/athletic/7056606/2026/02/23/nfl-free-agency-rankings-2026-positions/
-
-**Pressing questions and prospects to watch for the Steelers at the NFL Combine**\
-`What GM Omar Khan will be asked to address, and the players to keep an eye on.`\
-https://nytimes.com/athletic/7060353/2026/02/23/pittsburgh-steelers-nfl-combine-draft-free-agency/
 

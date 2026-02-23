@@ -1,3 +1,11 @@
+**Loftus-Cheek to undergo surgery on fractured teeth and jaw**\
+`Loftus-Cheek, 30, was taken off on a stretcher with his head in a brace following a collision during Milan's defeat to Parma.`\
+https://nytimes.com/athletic/7065330/2026/02/23/ruben-loftus-cheek-injury-surgery/
+
+**Widespread violence in Mexico forces matches to be suspended**\
+`Monday's fixture between Queretaro and FC Juarez was called off after the death of cartel leader 'El Mencho' has sparked major disruption.`\
+https://nytimes.com/athletic/7065274/2026/02/23/liga-mx-mexico-match-suspension-violence-world-cup/
+
 **The Best and Worst Moments From the 2026 BAFTAs**\
 `Alan Cumming forced fishy British snacks onto movie stars. Paddington Bear presented an award. And there was more swearing, and racial curses, than this awards show has ever heard.`\
 https://nytimes.com/2026/02/23/movies/baftas-best-worst-moments.html
