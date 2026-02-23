@@ -1,3 +1,7 @@
+**College baseball week in review: UCLA looks the part, Auburn gets offensive**\
+`Kent State shocks Tennessee in Knoxville. USC's pitching continues to dominate. Injury concerns at Coastal Carolina? `\
+https://nytimes.com/athletic/7065572/2026/02/23/college-baseball-ucla-roch-cholowsky-auburn-tennessee/
+
 **What I'm hearing about Canucks' plans as NHL trade activity resumes**\
 `With the deadline approaching, the Canucks are focused on moving their pending unrestricted free agents.`\
 https://nytimes.com/athletic/7064175/2026/02/23/vancouver-canucks-trade-deadline-2026-olympics/
