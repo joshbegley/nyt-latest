@@ -1,3 +1,7 @@
+**Scenes From New York City’s First Real Snow Day in Years**\
+`Across the five boroughs, New Yorkers sledded and frolicked, but the best moments were when the city stood still.`\
+https://nytimes.com/2026/02/23/nyregion/snow-day-blizzard-winter-storm.html
+
 **Having trouble finding Team USA hockey jerseys? You're not alone**\
 `Nike didn't account for Team USA winning gold, and did not produce enough hockey jerseys to meet demand.`\
 https://nytimes.com/athletic/7066268/2026/02/23/team-usa-hockey-jersey-mens-womens-2026-olympics/
