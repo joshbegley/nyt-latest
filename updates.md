@@ -1,3 +1,15 @@
+**Having trouble finding Team USA hockey jerseys? You're not alone**\
+`Nike didn't account for Team USA winning gold, and did not produce enough hockey jerseys to meet demand.`\
+https://nytimes.com/athletic/7066268/2026/02/23/team-usa-hockey-jersey-mens-womens-2026-olympics/
+
+**Monday’s Snowfall Shatters a Record in Rhode Island**\
+`By the afternoon, the snowfall level near Providence — almost 33 inches — obliterated the two-day record set by the infamous Blizzard of 1978.`\
+https://nytimes.com/2026/02/23/weather/rhode-island-snow-record-blizzard-1978.html
+
+**After Bankruptcy, Saks Owner Says He Saved Luxury Department Stores**\
+`Richard Baker wanted to create a retail empire when he combined Saks Fifth Avenue and Neiman Marcus. About a year later, it filed for bankruptcy.`\
+https://nytimes.com/2026/02/23/business/richard-baker-saks-neiman-marcus-bankruptcy.html
+
 **Pentagon Summons Anthropic Chief in Dispute Over A.I. Limits**\
 `The artificial intelligence company has demanded that some guardrails be put in place as it negotiates a contract with the Defense Department.`\
 https://nytimes.com/2026/02/23/us/politics/pentagon-anthropic-ai.html
