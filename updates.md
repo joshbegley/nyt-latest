@@ -1,3 +1,11 @@
+**Carlos Mendoza reflects on what he could have done differently in 2025: 'I fell short'**\
+`Multiple team sources pointed to Mendoza’s communication as occasionally lacking in 2025, but they added that it was a fixable issue.`\
+https://nytimes.com/athletic/7066713/2026/02/23/mets-carlos-mendoza-better-communicator-clubhouse/
+
+**The Briefing: Everton 0 Man United 1 - sub Sesko scores late again as Carrick run continues**\
+`Carl Anka analyses the main talking points from Manchester United's victory at Everton`\
+https://nytimes.com/athletic/7066272/2026/02/23/everton-manchester-united-analysis/
+
 **Griezmann in advanced discussions to join Orlando City from Atletico**\
 `Orlando City sporting director and general manager Ricardo Moreira has been to Spain multiple times to work on the deal.`\
 https://nytimes.com/athletic/7066506/2026/02/23/antoine-griezmann-transfer-orlando-city/
