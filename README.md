@@ -1,3 +1,7 @@
+**Plastic, Plastic Everywhere**\
+`We talk to the author of a new book about why the problem is so hard to solve.`\
+https://nytimes.com/2026/02/24/climate/plastic-plastic-everywhere.html
+
 **Trump Squeezes Cuba**\
 `Many U.S. presidents have tried to bring down the Communist government over almost seven decades. This time, it feels different.`\
 https://nytimes.com/2026/02/24/world/cuba-trump-oil-tourism-russia-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068389/2026/02/24/bucks-marques-johnson-dunk-70/
 **Twenty U.S. men's Olympic hockey players to attend Trump's State of the Union address**\
 `The majority of the roster arrived in Washington on Tuesday morning via a military jet that picked them up after a celebration in Miami.`\
 https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the-union-donald-trump/
-
-**Senate Democrat Opens Inquiry Into Iran Transactions on Binance**\
-`Senator Richard Blumenthal of Connecticut sent a letter to Binance asking about the flow of $1.7 billion from accounts on the crypto exchange to Iranian entities.`\
-https://nytimes.com/2026/02/24/technology/richard-blumenthal-iran-binance-inquiry.html
 
