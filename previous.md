@@ -1,3 +1,7 @@
+**FedEx Sues for Refund of Trump Tariffs Rejected by Supreme Court**\
+`The company, which did not specify how much it was seeking, is expected to be one of many demanding compensation for levies ruled unlawful.`\
+https://nytimes.com/2026/02/23/business/fedex-lawsuit-tariffs-refund.html
+
 **Trump Says Top General Sees Easy Victory if U.S. Attacks Iran**\
 `The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
 https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/us/tony-gonzales-texas-texts-staff-resign.html
 **4-star QB Gunner Rivers, son of Philip Rivers, commits to NC State**\
 `Rivers is the No. 125 overall prospect and the No. 10 quarterback in the 247Sports Composite.`\
 https://nytimes.com/athletic/7066945/2026/02/23/philip-rivers-son-gunner-4-star-qb-commits-nc-state/
-
-**The Workers Who Couldn’t Stay Home**\
-`Despite the snowstorm battering the New York area, workers whose jobs require them to show up in person found ways to attend to their duties.`\
-https://nytimes.com/2026/02/23/weather/nyc-snow-blizzard-jobs-work-commute.html
 
