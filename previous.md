@@ -1,3 +1,11 @@
+**What we learned from Chargers GM Joe Hortiz's combine news conference**\
+`While Tyler Linderbaum is a logical Chargers target, Ravens GM Eric DeCosta said the team has offered him a "market-setting" contract.`\
+https://nytimes.com/athletic/7068175/2026/02/24/joe-hortiz-chargers-combine-2026-takeaways/
+
+**Justice Department Sues University of California After It Refused to Pay $1 Billion Fine**\
+`The Trump administration accused the University of California, Los Angeles, of not doing enough to curb antisemitism.`\
+https://nytimes.com/2026/02/24/us/justice-department-ucla-lawsuit.html
+
 **NHL trade grades: Avalanche pay a premium to get Brett Kulak from Penguins**\
 `Brett Kulak is a good fit for the Avalanche but giving up Sam Girard and a draft pick is a steep price.`\
 https://nytimes.com/athletic/7068244/2026/02/24/nhl-trade-grades-brett-kulak-sam-girard-avalanche-penguins/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/24/us/politics/catholic-clergy-migrant-protections-t
 **The Sexual Immaturity of ‘Wuthering Heights’**\
 `Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
 https://nytimes.com/video/podcasts/100000010733282/the-sexual-immaturity-of-wuthering-heights.html
-
-**Remembering Demond Wilson, the Great Comedic Foil on ‘Sanford and Son’**\
-`Wesley Morris, host of “Cannonball,” remembers Demond Wilson, the son on the 1970s show “Sanford and Son.”`\
-https://nytimes.com/video/podcasts/100000010733266/remembering-demond-wilson-the-great-comedic-foil-on-sanford-and-son.html
-
-**Restaurant Review: Wild Cherry**\
-`One of New York City’s most sought-after reservations, Wild Cherry sits inside an old West Village playhouse where it winks at the past.`\
-https://nytimes.com/video/dining/100000010733272/restaurant-review-wild-cherry.html
 

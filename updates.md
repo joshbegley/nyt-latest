@@ -1,3 +1,11 @@
+**What we learned from Chargers GM Joe Hortiz's combine news conference**\
+`While Tyler Linderbaum is a logical Chargers target, Ravens GM Eric DeCosta said the team has offered him a "market-setting" contract.`\
+https://nytimes.com/athletic/7068175/2026/02/24/joe-hortiz-chargers-combine-2026-takeaways/
+
+**Justice Department Sues University of California After It Refused to Pay $1 Billion Fine**\
+`The Trump administration accused the University of California, Los Angeles, of not doing enough to curb antisemitism.`\
+https://nytimes.com/2026/02/24/us/justice-department-ucla-lawsuit.html
+
 **NHL trade grades: Avalanche pay a premium to get Brett Kulak from Penguins**\
 `Brett Kulak is a good fit for the Avalanche but giving up Sam Girard and a draft pick is a steep price.`\
 https://nytimes.com/athletic/7068244/2026/02/24/nhl-trade-grades-brett-kulak-sam-girard-avalanche-penguins/
