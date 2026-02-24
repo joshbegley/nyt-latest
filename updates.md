@@ -1,3 +1,15 @@
+**Yes, Chicago Names Its Snowplows. The Latest Choice: ‘Abolish ICE.’**\
+`An annual snowplow naming contest usually draws lighthearted quips. This year, Chicagoans picked a political pun.`\
+https://nytimes.com/2026/02/24/us/chicago-snowplow-contest-ice.html
+
+**Madrid's Mbappe a serious doubt for UCL decider vs. Benfica**\
+`The 27-year-old has played 90 minutes in the Spanish side's last two games but has been experiencing pain since December.`\
+https://nytimes.com/athletic/7068488/2026/02/24/kylian-mbappe-real-madrid-injury-update-benfica/
+
+**U.S. hopeful Cardoso's stunner helps Atletico Madrid through in UCL**\
+`The timing couldn't be better for Cardoso, who hopes to carve out a place in Mauricio Pochettino's side next month`\
+https://nytimes.com/athletic/7068625/2026/02/24/johnny-cardoso-goal-usmnt-atletico-madrid-champions-league/
+
 **The U.S. men's Olympic hockey team won gold — and then lost the room**\
 `The widespread celebration is over now. And some of the U.S. men's Olympic hockey team's goodwill has diminished.`\
 https://nytimes.com/athletic/7068426/2026/02/24/usa-mens-olympics-hockey-gold-donald-trump/

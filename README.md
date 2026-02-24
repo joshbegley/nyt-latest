@@ -1,3 +1,7 @@
+**Trump Squeezes Cuba**\
+`Many U.S. presidents have tried to bring down the Communist government over almost seven decades. This time, it feels different.`\
+https://nytimes.com/2026/02/24/world/cuba-trump-oil-tourism-russia-economy.html
+
 **Yes, Chicago Names Its Snowplows. The Latest Choice: ‘Abolish ICE.’**\
 `An annual snowplow naming contest usually draws lighthearted quips. This year, Chicagoans picked a political pun.`\
 https://nytimes.com/2026/02/24/us/chicago-snowplow-contest-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the
 **Senate Democrat Opens Inquiry Into Iran Transactions on Binance**\
 `Senator Richard Blumenthal of Connecticut sent a letter to Binance asking about the flow of $1.7 billion from accounts on the crypto exchange to Iranian entities.`\
 https://nytimes.com/2026/02/24/technology/richard-blumenthal-iran-binance-inquiry.html
-
-**The Epstein Files**\
-`Times reporters and editors are digging through millions of pages of Jeffrey Epstein documents released by the Justice Department, and tracking the fallout.`\
-https://nytimes.com/spotlight/epstein-files
 
