@@ -1,3 +1,7 @@
+**Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
+`In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
+https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
+
 **Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
 `Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works that drew wide acclaim.`\
 https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7068874/2026/02/24/jj-mccarthy-vikings-nfl-combine-
 **Attorneys for driver accused of killing Gaudreau brothers seek to dismiss charges**\
 `The defense is arguing that blood alcohol testing done on their client on the night of the crash produced an inaccurate result.`\
 https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-lawyer-seeks-dismissal-charges/
-
-**Trump Will Deliver His State of the Union Address**\
-`Also, most teens use A.I. chatbots for schoolwork. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/02/24/briefing/trump-state-of-the-union-teens-ai-chatbots.html
 
