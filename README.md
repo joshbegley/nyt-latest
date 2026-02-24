@@ -1,3 +1,11 @@
+**Trump Will Deliver His State of the Union Address**\
+`Also, most teens use A.I. chatbots for schoolwork. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/02/24/briefing/trump-state-of-the-union-teens-ai-chatbots.html
+
+**John Lynch on Trent Williams contract stalemate: 'We're on the right track'**\
+`Williams turns 38 in July and is entering the final year of his contract with a cap hit of almost $39 million in 2026.`\
+https://nytimes.com/athletic/7068919/2026/02/24/trent-williams-contract-49ers-free-agency/
+
 **Michkov is working to put sophomore struggles behind him. Chris Pronger can relate**\
 `"It's learning the process of what it takes to be a true pro," said the Hall of Fame defenseman and former Flyers captain.`\
 https://nytimes.com/athletic/7068815/2026/02/24/matvei-michkov-flyers-fitness-tocchet-chris-pronger/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/polls/texas-us-house-9-polls-2026.html
 **Texas 38th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Texas's 38th Congressional District.`\
 https://nytimes.com/interactive/polls/texas-us-house-38-polls-2026.html
-
-**Texas 34th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 34th Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-34-polls-2026.html
-
-**Texas 33rd Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 33rd Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-33-polls-2026.html
 
