@@ -1,40 +1,40 @@
-**Quote of the Day: Judges Lose Patience on Immigration Defiance**\
-`Quotation of the Day for Tuesday, February 24, 2026.`\
-https://nytimes.com/2026/02/23/pageoneplus/quote-of-the-day-judges-lose-patience-on-immigration-defiance.html
+**Row Z: Sheikh Brendan, the politicisation of headwear and Sweden being 'Spursy'**\
+`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
+https://nytimes.com/athletic/7065301/2026/02/24/row-z-brendan-rodgers-spursy/
 
-**Normal night for Darryn Peterson fuels Kansas’ defensive win over Houston**\
-`The Jayhawks led by as many as 20 and used a 12-0 second-half run to take control as Peterson, Melvin Counil and Tre White shined.`\
-https://nytimes.com/athletic/7066769/2026/02/23/darryn-peterson-kansas-houston-defense-council-white/
+**How O'Reilly went from full-back to a perfect fit in Guardiola's midfield**\
+`His size alone sets him apart from other academy graduates and he is now excelling in a new position for the first team`\
+https://nytimes.com/athletic/7065457/2026/02/24/nico-oreilly-midfielder-manchester-city/
 
-**Pentagon Races to Spend $153 Billion in Added Funds for Military**\
-`The Trump administration for months ignored Congress’s demand for a plan on how the Defense Department would spend the money that Republicans pushed through in their sweeping domestic policy bill.`\
-https://nytimes.com/2026/02/23/us/politics/pentagon-military-congress-spending.html
+**Newcastle's leadership group is essential to the club's success - but it needs reinforcements**\
+`The departure of long-standing club captain Jamaal Lascelles makes recruiting players with leadership qualities an imperative this summer`\
+https://nytimes.com/athletic/7066371/2026/02/24/newcastle-leadership-group-guimaraes-burn-tripper/
 
-**Milan Cortina Olympics draw largest audience since 2014, NBC says**\
-`The average of 23.5 million does not include final numbers on Sunday's men's hockey gold medal game between the U.S. and Canada.`\
-https://nytimes.com/athletic/7067143/2026/02/23/winter-olympics-tv-streaming-ratings-2026/
+**Where should Harry Wilson go next?**\
+`The Welshman's form for Fulham in 2025-26 means he is likely to have several suitors in the summer – but which club would be the best fit?`\
+https://nytimes.com/athletic/7026756/2026/02/24/harry-wilson-aston-villa-everton-fulham-italy/
 
-**Emma Raducanu leaves Nike for Uniqlo in fashion sponsorship switch**\
-`Nike signed Raducanu in 2018, three years before her breakthrough at the U.S. Open.`\
-https://nytimes.com/athletic/6893507/2026/02/23/emma-raducanu-leaves-nike-for-uniqlo/
+**These Ukrainians Don’t Want to Be Traded to Russia for Peace**\
+`Four years into the war, a major sticking point in talks is control of the eastern Donetsk region. Residents could face an agonizing choice if Ukraine gives up the territory.`\
+https://nytimes.com/2026/02/24/world/europe/ukraine-war-donetsk.html
 
-**Pretty Large Jazz Combo**\
-`Adam Aaronson’s Tuesday puzzle serenades us.`\
-https://nytimes.com/2026/02/23/crosswords/daily-puzzle-2026-02-24.html
+**After Six Decades of the War on Drugs, What Works?**\
+`The U.S. and its allies have spilled blood and treasure to kill drug lords and defeat cartels, but the drugs keep coming and the new groups are more violent than ever.`\
+https://nytimes.com/2026/02/24/world/americas/mexico-war-on-drugs.html
 
-**Two-time WNBA champion Kara Braxton dies at 43 after car crash in Georgia**\
-`Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
-https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/
+**What Brontë Country Tells Us About Britain Today**\
+`Whatever you make of Emerald Fennell’s R-rated “Wuthering Heights” movie, the region where the original novel was written is worth revisiting in its own right.`\
+https://nytimes.com/2026/02/24/world/europe/bronte-country-haworth-bradford-uk-today.html
 
-**In Blow to Mamdani, Left-Leaning Group Breaks With Mayor Over U.S. House Race**\
-`Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
-https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html
+**How Russia Put Its Future at Risk by Remaking Its Economy for War**\
+`About half of the country’s federal budget goes toward the fight in Ukraine, money that does little to support its long-term development.`\
+https://nytimes.com/2026/02/24/world/europe/russia-ukraine-war-future.html
 
-**‘Mother Russia’ Review: A New Play That’s as Funny as It’s Smart**\
-`A strong cast stars in Lauren Yee’s new play, part of a cycle of works about the collisions between 20th-century communism and pop culture.`\
-https://nytimes.com/2026/02/23/theater/mother-russia-review.html
+**Safaris, Jets, Dyslexia, Divorce: Gavin Newsom’s Memoir Has It All**\
+`The new book by the California governor and undeclared presidential hopeful depicts a man shaped as much by hardship and struggle as privilege.`\
+https://nytimes.com/2026/02/24/books/review/young-man-in-a-hurry-gavin-newsom.html
 
-**Queens Man Arrested on a Sex Charge Said to Be an Assistant Principal**\
-`Federal prosecutors says Bond Ng used his apartment in Long Island City to arrange for a woman to have sex with clients.`\
-https://nytimes.com/2026/02/23/nyregion/queens-assistant-principal-sex-charge.html
+**Connections: Sports Edition Coach: Hints and answers for Feb. 24, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7067338/2026/02/24/connections-sports-edition-hints-answers-feb-24-2026/
 

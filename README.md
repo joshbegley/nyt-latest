@@ -1,3 +1,15 @@
+**England 2026 World Cup watch: If Arteta can get the best out of Eze, Arsenal and Tuchel can prosper**\
+`If Mikel Arteta can get the best out of Eberechi Eze for the rest of this season, it will boost Arsenal — and England's World Cup prospects`\
+https://nytimes.com/athletic/7065558/2026/02/24/eze-arteta-arsenal-england-tuchel-world-cup/
+
+**Igor Tudor lamented Tottenham's 'bad habits' after Arsenal defeat — so what are they?**\
+`The interim Spurs head coach was unhappy with his new team's performance against Arsenal — this is what will have annoyed him most`\
+https://nytimes.com/athletic/7065823/2026/02/24/tottenham-arsenal-analysis-tudor/
+
+**Breaking down Gyokeres' best Arsenal performance — can he do it regularly?**\
+`He had a direct impact in multiple aspects of play against Spurs, it wasn't just goals. That has to be the blueprint to build from.`\
+https://nytimes.com/athletic/7065697/2026/02/24/viktor-gyokeres-arsenal-tottenham/
+
 **Row Z: Sheikh Brendan, the politicisation of headwear and Sweden being 'Spursy'**\
 `Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7065301/2026/02/24/row-z-brendan-rodgers-spursy/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/24/world/americas/mexico-war-on-drugs.html
 **What Brontë Country Tells Us About Britain Today**\
 `Whatever you make of Emerald Fennell’s R-rated “Wuthering Heights” movie, the region where the original novel was written is worth revisiting in its own right.`\
 https://nytimes.com/2026/02/24/world/europe/bronte-country-haworth-bradford-uk-today.html
-
-**How Russia Put Its Future at Risk by Remaking Its Economy for War**\
-`About half of the country’s federal budget goes toward the fight in Ukraine, money that does little to support its long-term development.`\
-https://nytimes.com/2026/02/24/world/europe/russia-ukraine-war-future.html
-
-**Safaris, Jets, Dyslexia, Divorce: Gavin Newsom’s Memoir Has It All**\
-`The new book by the California governor and undeclared presidential hopeful depicts a man shaped as much by hardship and struggle as privilege.`\
-https://nytimes.com/2026/02/24/books/review/young-man-in-a-hurry-gavin-newsom.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 24, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7067338/2026/02/24/connections-sports-edition-hints-answers-feb-24-2026/
 
