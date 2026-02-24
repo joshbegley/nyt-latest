@@ -1,3 +1,19 @@
+**N.Y.P.D. Reviewing Videos Showing Officers Being Hit With Snowballs**\
+`Dozens of people gathered in Washington Square Park in New York City on Monday for a snowball fight. The event turned chaotic when the police, who were called to control the crowd, arrived at the scene and were pelted with snowballs.`\
+https://nytimes.com/video/us/100000010733470/nypd-police-snowball-fight.html
+
+**Prime Tire: Big questions facing F1 after testing**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7068427/2026/02/24/f1-testing-2026-season-prime-tire/
+
+**World Of ...**\
+``\
+https://nytimes.com/column/world-of
+
+**Justice Dept. Sues U. of California After It Refused to Pay $1 Billion Fine**\
+`The Trump administration accused the University of California, Los Angeles, of not doing enough to curb antisemitism.`\
+https://nytimes.com/2026/02/24/us/justice-department-ucla-lawsuit.html
+
 **What we learned from Chargers GM Joe Hortiz's combine news conference**\
 `While Tyler Linderbaum is a logical Chargers target, Ravens GM Eric DeCosta said the team has offered him a "market-setting" contract.`\
 https://nytimes.com/athletic/7068175/2026/02/24/joe-hortiz-chargers-combine-2026-takeaways/
