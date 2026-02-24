@@ -1,40 +1,40 @@
-**TAFC: UEFA bans Benfica’s Prestianni over alleged racist abuse. Plus: FIFA worry over Mexico cartel violence**\
-`Today in TAFC: Benfica’s Prestianni will miss Champions League game in Madrid. Plus: Is Mexico's World Cup qualifying playoff event at risk?`\
-https://nytimes.com/athletic/7067543/2026/02/24/uefa-bans-prestianni-alleged-racist-abuse-plus-fifa-worry-over-mexico-cartel-violence/
+**Sesko says Carrick is preparing him to start Man United games: 'He believes in me'**\
+`The 22-year-old coming off the bench in all of six of Carrick's United games, scoring in three of them.`\
+https://nytimes.com/athletic/7067617/2026/02/24/sesko-news-united-carrick-everton-bench-goal/
 
-**Victor Wembanyama, Spurs conquer Pistons' physicality, make case as title favorites**\
-`After another huge Wemby performance, this one against the league's top team, the Spurs look like they could win it all.`\
-https://nytimes.com/athletic/7067375/2026/02/24/spurs-win-pistons-victor-wembanyama-title-favorites/
+**German FA chief 'not really' looking forward to World Cup after Guadalajara violence**\
+`Asked whether he was looking forward to this summer’s tournament, DFB managing director Andreas Rettig said: "To be honest, not right now".`\
+https://nytimes.com/athletic/7067589/2026/02/24/guadalajara-violence-world-cup-germany-fa/
 
-**Arrest of Ex-Ambassador Peter Mandelson Rattles U.K. Politics**\
-`The arrest of the British former envoy to Washington, long a key figure in the Labour Party, deepened a scandal that has led to calls for Prime Minister Keir Starmer’s resignation.`\
-https://nytimes.com/2026/02/24/world/europe/mandelson-arrest-epstein-starmer-uk.html
+**Leafs player poll: Least likely to pick up the cheque? Summer road-trip crew? Who'd win a fight?**\
+`To get a glimpse of team dynamics, we asked 20 Maple Leafs about their teammates.`\
+https://nytimes.com/athletic/7059649/2026/02/24/maple-leafs-player-poll-2026-part-1/
 
-**The Pulse: Oh look, football’s already back**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7066351/2026/02/24/nfl-scouting-combine-storylines-the-pulse/
+**How much could the Seahawks' free agents cost? Here's how the market might look**\
+`For Seahawks GM John Schneider, this week is as much about canvassing the market as it is about scouting draft prospects.`\
+https://nytimes.com/athletic/7066526/2026/02/24/seahawks-free-agents-nfl-combine-kenneth-walker/
 
-**Kepner: In a system stacked against them, the Guardians double down on their identity — with no apologies**\
-`Despite one of MLB's lowest payrolls, the Guardians are expected to once again be in the mix for an AL Central title. `\
-https://nytimes.com/athletic/7065870/2026/02/24/cleveland-guardians-identity-strategy-jose-ramirez/
+**College softball power rankings: Who's rising, who's slipping and 4 key takeaways**\
+`Tennessee, still undefeated, holds onto its spot as the No. 1 team in the nation. `\
+https://nytimes.com/athletic/7066663/2026/02/24/college-softball-power-rankings/
 
-**What is Bryce Harper thinking? On baseball, boredom and being a kid, again, in the WBC**\
-`"I still have a lot to prove to myself," said Harper, one of this generation's greats. It feels like something larger is at stake in 2026.`\
-https://nytimes.com/athletic/7066709/2026/02/24/bryce-harper-phillies-2026-season-wbc/
+**Jonathan Toews weighs in on NHL trade deadline: 'I wouldn't consider going anywhere'**\
+`The 37-year-old centre wants to stay with his hometown team, despite Winnipeg sitting 11 points outside the Western Conference playoffs.`\
+https://nytimes.com/athletic/7066611/2026/02/24/jets-jonathan-toews-nhl-trade-deadline-locker-room/
 
-**Will A.J. Brown play for the Eagles in 2026? Howie Roseman speaks on OL, TE, more**\
-`Roseman and coach Nick Sirianni have both said they want Brown to stay with the Eagles.`\
-https://nytimes.com/athletic/7062542/2026/02/24/eagles-aj-brown-howie-roseman-offensive-line/
+**NCAA Tournament Bracket Watch: Duke jumps Michigan; committee gives clues**\
+`The selection committee gave us actual, verified evaluations of teams — and then those teams went out and rearranged the picture.`\
+https://nytimes.com/athletic/7066438/2026/02/24/ncaa-tournament-bracket-projections-duke-michigan/
 
-**Cowboys seem fine with George Pickens playing next season under franchise tag**\
-`Cowboys executive vice president Stephen Jones spoke in Indianapolis about Pickens, creating cap space and new DC Christian Parker.`\
-https://nytimes.com/athletic/7066973/2026/02/24/cowboys-combine-george-pickens-franchise-tag/
+**Grading the Big 12's transfer portal classes, from Texas Tech's ‘A’ to Iowa State's ‘D’**\
+`Five Big 12 schools made The Athletic’s ranking of the top 25 transfer portal classes.`\
+https://nytimes.com/athletic/7055484/2026/02/24/big-12-transfer-portal-grades-texas-tech-iowa-state-colorado-oklahoma-state/
 
-**College hoops thoughts: Seth Trimble's 30 lead UNC; Houston has a problem**\
-`Plus a wild night in the Southland Conference when the Privateers pulled off a 77-73 upset of the Lumberjacks.`\
-https://nytimes.com/athletic/7067429/2026/02/24/seth-trimble-unc-kansas-houston-college-basketball/
+**Liverpool's Ngumoha keen on 'more minutes' after star cameo in Forest win**\
+`The 17-year-old, who has yet to make a Premier League start, has made a big impact off the bench in the victory at the City Ground.`\
+https://nytimes.com/athletic/7066649/2026/02/24/rio-ngumoha-liverpool-matches/
 
-**Blue Jackets' Werenski won't be the same after winning gold, says two-time winner Nash**\
-`Werenski and Nash are the only two Blue Jackets players to have won Olympic gold medals.`\
-https://nytimes.com/athletic/7067119/2026/02/24/zach-werenski-olympics-gold-blue-jackets/
+**Trinidad Chambliss, Arch Manning and how the SEC may get its swagger back**\
+`The SEC, in its quest to return to college football preeminence, should enter 2026 fairly loaded in a key area: experienced quarterbacks.`\
+https://nytimes.com/athletic/7045449/2026/02/24/sec-qbs-2026-trinidad-chambliss-arch-manning/
 
