@@ -1,3 +1,11 @@
+**Two-time WNBA champion Kara Braxton dies at 43 after car crash in Georgia**\
+`Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
+https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/
+
+**Working Families Party Backs Reynoso for Congress, Breaking With Mamdani**\
+`Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
+https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html
+
 **‘Mother Russia’ Review: A New Play That’s as Funny as It’s Smart**\
 `A strong cast stars in Lauren Yee’s new play, part of a cycle of works about the collisions between 20th-century communism and pop culture.`\
 https://nytimes.com/2026/02/23/theater/mother-russia-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
 **What the Snowstorm Looked Like Across the Northeast**\
 `Record-breaking amounts of snow fell in many parts of the region, blanketing the area with snow in the second large storm of the year.`\
 https://nytimes.com/2026/02/23/nyregion/snow-storm-photos.html
-
-**Even in a Blizzard, Food Delivery in New York City Continues**\
-`On Monday, Mayor Zohran Mamdani banned nearly all traffic from the streets. Among the exceptions were emergency vehicles and electric delivery bikes.`\
-https://nytimes.com/2026/02/23/nyregion/nyc-winter-storm-deliverista.html
-
-**Pentagon Pulls Support for Air Safety Bill Written After D.C. Collision**\
-`The legislation, which the House is expected to vote on Tuesday, would require military and commercial aircraft to use certain tracking technology to avoid collisions.`\
-https://nytimes.com/2026/02/23/us/politics/rotor-air-safety-dc-plane-crash.html
 

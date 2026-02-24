@@ -1,3 +1,11 @@
+**Two-time WNBA champion Kara Braxton dies at 43 after car crash in Georgia**\
+`Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
+https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/
+
+**Working Families Party Backs Reynoso for Congress, Breaking With Mamdani**\
+`Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
+https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html
+
 **Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**\
 `The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
 https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
