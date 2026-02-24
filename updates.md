@@ -1,3 +1,7 @@
+**Once a top prospect, Luis Matos' Giants career might be at a crossroads**\
+`Matos was called up earlier than expected in 2023 when the Giants needed a left fielder. That decision has put the 2026 team in a pickle.`\
+https://nytimes.com/athletic/7068827/2026/02/24/sf-giants-luis-matos-final-option-year/
+
 **Virginia QB Chandler Morris sues NCAA, seeking 7th season of eligibility: Source**\
 `Morris is the latest to file suit to try to gain a year, following challenges by Ole Miss' Trinidad Chambliss and Tennessee's Joey Aguilar.`\
 https://nytimes.com/athletic/7068848/2026/02/24/chandler-morris-virginia-football-ncaa-lawsuit-eligibility/
