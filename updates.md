@@ -1,3 +1,11 @@
+**How a Style Writer Repurposes Clothes**\
+`Only 15% of discarded clothing and textiles actually gets reused or recycled, according to a 2022 report by the National Institute of Standards and Technology.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010731442/how-a-style-writer-repurposes-clothes.html
+
+**How to Clean a Laptop**\
+`Your laptop is probably dirty. Yes, you. Here’s how to clean it.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010731127/how-to-clean-a-laptop.html
+
 **Braves keep Chris Sale in Atlanta with one-year, $27 million extension**\
 `The deal also includes a $30 million club option for the 2028 season. `\
 https://nytimes.com/athletic/7067755/2026/02/24/atlanta-braves-chris-sale-extension/
