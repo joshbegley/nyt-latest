@@ -1,3 +1,11 @@
+**SEC fines Kentucky coach Mark Pope $25K for postgame comments after Auburn loss**\
+`Pope's comments came after a controversial ending to the Wildcats' third consecutive loss.`\
+https://nytimes.com/athletic/7068277/2026/02/24/kentucky-coach-mark-pope-fined-auburn-basketball/
+
+**'I want the alien': The Wembanyama doodle worth more to Jokić and collectors**\
+`Wembanyama has been adding a little extra artwork to certain autographs over the years and collectors have taken notice. `\
+https://nytimes.com/athletic/7067919/2026/02/24/victor-wembanyama-alien-autograph-jokic/
+
 **Supreme Court Hears Case That Could Decide Fate of Great Lakes Pipeline**\
 `The question before the justices in a lawsuit filed by Michigan seeking to close part of the line was narrow. But the dispute raises broader questions about states’ power to regulate fossil fuels.`\
 https://nytimes.com/2026/02/24/us/politics/supreme-court-great-lakes-pipeline.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/world/europe/merz-germany-china-trip-beijing-xi.h
 **Backers of Aviation Safety Bill Cite Recent Near Miss to Make Their Case**\
 `The legislation’s advocates say a close call between two private planes near Teterboro, N.J., on Feb. 13 underscores the need for more collision prevention technology.`\
 https://nytimes.com/2026/02/24/us/politics/rotor-act-dc-plane-crash-teterboro.html
-
-**Home Depot Says Homeowners Are Weary From Economic Pressures**\
-`Sales fell at the home-improvement retailer, as homeowners shied away from big-ticket home improvement projects amid worries about housing costs and the job market.`\
-https://nytimes.com/2026/02/24/business/home-depot-sales.html
-
-**At Risk: Afghan Allies and America’s Credibility**\
-`Readers discuss the end of visas for Afghan wartime partners. Also: Timely election results; Russian sexual violence in Ukraine; cash for the 250th anniversary.`\
-https://nytimes.com/2026/02/24/opinion/afghan-immigrant-visas.html
 
