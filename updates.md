@@ -1,3 +1,7 @@
+**Milan Cortina Olympics draw largest audience since 2014, NBC says**\
+`The average of 23.5 million does not include final numbers on Sunday's men's hockey gold medal game between the U.S. and Canada.`\
+https://nytimes.com/athletic/7067143/2026/02/23/winter-olympics-tv-streaming-ratings-2026/
+
 **Emma Raducanu leaves Nike for Uniqlo in fashion sponsorship switch**\
 `Nike signed Raducanu in 2018, three years before her breakthrough at the U.S. Open.`\
 https://nytimes.com/athletic/6893507/2026/02/23/emma-raducanu-leaves-nike-for-uniqlo/
