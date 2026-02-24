@@ -1,3 +1,15 @@
+**Boxing has become a country for old men. Where's the future in that?**\
+`Is the current obsession with nostalgia bouts and veteran fights hurting the chances of a new generation of boxers finding an audience? `\
+https://nytimes.com/athletic/7065636/2026/02/24/boxing-mayweather-pacquiao-tyson-wilder/
+
+**Even in the Depths of Kyiv’s Coldest Winter, There Is Warmth**\
+`Delegations from Ukraine, Russia and the United States have been meeting in Abu Dhabi for peace talks. I hear it’s warm there.`\
+https://nytimes.com/2026/02/24/opinion/ukraine-war-cold.html
+
+**The New York Times in Print for Tuesday, Feb. 24, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/24/todays-new-york-times
+
 **Oliver Glasner, Crystal Palace and why calls to 'stay humble' touched a nerve**\
 `The Austrian has been baffled by suggestions he disrespected fans after pointing out this still ranks as one of the club's best seasons`\
 https://nytimes.com/athletic/7064029/2026/02/24/oliver-glasner-crystal-palace-humble-fans/
