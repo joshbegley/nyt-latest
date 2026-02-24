@@ -1,3 +1,7 @@
+**UFL rule changes include 4-point field goals from 60-plus, no punts inside 50**\
+`The United Football League, in its third year after the merger of the XFL and USFL spring leagues, kicks off on March 27.`\
+https://nytimes.com/athletic/7066567/2026/02/24/ufl-rule-changes-field-goals-punts/
+
 **The Spurs exploited the Pistons' biggest weakness. Detroit plans to learn from it**\
 `The Pistons entered Monday's game with the NBA's best winning percentage, but their season-long Achilles heel surfaced in the 114-103 loss.`\
 https://nytimes.com/athletic/7067368/2026/02/24/pistons-loss-spurs-shooting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7067232/2026/02/24/drive-to-survive-review-season-8
 **Trump Administration Live Updates: President Prepares for State of the Union Address**\
 ``\
 https://nytimes.com/live/2026/02/24/us/trump-news-updates
-
-**Can Caleb Banks use NFL combine to reassert himself as a first-round draft prospect?**\
-`Banks struggled through an injury-plagued final season at Florida, but he's trying to remind scouts of his enormous upside.`\
-https://nytimes.com/athletic/7065929/2026/02/24/caleb-banks-nfl-combine-draft-2026/
 
