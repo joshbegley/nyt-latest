@@ -1,3 +1,7 @@
+**Pentagon Races to Spend $153 Billion in Added Funds for Military**\
+`The Trump administration for months ignored Congress’s demand for a plan on how the Defense Department would spend the money that Republicans pushed through in their sweeping domestic policy bill.`\
+https://nytimes.com/2026/02/23/us/politics/pentagon-military-congress-spending.html
+
 **Milan Cortina Olympics draw largest audience since 2014, NBC says**\
 `The average of 23.5 million does not include final numbers on Sunday's men's hockey gold medal game between the U.S. and Canada.`\
 https://nytimes.com/athletic/7067143/2026/02/23/winter-olympics-tv-streaming-ratings-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/business/fedex-lawsuit-tariffs-refund.html
 **Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**\
 `The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
 https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
-
-**The Newest Player in A.I.’s Supply Chain Is a Toilet Maker**\
-`A British investor urged the Japanese company Toto to produce its advanced ceramics not for toilet seats and bidets, but for A.I. semiconductors.`\
-https://nytimes.com/video/podcasts/100000010732602/the-newest-player-in-ais-supply-chain-is-a-toilet-maker.html
 
