@@ -1,3 +1,7 @@
+**Trade or keep: How should rebuilding Canucks manage their veterans with term?**\
+`Whether the Canucks deal any of their established players with term left on their contracts remains to be seen.`\
+https://nytimes.com/athletic/7067465/2026/02/24/vancouver-canucks-nhl-trade-deadline-2026-contracts-veterans/
+
 **Falcons tell QB Kirk Cousins he will be released, GM says**\
 `The Falcons had already restructured his contract signaling the move was coming.`\
 https://nytimes.com/athletic/7067893/2026/02/24/falcons-qb-kirk-cousins-release/
