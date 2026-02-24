@@ -1,3 +1,7 @@
+**Federal Judiciary Asks Congress to Give Over Control of Courthouses**\
+`In a letter to lawmakers, the courts’ policymaking body claimed that the General Services Administration, part of the executive branch, had been slow to make crucial repairs.`\
+https://nytimes.com/2026/02/24/us/politics/federal-judiciary-gsa-courthouses.html
+
 **Paramount Raises Its Bid for Warner Bros. Discovery**\
 `Warner Bros. Discovery said Paramount’s new offer of $31 a share could lead to a “superior proposal” to the deal it signed with Netflix.`\
 https://nytimes.com/2026/02/24/business/paramount-netflix-warner-bros-discovery.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7068488/2026/02/24/kylian-mbappe-real-madrid-injury
 **U.S. hopeful Cardoso's stunner helps Atletico Madrid through in UCL**\
 `The timing couldn't be better for Cardoso, who hopes to carve out a place in Mauricio Pochettino's side next month`\
 https://nytimes.com/athletic/7068625/2026/02/24/johnny-cardoso-goal-usmnt-atletico-madrid-champions-league/
-
-**The U.S. men's Olympic hockey team won gold — and then lost the room**\
-`The widespread celebration is over now. And some of the U.S. men's Olympic hockey team's goodwill has diminished.`\
-https://nytimes.com/athletic/7068426/2026/02/24/usa-mens-olympics-hockey-gold-donald-trump/
 
