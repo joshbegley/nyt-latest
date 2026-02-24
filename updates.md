@@ -1,3 +1,15 @@
+**Review: ‘You Got Older,’ With Alia Shawkat, Gets a Sharp Revival**\
+`Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
+https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
+
+**Director Clint Bentley on Adapting ‘Train Dreams’ for the Big Screen**\
+`The Oscar-nominated filmmaker talks about the daunting task of adapting Denis Johnson’s enigmatic novella`\
+https://nytimes.com/2026/02/24/books/review/24tbr-clint-bentley-train-dreams.html
+
+**The Best of London Fashion**\
+`A look at a blah Burberry show and feistier brands that made a stronger impression.`\
+https://nytimes.com/2026/02/24/style/london-fashion-week-burberry.html
+
 **PSG, Morocco defender Hakimi set to face trial after rape allegation**\
 `Hakimi said in a statement posted on X that he denied the accusation against him.`\
 https://nytimes.com/athletic/7068042/2026/02/24/achraf-hakimi-trial-psg-morocco/
