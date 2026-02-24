@@ -1,3 +1,7 @@
+**4-star QB Gunner Rivers, son of Philip Rivers, commits to NC State**\
+`Rivers is the No. 125 overall prospect and the No. 10 quarterback in the 247Sports Composite.`\
+https://nytimes.com/athletic/7066945/2026/02/23/philip-rivers-son-gunner-4-star-qb-commits-nc-state/
+
 **The Workers Who Couldn’t Stay Home**\
 `Despite the snowstorm battering the New York area, workers whose jobs require them to show up in person found ways to attend to their duties.`\
 https://nytimes.com/2026/02/23/weather/nyc-snow-blizzard-jobs-work-commute.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/us/politics/trump-speech-state-of-union-questions
 **José Berríos reveals more about his 2025 injury. The Blue Jays need him healthy**\
 `Berríos stumbled in the second half last season but declared himself fit after his first spring outing: "I'm back. I'm healthy."`\
 https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-update/
-
-**Quad God Dresses Like Mere Mortal**\
-`For his final skate at the Winter Olympics in Italy, Ilia Malinin traded a spangly body suit for a hoodie and (designer) jeans.`\
-https://nytimes.com/2026/02/23/style/ilia-malinin-balmain-olympics.html
 
