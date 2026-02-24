@@ -1,36 +1,40 @@
-**Stranded by the Blizzard? Here’s What Travelers Need to Know.**\
-`As major hubs in the Northeast dig out from up to three feet of snow, it could be days before some travelers get moving. Here’s where things stand.`\
-https://nytimes.com/2026/02/24/travel/blizzard-snow-storm-airport-delays-cancellations.html
+**Olympic men's hockey gold medal game draws 18.6 million early risers**\
+`Team USA's OT win over Canada is most-watched sporting event ever in U.S. that started before 9 a.m. ET.`\
+https://nytimes.com/athletic/7068949/2026/02/24/olympic-mens-hockey-gold-medal-us-canada-nbc/
 
-**Sean Payton says new Broncos OC Davis Webb will call plays**\
-`Payton has called offensive plays throughout his 18 years as an NFL head coach.`\
-https://nytimes.com/athletic/7068951/2026/02/24/sean-payton-davis-webb-call-plays-broncos/
+**Epstein Victims to Attend Trump’s State of the Union as Guests of Lawmakers**\
+`Over a dozen victims of Jeffrey Epstein’s abuse will attend the speech as guests of Democratic lawmakers, who are calling for the full release of Epstein files.`\
+https://nytimes.com/2026/02/24/us/politics/epstein-victims-trump-sotu-guests.html
 
-**Miami may have to cancel World Cup Fan Fest over funding delay**\
-`Ray Martinez said they are "quickly approaching" a "drop-dead date" unless they see funding from the U.S. federal government within 30 days.`\
-https://nytimes.com/athletic/7068343/2026/02/24/miami-world-cup-fan-festival-cancel/
+**Texas Second Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's Second Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-2-polls-2026.html
 
-**The U.S. Men’s Hockey Team Has Arrived in Washington**\
-`Two gold medal-winning U.S. hockey teams were invited to Washington for the State of the Union address. Only one came to town.`\
-https://nytimes.com/2026/02/24/us/politics/us-hockey-team-trump.html
+**Texas Ninth Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's Ninth Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-9-polls-2026.html
 
-**Once a top prospect, Luis Matos' Giants career might be at a crossroads**\
-`Matos was called up earlier than expected in 2023 when the Giants needed a left fielder. That decision has put the 2026 team in a pickle.`\
-https://nytimes.com/athletic/7068827/2026/02/24/sf-giants-luis-matos-final-option-year/
+**Texas 38th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 38th Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-38-polls-2026.html
 
-**Virginia QB Chandler Morris sues NCAA, seeking 7th season of eligibility: Source**\
-`Morris is the latest to file suit to try to gain a year, following challenges by Ole Miss' Trinidad Chambliss and Tennessee's Joey Aguilar.`\
-https://nytimes.com/athletic/7068848/2026/02/24/chandler-morris-virginia-football-ncaa-lawsuit-eligibility/
+**Texas 34th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 34th Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-34-polls-2026.html
 
-**Amid Chaos in Mexico, False Images Stoked Fears**\
-`Online disinformation proliferated rapidly after the Mexican military killed the country’s top cartel leader, fueling fear and chaos among residents and tourists alike. Mexican officials say some A.I.-generated images and fake news reports may have been linked to criminal actors.`\
-https://nytimes.com/video/world/americas/100000010731496/mexico-cartels-el-mencho-disinformation.html
+**Texas 33rd Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 33rd Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-33-polls-2026.html
 
-**Do A.I. Agents Actually Make You More Productive?**\
-`Can A.I. be useful while still allowing us to use our minds creatively? On this week’s episode of “The Ezra Klein Show,” the Anthropic co-founder Jack Clark shares his perspective.`\
-https://nytimes.com/video/opinion/100000010732755/do-ai-agents-actually-make-you-more-productive.html
+**Texas 29th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 29th Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-29-polls-2026.html
 
-**End of Falcons' Kirk Cousins era signals failure of team's once-grand QB plan**\
-`With Cousins on the way out and Michael Penix Jr. still rehabbing, the Falcons have more questions than answers at quarterback.`\
-https://nytimes.com/athletic/7068698/2026/02/24/kirk-cousins-michael-penix-falcons-qb-plan/
+**Texas 23rd Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 23rd Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-23-polls-2026.html
+
+**Texas 21st Congressional District 2026: Latest Polls**\
+`Track the latest polls in Texas's 21st Congressional District.`\
+https://nytimes.com/interactive/polls/texas-us-house-21-polls-2026.html
 

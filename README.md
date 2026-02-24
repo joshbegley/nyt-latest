@@ -1,3 +1,11 @@
+**Morocco head coach Regragui's position in serious doubt**\
+`The country's FA has spoken to potential candidates to replace the 50-year-old just four months ahead of the World Cup.`\
+https://nytimes.com/athletic/7068719/2026/02/24/morocco-walid-regragui-world-cup/
+
+**How We Report on the State of the Union Under Intense Deadline Pressure**\
+`The editor who oversees White House coverage for The Times talks about the challenges of tracking a major speech by a president who regularly goes off script.`\
+https://nytimes.com/2026/02/24/insider/trump-state-of-the-union-new-york-times.html
+
 **Olympic men's hockey gold medal game draws 18.6 million early risers**\
 `Team USA's OT win over Canada is most-watched sporting event ever in U.S. that started before 9 a.m. ET.`\
 https://nytimes.com/athletic/7068949/2026/02/24/olympic-mens-hockey-gold-medal-us-canada-nbc/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/polls/texas-us-house-33-polls-2026.html
 **Texas 29th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Texas's 29th Congressional District.`\
 https://nytimes.com/interactive/polls/texas-us-house-29-polls-2026.html
-
-**Texas 23rd Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 23rd Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-23-polls-2026.html
-
-**Texas 21st Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 21st Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-21-polls-2026.html
 
