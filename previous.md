@@ -1,3 +1,7 @@
+**Paramount Revises Its Bid for Warner Bros. Discovery**\
+`Netflix, Warner Bros. Discovery’s preferred acquirer, now has four days to counter Paramount’s revised offer.`\
+https://nytimes.com/2026/02/24/business/paramount-warner-bros-discovery.html
+
 **Meta Announces Major Chips-for-Stock Deal With AMD**\
 `The multibillion-dollar deal is AMD’s latest move to catch up to Nvidia in the lucrative world of selling artificial intelligence chips.`\
 https://nytimes.com/2026/02/24/business/meta-amd-chips-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/obituaries/robert-carradine-dead.html
 **Iranians Brace for War Beneath Veneer of Normalcy**\
 `Stores are well-stocked and shortages of food and other essential supplies have not been reported, but many Iranians are in limbo as they wait to see whether U.S. forces will attack.`\
 https://nytimes.com/2026/02/24/world/middleeast/iran-preparations-war.html
-
-**Airlines Add Flights in Northeast After Winter Storm Causes Cancellations**\
-`The major U.S. airlines said they would add more flights in airports that serve cities like Boston, New York and Philadelphia.`\
-https://nytimes.com/2026/02/24/us/flights-snow-storm.html
 

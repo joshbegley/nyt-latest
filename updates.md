@@ -1,3 +1,7 @@
+**Paramount Revises Its Bid for Warner Bros. Discovery**\
+`Netflix, Warner Bros. Discovery’s preferred acquirer, now has four days to counter Paramount’s revised offer.`\
+https://nytimes.com/2026/02/24/business/paramount-warner-bros-discovery.html
+
 **Meta Announces Major Chips-for-Stock Deal With AMD**\
 `The multibillion-dollar deal is AMD’s latest move to catch up to Nvidia in the lucrative world of selling artificial intelligence chips.`\
 https://nytimes.com/2026/02/24/business/meta-amd-chips-ai.html
