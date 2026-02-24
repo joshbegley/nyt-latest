@@ -1,3 +1,11 @@
+**Falcons tell QB Kirk Cousins he will be released, GM says**\
+`The Falcons had already restructured his contract signaling the move was coming.`\
+https://nytimes.com/athletic/7067893/2026/02/24/falcons-qb-kirk-cousins-release/
+
+**They Met in an E.R. and Were Married at the Super Bowl**\
+`The wedding of Eleisa Aparicio and Thomas Wolter was seen by millions, but in their first interview, the newlyweds share the story of how they got to Santa Clara, Calif., with Bad Bunny signing as their witness.`\
+https://nytimes.com/2026/02/24/style/bad-bunny-super-bowl-halftime-wedding-couple.html
+
 **Supreme Court Sides With Couple in Case Involving Baby Food Sold at Whole Foods**\
 `The court agreed to revive a lawsuit by a Texas couple who claimed that tainted baby food purchased at Whole Foods had sickened their young son.`\
 https://nytimes.com/2026/02/24/us/politics/supreme-court-whole-foods.html
