@@ -1,8 +1,16 @@
+**Prime Tire: Big questions facing F1 after testing**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7068427/2026/02/24/f1-testing-2026-season-prime-tire/
+
+**World Of ...**\
+``\
+https://nytimes.com/column/world-of
+
 **What we learned from Chargers GM Joe Hortiz's combine news conference**\
 `While Tyler Linderbaum is a logical Chargers target, Ravens GM Eric DeCosta said the team has offered him a "market-setting" contract.`\
 https://nytimes.com/athletic/7068175/2026/02/24/joe-hortiz-chargers-combine-2026-takeaways/
 
-**Justice Department Sues University of California After It Refused to Pay $1 Billion Fine**\
+**Justice Dept. Sues U. of California After It Refused to Pay $1 Billion Fine**\
 `The Trump administration accused the University of California, Los Angeles, of not doing enough to curb antisemitism.`\
 https://nytimes.com/2026/02/24/us/justice-department-ucla-lawsuit.html
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7068310/2026/02/24/dillon-brooks-surgery-hand-suns-
 **Judge Axes Exxon’s Defamation Suit Against Environmentalists**\
 `But the case against the California attorney general, prompted by his lawsuit over Exxon’s plastic recycling program, can proceed in Texas federal court.`\
 https://nytimes.com/2026/02/24/climate/exxon-defamation-lawsuit-bonta-california-andrew-forrest-recycling.html
-
-**Catholic Clergy Call for ‘Human Dignity’ in Immigration Enforcement**\
-`18 bishops and archbishops from border areas issued a strongly worded statement hours before President Trump’s State of the Union address.`\
-https://nytimes.com/2026/02/24/us/politics/catholic-clergy-migrant-protections-trump-immigration.html
-
-**The Sexual Immaturity of ‘Wuthering Heights’**\
-`Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
-https://nytimes.com/video/podcasts/100000010733282/the-sexual-immaturity-of-wuthering-heights.html
 
