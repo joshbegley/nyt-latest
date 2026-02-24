@@ -1,4 +1,8 @@
-**Sesko says Carrick is preparing him to start Man United games: 'He believes in me'**\
+**Your Tariff Questions**\
+`We’re addressing some of your concerns about President Trump’s tariff regime.`\
+https://nytimes.com/2026/02/24/briefing/your-tariff-questions.html
+
+**Sesko says Carrick preparing him to start Man Utd games: 'He believes in me'**\
 `The 22-year-old coming off the bench in all of six of Carrick's United games, scoring in three of them.`\
 https://nytimes.com/athletic/7067617/2026/02/24/sesko-news-united-carrick-everton-bench-goal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7055484/2026/02/24/big-12-transfer-portal-grades-te
 **Liverpool's Ngumoha keen on 'more minutes' after star cameo in Forest win**\
 `The 17-year-old, who has yet to make a Premier League start, has made a big impact off the bench in the victory at the City Ground.`\
 https://nytimes.com/athletic/7066649/2026/02/24/rio-ngumoha-liverpool-matches/
-
-**Trinidad Chambliss, Arch Manning and how the SEC may get its swagger back**\
-`The SEC, in its quest to return to college football preeminence, should enter 2026 fairly loaded in a key area: experienced quarterbacks.`\
-https://nytimes.com/athletic/7045449/2026/02/24/sec-qbs-2026-trinidad-chambliss-arch-manning/
 
