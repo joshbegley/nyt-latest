@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/23/nyregion/queens-assistant-principal-sex-charge.ht
 `The company, which did not specify how much it was seeking, is expected to be one of many demanding compensation for levies ruled unlawful.`\
 https://nytimes.com/2026/02/23/business/fedex-lawsuit-tariffs-refund.html
 
-**Trump Says Top General Sees Easy Victory if U.S. Attacks Iran**\
+**Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**\
 `The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
 https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
 

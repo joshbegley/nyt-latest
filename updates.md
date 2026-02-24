@@ -1,3 +1,11 @@
+**‘Mother Russia’ Review: A New Play That’s as Funny as It’s Smart**\
+`A strong cast stars in Lauren Yee’s new play, part of a cycle of works about the collisions between 20th-century communism and pop culture.`\
+https://nytimes.com/2026/02/23/theater/mother-russia-review.html
+
+**Queens Man Arrested on a Sex Charge Said to Be an Assistant Principal**\
+`Federal prosecutors says Bond Ng used his apartment in Long Island City to arrange for a woman to have sex with clients.`\
+https://nytimes.com/2026/02/23/nyregion/queens-assistant-principal-sex-charge.html
+
 **FedEx Sues for Refund of Trump Tariffs Rejected by Supreme Court**\
 `The company, which did not specify how much it was seeking, is expected to be one of many demanding compensation for levies ruled unlawful.`\
 https://nytimes.com/2026/02/23/business/fedex-lawsuit-tariffs-refund.html
