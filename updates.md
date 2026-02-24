@@ -1,3 +1,15 @@
+**The U.S. men's Olympic hockey team won gold — and then lost the room**\
+`The widespread celebration is over now. And some of the U.S. men's Olympic hockey team's goodwill has diminished.`\
+https://nytimes.com/athletic/7068426/2026/02/24/usa-mens-olympics-hockey-gold-donald-trump/
+
+**Commanders GM 'as motivated as ever' to get deal done with Laremy Tunsil**\
+`The five-time Pro Bowl left tackle has one year remaining on his contract with Washington.`\
+https://nytimes.com/athletic/7068444/2026/02/24/commanders-laremy-tunsil-deal-adam-peters/
+
+**Twenty U.S. men's Olympic hockey players to attend Trump's State of the Union address**\
+`The majority of the roster arrived in Washington on Tuesday morning via a military jet that picked them up after a celebration in Miami.`\
+https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the-union-donald-trump/
+
 **Cardinals' LaFleur has 'a lot of respect' for Kyler Murray, but QB's future is uncertain**\
 `GM Monti Ossenfort: "We're going to look at every avenue to improve, and we're going to continue to go through our process with that."`\
 https://nytimes.com/athletic/7068518/2026/02/24/cardinals-kyler-murray-mike-lafleur-nfl-combine/
