@@ -1,3 +1,15 @@
+**How to watch UCF vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the UCF Knights play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068554/2026/02/24/ucf-vs-byu-stream-how-to-watch-feb-24/
+
+**How to watch Iowa State vs. Utah men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068551/2026/02/24/iowa-state-vs-utah-stream-how-to-watch-feb-24/
+
+**Providence, R.I., Is Used to Snow. But Not 36 Inches in a Day.**\
+`A day after the city got a record-breaking amount of snow, some residents clung to the magic. Others were gearing up for endless shoveling.`\
+https://nytimes.com/2026/02/24/us/providence-rhode-island-snow-totals.html
+
 **How to watch Minnesota vs. Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068549/2026/02/24/minnesota-vs-michigan-stream-how-to-watch-feb-24/
