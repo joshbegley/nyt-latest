@@ -1,3 +1,7 @@
+**Stranded by the Blizzard? Here’s What Travelers Need to Know.**\
+`As major hubs in the Northeast dig out from up to three feet of snow, it could be days before some travelers get moving. Here’s where things stand.`\
+https://nytimes.com/2026/02/24/travel/blizzard-snow-storm-airport-delays-cancellations.html
+
 **Sean Payton says new Broncos OC Davis Webb will call plays**\
 `Payton has called offensive plays throughout his 18 years as an NFL head coach.`\
 https://nytimes.com/athletic/7068951/2026/02/24/sean-payton-davis-webb-call-plays-broncos/
@@ -29,12 +33,4 @@ https://nytimes.com/video/opinion/100000010732755/do-ai-agents-actually-make-you
 **End of Falcons' Kirk Cousins era signals failure of team's once-grand QB plan**\
 `With Cousins on the way out and Michael Penix Jr. still rehabbing, the Falcons have more questions than answers at quarterback.`\
 https://nytimes.com/athletic/7068698/2026/02/24/kirk-cousins-michael-penix-falcons-qb-plan/
-
-**Dueling Slates of Guests at Speech Show Stark Immigration Divide**\
-`The president and Republican lawmakers aim to portray undocumented immigrants as a danger. Democrats will try to paint the administration’s crackdown as the real peril.`\
-https://nytimes.com/2026/02/24/us/politics/state-of-the-union-guests-immigration.html
-
-**John Roberts Sent Trump a Message**\
-`How to read the gratuitous paragraph in the chief justice’s tariff opinion.`\
-https://nytimes.com/2026/02/24/opinion/tariffs-trump-john-roberts.html
 
