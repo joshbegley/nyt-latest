@@ -1,3 +1,7 @@
+**What we learned from Patriots exec Eliot Wolf: Stefon Diggs update, draft plan and more**\
+`Wolf suggested that the AFC champions are not satisfied with their roster despite reaching Super Bowl 60 earlier this month.`\
+https://nytimes.com/athletic/7068335/2026/02/24/patriots-nfl-combine-eliot-wolf-stefon-diggs-draft/
+
 **N.Y.P.D. Reviewing Videos Showing Officers Being Hit With Snowballs**\
 `Dozens of people gathered in Washington Square Park in New York City on Monday for a snowball fight. The event turned chaotic when the police, who were called to control the crowd, arrived at the scene and were pelted with snowballs.`\
 https://nytimes.com/video/us/100000010733470/nypd-police-snowball-fight.html
