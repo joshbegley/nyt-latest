@@ -1,3 +1,11 @@
+**Russell Brand Pleads Not Guilty to Further Rape and Sexual Assault Charges**\
+`The YouTuber, actor and comedian had already pleaded not guilty to five other charges of sexual assault in Britain.`\
+https://nytimes.com/2026/02/24/movies/russell-brand-court-rape-charges.html
+
+**How Fast Will A.I. Agents Rip Through the Economy?**\
+`The Anthropic co-founder Jack Clark tells Ezra Klein what he sees coming in the new era of A.I. agents.`\
+https://nytimes.com/2026/02/24/opinion/ezra-klein-podcast-jack-clark.html
+
 **Record Snowfall Slams New England and Leaves New York City Snarled**\
 `At the storm’s peak, well over half a million homes and businesses in the Northeast were without power.`\
 https://nytimes.com/2026/02/24/us/record-snowfall-slams-new-england-and-leaves-new-york-city-snarled.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/climate/billions-in-climate-grants-frozen-for-a-y
 **After a Big Loss, What to Expect From Trump at the State of the Union**\
 `The Supreme Court’s tariffs ruling could make for a tense night.`\
 https://nytimes.com/2026/02/24/opinion/trump-tariffs-state-of-union.html
-
-**A Snowstorm in New York, in Five Pictures**\
-`New Yorkers shoveled, plowed, played and hunkered down as snow piled up across the city.`\
-https://nytimes.com/2026/02/24/nyregion/nyc-snowstorm-pictures.html
-
-**9 Accused of Antifa Ties After a Violent ICE Protest Face Trial in Texas**\
-`The government said the protesters were part of a heavily armed “cell” of left-wing activists, one of whom was accused of shooting an officer at an anti-ICE protest.`\
-https://nytimes.com/2026/02/24/us/antifa-ice-protest-trial-texas.html
 
