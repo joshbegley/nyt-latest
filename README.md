@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068045/2026/02/24/76ers-vs-pacers-stream-how-to-watch-feb-24/
+
 **Trump Administration Tells States It Aims to ‘Reimagine’ Jobless Benefits**\
 `Federal officials are subjecting some states to higher scrutiny in an antifraud campaign, as the president rails against California and states led by Democrats.`\
 https://nytimes.com/2026/02/24/us/politics/trump-unemployment-benefits-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068016/2026/02/24/miami-oh-vs-eastern-michigan-str
 **Democrats Counter Trump With Their Own Plan to Limit Wall Street Landlords**\
 `As the president prepares to deliver a State of the Union address likely to touch on his own proposal, Senate Democrats introduced a bill with their own vision for limiting investors’ purchases of single-family homes.`\
 https://nytimes.com/2026/02/24/us/politics/trump-senate-democrats-single-family-rentals-homes.html
-
-**Trump’s New Tariffs Are Illegal Too**\
-`Just another attempt to ignore the law and dare the courts to step in.`\
-https://nytimes.com/2026/02/24/opinion/trump-tariffs-illegal.html
 
