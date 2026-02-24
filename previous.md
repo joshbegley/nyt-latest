@@ -1,3 +1,19 @@
+**Kepner: In a system stacked against them, the Guardians double down on their identity — with no apologies**\
+`Despite one of MLB's lowest payrolls, the Guardians are expected to once again be in the mix for an AL Central title. `\
+https://nytimes.com/athletic/7065870/2026/02/24/cleveland-guardians-identity-strategy-jose-ramirez/
+
+**What is Bryce Harper thinking? On baseball, boredom and being a kid, again, in the WBC**\
+`"I still have a lot to prove to myself," said Harper, one of this generation's greats. It feels like something larger is at stake in 2026.`\
+https://nytimes.com/athletic/7066709/2026/02/24/bryce-harper-phillies-2026-season-wbc/
+
+**Cowboys seem fine with George Pickens playing next season under franchise tag**\
+`Cowboys executive vice president Stephen Jones spoke in Indianapolis about Pickens, creating cap space and new DC Christian Parker.`\
+https://nytimes.com/athletic/7066973/2026/02/24/cowboys-combine-george-pickens-franchise-tag/
+
+**College hoops thoughts: Seth Trimble's 30 lead UNC; Houston has a problem**\
+`Plus a wild night in the Southland Conference when the Privateers pulled off a 77-73 upset of the Lumberjacks.`\
+https://nytimes.com/athletic/7067429/2026/02/24/seth-trimble-unc-kansas-houston-college-basketball/
+
 **Blue Jackets' Werenski won't be the same after winning gold, says two-time winner Nash**\
 `Werenski and Nash are the only two Blue Jackets players to have won Olympic gold medals.`\
 https://nytimes.com/athletic/7067119/2026/02/24/zach-werenski-olympics-gold-blue-jackets/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7066659/2026/02/24/eagles-nick-sirianni-sean-mannio
 **NFL combine primer: Why Fernando Mendoza won't throw, players to watch, more**\
 `Mendoza, like other recent projected top picks, will instead throw at Indiana's pro day with his own receivers and running backs.`\
 https://nytimes.com/athletic/7062780/2026/02/24/nfl-scouting-combine-2026-primer-players-to-watch/
-
-**Most of us are bad at predicting what will make us happy, including the world's best athletes**\
-`From Tom Brady and Kevin Durant to Olympic gold medalists, people are really bad at predicting what will make them happy.`\
-https://nytimes.com/athletic/7065732/2026/02/24/psychology-of-happiness-athletes-predicting/
-
-**Which MLB pitchers are going to benefit most from the Automated Ball-Strike system?**\
-`It isn't clear exactly who will benefit the most from ABS challenges, but pitchers who can paint at the top of the zone might get a boost.`\
-https://nytimes.com/athletic/7064417/2026/02/24/mlb-abs-system-challenges-pitcher-benefits/
-
-**What we learned from Olympics hockey: Hellebuyck shines, passing the torch and more**\
-`Twelve years and three cycles later, NHL players returned to the Olympics, and the tournament delivered.`\
-https://nytimes.com/athletic/7066455/2026/02/24/what-we-learned-olympics-hockey-hellebuyck-hughes-crosby/
-
-**NHL players Darren and Taylor Raddysh find strength in their father’s resilience**\
-`While the Raddysh brothers fight to sustain NHL careers, their father is facing a much grimmer opponent.`\
-https://nytimes.com/athletic/7065918/2026/02/24/darren-taylor-raddysh-dad-cancer-nhl-rangers-lightning/
 
