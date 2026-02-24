@@ -1,3 +1,7 @@
+**Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**\
+`The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
+https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
+
 **‘Mother Russia’ Review: A New Play That’s as Funny as It’s Smart**\
 `A strong cast stars in Lauren Yee’s new play, part of a cycle of works about the collisions between 20th-century communism and pop culture.`\
 https://nytimes.com/2026/02/23/theater/mother-russia-review.html
