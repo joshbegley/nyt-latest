@@ -1,9 +1,17 @@
+**Everton need to look beyond brute force to end the winless run at their new home**\
+`David Moyes' side peppered Manchester United with crosses and high balls, but more guile is required to change their fortunes  `\
+https://nytimes.com/athletic/7067097/2026/02/24/everton-tactics-manchester-united-moyes-premier-league/
+
+**Word of the Day: glimpse**\
+`This word has appeared in 1,347 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/24/learning/word-of-the-day-glimpse.html
+
 **Mario Cristobal and Kirby Smart roast each other at Steve Spurrier Awards**\
 `Cristobal ribbed Smart after Miami highlights were shown at the event: That's "what a player like Carson Beck could do with great coaching."`\
 https://nytimes.com/athletic/7067354/2026/02/24/kirby-smart-mario-cristobal-georgia-miami-football/
 
-**This is why Senne Lammens was Manchester United's most important signing last summer**\
-`A team with a more erratic goalkeeper drops two points against a team playing like Everton, but the Belgian was not dropping anything`\
+**This is why Lammens was Manchester United's most important signing last summer**\
+`Once Everton’s search for an equaliser got desperate, Lammens elevated a good performance to a great, game-winning one`\
 https://nytimes.com/athletic/7067270/2026/02/24/senne-lammens-importance-everton-man-utd-premier-league/
 
 **Boxing has become a country for old men. Where's the future in that?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7060383/2026/02/24/sunderland-fans-take-part-in-the
 **Southampton fans: Take part in The Athletic's FA Cup survey**\
 `Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
 https://nytimes.com/athletic/7060332/2026/02/24/southampton-fans-take-part-in-the-athletics-fa-cup-survey/
-
-**Fulham fans: Take part in The Athletic's FA Cup survey**\
-`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
-https://nytimes.com/athletic/7060314/2026/02/24/fulham-fans-take-part-in-the-athletics-fa-cup-survey/
-
-**West Ham fans: Take part in The Athletic's FA Cup survey**\
-`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
-https://nytimes.com/athletic/7060438/2026/02/24/west-ham-fans-take-part-in-the-athletics-fa-cup-survey/
 
