@@ -1,3 +1,15 @@
+**Everton need to look beyond brute force to end the winless run at their new home**\
+`David Moyes' side peppered Manchester United with crosses and high balls, but more guile is required to change their fortunes  `\
+https://nytimes.com/athletic/7067097/2026/02/24/everton-tactics-manchester-united-moyes-premier-league/
+
+**Word of the Day: glimpse**\
+`This word has appeared in 1,347 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/24/learning/word-of-the-day-glimpse.html
+
+**This is why Lammens was Manchester United's most important signing last summer**\
+`Once Everton’s search for an equaliser got desperate, Lammens elevated a good performance to a great, game-winning one`\
+https://nytimes.com/athletic/7067270/2026/02/24/senne-lammens-importance-everton-man-utd-premier-league/
+
 **Mario Cristobal and Kirby Smart roast each other at Steve Spurrier Awards**\
 `Cristobal ribbed Smart after Miami highlights were shown at the event: That's "what a player like Carson Beck could do with great coaching."`\
 https://nytimes.com/athletic/7067354/2026/02/24/kirby-smart-mario-cristobal-georgia-miami-football/
