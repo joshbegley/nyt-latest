@@ -1,3 +1,7 @@
+**N.Y.P.D. Reviewing Videos Showing Officers Being Hit With Snowballs**\
+`Dozens of people gathered in Washington Square Park in New York City on Monday for a snowball fight. The event turned chaotic when the police, who were called to control the crowd, arrived at the scene and were pelted with snowballs.`\
+https://nytimes.com/video/us/100000010733470/nypd-police-snowball-fight.html
+
 **Prime Tire: Big questions facing F1 after testing**\
 `Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
 https://nytimes.com/athletic/7068427/2026/02/24/f1-testing-2026-season-prime-tire/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/24/us/house-rotor-act-dc-plane-crash.html
 **Dillon Brooks has surgery on fractured hand, adding to Suns' mounting injury woes**\
 `Star guard Devin Booker remains out with a right hip strain and bench energizer Jordan Goodwin is out with a left calf strain.`\
 https://nytimes.com/athletic/7068310/2026/02/24/dillon-brooks-surgery-hand-suns-injuries/
-
-**Judge Axes Exxon’s Defamation Suit Against Environmentalists**\
-`But the case against the California attorney general, prompted by his lawsuit over Exxon’s plastic recycling program, can proceed in Texas federal court.`\
-https://nytimes.com/2026/02/24/climate/exxon-defamation-lawsuit-bonta-california-andrew-forrest-recycling.html
 
