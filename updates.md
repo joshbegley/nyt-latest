@@ -1,3 +1,11 @@
+**The Spurs exploited the Pistons' biggest weakness. Detroit plans to learn from it**\
+`The Pistons entered Monday's game with the NBA's best winning percentage, but their season-long Achilles heel surfaced in the 114-103 loss.`\
+https://nytimes.com/athletic/7067368/2026/02/24/pistons-loss-spurs-shooting/
+
+**Corporate America’s Growing Quest for Tariff Refunds**\
+`Thousands of companies are expected to follow FedEx’ in suing the government to recoup levy payments, after the Supreme Court overturned the tariffs.`\
+https://nytimes.com/2026/02/24/business/dealbook/fex-tariff-refund.html
+
 **Paramount Revises Its Bid for Warner Bros. Discovery**\
 `Netflix, Warner Bros. Discovery’s preferred acquirer, now has four days to counter Paramount’s revised offer.`\
 https://nytimes.com/2026/02/24/business/paramount-warner-bros-discovery.html

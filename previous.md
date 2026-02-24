@@ -1,3 +1,11 @@
+**The Spurs exploited the Pistons' biggest weakness. Detroit plans to learn from it**\
+`The Pistons entered Monday's game with the NBA's best winning percentage, but their season-long Achilles heel surfaced in the 114-103 loss.`\
+https://nytimes.com/athletic/7067368/2026/02/24/pistons-loss-spurs-shooting/
+
+**Corporate America’s Growing Quest for Tariff Refunds**\
+`Thousands of companies are expected to follow FedEx’ in suing the government to recoup levy payments, after the Supreme Court overturned the tariffs.`\
+https://nytimes.com/2026/02/24/business/dealbook/fex-tariff-refund.html
+
 **Paramount Revises Its Bid for Warner Bros. Discovery**\
 `Netflix, Warner Bros. Discovery’s preferred acquirer, now has four days to counter Paramount’s revised offer.`\
 https://nytimes.com/2026/02/24/business/paramount-warner-bros-discovery.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-news-updates
 **Can Caleb Banks use NFL combine to reassert himself as a first-round draft prospect?**\
 `Banks struggled through an injury-plagued final season at Florida, but he's trying to remind scouts of his enormous upside.`\
 https://nytimes.com/athletic/7065929/2026/02/24/caleb-banks-nfl-combine-draft-2026/
-
-**Robert Carradine, Actor Who Played the Father in ‘Lizzie McGuire,’ Dies at 71**\
-`A member of a renowned acting dynasty, he also earned fame for his role in “Revenge of the Nerds.” His family said he struggled with bipolar disorder.`\
-https://nytimes.com/2026/02/24/obituaries/robert-carradine-dead.html
-
-**Iranians Brace for War Beneath Veneer of Normalcy**\
-`Stores are well-stocked and shortages of food and other essential supplies have not been reported, but many Iranians are in limbo as they wait to see whether U.S. forces will attack.`\
-https://nytimes.com/2026/02/24/world/middleeast/iran-preparations-war.html
 
