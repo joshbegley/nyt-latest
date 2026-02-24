@@ -1,3 +1,7 @@
+**Louvre Director Resigns, Months After Burglars Stole Crown Jewels**\
+`Laurence des Cars’s departure is the latest setback for the world’s largest museum. Her tenure was marred by labor strikes, water leaks and security lapses that led to the heist in October.`\
+https://nytimes.com/2026/02/24/world/europe/louvre-director-resigns-heist.html
+
 **SEC fines Kentucky coach Mark Pope $25K for postgame comments after Auburn loss**\
 `Pope's comments came after a controversial ending to the Wildcats' third consecutive loss.`\
 https://nytimes.com/athletic/7068277/2026/02/24/kentucky-coach-mark-pope-fined-auburn-basketball/
