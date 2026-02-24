@@ -1,3 +1,7 @@
+**Pentagon Races to Spend $153 Billion in Added Funds for Military**\
+`The Trump administration for months ignored Congress’s demand for a plan on how the Defense Department would spend the money that Republicans pushed through in their sweeping domestic policy bill.`\
+https://nytimes.com/2026/02/23/us/politics/pentagon-military-congress-spending.html
+
 **Milan Cortina Olympics draw largest audience since 2014, NBC says**\
 `The average of 23.5 million does not include final numbers on Sunday's men's hockey gold medal game between the U.S. and Canada.`\
 https://nytimes.com/athletic/7067143/2026/02/23/winter-olympics-tv-streaming-ratings-2026/
