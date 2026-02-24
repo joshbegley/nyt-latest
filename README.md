@@ -1,3 +1,7 @@
+**Michkov is working to put sophomore struggles behind him. Chris Pronger can relate**\
+`"It's learning the process of what it takes to be a true pro," said the Hall of Fame defenseman and former Flyers captain.`\
+https://nytimes.com/athletic/7068815/2026/02/24/matvei-michkov-flyers-fitness-tocchet-chris-pronger/
+
 **Morocco head coach Regragui's position in serious doubt**\
 `The country's FA has spoken to potential candidates to replace the 50-year-old just four months ahead of the World Cup.`\
 https://nytimes.com/athletic/7068719/2026/02/24/morocco-walid-regragui-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/polls/texas-us-house-34-polls-2026.html
 **Texas 33rd Congressional District 2026: Latest Polls**\
 `Track the latest polls in Texas's 33rd Congressional District.`\
 https://nytimes.com/interactive/polls/texas-us-house-33-polls-2026.html
-
-**Texas 29th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 29th Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-29-polls-2026.html
 
