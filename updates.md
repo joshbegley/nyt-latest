@@ -1,3 +1,7 @@
+**Pacers coach Rick Carlisle calls NBA's $100,000 tanking fine 'ridiculous'**\
+`Rick Carlisle also said the NBA suggested Indiana medicate injured Aaron Nesmith so that he could play in the Feb. 3 game against Utah.`\
+https://nytimes.com/athletic/7068115/2026/02/24/pacers-rick-carlisle-fine-nba-tanking/
+
 **Jack and Quinn Hughes respond to 'backlash' faced by U.S. men's Olympic hockey team**\
 `The Hughes brothers acknowledged what Jack called the “backlash” the team has faced because of their post-Olympic call with Donald Trump.`\
 https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-olympics-donald-trump/

@@ -1,3 +1,7 @@
+**Pacers coach Rick Carlisle calls NBA's $100,000 tanking fine 'ridiculous'**\
+`Rick Carlisle also said the NBA suggested Indiana medicate injured Aaron Nesmith so that he could play in the Feb. 3 game against Utah.`\
+https://nytimes.com/athletic/7068115/2026/02/24/pacers-rick-carlisle-fine-nba-tanking/
+
 **Jack and Quinn Hughes respond to 'backlash' faced by U.S. men's Olympic hockey team**\
 `The Hughes brothers acknowledged what Jack called the “backlash” the team has faced because of their post-Olympic call with Donald Trump.`\
 https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-olympics-donald-trump/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7029982/2026/02/24/penguins-coach-dan-muse-nhl-play
 **Review: ‘You Got Older,’ With Alia Shawkat, Gets a Sharp Revival**\
 `Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
 https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
-
-**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
-`Dom Luszczyszyn offers up his latest in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
-https://nytimes.com/athletic/6754590/2026/02/24/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
 

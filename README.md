@@ -1,3 +1,31 @@
+**Germany’s Leader Heads to China and Walks a Tightrope Between Xi and Trump**\
+`Chancellor Friedrich Merz’s trip will test his ability to address tensions between the countries, at a time of strain between Europe and Washington.`\
+https://nytimes.com/2026/02/24/world/europe/merz-germany-china-trip-beijing-xi.html
+
+**Backers of Aviation Safety Bill Cite Recent Near Miss to Make Their Case**\
+`The legislation’s advocates say a close call between two private planes near Teterboro, N.J., on Feb. 13 underscores the need for more collision prevention technology.`\
+https://nytimes.com/2026/02/24/us/politics/rotor-act-dc-plane-crash-teterboro.html
+
+**Home Depot Says Homeowners Are Weary From Economic Pressures**\
+`Sales fell at the home-improvement retailer, as homeowners shied away from big-ticket home improvement projects amid worries about housing costs and the job market.`\
+https://nytimes.com/2026/02/24/business/home-depot-sales.html
+
+**At Risk: Afghan Allies and America’s Credibility**\
+`Readers discuss the end of visas for Afghan wartime partners. Also: Timely election results; Russian sexual violence in Ukraine; cash for the 250th anniversary.`\
+https://nytimes.com/2026/02/24/opinion/afghan-immigrant-visas.html
+
+**Auston Matthews to rejoin Leafs on Tuesday night, expected to play in Tampa**\
+`The Maple Leafs are expecting to have close to a fully healthy lineup when they face Tampa Bay on Wednesday.  `\
+https://nytimes.com/athletic/7068113/2026/02/24/auston-matthews-olympics-maple-leafs-status/
+
+**Ukraine War Deaths on Pace to Hit 500,000 in Fifth Year, Estimates Say**\
+`Russia has lost as many as 325,000 troops, according to some estimates, with more than 200,000 deaths verified by researchers.`\
+https://nytimes.com/2026/02/24/world/europe/ukraine-war-deaths.html
+
+**England into T20 World Cup semi-finals as Harry Brook century sees off Pakistan**\
+`The captain scored 100 off 51 deliveries to dominate his team's response to Pakistan's 164-9, with England winning with five balls to spare`\
+https://nytimes.com/athletic/7068079/2026/02/24/harry-brook-england-t20-world-cup-semi-pakistan/
+
 **Pacers coach Rick Carlisle calls NBA's $100,000 tanking fine 'ridiculous'**\
 `Rick Carlisle also said the NBA suggested Indiana medicate injured Aaron Nesmith so that he could play in the Feb. 3 game against Utah.`\
 https://nytimes.com/athletic/7068115/2026/02/24/pacers-rick-carlisle-fine-nba-tanking/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-oly
 **IIHF will stick with 3-on-3 overtime despite criticism after Olympic hockey gold-medal games**\
 `IIHF president Luc Tardif: "It's the best rules to fit. The OT format will remain the same moving forward."`\
 https://nytimes.com/athletic/7068095/2026/02/24/olympic-hockey-overtime-games-luc-tardif/
-
-**Until Saturday: 34 coaching changes and counting**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7068149/2026/02/24/college-football-coaching-changes-until-saturday-2/
-
-**How the U.S. Is Crippling Cuba’s Economy**\
-`Cuba is facing its worst economic crisis in 67 years. Blackouts and fuel shortages have worsened after President Trump tightened restrictions on oil. Our international correspondent Frances Robles talks with Katrin Bennhold about the current situation in Cuba.`\
-https://nytimes.com/video/world/americas/100000010717540/how-the-us-is-crippling-cubas-economy.html
-
-**State of the Union 2026**\
-``\
-https://nytimes.com/news-event/state-of-the-union-2026
-
-**After Being Shoved in Front of a Train, He Has Returned to the Subway**\
-`Joseph Lynskey was determined to overcome his fear and reclaim his life as a New Yorker who enjoys the city in full. On Tuesday, he filed a lawsuit against the city and the M.T.A.`\
-https://nytimes.com/2026/02/24/nyregion/joseph-lynskey-nyc-subway-shove-lawsuit.html
-
-**Fresh Off a Supreme Court Loss, Trump Could Face New Challenges on Tariffs**\
-`Critics are questioning the legality of the provision President Trump has used to replace his previous slate of tariffs, raising the prospect of yet another legal battle.`\
-https://nytimes.com/2026/02/24/us/politics/trump-tariffs-new-legal-challenges.html
-
-**How Dan Muse's fresh approach turned Penguins into NHL's biggest surprise**\
-`Muse, the Penguins' first-year coach, is proof that nice guys don't always finish last.`\
-https://nytimes.com/athletic/7029982/2026/02/24/penguins-coach-dan-muse-nhl-playoffs/
-
-**Review: ‘You Got Older,’ With Alia Shawkat, Gets a Sharp Revival**\
-`Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
-https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
 
