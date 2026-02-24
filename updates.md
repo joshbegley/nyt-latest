@@ -1,3 +1,7 @@
+**Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
+`Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works.`\
+https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
+
 **How a 'team from a small town up north' are slaying Europe's elite**\
 `The Norwegian minnows have dumped Inter Milan out of the Champions League and are not finished yet`\
 https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
