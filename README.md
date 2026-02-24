@@ -1,3 +1,19 @@
+**PSG, Morocco defender Hakimi set to face trial after rape allegation**\
+`Hakimi said in a statement posted on X that he denied the accusation against him.`\
+https://nytimes.com/athletic/7068042/2026/02/24/achraf-hakimi-trial-psg-morocco/
+
+**Trump’s Tariffs Are Adding Steel Mill Jobs, and Crushing American Factories**\
+`Tariffs unaffected by President Trump’s Supreme Court loss are adding costs for many U.S. manufacturers that use steel, limiting exports and jeopardizing jobs.`\
+https://nytimes.com/2026/02/24/business/trump-steel-tariffs-manufacturing.html
+
+**'All guarantees' in place for Mexico to host World Cup - Sheinbaum**\
+`The Mexican president insisted there were "no risks" to supporters planning to visit the country for the finals.`\
+https://nytimes.com/athletic/7068053/2026/02/24/claudia-sheinbaum-mexico-host-world-cup/
+
+**You Want a Lot of Iced Coffee? Dunkin’ Has a Bucket for You.**\
+`The coffee chain is offering a 48-ounce drink at some locations in New England. Grab a ladle.`\
+https://nytimes.com/2026/02/24/us/dunkin-donuts-coffee-bucket.html
+
 **Two Missouri Deputies Are Slain After Traffic Stop**\
 `The suspect was killed after fleeing into the woods, said the sheriff’s office in Christian County, which is south of Springfield.`\
 https://nytimes.com/2026/02/24/us/two-missouri-deputies-killed.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010731010/how-to-avoid
 **Ukraine Marks Fourth Year of War With Russia With Moment of Silence**\
 `Ukrainians on Tuesday commemorated four years since Russia’s full-scale invasion began. Hundreds of thousands of people have been killed on both sides in Europe’s deadliest conflict since World War Two.`\
 https://nytimes.com/video/world/europe/100000010733027/ukraine-russia-war-four-years.html
-
-**How to watch NC State vs. Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the NC State Wolfpack play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068028/2026/02/24/nc-state-vs-virginia-stream-how-to-watch-feb-24/
-
-**How to watch Cincinnati vs. Texas Tech men's basketball: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bearcats play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068025/2026/02/24/cincinnati-vs-texas-tech-stream-how-to-watch-feb-24/
-
-**How to watch Saint Louis vs. Dayton men's basketball: Time, TV, streaming**\
-`Find out how to watch the Saint Louis Billikens play the Dayton Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068023/2026/02/24/saint-louis-vs-dayton-stream-how-to-watch-feb-24/
-
-**How to watch Duke vs. Notre Dame men's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068018/2026/02/24/duke-vs-notre-dame-stream-how-to-watch-feb-24/
 
