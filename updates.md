@@ -1,3 +1,11 @@
+**Pentagon Pulls Support for Air Safety Bill Written After D.C. Collision**\
+`The legislation, which the House is expected to vote on Tuesday, would require military and commercial aircraft to use certain tracking technology to avoid collisions.`\
+https://nytimes.com/2026/02/23/us/politics/rotor-air-safety-dc-plane-crash.html
+
+**Texas Representative Is Pressured to Resign Over Messages to Staff Member**\
+`Democrats and Republicans urged Tony Gonzales to step down after allegations that he had sent inappropriate texts to a staff member and had a sexual relationship with her.`\
+https://nytimes.com/2026/02/23/us/tony-gonzales-texas-texts-staff-resign.html
+
 **4-star QB Gunner Rivers, son of Philip Rivers, commits to NC State**\
 `Rivers is the No. 125 overall prospect and the No. 10 quarterback in the 247Sports Composite.`\
 https://nytimes.com/athletic/7066945/2026/02/23/philip-rivers-son-gunner-4-star-qb-commits-nc-state/
