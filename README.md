@@ -1,3 +1,7 @@
+**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunts Residents**\
+`Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
+
 **What the Snowstorm Looked Like Across the Northeast**\
 `Record-breaking amounts of snow fell in many parts of the region, blanketing the area with snow in the second large storm of the year.`\
 https://nytimes.com/2026/02/23/nyregion/snow-storm-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/weather/massachusetts-boston-blizzard-snow-storm.
 **A Congressional Candidate Feared by the Tech Oligarchs**\
 `There’s a huge political opportunity for the party that can stand up for human beings in the face of A.I.`\
 https://nytimes.com/2026/02/23/opinion/alex-bores-ai-democrats.html
-
-**Chargers starting center Bradley Bozeman retires after eight seasons**\
-`Bozeman was not going to be a fit in new offensive coordinator Mike McDaniel’s scheme`\
-https://nytimes.com/athletic/7066852/2026/02/23/chargers-center-bradley-bozeman-retires/
 
