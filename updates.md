@@ -1,3 +1,19 @@
+**Cardinals' LaFleur has 'a lot of respect' for Kyler Murray, but QB's future is uncertain**\
+`GM Monti Ossenfort: "We're going to look at every avenue to improve, and we're going to continue to go through our process with that."`\
+https://nytimes.com/athletic/7068518/2026/02/24/cardinals-kyler-murray-mike-lafleur-nfl-combine/
+
+**Why Milwaukee Bucks legend Marques Johnson is still dunking at 70**\
+`Every year, Johnson says it will be his last dunk. Every year, he’s convinced to jump one more time.`\
+https://nytimes.com/athletic/7068389/2026/02/24/bucks-marques-johnson-dunk-70/
+
+**Twenty members of U.S. men's Olympic hockey team to attend State of the Union, 5 to miss**\
+`The majority of the roster arrived in Washington on Tuesday morning via a military jet that picked them up after a night of celebration in M`\
+https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the-union-donald-trump/
+
+**Senate Democrat Opens Inquiry Into Iran Transactions on Binance**\
+`Senator Richard Blumenthal of Connecticut sent a letter to Binance asking about the flow of $1.7 billion from accounts on the crypto exchange to Iranian entities.`\
+https://nytimes.com/2026/02/24/technology/richard-blumenthal-iran-binance-inquiry.html
+
 **The Epstein Files**\
 `Times reporters and editors are digging through millions of pages of Jeffrey Epstein documents released by the Justice Department, and tracking the fallout.`\
 https://nytimes.com/spotlight/epstein-files
