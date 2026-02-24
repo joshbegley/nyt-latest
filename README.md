@@ -6,7 +6,7 @@ https://nytimes.com/2026/02/24/us/politics/pentagon-anthropic.html
 `Vikings coach Kevin O'Connell expressed confidence in McCarthy's trajectory, but the team is still looking to add competition for him at QB.`\
 https://nytimes.com/athletic/7068874/2026/02/24/jj-mccarthy-vikings-nfl-combine-kevin-oconnell-rob-brzezinski/
 
-**Attorney for driver accused of killing Gaudreau brothers seeks to dismiss charges**\
+**Attorneys for driver accused of killing Gaudreau brothers seeks to dismiss charges**\
 `The defense is arguing that blood alcohol testing done on their client on the night of the crash produced an inaccurate result.`\
 https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-lawyer-seeks-dismissal-charges/
 
