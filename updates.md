@@ -1,3 +1,11 @@
+**Mario Vargas Llosa’s Swan Song Is an Ode to Peruvian Music**\
+`The final novel from a titan of Latin American literature follows a critic trying to capture the essence of his national culture.`\
+https://nytimes.com/2026/02/24/books/review/mario-vargas-llosa-i-give-you-my-silence.html
+
+**Steelers GM says no deadline for Aaron Rodgers: 'I don’t foresee this going like it did last year'**\
+`Omar Khan said he's been in touch with the 42-year-old quarterback, who is scheduled to become a free agent.`\
+https://nytimes.com/athletic/7067818/2026/02/24/steelers-gm-omar-khan-aaron-rodgers-return-deadline/
+
 **The Bounce: The Spurs are unstoppable. Plus, would you take Darryn Peterson No. 1?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7067744/2026/02/24/the-bounce-the-spurs-are-unstoppable-plus-would-you-take-darryn-peterson-no-1/

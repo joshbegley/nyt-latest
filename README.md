@@ -1,3 +1,11 @@
+**Supreme Court Sides With Couple in Case Involving Baby Food Sold at Whole Foods**\
+`The court agreed to revive a lawsuit by a Texas couple who claimed that tainted baby food purchased at Whole Foods had sickened their young son.`\
+https://nytimes.com/2026/02/24/us/politics/supreme-court-whole-foods.html
+
+**Kevin Durant says he plans to play for Team USA in 2028 Olympics**\
+`Kevin Durant still wants to play in 2028 Summer Olympic Games in Los Angeles where he will be approaching 40 years old.`\
+https://nytimes.com/athletic/7067754/2026/02/24/kevin-durant-usa-2028-olympics/
+
 **Mario Vargas Llosa’s Swan Song Is an Ode to Peruvian Music**\
 `The final novel from a titan of Latin American literature follows a critic trying to capture the essence of his national culture.`\
 https://nytimes.com/2026/02/24/books/review/mario-vargas-llosa-i-give-you-my-silence.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010731127/how-to-clean
 **Braves keep Chris Sale in Atlanta with one-year, $27 million extension**\
 `The deal also includes a $30 million club option for the 2028 season. `\
 https://nytimes.com/athletic/7067755/2026/02/24/atlanta-braves-chris-sale-extension/
-
-**Former Alpine driver Jack Doohan received death threats during F1 2025**\
-`The death threats received by former F1 driver Jack Doohan are revealed in the latest season of docuseries "Drive to Survive"`\
-https://nytimes.com/athletic/7067805/2026/02/24/jack-doohan-f1-death-threats/
-
-**Trump’s Justice Department Sues New Jersey Governor Over ICE Enforcement**\
-`The lawsuit is the latest federal challenge to policies enacted in Democrat-led states. Similar suits have targeted laws in New York, Minnesota and California.`\
-https://nytimes.com/2026/02/24/nyregion/doj-sues-new-jersey-ice-sherrill.html
 
