@@ -1,40 +1,40 @@
-**China Amps Up Pressure on Japan With Export Bans**\
-`Beijing placed the restrictions on 20 Japanese entities with ties to the defense industry, the latest ratcheting up of its monthslong feud with Tokyo.`\
-https://nytimes.com/2026/02/24/world/asia/china-japan-export-ban.html
+**Blue Jackets' Werenski won't be the same after winning gold, says two-time winner Nash**\
+`Werenski and Nash are the only two Blue Jackets players to have won Olympic gold medals.`\
+https://nytimes.com/athletic/7067119/2026/02/24/zach-werenski-olympics-gold-blue-jackets/
 
-**How often do NFL teams get coaching hires right? What 23 years of data tells us**\
-`By our metrics, more than 60 percent of the 160 head coaches hired from 2000 and 2022 were failures.`\
-https://nytimes.com/athletic/7056940/2026/02/24/nfl-head-coach-hire-success-rate/
+**NHL trade deadline perfect fits: Matching contenders with their missing piece**\
+`Not every trade has to be a blockbuster to push a team toward a Stanley Cup. Sometimes it's just the right player at the right time.`\
+https://nytimes.com/athletic/7058798/2026/02/24/nhl-trade-deadline-perfect-fits-trocheck-faulk-wild/
 
-**Meet baseball's No. 2 prospect, weaned on the lessons of Tony Gwynn and Larry Bird**\
-`Tigers shortstop Kevin McGonigle is MLB's No. 2 prospect. He's prepared to be a star — or to handle shifts at the Philadelphia Navy Yard. `\
-https://nytimes.com/athletic/7064709/2026/02/24/detroit-tigers-kevin-mcgonigle-prospect-rise/
+**A history of the Selanne Trophy, a fake award for best combined NHL/Olympics year**\
+`Today, we’re unveiling a new fake trophy for the best combination of NHL and Olympic performance in the same season.`\
+https://nytimes.com/athletic/7066500/2026/02/24/nhl-olympics-selanne-trophy/
 
-**'Who is Dejounte, really?' How a 'breakdown' led a former All-Star to face himself**\
-`Dejounte Murray's Achilles injury was just one more thing to overcome. But it spurred a journey far deeper than a comeback to the court.`\
-https://nytimes.com/athletic/7066328/2026/02/24/dejounte-murray-nba-achilles-injury-pelicans/
+**What's the one question LeBron James had to ask Tiger Woods?**\
+`James joked that he didn’t ask Woods for any golf tips Saturday. And he didn’t ask his question to Woods to learn anything specific.`\
+https://nytimes.com/athletic/7067191/2026/02/24/tiger-woods-visit-lebron-lakers-golf-nba/
 
-**What can Browns learn about their QB plans during NFL Scouting Combine?**\
-`Cleveland can get a sense of where things stand with pending free-agent QBs and evaluate draft prospects while in Indianapolis. `\
-https://nytimes.com/athletic/7066341/2026/02/24/browns-quarterback-plans-nfl-scouting-combine/
+**Nick Sirianni speaks: Sean Mannion hire, Jeff Stoutland's exit, new offensive scheme**\
+`The Eagles will be shifting their offensive scheme with the new hires.`\
+https://nytimes.com/athletic/7066659/2026/02/24/eagles-nick-sirianni-sean-mannion-jeff-stoutland-offense/
 
-**Ranking every Formula 1 livery for 2026: Adidas stripes, yin-and-yang, and phoning it in**\
-`It’s more than just paint colors. Livery designs are an integral part of the sport, as teams have to capture their story in a visual design`\
-https://nytimes.com/athletic/7066305/2026/02/24/ranking-formula-1-livery-for-2026/
+**NFL combine primer: Why Fernando Mendoza won't throw, players to watch, more**\
+`Mendoza, like other recent projected top picks, will instead throw at Indiana's pro day with his own receivers and running backs.`\
+https://nytimes.com/athletic/7062780/2026/02/24/nfl-scouting-combine-2026-primer-players-to-watch/
 
-**A 30-year search for a long-lost baseball player comes to an unexpected end: 'I could finally exhale'**\
-`The only thing that stood in between Randy Kula and his decades-long quest to find the mysterious Shorty Gallagher? A typo.`\
-https://nytimes.com/athletic/7044866/2026/02/24/cleveland-baseball-shorty-gallagher-search/
+**Most of us are bad at predicting what will make us happy, including the world's best athletes**\
+`From Tom Brady and Kevin Durant to Olympic gold medalists, people are really bad at predicting what will make them happy.`\
+https://nytimes.com/athletic/7065732/2026/02/24/psychology-of-happiness-athletes-predicting/
 
-**The New York Times International Edition in Print for Wednesday, Feb. 25, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/24/todays-new-york-times-international-edition
+**Which MLB pitchers are going to benefit most from the Automated Ball-Strike system?**\
+`It isn't clear exactly who will benefit the most from ABS challenges, but pitchers who can paint at the top of the zone might get a boost.`\
+https://nytimes.com/athletic/7064417/2026/02/24/mlb-abs-system-challenges-pitcher-benefits/
 
-**Russell Brand Pleads Not Guilty to Further Rape and Sexual Assault Charges**\
-`The YouTuber, actor and comedian had already pleaded not guilty to five other charges of sexual assault in Britain.`\
-https://nytimes.com/2026/02/24/movies/russell-brand-court-rape-charges.html
+**What we learned from Olympics hockey: Hellebuyck shines, passing the torch and more**\
+`Twelve years and three cycles later, NHL players returned to the Olympics, and the tournament delivered.`\
+https://nytimes.com/athletic/7066455/2026/02/24/what-we-learned-olympics-hockey-hellebuyck-hughes-crosby/
 
-**How Fast Will A.I. Agents Rip Through the Economy?**\
-`The Anthropic co-founder Jack Clark tells Ezra Klein what he sees coming in the new era of A.I. agents.`\
-https://nytimes.com/2026/02/24/opinion/ezra-klein-podcast-jack-clark.html
+**NHL players Darren and Taylor Raddysh find strength in their father’s resilience**\
+`While the Raddysh brothers fight to sustain NHL careers, their father is facing a much grimmer opponent.`\
+https://nytimes.com/athletic/7065918/2026/02/24/darren-taylor-raddysh-dad-cancer-nhl-rangers-lightning/
 
