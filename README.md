@@ -1,3 +1,15 @@
+**Paramount Raises Its Bid for Warner Bros. Discovery**\
+`Warner Bros. Discovery said Paramount’s new offer of $31 a share could lead to a “superior proposal” to the deal it signed with Netflix.`\
+https://nytimes.com/2026/02/24/business/paramount-netflix-warner-bros-discovery.html
+
+**Packers GM Brian Gutekunst: Rich Bisaccia stepping down was entirely unexpected**\
+`Gutekunst said on Tuesday he thinks Bisaccia wanted to explore other opportunities in coaching.`\
+https://nytimes.com/athletic/7068657/2026/02/24/rich-bisaccia-packers-brian-gutekunst/
+
+**The Guest List for the State of the Union**\
+`Democratic lawmakers invited victims of Jeffrey Epstein and of President Trump’s aggressive immigration crackdown.`\
+https://nytimes.com/2026/02/24/us/politics/state-of-the-union-guest-list.html
+
 **Plastic, Plastic Everywhere**\
 `We talk to the author of a new book about why the problem is so hard to solve.`\
 https://nytimes.com/2026/02/24/climate/plastic-plastic-everywhere.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/7068625/2026/02/24/johnny-cardoso-goal-usmnt-atleti
 **The U.S. men's Olympic hockey team won gold — and then lost the room**\
 `The widespread celebration is over now. And some of the U.S. men's Olympic hockey team's goodwill has diminished.`\
 https://nytimes.com/athletic/7068426/2026/02/24/usa-mens-olympics-hockey-gold-donald-trump/
-
-**Commanders GM 'as motivated as ever' to get deal done with Laremy Tunsil**\
-`The five-time Pro Bowl left tackle has one year remaining on his contract with Washington.`\
-https://nytimes.com/athletic/7068444/2026/02/24/commanders-laremy-tunsil-deal-adam-peters/
-
-**Cardinals' LaFleur has 'a lot of respect' for Kyler Murray, but QB's future is uncertain**\
-`GM Monti Ossenfort: "We're going to look at every avenue to improve, and we're going to continue to go through our process with that."`\
-https://nytimes.com/athletic/7068518/2026/02/24/cardinals-kyler-murray-mike-lafleur-nfl-combine/
-
-**Why Milwaukee Bucks legend Marques Johnson is still dunking at 70**\
-`Every year, Johnson says it will be his last dunk. Every year, he’s convinced to jump one more time.`\
-https://nytimes.com/athletic/7068389/2026/02/24/bucks-marques-johnson-dunk-70/
-
-**Twenty U.S. men's Olympic hockey players to attend Trump's State of the Union address**\
-`The majority of the roster arrived in Washington on Tuesday morning via a military jet that picked them up after a celebration in Miami.`\
-https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the-union-donald-trump/
 
