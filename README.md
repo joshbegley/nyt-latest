@@ -1,3 +1,7 @@
+**Cardinals' LaFleur has 'a lot of respect' for Kyler Murray, but QB's future is uncertain**\
+`GM Monti Ossenfort: "We're going to look at every avenue to improve, and we're going to continue to go through our process with that."`\
+https://nytimes.com/athletic/7068518/2026/02/24/cardinals-kyler-murray-mike-lafleur-nfl-combine/
+
 **Why Milwaukee Bucks legend Marques Johnson is still dunking at 70**\
 `Every year, Johnson says it will be his last dunk. Every year, he’s convinced to jump one more time.`\
 https://nytimes.com/athletic/7068389/2026/02/24/bucks-marques-johnson-dunk-70/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068591/2026/02/24/hornets-vs-bulls-stream-how-to-w
 **How to watch Wizards vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068586/2026/02/24/wizards-vs-hawks-stream-how-to-watch-feb-24/
-
-**How to watch Heat vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Miami Heat play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068582/2026/02/24/heat-vs-bucks-stream-how-to-watch-feb-24/
 
