@@ -1,3 +1,7 @@
+**Meta Announces Major Chips-for-Stock Deal With AMD**\
+`The multibillion-dollar deal is AMD’s latest move to catch up to Nvidia in the lucrative world of selling artificial intelligence chips.`\
+https://nytimes.com/2026/02/24/business/meta-amd-chips-ai.html
+
 **Benfica president Costa insists Prestianni 'not racist', club will 'stand by' him**\
 `Costa said Prestianni wouldn't represent Benfica if he was racist after the winger was accused of racially abusing Vinicius Junior.`\
 https://nytimes.com/athletic/7067594/2026/02/24/benfica-rui-costa-gianluca-prestianni-vinicius-junior/
