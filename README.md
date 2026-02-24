@@ -1,3 +1,7 @@
+**How a 'team from a small town up north' are slaying Europe's elite**\
+`The Norwegian minnows have dumped Inter Milan out of the Champions League and are not finished yet`\
+https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
+
 **What we learned from Commanders GM Adam Peters: Marshon Lattimore, Zach Ertz and more**\
 `The Washington Commanders' general manager also discussed Daron Payne, the team's staff changes and the upcoming draft.`\
 https://nytimes.com/athletic/7068971/2026/02/24/commanders-nfl-combine-adam-peters-brandon-aiyuk-zach-ertrz/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/24/briefing/trump-state-of-the-union-teens-ai-chatbo
 **John Lynch on Trent Williams contract stalemate: 'We're on the right track'**\
 `Williams turns 38 in July and is entering the final year of his contract with a cap hit of almost $39 million in 2026.`\
 https://nytimes.com/athletic/7068919/2026/02/24/trent-williams-contract-49ers-free-agency/
-
-**Michkov is working to put sophomore struggles behind him. Chris Pronger can relate**\
-`"It's learning the process of what it takes to be a true pro," said the Hall of Fame defenseman and former Flyers captain.`\
-https://nytimes.com/athletic/7068815/2026/02/24/matvei-michkov-flyers-fitness-tocchet-chris-pronger/
 
