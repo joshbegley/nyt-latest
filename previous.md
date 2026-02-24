@@ -1,3 +1,11 @@
+**The Workers Who Couldn’t Stay Home**\
+`Despite the snowstorm battering the New York area, workers whose jobs require them to show up in person found ways to attend to their duties.`\
+https://nytimes.com/2026/02/23/weather/nyc-snow-blizzard-jobs-work-commute.html
+
+**WNBA says 2026 season will be impacted if no deal on a CBA by March 10**\
+`The WNBA has to conduct an expansion draft, a college draft, plus free agency for more than 100 veterans before the 2026 season can begin.`\
+https://nytimes.com/athletic/7066988/2026/02/23/wnba-march-deadline-cba-term-sheet-schedule/
+
 **Snowstorm Is ‘as Bad as I’ve Seen It,’ Massachusetts Governor Says**\
 `Gov. Maura Healey said there were nearly 300,000 power outages throughout the state and about 350 cars stuck on roadways, some with drivers still in them.`\
 https://nytimes.com/2026/02/23/weather/massachusetts-boston-blizzard-snow-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066874/2026/02/23/blue-jays-jose-berrios-injury-up
 **Quad God Dresses Like Mere Mortal**\
 `For his final skate at the Winter Olympics in Italy, Ilia Malinin traded a spangly body suit for a hoodie and (designer) jeans.`\
 https://nytimes.com/2026/02/23/style/ilia-malinin-balmain-olympics.html
-
-**Hunkering Down in Mexico, Some Hope for a Flight Out Amid Burning Cars**\
-`People from Canada and the United States tell of scrambling for safety, food and flights after violence erupted in Mexico when a cartel boss died in custody.`\
-https://nytimes.com/2026/02/23/world/americas/mexico-visitors-flights-violence.html
-
-**Violence in Mexico After Cartel Boss Is Killed**\
-`Mexican officials carried out an operation that killed the nation’s most wanted cartel boss Nemesio Oseguera Cervantes, known as “El Mencho.” The death of Mr. Oseguera, who was the head of Mexico’s most powerful criminal organization, set off a wave of violence across the country.`\
-https://nytimes.com/video/world/americas/100000010730844/mexico-cartel-violence-mencho.html
 

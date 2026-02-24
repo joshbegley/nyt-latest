@@ -1,3 +1,11 @@
+**The Workers Who Couldn’t Stay Home**\
+`Despite the snowstorm battering the New York area, workers whose jobs require them to show up in person found ways to attend to their duties.`\
+https://nytimes.com/2026/02/23/weather/nyc-snow-blizzard-jobs-work-commute.html
+
+**WNBA says 2026 season will be impacted if no deal on a CBA by March 10**\
+`The WNBA has to conduct an expansion draft, a college draft, plus free agency for more than 100 veterans before the 2026 season can begin.`\
+https://nytimes.com/athletic/7066988/2026/02/23/wnba-march-deadline-cba-term-sheet-schedule/
+
 **Snowstorm Is ‘as Bad as I’ve Seen It,’ Massachusetts Governor Says**\
 `Gov. Maura Healey said there were nearly 300,000 power outages throughout the state and about 350 cars stuck on roadways, some with drivers still in them.`\
 https://nytimes.com/2026/02/23/weather/massachusetts-boston-blizzard-snow-storm.html
