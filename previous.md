@@ -1,3 +1,15 @@
+**After Being Shoved in Front of a Train, He Has Returned to the Subway**\
+`Joseph Lynskey was determined to overcome his fear and reclaim his life as a New Yorker who enjoys the city in full. On Tuesday, he filed a lawsuit against the city and the M.T.A.`\
+https://nytimes.com/2026/02/24/nyregion/joseph-lynskey-nyc-subway-shove-lawsuit.html
+
+**Fresh Off a Supreme Court Loss, Trump Could Face New Challenges on Tariffs**\
+`Critics are questioning the legality of the provision President Trump has used to replace his previous slate of tariffs, raising the prospect of yet another legal battle.`\
+https://nytimes.com/2026/02/24/us/politics/trump-tariffs-new-legal-challenges.html
+
+**How Dan Muse's fresh approach turned Penguins into NHL's biggest surprise**\
+`Muse, the Penguins' first-year coach, is proof that nice guys don't always finish last.`\
+https://nytimes.com/athletic/7029982/2026/02/24/penguins-coach-dan-muse-nhl-playoffs/
+
 **Review: ‘You Got Older,’ With Alia Shawkat, Gets a Sharp Revival**\
 `Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
 https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/02/24/business/trump-steel-tariffs-manufacturing.html
 **'All guarantees' in place for Mexico to host World Cup - Sheinbaum**\
 `The Mexican president insisted there were "no risks" to supporters planning to visit the country for the finals.`\
 https://nytimes.com/athletic/7068053/2026/02/24/claudia-sheinbaum-mexico-host-world-cup/
-
-**You Want a Lot of Iced Coffee? Dunkin’ Has a Bucket for You.**\
-`The coffee chain is offering a 48-ounce drink at some locations in New England. Grab a ladle.`\
-https://nytimes.com/2026/02/24/us/dunkin-donuts-coffee-bucket.html
-
-**Two Missouri Deputies Are Slain After Traffic Stop**\
-`The suspect was killed after fleeing into the woods, said the sheriff’s office in Christian County, which is south of Springfield.`\
-https://nytimes.com/2026/02/24/us/two-missouri-deputies-killed.html
-
-**Explaining Vonn's 'car crash' injury and how long her recovery could take**\
-`Medical experts break down why Vonn's leg injuries were so severe and the possible long-term implications`\
-https://nytimes.com/athletic/7067695/2026/02/24/lindsey-vonn-olympics-crash-injury-recovery/
 

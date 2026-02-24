@@ -1,3 +1,15 @@
+**After Being Shoved in Front of a Train, He Has Returned to the Subway**\
+`Joseph Lynskey was determined to overcome his fear and reclaim his life as a New Yorker who enjoys the city in full. On Tuesday, he filed a lawsuit against the city and the M.T.A.`\
+https://nytimes.com/2026/02/24/nyregion/joseph-lynskey-nyc-subway-shove-lawsuit.html
+
+**Fresh Off a Supreme Court Loss, Trump Could Face New Challenges on Tariffs**\
+`Critics are questioning the legality of the provision President Trump has used to replace his previous slate of tariffs, raising the prospect of yet another legal battle.`\
+https://nytimes.com/2026/02/24/us/politics/trump-tariffs-new-legal-challenges.html
+
+**How Dan Muse's fresh approach turned Penguins into NHL's biggest surprise**\
+`Muse, the Penguins' first-year coach, is proof that nice guys don't always finish last.`\
+https://nytimes.com/athletic/7029982/2026/02/24/penguins-coach-dan-muse-nhl-playoffs/
+
 **Review: ‘You Got Older,’ With Alia Shawkat, Gets a Sharp Revival**\
 `Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
 https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
