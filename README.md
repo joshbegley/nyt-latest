@@ -1,3 +1,7 @@
+**Olympic men's hockey gold medal game draws 18.6 million early risers**\
+`Team USA's OT win over Canada is most-watched sporting event ever in U.S. that started before 9 a.m. ET.`\
+https://nytimes.com/athletic/7068949/2026/02/24/olympic-mens-hockey-gold-medal-us-canada-nbc/
+
 **Epstein Victims to Attend Trump’s State of the Union as Guests of Lawmakers**\
 `Over a dozen victims of Jeffrey Epstein’s abuse will attend the speech as guests of Democratic lawmakers, who are calling for the full release of Epstein files.`\
 https://nytimes.com/2026/02/24/us/politics/epstein-victims-trump-sotu-guests.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/polls/texas-us-house-23-polls-2026.html
 **Texas 21st Congressional District 2026: Latest Polls**\
 `Track the latest polls in Texas's 21st Congressional District.`\
 https://nytimes.com/interactive/polls/texas-us-house-21-polls-2026.html
-
-**Texas 19th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Texas's 19th Congressional District.`\
-https://nytimes.com/interactive/polls/texas-us-house-19-polls-2026.html
 
