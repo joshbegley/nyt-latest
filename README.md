@@ -1,3 +1,15 @@
+**Kidilum Puts the Spotlight on Keralan Cuisine**\
+`Lumo Ombro takes the all-day route, the Eighth serves cocktails in a plush lounge and more restaurant news.`\
+https://nytimes.com/2026/02/24/dining/nyc-restaurant-news.html
+
+**Are the Pelicans a non-tanking role model? Scouting Nets' Wolf, Arkansas' Acuff Jr.**\
+`Because the Pelicans have nothing to gain in this year's draft lottery, they have nothing to lose down the stretch except games, honorably.`\
+https://nytimes.com/athletic/7067396/2026/02/24/nba-pelicans-tanking-scouting-danny-wolf-darius-acuff-jr/
+
+**Penguins trade Brett Kulak to Avalanche for Samuel Girard, second-round draft pick**\
+`The Penguins originally acquired Kulak in the trade that sent goaltender Tristan Jarry to the Edmonton Oilers.`\
+https://nytimes.com/athletic/7068185/2026/02/24/penguins-avalanche-trade-brett-kulak-samuel-girard/
+
 **Germany’s Leader Heads to China and Walks a Tightrope Between Xi and Trump**\
 `Chancellor Friedrich Merz’s trip will test his ability to address tensions between the countries, at a time of strain between Europe and Washington.`\
 https://nytimes.com/2026/02/24/world/europe/merz-germany-china-trip-beijing-xi.html
@@ -14,7 +26,7 @@ https://nytimes.com/2026/02/24/business/home-depot-sales.html
 `Readers discuss the end of visas for Afghan wartime partners. Also: Timely election results; Russian sexual violence in Ukraine; cash for the 250th anniversary.`\
 https://nytimes.com/2026/02/24/opinion/afghan-immigrant-visas.html
 
-**Auston Matthews to rejoin Leafs on Tuesday night, expected to play in Tampa**\
+**Auston Matthews expected to rejoin Leafs on Tuesday night**\
 `The Maple Leafs are expecting to have close to a fully healthy lineup when they face Tampa Bay on Wednesday.  `\
 https://nytimes.com/athletic/7068113/2026/02/24/auston-matthews-olympics-maple-leafs-status/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/24/world/europe/ukraine-war-deaths.html
 **England into T20 World Cup semi-finals as Harry Brook century sees off Pakistan**\
 `The captain scored 100 off 51 deliveries to dominate his team's response to Pakistan's 164-9, with England winning with five balls to spare`\
 https://nytimes.com/athletic/7068079/2026/02/24/harry-brook-england-t20-world-cup-semi-pakistan/
-
-**Pacers coach Rick Carlisle calls NBA's $100,000 tanking fine 'ridiculous'**\
-`Rick Carlisle also said the NBA suggested Indiana medicate injured Aaron Nesmith so that he could play in the Feb. 3 game against Utah.`\
-https://nytimes.com/athletic/7068115/2026/02/24/pacers-rick-carlisle-fine-nba-tanking/
-
-**Jack and Quinn Hughes respond to 'backlash' faced by U.S. men's Olympic hockey team**\
-`The Hughes brothers acknowledged what Jack called the “backlash” the team has faced because of their post-Olympic call with Donald Trump.`\
-https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-olympics-donald-trump/
-
-**IIHF will stick with 3-on-3 overtime despite criticism after Olympic hockey gold-medal games**\
-`IIHF president Luc Tardif: "It's the best rules to fit. The OT format will remain the same moving forward."`\
-https://nytimes.com/athletic/7068095/2026/02/24/olympic-hockey-overtime-games-luc-tardif/
 
