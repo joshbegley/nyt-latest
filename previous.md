@@ -1,3 +1,15 @@
+**Targeted buys? Sell? Stand pat? Here are the Sharks' trade-deadline options**\
+`The Sharks, surprisingly, remain in the hunt for a playoff spot. How might that affect their deadline plans?`\
+https://nytimes.com/athletic/7053022/2026/02/24/sharks-trade-deadline-buy-sell/
+
+**International Booker Prize Nominees: 13 Books to Get You Talking**\
+`Novels by Daniel Kehlmann, Olga Ravn and Gabriela Cabezón Cámara are among the 13 titles nominated for the renowned award for fiction translated into English.`\
+https://nytimes.com/2026/02/24/books/international-booker-prize-longlist.html
+
+**Cloaked in Sunglasses and a Big Coat**\
+`A student’s attire suggested a desire to be incognito.`\
+https://nytimes.com/2026/02/24/style/street-style-look-clothes-to-blend-in.html
+
 **UFL rule changes include 4-point field goals from 60-plus, no punts inside 50**\
 `The United Football League, in its third year after the merger of the XFL and USFL spring leagues, kicks off on March 27.`\
 https://nytimes.com/athletic/7066567/2026/02/24/ufl-rule-changes-field-goals-punts/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7067594/2026/02/24/benfica-rui-costa-gianluca-prest
 **A down year, or a new normal? New Angel Alek Manoah insists there's time to change his story**\
 `It's been rough going for Alek Manoah since 2023. But he insists that year and all that came after does not define him. `\
 https://nytimes.com/athletic/7067140/2026/02/24/alek-manoah-angels-blue-jays-narrative/
-
-**Gregory Santos is back with the Giants. This time he has a 100 mph sinker**\
-`Santos returns to the Giants with more experience, having pitched in 60 White Sox games in 2023 and 16 Mariners games the last two seasons.`\
-https://nytimes.com/athletic/7067127/2026/02/24/gregory-santos-giants-spring-training/
-
-**What we learned from 'Drive To Survive' season eight: Big drama, bigger gaps**\
-`F1's Netflix show returns, covering some revelations and McLaren's title wins — but fewer episodes left our writers wanting`\
-https://nytimes.com/athletic/7067232/2026/02/24/drive-to-survive-review-season-8/
-
-**Trump Administration Live Updates: President Prepares for State of the Union Address**\
-``\
-https://nytimes.com/live/2026/02/24/us/trump-news-updates
 

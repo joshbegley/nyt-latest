@@ -1,3 +1,15 @@
+**Targeted buys? Sell? Stand pat? Here are the Sharks' trade-deadline options**\
+`The Sharks, surprisingly, remain in the hunt for a playoff spot. How might that affect their deadline plans?`\
+https://nytimes.com/athletic/7053022/2026/02/24/sharks-trade-deadline-buy-sell/
+
+**International Booker Prize Nominees: 13 Books to Get You Talking**\
+`Novels by Daniel Kehlmann, Olga Ravn and Gabriela Cabezón Cámara are among the 13 titles nominated for the renowned award for fiction translated into English.`\
+https://nytimes.com/2026/02/24/books/international-booker-prize-longlist.html
+
+**Cloaked in Sunglasses and a Big Coat**\
+`A student’s attire suggested a desire to be incognito.`\
+https://nytimes.com/2026/02/24/style/street-style-look-clothes-to-blend-in.html
+
 **UFL rule changes include 4-point field goals from 60-plus, no punts inside 50**\
 `The United Football League, in its third year after the merger of the XFL and USFL spring leagues, kicks off on March 27.`\
 https://nytimes.com/athletic/7066567/2026/02/24/ufl-rule-changes-field-goals-punts/
