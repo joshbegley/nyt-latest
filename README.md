@@ -1,3 +1,7 @@
+**What the Snowstorm Looked Like Across the Northeast**\
+`Record-breaking amounts of snow fell in many parts of the region, blanketing the area with snow in the second large storm of the year.`\
+https://nytimes.com/2026/02/23/nyregion/snow-storm-photos.html
+
 **Even in a Blizzard, Food Delivery in New York City Continues**\
 `On Monday, Mayor Zohran Mamdani banned nearly all traffic from the streets. Among the exceptions were emergency vehicles and electric delivery bikes.`\
 https://nytimes.com/2026/02/23/nyregion/nyc-winter-storm-deliverista.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/opinion/alex-bores-ai-democrats.html
 **Chargers starting center Bradley Bozeman retires after eight seasons**\
 `Bozeman was not going to be a fit in new offensive coordinator Mike McDaniel’s scheme`\
 https://nytimes.com/athletic/7066852/2026/02/23/chargers-center-bradley-bozeman-retires/
-
-**Full Time: Checking up on U.S. players abroad**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7066858/2026/02/23/uswnt-international-players-full-time/
 

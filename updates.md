@@ -1,3 +1,7 @@
+**Even in a Blizzard, Food Delivery in New York City Continues**\
+`On Monday, Mayor Zohran Mamdani banned nearly all traffic from the streets. Among the exceptions were emergency vehicles and electric delivery bikes.`\
+https://nytimes.com/2026/02/23/nyregion/nyc-winter-storm-deliverista.html
+
 **Pentagon Pulls Support for Air Safety Bill Written After D.C. Collision**\
 `The legislation, which the House is expected to vote on Tuesday, would require military and commercial aircraft to use certain tracking technology to avoid collisions.`\
 https://nytimes.com/2026/02/23/us/politics/rotor-air-safety-dc-plane-crash.html
