@@ -1,3 +1,7 @@
+**Louvre Director Resigns, Months After Burglars Stole Crown Jewels**\
+`Laurence des Cars’s departure is the latest setback for the world’s largest museum. Her tenure was marred by labor strikes, water leaks and security lapses that led to the heist in October.`\
+https://nytimes.com/2026/02/24/world/europe/louvre-director-resigns-heist.html
+
 **SEC fines Kentucky coach Mark Pope $25K for postgame comments after Auburn loss**\
 `Pope's comments came after a controversial ending to the Wildcats' third consecutive loss.`\
 https://nytimes.com/athletic/7068277/2026/02/24/kentucky-coach-mark-pope-fined-auburn-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068185/2026/02/24/penguins-avalanche-trade-brett-k
 **Germany’s Leader Heads to China and Walks a Tightrope Between Xi and Trump**\
 `Chancellor Friedrich Merz’s trip will test his ability to address tensions between the countries, at a time of strain between Europe and Washington.`\
 https://nytimes.com/2026/02/24/world/europe/merz-germany-china-trip-beijing-xi.html
-
-**Backers of Aviation Safety Bill Cite Recent Near Miss to Make Their Case**\
-`The legislation’s advocates say a close call between two private planes near Teterboro, N.J., on Feb. 13 underscores the need for more collision prevention technology.`\
-https://nytimes.com/2026/02/24/us/politics/rotor-act-dc-plane-crash-teterboro.html
 
