@@ -1,3 +1,7 @@
+**This is why Senne Lammens was Manchester United's most important signing last summer**\
+`A team with a more erratic goalkeeper drops two points against a team playing like Everton, but the Belgian was not dropping anything`\
+https://nytimes.com/athletic/7067270/2026/02/24/senne-lammens-importance-everton-man-utd-premier-league/
+
 **Boxing has become a country for old men. Where's the future in that?**\
 `Is the current obsession with nostalgia bouts and veteran fights hurting the chances of a new generation of boxers finding an audience? `\
 https://nytimes.com/athletic/7065636/2026/02/24/boxing-mayweather-pacquiao-tyson-wilder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060438/2026/02/24/west-ham-fans-take-part-in-the-a
 **Norwich fans: Take part in The Athletic's FA Cup survey**\
 `Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
 https://nytimes.com/athletic/7060412/2026/02/24/norwich-fans-take-part-in-the-athletics-fa-cup-survey/
-
-**Liverpool fans: Take part in The Athletic's FA Cup survey**\
-`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
-https://nytimes.com/athletic/7060192/2026/02/24/liverpool-fans-take-part-in-the-athletics-fa-cup-survey/
 
