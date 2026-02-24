@@ -1,3 +1,7 @@
+**How a Day of Mayhem Unfolded in Mexico**\
+`The Times reporter Maria Abi-Habib describes the surge of violence in Mexico that erupted after a government raid killed the powerful cartel boss known as El Mencho.`\
+https://nytimes.com/video/world/americas/100000010730887/how-a-day-of-mayhem-unfolded-in-mexico.html
+
 **Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
 `In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
 https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/24/us/politics/pentagon-anthropic.html
 **J.J. McCarthy, the Vikings' quarterback pursuit and what we've learned at the NFL combine**\
 `Vikings coach Kevin O'Connell expressed confidence in McCarthy's trajectory, but the team is still looking to add competition for him at QB.`\
 https://nytimes.com/athletic/7068874/2026/02/24/jj-mccarthy-vikings-nfl-combine-kevin-oconnell-rob-brzezinski/
-
-**Attorneys for driver accused of killing Gaudreau brothers seek to dismiss charges**\
-`The defense is arguing that blood alcohol testing done on their client on the night of the crash produced an inaccurate result.`\
-https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-lawyer-seeks-dismissal-charges/
 

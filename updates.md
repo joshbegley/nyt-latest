@@ -1,3 +1,19 @@
+**Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
+`In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
+https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
+
+**Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
+`Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works that drew wide acclaim.`\
+https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
+
+**How a 'team from a small town up north' are slaying Europe's elite**\
+`The Norwegian minnows have dumped Inter out of the Champions League and are not finished yet`\
+https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
+
+**J.J. McCarthy, the Vikings' quarterback pursuit and what we've learned at the NFL combine**\
+`Vikings coach Kevin O'Connell expressed confidence in McCarthy's trajectory, but the team is still looking to add competition for him at QB.`\
+https://nytimes.com/athletic/7068874/2026/02/24/jj-mccarthy-vikings-nfl-combine-kevin-oconnell-rob-brzezinski/
+
 **Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
 `Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works.`\
 https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
