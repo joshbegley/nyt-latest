@@ -1,3 +1,11 @@
+**Quote of the Day: Judges Lose Patience on Immigration Defiance**\
+`Quotation of the Day for Tuesday, February 24, 2026.`\
+https://nytimes.com/2026/02/23/pageoneplus/quote-of-the-day-judges-lose-patience-on-immigration-defiance.html
+
+**Normal night for Darryn Peterson fuels Kansas’ defensive win over Houston**\
+`The Jayhawks led by as many as 20 and used a 12-0 second-half run to take control as Peterson, Melvin Counil and Tre White shined.`\
+https://nytimes.com/athletic/7066769/2026/02/23/darryn-peterson-kansas-houston-defense-council-white/
+
 **In Blow to Mamdani, Left-Leaning Group Breaks With Mayor Over U.S. House Race**\
 `Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
 https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html

@@ -1,3 +1,11 @@
+**Quote of the Day: Judges Lose Patience on Immigration Defiance**\
+`Quotation of the Day for Tuesday, February 24, 2026.`\
+https://nytimes.com/2026/02/23/pageoneplus/quote-of-the-day-judges-lose-patience-on-immigration-defiance.html
+
+**Normal night for Darryn Peterson fuels Kansas’ defensive win over Houston**\
+`The Jayhawks led by as many as 20 and used a 12-0 second-half run to take control as Peterson, Melvin Counil and Tre White shined.`\
+https://nytimes.com/athletic/7066769/2026/02/23/darryn-peterson-kansas-houston-defense-council-white/
+
 **Pentagon Races to Spend $153 Billion in Added Funds for Military**\
 `The Trump administration for months ignored Congress’s demand for a plan on how the Defense Department would spend the money that Republicans pushed through in their sweeping domestic policy bill.`\
 https://nytimes.com/2026/02/23/us/politics/pentagon-military-congress-spending.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/23/theater/mother-russia-review.html
 **Queens Man Arrested on a Sex Charge Said to Be an Assistant Principal**\
 `Federal prosecutors says Bond Ng used his apartment in Long Island City to arrange for a woman to have sex with clients.`\
 https://nytimes.com/2026/02/23/nyregion/queens-assistant-principal-sex-charge.html
-
-**FedEx Sues for Refund of Trump Tariffs Rejected by Supreme Court**\
-`The company, which did not specify how much it was seeking, is expected to be one of many demanding compensation for levies ruled unlawful.`\
-https://nytimes.com/2026/02/23/business/fedex-lawsuit-tariffs-refund.html
-
-**Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**\
-`The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
-https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
 
