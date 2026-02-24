@@ -1,3 +1,11 @@
+**Trump Says Top General Sees Easy Victory if U.S. Attacks Iran**\
+`The remarks differ from what Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, is said to have told the president in high-level White House meetings.`\
+https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
+
+**The Newest Player in A.I.’s Supply Chain Is a Toilet Maker**\
+`A British investor urged the Japanese company Toto to produce its advanced ceramics not for toilet seats and bidets, but for A.I. semiconductors.`\
+https://nytimes.com/video/podcasts/100000010732602/the-newest-player-in-ais-supply-chain-is-a-toilet-maker.html
+
 **Transit in the New York Region Is Recovering Slowly After Storm**\
 `Some service in and around New York City may remain suspended on Tuesday, and most trains and buses that are running will be subject to delays or limited schedules.`\
 https://nytimes.com/2026/02/23/weather/mass-transit-new-york-jersey.html
