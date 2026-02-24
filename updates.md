@@ -1,3 +1,11 @@
+**TAFC: UEFA bans Benfica’s Prestianni over alleged racist abuse. Plus: FIFA worry over Mexico cartel violence**\
+`Today in TAFC: Benfica’s Prestianni will miss Champions League game in Madrid. Plus: Is Mexico's World Cup qualifying playoff event at risk?`\
+https://nytimes.com/athletic/7067543/2026/02/24/uefa-bans-prestianni-alleged-racist-abuse-plus-fifa-worry-over-mexico-cartel-violence/
+
+**Victor Wembanyama, Spurs conquer Pistons' physicality, make case as title favorites**\
+`After another huge Wemby performance, this one against the league's top team, the Spurs look like they could win it all.`\
+https://nytimes.com/athletic/7067375/2026/02/24/spurs-win-pistons-victor-wembanyama-title-favorites/
+
 **Arrest of Ex-Ambassador Peter Mandelson Rattles U.K. Politics**\
 `The arrest of the British former envoy to Washington, long a key figure in the Labour Party, deepened a scandal that has led to calls for Prime Minister Keir Starmer’s resignation.`\
 https://nytimes.com/2026/02/24/world/europe/mandelson-arrest-epstein-starmer-uk.html
