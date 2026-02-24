@@ -1,3 +1,11 @@
+**Emma Raducanu leaves Nike for Uniqlo in fashion sponsorship switch**\
+`Nike signed Raducanu in 2018, three years before her breakthrough at the U.S. Open.`\
+https://nytimes.com/athletic/6893507/2026/02/23/emma-raducanu-leaves-nike-for-uniqlo/
+
+**Pretty Large Jazz Combo**\
+`Adam Aaronson’s Tuesday puzzle serenades us.`\
+https://nytimes.com/2026/02/23/crosswords/daily-puzzle-2026-02-24.html
+
 **After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunt Residents**\
 `Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
 https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html

@@ -1,3 +1,11 @@
+**Emma Raducanu leaves Nike for Uniqlo in fashion sponsorship switch**\
+`Nike signed Raducanu in 2018, three years before her breakthrough at the U.S. Open.`\
+https://nytimes.com/athletic/6893507/2026/02/23/emma-raducanu-leaves-nike-for-uniqlo/
+
+**Pretty Large Jazz Combo**\
+`Adam Aaronson’s Tuesday puzzle serenades us.`\
+https://nytimes.com/2026/02/23/crosswords/daily-puzzle-2026-02-24.html
+
 **Two-time WNBA champion Kara Braxton dies at 43 after car crash in Georgia**\
 `Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
 https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010732602/the-newest-player-in-ais-supp
 **Transit in the New York Region Is Recovering Slowly After Storm**\
 `Some service in and around New York City may remain suspended on Tuesday, and most trains and buses that are running will be subject to delays or limited schedules.`\
 https://nytimes.com/2026/02/23/weather/mass-transit-new-york-jersey.html
-
-**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunt Residents**\
-`Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
-https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
-
-**What the Snowstorm Looked Like Across the Northeast**\
-`Record-breaking amounts of snow fell in many parts of the region, blanketing the area with snow in the second large storm of the year.`\
-https://nytimes.com/2026/02/23/nyregion/snow-storm-photos.html
 
