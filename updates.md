@@ -1,3 +1,7 @@
+**Will World Cup playoff games stay in Mexico? What cartel violence means for FIFA's tournament plans**\
+`One official told The Athletic the playoff games may become vulnerable but FIFA says it has "full confidence" in all its host nations`\
+https://nytimes.com/athletic/7067411/2026/02/24/mexico-cartel-violence-fifa-world-cup-playoffs/
+
 **Everton need to look beyond brute force to end the winless run at their new home**\
 `David Moyes' side peppered Manchester United with crosses and high balls, but more guile is required to change their fortunes  `\
 https://nytimes.com/athletic/7067097/2026/02/24/everton-tactics-manchester-united-moyes-premier-league/
