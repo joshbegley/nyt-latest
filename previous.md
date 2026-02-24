@@ -1,3 +1,11 @@
+**Trump’s Tariff Goes Into Effect at 10 Percent, Not the 15 Threatened**\
+`The change surprised executives and foreign leaders, who had been expecting the 15 percent rate the president announced on Saturday.`\
+https://nytimes.com/2026/02/24/us/politics/trump-tariffs-global-trade.html
+
+**Savannah Guthrie Offers $1 Million Reward for Mother’s Return**\
+``\
+https://nytimes.com/live/2026/02/24/us/nancy-guthrie-case-updates
+
 **Targeted buys? Sell? Stand pat? Here are the Sharks' trade-deadline options**\
 `The Sharks, surprisingly, remain in the hunt for a playoff spot. How might that affect their deadline plans?`\
 https://nytimes.com/athletic/7053022/2026/02/24/sharks-trade-deadline-buy-sell/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/business/paramount-warner-bros-discovery.html
 **Meta Announces Major Chips-for-Stock Deal With AMD**\
 `The multibillion-dollar deal is AMD’s latest move to catch up to Nvidia in the lucrative world of selling artificial intelligence chips.`\
 https://nytimes.com/2026/02/24/business/meta-amd-chips-ai.html
-
-**Benfica president Costa insists Prestianni 'not racist', club will 'stand by' him**\
-`Costa said Prestianni wouldn't represent Benfica if he was racist after the winger was accused of racially abusing Vinicius Junior.`\
-https://nytimes.com/athletic/7067594/2026/02/24/benfica-rui-costa-gianluca-prestianni-vinicius-junior/
-
-**A down year, or a new normal? New Angel Alek Manoah insists there's time to change his story**\
-`It's been rough going for Alek Manoah since 2023. But he insists that year and all that came after does not define him. `\
-https://nytimes.com/athletic/7067140/2026/02/24/alek-manoah-angels-blue-jays-narrative/
 

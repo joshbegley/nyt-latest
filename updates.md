@@ -1,3 +1,11 @@
+**Trump’s Tariff Goes Into Effect at 10 Percent, Not the 15 Threatened**\
+`The change surprised executives and foreign leaders, who had been expecting the 15 percent rate the president announced on Saturday.`\
+https://nytimes.com/2026/02/24/us/politics/trump-tariffs-global-trade.html
+
+**Savannah Guthrie Offers $1 Million Reward for Mother’s Return**\
+``\
+https://nytimes.com/live/2026/02/24/us/nancy-guthrie-case-updates
+
 **Targeted buys? Sell? Stand pat? Here are the Sharks' trade-deadline options**\
 `The Sharks, surprisingly, remain in the hunt for a playoff spot. How might that affect their deadline plans?`\
 https://nytimes.com/athletic/7053022/2026/02/24/sharks-trade-deadline-buy-sell/
