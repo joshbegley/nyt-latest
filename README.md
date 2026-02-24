@@ -1,3 +1,7 @@
+**Milan Cortina Olympics draw largest audience since 2014, NBC says**\
+`The average of 23.5 million does not include final numbers on Sunday's men's hockey gold medal game between the U.S. and Canada.`\
+https://nytimes.com/athletic/7067143/2026/02/23/winter-olympics-tv-streaming-ratings-2026/
+
 **Emma Raducanu leaves Nike for Uniqlo in fashion sponsorship switch**\
 `Nike signed Raducanu in 2018, three years before her breakthrough at the U.S. Open.`\
 https://nytimes.com/athletic/6893507/2026/02/23/emma-raducanu-leaves-nike-for-uniqlo/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html
 **The Newest Player in A.I.’s Supply Chain Is a Toilet Maker**\
 `A British investor urged the Japanese company Toto to produce its advanced ceramics not for toilet seats and bidets, but for A.I. semiconductors.`\
 https://nytimes.com/video/podcasts/100000010732602/the-newest-player-in-ais-supply-chain-is-a-toilet-maker.html
-
-**Transit in the New York Region Is Recovering Slowly After Storm**\
-`Some service in and around New York City may remain suspended on Tuesday, and most trains and buses that are running will be subject to delays or limited schedules.`\
-https://nytimes.com/2026/02/23/weather/mass-transit-new-york-jersey.html
 
