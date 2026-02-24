@@ -1,3 +1,15 @@
+**Dillon Brooks has surgery on fractured hand, adding to Suns' mounting injury woes**\
+`Star guard Devin Booker remains out with a right hip strain and bench energizer Jordan Goodwin is out with a left calf strain.`\
+https://nytimes.com/athletic/7068310/2026/02/24/dillon-brooks-surgery-hand-suns-injuries/
+
+**Judge Axes Exxon’s Defamation Suit Against Environmentalists**\
+`But the case against the California attorney general, prompted by his lawsuit over Exxon’s plastic recycling program, can proceed in Texas federal court.`\
+https://nytimes.com/2026/02/24/climate/exxon-defamation-lawsuit-bonta-california-andrew-forrest-recycling.html
+
+**Catholic Clergy Call for ‘Human Dignity’ in Immigration Enforcement**\
+`18 bishops and archbishops from border areas issued a strongly worded statement hours before President Trump’s State of the Union address.`\
+https://nytimes.com/2026/02/24/us/politics/catholic-clergy-migrant-protections-trump-immigration.html
+
 **The Sexual Immaturity of ‘Wuthering Heights’**\
 `Wesley Morris, host of “Cannonball,” and Sasha Weiss, the culture editor of The New York Times Magazine, discuss Emerald Fennell’s steamy film adaptation of the novel “Wuthering Heights.”`\
 https://nytimes.com/video/podcasts/100000010733282/the-sexual-immaturity-of-wuthering-heights.html
