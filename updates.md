@@ -1,3 +1,15 @@
+**NHL trade grades: Avalanche pay a premium to get Brett Kulak from Penguins**\
+`Brett Kulak is a good fit for the Avalanche but giving up Sam Girard and a draft pick is a steep price.`\
+https://nytimes.com/athletic/7068244/2026/02/24/nhl-trade-grades-brett-kulak-sam-girard-avalanche-penguins/
+
+**The Hundred: All teams commit to not excluding cricket players based on nationality**\
+`The ECB says the competition remains "inclusive", after reports that IPL franchise-owned sides would not select Pakistani players.`\
+https://nytimes.com/athletic/7068368/2026/02/24/the-hundred-ecb-inclusivity-players/
+
+**House Rejects Air Safety Bill After Pentagon Opposition**\
+`The bill would have required aircraft to carry advanced location-tracking technology that officials said might have prevented a midair collision near Washington last year.`\
+https://nytimes.com/2026/02/24/us/house-rotor-act-dc-plane-crash.html
+
 **Dillon Brooks has surgery on fractured hand, adding to Suns' mounting injury woes**\
 `Star guard Devin Booker remains out with a right hip strain and bench energizer Jordan Goodwin is out with a left calf strain.`\
 https://nytimes.com/athletic/7068310/2026/02/24/dillon-brooks-surgery-hand-suns-injuries/
