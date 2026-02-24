@@ -1,3 +1,7 @@
+**Until Saturday: 34 coaching changes and counting**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7068149/2026/02/24/college-football-coaching-changes-until-saturday-2/
+
 **How the U.S. Is Crippling Cuba’s Economy**\
 `Cuba is facing its worst economic crisis in 67 years. Blackouts and fuel shortages have worsened after President Trump tightened restrictions on oil. Our international correspondent Frances Robles talks with Katrin Bennhold about the current situation in Cuba.`\
 https://nytimes.com/video/world/americas/100000010717540/how-the-us-is-crippling-cubas-economy.html

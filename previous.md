@@ -1,3 +1,11 @@
+**How the U.S. Is Crippling Cuba’s Economy**\
+`Cuba is facing its worst economic crisis in 67 years. Blackouts and fuel shortages have worsened after President Trump tightened restrictions on oil. Our international correspondent Frances Robles talks with Katrin Bennhold about the current situation in Cuba.`\
+https://nytimes.com/video/world/americas/100000010717540/how-the-us-is-crippling-cubas-economy.html
+
+**State of the Union 2026**\
+``\
+https://nytimes.com/news-event/state-of-the-union-2026
+
 **After Being Shoved in Front of a Train, He Has Returned to the Subway**\
 `Joseph Lynskey was determined to overcome his fear and reclaim his life as a New Yorker who enjoys the city in full. On Tuesday, he filed a lawsuit against the city and the M.T.A.`\
 https://nytimes.com/2026/02/24/nyregion/joseph-lynskey-nyc-subway-shove-lawsuit.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/24/books/review/24tbr-clint-bentley-train-dreams.htm
 **The Best of London Fashion**\
 `A look at a blah Burberry show and feistier brands that made a stronger impression.`\
 https://nytimes.com/2026/02/24/style/london-fashion-week-burberry.html
-
-**PSG, Morocco defender Hakimi set to face trial after rape allegation**\
-`Hakimi said in a statement posted on X that he denied the accusation against him.`\
-https://nytimes.com/athletic/7068042/2026/02/24/achraf-hakimi-trial-psg-morocco/
-
-**Trump’s Tariffs Are Adding Steel Mill Jobs, and Crushing American Factories**\
-`Tariffs unaffected by President Trump’s Supreme Court loss are adding costs for many U.S. manufacturers that use steel, limiting exports and jeopardizing jobs.`\
-https://nytimes.com/2026/02/24/business/trump-steel-tariffs-manufacturing.html
 

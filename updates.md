@@ -1,3 +1,11 @@
+**How the U.S. Is Crippling Cuba’s Economy**\
+`Cuba is facing its worst economic crisis in 67 years. Blackouts and fuel shortages have worsened after President Trump tightened restrictions on oil. Our international correspondent Frances Robles talks with Katrin Bennhold about the current situation in Cuba.`\
+https://nytimes.com/video/world/americas/100000010717540/how-the-us-is-crippling-cubas-economy.html
+
+**State of the Union 2026**\
+``\
+https://nytimes.com/news-event/state-of-the-union-2026
+
 **Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
 `Dom Luszczyszyn offers up his latest in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
 https://nytimes.com/athletic/6754590/2026/02/24/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
