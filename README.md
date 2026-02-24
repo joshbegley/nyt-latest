@@ -1,3 +1,7 @@
+**Snowstorm Is ‘as Bad as I’ve Seen It,’ Massachusetts Governor Says**\
+`Gov. Maura Healey said there were nearly 300,000 power outages throughout the state and about 350 cars stuck on roadways, some with drivers still in them.`\
+https://nytimes.com/2026/02/23/weather/massachusetts-boston-blizzard-snow-storm.html
+
 **A Congressional Candidate Feared by the Tech Oligarchs**\
 `There’s a huge political opportunity for the party that can stand up for human beings in the face of A.I.`\
 https://nytimes.com/2026/02/23/opinion/alex-bores-ai-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/23/world/americas/mexico-visitors-flights-violence.h
 **Violence in Mexico After Cartel Boss Is Killed**\
 `Mexican officials carried out an operation that killed the nation’s most wanted cartel boss Nemesio Oseguera Cervantes, known as “El Mencho.” The death of Mr. Oseguera, who was the head of Mexico’s most powerful criminal organization, set off a wave of violence across the country.`\
 https://nytimes.com/video/world/americas/100000010730844/mexico-cartel-violence-mencho.html
-
-**Mexico Is on Edge After the Killing of a Cartel Boss**\
-`Also, a blizzard sweeps through the Northeast. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/02/23/briefing/mexico-cartel-violence-snow-storm-northeast.html
 
