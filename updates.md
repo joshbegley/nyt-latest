@@ -1,3 +1,5 @@
+
+
 **After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunts Residents**\
 `Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
 https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
