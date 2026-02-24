@@ -14,6 +14,10 @@ https://nytimes.com/athletic/7029982/2026/02/24/penguins-coach-dan-muse-nhl-play
 `Clare Barron’s gorgeous play, about an unmoored young woman returning home to care for her father, finds a new home at Cherry Lane Theater.`\
 https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-barron.html
 
+**Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
+`Dom Luszczyszyn offers up his latest in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
+https://nytimes.com/athletic/6754590/2026/02/24/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
+
 **Director Clint Bentley on Adapting ‘Train Dreams’ for the Big Screen**\
 `The Oscar-nominated filmmaker talks about the daunting task of adapting Denis Johnson’s enigmatic novella`\
 https://nytimes.com/2026/02/24/books/review/24tbr-clint-bentley-train-dreams.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7068042/2026/02/24/achraf-hakimi-trial-psg-morocco/
 **Trump’s Tariffs Are Adding Steel Mill Jobs, and Crushing American Factories**\
 `Tariffs unaffected by President Trump’s Supreme Court loss are adding costs for many U.S. manufacturers that use steel, limiting exports and jeopardizing jobs.`\
 https://nytimes.com/2026/02/24/business/trump-steel-tariffs-manufacturing.html
-
-**'All guarantees' in place for Mexico to host World Cup - Sheinbaum**\
-`The Mexican president insisted there were "no risks" to supporters planning to visit the country for the finals.`\
-https://nytimes.com/athletic/7068053/2026/02/24/claudia-sheinbaum-mexico-host-world-cup/
 
