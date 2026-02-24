@@ -1,3 +1,11 @@
+**The Epstein Files**\
+`Times reporters and editors are digging through millions of pages of Jeffrey Epstein documents released by the Justice Department, and tracking the fallout.`\
+https://nytimes.com/spotlight/epstein-files
+
+**Aaron Glenn talks new roles, superpowers and Woody Johnson at the NFL Combine**\
+`The Jets coach was asked about what appeared to be a chaotic start to the offseason.`\
+https://nytimes.com/athletic/7068562/2026/02/24/aaron-glenn-new-york-jets-nfl-combine-woody-johnson/
+
 **How to watch Magic vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068602/2026/02/24/magic-vs-lakers-stream-how-to-watch-feb-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7068577/2026/02/24/knicks-vs-cavaliers-stream-how-t
 **How to watch Thunder vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068575/2026/02/24/thunder-vs-raptors-stream-how-to-watch-feb-24/
-
-**How to watch Mavericks vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068568/2026/02/24/mavericks-vs-nets-stream-how-to-watch-feb-24/
-
-**How to watch Celtics vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068566/2026/02/24/celtics-vs-suns-stream-how-to-watch-feb-24/
 
