@@ -1,3 +1,19 @@
+**Savannah Guthrie Offers $1 Million for Tip Leading to Mother’s Return**\
+`In a new video, the “Today” host acknowledged that her 84-year-old mother may already be dead, but said the family was holding out hope for a miracle.`\
+https://nytimes.com/2026/02/24/us/savannah-guthrie-one-million-reward-video-mother.html
+
+**Mexico Is Caught Between Trump and the Cartels**\
+`President Trump has demanded President Claudia Sheinbaum confront the cartels. The killing of “El Mencho” suggests it might be working — but could come at a cost.`\
+https://nytimes.com/2026/02/24/world/americas/trump-sheinbaum-us-mexico-cartel.html
+
+**Storm Leads to a First for The Boston Globe: A Day Without a Paper**\
+`The company said the blizzard had made it too treacherous for workers to make it to the printing press on Monday.`\
+https://nytimes.com/2026/02/24/business/media/boston-globe-storm.html
+
+**Lions to play in Germany in 2026, fulfilling Amon-Ra St. Brown's dream**\
+`The game will be played at the FC Bayern Munich Stadium this fall.`\
+https://nytimes.com/athletic/7067698/2026/02/24/nfl-germany-game-2026-detroit-lions/
+
 **Trump’s Tariff Goes Into Effect at 10 Percent, Not the 15 Threatened**\
 `The change surprised executives and foreign leaders, who had been expecting the 15 percent rate the president announced on Saturday.`\
 https://nytimes.com/2026/02/24/us/politics/trump-tariffs-global-trade.html
