@@ -1,3 +1,7 @@
+**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunt Residents**\
+`Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
+
 **Two-time WNBA champion Kara Braxton dies at 43 after car crash in Georgia**\
 `Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
 https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/

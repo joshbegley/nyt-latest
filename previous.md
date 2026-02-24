@@ -30,7 +30,7 @@ https://nytimes.com/video/podcasts/100000010732602/the-newest-player-in-ais-supp
 `Some service in and around New York City may remain suspended on Tuesday, and most trains and buses that are running will be subject to delays or limited schedules.`\
 https://nytimes.com/2026/02/23/weather/mass-transit-new-york-jersey.html
 
-**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunts Residents**\
+**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunt Residents**\
 `Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
 https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
 
