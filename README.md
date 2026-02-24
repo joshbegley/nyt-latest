@@ -1,3 +1,11 @@
+**How Joe Mazzulla and the Celtics use math to outsmart the rest of the NBA**\
+`No Tatum, no problem. Joe Mazzulla and the Celtics have figured out a way to outsmart the rest of the NBA. `\
+https://nytimes.com/athletic/7068313/2026/02/24/celtics-offense-joe-mazzulla-jayson-tatum-nba-video/
+
+**Providence, R.I., Is Used to Snow. But Not 36 Inches in a Day.**\
+`A day after the city got a record-breaking amount of snow, some residents clung to the magic. Others were tested by barely surmountable obstacles.`\
+https://nytimes.com/2026/02/24/us/providence-rhode-island-snow-totals.html
+
 **Xi’s Purges of China’s Military Run Deep, New Study Shows**\
 `Around 100 senior officers have been sidelined or vanished since 2022, hollowing out the top ranks and raising questions about the army’s capabilities.`\
 https://nytimes.com/2026/02/24/world/asia/china-military-purges-xi.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/us/politics/trumps-state-of-the-union-by-the-numb
 **What we learned from Patriots exec Eliot Wolf: Stefon Diggs update, draft plan and more**\
 `Wolf suggested that the AFC champions are not satisfied with their roster despite reaching Super Bowl 60 earlier this month.`\
 https://nytimes.com/athletic/7068335/2026/02/24/patriots-nfl-combine-eliot-wolf-stefon-diggs-draft/
-
-**N.Y.P.D. Reviewing Videos Showing Officers Being Hit With Snowballs**\
-`Dozens of people gathered in Washington Square Park in New York City on Monday for a snowball fight. The event turned chaotic when the police, who were called to control the crowd, arrived at the scene and were pelted with snowballs.`\
-https://nytimes.com/video/us/100000010733470/nypd-police-snowball-fight.html
-
-**Prime Tire: Big questions facing F1 after testing**\
-`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
-https://nytimes.com/athletic/7068427/2026/02/24/f1-testing-2026-season-prime-tire/
 
