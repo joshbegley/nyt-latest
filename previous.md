@@ -1,3 +1,23 @@
+**Virginia QB Chandler Morris sues NCAA, seeking 7th season of eligibility: Source**\
+`Morris is the latest to file suit to try to gain a year, following challenges by Ole Miss' Trinidad Chambliss and Tennessee's Joey Aguilar.`\
+https://nytimes.com/athletic/7068848/2026/02/24/chandler-morris-virginia-football-ncaa-lawsuit-eligibility/
+
+**Amid Chaos in Mexico, False Images Stoked Fears**\
+`Online disinformation proliferated rapidly after the Mexican military killed the country’s top cartel leader, fueling fear and chaos among residents and tourists alike. Mexican officials say some A.I.-generated images and fake news reports may have been linked to criminal actors.`\
+https://nytimes.com/video/world/americas/100000010731496/mexico-cartels-el-mencho-disinformation.html
+
+**Do A.I. Agents Actually Make You More Productive?**\
+`Can A.I. be useful while still allowing us to use our minds creatively? On this week’s episode of “The Ezra Klein Show,” the Anthropic co-founder Jack Clark shares his perspective.`\
+https://nytimes.com/video/opinion/100000010732755/do-ai-agents-actually-make-you-more-productive.html
+
+**End of Falcons' Kirk Cousins era signals failure of team's once-grand quarterback plan**\
+`With Cousins on the way out and Michael Penix Jr. still rehabbing, the Falcons have more questions than answers at quarterback.`\
+https://nytimes.com/athletic/7068698/2026/02/24/kirk-cousins-michael-penix-falcons-qb-plan/
+
+**Dueling Slates of Guests at Speech Show Stark Immigration Divide**\
+`The president and Republican lawmakers aim to portray undocumented immigrants as a danger. Democrats will try to paint the administration’s crackdown as the real peril.`\
+https://nytimes.com/2026/02/24/us/politics/state-of-the-union-guests-immigration.html
+
 **John Roberts Sent Trump a Message**\
 `How to read the gratuitous paragraph in the chief justice’s tariff opinion.`\
 https://nytimes.com/2026/02/24/opinion/tariffs-trump-john-roberts.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7068506/2026/02/24/fifa-world-cup-tickets-email-mis
 **Left tackle Taylor Decker announces he's returning to Lions for 2026 season**\
 `While Decker is returning, David Montgomery's future will need more clarity before the start of the new league year on March 11.`\
 https://nytimes.com/athletic/7068440/2026/02/24/lions-taylor-decker-returning-david-montgomery/
-
-**DJ Moore's future in Chicago uncertain as the Bears weigh offseason priorities**\
-`From Moore's potential departure to the Bears' needs at left tackle, Ben Johnson and Ryan Poles have a lot to sort through.`\
-https://nytimes.com/athletic/7068668/2026/02/24/bears-dj-moore-ryan-poles-nfl-combine/
-
-**Newcastle United 3 Qarabag 2 (9-3) - Who will Eddie Howe's side face next in the Champions League?**\
-`Analysis of Newcastle United's Champions League play-off second leg tie against Qarabag`\
-https://nytimes.com/athletic/7068521/2026/02/24/newcastle-united-champions-league-draw/
-
-**A.I. Agents: They’re Just Like Us**\
-`What does it mean that A.I. systems like Claude seem, like many humans, to dislike violence and love cute animals? Ezra asks the Anthropic co-founder Jack Clark this week on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010725778/ai-agents-theyre-just-like-us.html
-
-**Mika Zibanejad reflects on Olympics, Quinn and Drury return: Sights from Rangers practice**\
-`Zibanejad believes that the Olympic break was a good reset for all the New York players, whether they were at the Olympics or not.`\
-https://nytimes.com/athletic/7068409/2026/02/24/mika-zibanejad-reflects-olympics-quinn-drury-return/
-
-**Federal Judiciary Asks Congress to Give Over Control of Courthouses**\
-`In a letter to lawmakers, the courts’ policymaking body claimed that the General Services Administration, part of the executive branch, had been slow to make crucial repairs.`\
-https://nytimes.com/2026/02/24/us/politics/federal-judiciary-gsa-courthouses.html
 

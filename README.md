@@ -1,3 +1,7 @@
+**Once a top prospect, Luis Matos' Giants career might be at a crossroads**\
+`Matos was called up earlier than expected in 2023 when the Giants needed a left fielder. That decision has put the 2026 team in a pickle.`\
+https://nytimes.com/athletic/7068827/2026/02/24/sf-giants-luis-matos-final-option-year/
+
 **Virginia QB Chandler Morris sues NCAA, seeking 7th season of eligibility: Source**\
 `Morris is the latest to file suit to try to gain a year, following challenges by Ole Miss' Trinidad Chambliss and Tennessee's Joey Aguilar.`\
 https://nytimes.com/athletic/7068848/2026/02/24/chandler-morris-virginia-football-ncaa-lawsuit-eligibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068638/2026/02/24/indiana-house-passes-bill-bears-
 **FIFA sparks World Cup ticket confusion with unexpected sales window, email missing details**\
 `The unexpected email has led to mass confusion among fans, who have already had to navigate a complex ticketing process`\
 https://nytimes.com/athletic/7068506/2026/02/24/fifa-world-cup-tickets-email-mistake/
-
-**Left tackle Taylor Decker announces he's returning to Lions for 2026 season**\
-`While Decker is returning, David Montgomery's future will need more clarity before the start of the new league year on March 11.`\
-https://nytimes.com/athletic/7068440/2026/02/24/lions-taylor-decker-returning-david-montgomery/
 
