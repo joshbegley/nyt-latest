@@ -1,3 +1,15 @@
+**Sean Payton says new Broncos OC Davis Webb will call plays**\
+`Payton has called offensive plays throughout his 18 years as an NFL head coach.`\
+https://nytimes.com/athletic/7068951/2026/02/24/sean-payton-davis-webb-call-plays-broncos/
+
+**Miami may have to cancel World Cup Fan Fest over funding delay**\
+`Ray Martinez said they are "quickly approaching" a "drop-dead date" unless they see funding from the U.S. federal government within 30 days.`\
+https://nytimes.com/athletic/7068343/2026/02/24/miami-world-cup-fan-festival-cancel/
+
+**The U.S. Men’s Hockey Team Has Arrived in Washington**\
+`Two gold medal-winning U.S. hockey teams were invited to Washington for the State of the Union address. Only one came to town.`\
+https://nytimes.com/2026/02/24/us/politics/us-hockey-team-trump.html
+
 **Once a top prospect, Luis Matos' Giants career might be at a crossroads**\
 `Matos was called up earlier than expected in 2023 when the Giants needed a left fielder. That decision has put the 2026 team in a pickle.`\
 https://nytimes.com/athletic/7068827/2026/02/24/sf-giants-luis-matos-final-option-year/
@@ -14,7 +26,7 @@ https://nytimes.com/video/world/americas/100000010731496/mexico-cartels-el-mench
 `Can A.I. be useful while still allowing us to use our minds creatively? On this week’s episode of “The Ezra Klein Show,” the Anthropic co-founder Jack Clark shares his perspective.`\
 https://nytimes.com/video/opinion/100000010732755/do-ai-agents-actually-make-you-more-productive.html
 
-**End of Falcons' Kirk Cousins era signals failure of team's once-grand quarterback plan**\
+**End of Falcons' Kirk Cousins era signals failure of team's once-grand QB plan**\
 `With Cousins on the way out and Michael Penix Jr. still rehabbing, the Falcons have more questions than answers at quarterback.`\
 https://nytimes.com/athletic/7068698/2026/02/24/kirk-cousins-michael-penix-falcons-qb-plan/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/24/us/politics/state-of-the-union-guests-immigration
 **John Roberts Sent Trump a Message**\
 `How to read the gratuitous paragraph in the chief justice’s tariff opinion.`\
 https://nytimes.com/2026/02/24/opinion/tariffs-trump-john-roberts.html
-
-**In Search of Grown-Up Movies for Kids**\
-`We need stories that are more adult than Y.A. and less explicit than HBO.`\
-https://nytimes.com/2026/02/24/opinion/entertainment-kids-adults.html
-
-**Indiana lawmakers vote 95-4 to advance bill to fund new Bears stadium**\
-`State is hoping to lure NFL franchise from Chicago to Hammond, Ind., just across the Illinois-Indiana border.`\
-https://nytimes.com/athletic/7068638/2026/02/24/indiana-house-passes-bill-bears-stadium/
-
-**FIFA sparks World Cup ticket confusion with unexpected sales window, email missing details**\
-`The unexpected email has led to mass confusion among fans, who have already had to navigate a complex ticketing process`\
-https://nytimes.com/athletic/7068506/2026/02/24/fifa-world-cup-tickets-email-mistake/
 
