@@ -1,3 +1,7 @@
+**In Democratic Response to Trump, Spanberger Will Stress Affordability**\
+`Abigail Spanberger, the newly elected governor of Virginia, was chosen to deliver her party’s response to President Trump’s State of the Union address.`\
+https://nytimes.com/2026/02/24/us/politics/abigail-spanberger-democratic-response.html
+
 **What I'm seeing at Twins camp: Shelton's early overtures play well with veterans**\
 `The new manager has gone out of his way to build relationships and communicate with players since the Twins hired him in October.`\
 https://nytimes.com/athletic/7067842/2026/02/24/mlb-spring-training-twins-observations-derek-shelton/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/opinion/afghan-immigrant-visas.html
 **Auston Matthews expected to rejoin Leafs on Tuesday night**\
 `The Maple Leafs are expecting to have close to a fully healthy lineup when they face Tampa Bay on Wednesday.  `\
 https://nytimes.com/athletic/7068113/2026/02/24/auston-matthews-olympics-maple-leafs-status/
-
-**Ukraine War Deaths on Pace to Hit 500,000 in Fifth Year, Estimates Say**\
-`Russia has lost as many as 325,000 troops, according to some estimates, with more than 200,000 deaths verified by researchers.`\
-https://nytimes.com/2026/02/24/world/europe/ukraine-war-deaths.html
 

@@ -1,3 +1,7 @@
+**What I'm seeing at Twins camp: Shelton's early overtures play well with veterans**\
+`The new manager has gone out of his way to build relationships and communicate with players since the Twins hired him in October.`\
+https://nytimes.com/athletic/7067842/2026/02/24/mlb-spring-training-twins-observations-derek-shelton/
+
 **Kidilum Puts the Spotlight on Keralan Cuisine**\
 `Lumo Ombro takes the all-day route, the Eighth serves cocktails in a plush lounge and more restaurant news.`\
 https://nytimes.com/2026/02/24/dining/nyc-restaurant-news.html

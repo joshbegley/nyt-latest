@@ -1,3 +1,7 @@
+**What I'm seeing at Twins camp: Shelton's early overtures play well with veterans**\
+`The new manager has gone out of his way to build relationships and communicate with players since the Twins hired him in October.`\
+https://nytimes.com/athletic/7067842/2026/02/24/mlb-spring-training-twins-observations-derek-shelton/
+
 **Kidilum Puts the Spotlight on Keralan Cuisine**\
 `Lumo Ombro takes the all-day route, the Eighth serves cocktails in a plush lounge and more restaurant news.`\
 https://nytimes.com/2026/02/24/dining/nyc-restaurant-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068113/2026/02/24/auston-matthews-olympics-maple-l
 **Ukraine War Deaths on Pace to Hit 500,000 in Fifth Year, Estimates Say**\
 `Russia has lost as many as 325,000 troops, according to some estimates, with more than 200,000 deaths verified by researchers.`\
 https://nytimes.com/2026/02/24/world/europe/ukraine-war-deaths.html
-
-**England into T20 World Cup semi-finals as Harry Brook century sees off Pakistan**\
-`The captain scored 100 off 51 deliveries to dominate his team's response to Pakistan's 164-9, with England winning with five balls to spare`\
-https://nytimes.com/athletic/7068079/2026/02/24/harry-brook-england-t20-world-cup-semi-pakistan/
 
