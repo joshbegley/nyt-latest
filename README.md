@@ -1,3 +1,7 @@
+**Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
+`Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works.`\
+https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
+
 **How a 'team from a small town up north' are slaying Europe's elite**\
 `The Norwegian minnows have dumped Inter Milan out of the Champions League and are not finished yet`\
 https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-law
 **Trump Will Deliver His State of the Union Address**\
 `Also, most teens use A.I. chatbots for schoolwork. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/02/24/briefing/trump-state-of-the-union-teens-ai-chatbots.html
-
-**John Lynch on Trent Williams contract stalemate: 'We're on the right track'**\
-`Williams turns 38 in July and is entering the final year of his contract with a cap hit of almost $39 million in 2026.`\
-https://nytimes.com/athletic/7068919/2026/02/24/trent-williams-contract-49ers-free-agency/
 

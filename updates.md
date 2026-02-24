@@ -1,3 +1,11 @@
+**How a 'team from a small town up north' are slaying Europe's elite**\
+`The Norwegian minnows have dumped Inter Milan out of the Champions League and are not finished yet`\
+https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
+
+**Attorneys for driver accused of killing Gaudreau brothers seek to dismiss charges**\
+`The defense is arguing that blood alcohol testing done on their client on the night of the crash produced an inaccurate result.`\
+https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-lawyer-seeks-dismissal-charges/
+
 **What we learned from Commanders GM Adam Peters: Marshon Lattimore, Zach Ertz and more**\
 `The Washington Commanders' general manager also discussed Daron Payne, the team's staff changes and the upcoming draft.`\
 https://nytimes.com/athletic/7068971/2026/02/24/commanders-nfl-combine-adam-peters-brandon-aiyuk-zach-ertrz/
