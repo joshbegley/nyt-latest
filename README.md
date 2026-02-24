@@ -1,3 +1,11 @@
+**Jack and Quinn Hughes respond to 'backlash' faced by U.S. men's Olympic hockey team**\
+`The Hughes brothers acknowledged what Jack called the “backlash” the team has faced because of their post-Olympic call with Donald Trump.`\
+https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-olympics-donald-trump/
+
+**IIHF will stick with 3-on-3 overtime despite criticism after Olympic hockey gold-medal games**\
+`IIHF president Luc Tardif: "It's the best rules to fit. The OT format will remain the same moving forward."`\
+https://nytimes.com/athletic/7068095/2026/02/24/olympic-hockey-overtime-games-luc-tardif/
+
 **Until Saturday: 34 coaching changes and counting**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7068149/2026/02/24/college-football-coaching-changes-until-saturday-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/theater/you-got-older-review-shawkat-friedman-bar
 **Fantasy hockey: Rest of season rankings and player projections for 2025-26**\
 `Dom Luszczyszyn offers up his latest in-season update to his 2025-26 fantasy hockey rest-of-season rankings and player projections.`\
 https://nytimes.com/athletic/6754590/2026/02/24/fantasy-hockey-rest-of-season-rankings-player-projections-2025-26/
-
-**Director Clint Bentley on Adapting ‘Train Dreams’ for the Big Screen**\
-`The Oscar-nominated filmmaker talks about the daunting task of adapting Denis Johnson’s enigmatic novella`\
-https://nytimes.com/2026/02/24/books/review/24tbr-clint-bentley-train-dreams.html
-
-**The Best of London Fashion**\
-`A look at a blah Burberry show and feistier brands that made a stronger impression.`\
-https://nytimes.com/2026/02/24/style/london-fashion-week-burberry.html
 
