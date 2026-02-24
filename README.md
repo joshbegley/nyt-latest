@@ -1,3 +1,7 @@
+**Airlines Add Flights in Northeast After Winter Storm Causes Cancellations**\
+`The major U.S. airlines said they would add more flights in airports that serve cities like Boston, New York and Philadelphia.`\
+https://nytimes.com/2026/02/24/us/flights-snow-storm.html
+
 **Your Tariff Questions**\
 `We’re addressing some of your concerns about President Trump’s tariff regime.`\
 https://nytimes.com/2026/02/24/briefing/your-tariff-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066438/2026/02/24/ncaa-tournament-bracket-projecti
 **Grading the Big 12's transfer portal classes, from Texas Tech's ‘A’ to Iowa State's ‘D’**\
 `Five Big 12 schools made The Athletic’s ranking of the top 25 transfer portal classes.`\
 https://nytimes.com/athletic/7055484/2026/02/24/big-12-transfer-portal-grades-texas-tech-iowa-state-colorado-oklahoma-state/
-
-**Liverpool's Ngumoha keen on 'more minutes' after star cameo in Forest win**\
-`The 17-year-old, who has yet to make a Premier League start, has made a big impact off the bench in the victory at the City Ground.`\
-https://nytimes.com/athletic/7066649/2026/02/24/rio-ngumoha-liverpool-matches/
 
