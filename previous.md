@@ -1,3 +1,11 @@
+**John Roberts Sent Trump a Message**\
+`How to read the gratuitous paragraph in the chief justice’s tariff opinion.`\
+https://nytimes.com/2026/02/24/opinion/tariffs-trump-john-roberts.html
+
+**In Search of Grown-Up Movies for Kids**\
+`We need stories that are more adult than Y.A. and less explicit than HBO.`\
+https://nytimes.com/2026/02/24/opinion/entertainment-kids-adults.html
+
 **Indiana lawmakers vote 95-4 to advance bill to fund new Bears stadium**\
 `State is hoping to lure NFL franchise from Chicago to Hammond, Ind., just across the Illinois-Indiana border.`\
 https://nytimes.com/athletic/7068638/2026/02/24/indiana-house-passes-bill-bears-stadium/
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/7068409/2026/02/24/mika-zibanejad-reflects-olympics
 **Federal Judiciary Asks Congress to Give Over Control of Courthouses**\
 `In a letter to lawmakers, the courts’ policymaking body claimed that the General Services Administration, part of the executive branch, had been slow to make crucial repairs.`\
 https://nytimes.com/2026/02/24/us/politics/federal-judiciary-gsa-courthouses.html
-
-**Paramount Raises Its Bid for Warner Bros. Discovery**\
-`Warner Bros. Discovery said Paramount’s new offer of $31 a share could lead to a “superior proposal” to the deal it signed with Netflix.`\
-https://nytimes.com/2026/02/24/business/paramount-netflix-warner-bros-discovery.html
 
