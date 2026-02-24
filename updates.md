@@ -1,3 +1,7 @@
+**In Blow to Mamdani, Left-Leaning Group Breaks With Mayor Over U.S. House Race**\
+`Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
+https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html
+
 **Pentagon Races to Spend $153 Billion in Added Funds for Military**\
 `The Trump administration for months ignored Congress’s demand for a plan on how the Defense Department would spend the money that Republicans pushed through in their sweeping domestic policy bill.`\
 https://nytimes.com/2026/02/23/us/politics/pentagon-military-congress-spending.html
