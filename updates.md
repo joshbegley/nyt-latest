@@ -1,3 +1,11 @@
+**Arrest of Ex-Ambassador Peter Mandelson Rattles U.K. Politics**\
+`The arrest of the British former envoy to Washington, long a key figure in the Labour Party, deepened a scandal that has led to calls for Prime Minister Keir Starmer’s resignation.`\
+https://nytimes.com/2026/02/24/world/europe/mandelson-arrest-epstein-starmer-uk.html
+
+**The Pulse: Oh look, football’s already back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7066351/2026/02/24/nfl-scouting-combine-storylines-the-pulse/
+
 **Will A.J. Brown play for the Eagles in 2026? Howie Roseman speaks on OL, TE, more**\
 `Roseman and coach Nick Sirianni have both said they want Brown to stay with the Eagles.`\
 https://nytimes.com/athletic/7062542/2026/02/24/eagles-aj-brown-howie-roseman-offensive-line/

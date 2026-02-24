@@ -1,3 +1,11 @@
+**Arrest of Ex-Ambassador Peter Mandelson Rattles U.K. Politics**\
+`The arrest of the British former envoy to Washington, long a key figure in the Labour Party, deepened a scandal that has led to calls for Prime Minister Keir Starmer’s resignation.`\
+https://nytimes.com/2026/02/24/world/europe/mandelson-arrest-epstein-starmer-uk.html
+
+**The Pulse: Oh look, football’s already back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7066351/2026/02/24/nfl-scouting-combine-storylines-the-pulse/
+
 **Kepner: In a system stacked against them, the Guardians double down on their identity — with no apologies**\
 `Despite one of MLB's lowest payrolls, the Guardians are expected to once again be in the mix for an AL Central title. `\
 https://nytimes.com/athletic/7065870/2026/02/24/cleveland-guardians-identity-strategy-jose-ramirez/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7058798/2026/02/24/nhl-trade-deadline-perfect-fits-
 **A history of the Selanne Trophy, a fake award for best combined NHL/Olympics year**\
 `Today, we’re unveiling a new fake trophy for the best combination of NHL and Olympic performance in the same season.`\
 https://nytimes.com/athletic/7066500/2026/02/24/nhl-olympics-selanne-trophy/
-
-**What's the one question LeBron James had to ask Tiger Woods?**\
-`James joked that he didn’t ask Woods for any golf tips Saturday. And he didn’t ask his question to Woods to learn anything specific.`\
-https://nytimes.com/athletic/7067191/2026/02/24/tiger-woods-visit-lebron-lakers-golf-nba/
-
-**Nick Sirianni speaks: Sean Mannion hire, Jeff Stoutland's exit, new offensive scheme**\
-`The Eagles will be shifting their offensive scheme with the new hires.`\
-https://nytimes.com/athletic/7066659/2026/02/24/eagles-nick-sirianni-sean-mannion-jeff-stoutland-offense/
 
