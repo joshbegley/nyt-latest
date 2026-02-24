@@ -1,3 +1,11 @@
+**After Chaos Rips Across Mexico, the Remnants of Cartel Violence Haunts Residents**\
+`Charred vehicles cluttered deserted streets as residents started to emerge from their homes in Guadalajara, which was hit hard by violence after the death of a cartel leader.`\
+https://nytimes.com/2026/02/23/world/americas/mexico-cartel-guadalajara.html
+
+**What the Snowstorm Looked Like Across the Northeast**\
+`Record-breaking amounts of snow fell in many parts of the region, blanketing the area with snow in the second large storm of the year.`\
+https://nytimes.com/2026/02/23/nyregion/snow-storm-photos.html
+
 **Even in a Blizzard, Food Delivery in New York City Continues**\
 `On Monday, Mayor Zohran Mamdani banned nearly all traffic from the streets. Among the exceptions were emergency vehicles and electric delivery bikes.`\
 https://nytimes.com/2026/02/23/nyregion/nyc-winter-storm-deliverista.html
