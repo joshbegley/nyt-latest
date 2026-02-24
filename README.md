@@ -1,3 +1,15 @@
+**Why Milwaukee Bucks legend Marques Johnson is still dunking at 70**\
+`Every year, Johnson says it will be his last dunk. Every year, he’s convinced to jump one more time.`\
+https://nytimes.com/athletic/7068389/2026/02/24/bucks-marques-johnson-dunk-70/
+
+**Twenty members of U.S. men's Olympic hockey team to attend State of the Union, 5 to miss**\
+`The majority of the roster arrived in Washington on Tuesday morning via a military jet that picked them up after a night of celebration in M`\
+https://nytimes.com/athletic/7068435/2026/02/24/usa-hockey-olympics-state-of-the-union-donald-trump/
+
+**Senate Democrat Opens Inquiry Into Iran Transactions on Binance**\
+`Senator Richard Blumenthal of Connecticut sent a letter to Binance asking about the flow of $1.7 billion from accounts on the crypto exchange to Iranian entities.`\
+https://nytimes.com/2026/02/24/technology/richard-blumenthal-iran-binance-inquiry.html
+
 **The Epstein Files**\
 `Times reporters and editors are digging through millions of pages of Jeffrey Epstein documents released by the Justice Department, and tracking the fallout.`\
 https://nytimes.com/spotlight/epstein-files
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7068586/2026/02/24/wizards-vs-hawks-stream-how-to-w
 **How to watch Heat vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068582/2026/02/24/heat-vs-bucks-stream-how-to-watch-feb-24/
-
-**How to watch Timberwolves vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068580/2026/02/24/timberwolves-vs-trail-blazers-stream-how-to-watch-feb-24/
-
-**How to watch Knicks vs. Cavaliers: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068577/2026/02/24/knicks-vs-cavaliers-stream-how-to-watch-feb-24/
-
-**How to watch Thunder vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068575/2026/02/24/thunder-vs-raptors-stream-how-to-watch-feb-24/
 
