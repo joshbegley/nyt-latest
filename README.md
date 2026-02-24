@@ -1,3 +1,7 @@
+**Virginia QB Chandler Morris sues NCAA, seeking 7th season of eligibility: Source**\
+`Morris is the latest to file suit to try to gain a year, following challenges by Ole Miss' Trinidad Chambliss and Tennessee's Joey Aguilar.`\
+https://nytimes.com/athletic/7068848/2026/02/24/chandler-morris-virginia-football-ncaa-lawsuit-eligibility/
+
 **Amid Chaos in Mexico, False Images Stoked Fears**\
 `Online disinformation proliferated rapidly after the Mexican military killed the country’s top cartel leader, fueling fear and chaos among residents and tourists alike. Mexican officials say some A.I.-generated images and fake news reports may have been linked to criminal actors.`\
 https://nytimes.com/video/world/americas/100000010731496/mexico-cartels-el-mencho-disinformation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068506/2026/02/24/fifa-world-cup-tickets-email-mis
 **Left tackle Taylor Decker announces he's returning to Lions for 2026 season**\
 `While Decker is returning, David Montgomery's future will need more clarity before the start of the new league year on March 11.`\
 https://nytimes.com/athletic/7068440/2026/02/24/lions-taylor-decker-returning-david-montgomery/
-
-**DJ Moore's future in Chicago uncertain as the Bears weigh offseason priorities**\
-`From Moore's potential departure to the Bears' needs at left tackle, Ben Johnson and Ryan Poles have a lot to sort through.`\
-https://nytimes.com/athletic/7068668/2026/02/24/bears-dj-moore-ryan-poles-nfl-combine/
 
