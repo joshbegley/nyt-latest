@@ -1,3 +1,11 @@
+**Supreme Court Sides With Couple in Case Involving Baby Food Sold at Whole Foods**\
+`The court agreed to revive a lawsuit by a Texas couple who claimed that tainted baby food purchased at Whole Foods had sickened their young son.`\
+https://nytimes.com/2026/02/24/us/politics/supreme-court-whole-foods.html
+
+**Kevin Durant says he plans to play for Team USA in 2028 Olympics**\
+`Kevin Durant still wants to play in 2028 Summer Olympic Games in Los Angeles where he will be approaching 40 years old.`\
+https://nytimes.com/athletic/7067754/2026/02/24/kevin-durant-usa-2028-olympics/
+
 **Mario Vargas Llosa’s Swan Song Is an Ode to Peruvian Music**\
 `The final novel from a titan of Latin American literature follows a critic trying to capture the essence of his national culture.`\
 https://nytimes.com/2026/02/24/books/review/mario-vargas-llosa-i-give-you-my-silence.html
