@@ -1,3 +1,15 @@
+**Row Z: Sheikh Brendan, the politicisation of headwear and Sweden being 'Spursy'**\
+`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
+https://nytimes.com/athletic/7065301/2026/02/24/row-z-brendan-rodgers-spursy/
+
+**How O'Reilly went from full-back to a perfect fit in Guardiola's midfield**\
+`His size alone sets him apart from other academy graduates and he is now excelling in a new position for the first team`\
+https://nytimes.com/athletic/7065457/2026/02/24/nico-oreilly-midfielder-manchester-city/
+
+**Newcastle's leadership group is essential to the club's success - but it needs reinforcements**\
+`The departure of long-standing club captain Jamaal Lascelles makes recruiting players with leadership qualities an imperative this summer`\
+https://nytimes.com/athletic/7066371/2026/02/24/newcastle-leadership-group-guimaraes-burn-tripper/
+
 **Where should Harry Wilson go next?**\
 `The Welshman's form for Fulham in 2025-26 means he is likely to have several suitors in the summer – but which club would be the best fit?`\
 https://nytimes.com/athletic/7026756/2026/02/24/harry-wilson-aston-villa-everton-fulham-italy/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/24/books/review/young-man-in-a-hurry-gavin-newsom.ht
 **Connections: Sports Edition Coach: Hints and answers for Feb. 24, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7067338/2026/02/24/connections-sports-edition-hints-answers-feb-24-2026/
-
-**Chelsea's Omari Kellyman interview: 'I didn’t feel like I was a player anymore'**\
-`Omari Kellyman struggled with injury for the best part of a year — he spoke to The Athletic about it`\
-https://nytimes.com/athletic/7059762/2026/02/24/omari-kellyman-chelsea-interview-cardiff/
-
-**The Looming Taiwan Chip Disaster That Silicon Valley Has Long Ignored**\
-`If China invades Taiwan and cuts off its chip exports to American companies, the tech industry and the U.S. economy would be crippled.`\
-https://nytimes.com/2026/02/24/technology/taiwan-china-chips-silicon-valley-tsmc.html
-
-**Corrections: Feb. 24, 2026**\
-`Corrections that appeared in print on Tuesday, Feb. 24, 2026.`\
-https://nytimes.com/2026/02/24/pageoneplus/corrections-feb-24-2026.html
 
