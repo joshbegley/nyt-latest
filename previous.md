@@ -1,3 +1,7 @@
+**The Bounce: The Spurs are unstoppable. Plus, would you take Darryn Peterson No. 1?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7067744/2026/02/24/the-bounce-the-spurs-are-unstoppable-plus-would-you-take-darryn-peterson-no-1/
+
 **Is This the New Ballet Flat?**\
 `The spring runways were awash with delicate, derby-inspired shoes.`\
 https://nytimes.com/2026/02/24/t-magazine/best-derby-lace-up-shoes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/world/europe/russia-telegram-pavel-durov-terroris
 **Savannah Guthrie Offers $1 Million for Tip Leading to Mother’s Return**\
 `In a new video, the “Today” host acknowledged that her 84-year-old mother may already be dead, but said the family was holding out hope for a miracle.`\
 https://nytimes.com/2026/02/24/us/savannah-guthrie-one-million-reward-video-mother.html
-
-**Mexico Is Caught Between Trump and the Cartels**\
-`President Trump has demanded President Claudia Sheinbaum confront the cartels. The killing of “El Mencho” suggests it might be working — but could come at a cost.`\
-https://nytimes.com/2026/02/24/world/americas/trump-sheinbaum-us-mexico-cartel.html
 
