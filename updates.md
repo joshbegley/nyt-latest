@@ -1,3 +1,7 @@
+**Benfica president Costa insists Prestianni 'not racist', club will 'stand by' him**\
+`Costa said Prestianni wouldn't represent Benfica if he was racist after the winger was accused of racially abusing Vinicius Junior.`\
+https://nytimes.com/athletic/7067594/2026/02/24/benfica-rui-costa-gianluca-prestianni-vinicius-junior/
+
 **A down year, or a new normal? New Angel Alek Manoah insists there's time to change his story**\
 `It's been rough going for Alek Manoah since 2023. But he insists that year and all that came after does not define him. `\
 https://nytimes.com/athletic/7067140/2026/02/24/alek-manoah-angels-blue-jays-narrative/
