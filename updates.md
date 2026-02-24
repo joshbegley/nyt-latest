@@ -1,3 +1,11 @@
+**Two Missouri Deputies Are Slain After Traffic Stop**\
+`The suspect was killed after fleeing into the woods, said the sheriff’s office in Christian County, which is south of Springfield.`\
+https://nytimes.com/2026/02/24/us/two-missouri-deputies-killed.html
+
+**Explaining Vonn's 'car crash' injury and how long her recovery could take**\
+`Medical experts break down why Vonn's leg injuries were so severe and the possible long-term implications`\
+https://nytimes.com/athletic/7067695/2026/02/24/lindsey-vonn-olympics-crash-injury-recovery/
+
 **How to watch 76ers vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068045/2026/02/24/76ers-vs-pacers-stream-how-to-watch-feb-24/

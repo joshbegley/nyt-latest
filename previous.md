@@ -1,3 +1,11 @@
+**Two Missouri Deputies Are Slain After Traffic Stop**\
+`The suspect was killed after fleeing into the woods, said the sheriff’s office in Christian County, which is south of Springfield.`\
+https://nytimes.com/2026/02/24/us/two-missouri-deputies-killed.html
+
+**Explaining Vonn's 'car crash' injury and how long her recovery could take**\
+`Medical experts break down why Vonn's leg injuries were so severe and the possible long-term implications`\
+https://nytimes.com/athletic/7067695/2026/02/24/lindsey-vonn-olympics-crash-injury-recovery/
+
 **How to watch 76ers vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068045/2026/02/24/76ers-vs-pacers-stream-how-to-watch-feb-24/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7068023/2026/02/24/saint-louis-vs-dayton-stream-how
 **How to watch Duke vs. Notre Dame men's basketball: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7068018/2026/02/24/duke-vs-notre-dame-stream-how-to-watch-feb-24/
-
-**How to watch Miami (OH) vs. Eastern Michigan men's basketball: Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the Eastern Michigan Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7068016/2026/02/24/miami-oh-vs-eastern-michigan-stream-how-to-watch-feb-24/
-
-**Democrats Counter Trump With Their Own Plan to Limit Wall Street Landlords**\
-`As the president prepares to deliver a State of the Union address likely to touch on his own proposal, Senate Democrats introduced a bill with their own vision for limiting investors’ purchases of single-family homes.`\
-https://nytimes.com/2026/02/24/us/politics/trump-senate-democrats-single-family-rentals-homes.html
 
