@@ -1,3 +1,11 @@
+**Supreme Court Hears Case That Could Decide Fate of Great Lakes Pipeline**\
+`The question before the justices in a lawsuit filed by Michigan seeking to close part of the line was narrow. But the dispute raises broader questions about states’ power to regulate fossil fuels.`\
+https://nytimes.com/2026/02/24/us/politics/supreme-court-great-lakes-pipeline.html
+
+**In Democratic Response to Trump, Spanberger Will Stress Affordability**\
+`Abigail Spanberger, the newly elected governor of Virginia, was chosen to deliver her party’s response to President Trump’s State of the Union address.`\
+https://nytimes.com/2026/02/24/us/politics/abigail-spanberger-democratic-response.html
+
 **What I'm seeing at Twins camp: Shelton's early overtures play well with veterans**\
 `The new manager has gone out of his way to build relationships and communicate with players since the Twins hired him in October.`\
 https://nytimes.com/athletic/7067842/2026/02/24/mlb-spring-training-twins-observations-derek-shelton/
