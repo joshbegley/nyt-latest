@@ -1,3 +1,7 @@
+**Ranking every Formula 1 livery for 2026: Adidas stripes, yin-and-yang, and phoning it in**\
+`At the start of any given Formula 1 season, one of the themes that runs rampant is discussing what is new.`\
+https://nytimes.com/athletic/7066305/2026/02/24/ranking-formula-1-livery-for-2026/
+
 **Russell Brand Pleads Not Guilty to Further Rape and Sexual Assault Charges**\
 `The YouTuber, actor and comedian had already pleaded not guilty to five other charges of sexual assault in Britain.`\
 https://nytimes.com/2026/02/24/movies/russell-brand-court-rape-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/learning/what-were-your-favorite-moments-from-the
 **Billions in Climate Grants, Frozen for a Year, Are Back in Court**\
 `A year after the Trump administration blocked money that had been awarded by Congress for clean energy projects, the legal fight over the funds rages on.`\
 https://nytimes.com/2026/02/24/climate/billions-in-climate-grants-frozen-for-a-year-are-back-in-court.html
-
-**After a Big Loss, What to Expect From Trump at the State of the Union**\
-`The Supreme Court’s tariffs ruling could make for a tense night.`\
-https://nytimes.com/2026/02/24/opinion/trump-tariffs-state-of-union.html
 
