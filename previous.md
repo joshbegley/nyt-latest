@@ -6,6 +6,10 @@ https://nytimes.com/athletic/7065870/2026/02/24/cleveland-guardians-identity-str
 `"I still have a lot to prove to myself," said Harper, one of this generation's greats. It feels like something larger is at stake in 2026.`\
 https://nytimes.com/athletic/7066709/2026/02/24/bryce-harper-phillies-2026-season-wbc/
 
+**Will A.J. Brown play for the Eagles in 2026? Howie Roseman speaks on OL, TE, more**\
+`Roseman and coach Nick Sirianni have both said they want Brown to stay with the Eagles.`\
+https://nytimes.com/athletic/7062542/2026/02/24/eagles-aj-brown-howie-roseman-offensive-line/
+
 **Cowboys seem fine with George Pickens playing next season under franchise tag**\
 `Cowboys executive vice president Stephen Jones spoke in Indianapolis about Pickens, creating cap space and new DC Christian Parker.`\
 https://nytimes.com/athletic/7066973/2026/02/24/cowboys-combine-george-pickens-franchise-tag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7067191/2026/02/24/tiger-woods-visit-lebron-lakers-
 **Nick Sirianni speaks: Sean Mannion hire, Jeff Stoutland's exit, new offensive scheme**\
 `The Eagles will be shifting their offensive scheme with the new hires.`\
 https://nytimes.com/athletic/7066659/2026/02/24/eagles-nick-sirianni-sean-mannion-jeff-stoutland-offense/
-
-**NFL combine primer: Why Fernando Mendoza won't throw, players to watch, more**\
-`Mendoza, like other recent projected top picks, will instead throw at Indiana's pro day with his own receivers and running backs.`\
-https://nytimes.com/athletic/7062780/2026/02/24/nfl-scouting-combine-2026-primer-players-to-watch/
 

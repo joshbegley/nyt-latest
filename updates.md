@@ -1,3 +1,7 @@
+**Will A.J. Brown play for the Eagles in 2026? Howie Roseman speaks on OL, TE, more**\
+`Roseman and coach Nick Sirianni have both said they want Brown to stay with the Eagles.`\
+https://nytimes.com/athletic/7062542/2026/02/24/eagles-aj-brown-howie-roseman-offensive-line/
+
 **Kepner: In a system stacked against them, the Guardians double down on their identity — with no apologies**\
 `Despite one of MLB's lowest payrolls, the Guardians are expected to once again be in the mix for an AL Central title. `\
 https://nytimes.com/athletic/7065870/2026/02/24/cleveland-guardians-identity-strategy-jose-ramirez/
