@@ -1,3 +1,15 @@
+**Jack and Quinn Hughes respond to 'backlash' faced by U.S. men's Olympic hockey team**\
+`The Hughes brothers acknowledged what Jack called the “backlash” the team has faced because of their post-Olympic call with Donald Trump.`\
+https://nytimes.com/athletic/7067917/2026/02/24/jack-hughes-quinn-usa-hockey-olympics-donald-trump/
+
+**IIHF will stick with 3-on-3 overtime despite criticism after Olympic hockey gold-medal games**\
+`IIHF president Luc Tardif: "It's the best rules to fit. The OT format will remain the same moving forward."`\
+https://nytimes.com/athletic/7068095/2026/02/24/olympic-hockey-overtime-games-luc-tardif/
+
+**Until Saturday: 34 coaching changes and counting**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7068149/2026/02/24/college-football-coaching-changes-until-saturday-2/
+
 **How the U.S. Is Crippling Cuba’s Economy**\
 `Cuba is facing its worst economic crisis in 67 years. Blackouts and fuel shortages have worsened after President Trump tightened restrictions on oil. Our international correspondent Frances Robles talks with Katrin Bennhold about the current situation in Cuba.`\
 https://nytimes.com/video/world/americas/100000010717540/how-the-us-is-crippling-cubas-economy.html
