@@ -1,3 +1,7 @@
+**What we learned from Patriots exec Eliot Wolf: Stefon Diggs update, draft plan and more**\
+`Wolf suggested that the AFC champions are not satisfied with their roster despite reaching Super Bowl 60 earlier this month.`\
+https://nytimes.com/athletic/7068335/2026/02/24/patriots-nfl-combine-eliot-wolf-stefon-diggs-draft/
+
 **N.Y.P.D. Reviewing Videos Showing Officers Being Hit With Snowballs**\
 `Dozens of people gathered in Washington Square Park in New York City on Monday for a snowball fight. The event turned chaotic when the police, who were called to control the crowd, arrived at the scene and were pelted with snowballs.`\
 https://nytimes.com/video/us/100000010733470/nypd-police-snowball-fight.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7068368/2026/02/24/the-hundred-ecb-inclusivity-play
 **House Rejects Air Safety Bill After Pentagon Opposition**\
 `The bill would have required aircraft to carry advanced location-tracking technology that officials said might have prevented a midair collision near Washington last year.`\
 https://nytimes.com/2026/02/24/us/house-rotor-act-dc-plane-crash.html
-
-**Dillon Brooks has surgery on fractured hand, adding to Suns' mounting injury woes**\
-`Star guard Devin Booker remains out with a right hip strain and bench energizer Jordan Goodwin is out with a left calf strain.`\
-https://nytimes.com/athletic/7068310/2026/02/24/dillon-brooks-surgery-hand-suns-injuries/
 
