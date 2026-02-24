@@ -1,3 +1,7 @@
+**Mario Cristobal and Kirby Smart roast each other at Steve Spurrier Awards**\
+`Cristobal ribbed Smart after Miami highlights were shown at the event: That's "what a player like Carson Beck could do with great coaching."`\
+https://nytimes.com/athletic/7067354/2026/02/24/kirby-smart-mario-cristobal-georgia-miami-football/
+
 **This is why Senne Lammens was Manchester United's most important signing last summer**\
 `A team with a more erratic goalkeeper drops two points against a team playing like Everton, but the Belgian was not dropping anything`\
 https://nytimes.com/athletic/7067270/2026/02/24/senne-lammens-importance-everton-man-utd-premier-league/

@@ -1,3 +1,7 @@
+**Mario Cristobal and Kirby Smart roast each other at Steve Spurrier Awards**\
+`Cristobal ribbed Smart after Miami highlights were shown at the event: That's "what a player like Carson Beck could do with great coaching."`\
+https://nytimes.com/athletic/7067354/2026/02/24/kirby-smart-mario-cristobal-georgia-miami-football/
+
 **This is why Senne Lammens was Manchester United's most important signing last summer**\
 `A team with a more erratic goalkeeper drops two points against a team playing like Everton, but the Belgian was not dropping anything`\
 https://nytimes.com/athletic/7067270/2026/02/24/senne-lammens-importance-everton-man-utd-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7060314/2026/02/24/fulham-fans-take-part-in-the-ath
 **West Ham fans: Take part in The Athletic's FA Cup survey**\
 `Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
 https://nytimes.com/athletic/7060438/2026/02/24/west-ham-fans-take-part-in-the-athletics-fa-cup-survey/
-
-**Norwich fans: Take part in The Athletic's FA Cup survey**\
-`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
-https://nytimes.com/athletic/7060412/2026/02/24/norwich-fans-take-part-in-the-athletics-fa-cup-survey/
 
