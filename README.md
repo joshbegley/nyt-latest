@@ -1,3 +1,15 @@
+**How to watch Minnesota vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068549/2026/02/24/minnesota-vs-michigan-stream-how-to-watch-feb-24/
+
+**How to watch Tennessee vs. Missouri men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068547/2026/02/24/tennessee-vs-missouri-stream-how-to-watch-feb-24/
+
+**How to watch Arizona vs. Baylor men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Baylor Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7068544/2026/02/24/arizona-vs-baylor-stream-how-to-watch-feb-24/
+
 **How Joe Mazzulla and the Celtics use math to outsmart the rest of the NBA**\
 `No Tatum, no problem. Joe Mazzulla and the Celtics have figured out a way to outsmart the rest of the NBA. `\
 https://nytimes.com/athletic/7068313/2026/02/24/celtics-offense-joe-mazzulla-jayson-tatum-nba-video/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7068449/2026/02/24/aston-villa-andres-garcia-injury
 **U.S. tennis gets its man as Australian Open impresario Craig Tiley becomes chief executive**\
 `Tiley was both tournament director and chief executive in Melbourne, but will fulfil just the latter role for the USTA.`\
 https://nytimes.com/athletic/7054534/2026/02/24/craig-tiley-usta-chief-executive-australian-open-tennis-australia/
-
-**Dolphins GM on Tua Tagovailoa's future: 'Everything is on the table'**\
-`Jon-Eric Sullivan: "I think people who are Miami Dolphins fans should be proud to have had him here. We'll see where it goes."`\
-https://nytimes.com/athletic/7068002/2026/02/24/tua-tagovailoa-dolphins-future-nfl-combine/
-
-**Trump’s State of the Union, By the Numbers**\
-`A year into President Trump’s second term, the United States has undergone fundamental changes.`\
-https://nytimes.com/2026/02/24/us/politics/trumps-state-of-the-union-by-the-numbers.html
-
-**What we learned from Patriots exec Eliot Wolf: Stefon Diggs update, draft plan and more**\
-`Wolf suggested that the AFC champions are not satisfied with their roster despite reaching Super Bowl 60 earlier this month.`\
-https://nytimes.com/athletic/7068335/2026/02/24/patriots-nfl-combine-eliot-wolf-stefon-diggs-draft/
 
