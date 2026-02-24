@@ -18,7 +18,7 @@ https://nytimes.com/2026/02/23/crosswords/daily-puzzle-2026-02-24.html
 `Braxton was a champion with the Detroit Shock in 2006 and 2008. She crashed her car on an interstate outside of Atlanta.`\
 https://nytimes.com/athletic/7066819/2026/02/23/kara-braxton-dies-car-crash-wnba-champion/
 
-**Working Families Party Backs Reynoso for Congress, Breaking With Mamdani**\
+**In Blow to Mamdani, Left-Leaning Group Breaks With Mayor Over U.S. House Race**\
 `Mayor Zohran Mamdani of New York had lobbied for his preferred candidate, Claire Valdez. But the party backed Antonio Reynoso, the Brooklyn borough president.`\
 https://nytimes.com/2026/02/23/nyregion/antonio-reynoso-wfp-endorsement-congress.html
 
