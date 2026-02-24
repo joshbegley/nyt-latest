@@ -1,3 +1,11 @@
+**A.I. Agents: They’re Just Like Us**\
+`What does it mean that A.I. systems like Claude seem, like many humans, to dislike violence and love cute animals? Ezra asks the Anthropic co-founder Jack Clark this week on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010725778/ai-agents-theyre-just-like-us.html
+
+**Mika Zibanejad reflects on Olympics, Quinn and Drury return: Sights from Rangers practice**\
+`Zibanejad believes that the Olympic break was a good reset for all the New York players, whether they were at the Olympics or not.`\
+https://nytimes.com/athletic/7068409/2026/02/24/mika-zibanejad-reflects-olympics-quinn-drury-return/
+
 **Federal Judiciary Asks Congress to Give Over Control of Courthouses**\
 `In a letter to lawmakers, the courts’ policymaking body claimed that the General Services Administration, part of the executive branch, had been slow to make crucial repairs.`\
 https://nytimes.com/2026/02/24/us/politics/federal-judiciary-gsa-courthouses.html
