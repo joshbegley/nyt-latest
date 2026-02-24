@@ -1,3 +1,11 @@
+**SEC fines Kentucky coach Mark Pope $25K for postgame comments after Auburn loss**\
+`Pope's comments came after a controversial ending to the Wildcats' third consecutive loss.`\
+https://nytimes.com/athletic/7068277/2026/02/24/kentucky-coach-mark-pope-fined-auburn-basketball/
+
+**'I want the alien': The Wembanyama doodle worth more to Jokić and collectors**\
+`Wembanyama has been adding a little extra artwork to certain autographs over the years and collectors have taken notice. `\
+https://nytimes.com/athletic/7067919/2026/02/24/victor-wembanyama-alien-autograph-jokic/
+
 **Supreme Court Hears Case That Could Decide Fate of Great Lakes Pipeline**\
 `The question before the justices in a lawsuit filed by Michigan seeking to close part of the line was narrow. But the dispute raises broader questions about states’ power to regulate fossil fuels.`\
 https://nytimes.com/2026/02/24/us/politics/supreme-court-great-lakes-pipeline.html
