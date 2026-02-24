@@ -1,40 +1,40 @@
-**England 2026 World Cup watch: If Arteta can get the best out of Eze, Arsenal and Tuchel can prosper**\
-`If Mikel Arteta can get the best out of Eberechi Eze for the rest of this season, it will boost Arsenal — and England's World Cup prospects`\
-https://nytimes.com/athletic/7065558/2026/02/24/eze-arteta-arsenal-england-tuchel-world-cup/
+**Oliver Glasner, Crystal Palace and why calls to 'stay humble' touched a nerve**\
+`The Austrian has been baffled by suggestions he disrespected fans after pointing out this still ranks as one of the club's best seasons`\
+https://nytimes.com/athletic/7064029/2026/02/24/oliver-glasner-crystal-palace-humble-fans/
 
-**Igor Tudor lamented Tottenham's 'bad habits' after Arsenal defeat — so what are they?**\
-`The interim Spurs head coach was unhappy with his new team's performance against Arsenal — this is what will have annoyed him most`\
-https://nytimes.com/athletic/7065823/2026/02/24/tottenham-arsenal-analysis-tudor/
+**Sunderland fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060383/2026/02/24/sunderland-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**Breaking down Gyokeres' best Arsenal performance — can he do it regularly?**\
-`He had a direct impact in multiple aspects of play against Spurs, it wasn't just goals. That has to be the blueprint to build from.`\
-https://nytimes.com/athletic/7065697/2026/02/24/viktor-gyokeres-arsenal-tottenham/
+**Southampton fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060332/2026/02/24/southampton-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**Row Z: Sheikh Brendan, the politicisation of headwear and Sweden being 'Spursy'**\
-`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
-https://nytimes.com/athletic/7065301/2026/02/24/row-z-brendan-rodgers-spursy/
+**Fulham fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060314/2026/02/24/fulham-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**How O'Reilly went from full-back to a perfect fit in Guardiola's midfield**\
-`His size alone sets him apart from other academy graduates and he is now excelling in a new position for the first team`\
-https://nytimes.com/athletic/7065457/2026/02/24/nico-oreilly-midfielder-manchester-city/
+**West Ham fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060438/2026/02/24/west-ham-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**Newcastle's leadership group is essential to the club's success - but it needs reinforcements**\
-`The departure of long-standing club captain Jamaal Lascelles makes recruiting players with leadership qualities an imperative this summer`\
-https://nytimes.com/athletic/7066371/2026/02/24/newcastle-leadership-group-guimaraes-burn-tripper/
+**Norwich fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060412/2026/02/24/norwich-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**Where should Harry Wilson go next?**\
-`The Welshman's form for Fulham in 2025-26 means he is likely to have several suitors in the summer – but which club would be the best fit?`\
-https://nytimes.com/athletic/7026756/2026/02/24/harry-wilson-aston-villa-everton-fulham-italy/
+**Liverpool fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060192/2026/02/24/liverpool-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**These Ukrainians Don’t Want to Be Traded to Russia for Peace**\
-`Four years into the war, a major sticking point in talks is control of the eastern Donetsk region. Residents could face an agonizing choice if Ukraine gives up the territory.`\
-https://nytimes.com/2026/02/24/world/europe/ukraine-war-donetsk.html
+**Manchester City fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060286/2026/02/24/manchester-city-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**After Six Decades of the War on Drugs, What Works?**\
-`The U.S. and its allies have spilled blood and treasure to kill drug lords and defeat cartels, but the drugs keep coming and the new groups are more violent than ever.`\
-https://nytimes.com/2026/02/24/world/americas/mexico-war-on-drugs.html
+**Brentford fans: Take part in The Athletic's FA Cup survey**\
+`Ahead of the FA Cup fifth round, The Athletic has pulled together a fan survey for the clubs in the competition`\
+https://nytimes.com/athletic/7060469/2026/02/24/brentford-fans-take-part-in-the-athletics-fa-cup-survey/
 
-**What Brontë Country Tells Us About Britain Today**\
-`Whatever you make of Emerald Fennell’s R-rated “Wuthering Heights” movie, the region where the original novel was written is worth revisiting in its own right.`\
-https://nytimes.com/2026/02/24/world/europe/bronte-country-haworth-bradford-uk-today.html
+**Brighton need a summer reset after recent signings fail to make the grade**\
+`Almost 20 players have arrived since Fabian Hurzeler took charge but he is still reliant on players who were at the club when he joined`\
+https://nytimes.com/athletic/7065287/2026/02/24/brighton-need-a-summer-reset-after-recent-signings-fail-to-make-the-grade/
 

@@ -1,3 +1,15 @@
+**England 2026 World Cup watch: If Arteta can get the best out of Eze, Arsenal and Tuchel can prosper**\
+`If Mikel Arteta can get the best out of Eberechi Eze for the rest of this season, it will boost Arsenal — and England's World Cup prospects`\
+https://nytimes.com/athletic/7065558/2026/02/24/eze-arteta-arsenal-england-tuchel-world-cup/
+
+**Igor Tudor lamented Tottenham's 'bad habits' after Arsenal defeat — so what are they?**\
+`The interim Spurs head coach was unhappy with his new team's performance against Arsenal — this is what will have annoyed him most`\
+https://nytimes.com/athletic/7065823/2026/02/24/tottenham-arsenal-analysis-tudor/
+
+**Breaking down Gyokeres' best Arsenal performance — can he do it regularly?**\
+`He had a direct impact in multiple aspects of play against Spurs, it wasn't just goals. That has to be the blueprint to build from.`\
+https://nytimes.com/athletic/7065697/2026/02/24/viktor-gyokeres-arsenal-tottenham/
+
 **Row Z: Sheikh Brendan, the politicisation of headwear and Sweden being 'Spursy'**\
 `Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7065301/2026/02/24/row-z-brendan-rodgers-spursy/
