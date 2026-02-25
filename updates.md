@@ -1,3 +1,7 @@
+**U.S. men's hockey team honored at State of the Union; Trump says women's team coming to White House**\
+`Trump recognized the team for its gold medal-winning effort at the Olympics.`\
+https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
+
 **“They’ve killed and maimed thousands of American service members and hundreds of thousands, and even millions, of people with what’s called roadside bombs, they were the kings of the roadside bomb. We took out Suleimani. I did that in my first term, it had a huge impact. He was the father of the roadside bomb.”**\
 `By John Ismay`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/theyve-killed-and-maimed-thousands-of-american-service-members-and-hundreds-of-thousands-and-even-millions-of-people-with-whats-
