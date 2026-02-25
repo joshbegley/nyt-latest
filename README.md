@@ -1,3 +1,27 @@
+**Trump Administration Live Updates: Democrats Say Americans ‘Did Not Hear the Truth’ in State of the Union Speech**\
+``\
+https://nytimes.com/live/2026/02/25/us/trump-news
+
+**U.S. and Ukrainian officials to meet in Geneva this week.**\
+`By Maria Varenikova`\
+https://nytimes.com/2026/02/25/us/politics/us-and-ukrainian-officials-to-meet-in-geneva-this-week.html
+
+**Democrats counter Trump after his combative State of the Union speech.**\
+`By Luke Broadwater, Carl Hulse, Shawn McCreesh and Katie Rogers`\
+https://nytimes.com/live/2026/02/25/us/trump-news/democrats-counter-trump-after-his-combative-state-of-the-union-speech
+
+**Snoop Dogg and Swansea City: DJing on an industrial estate, persuading players to join and his 'VVVIP' lounge**\
+`Behind the scenes of Snoop Dogg's whirlwind visit to south west Wales, where he was serenaded by 20,000 supporters at Swansea vs Preston`\
+https://nytimes.com/athletic/7069900/2026/02/25/snoop-dogg-swansea-city-ownership-adam-idah-transfer-dj/
+
+**Mandel's Mailbag: Is the SEC's reign over? Clemson's decline and the 24-team CFP**\
+`Plus, Stewart Mandel's Ten Commandments to improve college football.`\
+https://nytimes.com/athletic/7069468/2026/02/25/sec-clemson-college-football-playoff/
+
+**Lowetide: How can the Oilers solve their predicament at No. 3 centre?**\
+`If the Oilers don't make a trade for a depth centre, they have a few options to consider for the third line.`\
+https://nytimes.com/athletic/7067640/2026/02/25/edmonton-oilers-centre-depth-chart-roster-trade/
+
 **A Seasoned French Museum Chief Takes Over a Louvre in Crisis**\
 `Christophe Leribault, who runs the Palace of Versailles, will replace Laurence des Cars, who resigned months after an audacious jewel heist.`\
 https://nytimes.com/2026/02/25/world/europe/louvre-museum-new-director-leribault-paris.html
@@ -13,28 +37,4 @@ https://nytimes.com/live/2026/02/25/us/nancy-guthrie-case-updates
 **Freshman fireworks: College basketball's first-year class has altered the landscape of this season**\
 `The lasting image of the 2025-26 season will be the overall impact of the freshman class, which has influenced a number of title contenders.`\
 https://nytimes.com/athletic/7070020/2026/02/25/college-basketball-freshman-class-boozer-dybantsa-peterson/
-
-**Glasses and experience are giving Reds' Christian Encarnacion-Strand clarity**\
-`It will be an uphill battle for Encarnacion-Strand to break camp with Cincinnati, but he's focusing on only what he can control.`\
-https://nytimes.com/athletic/7069242/2026/02/25/cincinnati-reds-christian-encarnacion-strand-development/
-
-**Chelsea, West Ham fined by FA for mass altercation at Stamford Bridge**\
-`Both sets of players came together in the 95th minute of their Premier League fixture, with Jean-Clair Todibo sent off for violent conduct.`\
-https://nytimes.com/athletic/7070082/2026/02/25/chelsea-west-ham-fight-fine-premier-league/
-
-**The Athletic FC: What now for World Cup after Mexico violence? Plus: Bodo/Glimt stun Inter**\
-`Should Mexico’s position as a World Cup host be in doubt? FIFA says no, but recent cartel violence is putting security concerns into view`\
-https://nytimes.com/athletic/7069919/2026/02/25/mexico-cartel-violence-world-cup-bodo-inter/
-
-**Trump’s Spectacle**\
-`We’re covering the State of the Union speech.`\
-https://nytimes.com/2026/02/25/briefing/trumps-spectacle.html
-
-**West Ham considering Supreme Court appeal over £3.6m London Stadium bill**\
-`The penalty relates to profit made on Daniel Kretinsky's purchase of a minority stake in 2021.`\
-https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
-
-**Who could the Phillies choose for the final 2 bullpen spots? Here are 4 options**\
-`With one month remaining, at least six pitchers appear to be in the running to fill the final two bullpen spots on the Opening Day roster. `\
-https://nytimes.com/athletic/7069608/2026/02/25/phillies-bullpen-opening-day-roster/
 
