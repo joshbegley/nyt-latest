@@ -1,3 +1,7 @@
+**Trump Proposed a New Retirement Plan With Up to a $1,000 Match. How Might It Work?**\
+`An existing law could help create new retirement savings plans for people who lack them. But there may be income restrictions on any match.`\
+https://nytimes.com/2026/02/25/business/trump-retirement-401k-match.html
+
 **Lauren Chapin, Youngest Child on ‘Father Knows Best,’ Dies at 80**\
 `For six seasons, she was Kathy, a giggly tomboy whose father, played by Robert Young, called her Kitten. Her offscreen life, however, was harrowing.`\
 https://nytimes.com/2026/02/25/arts/television/lauren-chapin-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070536/2026/02/25/seahawks-white-house-donald-trum
 **Cuban Government Says 4 Are Killed in Gunfire Exchange on Florida Speedboat**\
 `Four people aboard a Florida-based speedboat died in a gunfight with Cuban border troops near the island nation’s coast, the Cuban Interior Ministry said.`\
 https://nytimes.com/2026/02/25/world/americas/cuba-gunfire-speedboat-florida.html
-
-**Hellebuyck to join list of Olympic legends awarded the Presidential Medal of Freedom**\
-`“I’ve never seen a goaltender play as well as goalie Connor Hellebuyck,” Donald Trump said at his State of the Union address.`\
-https://nytimes.com/athletic/7070418/2026/02/25/connor-helleybuyck-presidential-medal-of-freedom/
 
