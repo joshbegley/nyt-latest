@@ -1,3 +1,23 @@
+**Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
+`Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
+https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html
+
+**Surgeon General Nominee Sidesteps Questions on Vaccines at Senate Hearing**\
+`Dr. Casey Means, a wellness influencer, author and supporter of Health Secretary Robert F. Kennedy Jr., said that “anti-vaccine rhetoric has never been part” of her message.`\
+https://nytimes.com/2026/02/25/us/politics/surgeon-general-casey-means-senate-hearing.html
+
+**As More Products and Places Bear His Name, Trump Plays Coy**\
+`In his State of the Union address, President Trump promoted two programs that just so happened to be named after him.`\
+https://nytimes.com/2026/02/25/us/politics/trump-name-sotu.html
+
+**Former Senator Bob Kerrey Resigns From Nebraska Start-Up Amid Epstein Emails**\
+`Mr. Kerrey has left his role as chairman of the company, Monolith, after Justice Department documents showed he had met and corresponded with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/25/us/bob-kerrey-resignation-monolith-epstein.html
+
+**F.B.I. Raids Los Angeles Schools Chief’s Home and District Headquarters**\
+`The investigation’s target was unclear. The school district is the nation’s second largest, and as superintendent, Alberto Carvalho has one of the highest-profile jobs in K-12 education.`\
+https://nytimes.com/2026/02/25/us/fbi-raid-lausd-alberto-carvalho.html
+
 **BBC and BAFTA Say They Are Investigating After Broadcast of Racist Slur**\
 `The awards organization and the broadcaster have ordered separate investigations into what led to airing the slur, which was shouted involuntarily during Sunday’s ceremony.`\
 https://nytimes.com/2026/02/25/world/europe/bbc-bafta-slur-apology-tourettes.html

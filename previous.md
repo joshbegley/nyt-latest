@@ -1,3 +1,19 @@
+**Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
+`Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
+https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html
+
+**Surgeon General Nominee Sidesteps Questions on Vaccines at Senate Hearing**\
+`Dr. Casey Means, a wellness influencer, author and supporter of Health Secretary Robert F. Kennedy Jr., said that “anti-vaccine rhetoric has never been part” of her message.`\
+https://nytimes.com/2026/02/25/us/politics/surgeon-general-casey-means-senate-hearing.html
+
+**As More Products and Places Bear His Name, Trump Plays Coy**\
+`In his State of the Union address, President Trump promoted two programs that just so happened to be named after him.`\
+https://nytimes.com/2026/02/25/us/politics/trump-name-sotu.html
+
+**Former Senator Bob Kerrey Resigns From Nebraska Start-Up Amid Epstein Emails**\
+`Mr. Kerrey has left his role as chairman of the company, Monolith, after Justice Department documents showed he had met and corresponded with Jeffrey Epstein.`\
+https://nytimes.com/2026/02/25/us/bob-kerrey-resignation-monolith-epstein.html
+
 **BBC and BAFTA Say They Are Investigating After Broadcast of Racist Slur**\
 `The awards organization and the broadcaster have ordered separate investigations into what led to airing the slur, which was shouted involuntarily during Sunday’s ceremony.`\
 https://nytimes.com/2026/02/25/world/europe/bbc-bafta-slur-apology-tourettes.html
@@ -19,22 +35,6 @@ https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-o
 https://nytimes.com/athletic/7070410/2026/02/25/spurs-finals-title-wembanyama-the-bounce/
 
 **F.B.I. Raids Los Angeles Schools Chief’s Home and District Headquarters**\
-`F.B.I. agents executed search warrants at the locations. The target of their investigation was unclear.`\
+`The investigation’s target was unclear. The school district is the nation’s second largest, and as superintendent, Alberto Carvalho has one of the highest-profile jobs in K-12 education.`\
 https://nytimes.com/2026/02/25/us/fbi-raid-lausd-alberto-carvalho.html
-
-**Song of the Week: How Noah Kahan Refined His Angst**\
-`Our critic Jon Caramanica on how Noah Kahan’s new single mirrors and improves upon his breakout hit “Stick Season.”`\
-https://nytimes.com/video/podcasts/100000010734915/song-of-the-week-how-noah-kahan-refined-his-angst.html
-
-**45 Years After Botched Coup, Spain Declassifies Files About Why It Failed**\
-`Ending more than four decades of conjecture, the Spanish government moved to publish documents from a long-secret investigation of a failed 1981 coup.`\
-https://nytimes.com/2026/02/25/world/europe/spain-coup-1981-files-revealed.html
-
-**The U.S. should scrap World Cup fan fests — nobody likes forced fun**\
-`There is no history of 'fan zone'-type events in the U.S. so why not just let supporters celebrate the event naturally?`\
-https://nytimes.com/athletic/7070471/2026/02/25/the-u-s-should-scrap-world-cup-fan-festivals-nobody-likes-forced-fun/
-
-**Lightning's Jon Cooper to miss next 2 games after death of his father**\
-`Jon Cooper will miss Wednesday’s home game against the Toronto Maple Leafs and Thursday’s visit to Carolina to face the Hurricanes.`\
-https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-father/
 
