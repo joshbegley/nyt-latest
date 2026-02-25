@@ -1,3 +1,15 @@
+**J.T. Miller, Vincent Trocheck return to Rangers practice and reflect on Olympics, Trump visit**\
+`Miller and Trocheck were key players on a Team USA penalty kill unit that went a perfect 17-for-17`\
+https://nytimes.com/athletic/7070707/2026/02/25/rangers-miller-trocheck-olympics-trump-sotu-visit/
+
+**Real Madrid eject fan for allegedly performing Nazi salute before Benfica tie**\
+`Madrid confirmed a supporter in the Grada Fan section had been identified and disciplinary proceedings had been opened.`\
+https://nytimes.com/athletic/7071098/2026/02/25/real-madrid-benfica-nazi-salute/
+
+**Cincinnati sues ex-QB Brendan Sorsby for $1 million buyout after transfer**\
+`The lawsuit states that Sorsby's revenue-sharing agreement with Cincinnati ran through Dec. 15, 2026.`\
+https://nytimes.com/athletic/7070963/2026/02/25/brendan-sorsby-cincinnati-football-lawsuit-texas-tech/
+
 **Tage Thompson returns to Sabres, reflects on Olympic celebration, White House visit**\
 `Thompson spent three days celebrating Team USA’s gold medal win with his teammates, from Milan to Miami to the White House.`\
 https://nytimes.com/athletic/7071063/2026/02/25/tage-thompson-sabres-olympics-white-house/
