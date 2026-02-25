@@ -1,3 +1,11 @@
+**“American natural gas production is at an all-time high because I kept my promise to drill, baby, drill.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/american-natural-gas-production-is-at-an-all-time-high-because-i-kept-my-promise-to-drill-baby-drill
+
+**“I believe the tariffs, paid for by foreign countries, will, like in the past, substantially replace the modern day system of income tax — taking a great financial burden off the people that I love.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-believe-the-tariffs-paid-for-by-foreign-countries-will-like-in-the-past-substantially-replace-the-modern-day-system-of-income-
+
 **“But when it comes to the corruption that is plundering America, there has been no more stunning example than Minnesota — where members of the Somali community have pillaged an estimated $19 billion from the American taxpayer.”**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/but-when-it-comes-to-the-corruption-that-is-plundering-america-there-has-been-no-more-stunning-example-than-minnesota-where-memb
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/illegal-immigrat
 **“I had just inherited a nation in crisis with a stagnant economy, inflation at record levels, a wide open border, horrendous recruitment for military and police, rampant crime at home, and wars and chaos all over the world. ... A turnaround for the ages.”**\
 ` `\
 https://nytimes.com/2026/02/24/us/politics/when-i-last-spoke-in-the-chamber.html
-
-**“Last year, I urged this Congress to begin the mission by passing the largest tax cuts in American history, and the Republican majority delivered so beautifully!”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/last-year-i-urged-this-congress-to-begin-the-mission-by-passing-the-largest-tax-cuts-in-american-history-and-the-republican-majo
-
-**“In four long years, the last administration got less than $1 trillion in new investment in the United States. And when I say less, substantially less. In 12 months, I secured commitments for more than $18 trillion pouring in from all over the globe.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-four-long-years-the-last-administration-got-less-than-1-trillion-in-new-investment-in-the-united-states-and-when-i-say-less-s
 
