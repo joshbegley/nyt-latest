@@ -1,3 +1,15 @@
+**Paul Skenes expects to make two starts in World Baseball Classic**\
+`Skenes would only see a second start if Team USA advances out of pool play, which they are expected to do. `\
+https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-classic-pirates/
+
+**U.S. sent F-22 fighter jets to Israel, an official says.**\
+`Videos show a dozen F-22 Raptors left Britain on Tuesday, and flight tracking data indicates they flew toward the Middle East.`\
+https://nytimes.com/live/2026/02/24/us/trump-news-updates/f-22-fighter-jets-israel
+
+**Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
+`An itinerary for Mr. Patel’s trip provides more granular detail, including big blocs of personal time that suggest he was not immensely oversubscribed by official duties.`\
+https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
+
 **How The Times Reports on the State of the Union**\
 `A team of more than 50 journalists, including eight photographers, will cover President Trump’s address.`\
 https://nytimes.com/2026/02/24/insider/new-york-times-state-of-union-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
 **Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
 `Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
 https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
-
-**The Anguish of a Tourette’s Outburst**\
-`Verbal or physical tics can be a daily struggle. So can dealing with the hurt they may cause.`\
-https://nytimes.com/2026/02/24/well/mind/tourettes-bafta-john-davidson.html
-
-**With Team USA's rotation in flux, Logan Webb becomes more important than ever**\
-`It's looking like Webb will be much more important to Team USA's WBC ambitions than you'd otherwise expect from a No.3 starter.`\
-https://nytimes.com/athletic/7069199/2026/02/24/world-baseball-classic-team-usa-rotation-logan-webb/
-
-**'I'm still the general manager of the team': How Giants leadership will play out**\
-`John Harbaugh and Joe Schoen met with the media at the NFL Combine on Tuesday.`\
-https://nytimes.com/athletic/7069172/2026/02/24/joe-schoen-new-york-giants-combine-comments/
 

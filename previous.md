@@ -1,3 +1,19 @@
+**How The Times Reports on the State of the Union**\
+`A team of more than 50 journalists, including eight photographers, will cover President Trump’s address.`\
+https://nytimes.com/2026/02/24/insider/new-york-times-state-of-union-trump.html
+
+**Here’s the latest.**\
+`By Luke Broadwater and Carl Hulse`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/heres-the-latest
+
+**State of the Union Live Updates: Trump Is Set to Speak at a Pivotal Moment**\
+`Bruised by a Supreme Court setback and falling approval ratings, the president has an opportunity to change the narrative ahead.`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union
+
+**Radko Gudas 'sorry' for slur during Olympic game, isn't concerned about Crosby fallout**\
+`Gudas drew considerable attention for his actions in a quarterfinal game vs. Canada.`\
+https://nytimes.com/athletic/7066737/2026/02/24/radko-gudas-crosby-olympics-slur/
+
 **Same War, Different Message: Trump Tonight vs. Biden Four Years Ago**\
 `President Trump issued no statement in support of Ukraine on the anniversary of the Russian invasion, four years after his predecessor laid out the stakes.`\
 https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7069199/2026/02/24/world-baseball-classic-team-usa-
 **'I'm still the general manager of the team': How Giants leadership will play out**\
 `John Harbaugh and Joe Schoen met with the media at the NFL Combine on Tuesday.`\
 https://nytimes.com/athletic/7069172/2026/02/24/joe-schoen-new-york-giants-combine-comments/
-
-**Judge Dismisses Minnesota Gun Case as Prosecutors Struggle With Resignations**\
-`A judge took the unusual step of dropping the case over a speedy trial violation by the U.S. attorney’s office in Minnesota, which has been flooded with immigration-related cases.`\
-https://nytimes.com/2026/02/24/us/minnesota-gun-case-dismissed.html
-
-**What we learned from Seahawks GM John Schneider: New Sam Darnold contract seems unlikely**\
-`The Seahawks could extend Jaxon Smith-Njigba and Devon Witherspoon with two years left on their contracts, but Darnold might have to wait.`\
-https://nytimes.com/athletic/7069077/2026/02/24/seahawks-nfl-combine-contract-news-john-schneider/
-
-**West Bromwich Albion sack head coach Eric Ramsay after only nine games in charge**\
-`The former Minnesota United manager and Manchester United coach failed to win a game and leaves with the club a point above the bottom three`\
-https://nytimes.com/athletic/7069145/2026/02/24/ramsay-west-bromwich-albion-sack/
-
-**Wayve, an A.I. Driverless Car Start-Up in Europe, Raises $1.2 Billion**\
-`The London-based company is building a system that uses artificial intelligence to power autonomous vehicles.`\
-https://nytimes.com/2026/02/24/technology/wayve-ai-driverless-car-start-up.html
 
