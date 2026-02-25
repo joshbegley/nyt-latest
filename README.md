@@ -1,40 +1,40 @@
-**Saquon Barkley, Brandon Graham, tush push improvements: 8 Eagles combine takeaways**\
-`Plus, the latest on Dallas Goedert and Brandon Graham. `\
-https://nytimes.com/athletic/7069312/2026/02/25/saquon-barkley-brandon-grahams-future-tush-push-combine/
+**West Ham considering Supreme Court appeal over £3.6m London Stadium bill**\
+`The penalty relates to profit made on Daniel Kretinsky's purchase of a minority stake in 2021.`\
+https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
 
-**How Kristian Campbell used a mirror to reflect and change his swing after a rough rookie year**\
-`After a frustrating rookie season, Campbell went home and re-worked his swing. Now he feels he's in a much better place to succeed.`\
-https://nytimes.com/athletic/7068725/2026/02/25/kristian-campbell-red-sox-swing-changes/
+**Who could the Phillies choose for the final 2 bullpen spots? Here are 4 options**\
+`With one month remaining, at least six pitchers appear to be in the running to fill the final two bullpen spots on the Opening Day roster. `\
+https://nytimes.com/athletic/7069608/2026/02/25/phillies-bullpen-opening-day-roster/
 
-**North London derby referee stands by decision to rule out Spurs equaliser**\
-`Peter Bankes says he is "comfortable" with the decision to chalk off Randal Kolo Muani's goal in the second half.`\
-https://nytimes.com/athletic/7069978/2026/02/25/arsenal-tottenham-disallowed-goal-kolo-muani-gabriel/
+**Carlos Lagrange throws 103 mph. Aaron Judge sees a 'front-line starter' in the making**\
+`Few pitchers on the planet have the ability Lagrange possesses when he uncorks a ball to home plate. Can he harness his command? `\
+https://nytimes.com/athletic/7068771/2026/02/25/carlos-lagrange-yankees-prospect-starting-pitcher/
 
-**'Eat sh-- Cairo': Torino fans leave manure outside training ground**\
-`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw head coach Marco Baroni sacked a day later.`\
-https://nytimes.com/athletic/7069946/2026/02/25/torino-serie-a-italy-manure/
+**Jaden McDaniels has arrived for the Wolves. Jamal Crawford saw it coming first**\
+`In his sixth season, McDaniels has developed from a defensive specialist to a true two-way player. Crawford knew he was destined for more.`\
+https://nytimes.com/athletic/7064680/2026/02/25/jaden-mcdaniels-wolves-arrived-jamal-crawford/
 
-**The Pulse: A moment for the olds**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7068766/2026/02/25/kevin-durant-lindsey-vonn-old-athletes-the-pulse/
+**What I'm hearing from Rangers prospects amid disappointing season for AHL Hartford**\
+`Hartford is dealing with a rocky season in the AHL, but that doesn't mean prospects aren't improving their skills and trying new deployment.`\
+https://nytimes.com/athletic/7068268/2026/02/25/new-york-rangers-prospects-hartford-wolf-pack-potulny/
 
-**Chiefs' Brett Veach hints 1 change could be coming to K.C.'s offensive identity**\
-`Under coach Andy Reid, the Chiefs don't appear set for major offensive changes. But here's one tweak that seems likely with the run game.`\
-https://nytimes.com/athletic/7068395/2026/02/25/chiefs-offensive-identity-brett-veach/
+**Kloke: What would a perfect Maple Leafs trade deadline look like?**\
+`There is an opportunity to put the Maple Leafs in a more advantageous position next season. It might take a perfect deadline.`\
+https://nytimes.com/athletic/7067801/2026/02/25/maple-leafs-trade-deadline-nhl-options/
 
-**Todd Gilliland on moving past the NASCAR lawsuit, his dream teammates and more**\
-`Plus: One detail that totally annoys Todd Gilliland when he is in the car racing.`\
-https://nytimes.com/athletic/7062220/2026/02/25/todd-gilliland-front-row-nascar-12-questions/
+**Kyle Dubas, move by move, is doing what Ron Hextall could not**\
+`None of what the Penguins are doing this season was supposed to happen. At least, not this fast.`\
+https://nytimes.com/athletic/7069552/2026/02/25/kyle-dubas-pittsburgh-penguins-rebuild-gm-hextall/
 
-**How Bears GM Ryan Poles navigates roster construction with salary-cap constraints**\
-`It’s the win-now versus build-for-the-long-haul tug of war that every GM in every sport has to consider.`\
-https://nytimes.com/athletic/7068674/2026/02/25/bears-ryan-poles-roster-salary-cap/
+**Maple Leafs player poll, Part 2: Who survives in the woods the longest?**\
+`Plus, which Leafs are the most talkative and have the best recommendations? Here's what their teammates think.`\
+https://nytimes.com/athletic/7066222/2026/02/25/maple-leafs-player-poll-2026-part-2/
 
-**Feldman's Freaks List revisited: Which 2026 NFL Draft prospects will show off at combine?**\
-`From Jeremiyah Love to David Bailey, Bruce Feldman revisits his famous Freaks List to determine who should stand out in Indianapolis.`\
-https://nytimes.com/athletic/7065727/2026/02/25/nfl-draft-2026-combine-breakout-prospects-must-watch/
+**Blackhawks could do right by Murphy at deadline: 10 post-break thoughts**\
+`Plus, check-ins with Artyom Levshunov and Andre Burakovsky, prospect updates and which young defensemen look poised to play.`\
+https://nytimes.com/athletic/7067828/2026/02/25/blackhawks-trade-deadline-prospects-defense-blashill/
 
-**After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
-`Canales on Tuesday said Young was a "part of the process" to change play callers.`\
-https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
+**Daniel Susac hopes to turn Rule 5 opportunity into a dream debut with Giants**\
+`Daniel Susac has been around the Giants' clubhouse since he was 13, watching brother Andrew play. Now he's competing for a roster spot.`\
+https://nytimes.com/athletic/7069421/2026/02/25/daniel-susac-giants-rule-5-andrew-susac-buster-posey/
 
