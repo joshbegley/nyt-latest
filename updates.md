@@ -1,3 +1,15 @@
+**Irish boxer Taylor announces retirement after summer homecoming fight**\
+`The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
+https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/
+
+**The White Pantsuit Protest That Wasn’t**\
+`Democratic congresswomen put out a call to wear white at the State of the Union. It didn’t work.`\
+https://nytimes.com/2026/02/25/style/congresswomen-white-state-of-the-union.html
+
+**We Need More Houses. Why Aren’t More Being Built?**\
+`Plus, why we’re making fewer houses than we did in the 2000s`\
+https://nytimes.com/2026/02/25/headway/housing-starts-newsletter.html
+
 **Attire With Sparkling Personality**\
 `Bold shoulders, dramatic proportions and opulent accessories lent lively touches to ensembles on runways and streets during London Fashion Week.`\
 https://nytimes.com/2026/02/25/style/london-fashion-week-street-style.html
