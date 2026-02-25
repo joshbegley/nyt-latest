@@ -1,3 +1,7 @@
+**Bengals' Duke Tobin talks Burrow restructure, big swings, Hendrickson at combine**\
+`Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
+https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
+
 **Paul Skenes expects to make two starts in World Baseball Classic**\
 `Skenes would only see a second start if Team USA advances out of pool play, which they are expected to do. `\
 https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-classic-pirates/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
 **T. Rex Ran on Its Tiptoes ‘Like an 8-Ton Chicken’**\
 `New findings about the anatomy of the dinosaur age’s fiercest predator suggest it chased prey “like an oversized bird.”`\
 https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
-
-**Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
-`Twenty players from the U.S. hockey team went to President Trump's State of the Union address. Gary Bettman said the decision is up to them.`\
-https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
 
