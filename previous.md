@@ -1,3 +1,7 @@
+**Trump’s Push for Election Power Raises Fears He Will ‘Subvert’ Midterms**\
+`The president appears to be undermining Americans’ faith in the outcome, at a moment when Republicans face an uphill climb to keep control of Congress.`\
+https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html
+
 **Panthers tell Andy Dalton there will be competition for backup QB job**\
 `The Panthers have fielded calls about Dalton and could create $2.2 million in salary cap space by trading the 38-year-old quarterback.`\
 https://nytimes.com/athletic/7071237/2026/02/25/andy-dalton-panthers-backup-qb-competition-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071212/2026/02/25/wild-lineup-olympics-trade-expec
 **Bird Flu Strikes California Elephant Seals for the First Time**\
 `Thirty seals, primarily weaned pups, have died since late last week, scientists said.`\
 https://nytimes.com/2026/02/25/science/bird-flu-elephant-seals.html
-
-**South Korea Fell Hard for This Dessert. That Was Last Month.**\
-`The brief life span of the Dubai chewy cookie reflects the country’s fast-moving food trends, where hype often matters more than taste.`\
-https://nytimes.com/2026/02/25/world/asia/south-korea-dubai-chewy-cookies.html
 

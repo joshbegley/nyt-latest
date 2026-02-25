@@ -1,3 +1,7 @@
+**Trump’s Push for Election Power Raises Fears He Will ‘Subvert’ Midterms**\
+`The president appears to be undermining Americans’ faith in the outcome, at a moment when Republicans face an uphill climb to keep control of Congress.`\
+https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html
+
 **Panthers tell Andy Dalton there will be competition for backup QB job**\
 `The Panthers have fielded calls about Dalton and could create $2.2 million in salary cap space by trading the 38-year-old quarterback.`\
 https://nytimes.com/athletic/7071237/2026/02/25/andy-dalton-panthers-backup-qb-competition-trade/
