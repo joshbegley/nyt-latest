@@ -1,4 +1,4 @@
-**Weston McKennie's heroics forces extra time, but Juve crashes out of UCL**\
+**Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
 `Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
 https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
 
