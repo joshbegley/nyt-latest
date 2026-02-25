@@ -1,3 +1,11 @@
+**Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure - it's my job to score'**\
+`The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
+https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
+
+**Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
+`The defeat has been called their worst elimination in years, but it should be put in context of a season of ups and downs.`\
+https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
+
 **Trump Heralds Economic Policies in Combative State of the Union Speech**\
 `President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
 https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html

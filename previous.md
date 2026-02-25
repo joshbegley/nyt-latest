@@ -1,3 +1,7 @@
+**Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure - it's my job to score'**\
+`The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
+https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
+
 **Trump Heralds Economic Policies in Combative State of the Union Speech**\
 `President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
 https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/7065472/2026/02/25/atletico-madrid-champions-league
 https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
 
 **Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
-`The defeat has been called their worst elimination in years, but the defeat should be put in context of a season of ups and downs.`\
+`The defeat has been called their worst elimination in years, but it should be put in context of a season of ups and downs.`\
 https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
 
 **Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.
 **6 Takeaways From Trump’s State of the Union**\
 `In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
-
-**Democratic Response to Trump’s State of the Union**\
-`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
-https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
 
