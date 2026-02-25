@@ -1,3 +1,7 @@
+**Blue Jackets stretch drive primer: What to expect, what to know as playoff push resumes**\
+`The Blue Jackets headed into the Olympic break as the hottest club in the NHL, but are still just out of a playoff spot.`\
+https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-olympics/
+
 **The Bounce: Are the Spurs ready to win it all ... this year?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7070410/2026/02/25/spurs-finals-title-wembanyama-the-bounce/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/25/opinion/letters/trump-state-of-the-union.html
 **Irish boxer Taylor announces retirement after summer homecoming fight**\
 `The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
 https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/
-
-**The White Pantsuit Protest That Wasn’t**\
-`Democratic congresswomen put out a call to wear white at the State of the Union. It didn’t work.`\
-https://nytimes.com/2026/02/25/style/congresswomen-white-state-of-the-union.html
 
