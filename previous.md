@@ -1,3 +1,7 @@
+**Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
+`Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
+https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
+
 **The Anguish of a Tourette’s Outburst**\
 `Verbal or physical tics can be a daily struggle. So can dealing with the hurt they may cause.`\
 https://nytimes.com/2026/02/24/well/mind/tourettes-bafta-john-davidson.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/us/politics/trump-poll-approval-sotu.html
 **Mr. Clean, the Bald, Broad-Shouldered Cleaning Mascot, Retires**\
 `The character became the face of a household cleaner in 1958. It’s not clear what the brand plans for its next mascot.`\
 https://nytimes.com/2026/02/24/us/mr-clean-retires-magic-eraser.html
-
-**How a Day of Mayhem Unfolded in Mexico**\
-`The Times reporter Maria Abi-Habib describes the surge of violence in Mexico that erupted after a government raid killed the powerful cartel boss known as El Mencho.`\
-https://nytimes.com/video/world/americas/100000010730887/how-a-day-of-mayhem-unfolded-in-mexico.html
 

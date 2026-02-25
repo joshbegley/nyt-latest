@@ -1,3 +1,7 @@
+**T. Rex Ran on Its Tiptoes ‘Like an 8-Ton Chicken’**\
+`New findings about the anatomy of the dinosaur age’s fiercest predator suggest it chased prey “like an oversized bird.”`\
+https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
+
 **Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
 `Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
 https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/technology/wayve-ai-driverless-car-start-up.html
 **68% of Americans Say Trump Has the Wrong Priorities**\
 `As Mr. Trump prepares for his State of the Union address, polls show that most Americans say he isn’t paying enough attention to the country’s biggest problems.`\
 https://nytimes.com/2026/02/24/us/politics/trump-poll-approval-sotu.html
-
-**Mr. Clean, the Bald, Broad-Shouldered Cleaning Mascot, Retires**\
-`The character became the face of a household cleaner in 1958. It’s not clear what the brand plans for its next mascot.`\
-https://nytimes.com/2026/02/24/us/mr-clean-retires-magic-eraser.html
 

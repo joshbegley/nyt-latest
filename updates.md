@@ -1,3 +1,7 @@
+**Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
+`Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
+https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
+
 **The Anguish of a Tourette’s Outburst**\
 `Verbal or physical tics can be a daily struggle. So can dealing with the hurt they may cause.`\
 https://nytimes.com/2026/02/24/well/mind/tourettes-bafta-john-davidson.html
