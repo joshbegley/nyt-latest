@@ -1,3 +1,7 @@
+**'If it helped end insults, I’d welcome it' - Courtois on mouth-covering ban**\
+`The Real Madrid goalkeeper was speaking after his team-mate Vinicius Junior alleged he was racially abused by Benfica's Gianluca Prestianni.`\
+https://nytimes.com/athletic/7069941/2026/02/25/real-madrid-courtois-vinicius-racism-benfica/
+
 **Mets' budding star Nolan McLean explains all 6 of his pitches and why throws them**\
 `McLean posted a 2.06 ERA as a rookie, but an offseason of refining his grips and game plans has him dreaming of bigger things ahead.`\
 https://nytimes.com/athletic/7068060/2026/02/25/mets-nolan-mclean-pitching-repertoire/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-biden-state-of-the-union-econom
 **Bleak Research Report Stokes A.I. Debate on Wall St.**\
 `In a widely circulated note, Citrini Research painted a dire picture of job losses and stock market sell-offs, though many analysts and economists questioned its conclusions.`\
 https://nytimes.com/2026/02/25/business/citrini-ai-stock-market.html
-
-**I Didn’t Want to Have Kids. My Husband Did. Could Our Marriage Survive?**\
-`Helena de Groot thought she had decided not to become a mother. But, she found, she had to make that decision over and over again.`\
-https://nytimes.com/2026/02/25/podcasts/marriage-kids-parenting-relationships.html
 

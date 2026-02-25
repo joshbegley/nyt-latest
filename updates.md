@@ -1,3 +1,7 @@
+**'If it helped end insults, I’d welcome it' - Courtois on mouth-covering ban**\
+`The Real Madrid goalkeeper was speaking after his team-mate Vinicius Junior alleged he was racially abused by Benfica's Gianluca Prestianni.`\
+https://nytimes.com/athletic/7069941/2026/02/25/real-madrid-courtois-vinicius-racism-benfica/
+
 **Mets' budding star Nolan McLean explains all 6 of his pitches and why throws them**\
 `McLean posted a 2.06 ERA as a rookie, but an offseason of refining his grips and game plans has him dreaming of bigger things ahead.`\
 https://nytimes.com/athletic/7068060/2026/02/25/mets-nolan-mclean-pitching-repertoire/
