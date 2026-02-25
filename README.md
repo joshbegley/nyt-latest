@@ -1,23 +1,3 @@
-**West Bromwich Albion sack head coach Eric Ramsay after only nine games in charge**\
-`The former Minnesota United manager and Manchester United coach failed to win a game and leaves with the club a point above the bottom three`\
-https://nytimes.com/athletic/7069145/2026/02/24/ramsay-west-bromwich-albion-sack/
-
-**Wayve, an A.I. Driverless Car Start-Up in Europe, Raises $1.2 Billion**\
-`The London-based company is building a system that uses artificial intelligence to power autonomous vehicles.`\
-https://nytimes.com/2026/02/24/technology/wayve-ai-driverless-car-start-up.html
-
-**68% of Americans Say Trump Has the Wrong Priorities**\
-`As Mr. Trump prepares for his State of the Union address, polls show that most Americans say he isn’t paying enough attention to the country’s biggest problems.`\
-https://nytimes.com/2026/02/24/us/politics/68-of-americans-say-trump-has-the-wrong-priorities.html
-
-**Mr. Clean, the Bald, Broad-Shouldered Cleaning Mascot, Retires**\
-`The character became the face of a household cleaner in 1958. It’s not clear what the brand plans for its next mascot.`\
-https://nytimes.com/2026/02/24/us/mr-clean-retires-magic-eraser.html
-
-**How a Day of Mayhem Unfolded in Mexico**\
-`The Times reporter Maria Abi-Habib describes the surge of violence in Mexico that erupted after a government raid killed the powerful cartel boss known as El Mencho.`\
-https://nytimes.com/video/world/americas/100000010730887/how-a-day-of-mayhem-unfolded-in-mexico.html
-
 **Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
 `In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
 https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
@@ -33,4 +13,24 @@ https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-leagu
 **What we learned from Commanders GM Adam Peters: Marshon Lattimore, Zach Ertz and more**\
 `The Washington Commanders' general manager also discussed Daron Payne, the team's staff changes and the upcoming draft.`\
 https://nytimes.com/athletic/7068971/2026/02/24/commanders-nfl-combine-adam-peters-brandon-aiyuk-zach-ertrz/
+
+**Senate Democrats Again Block D.H.S. Funding, Demanding Enforcement Curbs**\
+`Democrats refused to allow a bill to reopen the Department of Homeland Security to move ahead without new restrictions on federal agents carrying out President Trump’s immigration enforcement drive.`\
+https://nytimes.com/2026/02/24/us/politics/senate-democrats-dhs-funding-ice.html
+
+**Ravens prepared to make Tyler Linderbaum NFL's highest-paid center**\
+`“I think he is the best center in the league,” Ravens head coach Jesse Minter said on Day 1 of the NFL Scouting Combine. `\
+https://nytimes.com/athletic/7068956/2026/02/24/ravens-tyler-linderbaum-contract-nfl-combine/
+
+**Pentagon Gives A.I. Company an Ultimatum**\
+`Anthropic insists on limits on how its technology is used and could be labeled a supply chain risk if it fails to accept the military’s demands.`\
+https://nytimes.com/2026/02/24/us/politics/pentagon-anthropic.html
+
+**J.J. McCarthy, the Vikings' quarterback pursuit and what we've learned at the NFL combine**\
+`Vikings coach Kevin O'Connell expressed confidence in McCarthy's trajectory, but the team is still looking to add competition for him at QB.`\
+https://nytimes.com/athletic/7068874/2026/02/24/jj-mccarthy-vikings-nfl-combine-kevin-oconnell-rob-brzezinski/
+
+**Attorneys for driver accused of killing Gaudreau brothers seek to dismiss charges**\
+`The defense is arguing that blood alcohol testing done on their client on the night of the crash produced an inaccurate result.`\
+https://nytimes.com/athletic/7068872/2026/02/24/johnny-matthew-gaudreau-case-lawyer-seeks-dismissal-charges/
 
