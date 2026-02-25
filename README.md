@@ -1,3 +1,7 @@
+**Greek Politician Is Prosecuted for Admitting Drug Use Decades Ago**\
+`The leftist party of Yanis Varoufakis, a former finance minister and critic of the conservative government, said he had been charged based on admitting he had tried ecstasy once.`\
+https://nytimes.com/2026/02/25/world/europe/greek-politician-drug-charge.html
+
 **‘Tax the Rich’ Rally Draws 1,500 to Albany, but Not Mamdani or Hochul**\
 `Busloads of New Yorkers flooded the State Capitol to press state leaders to raise taxes on corporations and high earners to help fund various initiatives.`\
 https://nytimes.com/2026/02/25/nyregion/tax-the-rich-rally-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070963/2026/02/25/brendan-sorsby-cincinnati-footba
 **U.S. Blocking Venezuela From Paying Maduro’s Legal Fees, His Lawyer Says**\
 `The Treasury Department is interfering with Nicolás Maduro’s constitutional right to counsel, his lawyer argued. Mr. Maduro, the Venezuelan leader, faces federal charges.`\
 https://nytimes.com/2026/02/25/nyregion/maduro-us-venezuela-legal-trump.html
-
-**A Last Chance Before War**\
-`The U.S. and Iran both say they want to avoid a conflict. Time is running out to avoid one.`\
-https://nytimes.com/2026/02/25/world/iran-nuclear-talks-trump-war-maduro.html
 
