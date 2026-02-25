@@ -1,3 +1,7 @@
+**The U.S. should scrap World Cup fan fests — nobody likes forced fun**\
+`There is no history of 'fan zone'-type events in the U.S. so why not just let supporters celebrate the event naturally?`\
+https://nytimes.com/athletic/7070471/2026/02/25/the-u-s-should-scrap-world-cup-fan-festivals-nobody-likes-forced-fun/
+
 **Lightning's Jon Cooper to miss next 2 games after death of his father**\
 `Jon Cooper will miss Wednesday’s home game against the Toronto Maple Leafs and Thursday’s visit to Carolina to face the Hurricanes.`\
 https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-father/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/25/us/voters-trump-state-of-union-speech-reaction.ht
 **Should I Tell People What My Principal Did?**\
 `He was a community pillar with a dark underside and possibly other victims.`\
 https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
-
-**Texas Governor Spends Millions on Attack Ads Featuring Jasmine Crockett**\
-`Gov. Greg Abbott hopes the ads featuring the Democrat will galvanize Republican voter turnout in November.`\
-https://nytimes.com/2026/02/25/us/greg-abbott-jasmine-crockett-texas-primary-ads.html
 
