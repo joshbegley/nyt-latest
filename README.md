@@ -1,3 +1,7 @@
+**Same War, Different Message: Trump Tonight vs. Biden Four Years Ago**\
+`President Trump issued no statement in support of Ukraine on the anniversary of the Russian invasion, four years after his predecessor laid out the stakes.`\
+https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
+
 **T. Rex Ran on Its Tiptoes ‘Like an 8-Ton Chicken’**\
 `New findings about the anatomy of the dinosaur age’s fiercest predator suggest it chased prey “like an oversized bird.”`\
 https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069145/2026/02/24/ramsay-west-bromwich-albion-sack
 **Wayve, an A.I. Driverless Car Start-Up in Europe, Raises $1.2 Billion**\
 `The London-based company is building a system that uses artificial intelligence to power autonomous vehicles.`\
 https://nytimes.com/2026/02/24/technology/wayve-ai-driverless-car-start-up.html
-
-**68% of Americans Say Trump Has the Wrong Priorities**\
-`As Mr. Trump prepares for his State of the Union address, polls show that most Americans say he isn’t paying enough attention to the country’s biggest problems.`\
-https://nytimes.com/2026/02/24/us/politics/trump-poll-approval-sotu.html
 
