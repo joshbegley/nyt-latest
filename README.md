@@ -1,3 +1,27 @@
+**How Mamdani Learned From the First Snowstorm and Prepared for the Second**\
+`As the forecast rapidly worsened, Mayor Zohran Mamdani urged his staff to implement new policies and emphasized the need to communicate aggressively about the snow.`\
+https://nytimes.com/2026/02/25/nyregion/mamdani-nyc-snow.html
+
+**Mamdani’s New Social Services Chief Worked to Reduce Street Homelessness**\
+`Mayor Zohran Mamdani selected Erin Dalton, a public official in the Pittsburgh area, to head New York City’s Department of Social Services.`\
+https://nytimes.com/2026/02/25/nyregion/social-services-homeless-dalton.html
+
+**A New York City Diner That Served Blind Residents Has Closed Its Doors**\
+`When Malibu Diner in Chelsea shut down on Sunday night, it ended a unique breakfast program for older people in the city.`\
+https://nytimes.com/2026/02/25/nyregion/malibu-diner-nyc-blind-community.html
+
+**Baby Monkey**\
+`Punch, an abandoned baby monkey at a Japanese zoo, has become a social media star. Are you a fan?`\
+https://nytimes.com/2026/02/25/learning/baby-monkey.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/25/crosswords/spelling-bee-forum.html
+
+**Luka Dončić turns down an open shot, Lakers lose to the Magic at the buzzer**\
+`Dončić appeared indecisive on the Lakers' final possession of Tuesday night's game, passing up an open look that led to a tough home loss.`\
+https://nytimes.com/athletic/7069858/2026/02/25/lakers-luka-doncic-turns-down-open-shot-loss/
+
 **Trump Puts On a Show, Casting Democrats as the Villains**\
 `On the defensive over the economy and with the midterms approaching, President Trump made clear that his political strategy is to paint Democrats as unpatriotic and ‘crazy.’`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-speech.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-
 **‘Stand Up’: With One Maneuver, Trump Tries to Box In Democrats**\
 `President Trump turned his State of the Union address into full-blown political theater, handing out medals to war veterans and tossing the spotlight to ice hockey players.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-scene.html
-
-**Word of the Day: virtuosity**\
-`This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/25/learning/word-of-the-day-virtuosity.html
-
-**Jimmy Kimmel Goes Live After a Super Long State of the Union**\
-`“I can’t believe America missed an all-new ‘Will Trent’ for this one,” he joked.`\
-https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
-
-**Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
-`The loss of Ben Sheaf and Matty James has created a problem for the club as they fight for promotion to the Premier League`\
-https://nytimes.com/athletic/7067529/2026/02/25/wrexham-parkinson-midfield-injuries-sheaf-james/
-
-**Rubio Was Looking at His Phone After Trump Praised Him in State of the Union Speech**\
-`Shortly after Secretary of State Marco Rubio was singled out for praise, a New York Times photographer captured him reading messages from Mr. Trump’s special envoy to Venezuela.`\
-https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.html
-
-**6 Takeaways From Trump’s State of the Union**\
-`In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
-https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
-
-**Democratic Response to Trump’s State of the Union**\
-`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
-https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
 
