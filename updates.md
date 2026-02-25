@@ -1,3 +1,7 @@
+**6 Takeaways From Trump’s State of the Union**\
+`In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
+
 **Democratic Response to Trump’s State of the Union**\
 `Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
 https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
