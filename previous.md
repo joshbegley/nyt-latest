@@ -1,3 +1,7 @@
+**Attire With Sparkling Personality**\
+`Bold shoulders, dramatic proportions and opulent accessories lent lively touches to ensembles on runways and streets during London Fashion Week.`\
+https://nytimes.com/2026/02/25/style/london-fashion-week-street-style.html
+
 **7 Voters React to Trump’s State of the Union Speech**\
 `With his job approval ratings ticking down, President Trump said that his second term so far was “a turnaround for the ages.” Did he persuade voters?`\
 https://nytimes.com/2026/02/25/us/voters-trump-state-of-union-speech-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070430/2026/02/25/sabres-vs-devils-stream-how-to-w
 **How to watch Flyers vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070428/2026/02/25/flyers-vs-capitals-stream-how-to-watch-feb-25/
-
-**How to watch West Virginia vs. UCF women's basketball: Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the UCF Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-to-watch-feb-25/
 

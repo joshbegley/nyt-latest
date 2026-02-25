@@ -1,3 +1,7 @@
+**Attire With Sparkling Personality**\
+`Bold shoulders, dramatic proportions and opulent accessories lent lively touches to ensembles on runways and streets during London Fashion Week.`\
+https://nytimes.com/2026/02/25/style/london-fashion-week-street-style.html
+
 **7 Voters React to Trump’s State of the Union Speech**\
 `With his job approval ratings ticking down, President Trump said that his second term so far was “a turnaround for the ages.” Did he persuade voters?`\
 https://nytimes.com/2026/02/25/us/voters-trump-state-of-union-speech-reaction.html

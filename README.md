@@ -1,3 +1,15 @@
+**Irish boxer Taylor announces retirement after summer homecoming fight**\
+`The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
+https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/
+
+**The White Pantsuit Protest That Wasn’t**\
+`Democratic congresswomen put out a call to wear white at the State of the Union. It didn’t work.`\
+https://nytimes.com/2026/02/25/style/congresswomen-white-state-of-the-union.html
+
+**We Need More Houses. Why Aren’t More Being Built?**\
+`Plus, why we’re making fewer houses than we did in the 2000s`\
+https://nytimes.com/2026/02/25/headway/housing-starts-newsletter.html
+
 **Attire With Sparkling Personality**\
 `Bold shoulders, dramatic proportions and opulent accessories lent lively touches to ensembles on runways and streets during London Fashion Week.`\
 https://nytimes.com/2026/02/25/style/london-fashion-week-street-style.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-epstein-files.html
 **Lawrence Summers Will Resign From Harvard After Epstein Revelations**\
 `Mr. Summers, former president of the school, had stepped back from teaching after documents showed a closer relationship to Jeffrey Epstein than previously known. He will leave at the end of the academic year.`\
 https://nytimes.com/2026/02/25/us/larry-summers-resignation-harvard-epstein.html
-
-**Ex-Head of San Francisco Homeless Nonprofit Is Charged With Misusing Over $1 Million**\
-`Gwendolyn Westbrook, who led the United Council of Human Services, misappropriated public funds for her own use, prosecutors said.`\
-https://nytimes.com/2026/02/25/us/westbrook-homeless-services-charged-san-francisco.html
-
-**How to watch Sabres vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070430/2026/02/25/sabres-vs-devils-stream-how-to-watch-feb-25/
-
-**How to watch Flyers vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070428/2026/02/25/flyers-vs-capitals-stream-how-to-watch-feb-25/
 
