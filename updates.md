@@ -1,3 +1,11 @@
+**Blaming Tariffs, Aston Martin to Trim 20% of Its Work Force**\
+`The luxury automaker said losses for 2025 had increased from the year before, as tariffs and geopolitical uncertainty take a toll on its operations.`\
+https://nytimes.com/2026/02/25/business/tariffs-aston-martin.html
+
+**Commanders will return to London in 2026 for first time in a decade**\
+`The 2026 London game will come a decade after Washington first competed in London and played the Cincinnati Bengals to a 27-27 tie.`\
+https://nytimes.com/athletic/7070215/2026/02/25/commanders-nfl-london-game-2026-2/
+
 **The Password That Lets Caterpillars Hide in an Ant’s Lair**\
 `Some butterfly species can’t grow unless they trick ants into taking them home with a complex rhythmic signal.`\
 https://nytimes.com/2026/02/25/science/caterpillar-ant-language.html
