@@ -1,3 +1,31 @@
+**“I ended eight wars.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wars
+
+**“I want to stop all payments to big insurance companies and instead give that money directly to the people so they can buy their own health care, which will be better health care at a much lower cost.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-want-to-stop-all-payments-to-big-insurance-companies-and-instead-give-that-money-directly-to-the-people-so-they-can-buy-their-
+
+**U.S. men's hockey team honored at State of the Union, Trump says women's team coming to White House**\
+`Trump recognized the team for its gold-medal-winning effort at the Olympics.`\
+https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
+
+**“We are deporting illegal alien criminals from our country at record numbers and we’re getting them the hell out of here fast!”**\
+`By Zolan Kanno-Youngs and Ashley Cai`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-are-deporting-illegal-alien-criminals-from-our-country-at-record-numbers-and-were-getting-them-the-hell-out-of-here-fast
+
+**“We will always protect Social Security, Medicare, Medicaid.”**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-will-always-protect-social-security-medicare-medicaid
+
+**“The cost of chicken, butter, fruit, hotels, automobiles, rent is lower today than when I took office, by a lot. And even beef, which was very high, is starting to come down significantly.”**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-cost-of-chicken-butter-fruit-hotels-automobiles-rent-is-lower-today-than-when-i-took-office-by-a-lot-and-even-beef-which-was
+
+**“Under my just-enacted most favored nation agreement, Americans who have for decades paid by far the highest prices of any nation anywhere in the world for prescription drugs will now pay the lowest price anywhere in the world for drugs anywhere.”**\
+`By Margot Sanger-Katz`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-my-just-enacted-most-favored-nation-agreement-americans-who-have-for-decades-paid-by-far-the-highest-prices-of-any-nation-
+
 **“With the great Big Beautiful Bill, we gave you no tax on tips, no tax on overtime and no tax on Social Security for our great seniors.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-big-beautiful-bill
@@ -9,32 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-biden-and-
 **Why Democratic Congresswomen Wore White to the State of the Union — This Time**\
 `It’s not the first time some Democratic women have displayed unity by wearing the same color, but this time it was in part to signal opposition to the SAVE America Act.`\
 https://nytimes.com/2026/02/24/style/state-of-the-union-white-outfits-democrats.html
-
-**“If we’re able to find enough of that fraud, we will actually have a balanced budget overnight.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/if-were-able-to-find-enough-of-that-fraud-we-will-actually-have-a-balanced-budget-overnight
-
-**“So in my first year of the second term — should be my third term.”**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/so-in-my-first-year-of-the-second-term-should-be-my-third-term
-
-**“American natural gas production is at an all-time high because I kept my promise to drill, baby, drill.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/american-natural-gas-production-is-at-an-all-time-high-because-i-kept-my-promise-to-drill-baby-drill
-
-**“I believe the tariffs, paid for by foreign countries, will, like in the past, substantially replace the modern day system of income tax — taking a great financial burden off the people that I love.”**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-believe-the-tariffs-paid-for-by-foreign-countries-will-like-in-the-past-substantially-replace-the-modern-day-system-of-income-
-
-**“But when it comes to the corruption that is plundering America, there has been no more stunning example than Minnesota — where members of the Somali community have pillaged an estimated $19 billion from the American taxpayer.”**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/but-when-it-comes-to-the-corruption-that-is-plundering-america-there-has-been-no-more-stunning-example-than-minnesota-where-memb
-
-**After playoff disappointment, Shota Imanaga's comeback tour begins with optimism**\
-`Imanaga threw two scoreless innings in a 6-5 win over the Padres on Tuesday.`\
-https://nytimes.com/athletic/7069500/2026/02/24/shota-imanaga-cubs-comeback-tour-optimism/
-
-**On a Higher Level**\
-`Brad Lively makes our heads spin.`\
-https://nytimes.com/2026/02/24/crosswords/daily-puzzle-2026-02-25.html
 
