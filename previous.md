@@ -1,3 +1,7 @@
+**A Last Chance Before War**\
+`The U.S. and Iran both say they want to avoid a conflict. Time is running out to avoid one.`\
+https://nytimes.com/2026/02/25/world/iran-nuclear-talks-trump-war-maduro.html
+
 **Man Accused of Plotting to Kill Trump Goes on Trial**\
 `Prosecutors said that Asif Merchant traveled to the United States in 2024, under the guise of a businessman, to coordinate plots to kill leaders, including President Trump.`\
 https://nytimes.com/2026/02/25/nyregion/merchant-iran-trump-assassination-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010723047/iran-protests-doctors-images-f
 **Infantino has 'full confidence' in Mexico as World Cup host after unrest**\
 `The FIFA president also insisted March's World Cup play-off event in Mexico would not have to be moved.`\
 https://nytimes.com/athletic/7070794/2026/02/25/gianni-infantino-mexico-world-cup/
-
-**How to watch Warriors vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070998/2026/02/25/warriors-vs-grizzlies-stream-how-to-watch-feb-25/
 

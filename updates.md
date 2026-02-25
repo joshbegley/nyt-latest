@@ -1,3 +1,7 @@
+**A Last Chance Before War**\
+`The U.S. and Iran both say they want to avoid a conflict. Time is running out to avoid one.`\
+https://nytimes.com/2026/02/25/world/iran-nuclear-talks-trump-war-maduro.html
+
 **Man Accused of Plotting to Kill Trump Goes on Trial**\
 `Prosecutors said that Asif Merchant traveled to the United States in 2024, under the guise of a businessman, to coordinate plots to kill leaders, including President Trump.`\
 https://nytimes.com/2026/02/25/nyregion/merchant-iran-trump-assassination-trial.html
