@@ -35,6 +35,6 @@ https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
 https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
 
 **Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
-`Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
+`Twenty players from the U.S. hockey team went to President Trump's State of the Union address. Gary Bettman said the decision is up to them.`\
 https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
 

@@ -1,3 +1,15 @@
+**Paul Skenes expects to make two starts in World Baseball Classic**\
+`Skenes would only see a second start if Team USA advances out of pool play, which they are expected to do. `\
+https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-classic-pirates/
+
+**U.S. sent F-22 fighter jets to Israel, an official says.**\
+`Videos show a dozen F-22 Raptors left Britain on Tuesday, and flight tracking data indicates they flew toward the Middle East.`\
+https://nytimes.com/live/2026/02/24/us/trump-news-updates/f-22-fighter-jets-israel
+
+**Kash Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
+`An itinerary for Mr. Patel’s trip provides more granular detail, including big blocs of personal time that suggest he was not immensely oversubscribed by official duties.`\
+https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
+
 **How The Times Reports on the State of the Union**\
 `A team of more than 50 journalists, including eight photographers, will cover President Trump’s address.`\
 https://nytimes.com/2026/02/24/insider/new-york-times-state-of-union-trump.html
