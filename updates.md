@@ -1,3 +1,7 @@
+**Court Rules Against Justice Dept. Search of Reporter’s Computers**\
+`The judge said the court itself would search the devices, which were seized from a Washington Post reporter’s home last month.`\
+https://nytimes.com/2026/02/24/business/media/washington-post-reporter-search-ruling.html
+
 **Trae Young emotional in Atlanta return: ‘Got so much love for this city’**\
 `The guard didn't play in his first game in Atlanta since he was traded to Washington, but a tribute video appeared to move him to tears.`\
 https://nytimes.com/athletic/7069254/2026/02/24/trae-young-return-atlanta-tribute-nba/

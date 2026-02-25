@@ -1,3 +1,7 @@
+**“The Biden administration and its allies in Congress gave us the worst inflation in the history of our country. But in 12 months, my administration has driven core inflation down to the lowest level in more than five years.”**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-biden-administration-and-its-allies-in-congress-gave-us-the-worst-inflation-in-the-history-of-our-country-but-in-12-months-m
+
 **Court Rules Against Justice Dept. Search of Reporter’s Computers**\
 `The judge said the court itself would search the devices, which were seized from a Washington Post reporter’s home last month.`\
 https://nytimes.com/2026/02/24/business/media/washington-post-reporter-search-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-news-updates/f-22-fighter-jets-isra
 **Kash Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
 `An itinerary for Mr. Patel’s trip provides more granular detail, including long segments of personal time that suggest he was not immensely oversubscribed by official duties.`\
 https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
-
-**How The Times Reports on the State of the Union**\
-`A team of more than 50 journalists, including eight photographers, will cover President Trump’s address.`\
-https://nytimes.com/2026/02/24/insider/new-york-times-state-of-union-trump.html
 
