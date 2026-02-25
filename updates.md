@@ -1,3 +1,11 @@
+**Lawrence Summers Will Resign from Harvard After Epstein Revelations**\
+`Mr. Summers, former president of the school, had stepped back from teaching after documents showed a closer relationship to Jeffrey Epstein than previously known. He will leave at the end of the academic year.`\
+https://nytimes.com/2026/02/25/us/lawrence-summers-resign-harvard-epstein-documents.html
+
+**Ex-Head of San Francisco Homeless Nonprofit Is Charged With Misusing Over $1 Million**\
+`Gwendolyn Westbrook, who led the United Council of Human Services, misappropriated public funds for her own use, prosecutors said.`\
+https://nytimes.com/2026/02/25/us/westbrook-homeless-services-charged-san-francisco.html
+
 **How to watch Sabres vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070430/2026/02/25/sabres-vs-devils-stream-how-to-watch-feb-25/
