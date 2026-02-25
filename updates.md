@@ -1,3 +1,15 @@
+**“In four long years, the last administration got less than $1 trillion in new investment in the United States. And when I say less, substantially less. In 12 months, I secured commitments for more than $18 trillion pouring in from all over the globe.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-four-long-years-the-last-administration-got-less-than-1-trillion-in-new-investment-in-the-united-states-and-when-i-say-less-s
+
+**“In one year, we have lifted 2.4 million Americans, a record, off of food stamps.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-one-year-we-have-lifted-2-4-million-americans-a-record-off-of-food-stamps
+
+**“As thousands of new businesses are forming, factories, plants and laboratories are being built, we have added 70,000 new construction jobs in just a very short period of time.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/as-thousands-of-new-businesses-are-forming-factories-plants-and-laboratories-are-being-built-we-have-added-70000-new-constructio
+
 **“The Biden administration and its allies in Congress gave us the worst inflation in the history of our country. But in 12 months, my administration has driven core inflation down to the lowest level in more than five years.”**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-biden-administration-and-its-allies-in-congress-gave-us-the-worst-inflation-in-the-history-of-our-country-but-in-12-months-m

@@ -1,3 +1,15 @@
+**“In four long years, the last administration got less than $1 trillion in new investment in the United States. And when I say less, substantially less. In 12 months, I secured commitments for more than $18 trillion pouring in from all over the globe.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-four-long-years-the-last-administration-got-less-than-1-trillion-in-new-investment-in-the-united-states-and-when-i-say-less-s
+
+**“In one year, we have lifted 2.4 million Americans, a record, off of food stamps.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-one-year-we-have-lifted-2-4-million-americans-a-record-off-of-food-stamps
+
+**“As thousands of new businesses are forming, factories, plants and laboratories are being built, we have added 70,000 new construction jobs in just a very short period of time.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/as-thousands-of-new-businesses-are-forming-factories-plants-and-laboratories-are-being-built-we-have-added-70000-new-constructio
+
 **“The Biden administration and its allies in Congress gave us the worst inflation in the history of our country. But in 12 months, my administration has driven core inflation down to the lowest level in more than five years.”**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-biden-administration-and-its-allies-in-congress-gave-us-the-worst-inflation-in-the-history-of-our-country-but-in-12-months-m
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7069263/2026/02/24/nfl-referees-cba-centralized-off
 **Bengals' Duke Tobin talks Joe Burrow restructure, big swings, Trey Hendrickson at combine**\
 `Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
 https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
-
-**Paul Skenes expects to make two starts in World Baseball Classic**\
-`Skenes would only see a second start if Team USA advances out of pool play, which they are expected to do. `\
-https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-classic-pirates/
-
-**U.S. sent F-22 fighter jets to Israel, an official says.**\
-`Videos show a dozen F-22 Raptors left Britain on Tuesday, and flight tracking data indicates they flew toward the Middle East.`\
-https://nytimes.com/live/2026/02/24/us/trump-news-updates/f-22-fighter-jets-israel
-
-**Kash Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
-`An itinerary for Mr. Patel’s trip provides more granular detail, including long segments of personal time that suggest he was not immensely oversubscribed by official duties.`\
-https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
 
