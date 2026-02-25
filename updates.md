@@ -1,3 +1,7 @@
+**Bengals' Duke Tobin talks Burrow restructure, big swings, Hendrickson at combine**\
+`Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
+https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
+
 **Paul Skenes expects to make two starts in World Baseball Classic**\
 `Skenes would only see a second start if Team USA advances out of pool play, which they are expected to do. `\
 https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-classic-pirates/
