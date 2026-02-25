@@ -1,3 +1,15 @@
+**Long Live Goat Cheese**\
+`It brings its signature creamy tang to my baked artichoke pasta with a fried onion topping.`\
+https://nytimes.com/2026/02/25/dining/long-live-goat-cheese.html
+
+**Hungry for Affirmation, Vulnerable to Scams: As a Writer, I Know the Feeling**\
+`From George Saunders to the National Book Foundation, the literary world has been besieged by fake requests. Just like me.`\
+https://nytimes.com/2026/02/25/books/review/publishing-scams.html
+
+**Three Great Frederick Wiseman Documentaries to Stream**\
+`This month offers a tribute to the prolific filmmaker who died last week at 96 and has a plausible claim to being the greatest documentarian who ever lived.`\
+https://nytimes.com/2026/02/25/movies/frederick-wiseman-documentaries-streaming.html
+
 **Marmalade Is Sunshine in a Jar — And in Your Cooking**\
 `Adding a spoonful of marmalade to savory and sweet dishes chases winter grayness away.`\
 https://nytimes.com/2026/02/25/dining/cooking-with-marmalade.html
