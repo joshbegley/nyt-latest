@@ -1,3 +1,7 @@
+**What Trump Did (and Didn’t) Say**\
+`The president boasted about a strong economy in his State of the Union address. But he spent less time on a potential weakness, affordability.`\
+https://nytimes.com/2026/02/25/business/dealbook/trump-state-of-union.html
+
 **Germany’s Leader Delivers a Blunt Warning to China on Trade**\
 `Chancellor Friedrich Merz laid out his complaints in a frank message to his hosts on a trip to Beijing that China had designed to showcase their relationship.`\
 https://nytimes.com/2026/02/25/world/asia/china-germany-merz-visit-xi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069900/2026/02/25/snoop-dogg-swansea-city-ownershi
 **Mandel's Mailbag: Is the SEC's reign over? Clemson's decline and the 24-team CFP**\
 `Plus, Stewart Mandel's Ten Commandments to improve college football.`\
 https://nytimes.com/athletic/7069468/2026/02/25/sec-clemson-college-football-playoff/
-
-**Lowetide: How can the Oilers solve their predicament at No. 3 centre?**\
-`If the Oilers don't make a trade for a depth centre, they have a few options to consider for the third line.`\
-https://nytimes.com/athletic/7067640/2026/02/25/edmonton-oilers-centre-depth-chart-roster-trade/
 
