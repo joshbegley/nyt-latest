@@ -1,3 +1,23 @@
+**Jonathan Kuminga's debut with the Hawks was spectacular**\
+`In his first game since Atlanta traded for him, Kuminga scored 27 points in 24 minutes.`\
+https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba/
+
+**Leader of Columbia Brain Institute Quits Over Friendship With Epstein**\
+`The Nobel laureate Richard Axel is not accused of wrongdoing but called his association with Jeffrey Epstein a “serious error in judgment.”`\
+https://nytimes.com/2026/02/25/nyregion/columbia-nobel-winner-epstein-resigns.html
+
+**Spanberger, in Democratic Response, Asks ‘Is the President Working for You?’**\
+`“We all know the answer is no,” the Virginia governor argued in her rebuttal to President Trump’s State of the Union address.`\
+https://nytimes.com/2026/02/25/us/politics/spanberger-democratic-response-trump-sotu.html
+
+**Trump Calls for More Limits on Trans Youth**\
+`During the State of the Union address, the president said states “must ban” social transitions among young people without parental consent.`\
+https://nytimes.com/2026/02/25/us/politics/virginia-trans-student-trump-sotu-guest.html
+
+**Full Transcript of Trump’s State of the Union Address**\
+`President Trump spoke for nearly two hours to a joint session of Congress.`\
+https://nytimes.com/2026/02/25/us/politics/state-of-the-union-transcript-trump.html
+
 **How Liverpool cured their set-piece sickness – and why it matters**\
 `A damaging trend has been reversed at Anfield — but what has changed in the approach to attacking and defending set plays?`\
 https://nytimes.com/athletic/7067714/2026/02/25/liverpool-set-pieces/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham
 **The growing link between gambling and racist abuse of Premier League players**\
 `There is a growing undercurrent to some racist abuse faced by players — a bet is lost, and players are blamed`\
 https://nytimes.com/athletic/7068003/2026/02/25/premier-league-football-racist-abuse-gambling/
-
-**The trick that helps Manchester United's Senne Lammens dominate Royal Rumble corners**\
-`Our goalkeeping expert explains what the Manchester United goalkeeper does that allows him to claim and clear the ball with authority`\
-https://nytimes.com/athletic/7068179/2026/02/25/senne-lammens-why-so-good-corners/
-
-**Jose Mourinho's 'violent' years of Real Madrid infamy, and his Champions League return**\
-`The 63-year-old Portuguese manager returns to the Santiago Bernabeu for the first time on Wednesday night, in dramatic circumstances`\
-https://nytimes.com/athletic/7067622/2026/02/25/real-madrid-jose-mourinho-benfica-champions-league-history/
-
-**Fact-Checking Trump’s State of the Union Speech**\
-``\
-https://nytimes.com/live/2026/02/25/us/fact-check-state-of-the-union-trump
-
-**King's Lynn Town and the mystery of the waterlogged pitch: Sabotage, subterfuge, or a faulty sprinkler?**\
-`The National League launched an investigation into whether the relegation-threatened club had deliberately made their pitch unplayable`\
-https://nytimes.com/athletic/7068202/2026/02/25/kings-lynn-town-and-the-mystery-of-the-waterlogged-pitch-sabotage-subterfuge-or-a-faulty-sprinkler/
-
-**Why Arsenal have been immune to conceding counter-attack goals – for 36 games and counting**\
-`Arsenal have learned how to defend with possession — and it is forming the basis of their title push. This is how they do it`\
-https://nytimes.com/athletic/7055776/2026/02/25/arsenal-secret-36-games-counter-attack-goal/
 
