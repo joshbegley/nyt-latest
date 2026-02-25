@@ -1,3 +1,11 @@
+**Should I Tell People What My Principal Did?**\
+`He was a community pillar with a dark underside and possibly other victims.`\
+https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
+
+**Texas Governor Spends Millions on Attack Ads Featuring Jasmine Crockett**\
+`Gov. Greg Abbott hopes the ads featuring the Democrat will galvanize Republican voter turnout in November.`\
+https://nytimes.com/2026/02/25/us/greg-abbott-jasmine-crockett-texas-primary-ads.html
+
 **In N.C. Senate Race, Democrats Bet a Big Name Can Beat Trump’s Endorsement**\
 `The race is one of a handful of competitive Senate elections this year, but Democrats seem most confident about North Carolina, partly because their candidate, former Gov. Roy Cooper, has never been beaten.`\
 https://nytimes.com/2026/02/25/us/nc-senate-race-2026-roy-cooper.html
