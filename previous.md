@@ -1,3 +1,19 @@
+**Seahawks expect invitation to White House, will wait to decide on visit**\
+`The Seahawks visited the White House in May 2014, while President Barack Obama was in office, following their victory in Super Bowl 48.`\
+https://nytimes.com/athletic/7070536/2026/02/25/seahawks-white-house-donald-trump-visit/
+
+**Cuban Government Says 4 Are Killed in Gunfire Exchange on Florida Speedboat**\
+`Four people aboard a Florida-based speedboat died in a gunfight with Cuban border troops near the island nation’s coast, the Cuban Interior Ministry said.`\
+https://nytimes.com/2026/02/25/world/americas/cuba-gunfire-speedboat-florida.html
+
+**Hellebuyck joins list of Olympic legends awarded the Presidential Medal of Freedom**\
+`“I’ve never seen a goaltender play as well as goalie Connor Hellebuyck,” Donald Trump said at his State of the Union address.`\
+https://nytimes.com/athletic/7070418/2026/02/25/connor-helleybuyck-presidential-medal-of-freedom/
+
+**Lakers hire Tony Bennett as NBA Draft adviser**\
+`The Lakers have begun rebuilding their college scouting department after firing assistant general manager Jesse Buss in November.`\
+https://nytimes.com/athletic/7070713/2026/02/25/tony-bennett-lakers-hiring-nba-draft/
+
 **Fantasy trends and hidden gems: Olympic injury fallout and Week 19 waiver wire targets**\
 `Shayna Goldman reviews injury fallout from the Olympics, players whose value increased during the Olympics, Week 19 targets and more. `\
 https://nytimes.com/athletic/7068984/2026/02/25/fantasy-trends-hidden-gems-olympic-fallout-week-19/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-name-sotu.html
 **Former Senator Bob Kerrey Resigns From Nebraska Start-Up Amid Epstein Emails**\
 `Mr. Kerrey has left his role as chairman of the company, Monolith, after Justice Department documents showed he had met and corresponded with Jeffrey Epstein.`\
 https://nytimes.com/2026/02/25/us/bob-kerrey-resignation-monolith-epstein.html
-
-**BBC and BAFTA Say They Are Investigating After Broadcast of Racist Slur**\
-`The awards organization and the broadcaster have ordered separate investigations into what led to airing the slur, which was shouted involuntarily during Sunday’s ceremony.`\
-https://nytimes.com/2026/02/25/world/europe/bbc-bafta-slur-apology-tourettes.html
-
-**Arsenal announce record revenues and wage bill in seventh straight loss-making year**\
-`Arsenal almost broke even for the 2024-25 financial year, recording an overall loss of £1.4million.`\
-https://nytimes.com/athletic/7070576/2026/02/25/arsenal-finances-2024-25-revenues/
-
-**Can a Long-Hated Bronx Highway Be Repaired Without Doing More Harm?**\
-`Community groups are opposing proposals to expand the decades-old Cross Bronx Expressway in favor of more limited fixes and improvements to local streets.`\
-https://nytimes.com/2026/02/25/nyregion/cross-bronx-expressway-nyc.html
-
-**Blue Jackets stretch drive primer: What to expect, what to know as playoff push resumes**\
-`The Blue Jackets headed into the Olympic break as the hottest club in the NHL, but are still just out of a playoff spot.`\
-https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-olympics/
 
