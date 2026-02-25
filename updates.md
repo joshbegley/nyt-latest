@@ -1,3 +1,11 @@
+**“I had just inherited a nation in crisis with a stagnant economy, inflation at record levels, a wide open border, horrendous recruitment for military and police, rampant crime at home, and wars and chaos all over the world. ... A turnaround for the ages.”**\
+` `\
+https://nytimes.com/2026/02/24/us/politics/when-i-last-spoke-in-the-chamber.html
+
+**“Last year, I urged this Congress to begin the mission by passing the largest tax cuts in American history, and the Republican majority delivered so beautifully!”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/last-year-i-urged-this-congress-to-begin-the-mission-by-passing-the-largest-tax-cuts-in-american-history-and-the-republican-majo
+
 **“In four long years, the last administration got less than $1 trillion in new investment in the United States. And when I say less, substantially less. In 12 months, I secured commitments for more than $18 trillion pouring in from all over the globe.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-four-long-years-the-last-administration-got-less-than-1-trillion-in-new-investment-in-the-united-states-and-when-i-say-less-s

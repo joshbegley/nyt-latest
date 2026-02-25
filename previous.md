@@ -1,3 +1,11 @@
+**“I had just inherited a nation in crisis with a stagnant economy, inflation at record levels, a wide open border, horrendous recruitment for military and police, rampant crime at home, and wars and chaos all over the world. ... A turnaround for the ages.”**\
+` `\
+https://nytimes.com/2026/02/24/us/politics/when-i-last-spoke-in-the-chamber.html
+
+**“Last year, I urged this Congress to begin the mission by passing the largest tax cuts in American history, and the Republican majority delivered so beautifully!”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/last-year-i-urged-this-congress-to-begin-the-mission-by-passing-the-largest-tax-cuts-in-american-history-and-the-republican-majo
+
 **“In four long years, the last administration got less than $1 trillion in new investment in the United States. And when I say less, substantially less. In 12 months, I secured commitments for more than $18 trillion pouring in from all over the globe.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-four-long-years-the-last-administration-got-less-than-1-trillion-in-new-investment-in-the-united-states-and-when-i-say-less-s
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/24/us/politics/trump-speech-length-state-of-the-unio
 **Doc Rivers, Erik Spoelstra react to Pat Riley’s call for coaches to wear suits**\
 `Pat Riley thinks coaches should go back to suits. "But he wore suits differently than us mortals," Miami Heat coach Erik Spoelstra said.`\
 https://nytimes.com/athletic/7069376/2026/02/24/nba-pat-riley-doc-rivers-erik-spoelstra-suits/
-
-**Officiating from NYC? NFL discusses options as talks with refs union drag on**\
-`The NFL is considering the idea of centralizing some officiating functions in New York.`\
-https://nytimes.com/athletic/7069263/2026/02/24/nfl-referees-cba-centralized-officiating-nyc/
-
-**Bengals' Duke Tobin talks Joe Burrow restructure, big swings, Trey Hendrickson at combine**\
-`Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
-https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
 
