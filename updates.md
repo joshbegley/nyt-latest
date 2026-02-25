@@ -1,3 +1,11 @@
+**Gideon Kodua on life at Luton: 'The earlier you snap out of the comfort of under-21s football, the better'**\
+`The former West Ham man is Luton Town’s top goalscorer this season and hopes his side return to the Championship at the first time of asking`\
+https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham-arsenal/
+
+**The growing link between gambling and racist abuse of Premier League players**\
+`There is a growing undercurrent to some racist abuse faced by players — a bet is lost, and players are blamed`\
+https://nytimes.com/athletic/7068003/2026/02/25/premier-league-football-racist-abuse-gambling/
+
 **The trick that helps Manchester United's Senne Lammens dominate Royal Rumble corners**\
 `Our goalkeeping expert explains what the Manchester United goalkeeper does that allows him to claim and clear the ball with authority`\
 https://nytimes.com/athletic/7068179/2026/02/25/senne-lammens-why-so-good-corners/
