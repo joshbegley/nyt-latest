@@ -1,3 +1,7 @@
+**Resident Evil Requiem Shines Within Its Confines**\
+`The corridors of a former sanitarium are both terrifying and rewarding, while Raccoon City is bland and filled with chores.`\
+https://nytimes.com/2026/02/25/arts/resident-evil-requiem-review.html
+
 **Nebraska U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Nebraska U.S. Senate election.`\
 https://nytimes.com/interactive/polls/nebraska-us-senate-election-polls-2026.html
