@@ -18,10 +18,6 @@ https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-scene.html
 `This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/25/learning/word-of-the-day-virtuosity.html
 
-**Atletico Madrid are evolving, but still cannot be written off**\
-`They may not be as defensively solid as previous vintages, but this Atleti can hurt Liverpool or Spurs in the Champions League Last 16`\
-https://nytimes.com/athletic/7065472/2026/02/25/atletico-madrid-champions-league-club-bruges/
-
 **Jimmy Kimmel Goes Live After a Super Long State of the Union**\
 `“I can’t believe America missed an all-new ‘Will Trent’ for this one,” he joked.`\
 https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.
 **6 Takeaways From Trump’s State of the Union**\
 `In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
+
+**Democratic Response to Trump’s State of the Union**\
+`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
+https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
 
