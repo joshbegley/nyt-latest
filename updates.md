@@ -1,3 +1,11 @@
+**Coby White soaks up Hornets debut, return to United Center after trade from Bulls**\
+`"Through the ups and downs, I had a lot of fans that never gave up on me and I appreciate them for that," White said of his Bulls tenure.`\
+https://nytimes.com/athletic/7069950/2026/02/25/coby-white-hornets-bulls-chicago/
+
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/25/us/nancy-guthrie-case-updates
+
 **Freshman fireworks: College basketball's first-year class has altered the landscape of this season**\
 `The lasting image of the 2025-26 season will be the overall impact of the freshman class, which has influenced a number of title contenders.`\
 https://nytimes.com/athletic/7070020/2026/02/25/college-basketball-freshman-class-boozer-dybantsa-peterson/
