@@ -1,3 +1,11 @@
+**“American natural gas production is at an all-time high because I kept my promise to drill, baby, drill.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/american-natural-gas-production-is-at-an-all-time-high-because-i-kept-my-promise-to-drill-baby-drill
+
+**“I believe the tariffs, paid for by foreign countries, will, like in the past, substantially replace the modern day system of income tax — taking a great financial burden off the people that I love.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-believe-the-tariffs-paid-for-by-foreign-countries-will-like-in-the-past-substantially-replace-the-modern-day-system-of-income-
+
 **“But when it comes to the corruption that is plundering America, there has been no more stunning example than Minnesota — where members of the Somali community have pillaged an estimated $19 billion from the American taxpayer.”**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/but-when-it-comes-to-the-corruption-that-is-plundering-america-there-has-been-no-more-stunning-example-than-minnesota-where-memb
