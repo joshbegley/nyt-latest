@@ -1,3 +1,7 @@
+**‘Sentimental Value’ | Anatomy of a Scene**\
+`The director Joachim Trier narrates a sequence from his film.`\
+https://nytimes.com/video/movies/100000010732131/sentimental-value-scene.html
+
 **How Mamdani Learned From the First Snowstorm and Prepared for the Second**\
 `As the forecast rapidly worsened, Mayor Zohran Mamdani urged his staff to implement new policies and emphasized the need to communicate aggressively about the snow.`\
 https://nytimes.com/2026/02/25/nyregion/mamdani-nyc-snow.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherha
 **Trump Heralds Economic Policies in Combative State of the Union Speech**\
 `President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
 https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html
-
-**‘Stand Up’: With One Maneuver, Trump Tries to Box In Democrats**\
-`President Trump turned his State of the Union address into full-blown political theater, handing out medals to war veterans and tossing the spotlight to ice hockey players.`\
-https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-scene.html
 
