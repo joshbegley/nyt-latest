@@ -1,3 +1,7 @@
+**In N.C. Senate Race, Democrats Bet a Big Name Can Beat Trump’s Endorsement**\
+`The race is one of a handful of competitive Senate elections this year, but Democrats seem most confident about North Carolina, partly because their candidate, former Gov. Roy Cooper, has never been beaten.`\
+https://nytimes.com/2026/02/25/us/nc-senate-race-2026-roy-cooper.html
+
 **Epstein Files Are Missing Records About Woman Who Made Claim Against Trump**\
 `Documents released by the Justice Department briefly mention a woman’s unverified accusation that Donald J. Trump assaulted her in the 1980s, when she was a minor. But several memos related to her account are not in the files.`\
 https://nytimes.com/2026/02/25/us/politics/trump-epstein-files.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070350/2026/02/25/sidney-crosby-injury-penguins-ca
 **Super-Agers’ Brains Have a Special Ability, New Study Suggests**\
 `The findings may help explain why this group has such exceptional memory.`\
 https://nytimes.com/2026/02/25/well/mind/super-agers-brain-neurons.html
-
-**How to watch Northwestern vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070381/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-3/
 
