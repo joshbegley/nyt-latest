@@ -1,3 +1,7 @@
+**6 Takeaways From Trump’s State of the Union**\
+`In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
+
 **Democratic Response to Trump’s State of the Union**\
 `Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
 https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/spanberger-democratic-response-trump-
 **Trump Calls for More Limits on Trans Youth**\
 `During the State of the Union address, the president said states “must ban” social transitions among young people without parental consent.`\
 https://nytimes.com/2026/02/25/us/politics/virginia-trans-student-trump-sotu-guest.html
-
-**Full Transcript of Trump’s State of the Union Address**\
-`President Trump spoke for nearly two hours to a joint session of Congress.`\
-https://nytimes.com/2026/02/25/us/politics/state-of-the-union-transcript-trump.html
 

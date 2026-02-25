@@ -1,3 +1,11 @@
+**Democratic Response to Trump’s State of the Union**\
+`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
+https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
+
+**What can Newcastle learn from a game without peril?**\
+`Clutching a commanding 6-1 lead over Qarabag from the first leg, Newcastle United wallowed in an occasion entirely lacking in jeopardy`\
+https://nytimes.com/athletic/7069149/2026/02/25/newcastle-qarabag-champions-league/
+
 **The New York Times in Print for Wednesday, Feb. 25, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/25/todays-new-york-times
