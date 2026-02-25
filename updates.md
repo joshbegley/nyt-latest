@@ -1,3 +1,43 @@
+**West Ham considering Supreme Court appeal over £3.6m London Stadium bill**\
+`The penalty relates to profit made on Daniel Kretinsky's purchase of a minority stake in 2021.`\
+https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
+
+**Who could the Phillies choose for the final 2 bullpen spots? Here are 4 options**\
+`With one month remaining, at least six pitchers appear to be in the running to fill the final two bullpen spots on the Opening Day roster. `\
+https://nytimes.com/athletic/7069608/2026/02/25/phillies-bullpen-opening-day-roster/
+
+**Carlos Lagrange throws 103 mph. Aaron Judge sees a 'front-line starter' in the making**\
+`Few pitchers on the planet have the ability Lagrange possesses when he uncorks a ball to home plate. Can he harness his command? `\
+https://nytimes.com/athletic/7068771/2026/02/25/carlos-lagrange-yankees-prospect-starting-pitcher/
+
+**Jaden McDaniels has arrived for the Wolves. Jamal Crawford saw it coming first**\
+`In his sixth season, McDaniels has developed from a defensive specialist to a true two-way player. Crawford knew he was destined for more.`\
+https://nytimes.com/athletic/7064680/2026/02/25/jaden-mcdaniels-wolves-arrived-jamal-crawford/
+
+**What I'm hearing from Rangers prospects amid disappointing season for AHL Hartford**\
+`Hartford is dealing with a rocky season in the AHL, but that doesn't mean prospects aren't improving their skills and trying new deployment.`\
+https://nytimes.com/athletic/7068268/2026/02/25/new-york-rangers-prospects-hartford-wolf-pack-potulny/
+
+**Kloke: What would a perfect Maple Leafs trade deadline look like?**\
+`There is an opportunity to put the Maple Leafs in a more advantageous position next season. It might take a perfect deadline.`\
+https://nytimes.com/athletic/7067801/2026/02/25/maple-leafs-trade-deadline-nhl-options/
+
+**Kyle Dubas, move by move, is doing what Ron Hextall could not**\
+`None of what the Penguins are doing this season was supposed to happen. At least, not this fast.`\
+https://nytimes.com/athletic/7069552/2026/02/25/kyle-dubas-pittsburgh-penguins-rebuild-gm-hextall/
+
+**Maple Leafs player poll, Part 2: Who survives in the woods the longest?**\
+`Plus, which Leafs are the most talkative and have the best recommendations? Here's what their teammates think.`\
+https://nytimes.com/athletic/7066222/2026/02/25/maple-leafs-player-poll-2026-part-2/
+
+**Blackhawks could do right by Murphy at deadline: 10 post-break thoughts**\
+`Plus, check-ins with Artyom Levshunov and Andre Burakovsky, prospect updates and which young defensemen look poised to play.`\
+https://nytimes.com/athletic/7067828/2026/02/25/blackhawks-trade-deadline-prospects-defense-blashill/
+
+**Daniel Susac hopes to turn Rule 5 opportunity into a dream debut with Giants**\
+`Daniel Susac has been around the Giants' clubhouse since he was 13, watching brother Andrew play. Now he's competing for a roster spot.`\
+https://nytimes.com/athletic/7069421/2026/02/25/daniel-susac-giants-rule-5-andrew-susac-buster-posey/
+
 **After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
 `Canales on Tuesday said Young was a "part of the process" to change play callers.`\
 https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
