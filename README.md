@@ -1,4 +1,12 @@
-**Bengals' Duke Tobin talks Burrow restructure, big swings, Hendrickson at combine**\
+**Pat Riley wants coaches back in suits, dressing 'like a leader'**\
+`Pat Riley thinks coaches should go back to suits. "But he wore suits differently than us mortals," Miami Heat coach Erik Spoelstra said.`\
+https://nytimes.com/athletic/7069376/2026/02/24/nba-pat-riley-doc-rivers-erik-spoelstra-suits/
+
+**Officiating from NYC? NFL discusses options as talks with refs union drag on**\
+`The NFL is considering the idea of centralizing some officiating functions in New York.`\
+https://nytimes.com/athletic/7069263/2026/02/24/nfl-referees-cba-centralized-officiating-nyc/
+
+**Bengals' Duke Tobin talks Joe Burrow restructure, big swings, Trey Hendrickson at combine**\
 `Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
 https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union
 **Radko Gudas 'sorry' for slur during Olympic game, isn't concerned about Crosby fallout**\
 `Gudas drew considerable attention for his actions in a quarterfinal game vs. Canada.`\
 https://nytimes.com/athletic/7066737/2026/02/24/radko-gudas-crosby-olympics-slur/
-
-**Same War, Different Message: Trump Tonight vs. Biden Four Years Ago**\
-`President Trump issued no statement in support of Ukraine on the anniversary of the Russian invasion, four years after his predecessor laid out the stakes.`\
-https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
-
-**T. Rex Ran on Its Tiptoes ‘Like an 8-Ton Chicken’**\
-`New findings about the anatomy of the dinosaur age’s fiercest predator suggest it chased prey “like an oversized bird.”`\
-https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
 
