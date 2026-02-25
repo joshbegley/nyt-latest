@@ -1,3 +1,15 @@
+**How Trump’s State of the Union Speech Times Compare to Other Presidents**\
+`State of the Union speeches. Here’s how he compares to past presidents.`\
+https://nytimes.com/2026/02/24/us/politics/trump-speech-length-state-of-the-union.html
+
+**Kash Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
+`An itinerary for Mr. Patel’s trip provides more granular detail, including long segments of personal time that suggest he was not immensely oversubscribed by official duties.`\
+https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
+
+**State of the Union Live Updates: Trump Is Set to Speak at a Pivotal Moment**\
+``\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union
+
 **Pat Riley wants coaches back in suits, dressing 'like a leader'**\
 `Pat Riley thinks coaches should go back to suits. "But he wore suits differently than us mortals," Miami Heat coach Erik Spoelstra said.`\
 https://nytimes.com/athletic/7069376/2026/02/24/nba-pat-riley-doc-rivers-erik-spoelstra-suits/
