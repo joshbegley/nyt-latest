@@ -1,6 +1,10 @@
-**Lawrence Summers Will Resign from Harvard After Epstein Revelations**\
+**Epstein Files Are Missing Records About Woman Who Made Claim Against Trump**\
+`Documents released by the Justice Department briefly mention a woman’s unverified accusation that Donald J. Trump assaulted her in the 1980s, when she was a minor. But several memos related to her account are not in the files.`\
+https://nytimes.com/2026/02/25/us/politics/trump-epstein-files.html
+
+**Lawrence Summers Will Resign From Harvard After Epstein Revelations**\
 `Mr. Summers, former president of the school, had stepped back from teaching after documents showed a closer relationship to Jeffrey Epstein than previously known. He will leave at the end of the academic year.`\
-https://nytimes.com/2026/02/25/us/lawrence-summers-resign-harvard-epstein-documents.html
+https://nytimes.com/2026/02/25/us/larry-summers-resignation-harvard-epstein.html
 
 **Ex-Head of San Francisco Homeless Nonprofit Is Charged With Misusing Over $1 Million**\
 `Gwendolyn Westbrook, who led the United Council of Human Services, misappropriated public funds for her own use, prosecutors said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/well/mind/super-agers-brain-neurons.html
 **How to watch Northwestern vs. Maryland women's basketball: Time, TV, streaming**\
 `Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070381/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-3/
-
-**How to watch Northwestern vs. Maryland women's basketball: Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070379/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-2/
 
