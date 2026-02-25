@@ -1,3 +1,7 @@
+**The Anguish of a Tourette’s Outburst**\
+`Verbal or physical tics can be a daily struggle. So can dealing with the hurt they may cause.`\
+https://nytimes.com/2026/02/24/well/mind/tourettes-bafta-john-davidson.html
+
 **With Team USA's rotation in flux, Logan Webb becomes more important than ever**\
 `It's looking like Webb will be much more important to Team USA's WBC ambitions than you'd otherwise expect from a No.3 starter.`\
 https://nytimes.com/athletic/7069199/2026/02/24/world-baseball-classic-team-usa-rotation-logan-webb/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/24/us/mr-clean-retires-magic-eraser.html
 **How a Day of Mayhem Unfolded in Mexico**\
 `The Times reporter Maria Abi-Habib describes the surge of violence in Mexico that erupted after a government raid killed the powerful cartel boss known as El Mencho.`\
 https://nytimes.com/video/world/americas/100000010730887/how-a-day-of-mayhem-unfolded-in-mexico.html
-
-**Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
-`In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
-https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
 
