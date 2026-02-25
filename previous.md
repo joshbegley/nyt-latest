@@ -1,3 +1,7 @@
+**Trump’s Spectacle**\
+`We’re covering the State of the Union speech.`\
+https://nytimes.com/2026/02/25/briefing/trumps-spectacle.html
+
 **West Ham considering Supreme Court appeal over £3.6m London Stadium bill**\
 `The penalty relates to profit made on Daniel Kretinsky's purchase of a minority stake in 2021.`\
 https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7066222/2026/02/25/maple-leafs-player-poll-2026-par
 **Blackhawks could do right by Murphy at deadline: 10 post-break thoughts**\
 `Plus, check-ins with Artyom Levshunov and Andre Burakovsky, prospect updates and which young defensemen look poised to play.`\
 https://nytimes.com/athletic/7067828/2026/02/25/blackhawks-trade-deadline-prospects-defense-blashill/
-
-**Daniel Susac hopes to turn Rule 5 opportunity into a dream debut with Giants**\
-`Daniel Susac has been around the Giants' clubhouse since he was 13, watching brother Andrew play. Now he's competing for a roster spot.`\
-https://nytimes.com/athletic/7069421/2026/02/25/daniel-susac-giants-rule-5-andrew-susac-buster-posey/
 

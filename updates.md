@@ -1,3 +1,7 @@
+**Trump’s Spectacle**\
+`We’re covering the State of the Union speech.`\
+https://nytimes.com/2026/02/25/briefing/trumps-spectacle.html
+
 **West Ham considering Supreme Court appeal over £3.6m London Stadium bill**\
 `The penalty relates to profit made on Daniel Kretinsky's purchase of a minority stake in 2021.`\
 https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
