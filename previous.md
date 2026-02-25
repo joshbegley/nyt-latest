@@ -1,3 +1,7 @@
+**M.T.A. Threatens to Sue Trump Over Delayed 2nd Avenue Subway Funding**\
+`The New York transportation authority said it would sue the Trump administration if it did not release more than $58 million in funding that had already been awarded by next week.`\
+https://nytimes.com/2026/02/25/nyregion/second-avenue-subway-mta.html
+
 **Live Updates: Cuban Government Says Troops Kill 4 on Florida Speedboat**\
 `Border troops engaged in a gunfight with the four people killed near the island nation’s coast, the Cuban Interior Ministry said.`\
 https://nytimes.com/live/2026/02/25/world/cuba-speedboat-florida-deaths
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070986/2026/02/25/celtics-vs-nuggets-stream-how-to
 **How to watch Cavaliers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070983/2026/02/25/cavaliers-vs-bucks-stream-how-to-watch-feb-25/
-
-**How to watch Spurs vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070975/2026/02/25/spurs-vs-raptors-stream-how-to-watch-feb-25/
 

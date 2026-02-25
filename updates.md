@@ -1,3 +1,7 @@
+**M.T.A. Threatens to Sue Trump Over Delayed 2nd Avenue Subway Funding**\
+`The New York transportation authority said it would sue the Trump administration if it did not release more than $58 million in funding that had already been awarded by next week.`\
+https://nytimes.com/2026/02/25/nyregion/second-avenue-subway-mta.html
+
 **Live Updates: Cuban Government Says Troops Kill 4 on Florida Speedboat**\
 `Border troops engaged in a gunfight with the four people killed near the island nation’s coast, the Cuban Interior Ministry said.`\
 https://nytimes.com/live/2026/02/25/world/cuba-speedboat-florida-deaths
