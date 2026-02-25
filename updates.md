@@ -1,3 +1,7 @@
+**The World Waited on Edge for Trump’s Thinking on Iran. It’s Still Waiting.**\
+`Even as the president considers an attack, his State of the Union address offered little more than a brief repetition of vague talking points from recent days.`\
+https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
+
 **Jonathan Kuminga's debut with the Hawks was spectacular**\
 `In his first game since Atlanta traded for him, Kuminga scored 27 points in 24 minutes.`\
 https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba/

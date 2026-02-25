@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Feb. 25, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/25/todays-new-york-times
+
+**No, the Dollar Is Not Dying**\
+`The currency is stumbling, by many accounts. But the narrative is false.`\
+https://nytimes.com/2026/02/25/opinion/us-dollar-china-currency-eu.html
+
 **The World Waited on Edge for Trump’s Thinking on Iran. It’s Still Waiting.**\
 `Even as the president considers an attack, his State of the Union address offered little more than a brief repetition of vague talking points from recent days.`\
 https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7067714/2026/02/25/liverpool-set-pieces/
 **Democrats, Boycotting Trump’s Speech, Rally Outside the Capitol**\
 `Dozens of House and Senate members skipped the speech and, in a counter event on the National Mall, criticized the president’s policies on immigration, health care and the economy.`\
 https://nytimes.com/2026/02/25/us/politics/democrats-boycott-trump-state-of-the-union.html
-
-**Jamie Vardy and the Italian pilgrimage offering Leicester City fans reminders of better times**\
-`Around 400 fans have made the 1,800-mile round trip this season to watch the man they consider their GOAT play for Italian club Cremonese`\
-https://nytimes.com/athletic/7057882/2026/02/25/jamie-vardy-leicester-city-cremonese-pilgrimage/
-
-**Gideon Kodua on life at Luton: 'The earlier you snap out of the comfort of under-21s football, the better'**\
-`The former West Ham man is Luton Town’s top goalscorer this season and hopes his side return to the Championship at the first time of asking`\
-https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham-arsenal/
 
