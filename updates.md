@@ -1,3 +1,19 @@
+**“We have almost no crime anymore in Washington, D.C. How did that happen? In fact, crime in Washington is now at the lowest level ever recorded, and murders in D.C. this January were down close to 100 percent from a year ago.”**\
+`By Sheryl Gay Stolberg and Eileen Sullivan`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-almost-no-crime-anymore-in-washington-dc-how-did-that-happen-in-fact-crime-in-washington-is-now-at-the-lowest-level-ever
+
+**“In a breakthrough operation last June, the United States military obliterated Iran’s nuclear weapons program with an attack on Iranian soil known as Operation Midnight Hammer.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-a-breakthrough-operation-last-june-the-united-states-military-obliterated-irans-nuclear-weapons-program-with-an-attack-on-ira
+
+**“With our new military campaign, we have stopped record amounts of drugs coming into our country and virtually stopped it completely coming in by water or sea — you probably noticed that.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/with-our-new-military-campaign-we-have-stopped-record-amounts-of-drugs-coming-into-our-country-and-virtually-stopped-it-complete
+
+**“We have more jobs, more people working today than ever before in the history of our country.”**\
+`By Linda Qiu and Ashley Cai`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-more-jobs-more-people-working-today-than-ever-before-in-the-history-of-our-country
+
 **“The cheating is rampant in our elections. It’s rampant. … They want to cheat. They have cheated. And their policy is so bad that the only way they can get elected is to cheat and we’re going to stop it.”**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-elections-cheating

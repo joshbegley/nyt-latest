@@ -1,3 +1,19 @@
+**“We have almost no crime anymore in Washington, D.C. How did that happen? In fact, crime in Washington is now at the lowest level ever recorded, and murders in D.C. this January were down close to 100 percent from a year ago.”**\
+`By Sheryl Gay Stolberg and Eileen Sullivan`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-almost-no-crime-anymore-in-washington-dc-how-did-that-happen-in-fact-crime-in-washington-is-now-at-the-lowest-level-ever
+
+**“In a breakthrough operation last June, the United States military obliterated Iran’s nuclear weapons program with an attack on Iranian soil known as Operation Midnight Hammer.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-a-breakthrough-operation-last-june-the-united-states-military-obliterated-irans-nuclear-weapons-program-with-an-attack-on-ira
+
+**“With our new military campaign, we have stopped record amounts of drugs coming into our country and virtually stopped it completely coming in by water or sea — you probably noticed that.”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/with-our-new-military-campaign-we-have-stopped-record-amounts-of-drugs-coming-into-our-country-and-virtually-stopped-it-complete
+
+**“We have more jobs, more people working today than ever before in the history of our country.”**\
+`By Linda Qiu and Ashley Cai`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-more-jobs-more-people-working-today-than-ever-before-in-the-history-of-our-country
+
 **“The cheating is rampant in our elections. It’s rampant. … They want to cheat. They have cheated. And their policy is so bad that the only way they can get elected is to cheat and we’re going to stop it.”**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-elections-cheating
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-are-deporting
 **“We will always protect Social Security, Medicare, Medicaid.”**\
 `By Margot Sanger-Katz`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-will-always-protect-social-security-medicare-medicaid
-
-**“The cost of chicken, butter, fruit, hotels, automobiles, rent is lower today than when I took office, by a lot. And even beef, which was very high, is starting to come down significantly.”**\
-`By Colby Smith`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-cost-of-chicken-butter-fruit-hotels-automobiles-rent-is-lower-today-than-when-i-took-office-by-a-lot-and-even-beef-which-was
-
-**“Under my just-enacted most favored nation agreement, Americans who have for decades paid by far the highest prices of any nation anywhere in the world for prescription drugs will now pay the lowest price anywhere in the world for drugs anywhere.”**\
-`By Margot Sanger-Katz`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-my-just-enacted-most-favored-nation-agreement-americans-who-have-for-decades-paid-by-far-the-highest-prices-of-any-nation-
-
-**“With the great Big Beautiful Bill, we gave you no tax on tips, no tax on overtime and no tax on Social Security for our great seniors.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-big-beautiful-bill
-
-**“Under Biden and his corrupt partners in Congress and beyond, it reached a breaking point with the green new scam, open borders for everyone. They poured in by the millions and millions from prisons, from mental institutions. There were murderers, 11,088 murderers.”**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-biden-and-his-corrupt-partners-in-congress-and-beyond-it-reached-a-breaking-point-with-the-green-new-scam-open-borders-for
 
