@@ -1,3 +1,7 @@
+**What Trump Did (and Didn’t) Say**\
+`The president boasted about a strong economy in his State of the Union address. But he spent less time on a potential weakness, affordability.`\
+https://nytimes.com/2026/02/25/business/dealbook/trump-state-of-union.html
+
 **Germany’s Leader Delivers a Blunt Warning to China on Trade**\
 `Chancellor Friedrich Merz laid out his complaints in a frank message to his hosts on a trip to Beijing that China had designed to showcase their relationship.`\
 https://nytimes.com/2026/02/25/world/asia/china-germany-merz-visit-xi.html
