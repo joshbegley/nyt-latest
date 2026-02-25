@@ -1,3 +1,7 @@
+**College hoops thoughts: Duke, Virginia set for showdown, an Indiana no-call**\
+`The No. 1 Blue Devils and No. 11 Cavaliers are set for a big weekend matchup in Durham. Plus sizzling UCF, unlucky Indiana and more.`\
+https://nytimes.com/athletic/7069817/2026/02/25/college-basketball-observations-duke-virginia-indiana/
+
 **Man Utd's wage bill falls year-on-year, latest financial results show**\
 `United's total revenues fell to £330.7m, though, compared to £341.8m over the same period last year.`\
 https://nytimes.com/athletic/7070159/2026/02/25/manchester-united-wages-finances/
