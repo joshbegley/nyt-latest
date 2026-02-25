@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7069413/2026/02/24/paul-skenes-world-baseball-class
 `Videos show a dozen F-22 Raptors left Britain on Tuesday, and flight tracking data indicates they flew toward the Middle East.`\
 https://nytimes.com/live/2026/02/24/us/trump-news-updates/f-22-fighter-jets-israel
 
-**Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
+**Kash Patel’s Olympics Schedule Left Plenty of Time for Leisure**\
 `An itinerary for Mr. Patel’s trip provides more granular detail, including big blocs of personal time that suggest he was not immensely oversubscribed by official duties.`\
 https://nytimes.com/2026/02/24/us/politics/kash-patel-fbi-olympics-milan.html
 
