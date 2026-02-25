@@ -1,3 +1,7 @@
+**As Electric Bills Rise, Trump Says Tech Companies Should Pay More**\
+`The president said he had negotiated a deal with tech giants to cover the energy costs of data centers, but offered few details. Experts said such pledges could prove difficult in practice.`\
+https://nytimes.com/2026/02/25/climate/ai-data-centers-trump-energy-costs.html
+
 **Long Live Goat Cheese**\
 `It brings its signature creamy tang to my baked artichoke pasta with a fried onion topping.`\
 https://nytimes.com/2026/02/25/dining/long-live-goat-cheese.html

@@ -1,3 +1,31 @@
+**How to watch West Virginia vs. UCF women's basketball: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-to-watch-feb-25/
+
+**How to watch Florida vs. Texas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070395/2026/02/25/florida-vs-texas-stream-how-to-watch-feb-25/
+
+**Penguins’ Sidney Crosby to miss at least four weeks with injury from Olympics**\
+`The lower-body injury that kept Sidney Crosby out of the gold medal game at the Olympics will sideline him for at least the next four weeks.`\
+https://nytimes.com/athletic/7070350/2026/02/25/sidney-crosby-injury-penguins-canada-hockey-nhl/
+
+**Super-Agers’ Brains Have a Special Ability, New Study Suggests**\
+`The findings may help explain why this group has such exceptional memory.`\
+https://nytimes.com/2026/02/25/well/mind/super-agers-brain-neurons.html
+
+**How to watch Northwestern vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070381/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-3/
+
+**How to watch Northwestern vs. Maryland women's basketball: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070379/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-2/
+
+**How to watch St. John's vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070371/2026/02/25/st-john-s-vs-uconn-stream-how-to-watch-feb-25/
+
 **As Electric Bills Rise, Trump Says Tech Companies Should Pay More**\
 `The president said he had negotiated a deal with tech giants to cover the energy costs of data centers, but offered few details. Experts said such pledges could prove difficult in practice.`\
 https://nytimes.com/2026/02/25/climate/ai-data-centers-trump-energy-costs.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/02/25/dining/long-live-goat-cheese.html
 **Hungry for Affirmation, Vulnerable to Scams: As a Writer, I Know the Feeling**\
 `From George Saunders to the National Book Foundation, the literary world has been besieged by fake requests. Just like me.`\
 https://nytimes.com/2026/02/25/books/review/publishing-scams.html
-
-**Three Great Frederick Wiseman Documentaries to Stream**\
-`This month offers a tribute to the prolific filmmaker who died last week at 96 and has a plausible claim to being the greatest documentarian who ever lived.`\
-https://nytimes.com/2026/02/25/movies/frederick-wiseman-documentaries-streaming.html
-
-**Marmalade Is Sunshine in a Jar — And in Your Cooking**\
-`Adding a spoonful of marmalade to savory and sweet dishes chases winter grayness away.`\
-https://nytimes.com/2026/02/25/dining/cooking-with-marmalade.html
-
-**For Hillary Clinton, an Epstein Deposition Is the Latest ‘Stand by Your Man’ Moment**\
-`The former first lady, senator and secretary of state had no dealings with Jeffrey Epstein but is once again under pressure to answer for the actions and relationships of her husband.`\
-https://nytimes.com/2026/02/25/us/politics/hillary-clinton-epstein-deposition.html
-
-**Resident Evil Requiem Shines Within Its Confines**\
-`The corridors of a former sanitarium are both terrifying and rewarding, while Raccoon City is bland and filled with chores.`\
-https://nytimes.com/2026/02/25/arts/resident-evil-requiem-review.html
-
-**Nebraska U.S. Senate Election 2026: Latest Polls**\
-`Track the latest polls in the Nebraska U.S. Senate election.`\
-https://nytimes.com/interactive/polls/nebraska-us-senate-election-polls-2026.html
-
-**Boxing braced for $1bn lawsuit over TKO and Sela's Zuffa launch**\
-`Frank Warren's Queensbury has written to TKO and Sela claiming compensation over alleged loss of earnings`\
-https://nytimes.com/athletic/7070249/2026/02/25/frank-warren-dana-white-sela-lawsuit/
-
-**How Britain Could Remove Andrew From the Royal Line of Succession**\
-`Despite his connections with the sex offender Jeffrey Epstein, the former prince is eighth in line to the British throne. That could change.`\
-https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andrew-epstein.html
 
