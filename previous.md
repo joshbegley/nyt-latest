@@ -1,3 +1,7 @@
+**7 Voters React to Trump’s State of the Union Speech**\
+`With his job approval ratings ticking down, President Trump said that his second term so far was “a turnaround for the ages.” Did he persuade voters?`\
+https://nytimes.com/2026/02/25/us/voters-trump-state-of-union-speech-reaction.html
+
 **Should I Tell People What My Principal Did?**\
 `He was a community pillar with a dark underside and possibly other victims.`\
 https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070428/2026/02/25/flyers-vs-capitals-stream-how-to
 **How to watch West Virginia vs. UCF women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-to-watch-feb-25/
-
-**How to watch Florida vs. Texas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070395/2026/02/25/florida-vs-texas-stream-how-to-watch-feb-25/
 
