@@ -1,3 +1,11 @@
+**“His reckless trade policies have forced American families to pay more than $1,700 each in tariff costs.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/his-reckless-trade-policies-have-forced-american-families-to-pay-more-than-1700-each-in-tariff-costs
+
+**Lakers exec: Rob Pelinka remaining 'empowered' to run basketball operations**\
+`"Rob's empowered to do what he does," Lakers new president of business operations Lon Rosen said of Pelinka on Tuesday.`\
+https://nytimes.com/athletic/7069596/2026/02/24/rob-pelinka-lakers-continues-basketball-operations-role/
+
 **“They’ve killed and maimed thousands of American service members and hundreds of thousands, and even millions, of people with what’s called roadside bombs, they were the kings of the roadside bomb. We took out Suleimani. I did that in my first term, it had a huge impact. He was the father of the roadside bomb.”**\
 `By John Ismay`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/theyve-killed-and-maimed-thousands-of-american-service-members-and-hundreds-of-thousands-and-even-millions-of-people-with-whats-
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wa
 **“I want to stop all payments to big insurance companies and instead give that money directly to the people so they can buy their own health care, which will be better health care at a much lower cost.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-want-to-stop-all-payments-to-big-insurance-companies-and-instead-give-that-money-directly-to-the-people-so-they-can-buy-their-
-
-**U.S. men's hockey team honored at State of the Union; Trump says women's team coming to White House**\
-`Trump recognized the team for its gold medal-winning effort at the Olympics.`\
-https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
-
-**“We are deporting illegal alien criminals from our country at record numbers and we’re getting them the hell out of here fast!”**\
-`By Zolan Kanno-Youngs and Ashley Cai`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-are-deporting-illegal-alien-criminals-from-our-country-at-record-numbers-and-were-getting-them-the-hell-out-of-here-fast
 
