@@ -1,3 +1,7 @@
+**BBC and BAFTA Say They Are Investigating After Broadcast of Racist Slur**\
+`The awards organization and the broadcaster have ordered separate investigations into what led to airing the slur, which was shouted involuntarily during Sunday’s ceremony.`\
+https://nytimes.com/2026/02/25/world/europe/bbc-bafta-slur-apology-tourettes.html
+
 **Arsenal announce record revenues and wage bill in seventh straight loss-making year**\
 `Arsenal almost broke even for the 2024-25 financial year, recording an overall loss of £1.4million.`\
 https://nytimes.com/athletic/7070576/2026/02/25/arsenal-finances-2024-25-revenues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070471/2026/02/25/the-u-s-should-scrap-world-cup-f
 **Lightning's Jon Cooper to miss next 2 games after death of his father**\
 `Jon Cooper will miss Wednesday’s home game against the Toronto Maple Leafs and Thursday’s visit to Carolina to face the Hurricanes.`\
 https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-father/
-
-**How Did Trump’s State of the Union Play?**\
-`Readers respond to the president’s address. Most but not all are critical.`\
-https://nytimes.com/2026/02/25/opinion/letters/trump-state-of-the-union.html
 
