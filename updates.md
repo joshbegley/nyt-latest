@@ -1,3 +1,15 @@
+**Pat Riley wants coaches back in suits, dressing 'like a leader'**\
+`Pat Riley thinks coaches should go back to suits. "But he wore suits differently than us mortals," Miami Heat coach Erik Spoelstra said.`\
+https://nytimes.com/athletic/7069376/2026/02/24/nba-pat-riley-doc-rivers-erik-spoelstra-suits/
+
+**Officiating from NYC? NFL discusses options as talks with refs union drag on**\
+`The NFL is considering the idea of centralizing some officiating functions in New York.`\
+https://nytimes.com/athletic/7069263/2026/02/24/nfl-referees-cba-centralized-officiating-nyc/
+
+**Bengals' Duke Tobin talks Joe Burrow restructure, big swings, Trey Hendrickson at combine**\
+`Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
+https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
+
 **Bengals' Duke Tobin talks Burrow restructure, big swings, Hendrickson at combine**\
 `Cincinnati's director of player personnel also discussed Dalton Risner and addressing defensive tackle.`\
 https://nytimes.com/athletic/7069353/2026/02/24/bengals-duke-tobin-burrow-hendrickson/
