@@ -1,3 +1,7 @@
+**Doc Rivers, Erik Spoelstra react to Pat Riley’s call for coaches to wear suits**\
+`Pat Riley thinks coaches should go back to suits. "But he wore suits differently than us mortals," Miami Heat coach Erik Spoelstra said.`\
+https://nytimes.com/athletic/7069376/2026/02/24/nba-pat-riley-doc-rivers-erik-spoelstra-suits/
+
 **How Trump’s State of the Union Speech Times Compare to Other Presidents**\
 `State of the Union speeches. Here’s how he compares to past presidents.`\
 https://nytimes.com/2026/02/24/us/politics/trump-speech-length-state-of-the-union.html
