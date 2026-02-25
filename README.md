@@ -1,3 +1,11 @@
+**Democratic Response to Trump’s State of the Union**\
+`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
+https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
+
+**What can Newcastle learn from a game without peril?**\
+`Clutching a commanding 6-1 lead over Qarabag from the first leg, Newcastle United wallowed in an occasion entirely lacking in jeopardy`\
+https://nytimes.com/athletic/7069149/2026/02/25/newcastle-qarabag-champions-league/
+
 **The New York Times in Print for Wednesday, Feb. 25, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/25/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/virginia-trans-student-trump-sotu-gue
 **Full Transcript of Trump’s State of the Union Address**\
 `President Trump spoke for nearly two hours to a joint session of Congress.`\
 https://nytimes.com/2026/02/25/us/politics/state-of-the-union-transcript-trump.html
-
-**How Liverpool cured their set-piece sickness – and why it matters**\
-`A damaging trend has been reversed at Anfield — but what has changed in the approach to attacking and defending set plays?`\
-https://nytimes.com/athletic/7067714/2026/02/25/liverpool-set-pieces/
-
-**Democrats, Boycotting Trump’s Speech, Rally Outside the Capitol**\
-`Dozens of House and Senate members skipped the speech and, in a counter event on the National Mall, criticized the president’s policies on immigration, health care and the economy.`\
-https://nytimes.com/2026/02/25/us/politics/democrats-boycott-trump-state-of-the-union.html
 
