@@ -1,3 +1,7 @@
+**Boxing braced for $1bn lawsuit over TKO and Sela's Zuffa launch**\
+`Frank Warren's Queensbury has written to TKO and Sela claiming compensation over alleged loss of earnings`\
+https://nytimes.com/athletic/7070249/2026/02/25/frank-warren-dana-white-sela-lawsuit/
+
 **How Britain Could Remove Andrew From the Royal Line of Succession**\
 `Despite his connections with the sex offender Jeffrey Epstein, the former prince is eighth in line to the British throne. That could change.`\
 https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andrew-epstein.html
