@@ -1,3 +1,7 @@
+**Nebraska U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Nebraska U.S. Senate election.`\
+https://nytimes.com/interactive/polls/nebraska-us-senate-election-polls-2026.html
+
 **Boxing braced for $1bn lawsuit over TKO and Sela's Zuffa launch**\
 `Frank Warren's Queensbury has written to TKO and Sela claiming compensation over alleged loss of earnings`\
 https://nytimes.com/athletic/7070249/2026/02/25/frank-warren-dana-white-sela-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/world/europe/pope-africa-visit.html
 **College hoops thoughts: Duke, Virginia set for showdown, an Indiana no-call**\
 `The No. 1 Blue Devils and No. 11 Cavaliers are set for a big weekend matchup in Durham. Plus sizzling UCF, unlucky Indiana and more.`\
 https://nytimes.com/athletic/7069817/2026/02/25/college-basketball-observations-duke-virginia-indiana/
-
-**Man Utd's wage bill falls year-on-year, latest financial results show**\
-`United's total revenues fell to £330.7m, though, compared to £341.8m over the same period last year.`\
-https://nytimes.com/athletic/7070159/2026/02/25/manchester-united-wages-finances/
 

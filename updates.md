@@ -1,3 +1,7 @@
+**Nebraska U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Nebraska U.S. Senate election.`\
+https://nytimes.com/interactive/polls/nebraska-us-senate-election-polls-2026.html
+
 **Boxing braced for $1bn lawsuit over TKO and Sela's Zuffa launch**\
 `Frank Warren's Queensbury has written to TKO and Sela claiming compensation over alleged loss of earnings`\
 https://nytimes.com/athletic/7070249/2026/02/25/frank-warren-dana-white-sela-lawsuit/
