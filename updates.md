@@ -1,3 +1,15 @@
+**How to watch Sabres vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070430/2026/02/25/sabres-vs-devils-stream-how-to-watch-feb-25/
+
+**How to watch Flyers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070428/2026/02/25/flyers-vs-capitals-stream-how-to-watch-feb-25/
+
+**How to watch Maryland vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070377/2026/02/25/maryland-vs-nebraska-stream-how-to-watch-feb-25/
+
 **How to watch West Virginia vs. UCF women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-to-watch-feb-25/

@@ -1,3 +1,11 @@
+**How to watch Sabres vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070430/2026/02/25/sabres-vs-devils-stream-how-to-watch-feb-25/
+
+**How to watch Flyers vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070428/2026/02/25/flyers-vs-capitals-stream-how-to-watch-feb-25/
+
 **How to watch West Virginia vs. UCF women's basketball: Time, TV, streaming**\
 `Find out how to watch the West Virginia Mountaineers play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-to-watch-feb-25/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/7070381/2026/02/25/northwestern-vs-maryland-stream-
 `Find out how to watch the Northwestern Wildcats play the Maryland Terrapins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070379/2026/02/25/northwestern-vs-maryland-stream-how-to-watch-feb-25-2/
 
+**How to watch Maryland vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070377/2026/02/25/maryland-vs-nebraska-stream-how-to-watch-feb-25/
+
 **How to watch St. John's vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the St. John's Red Storm play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070371/2026/02/25/st-john-s-vs-uconn-stream-how-to-watch-feb-25/
-
-**As Electric Bills Rise, Trump Says Tech Companies Should Pay More**\
-`The president said he had negotiated a deal with tech giants to cover the energy costs of data centers, but offered few details. Experts said such pledges could prove difficult in practice.`\
-https://nytimes.com/2026/02/25/climate/ai-data-centers-trump-energy-costs.html
-
-**Long Live Goat Cheese**\
-`It brings its signature creamy tang to my baked artichoke pasta with a fried onion topping.`\
-https://nytimes.com/2026/02/25/dining/long-live-goat-cheese.html
-
-**Hungry for Affirmation, Vulnerable to Scams: As a Writer, I Know the Feeling**\
-`From George Saunders to the National Book Foundation, the literary world has been besieged by fake requests. Just like me.`\
-https://nytimes.com/2026/02/25/books/review/publishing-scams.html
 
