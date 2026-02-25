@@ -1,3 +1,15 @@
+**Inside the Tranquil Mountain Town Where El Mencho Made His Last Stand**\
+`Times reporters visiting Tapalpa found a serene town in shock after Sunday’s raid on its outskirts left dozens dead and people fleeing. And, surprisingly, no police or military presence where the battle took place.`\
+https://nytimes.com/2026/02/25/world/americas/el-mencho-tapalpa-jalisco-cartel.html
+
+**Jontay Porter, banned from NBA for gambling, returns to pro basketball**\
+`Porter, who pleaded guilty a federal fraud charge and was banned by the NBA, plans to play in the resurrected USBL.`\
+https://nytimes.com/athletic/7071036/2026/02/25/jontay-porter-return-pro-basketball/
+
+**Would the Bears trade QB Tyson Bagent? Beloved No. 2 QB getting some attention**\
+`GM Ryan Poles said teams have called about Bagent, but trading the backup quarterback would be a tough decision.`\
+https://nytimes.com/athletic/7070988/2026/02/25/bears-tyson-bagent-trade-talk/
+
 **Cincinnati sues ex-QB Brendan Sorsby for $1 million buyout after transfer to Texas Tech**\
 `The lawsuit states that Sorsby's revenue-sharing agreement with Cincinnati ran through Dec. 15, 2026.`\
 https://nytimes.com/athletic/7070963/2026/02/25/brendan-sorsby-cincinnati-football-lawsuit-texas-tech/
