@@ -1,3 +1,19 @@
+**How to watch Texas A&M vs. Arkansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070931/2026/02/25/texas-a-m-vs-arkansas-stream-how-to-watch-feb-25/
+
+**How to watch Michigan vs. Ohio State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070929/2026/02/25/michigan-vs-ohio-state-stream-how-to-watch-feb-25/
+
+**How to watch Mississippi State vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7070926/2026/02/25/mississippi-state-vs-alabama-stream-how-to-watch-feb-25/
+
+**What’s in Our Queue? ‘The Sopranos’ and More**\
+`Text by Kalley Huang`\
+https://nytimes.com/card/2026/02/25/arts/editors-recommendations-sopranos
+
 **Trump Proposed a New Retirement Plan With Up to a $1,000 Match. How Might It Work?**\
 `An existing law could help create new retirement savings plans for people who lack them. But there may be income restrictions on any match.`\
 https://nytimes.com/2026/02/25/business/trump-retirement-401k-match.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/25/opinion/clean-green-energy.html
 **U.S. Will Offer Embassy Services in a West Bank Settlement for the First Time**\
 `Palestinians and Israelis on the right and left all say that the move is a step toward legitimizing the Israeli settlements, which most of the world considers illegal.`\
 https://nytimes.com/2026/02/25/world/middleeast/us-consular-services-israeli-settlements.html
-
-**Businesses Push for Tariff Refunds as Trump Aides Hint at Fight to Come**\
-`By the president’s own admission, it could be years before the matter is settled, even though the administration previously indicated it would pay.`\
-https://nytimes.com/2026/02/25/business/trump-tariffs-refunds-lawsuits.html
-
-**Trump’s speech gets a mixed reaction around the world.**\
-`By Pranav Baskar`\
-https://nytimes.com/live/2026/02/25/us/trump-news/trump-state-union-speech-global-reaction
-
-**Seahawks expect invitation to White House, will wait to decide on visit**\
-`The Seahawks visited the White House in May 2014, while President Barack Obama was in office, following their victory in Super Bowl 48.`\
-https://nytimes.com/athletic/7070536/2026/02/25/seahawks-white-house-donald-trump-visit/
-
-**Cuban Government Says 4 Are Killed in Gunfire Exchange on Florida Speedboat**\
-`Four people aboard a Florida-based speedboat died in a gunfight with Cuban border troops near the island nation’s coast, the Cuban Interior Ministry said.`\
-https://nytimes.com/2026/02/25/world/americas/cuba-gunfire-speedboat-florida.html
 
