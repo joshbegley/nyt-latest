@@ -1,3 +1,11 @@
+**Ilhan Omar Condemns Arrest of State of the Union Guest**\
+`Aliya Rahman, a U.S. citizen who was dragged from her vehicle after an ICE agent shattered its window, was charged with unlawful conduct after standing up during President Trump’s speech.`\
+https://nytimes.com/2026/02/25/us/politics/ilhan-omar-state-of-the-union-arrest.html
+
+**How Was Trump’s Speech? Choose Your Own Algorithmic Adventure.**\
+`Here’s how social media may have shaped your impressions of the State of the Union.`\
+https://nytimes.com/2026/02/25/us/politics/trump-sotu-social-media-reactions.html
+
 **Tony Dungy likely out as a regular on NBC's 'Football Night in America'**\
 `Dungy, who won a Super Bowl as a player with the Steelers and another as head coach of the Colts, has been on the NBC show for 17 seasons.`\
 https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
