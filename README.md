@@ -1,3 +1,11 @@
+**“I ended eight wars.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wars
+
+**“I want to stop all payments to big insurance companies and instead give that money directly to the people so they can buy their own health care, which will be better health care at a much lower cost.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-want-to-stop-all-payments-to-big-insurance-companies-and-instead-give-that-money-directly-to-the-people-so-they-can-buy-their-
+
 **U.S. men's hockey team honored at State of the Union, Trump says women's team coming to White House**\
 `Trump recognized the team for its gold-medal-winning effort at the Olympics.`\
 https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-biden-and-
 **Why Democratic Congresswomen Wore White to the State of the Union — This Time**\
 `It’s not the first time some Democratic women have displayed unity by wearing the same color, but this time it was in part to signal opposition to the SAVE America Act.`\
 https://nytimes.com/2026/02/24/style/state-of-the-union-white-outfits-democrats.html
-
-**“If we’re able to find enough of that fraud, we will actually have a balanced budget overnight.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/if-were-able-to-find-enough-of-that-fraud-we-will-actually-have-a-balanced-budget-overnight
-
-**“So in my first year of the second term — should be my third term.”**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/so-in-my-first-year-of-the-second-term-should-be-my-third-term
 
