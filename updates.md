@@ -1,3 +1,7 @@
+**Jimmy Kimmel Goes Live After a Super Long State of the Union**\
+`“I can’t believe America missed an all-new ‘Will Trent’ for this one,” he joked.`\
+https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
+
 **Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
 `The defeat has been called their worst elimination in years, but the defeat should be put in context of a season of ups and downs.`\
 https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
