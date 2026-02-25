@@ -1,3 +1,7 @@
+**“The Biden administration and its allies in Congress gave us the worst inflation in the history of our country. But in 12 months, my administration has driven core inflation down to the lowest level in more than five years.”**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/the-biden-administration-and-its-allies-in-congress-gave-us-the-worst-inflation-in-the-history-of-our-country-but-in-12-months-m
+
 **Court Rules Against Justice Dept. Search of Reporter’s Computers**\
 `The judge said the court itself would search the devices, which were seized from a Washington Post reporter’s home last month.`\
 https://nytimes.com/2026/02/24/business/media/washington-post-reporter-search-ruling.html
