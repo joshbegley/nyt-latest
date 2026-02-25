@@ -1,3 +1,7 @@
+**U.S. players respond to criticism over women's team, Trump invite: 'Should have reacted differently'**\
+`As players returned to their NHL teams, they commented on the excitement and controversy of the past few days.`\
+https://nytimes.com/athletic/7070799/2026/02/25/usa-hockey-olympics-trump-reaction/
+
 **The top-secret, classified, lips-sealed PK adjustments the Bruins hope to execute**\
 `“Without giving Columbus the whole 411 before they come in, there’s a few different reads."`\
 https://nytimes.com/athletic/7070935/2026/02/25/bruins-penalty-kill-adjustments/

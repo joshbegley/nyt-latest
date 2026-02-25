@@ -1,3 +1,7 @@
+**U.S. players respond to criticism over women's team, Trump invite: 'Should have reacted differently'**\
+`As players returned to their NHL teams, they commented on the excitement and controversy of the past few days.`\
+https://nytimes.com/athletic/7070799/2026/02/25/usa-hockey-olympics-trump-reaction/
+
 **The top-secret, classified, lips-sealed PK adjustments the Bruins hope to execute**\
 `“Without giving Columbus the whole 411 before they come in, there’s a few different reads."`\
 https://nytimes.com/athletic/7070935/2026/02/25/bruins-penalty-kill-adjustments/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7070707/2026/02/25/rangers-miller-trocheck-olympics
 **Real Madrid eject fan for allegedly performing Nazi salute before Benfica tie**\
 `Madrid confirmed a supporter in the Grada Fan section had been identified and disciplinary proceedings had been opened.`\
 https://nytimes.com/athletic/7071098/2026/02/25/real-madrid-benfica-nazi-salute/
-
-**Tage Thompson returns to Sabres, reflects on Olympic celebration, White House visit**\
-`Thompson spent three days celebrating Team USA’s gold medal win with his teammates, from Milan to Miami to the White House.`\
-https://nytimes.com/athletic/7071063/2026/02/25/tage-thompson-sabres-olympics-white-house/
 
