@@ -1,3 +1,15 @@
+**F.B.I. Raids Los Angeles Schools Chief’s Home and District Headquarters**\
+`F.B.I. agents executed search warrants at the locations. The target of their investigation was unclear.`\
+https://nytimes.com/2026/02/25/us/fbi-raid-lausd-alberto-carvalho.html
+
+**Song of the Week: How Noah Kahan Refined His Angst**\
+`Our critic Jon Caramanica on how Noah Kahan’s new single mirrors and improves upon his breakout hit “Stick Season.”`\
+https://nytimes.com/video/podcasts/100000010734915/song-of-the-week-how-noah-kahan-refined-his-angst.html
+
+**45 Years After Botched Coup, Spain Declassifies Files About Why It Failed**\
+`Ending more than four decades of conjecture, the Spanish government moved to publish documents from a long-secret investigation of a failed 1981 coup.`\
+https://nytimes.com/2026/02/25/world/europe/spain-coup-1981-files-revealed.html
+
 **The U.S. should scrap World Cup fan fests — nobody likes forced fun**\
 `There is no history of 'fan zone'-type events in the U.S. so why not just let supporters celebrate the event naturally?`\
 https://nytimes.com/athletic/7070471/2026/02/25/the-u-s-should-scrap-world-cup-fan-festivals-nobody-likes-forced-fun/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/02/25/style/congresswomen-white-state-of-the-union.html
 **We Need More Houses. Why Aren’t More Being Built?**\
 `Plus, why we’re making fewer houses than we did in the 2000s`\
 https://nytimes.com/2026/02/25/headway/housing-starts-newsletter.html
-
-**Attire With Sparkling Personality**\
-`Bold shoulders, dramatic proportions and opulent accessories lent lively touches to ensembles on runways and streets during London Fashion Week.`\
-https://nytimes.com/2026/02/25/style/london-fashion-week-street-style.html
-
-**7 Voters React to Trump’s State of the Union Speech**\
-`With his job approval ratings ticking down, President Trump said that his second term so far was “a turnaround for the ages.” Did he persuade voters?`\
-https://nytimes.com/2026/02/25/us/voters-trump-state-of-union-speech-reaction.html
-
-**Should I Tell People What My Principal Did?**\
-`He was a community pillar with a dark underside and possibly other victims.`\
-https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
 
