@@ -1,3 +1,11 @@
+**North London derby referee stands by decision to rule out Spurs equaliser**\
+`Peter Bankes says he is "comfortable" with the decision to chalk off Randal Kolo Muani's goal in the second half.`\
+https://nytimes.com/athletic/7069978/2026/02/25/arsenal-tottenham-disallowed-goal-kolo-muani-gabriel/
+
+**'Eat sh-- Cairo': Torino fans leave manure outside training ground**\
+`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw their former head coach Marco Baroni be sacked a day later.`\
+https://nytimes.com/athletic/7069946/2026/02/25/torino-serie-a-italy-manure/
+
 **The Pulse: A moment for the olds**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7068766/2026/02/25/kevin-durant-lindsey-vonn-old-athletes-the-pulse/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/7068674/2026/02/25/bears-ryan-poles-roster-salary-c
 https://nytimes.com/athletic/7065727/2026/02/25/nfl-draft-2026-combine-breakout-prospects-must-watch/
 
 **After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
-`Canales said Young was a "big piece" in the process to change play callers, but he hadn't asked him to be involved in the decision.`\
+`Canales said Young was a "part of the process" to change play callers, but he hadn't asked him to be involved in the decision.`\
 https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
 
 **Rosenthal: By not adding another established starter to the rotation, the Braves are taking a big chance**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7068867/2026/02/25/atlanta-braves-starting-rotation
 **Should the NHL learn from the Olympics and switch to a 3-2-1-0 standings format?**\
 `The 3-2-1-0 argument isn't new, but the Olympics showed how it can work. Let's talk about the arguments for why it wouldn't in the NHL.`\
 https://nytimes.com/athletic/7068804/2026/02/25/nhl-standings-format-olympics-bettman/
-
-**'I know he's proud': Flyers' Barkey molded by his late grandfather, a former NHL player**\
-`Barkey is making an impact with the Flyers, and he learned a lot from Randy Legge.`\
-https://nytimes.com/athletic/7066581/2026/02/25/flyers-denver-barkey-nhl-family/
-
-**Enough of these regular-season Knicks — let's just get to the playoffs**\
-`Who are the Knicks? They don't know yet, and the rest of us might not know until the playoffs.`\
-https://nytimes.com/athletic/7069677/2026/02/25/knicks-lose-cavs-lets-get-to-playoffs/
 
