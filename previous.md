@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7068674/2026/02/25/bears-ryan-poles-roster-salary-c
 https://nytimes.com/athletic/7065727/2026/02/25/nfl-draft-2026-combine-breakout-prospects-must-watch/
 
 **After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
-`Canales said Young was a "part of the process" to change play callers, but he hadn't asked him to be involved in the decision.`\
+`Canales on Tuesday said Young was a "part of the process" to change play callers.`\
 https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
 

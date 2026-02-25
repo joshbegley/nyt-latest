@@ -1,3 +1,7 @@
+**After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
+`Canales on Tuesday said Young was a "part of the process" to change play callers.`\
+https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
+
 **Saquon Barkley, Brandon Graham, tush push improvements: 8 Eagles combine takeaways**\
 `Plus, the latest on Dallas Goedert and Brandon Graham. `\
 https://nytimes.com/athletic/7069312/2026/02/25/saquon-barkley-brandon-grahams-future-tush-push-combine/
