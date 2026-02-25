@@ -1,3 +1,15 @@
+**Long Live Goat Cheese**\
+`It brings its signature creamy tang to my baked artichoke pasta with a fried onion topping.`\
+https://nytimes.com/2026/02/25/dining/long-live-goat-cheese.html
+
+**Hungry for Affirmation, Vulnerable to Scams: As a Writer, I Know the Feeling**\
+`From George Saunders to the National Book Foundation, the literary world has been besieged by fake requests. Just like me.`\
+https://nytimes.com/2026/02/25/books/review/publishing-scams.html
+
+**Three Great Frederick Wiseman Documentaries to Stream**\
+`This month offers a tribute to the prolific filmmaker who died last week at 96 and has a plausible claim to being the greatest documentarian who ever lived.`\
+https://nytimes.com/2026/02/25/movies/frederick-wiseman-documentaries-streaming.html
+
 **Marmalade Is Sunshine in a Jar — And in Your Cooking**\
 `Adding a spoonful of marmalade to savory and sweet dishes chases winter grayness away.`\
 https://nytimes.com/2026/02/25/dining/cooking-with-marmalade.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andr
 **Blaming Tariffs, Aston Martin to Trim 20% of Its Work Force**\
 `The luxury automaker said losses for 2025 had increased from the year before, as tariffs and geopolitical uncertainty take a toll on its operations.`\
 https://nytimes.com/2026/02/25/business/tariffs-aston-martin.html
-
-**Commanders will return to London in 2026 for first time in a decade**\
-`The 2026 London game will come a decade after Washington first competed in London and played the Cincinnati Bengals to a 27-27 tie.`\
-https://nytimes.com/athletic/7070215/2026/02/25/commanders-nfl-london-game-2026-2/
-
-**The Password That Lets Caterpillars Hide in an Ant’s Lair**\
-`Some butterfly species can’t grow unless they trick ants into taking them home with a complex rhythmic signal.`\
-https://nytimes.com/2026/02/25/science/caterpillar-ant-language.html
-
-**‘America’s Next Top Model’ and the Ultrathin Ideal That Won’t Go Away**\
-`What’s worse for body image, the fashion industry or the algorithm?`\
-https://nytimes.com/2026/02/25/opinion/americas-next-top-model.html
 
