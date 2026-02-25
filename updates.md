@@ -1,3 +1,7 @@
+**Trump Puts On a Show, Casting Democrats as the Villains**\
+`On the defensive over the economy and with the midterms approaching, President Trump made clear that his political strategy is to paint Democrats as unpatriotic and ‘crazy.’`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-speech.html
+
 **Democratic Response to Trump’s State of the Union**\
 `Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
 https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
