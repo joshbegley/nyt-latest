@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘If He Doesn’t Come, I’ll Marry You’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/02/25/style/tiny-modern-love-stories-if-he-doesnt-come-ill-marry-you.html
+
+**Don’t Look Now, but the Green Transition Is Still Happening**\
+`It feels as if our political institutions have abandoned the climate, but the clean energy economy is still growing.`\
+https://nytimes.com/2026/02/25/opinion/clean-green-energy.html
+
 **U.S. Will Offer Embassy Services in a West Bank Settlement for the First Time**\
 `Palestinians and Israelis on the right and left all say that the move is a major step toward legitimizing the Israeli settlements, which most of the world considers illegal.`\
 https://nytimes.com/2026/02/25/world/middleeast/us-consular-services-israeli-settlements.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7070713/2026/02/25/tony-bennett-lakers-hiring-nba-d
 **Fantasy trends and hidden gems: Olympic injury fallout and Week 19 waiver wire targets**\
 `Shayna Goldman reviews injury fallout from the Olympics, players whose value increased during the Olympics, Week 19 targets and more. `\
 https://nytimes.com/athletic/7068984/2026/02/25/fantasy-trends-hidden-gems-olympic-fallout-week-19/
-
-**Welcome to Salt Lake City, sports' next dominant metropolis: MoneyCall**\
-`The only sports business newsletter name-dropping Snoop Dogg, Ice Cube and Tupac Shakur in one 1,200-word, 3-minute read.`\
-https://nytimes.com/athletic/7070708/2026/02/25/salt-lake-city-jazz-mammoth-byu-utah-moneycall/
-
-**Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
-`Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
-https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html
 
