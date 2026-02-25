@@ -1,3 +1,11 @@
+**Word of the Day: virtuosity**\
+`This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/25/learning/word-of-the-day-virtuosity.html
+
+**Atletico Madrid are evolving, but still cannot be written off**\
+`They may not be as defensively solid as previous vintages, but this Atleti can hurt Liverpool or Spurs in the Champions League Last 16`\
+https://nytimes.com/athletic/7065472/2026/02/25/atletico-madrid-champions-league-club-bruges/
+
 **Jimmy Kimmel Goes Live After a Super Long State of the Union**\
 `“I can’t believe America missed an all-new ‘Will Trent’ for this one,” he joked.`\
 https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7069149/2026/02/25/newcastle-qarabag-champions-leag
 **The New York Times in Print for Wednesday, Feb. 25, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/25/todays-new-york-times
-
-**No, the Dollar Is Not Dying**\
-`The currency is stumbling, by many accounts. But the narrative is false.`\
-https://nytimes.com/2026/02/25/opinion/us-dollar-china-currency-eu.html
-
-**The World Waited on Edge for Trump’s Thinking on Iran. It’s Still Waiting.**\
-`Even as the president considers an attack, his State of the Union address offered little more than a brief repetition of vague talking points from recent days.`\
-https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
 
