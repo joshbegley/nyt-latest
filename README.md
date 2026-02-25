@@ -1,3 +1,7 @@
+**Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
+`The defeat has been called their worst elimination in years, but the defeat should be put in context of a season of ups and downs.`\
+https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
+
 **Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
 `The loss of Ben Sheaf and Matty James has created a problem for the club as they fight for promotion to the Premier League`\
 https://nytimes.com/athletic/7067529/2026/02/25/wrexham-parkinson-midfield-injuries-sheaf-james/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
 **Jonathan Kuminga's debut with the Hawks was spectacular**\
 `In his first game since Atlanta traded for him, Kuminga scored 27 points in 24 minutes.`\
 https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba/
-
-**Leader of Columbia Brain Institute Quits Over Friendship With Epstein**\
-`The Nobel laureate Richard Axel is not accused of wrongdoing but called his association with Jeffrey Epstein a “serious error in judgment.”`\
-https://nytimes.com/2026/02/25/nyregion/columbia-nobel-winner-epstein-resigns.html
 
