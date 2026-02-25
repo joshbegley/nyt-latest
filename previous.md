@@ -26,7 +26,7 @@ https://nytimes.com/athletic/7069858/2026/02/25/lakers-luka-doncic-turns-down-op
 `On the defensive over the economy and with the midterms approaching, President Trump made clear that his political strategy is to paint Democrats as unpatriotic and ‘crazy.’`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-speech.html
 
-**Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure - it's my job to score'**\
+**Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure – it's my job to score'**\
 `The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
 https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
 

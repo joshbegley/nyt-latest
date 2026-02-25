@@ -1,3 +1,7 @@
+**Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure – it's my job to score'**\
+`The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
+https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
+
 **How Mamdani Learned From the First Snowstorm and Prepared for the Second**\
 `As the forecast rapidly worsened, Mayor Zohran Mamdani urged his staff to implement new policies and emphasized the need to communicate aggressively about the snow.`\
 https://nytimes.com/2026/02/25/nyregion/mamdani-nyc-snow.html
