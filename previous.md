@@ -34,7 +34,3 @@ https://nytimes.com/2026/02/25/us/nc-senate-race-2026-roy-cooper.html
 `Documents released by the Justice Department briefly mention a woman’s unverified accusation that Donald J. Trump assaulted her in the 1980s, when she was a minor. But several memos related to her account are not in the files.`\
 https://nytimes.com/2026/02/25/us/politics/trump-epstein-files.html
 
-**Lawrence Summers Will Resign From Harvard After Epstein Revelations**\
-`Mr. Summers, former president of the school, had stepped back from teaching after documents showed a closer relationship to Jeffrey Epstein than previously known. He will leave at the end of the academic year.`\
-https://nytimes.com/2026/02/25/us/larry-summers-resignation-harvard-epstein.html
-
