@@ -1,3 +1,7 @@
+**These Iranian Doctors Risked Their Lives So You Could See These Images**\
+`These X-rays show evidence of the Iranian regime’s massacre.`\
+https://nytimes.com/video/opinion/100000010723018/iran-protests-doctors-images.html
+
 **‘Sentimental Value’ | Anatomy of a Scene**\
 `The director Joachim Trier narrates a sequence from his film.`\
 https://nytimes.com/video/movies/100000010732131/sentimental-value-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-speech.html
 **Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure – it's my job to score'**\
 `The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
 https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
-
-**Trump Heralds Economic Policies in Combative State of the Union Speech**\
-`President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
-https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html
 
