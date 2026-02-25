@@ -1,3 +1,15 @@
+**North London derby referee stands by decision to rule out Spurs equaliser**\
+`Peter Bankes says he is "comfortable" with the decision to chalk off Randal Kolo Muani's goal in the second half.`\
+https://nytimes.com/athletic/7069978/2026/02/25/arsenal-tottenham-disallowed-goal-kolo-muani-gabriel/
+
+**'Eat sh-- Cairo': Torino fans leave manure outside training ground**\
+`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw their former head coach Marco Baroni be sacked a day later.`\
+https://nytimes.com/athletic/7069946/2026/02/25/torino-serie-a-italy-manure/
+
+**After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
+`Canales said Young was a "part of the process" to change play callers, but he hadn't asked him to be involved in the decision.`\
+https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
+
 **The Pulse: A moment for the olds**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7068766/2026/02/25/kevin-durant-lindsey-vonn-old-athletes-the-pulse/
