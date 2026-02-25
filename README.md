@@ -1,3 +1,7 @@
+**For Hillary Clinton, an Epstein Deposition Is the Latest ‘Stand by Your Man’ Moment**\
+`The former first lady, senator and secretary of state had no dealings with Jeffrey Epstein but is once again under pressure to answer for the actions and relationships of her husband.`\
+https://nytimes.com/2026/02/25/us/politics/hillary-clinton-epstein-deposition.html
+
 **Resident Evil Requiem Shines Within Its Confines**\
 `The corridors of a former sanitarium are both terrifying and rewarding, while Raccoon City is bland and filled with chores.`\
 https://nytimes.com/2026/02/25/arts/resident-evil-requiem-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/opinion/americas-next-top-model.html
 **A Woman I Know Monopolizes Every Conversation. How Do I Make It Stop?**\
 `A reader has had it with an acquaintance’s endless, self-obsessed monologues, which have become a frequent subject of discussion behind the woman’s back.`\
 https://nytimes.com/2026/02/25/style/conversation-monopolizers-strategies.html
-
-**Pope Leo to Visit Africa, Signaling Continent’s Importance to Catholicism**\
-`The number of Roman Catholics is growing faster in Africa than anywhere else, according to the Vatican.`\
-https://nytimes.com/2026/02/25/world/europe/pope-africa-visit.html
 
