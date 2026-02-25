@@ -1,3 +1,7 @@
+**Months of Magic's cultivated trust shone in final minute of close win over Lakers**\
+`Orlando, winners of six out of eight and 3-1 since the All-Star break, is starting to see some important and expected growth.`\
+https://nytimes.com/athletic/7069846/2026/02/25/magic-trust-close-win-lakers/
+
 **Joe Gibbs Racing amends lawsuit against former competition director, adds Spire**\
 `"If Joe Gibbs Racing is willing to go to court, I think they're pretty serious," Denny Hamlin said.`\
 https://nytimes.com/athletic/7069707/2026/02/25/joe-gibbs-racing-spire-nascar-lawsuit/

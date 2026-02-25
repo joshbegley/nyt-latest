@@ -1,3 +1,7 @@
+**Months of Magic's cultivated trust shone in final minute of close win over Lakers**\
+`Orlando, winners of six out of eight and 3-1 since the All-Star break, is starting to see some important and expected growth.`\
+https://nytimes.com/athletic/7069846/2026/02/25/magic-trust-close-win-lakers/
+
 **Joe Gibbs Racing amends lawsuit against former competition director, adds Spire**\
 `"If Joe Gibbs Racing is willing to go to court, I think they're pretty serious," Denny Hamlin said.`\
 https://nytimes.com/athletic/7069707/2026/02/25/joe-gibbs-racing-spire-nascar-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/25/us/trump-news/us-and-ukrainian-officials-to-
 **Democrats counter Trump after his combative State of the Union speech.**\
 `By Luke Broadwater, Carl Hulse, Shawn McCreesh and Katie Rogers`\
 https://nytimes.com/live/2026/02/25/us/trump-news/democrats-counter-trump-after-his-combative-state-of-the-union-speech
-
-**Snoop Dogg and Swansea City: DJing on an industrial estate, persuading players to join and his 'VVVIP' lounge**\
-`Behind the scenes of Snoop Dogg's whirlwind visit to south west Wales, where he was serenaded by 20,000 supporters at Swansea vs Preston`\
-https://nytimes.com/athletic/7069900/2026/02/25/snoop-dogg-swansea-city-ownership-adam-idah-transfer-dj/
 
