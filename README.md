@@ -1,3 +1,11 @@
+**'I'm still the general manager of the team': How Giants leadership will play out**\
+`John Harbaugh and Joe Schoen met with the media at the NFL Combine on Tuesday.`\
+https://nytimes.com/athletic/7069172/2026/02/24/joe-schoen-new-york-giants-combine-comments/
+
+**Judge Dismisses Minnesota Gun Case as Prosecutors Struggle With Resignations**\
+`A judge took the unusual step of dropping the case over a speedy trial violation by the U.S. attorney’s office in Minnesota, which has been flooded with immigration-related cases.`\
+https://nytimes.com/2026/02/24/us/minnesota-gun-case-dismissed.html
+
 **What we learned from Seahawks GM John Schneider: New Sam Darnold contract seems unlikely**\
 `The Seahawks could extend Jaxon Smith-Njigba and Devon Witherspoon with two years left on their contracts, but Darnold might have to wait.`\
 https://nytimes.com/athletic/7069077/2026/02/24/seahawks-nfl-combine-contract-news-john-schneider/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
 **Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
 `Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works that drew wide acclaim.`\
 https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
-
-**How a 'team from a small town up north' are slaying Europe's elite**\
-`The Norwegian minnows have dumped Inter out of the Champions League and are not finished yet`\
-https://nytimes.com/athletic/7069071/2026/02/24/bodo-glimt-inter-champions-league/
 
