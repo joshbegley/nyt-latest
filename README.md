@@ -1,3 +1,7 @@
+**The World Waited on Edge for Trump’s Thinking on Iran. It’s Still Waiting.**\
+`Even as the president considers an attack, his State of the Union address offered little more than a brief repetition of vague talking points from recent days.`\
+https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
+
 **Jonathan Kuminga's debut with the Hawks was spectacular**\
 `In his first game since Atlanta traded for him, Kuminga scored 27 points in 24 minutes.`\
 https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7057882/2026/02/25/jamie-vardy-leicester-city-cremo
 **Gideon Kodua on life at Luton: 'The earlier you snap out of the comfort of under-21s football, the better'**\
 `The former West Ham man is Luton Town’s top goalscorer this season and hopes his side return to the Championship at the first time of asking`\
 https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham-arsenal/
-
-**The growing link between gambling and racist abuse of Premier League players**\
-`There is a growing undercurrent to some racist abuse faced by players — a bet is lost, and players are blamed`\
-https://nytimes.com/athletic/7068003/2026/02/25/premier-league-football-racist-abuse-gambling/
 
