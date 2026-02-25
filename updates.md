@@ -1,3 +1,7 @@
+**BBC and BAFTA Say They Are Investigating After Broadcast of Racist Slur**\
+`The awards organization and the broadcaster have ordered separate investigations into what led to airing the slur, which was shouted involuntarily during Sunday’s ceremony.`\
+https://nytimes.com/2026/02/25/world/europe/bbc-bafta-slur-apology-tourettes.html
+
 **Arsenal announce record revenues and wage bill in seventh straight loss-making year**\
 `Arsenal almost broke even for the 2024-25 financial year, recording an overall loss of £1.4million.`\
 https://nytimes.com/athletic/7070576/2026/02/25/arsenal-finances-2024-25-revenues/
