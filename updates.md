@@ -1,3 +1,15 @@
+**Saquon Barkley, Brandon Graham, tush push improvements: 8 Eagles combine takeaways**\
+`Plus, the latest on Dallas Goedert and Brandon Graham. `\
+https://nytimes.com/athletic/7069312/2026/02/25/saquon-barkley-brandon-grahams-future-tush-push-combine/
+
+**How Kristian Campbell used a mirror to reflect and change his swing after a rough rookie year**\
+`After a frustrating rookie season, Campbell went home and re-worked his swing. Now he feels he's in a much better place to succeed.`\
+https://nytimes.com/athletic/7068725/2026/02/25/kristian-campbell-red-sox-swing-changes/
+
+**'Eat sh-- Cairo': Torino fans leave manure outside training ground**\
+`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw head coach Marco Baroni sacked a day later.`\
+https://nytimes.com/athletic/7069946/2026/02/25/torino-serie-a-italy-manure/
+
 **North London derby referee stands by decision to rule out Spurs equaliser**\
 `Peter Bankes says he is "comfortable" with the decision to chalk off Randal Kolo Muani's goal in the second half.`\
 https://nytimes.com/athletic/7069978/2026/02/25/arsenal-tottenham-disallowed-goal-kolo-muani-gabriel/

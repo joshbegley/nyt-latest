@@ -1,9 +1,17 @@
+**Saquon Barkley, Brandon Graham, tush push improvements: 8 Eagles combine takeaways**\
+`Plus, the latest on Dallas Goedert and Brandon Graham. `\
+https://nytimes.com/athletic/7069312/2026/02/25/saquon-barkley-brandon-grahams-future-tush-push-combine/
+
+**How Kristian Campbell used a mirror to reflect and change his swing after a rough rookie year**\
+`After a frustrating rookie season, Campbell went home and re-worked his swing. Now he feels he's in a much better place to succeed.`\
+https://nytimes.com/athletic/7068725/2026/02/25/kristian-campbell-red-sox-swing-changes/
+
 **North London derby referee stands by decision to rule out Spurs equaliser**\
 `Peter Bankes says he is "comfortable" with the decision to chalk off Randal Kolo Muani's goal in the second half.`\
 https://nytimes.com/athletic/7069978/2026/02/25/arsenal-tottenham-disallowed-goal-kolo-muani-gabriel/
 
 **'Eat sh-- Cairo': Torino fans leave manure outside training ground**\
-`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw their former head coach Marco Baroni be sacked a day later.`\
+`The Serie A side's 3-0 loss to Genoa on Sunday was their seventh of 2026 and saw head coach Marco Baroni sacked a day later.`\
 https://nytimes.com/athletic/7069946/2026/02/25/torino-serie-a-italy-manure/
 
 **The Pulse: A moment for the olds**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7065727/2026/02/25/nfl-draft-2026-combine-breakout-
 **After Dave Canales' 'humbling' decision, Bryce Young's play will be paramount — as always**\
 `Canales said Young was a "part of the process" to change play callers, but he hadn't asked him to be involved in the decision.`\
 https://nytimes.com/athletic/7069146/2026/02/25/panthers-dave-canales-brad-idzik-bryce-young/
-
-**Rosenthal: By not adding another established starter to the rotation, the Braves are taking a big chance**\
-`With the staff's durability in question, one more injury to a key rotation arm could be monumental for the Braves. `\
-https://nytimes.com/athletic/7068867/2026/02/25/atlanta-braves-starting-rotation-injuries-depth/
-
-**Should the NHL learn from the Olympics and switch to a 3-2-1-0 standings format?**\
-`The 3-2-1-0 argument isn't new, but the Olympics showed how it can work. Let's talk about the arguments for why it wouldn't in the NHL.`\
-https://nytimes.com/athletic/7068804/2026/02/25/nhl-standings-format-olympics-bettman/
 
