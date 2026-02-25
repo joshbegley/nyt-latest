@@ -1,3 +1,15 @@
+**Trump’s Surgeon General Pick Sidesteps Questions on Vaccines**\
+`Also, the Cuban Government says it killed four people aboard a U.S. boat. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/02/25/briefing/trump-surgeon-general-pick-cuba-boat-shooting.html
+
+**PreCheck Is Back, but Global Entry Is Paused. What’s Going On?**\
+`Blaming a partial government shutdown, officials suspended the expedited arrival program this week, but some travelers are seeing inconsistencies at airports.`\
+https://nytimes.com/2026/02/25/travel/tsa-precheck-global-entry-2026-updates.html
+
+**Trump Officials Seek to Break Editorial ‘Firewall’ at U.S.-Funded News Agencies**\
+`Two federally funded newsrooms received a draft funding agreement that could give President Trump’s appointees the power to veto their new hires for editors in chief and chief executives.`\
+https://nytimes.com/2026/02/25/us/politics/trump-radio-free-europe.html
+
 **Champions League knockouts: 16 teams remain, all-English ties loom in latter stages**\
 `Which teams are through to the last 16 and who could they face next?`\
 https://nytimes.com/athletic/7070919/2026/02/25/champions-league-knockouts-explained-arsenal-bayern-liverpool-psg/

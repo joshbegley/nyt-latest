@@ -1,3 +1,11 @@
+**Panthers tell Andy Dalton there will be competition for backup QB job**\
+`The Panthers have fielded calls about Dalton and could create $2.2 million in salary cap space by trading the 38-year-old quarterback.`\
+https://nytimes.com/athletic/7071237/2026/02/25/andy-dalton-panthers-backup-qb-competition-trade/
+
+**Taj Bradley to stay with Twins, won't pitch for Team Mexico in World Baseball Classic**\
+`Bradley informed Team Mexico he won't pitch in the WBC, citing personal reasons and a commitment to the Twins after Pablo López's injury.`\
+https://nytimes.com/athletic/7071065/2026/02/25/taj-bradley-twins-wbc-opt-out-joe-ryan-kody-funderburk/
+
 **Trump’s Surgeon General Pick Sidesteps Questions on Vaccines**\
 `Also, the Cuban Government says it killed four people aboard a U.S. boat. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/02/25/briefing/trump-surgeon-general-pick-cuba-boat-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/science/bird-flu-elephant-seals.html
 **South Korea Fell Hard for This Dessert. That Was Last Month.**\
 `The brief life span of the Dubai chewy cookie reflects the country’s fast-moving food trends, where hype often matters more than taste.`\
 https://nytimes.com/2026/02/25/world/asia/south-korea-dubai-chewy-cookies.html
-
-**Ann Godoff, a Top Editor and Publisher of Best Sellers, Dies at 76**\
-`Considered an “author’s publisher” at Random House and then Penguin, she cultivated the careers of dozens of celebrated novelists and nonfiction writers.`\
-https://nytimes.com/2026/02/25/books/ann-godoff-dead.html
-
-**Trump Echoes Biden on the Economy in State of the Union Speech**\
-`President Trump’s arguments about the country during the State of the Union on Tuesday echoed those of President Biden’s two years ago.`\
-https://nytimes.com/video/us/politics/100000010736482/trump-biden-economy-state-of-the-union.html
 
