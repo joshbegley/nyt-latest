@@ -1,3 +1,7 @@
+**With Team USA's rotation in flux, Logan Webb becomes more important than ever**\
+`It's looking like Webb will be much more important to Team USA's WBC ambitions than you'd otherwise expect from a No.3 starter.`\
+https://nytimes.com/athletic/7069199/2026/02/24/world-baseball-classic-team-usa-rotation-logan-webb/
+
 **'I'm still the general manager of the team': How Giants leadership will play out**\
 `John Harbaugh and Joe Schoen met with the media at the NFL Combine on Tuesday.`\
 https://nytimes.com/athletic/7069172/2026/02/24/joe-schoen-new-york-giants-combine-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000010730887/how-a-day-of-mayhem-unf
 **Susan Leeman, 95, Dies; Explored How the Brain Influences the Body**\
 `In an era of overt sexism in the sciences, she made two major discoveries, including identifying a neuropeptide later linked to chronic pain syndromes and migraines.`\
 https://nytimes.com/2026/02/24/science/susan-e-leeman-dead.html
-
-**Éliane Radigue, Composer of Time, Silence and Space, Dies at 94**\
-`Her Tibetan Buddhist spiritual practice and her experiments with synthesizers came together in vast, slow-moving works that drew wide acclaim.`\
-https://nytimes.com/2026/02/24/arts/music/eliane-radigue-dead.html
 
