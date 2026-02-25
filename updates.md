@@ -1,3 +1,7 @@
+**Joe Gibbs Racing amends lawsuit against former competition director, adds Spire**\
+`"If Joe Gibbs Racing is willing to go to court, I think they're pretty serious," Denny Hamlin said.`\
+https://nytimes.com/athletic/7069707/2026/02/25/joe-gibbs-racing-spire-nascar-lawsuit/
+
 **What Trump Did (and Didn’t) Say**\
 `The president boasted about a strong economy in his State of the Union address. But he spent less time on a potential weakness, affordability.`\
 https://nytimes.com/2026/02/25/business/dealbook/trump-state-of-union.html
