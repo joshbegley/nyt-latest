@@ -1,3 +1,11 @@
+**Trump Heralds Economic Policies in Combative State of the Union Speech**\
+`President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
+https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html
+
+**‘Stand Up’: With One Maneuver, Trump Tries to Box In Democrats**\
+`President Trump turned his State of the Union address into full-blown political theater, handing out medals to war veterans and tossing the spotlight to ice hockey players.`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-scene.html
+
 **Word of the Day: virtuosity**\
 `This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/25/learning/word-of-the-day-virtuosity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.ht
 **Democratic Response to Trump’s State of the Union**\
 `Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
 https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
-
-**What can Newcastle learn from a game without peril?**\
-`Clutching a commanding 6-1 lead over Qarabag from the first leg, Newcastle United wallowed in an occasion entirely lacking in jeopardy`\
-https://nytimes.com/athletic/7069149/2026/02/25/newcastle-qarabag-champions-league/
-
-**The New York Times in Print for Wednesday, Feb. 25, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/25/todays-new-york-times
 
