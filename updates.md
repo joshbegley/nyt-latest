@@ -1,3 +1,11 @@
+**Cincinnati sues ex-QB Brendan Sorsby for $1 million buyout after transfer to Texas Tech**\
+`The lawsuit states that Sorsby's revenue-sharing agreement with Cincinnati ran through Dec. 15, 2026.`\
+https://nytimes.com/athletic/7070963/2026/02/25/brendan-sorsby-cincinnati-football-lawsuit-texas-tech/
+
+**U.S. Blocking Venezuela From Paying Maduro’s Legal Fees, His Lawyer Says**\
+`The Treasury Department is interfering with Nicolás Maduro’s constitutional right to counsel, his lawyer argued. Mr. Maduro, the Venezuelan leader, faces federal charges.`\
+https://nytimes.com/2026/02/25/nyregion/maduro-us-venezuela-legal-trump.html
+
 **A Last Chance Before War**\
 `The U.S. and Iran both say they want to avoid a conflict. Time is running out to avoid one.`\
 https://nytimes.com/2026/02/25/world/iran-nuclear-talks-trump-war-maduro.html
