@@ -1,3 +1,11 @@
+**Freshman fireworks: College basketball's first-year class has altered the landscape of this season**\
+`The lasting image of the 2025-26 season will be the overall impact of the freshman class, which has influenced a number of title contenders.`\
+https://nytimes.com/athletic/7070020/2026/02/25/college-basketball-freshman-class-boozer-dybantsa-peterson/
+
+**Glasses and experience are giving Reds' Christian Encarnacion-Strand clarity**\
+`It will be an uphill battle for Encarnacion-Strand to break camp with Cincinnati, but he's focusing on only what he can control.`\
+https://nytimes.com/athletic/7069242/2026/02/25/cincinnati-reds-christian-encarnacion-strand-development/
+
 **Chelsea, West Ham fined by FA for mass altercation at Stamford Bridge**\
 `Both sets of players came together in the 95th minute of their Premier League fixture, with Jean-Clair Todibo sent off for violent conduct.`\
 https://nytimes.com/athletic/7070082/2026/02/25/chelsea-west-ham-fight-fine-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7064680/2026/02/25/jaden-mcdaniels-wolves-arrived-j
 **What I'm hearing from Rangers prospects amid disappointing season for AHL Hartford**\
 `Hartford is dealing with a rocky season in the AHL, but that doesn't mean prospects aren't improving their skills and trying new deployment.`\
 https://nytimes.com/athletic/7068268/2026/02/25/new-york-rangers-prospects-hartford-wolf-pack-potulny/
-
-**Kloke: What would a perfect Maple Leafs trade deadline look like?**\
-`There is an opportunity to put the Maple Leafs in a more advantageous position next season. It might take a perfect deadline.`\
-https://nytimes.com/athletic/7067801/2026/02/25/maple-leafs-trade-deadline-nhl-options/
-
-**Kyle Dubas, move by move, is doing what Ron Hextall could not**\
-`None of what the Penguins are doing this season was supposed to happen. At least, not this fast.`\
-https://nytimes.com/athletic/7069552/2026/02/25/kyle-dubas-pittsburgh-penguins-rebuild-gm-hextall/
 
