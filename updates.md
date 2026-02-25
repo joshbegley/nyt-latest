@@ -1,3 +1,11 @@
+**Tony Dungy likely out as a regular on NBC's 'Football Night in America'**\
+`Dungy, who won a Super Bowl as a player with the Steelers and another as head coach of the Colts, has been on the NBC show for 17 seasons.`\
+https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
+
+**Vessels Have Clashed With Cuban Border Forces Before**\
+`On Wednesday, a Florida-registered speedboat entered Cuban waters and some on board exchanged gunfire with Cuban troops. Two such armed clashes occurred in 2022.`\
+https://nytimes.com/2026/02/25/world/americas/vessel-gunfight-cuba-history.html
+
 **Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
 `Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
 https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
