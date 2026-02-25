@@ -1,3 +1,11 @@
+**Trump Heralds Economic Policies in Combative State of the Union Speech**\
+`President Trump portrayed the United States as safe and “winning” in his State of the Union address. He also derided Democrats, repeating baseless claims that they cheat in elections and assailing them on immigration.`\
+https://nytimes.com/video/us/politics/100000010732875/trump-speech-state-of-the-union.html
+
+**‘Stand Up’: With One Maneuver, Trump Tries to Box In Democrats**\
+`President Trump turned his State of the Union address into full-blown political theater, handing out medals to war veterans and tossing the spotlight to ice hockey players.`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-scene.html
+
 **Word of the Day: virtuosity**\
 `This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/25/learning/word-of-the-day-virtuosity.html
