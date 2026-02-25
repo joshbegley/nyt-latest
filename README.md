@@ -1,3 +1,7 @@
+**How Britain Could Remove Andrew From the Royal Line of Succession**\
+`Despite his connections with the sex offender Jeffrey Epstein, the former prince is eighth in line to the British throne. That could change.`\
+https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andrew-epstein.html
+
 **Blaming Tariffs, Aston Martin to Trim 20% of Its Work Force**\
 `The luxury automaker said losses for 2025 had increased from the year before, as tariffs and geopolitical uncertainty take a toll on its operations.`\
 https://nytimes.com/2026/02/25/business/tariffs-aston-martin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070159/2026/02/25/manchester-united-wages-finances
 **Months of Magic's cultivated trust shone in final minute of close win over Lakers**\
 `Orlando, winners of six out of eight and 3-1 since the All-Star break, is starting to see some important and expected growth.`\
 https://nytimes.com/athletic/7069846/2026/02/25/magic-trust-close-win-lakers/
-
-**Joe Gibbs Racing amends lawsuit against former competition director, adds Spire**\
-`"If Joe Gibbs Racing is willing to go to court, I think they're pretty serious," Denny Hamlin said.`\
-https://nytimes.com/athletic/7069707/2026/02/25/joe-gibbs-racing-spire-nascar-lawsuit/
 
