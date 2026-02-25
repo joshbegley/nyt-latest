@@ -1,3 +1,7 @@
+**“They’ve killed and maimed thousands of American service members and hundreds of thousands, and even millions, of people with what’s called roadside bombs, they were the kings of the roadside bomb. We took out Suleimani. I did that in my first term, it had a huge impact. He was the father of the roadside bomb.”**\
+`By John Ismay`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/theyve-killed-and-maimed-thousands-of-american-service-members-and-hundreds-of-thousands-and-even-millions-of-people-with-whats-
+
 **“We have almost no crime anymore in Washington, D.C. How did that happen? In fact, crime in Washington is now at the lowest level ever recorded, and murders in D.C. this January were down close to 100 percent from a year ago.”**\
 `By Sheryl Gay Stolberg and Eileen Sullivan`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-almost-no-crime-anymore-in-washington-dc-how-did-that-happen-in-fact-crime-in-washington-is-now-at-the-lowest-level-ever
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-tr
 **“We are deporting illegal alien criminals from our country at record numbers and we’re getting them the hell out of here fast!”**\
 `By Zolan Kanno-Youngs and Ashley Cai`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-are-deporting-illegal-alien-criminals-from-our-country-at-record-numbers-and-were-getting-them-the-hell-out-of-here-fast
-
-**“We will always protect Social Security, Medicare, Medicaid.”**\
-`By Margot Sanger-Katz`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-will-always-protect-social-security-medicare-medicaid
 
