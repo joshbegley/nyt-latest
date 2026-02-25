@@ -1,3 +1,11 @@
+**What we learned from Seahawks GM John Schneider: New Sam Darnold contract seems unlikely**\
+`The Seahawks could extend Jaxon Smith-Njigba and Devon Witherspoon with two years left on their contracts, but Darnold might have to wait.`\
+https://nytimes.com/athletic/7069077/2026/02/24/seahawks-nfl-combine-contract-news-john-schneider/
+
+**68% of Americans Say Trump Has the Wrong Priorities**\
+`As Mr. Trump prepares for his State of the Union address, polls show that most Americans say he isn’t paying enough attention to the country’s biggest problems.`\
+https://nytimes.com/2026/02/24/us/politics/trump-poll-approval-sotu.html
+
 **West Bromwich Albion sack head coach Eric Ramsay after only nine games in charge**\
 `The former Minnesota United manager and Manchester United coach failed to win a game and leaves with the club a point above the bottom three`\
 https://nytimes.com/athletic/7069145/2026/02/24/ramsay-west-bromwich-albion-sack/
