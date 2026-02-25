@@ -1,3 +1,11 @@
+**Arsenal announce record revenues and wage bill in seventh straight loss-making year**\
+`Arsenal almost broke even for the 2024-25 financial year, recording an overall loss of £1.4million.`\
+https://nytimes.com/athletic/7070576/2026/02/25/arsenal-finances-2024-25-revenues/
+
+**Can a Long-Hated Bronx Highway Be Repaired Without Doing More Harm?**\
+`Community groups are opposing proposals to expand the decades-old Cross Bronx Expressway in favor of more limited fixes and improvements to local streets.`\
+https://nytimes.com/2026/02/25/nyregion/cross-bronx-expressway-nyc.html
+
 **Blue Jackets stretch drive primer: What to expect, what to know as playoff push resumes**\
 `The Blue Jackets headed into the Olympic break as the hottest club in the NHL, but are still just out of a playoff spot.`\
 https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-olympics/
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-fath
 **How Did Trump’s State of the Union Play?**\
 `Readers respond to the president’s address. Most but not all are critical.`\
 https://nytimes.com/2026/02/25/opinion/letters/trump-state-of-the-union.html
-
-**Irish boxer Taylor announces retirement after summer homecoming fight**\
-`The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
-https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/
 
