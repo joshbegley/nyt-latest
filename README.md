@@ -31,7 +31,7 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wa
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-want-to-stop-all-payments-to-big-insurance-companies-and-instead-give-that-money-directly-to-the-people-so-they-can-buy-their-
 
 **U.S. men's hockey team honored at State of the Union; Trump says women's team coming to White House**\
-`Trump recognized the team for its gold-medal-winning effort at the Olympics.`\
+`Trump recognized the team for its gold medal-winning effort at the Olympics.`\
 https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
 
 **“We are deporting illegal alien criminals from our country at record numbers and we’re getting them the hell out of here fast!”**\
