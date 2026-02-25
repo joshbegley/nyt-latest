@@ -1,40 +1,40 @@
-**“His reckless trade policies have forced American families to pay more than $1,700 each in tariff costs.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/his-reckless-trade-policies-have-forced-american-families-to-pay-more-than-1700-each-in-tariff-costs
+**The trick that helps Manchester United's Senne Lammens dominate Royal Rumble corners**\
+`Our goalkeeping expert explains what the Manchester United goalkeeper does that allows him to claim and clear the ball with authority`\
+https://nytimes.com/athletic/7068179/2026/02/25/senne-lammens-why-so-good-corners/
 
-**Lakers exec: Rob Pelinka remaining 'empowered' to run basketball operations**\
-`"Rob's empowered to do what he does," Lakers new president of business operations Lon Rosen said of Pelinka on Tuesday.`\
-https://nytimes.com/athletic/7069596/2026/02/24/rob-pelinka-lakers-continues-basketball-operations-role/
+**Jose Mourinho's 'violent' years of Real Madrid infamy, and his Champions League return**\
+`The 63-year-old Portuguese manager returns to the Santiago Bernabeu for the first time on Wednesday night, in dramatic circumstances`\
+https://nytimes.com/athletic/7067622/2026/02/25/real-madrid-jose-mourinho-benfica-champions-league-history/
 
-**“They’ve killed and maimed thousands of American service members and hundreds of thousands, and even millions, of people with what’s called roadside bombs, they were the kings of the roadside bomb. We took out Suleimani. I did that in my first term, it had a huge impact. He was the father of the roadside bomb.”**\
+**Fact-Checking Trump’s State of the Union Speech**\
+``\
+https://nytimes.com/live/2026/02/25/us/fact-check-state-of-the-union-trump
+
+**King's Lynn Town and the mystery of the waterlogged pitch: Sabotage, subterfuge, or a faulty sprinkler?**\
+`The National League launched an investigation into whether the relegation-threatened club had deliberately made their pitch unplayable`\
+https://nytimes.com/athletic/7068202/2026/02/25/kings-lynn-town-and-the-mystery-of-the-waterlogged-pitch-sabotage-subterfuge-or-a-faulty-sprinkler/
+
+**Why Arsenal have been immune to conceding counter-attack goals – for 36 games and counting**\
+`Arsenal have learned how to defend with possession — and it is forming the basis of their title push. This is how they do it`\
+https://nytimes.com/athletic/7055776/2026/02/25/arsenal-secret-36-games-counter-attack-goal/
+
+**“That is our highest honor, congressional medal of honor — that’s a big thing”**\
 `By John Ismay`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/theyve-killed-and-maimed-thousands-of-american-service-members-and-hundreds-of-thousands-and-even-millions-of-people-with-whats-
+https://nytimes.com/live/2026/02/25/us/fact-check-state-of-the-union-trump/that-is-our-highest-honor-congressional-medal-of-honor-thats-a-big-thing
 
-**“We have almost no crime anymore in Washington, D.C. How did that happen? In fact, crime in Washington is now at the lowest level ever recorded, and murders in D.C. this January were down close to 100 percent from a year ago.”**\
-`By Sheryl Gay Stolberg and Eileen Sullivan`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-almost-no-crime-anymore-in-washington-dc-how-did-that-happen-in-fact-crime-in-washington-is-now-at-the-lowest-level-ever
+**Explosive football: Why speed merchants are taking over the Premier League**\
+`The prevalence of aggressive, man-for-man defensive structures in the division has meant men capable of rapid acceleration are at a premium`\
+https://nytimes.com/athletic/7067562/2026/02/25/premier-league-players-acceleration-difference-makers/
 
-**“In a breakthrough operation last June, the United States military obliterated Iran’s nuclear weapons program with an attack on Iranian soil known as Operation Midnight Hammer.”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/in-a-breakthrough-operation-last-june-the-united-states-military-obliterated-irans-nuclear-weapons-program-with-an-attack-on-ira
+**Chelsea have the Premier League's toughest run-in – but could it suit them?**\
+`Chelsea might find more attacking space in the final 11 games of the season`\
+https://nytimes.com/athletic/7067849/2026/02/25/chelsea-tough-run-in-premier-league/
 
-**“With our new military campaign, we have stopped record amounts of drugs coming into our country and virtually stopped it completely coming in by water or sea — you probably noticed that.”**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/with-our-new-military-campaign-we-have-stopped-record-amounts-of-drugs-coming-into-our-country-and-virtually-stopped-it-complete
+**In Windsor, Some See Family Drama in the Andrew Accusations**\
+`“Her children have let her down,” said one woman, referring to Queen Elizabeth II. Andrew Mountbatten-Windsor’s fall from grace drew strong reactions from some. Others said they just did not care.`\
+https://nytimes.com/2026/02/25/world/europe/windsor-reaction-prince-andrew.html
 
-**“We have more jobs, more people working today than ever before in the history of our country.”**\
-`By Linda Qiu and Ashley Cai`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/we-have-more-jobs-more-people-working-today-than-ever-before-in-the-history-of-our-country
-
-**“The cheating is rampant in our elections. It’s rampant. … They want to cheat. They have cheated. And their policy is so bad that the only way they can get elected is to cheat and we’re going to stop it.”**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-elections-cheating
-
-**“I ended eight wars.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wars
-
-**“I want to stop all payments to big insurance companies and instead give that money directly to the people so they can buy their own health care, which will be better health care at a much lower cost.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-want-to-stop-all-payments-to-big-insurance-companies-and-instead-give-that-money-directly-to-the-people-so-they-can-buy-their-
+**Trump Honors Hockey Champions and Service Members at State of the Union**\
+`The president announced medals for the U.S. men’s hockey team’s star goalie as well as several military veterans.`\
+https://nytimes.com/2026/02/25/us/politics/trump-presidential-medal-freedom-slover.html
 
