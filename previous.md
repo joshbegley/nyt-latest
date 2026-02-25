@@ -1,3 +1,7 @@
+**“The cheating is rampant in our elections. It’s rampant. … They want to cheat. They have cheated. And their policy is so bad that the only way they can get elected is to cheat and we’re going to stop it.”**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-elections-cheating
+
 **“I ended eight wars.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wars
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-big-b
 **“Under Biden and his corrupt partners in Congress and beyond, it reached a breaking point with the green new scam, open borders for everyone. They poured in by the millions and millions from prisons, from mental institutions. There were murderers, 11,088 murderers.”**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/under-biden-and-his-corrupt-partners-in-congress-and-beyond-it-reached-a-breaking-point-with-the-green-new-scam-open-borders-for
-
-**Why Democratic Congresswomen Wore White to the State of the Union — This Time**\
-`It’s not the first time some Democratic women have displayed unity by wearing the same color, but this time it was in part to signal opposition to the SAVE America Act.`\
-https://nytimes.com/2026/02/24/style/state-of-the-union-white-outfits-democrats.html
 

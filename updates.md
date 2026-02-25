@@ -1,3 +1,7 @@
+**“The cheating is rampant in our elections. It’s rampant. … They want to cheat. They have cheated. And their policy is so bad that the only way they can get elected is to cheat and we’re going to stop it.”**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/fact-check-elections-cheating
+
 **“I ended eight wars.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/i-ended-eight-wars
