@@ -1,3 +1,11 @@
+**Same War, Different Message: Trump Tonight vs. Biden Four Years Ago**\
+`President Trump issued no statement in support of Ukraine on the anniversary of the Russian invasion, four years after his predecessor laid out the stakes.`\
+https://nytimes.com/2026/02/24/us/politics/biden-trump-ukraine-russia.html
+
+**T. Rex Ran on Its Tiptoes ‘Like an 8-Ton Chicken’**\
+`New findings about the anatomy of the dinosaur age’s fiercest predator suggest it chased prey “like an oversized bird.”`\
+https://nytimes.com/2026/02/24/science/tyrannosaurus-rex-tiptoes-dinosaurs.html
+
 **Bettman on U.S. players attending State of the Union, Olympic momentum, more**\
 `Twenty players from the U.S. hockey team went to Washington D.C. NHL commissioner Gary Bettman said the decision is up to them.`\
 https://nytimes.com/athletic/7069014/2026/02/24/nhl-bettman-olympics-state-of-the-union-hockey-growth/
