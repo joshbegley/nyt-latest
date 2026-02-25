@@ -1,3 +1,15 @@
+**How Liverpool cured their set-piece sickness – and why it matters**\
+`A damaging trend has been reversed at Anfield — but what has changed in the approach to attacking and defending set plays?`\
+https://nytimes.com/athletic/7067714/2026/02/25/liverpool-set-pieces/
+
+**Democrats, Boycotting Trump’s Speech, Rally Outside the Capitol**\
+`Dozens of House and Senate members skipped the speech and, in a counter event on the National Mall, criticized the president’s policies on immigration, health care and the economy.`\
+https://nytimes.com/2026/02/25/us/politics/democrats-boycott-trump-state-of-the-union.html
+
+**Jamie Vardy and the Italian pilgrimage offering Leicester City fans reminders of better times**\
+`Around 400 fans have made the 1,800-mile round trip this season to watch the man they consider their GOAT play for Italian club Cremonese`\
+https://nytimes.com/athletic/7057882/2026/02/25/jamie-vardy-leicester-city-cremonese-pilgrimage/
+
 **Gideon Kodua on life at Luton: 'The earlier you snap out of the comfort of under-21s football, the better'**\
 `The former West Ham man is Luton Town’s top goalscorer this season and hopes his side return to the Championship at the first time of asking`\
 https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7068202/2026/02/25/kings-lynn-town-and-the-mystery-
 **Why Arsenal have been immune to conceding counter-attack goals – for 36 games and counting**\
 `Arsenal have learned how to defend with possession — and it is forming the basis of their title push. This is how they do it`\
 https://nytimes.com/athletic/7055776/2026/02/25/arsenal-secret-36-games-counter-attack-goal/
-
-**“That is our highest honor, congressional medal of honor — that’s a big thing”**\
-`By John Ismay`\
-https://nytimes.com/live/2026/02/25/us/fact-check-state-of-the-union-trump/that-is-our-highest-honor-congressional-medal-of-honor-thats-a-big-thing
-
-**Explosive football: Why speed merchants are taking over the Premier League**\
-`The prevalence of aggressive, man-for-man defensive structures in the division has meant men capable of rapid acceleration are at a premium`\
-https://nytimes.com/athletic/7067562/2026/02/25/premier-league-players-acceleration-difference-makers/
-
-**Chelsea have the Premier League's toughest run-in – but could it suit them?**\
-`Chelsea might find more attacking space in the final 11 games of the season`\
-https://nytimes.com/athletic/7067849/2026/02/25/chelsea-tough-run-in-premier-league/
 
