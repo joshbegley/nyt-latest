@@ -1,3 +1,11 @@
+**Blaming Tariffs, Aston Martin to Trim 20% of Its Work Force**\
+`The luxury automaker said losses for 2025 had increased from the year before, as tariffs and geopolitical uncertainty take a toll on its operations.`\
+https://nytimes.com/2026/02/25/business/tariffs-aston-martin.html
+
+**Commanders will return to London in 2026 for first time in a decade**\
+`The 2026 London game will come a decade after Washington first competed in London and played the Cincinnati Bengals to a 27-27 tie.`\
+https://nytimes.com/athletic/7070215/2026/02/25/commanders-nfl-london-game-2026-2/
+
 **The Password That Lets Caterpillars Hide in an Ant’s Lair**\
 `Some butterfly species can’t grow unless they trick ants into taking them home with a complex rhythmic signal.`\
 https://nytimes.com/2026/02/25/science/caterpillar-ant-language.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7069846/2026/02/25/magic-trust-close-win-lakers/
 **Joe Gibbs Racing amends lawsuit against former competition director, adds Spire**\
 `"If Joe Gibbs Racing is willing to go to court, I think they're pretty serious," Denny Hamlin said.`\
 https://nytimes.com/athletic/7069707/2026/02/25/joe-gibbs-racing-spire-nascar-lawsuit/
-
-**What Trump Did (and Didn’t) Say**\
-`The president boasted about a strong economy in his State of the Union address. But he spent less time on a potential weakness, affordability.`\
-https://nytimes.com/2026/02/25/business/dealbook/trump-state-of-union.html
-
-**Germany’s Leader Delivers a Blunt Warning to China on Trade**\
-`Chancellor Friedrich Merz laid out his complaints in a frank message to his hosts on a trip to Beijing that China had designed to showcase their relationship.`\
-https://nytimes.com/2026/02/25/world/asia/china-germany-merz-visit-xi.html
 

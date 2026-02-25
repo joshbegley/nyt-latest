@@ -1,3 +1,19 @@
+**The Password That Lets Caterpillars Hide in an Ant’s Lair**\
+`Some butterfly species can’t grow unless they trick ants into taking them home with a complex rhythmic signal.`\
+https://nytimes.com/2026/02/25/science/caterpillar-ant-language.html
+
+**‘America’s Next Top Model’ and the Ultrathin Ideal That Won’t Go Away**\
+`What’s worse for body image, the fashion industry or the algorithm?`\
+https://nytimes.com/2026/02/25/opinion/americas-next-top-model.html
+
+**A Woman I Know Monopolizes Every Conversation. How Do I Make It Stop?**\
+`A reader has had it with an acquaintance’s endless, self-obsessed monologues, which have become a frequent subject of discussion behind the woman’s back.`\
+https://nytimes.com/2026/02/25/style/conversation-monopolizers-strategies.html
+
+**Pope Leo to Visit Africa, Signaling Continent’s Importance to Catholicism**\
+`The number of Roman Catholics is growing faster in Africa than anywhere else, according to the Vatican.`\
+https://nytimes.com/2026/02/25/world/europe/pope-africa-visit.html
+
 **College hoops thoughts: Duke, Virginia set for showdown, an Indiana no-call**\
 `The No. 1 Blue Devils and No. 11 Cavaliers are set for a big weekend matchup in Durham. Plus sizzling UCF, unlucky Indiana and more.`\
 https://nytimes.com/athletic/7069817/2026/02/25/college-basketball-observations-duke-virginia-indiana/
