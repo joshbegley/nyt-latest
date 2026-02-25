@@ -1,3 +1,7 @@
+**Chelsea, West Ham fined by FA for mass altercation at Stamford Bridge**\
+`Both sets of players came together in the 95th minute of their Premier League fixture, with Jean-Clair Todibo sent off for violent conduct.`\
+https://nytimes.com/athletic/7070082/2026/02/25/chelsea-west-ham-fight-fine-premier-league-clash/
+
 **The Athletic FC: What now for World Cup after Mexico violence? Plus: Bodo/Glimt stun Inter**\
 `Should Mexico’s position as a World Cup host be in doubt? FIFA says no, but recent cartel violence is putting security concerns into view`\
 https://nytimes.com/athletic/7069919/2026/02/25/mexico-cartel-violence-world-cup-bodo-inter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7067801/2026/02/25/maple-leafs-trade-deadline-nhl-o
 **Kyle Dubas, move by move, is doing what Ron Hextall could not**\
 `None of what the Penguins are doing this season was supposed to happen. At least, not this fast.`\
 https://nytimes.com/athletic/7069552/2026/02/25/kyle-dubas-pittsburgh-penguins-rebuild-gm-hextall/
-
-**Maple Leafs player poll, Part 2: Who survives in the woods the longest?**\
-`Plus, which Leafs are the most talkative and have the best recommendations? Here's what their teammates think.`\
-https://nytimes.com/athletic/7066222/2026/02/25/maple-leafs-player-poll-2026-part-2/
 

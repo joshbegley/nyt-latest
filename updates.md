@@ -1,3 +1,7 @@
+**The Athletic FC: What now for World Cup after Mexico violence? Plus: Bodo/Glimt stun Inter**\
+`Should Mexico’s position as a World Cup host be in doubt? FIFA says no, but recent cartel violence is putting security concerns into view`\
+https://nytimes.com/athletic/7069919/2026/02/25/mexico-cartel-violence-world-cup-bodo-inter/
+
 **Trump’s Spectacle**\
 `We’re covering the State of the Union speech.`\
 https://nytimes.com/2026/02/25/briefing/trumps-spectacle.html

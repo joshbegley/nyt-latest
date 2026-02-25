@@ -1,3 +1,7 @@
+**The Athletic FC: What now for World Cup after Mexico violence? Plus: Bodo/Glimt stun Inter**\
+`Should Mexico’s position as a World Cup host be in doubt? FIFA says no, but recent cartel violence is putting security concerns into view`\
+https://nytimes.com/athletic/7069919/2026/02/25/mexico-cartel-violence-world-cup-bodo-inter/
+
 **Trump’s Spectacle**\
 `We’re covering the State of the Union speech.`\
 https://nytimes.com/2026/02/25/briefing/trumps-spectacle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069552/2026/02/25/kyle-dubas-pittsburgh-penguins-r
 **Maple Leafs player poll, Part 2: Who survives in the woods the longest?**\
 `Plus, which Leafs are the most talkative and have the best recommendations? Here's what their teammates think.`\
 https://nytimes.com/athletic/7066222/2026/02/25/maple-leafs-player-poll-2026-part-2/
-
-**Blackhawks could do right by Murphy at deadline: 10 post-break thoughts**\
-`Plus, check-ins with Artyom Levshunov and Andre Burakovsky, prospect updates and which young defensemen look poised to play.`\
-https://nytimes.com/athletic/7067828/2026/02/25/blackhawks-trade-deadline-prospects-defense-blashill/
 
