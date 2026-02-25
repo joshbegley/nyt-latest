@@ -1,10 +1,18 @@
+**College basketball mailbag: Which player do you trust most taking the final shot?**\
+`Plus: Which mid-majors could still get an at-large bid? And why don't all coaches wear suits?`\
+https://nytimes.com/athletic/7070131/2026/02/25/college-basketball-mailbag-ncaa-tournament-clutch-players/
+
+**Maurene Comey Joins New York City Law Firm**\
+`Maurene Comey is joining Patterson, Belknap, Webb & Tyler. She was abruptly fired by the Trump administration last year after a career as a top federal prosecutor.`\
+https://nytimes.com/2026/02/25/nyregion/comey-trump-law-firm-new-york.html
+
 **Trump Administration Live Updates: Democrats Say Americans ‘Did Not Hear the Truth’ in State of the Union Speech**\
 ``\
 https://nytimes.com/live/2026/02/25/us/trump-news
 
 **U.S. and Ukrainian officials to meet in Geneva this week.**\
 `By Maria Varenikova`\
-https://nytimes.com/2026/02/25/us/politics/us-and-ukrainian-officials-to-meet-in-geneva-this-week.html
+https://nytimes.com/live/2026/02/25/us/trump-news/us-and-ukrainian-officials-to-meet-in-geneva-this-week
 
 **Democrats counter Trump after his combative State of the Union speech.**\
 `By Luke Broadwater, Carl Hulse, Shawn McCreesh and Katie Rogers`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/world/europe/louvre-museum-new-director-leribault
 **Coby White soaks up Hornets debut, return to United Center after trade from Bulls**\
 `"Through the ups and downs, I had a lot of fans that never gave up on me and I appreciate them for that," White said of his Bulls tenure.`\
 https://nytimes.com/athletic/7069950/2026/02/25/coby-white-hornets-bulls-chicago/
-
-**What to Know About the Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/25/us/nancy-guthrie-case-updates
-
-**Freshman fireworks: College basketball's first-year class has altered the landscape of this season**\
-`The lasting image of the 2025-26 season will be the overall impact of the freshman class, which has influenced a number of title contenders.`\
-https://nytimes.com/athletic/7070020/2026/02/25/college-basketball-freshman-class-boozer-dybantsa-peterson/
 
