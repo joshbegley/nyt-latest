@@ -1,3 +1,7 @@
+**Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
+`The defeat has been called their worst elimination in years, but the defeat should be put in context of a season of ups and downs.`\
+https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
+
 **Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
 `The loss of Ben Sheaf and Matty James has created a problem for the club as they fight for promotion to the Premier League`\
 https://nytimes.com/athletic/7067529/2026/02/25/wrexham-parkinson-midfield-injuries-sheaf-james/

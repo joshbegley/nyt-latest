@@ -1,3 +1,7 @@
+**Jimmy Kimmel Goes Live After a Super Long State of the Union**\
+`“I can’t believe America missed an all-new ‘Will Trent’ for this one,” he joked.`\
+https://nytimes.com/2026/02/25/arts/television/jimmy-kimmel-state-union.html
+
 **Inter elimination to Bodo is no laughing matter, but all is not lost for Chivu**\
 `The defeat has been called their worst elimination in years, but the defeat should be put in context of a season of ups and downs.`\
 https://nytimes.com/athletic/7069219/2026/02/25/inter-milan-bodo-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/opinion/us-dollar-china-currency-eu.html
 **The World Waited on Edge for Trump’s Thinking on Iran. It’s Still Waiting.**\
 `Even as the president considers an attack, his State of the Union address offered little more than a brief repetition of vague talking points from recent days.`\
 https://nytimes.com/2026/02/25/us/politics/trump-iran-sotu.html
-
-**Jonathan Kuminga's debut with the Hawks was spectacular**\
-`In his first game since Atlanta traded for him, Kuminga scored 27 points in 24 minutes.`\
-https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba/
 
