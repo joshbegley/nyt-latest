@@ -1,3 +1,7 @@
+**J.T. Miller, Vincent Trocheck return to Rangers practice and reflect on Olympics, Trump visit**\
+`Miller and Trocheck were key players on a Team USA penalty kill unit that went a perfect 17-for-17`\
+https://nytimes.com/athletic/7070707/2026/02/25/rangers-miller-trocheck-olympics-trump-sotu-visit/
+
 **Real Madrid eject fan for allegedly performing Nazi salute before Benfica tie**\
 `Madrid confirmed a supporter in the Grada Fan section had been identified and disciplinary proceedings had been opened.`\
 https://nytimes.com/athletic/7071098/2026/02/25/real-madrid-benfica-nazi-salute/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/world/iran-nuclear-talks-trump-war-maduro.html
 **Man Accused of Plotting to Kill Trump Goes on Trial**\
 `Prosecutors said that Asif Merchant traveled to the United States in 2024, under the guise of a businessman, to coordinate plots to kill leaders, including President Trump.`\
 https://nytimes.com/2026/02/25/nyregion/merchant-iran-trump-assassination-trial.html
-
-**Judge Finds Trump Administration’s Third-Country Deportations Unlawful**\
-`The ruling repudiates a key Homeland Security Department policy of sending immigrants to countries where they have no ties. The judge paused his ruling to allow for an appeal.`\
-https://nytimes.com/2026/02/25/us/politics/judge-trump-administration-deportations-unlawful.html
 
