@@ -1,3 +1,7 @@
+**Lakers hire Tony Bennett as NBA Draft adviser**\
+`The Lakers have begun rebuilding their college scouting department after firing assistant general manager Jesse Buss in November.`\
+https://nytimes.com/athletic/7070713/2026/02/25/tony-bennett-lakers-hiring-nba-draft/
+
 **Fantasy trends and hidden gems: Olympic injury fallout and Week 19 waiver wire targets**\
 `Shayna Goldman reviews injury fallout from the Olympics, players whose value increased during the Olympics, Week 19 targets and more. `\
 https://nytimes.com/athletic/7068984/2026/02/25/fantasy-trends-hidden-gems-olympic-fallout-week-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070576/2026/02/25/arsenal-finances-2024-25-revenue
 **Can a Long-Hated Bronx Highway Be Repaired Without Doing More Harm?**\
 `Community groups are opposing proposals to expand the decades-old Cross Bronx Expressway in favor of more limited fixes and improvements to local streets.`\
 https://nytimes.com/2026/02/25/nyregion/cross-bronx-expressway-nyc.html
-
-**Blue Jackets stretch drive primer: What to expect, what to know as playoff push resumes**\
-`The Blue Jackets headed into the Olympic break as the hottest club in the NHL, but are still just out of a playoff spot.`\
-https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-olympics/
 

@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Olympic injury fallout and Week 19 waiver wire targets**\
+`Shayna Goldman reviews injury fallout from the Olympics, players whose value increased during the Olympics, Week 19 targets and more. `\
+https://nytimes.com/athletic/7068984/2026/02/25/fantasy-trends-hidden-gems-olympic-fallout-week-19/
+
 **Welcome to Salt Lake City, sports' next dominant metropolis: MoneyCall**\
 `The only sports business newsletter name-dropping Snoop Dogg, Ice Cube and Tupac Shakur in one 1,200-word, 3-minute read.`\
 https://nytimes.com/athletic/7070708/2026/02/25/salt-lake-city-jazz-mammoth-byu-utah-moneycall/
