@@ -1,3 +1,19 @@
+**Bird Flu Strikes California Elephant Seals for the First Time**\
+`Thirty seals, primarily weaned pups, have died since late last week, scientists said.`\
+https://nytimes.com/2026/02/25/science/bird-flu-elephant-seals.html
+
+**South Korea Fell Hard for This Dessert. That Was Last Month.**\
+`The brief life span of the Dubai chewy cookie reflects the country’s fast-moving food trends, where hype often matters more than taste.`\
+https://nytimes.com/2026/02/25/world/asia/south-korea-dubai-chewy-cookies.html
+
+**Ann Godoff, a Top Editor and Publisher of Best Sellers, Dies at 76**\
+`Considered an “author’s publisher” at Random House and then Penguin, she cultivated the careers of dozens of celebrated novelists and nonfiction writers.`\
+https://nytimes.com/2026/02/25/books/ann-godoff-dead.html
+
+**Trump Echoes Biden on the Economy in State of the Union Speech**\
+`President Trump’s arguments about the country during the State of the Union on Tuesday echoed those of President Biden’s two years ago.`\
+https://nytimes.com/video/us/politics/100000010736482/trump-biden-economy-state-of-the-union.html
+
 **With Battery project flourishing, Atlanta Braves report surging revenue despite losing season**\
 `The Braves are the only MLB team publicly traded as a standalone entity, which also makes them the only team to regularly reveal finances.`\
 https://nytimes.com/athletic/7070967/2026/02/25/atlanta-braves-annual-revenue-report-surging-finances/
