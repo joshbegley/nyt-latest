@@ -1,3 +1,7 @@
+**Pope Leo to Visit Africa, Signaling Continent’s Importance to Catholicism**\
+`The number of Roman Catholics is growing faster in Africa than anywhere else, according to the Vatican.`\
+https://nytimes.com/2026/02/25/world/europe/pope-africa-visit.html
+
 **College hoops thoughts: Duke, Virginia set for showdown, an Indiana no-call**\
 `The No. 1 Blue Devils and No. 11 Cavaliers are set for a big weekend matchup in Durham. Plus sizzling UCF, unlucky Indiana and more.`\
 https://nytimes.com/athletic/7069817/2026/02/25/college-basketball-observations-duke-virginia-indiana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070131/2026/02/25/college-basketball-mailbag-ncaa-
 **Maurene Comey Joins New York City Law Firm**\
 `Maurene Comey is joining Patterson, Belknap, Webb & Tyler. She was abruptly fired by the Trump administration last year after a career as a top federal prosecutor.`\
 https://nytimes.com/2026/02/25/nyregion/comey-trump-law-firm-new-york.html
-
-**Trump Administration Live Updates: Democrats Say Americans ‘Did Not Hear the Truth’ in State of the Union Speech**\
-``\
-https://nytimes.com/live/2026/02/25/us/trump-news
 
