@@ -1,3 +1,11 @@
+**Should I Tell People What My Principal Did?**\
+`He was a community pillar with a dark underside and possibly other victims.`\
+https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
+
+**Texas Governor Spends Millions on Attack Ads Featuring Jasmine Crockett**\
+`Gov. Greg Abbott hopes the ads featuring the Democrat will galvanize Republican voter turnout in November.`\
+https://nytimes.com/2026/02/25/us/greg-abbott-jasmine-crockett-texas-primary-ads.html
+
 **In N.C. Senate Race, Democrats Bet a Big Name Can Beat Trump’s Endorsement**\
 `The race is one of a handful of competitive Senate elections this year, but Democrats seem most confident about North Carolina, partly because their candidate, former Gov. Roy Cooper, has never been beaten.`\
 https://nytimes.com/2026/02/25/us/nc-senate-race-2026-roy-cooper.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7070397/2026/02/25/west-virginia-vs-ucf-stream-how-
 **How to watch Florida vs. Texas men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070395/2026/02/25/florida-vs-texas-stream-how-to-watch-feb-25/
-
-**Penguins’ Sidney Crosby to miss at least four weeks with injury from Olympics**\
-`The lower-body injury that kept Sidney Crosby out of the gold medal game at the Olympics will sideline him for at least the next four weeks.`\
-https://nytimes.com/athletic/7070350/2026/02/25/sidney-crosby-injury-penguins-canada-hockey-nhl/
-
-**Super-Agers’ Brains Have a Special Ability, New Study Suggests**\
-`The findings may help explain why this group has such exceptional memory.`\
-https://nytimes.com/2026/02/25/well/mind/super-agers-brain-neurons.html
 
