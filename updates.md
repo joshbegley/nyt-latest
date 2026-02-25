@@ -1,3 +1,7 @@
+**Welcome to Salt Lake City, sports' next dominant metropolis: MoneyCall**\
+`The only sports business newsletter name-dropping Snoop Dogg, Ice Cube and Tupac Shakur in one 1,200-word, 3-minute read.`\
+https://nytimes.com/athletic/7070708/2026/02/25/salt-lake-city-jazz-mammoth-byu-utah-moneycall/
+
 **Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
 `Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
 https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html

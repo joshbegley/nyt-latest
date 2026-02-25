@@ -1,3 +1,7 @@
+**Welcome to Salt Lake City, sports' next dominant metropolis: MoneyCall**\
+`The only sports business newsletter name-dropping Snoop Dogg, Ice Cube and Tupac Shakur in one 1,200-word, 3-minute read.`\
+https://nytimes.com/athletic/7070708/2026/02/25/salt-lake-city-jazz-mammoth-byu-utah-moneycall/
+
 **Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
 `Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
 https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069137/2026/02/25/blue-jackets-playoff-push-post-o
 **The Bounce: Are the Spurs ready to win it all ... this year?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7070410/2026/02/25/spurs-finals-title-wembanyama-the-bounce/
-
-**F.B.I. Raids Los Angeles Schools Chief’s Home and District Headquarters**\
-`The investigation’s target was unclear. The school district is the nation’s second largest, and as superintendent, Alberto Carvalho has one of the highest-profile jobs in K-12 education.`\
-https://nytimes.com/2026/02/25/us/fbi-raid-lausd-alberto-carvalho.html
 
