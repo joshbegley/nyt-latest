@@ -1,3 +1,11 @@
+**Ann Godoff, a Top Editor and Publisher of Best Sellers, Dies at 76**\
+`Considered an “author’s publisher” at Random House and then Penguin, she cultivated the careers of dozens of celebrated novelists and nonfiction writers.`\
+https://nytimes.com/2026/02/25/books/ann-godoff-dead.html
+
+**Trump Echoes Biden on the Economy in State of the Union Speech**\
+`President Trump’s arguments about the country during the State of the Union on Tuesday echoed those of President Biden’s two years ago.`\
+https://nytimes.com/video/us/politics/100000010736482/trump-biden-economy-state-of-the-union.html
+
 **With Battery project flourishing, Atlanta Braves report surging revenue despite losing season**\
 `The Braves are the only MLB team publicly traded as a standalone entity, which also makes them the only team to regularly reveal finances.`\
 https://nytimes.com/athletic/7070967/2026/02/25/atlanta-braves-annual-revenue-report-surging-finances/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7071014/2026/02/25/ncaa-rules-transfer-portal-sprin
 **Greek Politician Is Prosecuted for Admitting Drug Use Decades Ago**\
 `The leftist party of Yanis Varoufakis, a former finance minister and critic of the conservative government, said he had been charged based on admitting he had tried ecstasy once.`\
 https://nytimes.com/2026/02/25/world/europe/greek-politician-drug-charge.html
-
-**‘Tax the Rich’ Rally Draws 1,500 to Albany, but Not Mamdani or Hochul**\
-`Busloads of New Yorkers flooded the State Capitol to press state leaders to raise taxes on corporations and high earners to help fund various initiatives.`\
-https://nytimes.com/2026/02/25/nyregion/tax-the-rich-rally-new-york.html
-
-**J.T. Miller, Vincent Trocheck return to Rangers practice and reflect on Olympics, Trump visit**\
-`Miller and Trocheck were key players on a Team USA penalty kill unit that went a perfect 17-for-17`\
-https://nytimes.com/athletic/7070707/2026/02/25/rangers-miller-trocheck-olympics-trump-sotu-visit/
 

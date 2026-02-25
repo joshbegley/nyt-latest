@@ -1,3 +1,7 @@
+**With Battery project flourishing, Atlanta Braves report surging revenue despite losing season**\
+`The Braves are the only MLB team publicly traded as a standalone entity, which also makes them the only team to regularly reveal finances.`\
+https://nytimes.com/athletic/7070967/2026/02/25/atlanta-braves-annual-revenue-report-surging-finances/
+
 **U.S. players respond to criticism over women's team, Trump invite: 'Should have reacted differently'**\
 `As players returned to their NHL teams, they commented on the excitement and controversy of the past few days.`\
 https://nytimes.com/athletic/7070799/2026/02/25/usa-hockey-olympics-trump-reaction/

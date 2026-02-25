@@ -1,3 +1,7 @@
+**With Battery project flourishing, Atlanta Braves report surging revenue despite losing season**\
+`The Braves are the only MLB team publicly traded as a standalone entity, which also makes them the only team to regularly reveal finances.`\
+https://nytimes.com/athletic/7070967/2026/02/25/atlanta-braves-annual-revenue-report-surging-finances/
+
 **U.S. players respond to criticism over women's team, Trump invite: 'Should have reacted differently'**\
 `As players returned to their NHL teams, they commented on the excitement and controversy of the past few days.`\
 https://nytimes.com/athletic/7070799/2026/02/25/usa-hockey-olympics-trump-reaction/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/25/nyregion/tax-the-rich-rally-new-york.html
 **J.T. Miller, Vincent Trocheck return to Rangers practice and reflect on Olympics, Trump visit**\
 `Miller and Trocheck were key players on a Team USA penalty kill unit that went a perfect 17-for-17`\
 https://nytimes.com/athletic/7070707/2026/02/25/rangers-miller-trocheck-olympics-trump-sotu-visit/
-
-**Real Madrid eject fan for allegedly performing Nazi salute before Benfica tie**\
-`Madrid confirmed a supporter in the Grada Fan section had been identified and disciplinary proceedings had been opened.`\
-https://nytimes.com/athletic/7071098/2026/02/25/real-madrid-benfica-nazi-salute/
 
