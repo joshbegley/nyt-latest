@@ -1,3 +1,7 @@
+**Real Madrid eject fan for allegedly performing Nazi salute before Benfica tie**\
+`Madrid confirmed a supporter in the Grada Fan section had been identified and disciplinary proceedings had been opened.`\
+https://nytimes.com/athletic/7071098/2026/02/25/real-madrid-benfica-nazi-salute/
+
 **Tage Thompson returns to Sabres, reflects on Olympic celebration, White House visit**\
 `Thompson spent three days celebrating Team USA’s gold medal win with his teammates, from Milan to Miami to the White House.`\
 https://nytimes.com/athletic/7071063/2026/02/25/tage-thompson-sabres-olympics-white-house/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7071036/2026/02/25/jontay-porter-return-pro-basketb
 `GM Ryan Poles said teams have called about Bagent, but trading the backup quarterback would be a tough decision.`\
 https://nytimes.com/athletic/7070988/2026/02/25/bears-tyson-bagent-trade-talk/
 
-**Cincinnati sues ex-QB Brendan Sorsby for $1 million buyout after transfer to Texas Tech**\
+**Cincinnati sues ex-QB Brendan Sorsby for $1 million buyout after transfer**\
 `The lawsuit states that Sorsby's revenue-sharing agreement with Cincinnati ran through Dec. 15, 2026.`\
 https://nytimes.com/athletic/7070963/2026/02/25/brendan-sorsby-cincinnati-football-lawsuit-texas-tech/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/nyregion/merchant-iran-trump-assassination-trial.
 **Judge Finds Trump Administration’s Third-Country Deportations Unlawful**\
 `The ruling repudiates a key Homeland Security Department policy of sending immigrants to countries where they have no ties. The judge paused his ruling to allow for an appeal.`\
 https://nytimes.com/2026/02/25/us/politics/judge-trump-administration-deportations-unlawful.html
-
-**En directo: Cuba reporta que sus fuerzas abatieron a 4 personas en una lancha de Florida**\
-`Tropas fronterizas se enzarzaron en un tiroteo con los tripulantes de la embarcación cerca de la costa de la isla, según dijo el Ministerio del Interior cubano.`\
-https://nytimes.com/live/2026/02/25/espanol/cuba
 

@@ -1,3 +1,7 @@
+**Tage Thompson returns to Sabres, reflects on Olympic celebration, White House visit**\
+`Thompson spent three days celebrating Team USA’s gold medal win with his teammates, from Milan to Miami to the White House.`\
+https://nytimes.com/athletic/7071063/2026/02/25/tage-thompson-sabres-olympics-white-house/
+
 **Inside the Tranquil Mountain Town Where El Mencho Made His Last Stand**\
 `Times reporters visiting Tapalpa found a serene town in shock after Sunday’s raid on its outskirts left dozens dead and people fleeing. And, surprisingly, no police or military presence where the battle took place.`\
 https://nytimes.com/2026/02/25/world/americas/el-mencho-tapalpa-jalisco-cartel.html
