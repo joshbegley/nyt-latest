@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘If He Doesn’t Come, I’ll Marry You’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/02/25/style/tiny-modern-love-stories-if-he-doesnt-come-ill-marry-you.html
+
+**Don’t Look Now, but the Green Transition Is Still Happening**\
+`It feels as if our political institutions have abandoned the climate, but the clean energy economy is still growing.`\
+https://nytimes.com/2026/02/25/opinion/clean-green-energy.html
+
+**U.S. Will Offer Embassy Services in a West Bank Settlement for the First Time**\
+`Palestinians and Israelis on the right and left all say that the move is a major step toward legitimizing the Israeli settlements, which most of the world considers illegal.`\
+https://nytimes.com/2026/02/25/world/middleeast/us-consular-services-israeli-settlements.html
+
 **Businesses Push for Tariff Refunds as Trump Aides Hint at Fight to Come**\
 `By the president’s own admission, it could be years before the matter is settled, even though the administration previously indicated it would pay.`\
 https://nytimes.com/2026/02/25/business/trump-tariffs-refunds-lawsuits.html
