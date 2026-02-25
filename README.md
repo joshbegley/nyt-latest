@@ -1,3 +1,7 @@
+**Trump Puts On a Show, Casting Democrats as the Villains**\
+`On the defensive over the economy and with the midterms approaching, President Trump made clear that his political strategy is to paint Democrats as unpatriotic and ‘crazy.’`\
+https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-speech.html
+
 **Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure - it's my job to score'**\
 `The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
 https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.
 **6 Takeaways From Trump’s State of the Union**\
 `In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
-
-**Democratic Response to Trump’s State of the Union**\
-`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
-https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
 

@@ -1,3 +1,7 @@
+**Democratic Response to Trump’s State of the Union**\
+`Gov. Abigail Spanberger of Virginia delivered the Democratic response to President Trump’s State of the Union address.`\
+https://nytimes.com/video/us/politics/100000010735638/spanberger-democratic-response-trump-sotu.html
+
 **Watching Harry Gray, 17: 'I'm not afraid of the fans or pressure - it's my job to score'**\
 `The Leeds prospect is fighting a relegation battle in League One, but is learning his trade and impressing despite the difficult situation`\
 https://nytimes.com/athletic/7069775/2026/02/25/harry-gray-leeds-united-rotherham/
