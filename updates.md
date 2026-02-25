@@ -1,3 +1,11 @@
+**Businesses Push for Tariff Refunds as Trump Aides Hint at Fight to Come**\
+`By the president’s own admission, it could be years before the matter is settled, even though the administration previously indicated it would pay.`\
+https://nytimes.com/2026/02/25/business/trump-tariffs-refunds-lawsuits.html
+
+**Trump’s speech gets a mixed reaction around the world.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/02/25/us/trump-news/trump-state-union-speech-global-reaction
+
 **Seahawks expect invitation to White House, will wait to decide on visit**\
 `The Seahawks visited the White House in May 2014, while President Barack Obama was in office, following their victory in Super Bowl 48.`\
 https://nytimes.com/athletic/7070536/2026/02/25/seahawks-white-house-donald-trump-visit/

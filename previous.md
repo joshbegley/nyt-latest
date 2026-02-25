@@ -1,3 +1,11 @@
+**Businesses Push for Tariff Refunds as Trump Aides Hint at Fight to Come**\
+`By the president’s own admission, it could be years before the matter is settled, even though the administration previously indicated it would pay.`\
+https://nytimes.com/2026/02/25/business/trump-tariffs-refunds-lawsuits.html
+
+**Trump’s speech gets a mixed reaction around the world.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2026/02/25/us/trump-news/trump-state-union-speech-global-reaction
+
 **Seahawks expect invitation to White House, will wait to decide on visit**\
 `The Seahawks visited the White House in May 2014, while President Barack Obama was in office, following their victory in Super Bowl 48.`\
 https://nytimes.com/athletic/7070536/2026/02/25/seahawks-white-house-donald-trump-visit/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marie
 **Surgeon General Nominee Sidesteps Questions on Vaccines at Senate Hearing**\
 `Dr. Casey Means, a wellness influencer, author and supporter of Health Secretary Robert F. Kennedy Jr., said that “anti-vaccine rhetoric has never been part” of her message.`\
 https://nytimes.com/2026/02/25/us/politics/surgeon-general-casey-means-senate-hearing.html
-
-**As More Products and Places Bear His Name, Trump Plays Coy**\
-`In his State of the Union address, President Trump promoted two programs that just so happened to be named after him.`\
-https://nytimes.com/2026/02/25/us/politics/trump-name-sotu.html
-
-**Former Senator Bob Kerrey Resigns From Nebraska Start-Up Amid Epstein Emails**\
-`Mr. Kerrey has left his role as chairman of the company, Monolith, after Justice Department documents showed he had met and corresponded with Jeffrey Epstein.`\
-https://nytimes.com/2026/02/25/us/bob-kerrey-resignation-monolith-epstein.html
 

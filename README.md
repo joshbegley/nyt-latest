@@ -1,3 +1,7 @@
+**U.S. Will Offer Embassy Services in a West Bank Settlement for the First Time**\
+`Palestinians and Israelis on the right and left all say that the move is a major step toward legitimizing the Israeli settlements, which most of the world considers illegal.`\
+https://nytimes.com/2026/02/25/world/middleeast/us-consular-services-israeli-settlements.html
+
 **Businesses Push for Tariff Refunds as Trump Aides Hint at Fight to Come**\
 `By the president’s own admission, it could be years before the matter is settled, even though the administration previously indicated it would pay.`\
 https://nytimes.com/2026/02/25/business/trump-tariffs-refunds-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070708/2026/02/25/salt-lake-city-jazz-mammoth-byu-
 **Brazil’s Supreme Court Convicts Four Men in a Murder That Shook the Nation**\
 `Two politicians and two former police officers were found guilty in the assassination of a rival, Marielle Franco, a Rio de Janeiro city councilwoman who fought corruption and violence.`\
 https://nytimes.com/2026/02/25/world/americas/brazil-supreme-court-verdict-marielle-franco-murder.html
-
-**Surgeon General Nominee Sidesteps Questions on Vaccines at Senate Hearing**\
-`Dr. Casey Means, a wellness influencer, author and supporter of Health Secretary Robert F. Kennedy Jr., said that “anti-vaccine rhetoric has never been part” of her message.`\
-https://nytimes.com/2026/02/25/us/politics/surgeon-general-casey-means-senate-hearing.html
 
