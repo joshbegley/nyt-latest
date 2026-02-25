@@ -1,3 +1,7 @@
+**Boxing braced for $1bn lawsuit over TKO and Sela's Zuffa launch**\
+`Frank Warren's Queensbury has written to TKO and Sela claiming compensation over alleged loss of earnings`\
+https://nytimes.com/athletic/7070249/2026/02/25/frank-warren-dana-white-sela-lawsuit/
+
 **How Britain Could Remove Andrew From the Royal Line of Succession**\
 `Despite his connections with the sex offender Jeffrey Epstein, the former prince is eighth in line to the British throne. That could change.`\
 https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andrew-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069817/2026/02/25/college-basketball-observations-
 **Man Utd's wage bill falls year-on-year, latest financial results show**\
 `United's total revenues fell to £330.7m, though, compared to £341.8m over the same period last year.`\
 https://nytimes.com/athletic/7070159/2026/02/25/manchester-united-wages-finances/
-
-**Months of Magic's cultivated trust shone in final minute of close win over Lakers**\
-`Orlando, winners of six out of eight and 3-1 since the All-Star break, is starting to see some important and expected growth.`\
-https://nytimes.com/athletic/7069846/2026/02/25/magic-trust-close-win-lakers/
 

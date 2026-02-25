@@ -1,3 +1,7 @@
+**How Britain Could Remove Andrew From the Royal Line of Succession**\
+`Despite his connections with the sex offender Jeffrey Epstein, the former prince is eighth in line to the British throne. That could change.`\
+https://nytimes.com/2026/02/25/world/europe/uk-royal-line-succession-prince-andrew-epstein.html
+
 **Blaming Tariffs, Aston Martin to Trim 20% of Its Work Force**\
 `The luxury automaker said losses for 2025 had increased from the year before, as tariffs and geopolitical uncertainty take a toll on its operations.`\
 https://nytimes.com/2026/02/25/business/tariffs-aston-martin.html
