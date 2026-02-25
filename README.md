@@ -1,6 +1,6 @@
 **Trae Young emotional in Atlanta return: ‘Got so much love for this city’**\
 `The guard didn't play in his first game in Atlanta since he was traded to Washington, but a tribute video appeared to move him to tears.`\
-https://nytimes.com/athletic/7069254/2026/02/24/trae-young-atlanta-return-ovation/
+https://nytimes.com/athletic/7069254/2026/02/24/trae-young-return-atlanta-tribute-nba/
 
 **How Trump’s State of the Union Speech Times Compare to Other Presidents**\
 `State of the Union speeches. Here’s how he compares to past presidents.`\
