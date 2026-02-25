@@ -1,3 +1,15 @@
+**How Liverpool cured their set-piece sickness – and why it matters**\
+`A damaging trend has been reversed at Anfield — but what has changed in the approach to attacking and defending set plays?`\
+https://nytimes.com/athletic/7067714/2026/02/25/liverpool-set-pieces/
+
+**Democrats, Boycotting Trump’s Speech, Rally Outside the Capitol**\
+`Dozens of House and Senate members skipped the speech and, in a counter event on the National Mall, criticized the president’s policies on immigration, health care and the economy.`\
+https://nytimes.com/2026/02/25/us/politics/democrats-boycott-trump-state-of-the-union.html
+
+**Jamie Vardy and the Italian pilgrimage offering Leicester City fans reminders of better times**\
+`Around 400 fans have made the 1,800-mile round trip this season to watch the man they consider their GOAT play for Italian club Cremonese`\
+https://nytimes.com/athletic/7057882/2026/02/25/jamie-vardy-leicester-city-cremonese-pilgrimage/
+
 **Gideon Kodua on life at Luton: 'The earlier you snap out of the comfort of under-21s football, the better'**\
 `The former West Ham man is Luton Town’s top goalscorer this season and hopes his side return to the Championship at the first time of asking`\
 https://nytimes.com/athletic/7065978/2026/02/25/gideon-kodua-luton-town-west-ham-arsenal/
