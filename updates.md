@@ -1,3 +1,11 @@
+**“His reckless trade policies have forced American families to pay more than $1,700 each in tariff costs.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2026/02/24/us/trump-state-of-the-union/his-reckless-trade-policies-have-forced-american-families-to-pay-more-than-1700-each-in-tariff-costs
+
+**Lakers exec: Rob Pelinka remaining 'empowered' to run basketball operations**\
+`"Rob's empowered to do what he does," Lakers new president of business operations Lon Rosen said of Pelinka on Tuesday.`\
+https://nytimes.com/athletic/7069596/2026/02/24/rob-pelinka-lakers-continues-basketball-operations-role/
+
 **U.S. men's hockey team honored at State of the Union; Trump says women's team coming to White House**\
 `Trump recognized the team for its gold medal-winning effort at the Olympics.`\
 https://nytimes.com/athletic/7069590/2026/02/24/usa-hockey-state-of-the-union-trump-olympics/
