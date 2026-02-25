@@ -1,3 +1,7 @@
+**Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
+`Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
+https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
+
 **Trump’s Push for Election Power Raises Fears He Will ‘Subvert’ Midterms**\
 `The president appears to be undermining Americans’ faith in the outcome, at a moment when Republicans face an uphill climb to keep control of Congress.`\
 https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html

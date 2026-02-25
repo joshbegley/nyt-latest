@@ -1,3 +1,11 @@
+**Tony Dungy likely out as a regular on NBC's 'Football Night in America'**\
+`Dungy, who won a Super Bowl as a player with the Steelers and another as head coach of the Colts, has been on the NBC show for 17 seasons.`\
+https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
+
+**Vessels Have Clashed With Cuban Border Forces Before**\
+`On Wednesday, a Florida-registered speedboat entered Cuban waters and some on board exchanged gunfire with Cuban troops. Two such armed clashes occurred in 2022.`\
+https://nytimes.com/2026/02/25/world/americas/vessel-gunfight-cuba-history.html
+
 **Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
 `Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
 https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-radio-free-europe.html
 **Champions League knockouts: 16 teams remain, all-English ties loom in latter stages**\
 `Which teams are through to the last 16 and who could they face next?`\
 https://nytimes.com/athletic/7070919/2026/02/25/champions-league-knockouts-explained-arsenal-bayern-liverpool-psg/
-
-**Antonio Tejero Molina, 93, Dies; Spanish Colonel Led Failed Coup**\
-`He held Spain’s Parliament hostage for 18 hours on Feb. 23, 1981, before surrendering after it became clear that he had little support from the country’s armed forces.`\
-https://nytimes.com/2026/02/25/world/europe/antonio-tejero-molina-dead.html
-
-**How the Wild will work U.S. Olympians back into the lineup, plus trade expectations, more**\
-`Fresh off winning gold for the U.S. in Milan, Quinn Hughes, Matt Boldy and Brock Faber will jump right back into their regular Wild roles.`\
-https://nytimes.com/athletic/7071212/2026/02/25/wild-lineup-olympics-trade-expectations/
 
