@@ -1,3 +1,7 @@
+**A Seasoned French Museum Chief Takes Over a Louvre in Crisis**\
+`Christophe Leribault, who runs the Palace of Versailles, will replace Laurence des Cars, who resigned months after an audacious jewel heist.`\
+https://nytimes.com/2026/02/25/world/europe/louvre-museum-new-director-leribault-paris.html
+
 **Coby White soaks up Hornets debut, return to United Center after trade from Bulls**\
 `"Through the ups and downs, I had a lot of fans that never gave up on me and I appreciate them for that," White said of his Bulls tenure.`\
 https://nytimes.com/athletic/7069950/2026/02/25/coby-white-hornets-bulls-chicago/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069982/2026/02/25/west-ham-london-stadium-court/
 **Who could the Phillies choose for the final 2 bullpen spots? Here are 4 options**\
 `With one month remaining, at least six pitchers appear to be in the running to fill the final two bullpen spots on the Opening Day roster. `\
 https://nytimes.com/athletic/7069608/2026/02/25/phillies-bullpen-opening-day-roster/
-
-**Carlos Lagrange throws 103 mph. Aaron Judge sees a 'front-line starter' in the making**\
-`Few pitchers on the planet have the ability Lagrange possesses when he uncorks a ball to home plate. Can he harness his command? `\
-https://nytimes.com/athletic/7068771/2026/02/25/carlos-lagrange-yankees-prospect-starting-pitcher/
 
