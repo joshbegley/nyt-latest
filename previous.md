@@ -1,3 +1,11 @@
+**Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
+`The loss of Ben Sheaf and Matty James has created a problem for the club as they fight for promotion to the Premier League`\
+https://nytimes.com/athletic/7067529/2026/02/25/wrexham-parkinson-midfield-injuries-sheaf-james/
+
+**Rubio Was Looking at His Phone After Trump Praised Him in State of the Union Speech**\
+`Shortly after Secretary of State Marco Rubio was singled out for praise, a New York Times photographer captured him reading messages from Mr. Trump’s special envoy to Venezuela.`\
+https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.html
+
 **6 Takeaways From Trump’s State of the Union**\
 `In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7069261/2026/02/25/jonathan-kuminga-hawks-debut-nba
 **Leader of Columbia Brain Institute Quits Over Friendship With Epstein**\
 `The Nobel laureate Richard Axel is not accused of wrongdoing but called his association with Jeffrey Epstein a “serious error in judgment.”`\
 https://nytimes.com/2026/02/25/nyregion/columbia-nobel-winner-epstein-resigns.html
-
-**Spanberger, in Democratic Response, Asks ‘Is the President Working for You?’**\
-`“We all know the answer is no,” the Virginia governor argued in her rebuttal to President Trump’s State of the Union address.`\
-https://nytimes.com/2026/02/25/us/politics/spanberger-democratic-response-trump-sotu.html
-
-**Trump Calls for More Limits on Trans Youth**\
-`During the State of the Union address, the president said states “must ban” social transitions among young people without parental consent.`\
-https://nytimes.com/2026/02/25/us/politics/virginia-trans-student-trump-sotu-guest.html
 

@@ -1,3 +1,11 @@
+**Wrexham's midfield injuries are piling up - can Parkinson keep the promotion bid on track?**\
+`The loss of Ben Sheaf and Matty James has created a problem for the club as they fight for promotion to the Premier League`\
+https://nytimes.com/athletic/7067529/2026/02/25/wrexham-parkinson-midfield-injuries-sheaf-james/
+
+**Rubio Was Looking at His Phone After Trump Praised Him in State of the Union Speech**\
+`Shortly after Secretary of State Marco Rubio was singled out for praise, a New York Times photographer captured him reading messages from Mr. Trump’s special envoy to Venezuela.`\
+https://nytimes.com/2026/02/25/us/politics/rubio-phone-trump-state-of-the-union.html
+
 **6 Takeaways From Trump’s State of the Union**\
 `In an address that was heavy on theatrics, President Trump lashed out at Democrats as “crazy” and unpatriotic.`\
 https://nytimes.com/2026/02/25/us/politics/trump-state-of-the-union-takeaways.html
