@@ -1,3 +1,11 @@
+**Lightning's Jon Cooper to miss next 2 games after death of his father**\
+`Jon Cooper will miss Wednesday’s home game against the Toronto Maple Leafs and Thursday’s visit to Carolina to face the Hurricanes.`\
+https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-father/
+
+**How Did Trump’s State of the Union Play?**\
+`Readers respond to the president’s address. Most but not all are critical.`\
+https://nytimes.com/2026/02/25/opinion/letters/trump-state-of-the-union.html
+
 **Irish boxer Taylor announces retirement after summer homecoming fight**\
 `The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
 https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/

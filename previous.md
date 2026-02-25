@@ -1,3 +1,11 @@
+**Lightning's Jon Cooper to miss next 2 games after death of his father**\
+`Jon Cooper will miss Wednesday’s home game against the Toronto Maple Leafs and Thursday’s visit to Carolina to face the Hurricanes.`\
+https://nytimes.com/athletic/7070494/2026/02/25/lightnings-jon-cooper-death-father/
+
+**How Did Trump’s State of the Union Play?**\
+`Readers respond to the president’s address. Most but not all are critical.`\
+https://nytimes.com/2026/02/25/opinion/letters/trump-state-of-the-union.html
+
 **Irish boxer Taylor announces retirement after summer homecoming fight**\
 `The two-weight undisputed world champion has not competed since a trio of wins in July and would like to retire after a bout at Croke Park.`\
 https://nytimes.com/athletic/7070333/2026/02/25/katie-taylor-boxing-retirement/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/25/magazine/tell-people-principal-ethics.html
 **Texas Governor Spends Millions on Attack Ads Featuring Jasmine Crockett**\
 `Gov. Greg Abbott hopes the ads featuring the Democrat will galvanize Republican voter turnout in November.`\
 https://nytimes.com/2026/02/25/us/greg-abbott-jasmine-crockett-texas-primary-ads.html
-
-**In N.C. Senate Race, Democrats Bet a Big Name Can Beat Trump’s Endorsement**\
-`The race is one of a handful of competitive Senate elections this year, but Democrats seem most confident about North Carolina, partly because their candidate, former Gov. Roy Cooper, has never been beaten.`\
-https://nytimes.com/2026/02/25/us/nc-senate-race-2026-roy-cooper.html
-
-**Epstein Files Are Missing Records About Woman Who Made Claim Against Trump**\
-`Documents released by the Justice Department briefly mention a woman’s unverified accusation that Donald J. Trump assaulted her in the 1980s, when she was a minor. But several memos related to her account are not in the files.`\
-https://nytimes.com/2026/02/25/us/politics/trump-epstein-files.html
 
