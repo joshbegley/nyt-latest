@@ -1,3 +1,7 @@
+**Champions League knockouts: 16 teams remain, all-English ties loom in latter stages**\
+`Which teams are through to the last 16 and who could they face next?`\
+https://nytimes.com/athletic/7070919/2026/02/25/champions-league-knockouts-explained-arsenal-bayern-liverpool-psg/
+
 **Antonio Tejero Molina, 93, Dies; Spanish Colonel Led Failed Coup**\
 `He held Spain’s Parliament hostage for 18 hours on Feb. 23, 1981, before surrendering after it became clear that he had little support from the country’s armed forces.`\
 https://nytimes.com/2026/02/25/world/europe/antonio-tejero-molina-dead.html
