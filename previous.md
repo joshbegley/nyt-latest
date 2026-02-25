@@ -1,5 +1,9 @@
+**Surgeon General Nominee Dodges Senators’ Questions on Vaccines**\
+`Dr. Casey Means, a wellness influencer and supporter of Health Secretary Robert F. Kennedy Jr., deflected questions about vaccines during her confirmation hearing before the Senate Health Committee.`\
+https://nytimes.com/video/us/politics/100000010737188/casey-means-surgeon-general-vaccines.html
+
 **M.T.A. Threatens to Sue Trump Over Delayed 2nd Avenue Subway Funding**\
-`The New York transportation authority said it would sue the Trump administration if it did not release more than $58 million in funding that had already been awarded by next week.`\
+`The New York transportation authority said it would sue the Trump administration if it did not release more than $58 million in already-awarded funding by next week.`\
 https://nytimes.com/2026/02/25/nyregion/second-avenue-subway-mta.html
 
 **Live Updates: Cuban Government Says Troops Kill 4 on Florida Speedboat**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070990/2026/02/25/kings-vs-rockets-stream-how-to-w
 **How to watch Celtics vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7070986/2026/02/25/celtics-vs-nuggets-stream-how-to-watch-feb-25/
-
-**How to watch Cavaliers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7070983/2026/02/25/cavaliers-vs-bucks-stream-how-to-watch-feb-25/
 
