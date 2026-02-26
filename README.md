@@ -1,3 +1,7 @@
+**PWHL 2025-26 playoff chances, projected standings and player ratings**\
+`Welcome to our 2025-26 PWHL projections where you will find each team’s projected point total and chances of winning the Walter Cup.`\
+https://nytimes.com/athletic/7070578/2026/02/26/pwhl-2025-26-playoff-chances-and-projected-standings/
+
 **7 New Books We Recommend This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/02/26/books/review/new-recommended-books.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/26/world/europe/germany-ruling-afd-extremist.html
 **From 'spat' to full-blown 'brawl': The sliding scale of on-pitch confrontations in football**\
 `After Chelsea and West Ham United were fined for their "mass confrontation", Tim Spiers explains the specific language around "bust-ups"`\
 https://nytimes.com/athletic/7072173/2026/02/26/from-spat-to-full-blown-brawl-the-sliding-scale-of-on-pitch-confrontations-in-football/
-
-**'Best moment in my life': Zach Werenski, back with Blue Jackets, still reveling in Olympic gold**\
-`Werenski also discussed honoring Johnny Gaudreau and the controversy involving President Donald Trump's comments.`\
-https://nytimes.com/athletic/7073155/2026/02/26/werenski-olympics-usa-blue-jackets/
 

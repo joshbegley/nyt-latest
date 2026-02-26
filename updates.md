@@ -1,3 +1,11 @@
+**7 New Books We Recommend This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/02/26/books/review/new-recommended-books.html
+
+**What Teenagers Are Saying About Limiting A’s to Curb Grade Inflation**\
+`Students react to Harvard’s proposal to cap the number of A’s professors can award in an effort to make top grades more meaningful.`\
+https://nytimes.com/2026/02/26/learning/what-teenagers-are-saying-about-limiting-as-to-curb-grade-inflation.html
+
 **Teresa de Lauretis, Coiner (and Critic) of Queer Theory, Dies at 87**\
 `She came up with the term as the title of a 1990 conference but saw its later popularity as a little superficial.`\
 https://nytimes.com/2026/02/26/books/teresa-de-lauretis-dead.html
