@@ -1,3 +1,11 @@
+**Game-Changing Drugs**\
+`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknows about long-term use.`\
+https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
+
+**Where to Eat and Have a Shvitz**\
+`Three New York City banyas where you can squeeze in a great meal with a great sweat.`\
+https://nytimes.com/2026/02/26/dining/where-to-eat-and-have-a-shvitz.html
+
 **Government Still Building Case for U.S.S. Cole Trial 25 Years After Attack**\
 `Prosecutors are scrambling to shore up the case from adverse judicial rulings. Defense lawyers say they are not ready for trial.`\
 https://nytimes.com/2026/02/26/us/politics/guantanamo-uss-cole-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7073818/2026/02/26/pelicans-vs-jazz-stream-how-to-w
 **How to watch Wizards vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073809/2026/02/26/wizards-vs-hawks-stream-how-to-watch-feb-26/
-
-**How to watch Flyers vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073806/2026/02/26/flyers-vs-rangers-stream-how-to-watch-feb-26/
-
-**How to watch Trail Blazers vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073803/2026/02/26/trail-blazers-vs-bulls-stream-how-to-watch-feb-26/
 
