@@ -1,40 +1,40 @@
-**Marco Rubio Says U.S. Is Probing Deadly Cuban Shooting**\
-`Cuban officials said border troops engaged in gunfire with a Florida-based speedboat on Wednesday, leaving four dead on the boat and six wounded. Secretary of State Marco Rubio said the U.S. is working to verify what happened and will respond accordingly.`\
-https://nytimes.com/video/world/americas/100000010738156/cuba-speedboat-shooting.html
+**The Trumpiest Trump We’ve Ever Beheld**\
+`The president is becoming the very thing that destroyed the Democrats: a reality-denying machine.`\
+https://nytimes.com/2026/02/26/opinion/trump-state-union-carterls-mexico.html
 
-**After turbulence and trauma, Vinicius Jr was Real Madrid’s Champions League hero**\
-`In a match played in the shadow of an allegation of racist abuse, it was fitting that the 25-year-old Brazilian should illuminate things`\
-https://nytimes.com/athletic/7072122/2026/02/26/vinicius-jr-real-madrid-champions-league-benfica-victory/
+**‘The Luckiest Man in America’ and More Streaming Gems**\
+`A game-show drama and a documentary valentine to a cult movie queen are among the little treats tucked away on your subscription streaming services this month.`\
+https://nytimes.com/2026/02/26/movies/the-luckiest-man-in-america-streaming.html
 
-**China Wants Germany in Its Corner. It’s Not That Easy.**\
-`China’s play for U.S. allies has a problem: As Germany’s leader showed, Europe’s grievances with Beijing may run deeper than its frustration with Trump.`\
-https://nytimes.com/2026/02/26/world/asia/merz-china-analysis.html
+**Don’t Make a Saint Out of Toni Morrison**\
+`It’s a disservice — to her and to us.`\
+https://nytimes.com/2026/02/26/podcasts/cannonball-toni-morrison.html
 
-**Letting the Fur Fly at Fendi**\
-`Maria Grazia Chiuri makes her debut, and courts controversy. Sort of.`\
-https://nytimes.com/2026/02/26/style/fendi-maria-grazia-chiuri-fall-2026.html
+**‘Z’? ‘Zo’? ‘Mam’? A New Mayor Needs a Nickname.**\
+`Mayor Zohran Mamdani has been given a bevy of nicknames by New York City’s tabloid newspapers and political class. Which will stick?`\
+https://nytimes.com/2026/02/26/business/media/zohran-mamdani-nyc-mayor-new-york-post.html
 
-**Late Night Fixates on How Long Trump Spoke**\
-`“This time, Trump spoke and everyone else fell asleep,” Jimmy Fallon said.`\
-https://nytimes.com/2026/02/26/arts/television/late-night-trump-speech.html
+**With Bends, Crinkles and a Cool Decor Makeover, Carol Bove Takes the Guggenheim**\
+`She extracts something new from steel, dispelling its aura of brawn. Her signature form is a rumpled ribbon of metal painted to look as soft as suede.`\
+https://nytimes.com/2026/02/26/arts/design/carol-bove-guggenheim-museum.html
 
-**How a company is using AI to help solve a lack of data and resources in women's football**\
-`Twelve Football is working to use the limited data available in the women's game to grow the sport with AI`\
-https://nytimes.com/athletic/7054513/2026/02/26/ai-womens-football-resources/
+**Putting on the Shvitz**\
+`This harsh winter, some New Yorkers found refuge at Sauna Fest in Domino Park in Brooklyn, with curated sweat sessions led by towel-swinging sauna masters.`\
+https://nytimes.com/2026/02/26/style/sauna-fest-brooklyn-domino-park.html
 
-**Hamster Wheel**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/02/26/learning/hamster-wheel.html
+**Homes for Sale in Manhattan and the Bronx**\
+`This week’s properties are in Gramercy Park, Morningside Heights and on City Island.`\
+https://nytimes.com/2026/02/26/realestate/housing-market-nyc.html
 
-**Bright Horizons Let Some Staff Work Without Full Vetting, Records Show**\
-`Inspectors found several instances in which child care staff members were working in classrooms even though they had not completed all of the required background checks.`\
-https://nytimes.com/2026/02/26/nyregion/bright-horizons-nyc-child-care.html
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are four-bedroom homes in Lido Beach and Redding.`\
+https://nytimes.com/2026/02/26/realestate/new-york-connecticut-homes-for-sale.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/26/crosswords/spelling-bee-forum.html
+**A Japanese City Received 21 Gold Bars With Instructions: Fix Your Water Pipes**\
+`An anonymous donation of $3.6 million worth of gold highlights frustration with Osaka’s aging waterworks. It will only finance repairs to a fraction of the pipes that need to be replaced.`\
+https://nytimes.com/2026/02/26/world/asia/osaka-water-pipes-gold-bars.html
 
-**What We Know About the Gun Battle Off the Coast of Cuba**\
-`Four armed Cubans aboard a Florida-based speedboat died in a gunfight with Cuban border troops on Wednesday, officials said.`\
-https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
+**Noguchi Envisioned a More Open New York. New York Wasn’t Interested.**\
+`Isamu Noguchi became one of the most successful artists of the 20th century, but the city met his plans for public spaces with indifference.`\
+https://nytimes.com/2026/02/26/arts/design/noguchi-new-york-city-museum.html
 
