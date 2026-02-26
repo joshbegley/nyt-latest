@@ -1,3 +1,7 @@
+**Max Scherzer agrees to 1-year, $3 million deal with Blue Jays: Source**\
+`The 41-year-old performed at a high level with three solid postseason starts amid Toronto's quest for a World Series title in 2025.`\
+https://nytimes.com/athletic/6792113/2026/02/26/max-scherzer-blue-jays-mlb-free-agency/
+
 **Quenneville coaches 1,000th regular-season win, joins Bowman in elite company**\
 `Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
 https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070655/2026/02/26/chelsea-premier-league-yellow-re
 **Branthwaite needs to play at centre-back. It will be better for both him and Everton**\
 `The Englishman has struggled to adapt to the makeshift left-back role he has been asked to play since returning from injury`\
 https://nytimes.com/athletic/7069981/2026/02/26/branthwaite-everton-defence-moyes/
-
-**Pereira’s eventful time at Olympiacos: Pitch invasions, Marinakis, and doing the double**\
-`The Forest head coach has had a varied career path, not least a colourful spell with Marinakis' Greek club Olympiacos`\
-https://nytimes.com/athletic/7070785/2026/02/26/vitor-pereira-olympiacos-marinakis/
 
