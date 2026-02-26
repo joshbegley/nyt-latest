@@ -1,3 +1,7 @@
+**Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
+`The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
+https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
+
 **Yankees to retire CC Sabathia's number, add plaque to Monument Park**\
 `No other Yankee will wear Sabathia's No. 52. `\
 https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/

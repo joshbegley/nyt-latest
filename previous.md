@@ -1,3 +1,7 @@
+**Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
+`The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
+https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
+
 **Yankees to retire CC Sabathia's number, add plaque to Monument Park**\
 `No other Yankee will wear Sabathia's No. 52. `\
 https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070828/2026/02/25/vinicius-real-madrid-benfica-cha
 **Ilhan Omar Condemns Arrest of State of the Union Guest**\
 `Aliya Rahman, a U.S. citizen who was dragged from her vehicle after an ICE agent shattered its window, was charged with unlawful conduct after standing up during President Trump’s speech.`\
 https://nytimes.com/2026/02/25/us/politics/ilhan-omar-state-of-the-union-arrest.html
-
-**How Was Trump’s Speech? Choose Your Own Algorithmic Adventure.**\
-`Here’s how social media may have shaped your impressions of the State of the Union.`\
-https://nytimes.com/2026/02/25/us/politics/trump-sotu-social-media-reactions.html
 
