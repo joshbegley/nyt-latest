@@ -1,3 +1,7 @@
+**Italian golfer injured after falling down elevator shaft before South African Open**\
+`The 36-year-old suffered the freak accident at his private accommodation on Wednesday.`\
+https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-shaft-fall/
+
 **Why U.S. Allies Are Lining Up to Meet China**\
 `Amid trade disputes with President Trump, leaders of major U.S. allies have been visiting China. Our foreign correspondent David Pierson describes what’s going on.`\
 https://nytimes.com/video/world/asia/100000010736191/why-us-allies-are-lining-up-to-meet-china.html
