@@ -1,3 +1,15 @@
+**Game-Changing Drugs**\
+`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknows about long-term use.`\
+https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
+
+**Where to Eat and Have a Shvitz**\
+`Three New York City banyas where you can squeeze in a great meal with a great sweat.`\
+https://nytimes.com/2026/02/26/dining/where-to-eat-and-have-a-shvitz.html
+
+**Government Still Building Case for U.S.S. Cole Trial 25 Years After Attack**\
+`Prosecutors are scrambling to shore up the case from adverse judicial rulings. Defense lawyers say they are not ready for trial.`\
+https://nytimes.com/2026/02/26/us/politics/guantanamo-uss-cole-trial.html
+
 **Dan Duckhorn, Who Made Merlot a Napa Valley Star, Dies at 87**\
 `A founder of Duckhorn Vineyards, a California winemaker, Mr. Duckhorn transformed merlot from a blending grape into a premier American variety.`\
 https://nytimes.com/2026/02/26/us/dan-duckhorn-dead-california.html
