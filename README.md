@@ -22,8 +22,8 @@ https://nytimes.com/2026/02/26/nyregion/bright-horizons-nyc-child-care.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/02/26/crosswords/spelling-bee-forum.html
 
-**What We Know About the Gun Battle With Cuban Border Troops**\
-`Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
+**What We Know About the Gun Battle Off the Coast of Cuba**\
+`Four armed Cubans aboard a Florida-based speedboat died in a gunfight with Cuban border troops on Wednesday, officials said.`\
 https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
 
 **Word of the Day: benevolent**\
