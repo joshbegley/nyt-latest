@@ -1,3 +1,7 @@
+**Tyler Myers' goodbye skate and why a Canucks trade deadline fire sale is a necessary step**\
+`As it stood Wednesday night, Vancouver is at the 1-yard line on a trade that would include Myers.`\
+https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadline-skate/
+
 **Why Nvidia’s Big Profits Aren’t Lifting Markets**\
 `The chip giant at the center of the artificial intelligence boom again beat expectations. But it didn’t overcome investor jitters.`\
 https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html

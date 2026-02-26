@@ -1,3 +1,7 @@
+**Tyler Myers' goodbye skate and why a Canucks trade deadline fire sale is a necessary step**\
+`As it stood Wednesday night, Vancouver is at the 1-yard line on a trade that would include Myers.`\
+https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadline-skate/
+
 **All these Bulls losses are weighing on Matas Buzelis**\
 `The second-year forward's normally unwavering confidence has been shaken by Chicago's roster overhaul and 10-game skid.`\
 https://nytimes.com/athletic/7072269/2026/02/26/matas-buzelis-bulls-losing/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/26/us/nancy-guthrie-updates
 **Cubs roster projection 2.0: New developments one month from Opening Day**\
 `So many things can happen between now and Opening Day, especially when several of Chicago’s best players will be competing in the WBC.`\
 https://nytimes.com/athletic/7071426/2026/02/26/cubs-roster-projection-2-0-new-developments/
-
-**What a March CBA deal would mean for WNBA free agency, expansion and the draft**\
-`Expect a chaotic spring in the WNBA if a CBA deal is reached.`\
-https://nytimes.com/athletic/7071517/2026/02/26/wnba-cba-agreement-spring-free-agency-expansion-draft-camp/
 
