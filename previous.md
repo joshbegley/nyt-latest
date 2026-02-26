@@ -1,3 +1,31 @@
+**Why U.S. Allies Are Lining Up to Meet China**\
+`Amid trade disputes with President Trump, leaders of major U.S. allies have been visiting China. Our foreign correspondent David Pierson describes what’s going on.`\
+https://nytimes.com/video/world/asia/100000010736191/why-us-allies-are-lining-up-to-meet-china.html
+
+**A Masterwork of Postmodern Dance, Performed at The New York Times**\
+`Watch the Trisha Brown Dance Company stage a snippet of the choreographer’s 1983 piece “Set and Reset.”`\
+https://nytimes.com/2026/02/26/t-magazine/trisha-brown-dance-company-performance-nyt-office.html
+
+**Live From the 10th Floor | Trisha Brown Dance Company**\
+`Dancers perform an excerpt of Trisha Brown’s “Set and Reset” (1983), with music by Laurie Anderson, in T Magazine’s office.`\
+https://nytimes.com/video/t-magazine/100000010730875/live-from-the-10th-floor-trisha-brown-dance-company.html
+
+**Judge Declines to Halt Construction on Trump’s East Wing Ballroom Project**\
+`A federal judge ruled that a lawsuit challenging the project needed to be revised before he could consider the larger questions it presented.`\
+https://nytimes.com/2026/02/26/us/politics/judge-white-house-ballroom-trump.html
+
+**A Creamy Salad Dressing That Will Change Your Life**\
+`The chefs of a wildly popular modern izakaya in California share their secret to a dead-simple sauce that makes you feel great.`\
+https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
+
+**At Jil Sander, It Could All Be So Simple**\
+`Simone Bellotti continues to make the case for brainy minimalism. Also, some memorable Moncler jackets and an Italian signore with unforgettable style.`\
+https://nytimes.com/2026/02/26/style/at-jil-sander-it-could-all-be-so-simple.html
+
+**How to Use One 6-Ounce Can of Tomato Paste Across a Week of Dinners**\
+`Ras el hanout chickpea and spinach stew, three-bean soup and spiced tomato and eggplant pasta leave no tomato paste behind.`\
+https://nytimes.com/2026/02/26/dining/how-to-use-one-6-ounce-can-of-tomato-paste-across-a-week-of-dinners.html
+
 **How to Measure Real Progress in Education**\
 `Randi Weingarten, president of the American Federation of Teachers, and others respond to a Nicholas Kristof column. Also: Reagan’s warning about nuclear weapons; aging doctors.`\
 https://nytimes.com/2026/02/26/opinion/public-school-education.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentfor
 **Colts QB Anthony Richardson requests trade: Sources**\
 `Richardson ended the 2025 season on injured reserve due to an orbital fracture he suffered due to a “freak accident” during pregame warmups.`\
 https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/
-
-**‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
-`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell’s.`\
-https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
-
-**Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
-`The FAI say game will "provide tangible support for humanitarian efforts assisting civilians affected by the conflict" in the Middle East.`\
-https://nytimes.com/athletic/7072695/2026/02/26/ireland-israel-dublin-nations-league/
-
-**‘Meat Suit’ Review: Sitting With the Mess of Motherhood**\
-`In Aya Ogawa’s compassionate, sharply comical play, the pastel-pink public image of mommyhood doesn’t stand a chance.`\
-https://nytimes.com/2026/02/26/theater/meat-suit-review-motherhood-aya-ogawa.html
-
-**Why Was Mark Zuckerberg Front Row at Prada?**\
-`The Meta chief executive’s presence in Milan seemed to project his company’s ambitions.`\
-https://nytimes.com/2026/02/26/style/mark-zuckerberg-prada-milan-fashion-week.html
-
-**U.S. Mortgage Rates Fall Below 6% for First Time in Years**\
-`The evidence is patchy on whether lower rates have meaningfully spurred more activity, as the Trump administration floats measures it says will make housing more affordable.`\
-https://nytimes.com/2026/02/26/business/mortgage-rates-30-year.html
-
-**Trump’s State of the Union Was Rage Bait**\
-`President Trump’s State of the Union address leaned heavily on rage bait for one reason, the Times Opinion columnist Jamelle Bouie argues: The president is trying to distract from the fact that he is failing to govern the country effectively.`\
-https://nytimes.com/video/opinion/100000010736178/trumps-state-of-the-union-was-rage-bait.html
-
-**Mamdani and Trump Are Set to Meet in Washington**\
-`Mayor Zohran Mamdani’s trip to the White House on Thursday was unannounced. The topics he planned to discuss with President Trump were not immediately clear.`\
-https://nytimes.com/2026/02/26/nyregion/mamdani-trump-meeting.html
 
