@@ -1,3 +1,27 @@
+**What It’s Like to Grow Up With A.I.: The Winners of Our Multimedia Challenge**\
+`Via essays, poems, videos, artwork and graphics, 35 students across the globe reflect on how this technology is affecting teenagers.`\
+https://nytimes.com/2026/02/26/learning/teens-on-growing-up-with-ai.html
+
+**Ravens should use this offseason to get back to their trench-building roots**\
+`Baltimore is coming off a season in which it struggled along the offensive and defensive lines and didn't consistently win in the trenches. `\
+https://nytimes.com/athletic/7069607/2026/02/26/ravens-trenches-offensive-defensive-linemen/
+
+**Wait, people actually bet on the NFL Combine?**\
+`Doug Kezirian explains all things when it comes to betting on the NFL Combine.`\
+https://nytimes.com/athletic/7070263/2026/02/26/nfl-combine-odds-betting/
+
+**The New York Times International Edition in Print for Friday, Feb. 27, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/26/todays-new-york-times-international-edition
+
+**Adapting to a New World: Teachers on How A.I. Is Reshaping the Classroom**\
+`We asked high school educators what it’s like to teach at a time when A.I. is transforming education. They answered in images, essays and videos.`\
+https://nytimes.com/2026/02/26/learning/teachers-on-how-ai-is-reshaping-the-classroom.html
+
+**What makes John Harbaugh a great coach? We asked his opponents**\
+`“It felt like home, and it felt like he was at the head of this household.”`\
+https://nytimes.com/athletic/7071754/2026/02/26/john-harbaugh-new-york-giants-reputation/
+
 **‘Time Is Not on Russia’s Side’**\
 `If the battle for Ukraine Is not World War I or World War III, what is it?`\
 https://nytimes.com/2026/02/26/opinion/russia-ukraine-drone-war.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/26/climate/antarcticas-mineral-riches-exposed-as-cli
 **They Wanted a Two-Bedroom in Queens, With Room to Grow, for Less Than $400,000**\
 `Seeking to put down roots in their community, a pair of newlyweds searched the co-ops of Jackson Heights and Elmhurst. Here’s what they found.`\
 https://nytimes.com/interactive/2026/02/26/realestate/queens-jackson-heights-elmhurst-apartments-sale.html
-
-**What Cultural or Family Traditions Are Important to You?**\
-`Asian cultures around the world are celebrating the Lunar New Year with a variety of rituals. How does tradition help you feel connected to your roots?`\
-https://nytimes.com/2026/02/26/learning/what-cultural-or-family-traditions-are-important-to-you.html
-
-**A.I. Complicates Old Internet Privacy Risks**\
-`Artificial intelligence is convenient and easy to use, but you should think about what you say to the chatbots.`\
-https://nytimes.com/2026/02/26/technology/personaltech/ai-complicates-old-internet-privacy-risks.html
-
-**When Chatbots Are Used to Plan Violence, Is There a Duty to Warn?**\
-`People are revealing sensitive personal information to A.I. chatbots — including plans to commit violent acts.`\
-https://nytimes.com/2026/02/26/technology/chatbots-duty-warn-police.html
-
-**Cornyn, Paxton, Hunt: It’s a Republican Showdown in Texas**\
-`Times Opinion convened a panel of state experts to weigh in on the Senate Republican primary.`\
-https://nytimes.com/interactive/2026/02/26/opinion/texas-senate-candidates.html
-
-**Israelis Are Waiting for War with Iran, Again**\
-`The national mood is somewhere between anxiety, resignation and anticipation as President Trump considers whether to attack Iran.`\
-https://nytimes.com/2026/02/26/world/middleeast/israel-iran-war.html
-
-**The New Space Race**\
-`Can NASA and Elon Musk get us to Mars and beyond?`\
-https://nytimes.com/2026/02/26/opinion/space-nasa-elon-musk.html
 
