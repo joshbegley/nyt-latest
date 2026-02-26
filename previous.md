@@ -1,3 +1,7 @@
+**​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
+`​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
+https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
+
 **The less remembered Antonio Conte outburst that foreshadowed Tottenham's plight**\
 `Conte may have been a bad fit for Spurs from the start, but he was on the money about the club's trajectory...`\
 https://nytimes.com/athletic/7069940/2026/02/26/the-lesser-remembered-antonio-conte-outburst-that-foreshadowed-tottenhams-current-plight/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070393/2026/02/26/scotland-fans-sporrans-world-cup
 **The Premier League goalkeeper who performed a DJ set straight after a match**\
 `The Star of Bethnal Green may not be where you’d expect to see a Premier League footballer perform on a Saturday`\
 https://nytimes.com/athletic/7070607/2026/02/26/premier-league-goalkeeper-dj/
-
-**The Alternative Premier League Table: No 28 – Late goals**\
-`This week's table looks at which teams are effective at scoring late goals, and which sides are susceptible to them`\
-https://nytimes.com/athletic/7070351/2026/02/26/the-alternative-premier-league-table-late-goals/
 

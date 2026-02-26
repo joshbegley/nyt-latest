@@ -1,3 +1,7 @@
+**​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
+`​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
+https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
+
 **The less remembered Antonio Conte outburst that foreshadowed Tottenham's plight**\
 `Conte may have been a bad fit for Spurs from the start, but he was on the money about the club's trajectory...`\
 https://nytimes.com/athletic/7069940/2026/02/26/the-lesser-remembered-antonio-conte-outburst-that-foreshadowed-tottenhams-current-plight/
