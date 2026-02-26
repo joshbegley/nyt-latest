@@ -1,3 +1,11 @@
+**Police Officer Accused of Tracking Partner Using License Plate Reader**\
+`The Milwaukee officer used the technology to run searches on his partner’s plates 124 times, officials said, and he also tracked the person’s ex.`\
+https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
+
+**Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
+`El miércoles, una lancha rápida matriculada en Florida entró en aguas cubanas y algunos de sus tripulantes intercambiaron disparos con tropas de Cuba. En 2022 ocurrieron dos enfrentamientos de este tipo.`\
+https://nytimes.com/2026/02/25/espanol/america-latina/cuba-lancha-estados-unidos-rubio.html
+
 **Trump’s Fantasy State of the Union**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
