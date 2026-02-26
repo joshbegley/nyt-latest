@@ -1,3 +1,15 @@
+**Russia Launches Major Attack Hours Before U.S.-Ukraine Talks**\
+`Russia unleashed a series of drone and missile strikes on Ukraine on Thursday, injuring at least 20 people and damaging buildings in eight different regions.`\
+https://nytimes.com/video/world/europe/100000010739658/russia-drone-attack-ukraine-us-negotiation.html
+
+**Edward L. Deci, 83, Dies; Found Self-Determination as a Key to Happiness**\
+`His work with his colleague Richard Ryan changed how psychologists understand human motivation and what people require to flourish.`\
+https://nytimes.com/2026/02/26/science/edward-l-deci-dead.html
+
+**Testimony Offers New Details on Justice Dept. Role in Abrego Garcia Prosecution**\
+`A top prosecutor, Robert E. McGuire, painted an extraordinary picture of senior Justice Department leaders peering over his shoulder and hurrying him along.`\
+https://nytimes.com/2026/02/26/us/kilmar-abrego-garcia-justice-department-trump.html
+
 **N.Y. Man With China Ties Charged With Marijuana Trafficking in Oklahoma**\
 `Sin Tung Chan was a member of a prominent hometown association in the city, one of hundreds of social clubs that often maintain close ties with the Chinese government.`\
 https://nytimes.com/2026/02/26/nyregion/nyc-china-hometown-oklahoma-marijuana.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/26/us/joanne-bland-dead.html
 **Dolphins top NFLPA's player survey, while Steelers finish last: Source**\
 `An arbitrator had ruled that the NFLPA could not publish survey results publicly, but could share them with the players and teams.`\
 https://nytimes.com/athletic/7074041/2026/02/26/nfl-nflpa-report-cards-2025-2026-survey-rankings/
-
-**Man United could pay up to £15.9m in Amorim exit compensation**\
-`It was reported at the time of Amorim's exit that United had paid around £10m as a compensation package to the Portuguese and his staff.`\
-https://nytimes.com/athletic/7074035/2026/02/26/man-united-amorim-compensation-news/
-
-**A Stolen Boat, a Deadly Gunfight and a Supposed Plot Against Cuba**\
-`The Cuban government’s account of a supposed armed raid into its territory was called into question after one of the men identified as being on the boat turned up in Miami.`\
-https://nytimes.com/2026/02/26/world/americas/cuba-gunfight-boat-miami.html
-
-**War or a Deal? U.S. and Iran Discuss What’s Next**\
-`Also, mortgage rates fall below 6 percent. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/02/26/briefing/us-iran-talks-hillary-clinton-epstein.html
 
