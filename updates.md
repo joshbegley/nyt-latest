@@ -1,3 +1,11 @@
+**Highland Refusal**\
+`Yitzi Snow makes his New York Times Crossword debut.`\
+https://nytimes.com/2026/02/25/crosswords/daily-puzzle-2026-02-26.html
+
+**UConn obliterates St. John's, stakes claim to No. 1 seed**\
+`St. John's did not score a basket over the final 17-plus minutes, missing 24 consecutive field goals in the 32-point loss to UConn. `\
+https://nytimes.com/athletic/7071711/2026/02/25/uconn-st-johns-tarris-reed-dan-hurley-rick-pitino/
+
 **Trump Administration Withholds $259 Million in Medicaid Funds From Minnesota**\
 `Vice President JD Vance said that the Trump administration had been forced to “turn the screws on” Minnesota so the state would respond to allegations of fraud.`\
 https://nytimes.com/2026/02/25/us/politics/medicaid-funds-minnesota.html
