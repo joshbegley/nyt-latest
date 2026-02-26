@@ -1,3 +1,7 @@
+**Colts QB Anthony Richardson requests trade: Sources**\
+`Richardson ended the 2025 season on injured reserve due to an orbital fracture he suffered due to a “freak accident” during pregame warmups.`\
+https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/
+
 **‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
 `Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most familiarly terrified faces, including Neve Campbell.`\
 https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
