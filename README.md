@@ -1,3 +1,11 @@
+**Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
+`Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
+https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
+
+**NCAA committee proposes changes to rules about targeting, uniform violations**\
+`Under the proposal, players penalized for targeting wouldn't be suspended for part of the next game if they are for first-time offenders.`\
+https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-suspension/
+
 **Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
 `The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
 https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-sh
 **Why U.S. Allies Are Lining Up to Meet China**\
 `Amid trade disputes with President Trump, leaders of major U.S. allies have been visiting China. Our foreign correspondent David Pierson describes what’s going on.`\
 https://nytimes.com/video/world/asia/100000010736191/why-us-allies-are-lining-up-to-meet-china.html
-
-**A Masterwork of Postmodern Dance, Performed at The New York Times**\
-`Watch the Trisha Brown Dance Company stage a snippet of the choreographer’s 1983 piece “Set and Reset.”`\
-https://nytimes.com/2026/02/26/t-magazine/trisha-brown-dance-company-performance-nyt-office.html
-
-**Live From the 10th Floor | Trisha Brown Dance Company**\
-`Dancers perform an excerpt of Trisha Brown’s “Set and Reset” (1983), with music by Laurie Anderson, in T Magazine’s office.`\
-https://nytimes.com/video/t-magazine/100000010730875/live-from-the-10th-floor-trisha-brown-dance-company.html
 
