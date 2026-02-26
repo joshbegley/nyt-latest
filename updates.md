@@ -1,3 +1,7 @@
+**Chicago Man Faces U.S. Charges in Woman’s Killing During Bali Trip**\
+`The man is accused of conspiring with his then girlfriend to kill her mother, whose body was stuffed in a suitcase. He spent 11 years in prison in Bali, Indonesia, on related charges.`\
+https://nytimes.com/2026/02/26/us/tommy-schaefer-bali-suitcase-murder-court.html
+
 **Wild gold medalists reflect on 'hectic' week, making sure they're ready for NHL return**\
 `The Wild's U.S. Olympians are ready to get back at it. Quinn Hughes: “I feel like we owe it to the Wild to make sure we’re at our best.”`\
 https://nytimes.com/athletic/7073904/2026/02/26/wild-gold-medalists-avalanche/
