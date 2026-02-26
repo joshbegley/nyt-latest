@@ -1,3 +1,11 @@
+**What Does NASA Know About Aliens?**\
+`Does NASA have files on aliens? Jared Isaacman says no, and tells Ross Douthat on “Interesting Times” that extraterrestrials would pick a more exciting locale to visit than America’s naval bases.`\
+https://nytimes.com/video/opinion/100000010726865/what-does-nasa-know-about-aliens.html
+
+**Fantasy basketball hot topics: Memphis' minutes crunch, Jonathan Kuminga's Atlanta debut**\
+`Stan Son addresses fantasy-relevant NBA news, including Memphis' minutes share, injuries and who to target on waivers. `\
+https://nytimes.com/athletic/7073894/2026/02/26/fantasy-basketball-hot-topics-memphis-minutes/
+
 **Scoop City: What actually matters at the combine?**\
 `The combine drills and metrics that matter for quarterbacks, receivers and other positions`\
 https://nytimes.com/athletic/7073861/2026/02/26/nfl-combine-what-metrics-matter/

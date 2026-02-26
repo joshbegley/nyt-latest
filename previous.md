@@ -1,3 +1,11 @@
+**What Does NASA Know About Aliens?**\
+`Does NASA have files on aliens? Jared Isaacman says no, and tells Ross Douthat on “Interesting Times” that extraterrestrials would pick a more exciting locale to visit than America’s naval bases.`\
+https://nytimes.com/video/opinion/100000010726865/what-does-nasa-know-about-aliens.html
+
+**Fantasy basketball hot topics: Memphis' minutes crunch, Jonathan Kuminga's Atlanta debut**\
+`Stan Son addresses fantasy-relevant NBA news, including Memphis' minutes share, injuries and who to target on waivers. `\
+https://nytimes.com/athletic/7073894/2026/02/26/fantasy-basketball-hot-topics-memphis-minutes/
+
 **Scoop City: What actually matters at the combine?**\
 `The combine drills and metrics that matter for quarterbacks, receivers and other positions`\
 https://nytimes.com/athletic/7073861/2026/02/26/nfl-combine-what-metrics-matter/
@@ -21,12 +29,4 @@ https://nytimes.com/video/world/europe/100000010739263/denmark-election-greenlan
 **The Minnesota Fraud Scandal and the Fallout, Explained**\
 `An inquiry into scams involving money slated for social services has deepened over the years. It also is at the center of several recent domestic decisions by the Trump administration.`\
 https://nytimes.com/2026/02/26/us/minnesota-welfare-fraud-scandal.html
-
-**Eight members of Team Cuba's WBC traveling party denied entry into U.S.**\
-`No players were denied entry and the team still plans to participate in the tournament, according to a WBC source.`\
-https://nytimes.com/athletic/7073941/2026/02/26/cuba-denied-entry-united-states-wbc/
-
-**Wings' Dylan Larkin reflects on Olympics victory, Trump call criticism**\
-`Among Dylan Larkin's Olympics memories: "How just crazy, stressful and intense" the gold medal game was.`\
-https://nytimes.com/athletic/7073912/2026/02/26/red-wings-dylan-larkin-olympic-gold-usa-women-trump/
 
