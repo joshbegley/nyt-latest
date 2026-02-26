@@ -1,3 +1,7 @@
+**After trading another defensive building block, what's next for the Jets?**\
+`A look at the team's options at edge rusher in light of the Jermaine Johnson trade.`\
+https://nytimes.com/athletic/7073576/2026/02/26/new-york-jets-jermaine-johnson-trade-edge-draft-free-agency/
+
 **PWHL 2025-26 playoff chances, projected standings and player ratings**\
 `Welcome to our 2025-26 PWHL projections where you will find each team’s projected point total and chances of winning the Walter Cup.`\
 https://nytimes.com/athletic/7070578/2026/02/26/pwhl-2025-26-playoff-chances-and-projected-standings/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/26/nyregion/epstein-cooperating-witnesses-redaction-
 **German Court Temporarily Removes an Extremist Label for the AfD**\
 `The domestic intelligence agency can still spy on the far-right party, and the ruling may not change Germans’ views, but it is a symbolic victory for the AfD.`\
 https://nytimes.com/2026/02/26/world/europe/germany-ruling-afd-extremist.html
-
-**From 'spat' to full-blown 'brawl': The sliding scale of on-pitch confrontations in football**\
-`After Chelsea and West Ham United were fined for their "mass confrontation", Tim Spiers explains the specific language around "bust-ups"`\
-https://nytimes.com/athletic/7072173/2026/02/26/from-spat-to-full-blown-brawl-the-sliding-scale-of-on-pitch-confrontations-in-football/
 
