@@ -1,3 +1,11 @@
+**What to Put in America’s Time Capsule?**\
+`The U.S. announced plans for a time capsule to be buried on July 4 and opened in 2276. Tell us what you think should be inside.`\
+https://nytimes.com/2026/02/26/briefing/what-to-put-in-americas-time-capsule.html
+
+**Vanguard Settles Case Claiming It Tried to Kill the Coal Industry**\
+`Republican-led states had accused financial firms of colluding against coal producers. Vanguard also agreed not to push for action to fight climate change.`\
+https://nytimes.com/2026/02/26/climate/vanguard-texas-coal-lawsuit-settlement.html
+
 **Anthropic Says Little Progress Made in Pentagon Talks Over A.I.**\
 `The Pentagon has imposed a Friday deadline over a demand that Anthropic provide unfettered access to its A.I. system without safeguards for military operations.`\
 https://nytimes.com/2026/02/26/technology/anthropic-pentagon-talks-ai.html

@@ -1,3 +1,11 @@
+**What to Put in America’s Time Capsule?**\
+`The U.S. announced plans for a time capsule to be buried on July 4 and opened in 2276. Tell us what you think should be inside.`\
+https://nytimes.com/2026/02/26/briefing/what-to-put-in-americas-time-capsule.html
+
+**Vanguard Settles Case Claiming It Tried to Kill the Coal Industry**\
+`Republican-led states had accused financial firms of colluding against coal producers. Vanguard also agreed not to push for action to fight climate change.`\
+https://nytimes.com/2026/02/26/climate/vanguard-texas-coal-lawsuit-settlement.html
+
 **Anthropic Says Little Progress Made in Pentagon Talks Over A.I.**\
 `The Pentagon has imposed a Friday deadline over a demand that Anthropic provide unfettered access to its A.I. system without safeguards for military operations.`\
 https://nytimes.com/2026/02/26/technology/anthropic-pentagon-talks-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
 **Trump’s Go-To Tactic in the State of the Union**\
 `Our reporter Zolan Kanno-Youngs examines the context of a moment in the State of the Union speech when President Trump turned to a favorite tactic on immigration.`\
 https://nytimes.com/video/us/politics/100000010732261/trumps-go-to-tactic-in-the-state-of-the-union.html
-
-**What Does NASA Know About Aliens?**\
-`Does NASA have files on aliens? Jared Isaacman says no, and tells Ross Douthat on “Interesting Times” that extraterrestrials would pick a more exciting locale to visit than America’s naval bases.`\
-https://nytimes.com/video/opinion/100000010726865/what-does-nasa-know-about-aliens.html
-
-**Fantasy basketball hot topics: Memphis' minutes crunch, Jonathan Kuminga's Atlanta debut**\
-`Stan Son addresses fantasy-relevant NBA news, including Memphis' minutes share, injuries and who to target on waivers. `\
-https://nytimes.com/athletic/7073894/2026/02/26/fantasy-basketball-hot-topics-memphis-minutes/
 

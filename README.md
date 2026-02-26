@@ -1,3 +1,7 @@
+**N.Y. Doctor’s Final Bid to Avoid Extradition to Japan Fails in Court**\
+`Dr. Masahide Kanayama could be sent to Japan next week to face charges that he vandalized ancient religious sites, federal prosecutors said.`\
+https://nytimes.com/2026/02/26/us/manhattan-doctor-extradition-japan.html
+
 **What to Put in America’s Time Capsule?**\
 `The U.S. announced plans for a time capsule to be buried on July 4 and opened in 2276. Tell us what you think should be inside.`\
 https://nytimes.com/2026/02/26/briefing/what-to-put-in-americas-time-capsule.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/jesse-jackson-chicago-repose-rainbow-push.html
 **Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
 `Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
 https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
-
-**Trump’s Go-To Tactic in the State of the Union**\
-`Our reporter Zolan Kanno-Youngs examines the context of a moment in the State of the Union speech when President Trump turned to a favorite tactic on immigration.`\
-https://nytimes.com/video/us/politics/100000010732261/trumps-go-to-tactic-in-the-state-of-the-union.html
 
