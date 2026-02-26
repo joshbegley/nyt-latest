@@ -1,3 +1,11 @@
+**The less remembered Antonio Conte outburst that foreshadowed Tottenham's plight**\
+`Conte may have been a bad fit for Spurs from the start, but he was on the money about the club's trajectory...`\
+https://nytimes.com/athletic/7069940/2026/02/26/the-lesser-remembered-antonio-conte-outburst-that-foreshadowed-tottenhams-current-plight/
+
+**Why Fulham could be prove key in Fantasy Premier League – and not just Harry Wilson**\
+`A strong run of fixtures, combined with great prices and consistent minutes for key players makes Marco Silva’s side a source of value`\
+https://nytimes.com/athletic/7068953/2026/02/26/fantasy-premier-league-tips-fpl-gameweek-28-fulham/
+
 **What's happened to Villa Park's atmosphere - and how can it be fixed?**\
 `Villa away supporters remain loud and unyielding, but working to enhance the sound of home fans is a growing issue facing the club`\
 https://nytimes.com/athletic/7067606/2026/02/26/whats-happened-to-villa-parks-atmosphere-and-how-can-it-be-fixed/

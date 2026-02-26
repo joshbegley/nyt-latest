@@ -1,3 +1,11 @@
+**The less remembered Antonio Conte outburst that foreshadowed Tottenham's plight**\
+`Conte may have been a bad fit for Spurs from the start, but he was on the money about the club's trajectory...`\
+https://nytimes.com/athletic/7069940/2026/02/26/the-lesser-remembered-antonio-conte-outburst-that-foreshadowed-tottenhams-current-plight/
+
+**Why Fulham could be prove key in Fantasy Premier League – and not just Harry Wilson**\
+`A strong run of fixtures, combined with great prices and consistent minutes for key players makes Marco Silva’s side a source of value`\
+https://nytimes.com/athletic/7068953/2026/02/26/fantasy-premier-league-tips-fpl-gameweek-28-fulham/
+
 **What's happened to Villa Park's atmosphere - and how can it be fixed?**\
 `Villa away supporters remain loud and unyielding, but working to enhance the sound of home fans is a growing issue facing the club`\
 https://nytimes.com/athletic/7067606/2026/02/26/whats-happened-to-villa-parks-atmosphere-and-how-can-it-be-fixed/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7070607/2026/02/26/premier-league-goalkeeper-dj/
 **The Alternative Premier League Table: No 28 – Late goals**\
 `This week's table looks at which teams are effective at scoring late goals, and which sides are susceptible to them`\
 https://nytimes.com/athletic/7070351/2026/02/26/the-alternative-premier-league-table-late-goals/
-
-**What is behind Liverpool's injury problems and how are they addressing them?**\
-`After a remarkably injury-free season last year, problems have piled up this year, causing another headache for Arne Slot`\
-https://nytimes.com/athletic/7070659/2026/02/26/liverpool-injuries-premier-league-reasons/
-
-**Penalty-saving king Diogo Costa: 'It's instinct, having the nose for it, feeling what a player is going to do'**\
-`The Porto goalkeeper speaks to The Athletic about his career, World Cup hopes and honouring the memory of Diogo Jota`\
-https://nytimes.com/athletic/7067583/2026/02/26/diogo-costa-interview-porto-portugal/
 
