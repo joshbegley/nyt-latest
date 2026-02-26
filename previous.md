@@ -1,3 +1,11 @@
+**An Inside Look at the State of the Union**\
+`Our photojournalist Kenny Holston was the only news photographer on the House floor during President Trump’s State of the Union speech. Here’s how he captured his images.`\
+https://nytimes.com/video/us/100000010725890/an-inside-look-at-the-state-of-the-union.html
+
+**Champions League Briefing: Vinicius keeps dancing (and scoring). What were PSG fans thinking with Hakimi banner?**\
+`A week after alleged racist abuse, Vinicius steered Real Madrid into the last 16, while Atalanta fought back to keep the Italy flag flying`\
+https://nytimes.com/athletic/7070828/2026/02/25/vinicius-real-madrid-benfica-champions-league-psg-hakimi-banner/
+
 **Ilhan Omar Condemns Arrest of State of the Union Guest**\
 `Aliya Rahman, a U.S. citizen who was dragged from her vehicle after an ICE agent shattered its window, was charged with unlawful conduct after standing up during President Trump’s speech.`\
 https://nytimes.com/2026/02/25/us/politics/ilhan-omar-state-of-the-union-arrest.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-ga
 https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html
 
 **Panthers tell Andy Dalton there will be competition for backup QB job**\
-`The Panthers have fielded calls about Dalton and could create $2.2 million in salary cap space by trading the 38-year-old quarterback.`\
+`The Panthers have fielded calls about Dalton and could create $2.2 million in salary-cap space by trading the 38-year-old quarterback.`\
 https://nytimes.com/athletic/7071237/2026/02/25/andy-dalton-panthers-backup-qb-competition-trade/
 
 **Taj Bradley to stay with Twins, won't pitch for Team Mexico in World Baseball Classic**\
 `Bradley informed Team Mexico he won't pitch in the WBC, citing personal reasons and a commitment to the Twins after Pablo López's injury.`\
 https://nytimes.com/athletic/7071065/2026/02/25/taj-bradley-twins-wbc-opt-out-joe-ryan-kody-funderburk/
-
-**Trump’s Surgeon General Pick Sidesteps Questions on Vaccines**\
-`Also, the Cuban Government says it killed four people aboard a U.S. boat. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/02/25/briefing/trump-surgeon-general-pick-cuba-boat-shooting.html
-
-**PreCheck Is Back, but Global Entry Is Paused. What’s Going On?**\
-`Blaming a partial government shutdown, officials suspended the expedited arrival program this week, but some travelers are seeing inconsistencies at airports.`\
-https://nytimes.com/2026/02/25/travel/tsa-precheck-global-entry-2026-updates.html
 
