@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Feb. 26, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
+
+**Japan Is Redefining Its Place in the World**\
+`Sanae Takaichi’s political rise presages a stronger Japan that could reshape the strategic balance in Asia and help deter Chinese aggression.`\
+https://nytimes.com/2026/02/26/opinion/japan-us-defense-military.html
+
 **​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
 `​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
 https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7070785/2026/02/26/vitor-pereira-olympiacos-marinak
 **Arsenal vs Manchester City: Analysing the Premier League title race**\
 `Five points separate City from league leaders Arsenal, and Guardiola's side have a game in hand. We have a serious title race on our hands`\
 https://nytimes.com/athletic/7070461/2026/02/26/arsenal-man-city-premier-league-title-race/
-
-**Why sporrans are so vital for Scotland fans at the 2026 World Cup**\
-`FIFA have announced that sporrans — for those who don’t know, the small pouches worn around the waist — will be allowed at the World Cup`\
-https://nytimes.com/athletic/7070393/2026/02/26/scotland-fans-sporrans-world-cup-fifa/
-
-**The Premier League goalkeeper who performed a DJ set straight after a match**\
-`The Star of Bethnal Green may not be where you’d expect to see a Premier League footballer perform on a Saturday`\
-https://nytimes.com/athletic/7070607/2026/02/26/premier-league-goalkeeper-dj/
 

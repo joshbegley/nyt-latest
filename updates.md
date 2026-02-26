@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Feb. 26, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
+
+**Japan Is Redefining Its Place in the World**\
+`Sanae Takaichi’s political rise presages a stronger Japan that could reshape the strategic balance in Asia and help deter Chinese aggression.`\
+https://nytimes.com/2026/02/26/opinion/japan-us-defense-military.html
+
 **​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
 `​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
 https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
