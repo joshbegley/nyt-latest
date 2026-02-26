@@ -1,3 +1,15 @@
+**'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
+`Charlie McAvoy has endured injury, infection, family concerns and more injury over the past year.`\
+https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
+
+**Arsenal's Smith withdraws from SheBelieves Cup with Canada due to concussion**\
+`Smith was set to face Colombia, the USWNT and Argentina in the week-long SheBelieves Cup tournament that starts on Sunday.`\
+https://nytimes.com/athletic/7065420/2026/02/26/arsenal-olivia-smith-injury-canada-concussion-update/
+
+**Promise David's injury starts a World Cup roster domino effect for Canada**\
+`The forward's hip injury could complicate things for Jesse Marsch, who envisioned David as a game-changing option off the bench`\
+https://nytimes.com/athletic/7072940/2026/02/26/promise-david-injury-canada-world-cup-roster/
+
 **Italian golfer injured after falling down elevator shaft before South African Open**\
 `The 36-year-old suffered the freak accident at his private accommodation on Wednesday.`\
 https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-shaft-fall/
@@ -19,22 +31,10 @@ https://nytimes.com/video/t-magazine/100000010730875/live-from-the-10th-floor-tr
 https://nytimes.com/2026/02/26/us/politics/judge-white-house-ballroom-trump.html
 
 **A Creamy Salad Dressing That Will Change Your Life**\
-`The chefs of a wildly popular modern izakaya in California share their secret to a dead-simple sauce that makes you feel great.`\
+`The chefs of a popular modern izakaya in California share their secret to a sauce that makes you feel great.`\
 https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
 
 **At Jil Sander, It Could All Be So Simple**\
 `Simone Bellotti continues to make the case for brainy minimalism. Also, some memorable Moncler jackets and an Italian signore with unforgettable style.`\
 https://nytimes.com/2026/02/26/style/at-jil-sander-it-could-all-be-so-simple.html
-
-**How to Use One 6-Ounce Can of Tomato Paste Across a Week of Dinners**\
-`Ras el hanout chickpea and spinach stew, three-bean soup and spiced tomato and eggplant pasta leave no tomato paste behind.`\
-https://nytimes.com/2026/02/26/dining/how-to-use-one-6-ounce-can-of-tomato-paste-across-a-week-of-dinners.html
-
-**How to Measure Real Progress in Education**\
-`Randi Weingarten, president of the American Federation of Teachers, and others respond to a Nicholas Kristof column. Also: Reagan’s warning about nuclear weapons; aging doctors.`\
-https://nytimes.com/2026/02/26/opinion/public-school-education.html
-
-**Brentford head coach Keith Andrews signs new six-year contract**\
-`Andrews, 45, has outperformed expectations with Brentford seventh in the table, only five points behind Chelsea in fifth place.`\
-https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentford-contract/
 
