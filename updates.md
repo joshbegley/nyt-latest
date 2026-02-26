@@ -1,3 +1,7 @@
+**Sorry, SpaceX: It’s Getting Too Crowded Up There**\
+`Elon Musk wants to launch a million satellites, but researchers say global warming is changing the upper atmosphere in ways that makes space junk linger.`\
+https://nytimes.com/2026/02/26/climate/spacex-climate-musk-orbiting-data-centers.html
+
 **Premier League trialling direct-to-consumer streaming in Singapore**\
 `“Will it be replicable elsewhere? That’s what we’re going to find out,” league CEO Richard Masters said on Thursday.`\
 https://nytimes.com/athletic/7072894/2026/02/26/premier-league-streaming-premflix-singapore/
