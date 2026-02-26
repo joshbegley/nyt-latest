@@ -1,3 +1,7 @@
+**A Diamond's Local Legacy and Impact**\
+`Against a backdrop of ethical scrutiny, the diamond industry has been growing its legacy through social impact and sustainability.`\
+https://nytimes.com/paidpost/de-beers/a-diamonds-local-legacy-and-impact.html
+
 **The Pulse: The best freshman class ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7071018/2026/02/26/freshman-class-dybantsa-peterson-boozer-the-pulse/
