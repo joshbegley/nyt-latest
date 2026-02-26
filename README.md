@@ -1,3 +1,7 @@
+**7 New Books We Recommend This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/02/26/books/review/new-recommended-books.html
+
 **What Teenagers Are Saying About Limiting A’s to Curb Grade Inflation**\
 `Students react to Harvard’s proposal to cap the number of A’s professors can award in an effort to make top grades more meaningful.`\
 https://nytimes.com/2026/02/26/learning/what-teenagers-are-saying-about-limiting-as-to-curb-grade-inflation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7072173/2026/02/26/from-spat-to-full-blown-brawl-th
 **'Best moment in my life': Zach Werenski, back with Blue Jackets, still reveling in Olympic gold**\
 `Werenski also discussed honoring Johnny Gaudreau and the controversy involving President Donald Trump's comments.`\
 https://nytimes.com/athletic/7073155/2026/02/26/werenski-olympics-usa-blue-jackets/
-
-**Birds Aren’t Just Declining. They’re Declining Faster, a New Study Finds.**\
-`Scientists studying data collected over more than three decades found accelerating losses. Their research offers clues about the causes.`\
-https://nytimes.com/2026/02/26/climate/bird-declines.html
 
