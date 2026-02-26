@@ -2,8 +2,8 @@
 `The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
 https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
 
-**Yankees to retire CC Sabathia's number, add plaque to Monument Park**\
-`No other Yankee will wear Sabathia's No. 52. `\
+**Yankees to retire CC Sabathia's No. 52, add plaque to Monument Park**\
+`The left-hander will be the 24th Yankee player or manager to have their number retired. He had a 134-88 record in 11 seasons in New York.`\
 https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
 
 **Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\

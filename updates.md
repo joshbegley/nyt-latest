@@ -1,3 +1,7 @@
+**Yankees to retire CC Sabathia's No. 52, add plaque to Monument Park**\
+`The left-hander will be the 24th Yankee player or manager to have their number retired. He had a 134-88 record in 11 seasons in New York.`\
+https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
+
 **Trump’s State of the Union Was a Win for Democrats**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
