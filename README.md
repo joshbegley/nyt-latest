@@ -1,3 +1,11 @@
+**Why Nvidia’s Big Profits Aren’t Lifting Markets**\
+`The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
+https://nytimes.com/2026/02/26/business/dealbook/nvidias-ai-markets.html
+
+**Revel, a Maker of Software for Running Hardware, Raises $150 Million**\
+`The start-up, founded by a former top SpaceX engineer, promises to help companies reduce their testing times and optimize systems.`\
+https://nytimes.com/2026/02/26/business/dealbook/revel-software-hardware-fund-raise.html
+
 **Nebraska's offseason has been low on hype. But its new coaches inspired confidence Wednesday**\
 `There's less fanfare around Nebraska this spring after an end to the 2025 season marked by four losses in five games.`\
 https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-spring-practices/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7071517/2026/02/26/wnba-cba-agreement-spring-free-a
 **Ausar Thompson is the Pistons' floor-raising, defensive dynamo**\
 `Cade Cunningham and Jalen Duren are Detroit's two best players. But Thompson showed against the Thunder why he's the biggest X-factor.`\
 https://nytimes.com/athletic/7072010/2026/02/26/ausar-thompson-pistons-defense-thunder-win/
-
-**Olympic hero Jack Hughes reflects on Team USA experience, criticism and the Devils**\
-`During a pregame ceremony in his honor and then again after Wednesday night's Devils loss to the Buffalo Sabres, Hughes opened up.`\
-https://nytimes.com/athletic/7071929/2026/02/26/jack-hughes-olympics-team-usa-criticism-devils/
-
-**Red Bull executive calls Klopp departure rumours 'complete nonsense'**\
-`The former Liverpool head coach has been Red Bull's global head of soccer since January 2025.`\
-https://nytimes.com/athletic/7072227/2026/02/26/jurgen-klopp-red-bull-future-latest/
 

@@ -1,3 +1,15 @@
+**Nebraska's offseason has been low on hype. But its new coaches inspired confidence Wednesday**\
+`There's less fanfare around Nebraska this spring after an end to the 2025 season marked by four losses in five games.`\
+https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-spring-practices/
+
+**Trump Administration Live Updates: U.S. and Iran Resume Nuclear Talks as Risk of War Looms**\
+``\
+https://nytimes.com/live/2026/02/26/us/trump-iran-epstein-clinton
+
+**For America’s 250th Year, a Time Capsule to Stay Buried for 250 More**\
+`The federal group organizing the upcoming Semiquincentennial unveiled details of a vessel to be placed near Independence Hall on July 4 and opened in 2276.`\
+https://nytimes.com/2026/02/26/arts/time-capsule-america-250.html
+
 **Why was Lloyd Kelly's Champions League yellow card controversially upgraded to a red?**\
 `The Juventus defender's dismissal against Galatasaray was curious`\
 https://nytimes.com/athletic/7072230/2026/02/26/lloyd-kelly-red-card-explainer-champions-league-juventus/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7071929/2026/02/26/jack-hughes-olympics-team-usa-cr
 **Red Bull executive calls Klopp departure rumours 'complete nonsense'**\
 `The former Liverpool head coach has been Red Bull's global head of soccer since January 2025.`\
 https://nytimes.com/athletic/7072227/2026/02/26/jurgen-klopp-red-bull-future-latest/
-
-**Jaylen Brown likes where the Celtics are as a team despite loss to Nuggets**\
-`Boston ran out of gas in the second half of its last game on a swing through the West. But its top two players are hardly discouraged.`\
-https://nytimes.com/athletic/7072058/2026/02/26/jaylen-brown-celtics-loss-nuggets/
-
-**The Economy Is a Feeling**\
-`Today, we’re looking at how politicians are framing affordability.`\
-https://nytimes.com/2026/02/26/briefing/the-economy-is-a-feeling.html
-
-**World Economic Forum President Resigns Over Epstein Ties**\
-`Borge Brende, a former foreign minister of Norway, had maintained contact with the disgraced sex offender.`\
-https://nytimes.com/2026/02/26/business/world-economic-forum-davos-epstein-brende.html
 

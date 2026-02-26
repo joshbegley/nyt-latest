@@ -1,3 +1,15 @@
+**Nebraska's offseason has been low on hype. But its new coaches inspired confidence Wednesday**\
+`There's less fanfare around Nebraska this spring after an end to the 2025 season marked by four losses in five games.`\
+https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-spring-practices/
+
+**Trump Administration Live Updates: U.S. and Iran Resume Nuclear Talks as Risk of War Looms**\
+``\
+https://nytimes.com/live/2026/02/26/us/trump-iran-epstein-clinton
+
+**For America’s 250th Year, a Time Capsule to Stay Buried for 250 More**\
+`The federal group organizing the upcoming Semiquincentennial unveiled details of a vessel to be placed near Independence Hall on July 4 and opened in 2276.`\
+https://nytimes.com/2026/02/26/arts/time-capsule-america-250.html
+
 **Why was Lloyd Kelly's Champions League yellow card controversially upgraded to a red?**\
 `The Juventus defender's dismissal against Galatasaray was curious`\
 https://nytimes.com/athletic/7072230/2026/02/26/lloyd-kelly-red-card-explainer-champions-league-juventus/
