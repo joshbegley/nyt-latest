@@ -1,3 +1,7 @@
+**Yankees to retire CC Sabathia's number, add plaque to Monument Park**\
+`No other Yankee will wear Sabathia's No. 52. `\
+https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
+
 **Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\
 `The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school” when a student objected to the possible closure of a middle school. The remark was assailed as racist.`\
 https://nytimes.com/2026/02/25/nyregion/hunter-college-professor-allyson-friedman-racist-remarks.html
