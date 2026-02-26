@@ -1,3 +1,7 @@
+**‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most familiarly terrified faces, including Neve Campbell.`\
+https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
+
 **Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
 `The FAI say game will "provide tangible support for humanitarian efforts assisting civilians affected by the conflict" in the Middle East.`\
 https://nytimes.com/athletic/7072695/2026/02/26/ireland-israel-dublin-nations-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/the-docket-tariff-warning.html
 **Hurzeler: Ferguson could undergo surgery to deal with ankle injury**\
 `Ferguson, 21, is on loan at Roma and spent time back at Brighton for an initial assessment of the injury.`\
 https://nytimes.com/athletic/7072178/2026/02/26/evan-ferguson-brighton-roma-injury/
-
-**Vonn is owning her Olympic trauma. It could be a gamechanger**\
-`The U.S. Winter Olympian's decision to reveal all about her horrific leg injuries has given her agency - and could even aid her recovery`\
-https://nytimes.com/athletic/7072617/2026/02/26/lindsey-vonn-injury-update/
 

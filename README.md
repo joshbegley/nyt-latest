@@ -1,3 +1,7 @@
+**Colts QB Anthony Richardson requests trade: Sources**\
+`Richardson ended the 2025 season on injured reserve due to an orbital fracture he suffered due to a “freak accident” during pregame warmups.`\
+https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/
+
 **‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
 `Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most familiarly terrified faces, including Neve Campbell.`\
 https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/world/americas/caracas-venezuela-economy.html
 **Justice Gorsuch’s Tariffs Warning**\
 `Granting a president new power is easy, he said. But taking it back is almost impossible.`\
 https://nytimes.com/2026/02/26/us/politics/the-docket-tariff-warning.html
-
-**Hurzeler: Ferguson could undergo surgery to deal with ankle injury**\
-`Ferguson, 21, is on loan at Roma and spent time back at Brighton for an initial assessment of the injury.`\
-https://nytimes.com/athletic/7072178/2026/02/26/evan-ferguson-brighton-roma-injury/
 

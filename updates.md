@@ -1,3 +1,7 @@
+**‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most familiarly terrified faces, including Neve Campbell.`\
+https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
+
 **Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
 `The FAI say game will "provide tangible support for humanitarian efforts assisting civilians affected by the conflict" in the Middle East.`\
 https://nytimes.com/athletic/7072695/2026/02/26/ireland-israel-dublin-nations-league/
