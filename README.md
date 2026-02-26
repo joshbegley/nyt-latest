@@ -1,3 +1,7 @@
+**No. 8 Michigan tops No. 13 Ohio State in OT: What it means for stretch run**\
+`Wednesday's thriller wasn't the cleanest game in rivalry, but it held postseason implications for both Wolverines and Buckeyes.`\
+https://nytimes.com/athletic/7071825/2026/02/25/michigan-ohio-state-women-overtime/
+
 **Joe Gibbs Racing's former competition director offers spirited defense in lawsuit**\
 `The awkward breakup of the racing team and its former competition director took a new turn on Wednesday.`\
 https://nytimes.com/athletic/7071584/2026/02/25/joe-gibbs-racing-chris-gabehart-spire-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7067938/2026/02/25/denis-bouanga-lafc-contract-exte
 **Canucks' Tyler Myers to sit against Jets for trade reasons: Sources**\
 `Vancouver said the defenseman, who has a full no-move clause, will be held out of the lineup Wednesday night for roster management reasons.`\
 https://nytimes.com/athletic/7071549/2026/02/25/canucks-tyler-myers-potential-trade/
-
-**Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
-`The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
-https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
 
