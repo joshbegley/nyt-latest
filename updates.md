@@ -1,3 +1,7 @@
+**No. 8 Michigan tops No. 13 Ohio State in OT: What it means for postseason**\
+`Wednesday's thriller between the Wolverines and Buckeyes wasn't the cleanest game in rivalry, but it was certainly entertaining.`\
+https://nytimes.com/athletic/7071825/2026/02/25/michigan-ohio-state-women-overtime/
+
 **Joe Gibbs Racing's former competition director offers spirited defense in lawsuit**\
 `The awkward breakup of the racing team and its former competition director took a new turn on Wednesday.`\
 https://nytimes.com/athletic/7071584/2026/02/25/joe-gibbs-racing-chris-gabehart-spire-lawsuit/
