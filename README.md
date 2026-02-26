@@ -1,3 +1,7 @@
+**The Latest New Zealander to Move to Australia Is an Ex-Prime Minister**\
+`Jacinda Ardern, New Zealand’s former leader, is basing her family in Australia “for the moment,” a spokesman said. She is part of a wave of Kiwis relocating to their larger neighbor.`\
+https://nytimes.com/2026/02/26/world/australia/new-zealand-jacinda-ardern-australia.html
+
 **Dubai of the Caribbean, With Crypto? Locals Aren’t Buying It.**\
 `A Bitcoin baron wants to build a libertarian paradise on the island of Nevis. Democracy is getting in the way.`\
 https://nytimes.com/2026/02/26/business/st-kitts-nevis-destiny-olivier-janssens-crypto-libertarian.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-sp
 **Trump Administration Live Updates: U.S. and Iran Resume Nuclear Talks as Risk of War Looms**\
 ``\
 https://nytimes.com/live/2026/02/26/us/trump-iran-epstein-clinton
-
-**For America’s 250th Year, a Time Capsule to Stay Buried for 250 More**\
-`The federal group organizing the upcoming Semiquincentennial unveiled details of a vessel to be placed near Independence Hall on July 4 and opened in 2276.`\
-https://nytimes.com/2026/02/26/arts/time-capsule-america-250.html
 
