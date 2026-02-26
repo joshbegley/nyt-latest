@@ -1,3 +1,7 @@
+**China Wants Germany in Its Corner. It’s Not That Easy.**\
+`China’s play for U.S. allies has a problem: As Germany’s leader showed, Europe’s grievances with Beijing may run deeper than its frustration with Trump.`\
+https://nytimes.com/2026/02/26/world/asia/merz-china-analysis.html
+
 **Letting the Fur Fly at Fendi**\
 `Maria Grazia Chiuri makes her debut, and courts controversy. Sort of.`\
 https://nytimes.com/2026/02/26/style/fendi-maria-grazia-chiuri-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/learning/word-of-the-day-benevolent.html
 **Max Scherzer agrees to 1-year, $3 million deal with Blue Jays: Source**\
 `The 41-year-old performed at a high level with three solid postseason starts amid Toronto's quest for a World Series title in 2025.`\
 https://nytimes.com/athletic/6792113/2026/02/26/max-scherzer-blue-jays-mlb-free-agency/
-
-**Quenneville coaches 1,000th regular-season win, joins Bowman in elite company**\
-`Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
-https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
 

@@ -1,3 +1,7 @@
+**China Wants Germany in Its Corner. It’s Not That Easy.**\
+`China’s play for U.S. allies has a problem: As Germany’s leader showed, Europe’s grievances with Beijing may run deeper than its frustration with Trump.`\
+https://nytimes.com/2026/02/26/world/asia/merz-china-analysis.html
+
 **What We Know About the Gun Battle Off the Coast of Cuba**\
 `Four armed Cubans aboard a Florida-based speedboat died in a gunfight with Cuban border troops on Wednesday, officials said.`\
 https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
