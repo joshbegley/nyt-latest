@@ -1,3 +1,7 @@
+**Spurs' Porro and Danso both available for Fulham trip, Tudor says**\
+`Both players have been sidelined since January, leading to midfielders Archie Gray and Joao Palhinha covering in defence.`\
+https://nytimes.com/athletic/7072478/2026/02/26/porro-danso-tottenham-injury-update/
+
 **Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
 `"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
 https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadli
 **All these Bulls losses are weighing on Matas Buzelis**\
 `The second-year forward's normally unwavering confidence has been shaken by Chicago's roster overhaul and 10-game skid.`\
 https://nytimes.com/athletic/7072269/2026/02/26/matas-buzelis-bulls-losing/
-
-**Why Nvidia’s Big Profits Aren’t Lifting Markets**\
-`The chip giant at the center of the artificial intelligence boom again beat expectations. But it didn’t overcome investor jitters.`\
-https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
 

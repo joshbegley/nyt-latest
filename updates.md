@@ -1,3 +1,7 @@
+**Spurs' Porro and Danso both available for Fulham trip, Tudor says**\
+`Both players have been sidelined since January, leading to midfielders Archie Gray and Joao Palhinha covering in defence.`\
+https://nytimes.com/athletic/7072478/2026/02/26/porro-danso-tottenham-injury-update/
+
 **Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
 `"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
 https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
