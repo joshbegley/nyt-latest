@@ -1,3 +1,11 @@
+**Star forward Bouanga, LAFC agree to contract extension**\
+`Bouanga had been the subject of transfer interest both in and out of MLS, but the LAFC star is set to stay put`\
+https://nytimes.com/athletic/7067938/2026/02/25/denis-bouanga-lafc-contract-extension/
+
+**Canucks' Tyler Myers to sit against Jets for trade reasons: Sources**\
+`Vancouver said the defenseman, who has a full no-move clause, will be held out of the lineup Wednesday night for roster management reasons.`\
+https://nytimes.com/athletic/7071549/2026/02/25/canucks-tyler-myers-potential-trade/
+
 **Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
 `The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
 https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
 **An Inside Look at the State of the Union**\
 `Our photojournalist Kenny Holston was the only news photographer on the House floor during President Trump’s State of the Union speech. Here’s how he captured his images.`\
 https://nytimes.com/video/us/100000010725890/an-inside-look-at-the-state-of-the-union.html
-
-**Champions League Briefing: Vinicius keeps dancing (and scoring). What were PSG fans thinking with Hakimi banner?**\
-`A week after alleged racist abuse, Vinicius steered Real Madrid into the last 16, while Atalanta fought back to keep the Italy flag flying`\
-https://nytimes.com/athletic/7070828/2026/02/25/vinicius-real-madrid-benfica-champions-league-psg-hakimi-banner/
-
-**Ilhan Omar Condemns Arrest of State of the Union Guest**\
-`Aliya Rahman, a U.S. citizen who was dragged from her vehicle after an ICE agent shattered its window, was charged with unlawful conduct after standing up during President Trump’s speech.`\
-https://nytimes.com/2026/02/25/us/politics/ilhan-omar-state-of-the-union-arrest.html
 

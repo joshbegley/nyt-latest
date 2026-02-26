@@ -1,3 +1,11 @@
+**Star forward Bouanga, LAFC agree to contract extension**\
+`Bouanga had been the subject of transfer interest both in and out of MLS, but the LAFC star is set to stay put`\
+https://nytimes.com/athletic/7067938/2026/02/25/denis-bouanga-lafc-contract-extension/
+
+**Canucks' Tyler Myers to sit against Jets for trade reasons: Sources**\
+`Vancouver said the defenseman, who has a full no-move clause, will be held out of the lineup Wednesday night for roster management reasons.`\
+https://nytimes.com/athletic/7071549/2026/02/25/canucks-tyler-myers-potential-trade/
+
 **Yankees to retire CC Sabathia's No. 52, add plaque to Monument Park**\
 `The left-hander will be the 24th Yankee player or manager to have their number retired. He had a 134-88 record in 11 seasons in New York.`\
 https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
