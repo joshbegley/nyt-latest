@@ -1,3 +1,11 @@
+**Late Night Fixates on How Long Trump Spoke**\
+`“This time, Trump spoke and everyone else fell asleep,” Jimmy Fallon said.`\
+https://nytimes.com/2026/02/26/arts/television/late-night-trump-speech.html
+
+**How a company is using AI to help solve a lack of data and resources in women's football**\
+`Twelve Football is working to use the limited data available in the women's game to grow the sport with AI`\
+https://nytimes.com/athletic/7054513/2026/02/26/ai-womens-football-resources/
+
 **Hamster Wheel**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/02/26/learning/hamster-wheel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins
 **The New York Times in Print for Thursday, Feb. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
-
-**Japan Is Redefining Its Place in the World**\
-`Sanae Takaichi’s political rise presages a stronger Japan that could reshape the strategic balance in Asia and help deter Chinese aggression.`\
-https://nytimes.com/2026/02/26/opinion/japan-us-defense-military.html
-
-**​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
-`​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
-https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
 

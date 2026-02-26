@@ -1,3 +1,11 @@
+**Late Night Fixates on How Long Trump Spoke**\
+`“This time, Trump spoke and everyone else fell asleep,” Jimmy Fallon said.`\
+https://nytimes.com/2026/02/26/arts/television/late-night-trump-speech.html
+
+**How a company is using AI to help solve a lack of data and resources in women's football**\
+`Twelve Football is working to use the limited data available in the women's game to grow the sport with AI`\
+https://nytimes.com/athletic/7054513/2026/02/26/ai-womens-football-resources/
+
 **Hamster Wheel**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/02/26/learning/hamster-wheel.html
