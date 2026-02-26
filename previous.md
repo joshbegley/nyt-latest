@@ -1,9 +1,25 @@
+**Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
+`Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
+https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
+
+**NCAA committee proposes changes to rules about targeting, uniform violations**\
+`Under the proposal, players penalized for targeting wouldn't be suspended for part of the next game if they are for first-time offenders.`\
+https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-suspension/
+
+**Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
+`The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
+https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
+
+**ICE Car Chase Leads to Crash Involving Children, Newark Mayor Says**\
+`The crash happened on Wednesday morning, Mayor Ras Baraka said, as federal immigration agents were pursuing a man driving a van.`\
+https://nytimes.com/2026/02/26/nyregion/ice-car-crash-newark-baraka.html
+
 **Clinton Halts Epstein Deposition After Republican Leaks Photo of Her Testifying**\
 `Hillary Clinton, the former secretary of state, had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
 https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
 
 **'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
-`Charlie McAvoy has endured injury, infection, family concerns and more injury over the past year.`\
+`McAvoy has endured injury, infection, family concerns and more injury over the past year — and come through it a gold-medal winner.`\
 https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
 
 **Arsenal's Smith withdraws from SheBelieves Cup with Canada due to concussion**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-sh
 **Why U.S. Allies Are Lining Up to Meet China**\
 `Amid trade disputes with President Trump, leaders of major U.S. allies have been visiting China. Our foreign correspondent David Pierson describes what’s going on.`\
 https://nytimes.com/video/world/asia/100000010736191/why-us-allies-are-lining-up-to-meet-china.html
-
-**A Masterwork of Postmodern Dance, Performed at The New York Times**\
-`Watch the Trisha Brown Dance Company stage a snippet of the choreographer’s 1983 piece “Set and Reset.”`\
-https://nytimes.com/2026/02/26/t-magazine/trisha-brown-dance-company-performance-nyt-office.html
-
-**Live From the 10th Floor | Trisha Brown Dance Company**\
-`Dancers perform an excerpt of Trisha Brown’s “Set and Reset” (1983), with music by Laurie Anderson, in T Magazine’s office.`\
-https://nytimes.com/video/t-magazine/100000010730875/live-from-the-10th-floor-trisha-brown-dance-company.html
-
-**Judge Declines to Halt Construction on Trump’s East Wing Ballroom Project**\
-`A federal judge ruled that a lawsuit challenging the project needed to be revised before he could consider the larger questions it presented.`\
-https://nytimes.com/2026/02/26/us/politics/judge-white-house-ballroom-trump.html
-
-**A Creamy Salad Dressing That Will Change Your Life**\
-`The chefs of a popular modern izakaya in California share their secret to a sauce that makes you feel great.`\
-https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
 

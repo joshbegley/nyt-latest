@@ -1,3 +1,7 @@
+**Pochettino addresses his stance on political issues, Tottenham return links**\
+`Pochettino was asked about a number of topics in a Spanish radio interview, including a potential return to Spurs`\
+https://nytimes.com/athletic/7073292/2026/02/26/mauricio-pochettino-ice-trump-politics-tottenham-usmnt-world-cup/
+
 **Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
 `Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
 https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
@@ -14,8 +18,8 @@ https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.htm
 `The crash happened on Wednesday morning, Mayor Ras Baraka said, as federal immigration agents were pursuing a man driving a van.`\
 https://nytimes.com/2026/02/26/nyregion/ice-car-crash-newark-baraka.html
 
-**Clinton Halts Epstein Deposition After Republican Leaks Photo of Her Testifying**\
-`Hillary Clinton, the former secretary of state, had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
+**Hillary Clinton’s Deposition on Epstein Disrupted by Leak of Photo of Her Testifying**\
+`The former secretary of state had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
 https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
 
 **'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072940/2026/02/26/promise-david-injury-canada-worl
 **Italian golfer injured after falling down elevator shaft before South African Open**\
 `The 36-year-old suffered the freak accident at his private accommodation on Wednesday.`\
 https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-shaft-fall/
-
-**Why U.S. Allies Are Lining Up to Meet China**\
-`Amid trade disputes with President Trump, leaders of major U.S. allies have been visiting China. Our foreign correspondent David Pierson describes what’s going on.`\
-https://nytimes.com/video/world/asia/100000010736191/why-us-allies-are-lining-up-to-meet-china.html
 

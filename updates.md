@@ -1,3 +1,23 @@
+**Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
+`Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
+https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
+
+**NCAA committee proposes changes to rules about targeting, uniform violations**\
+`Under the proposal, players penalized for targeting wouldn't be suspended for part of the next game if they are for first-time offenders.`\
+https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-suspension/
+
+**Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
+`The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
+https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
+
+**ICE Car Chase Leads to Crash Involving Children, Newark Mayor Says**\
+`The crash happened on Wednesday morning, Mayor Ras Baraka said, as federal immigration agents were pursuing a man driving a van.`\
+https://nytimes.com/2026/02/26/nyregion/ice-car-crash-newark-baraka.html
+
+**'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
+`McAvoy has endured injury, infection, family concerns and more injury over the past year — and come through it a gold-medal winner.`\
+https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
+
 **Clinton Halts Epstein Deposition After Republican Leaks Photo of Her Testifying**\
 `Hillary Clinton, the former secretary of state, had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
 https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
