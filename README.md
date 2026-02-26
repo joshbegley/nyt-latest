@@ -1,3 +1,7 @@
+**Why was Lloyd Kelly's Champions League yellow card controversially upgraded to a red?**\
+`The Juventus defender's dismissal against Galatasaray was curious`\
+https://nytimes.com/athletic/7072230/2026/02/26/lloyd-kelly-red-card-explainer-champions-league-juventus/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/26/us/nancy-guthrie-updates
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/briefing/the-economy-is-a-feeling.html
 **World Economic Forum President Resigns Over Epstein Ties**\
 `Borge Brende, a former foreign minister of Norway, had maintained contact with the disgraced sex offender.`\
 https://nytimes.com/2026/02/26/business/world-economic-forum-davos-epstein-brende.html
-
-**Siegel: It's clear. The Maple Leafs should sell at the deadline**\
-`At this point in the season, the Leafs need to weigh the short-, medium- and long-term future.`\
-https://nytimes.com/athletic/7071026/2026/02/26/maple-leafs-nhl-trade-deadline-treliving-pelley/
 
