@@ -1,3 +1,15 @@
+**Jaylen Brown likes where the Celtics are as a team despite loss to Nuggets**\
+`Boston ran out of gas in the second half of its last game on a swing through the West. But its top two players are hardly discouraged.`\
+https://nytimes.com/athletic/7072058/2026/02/26/jaylen-brown-celtics-loss-nuggets/
+
+**The Economy Is a Feeling**\
+`Today, we’re looking at how politicians are framing affordability.`\
+https://nytimes.com/2026/02/26/briefing/the-economy-is-a-feeling.html
+
+**World Economic Forum President Resigns Over Epstein Ties**\
+`Borge Brende, a former foreign minister of Norway, had maintained contact with the disgraced sex offender.`\
+https://nytimes.com/2026/02/26/business/world-economic-forum-davos-epstein-brende.html
+
 **Siegel: The Maple Leafs should sell at the deadline – no matter what**\
 `At this point in the season, the Leafs need to weigh the short-, medium- and long-term future.`\
 https://nytimes.com/athletic/7071026/2026/02/26/maple-leafs-nhl-trade-deadline-treliving-pelley/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7070588/2026/02/26/49ers-nfl-combine-draft-prospect
 **Vincent Iorio 'has all the tools' to seize opportunities with Rangers**\
 `Madison Square Garden isn't a new venue for the Rangers' new defenseman. He just never thought it'd become his NHL home.`\
 https://nytimes.com/athletic/7071446/2026/02/26/vincent-iorio-rangers-defenseman-new-york/
-
-**Man Utd's Lammens calls for more protection for goalkeepers at set pieces**\
-`Lammens had to contend with 10 Everton corners in United's 1-0 win at the Hill Dickinson Stadium on Monday night.`\
-https://nytimes.com/athletic/7072229/2026/02/26/senne-lammens-manchester-united-set-pieces/
-
-**Why scratching Zack Bolduc marks another new phase in Canadiens rebuild**\
-`The Canadiens are expected to begin the final stretch with Bolduc in the press box, a difficult decision that leads to many questions.`\
-https://nytimes.com/athletic/7071916/2026/02/26/canadiens-rebuild-zack-bolduc-newhook-st-louis/
-
-**How will Notre Dame replace Jeremiyah Love and Jadarian Price? In part, with eager freshmen**\
-`Jonaz Walton and Javian Osborne have yet to suit up for Notre Dame but could help fill the void in the running back room.`\
-https://nytimes.com/athletic/7071428/2026/02/26/notre-dame-replace-jeremiyah-love-and-jadarian-price/
 

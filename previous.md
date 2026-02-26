@@ -1,40 +1,40 @@
-**How Shaquille O'Neal and Damian Lillard made it in hip-hop as NBA stars**\
-`Shaquille O'Neal and Damian Lillard are the two who have generated the staying power to make it as an NBA standout and as a hip-hop artist.`\
-https://nytimes.com/athletic/7068142/2026/02/26/shaquille-oneal-damian-lillard-nba-basketball-hip-hop/
+**Siegel: The Maple Leafs should sell at the deadline – no matter what**\
+`At this point in the season, the Leafs need to weigh the short-, medium- and long-term future.`\
+https://nytimes.com/athletic/7071026/2026/02/26/maple-leafs-nhl-trade-deadline-treliving-pelley/
 
-**TAFC: Vinicius Jr's victory dance as Real Madrid beat Benfica, what's eating Italian teams?**\
-`Today in TAFC: Vinicius Jr keeps on dancing, how bad are Italian teams, and why has their been a sporran U-turn?`\
-https://nytimes.com/athletic/7072149/2026/02/26/vinicius-jr-real-madrid-benfica-champions-league/
+**When this high jumper isn't trying to clear 7 feet, he's leaping into sci-fi worlds unknown**\
+`The Longhorns' Agbonkonkon is balancing life as an SEC track and field athlete while working on his sci-fi series, “Psychic Suit."`\
+https://nytimes.com/athletic/6995343/2026/02/26/texas-high-jumper-osawese-agbonkonkon-sci-fi-author/
 
-**A Diamond's Local Legacy and Impact**\
-`Against a backdrop of ethical scrutiny, the diamond industry has been growing its legacy through social impact and sustainability.`\
-https://nytimes.com/paidpost/de-beers/a-diamonds-local-legacy-and-impact.html
+**The Bears are building. But where, and with whom, remains unanswered**\
+`Between the stadium question and the Bears' sudden contender status, building is the operative word for the franchise at the NFL combine.`\
+https://nytimes.com/athletic/7070769/2026/02/26/bears-stadium-indiana-illinois-nfl-combine/
 
-**The Pulse: The best freshman class ever?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7071018/2026/02/26/freshman-class-dybantsa-peterson-boozer-the-pulse/
+**How Jets can use the trade deadline and beyond to get value from a lost season**\
+`Making the playoffs is exceptionally unlikely at this point. The Jets need to optimize their approach for the future.`\
+https://nytimes.com/athletic/7070450/2026/02/26/winnipeg-jets-nhl-trade-deadline-prospects-window/
 
-**The only thing consistent about the Knicks lately has been their inconsistency**\
-`Behind the hot-and-cold production is an on-and-off process for the Knicks.`\
-https://nytimes.com/athletic/7071444/2026/02/26/knicks-inconsistency-towns-brunson-bridges-anunoby-nba/
+**What we learned about the Denver Broncos at the NFL Scouting Combine**\
+`The Broncos need answers — and potentially upgrades — at running back, tight end and linebacker as player-acquisition period nears.`\
+https://nytimes.com/athletic/7071260/2026/02/26/denver-broncos-nfl-combine-payton-paton/
 
-**Fine Dining at Sea: How Chef Nobu Matsuhisa Is Redefining Cruise Cuisine**\
-`Long associated with convenience over creativity, cruise dining is being quietly reimagined, and Umi Uma is proving just how far it has come.`\
-https://nytimes.com/paidpost/crystal-cruises/fine-dining-at-sea-how-chef-nobu-matsuhisa-is-redefining-cruise-cuisine.html
+**Ten prospects for the 49ers to watch this week, including Omar Cooper and Kenyon Sadiq**\
+`Edge rusher and receiver rank highly on the 49ers' to-do list. They could also use a tight end in a draft that is deep at the position.`\
+https://nytimes.com/athletic/7070588/2026/02/26/49ers-nfl-combine-draft-prospects/
 
-**Aaron Judge talks Team USA captaincy, saluting service members and the WBC group chat**\
-`As Judge readies for the WBC, he is keeping a bigger perspective top of mind — and thinking about how he can best help his teammates. `\
-https://nytimes.com/athletic/7071285/2026/02/26/aaron-judge-wbc-team-usa-captain-yankees/
+**Vincent Iorio 'has all the tools' to seize opportunities with Rangers**\
+`Madison Square Garden isn't a new venue for the Rangers' new defenseman. He just never thought it'd become his NHL home.`\
+https://nytimes.com/athletic/7071446/2026/02/26/vincent-iorio-rangers-defenseman-new-york/
 
-**It took Dan Campbell only 20 minutes to be sold on new Lions OC Drew Petzing**\
-`With the additions of Petzing and Mike Kafka, Campbell might have found what he was looking for with Detroit's offense.`\
-https://nytimes.com/athletic/7070463/2026/02/26/dan-campbell-drew-petzing-lions-nfl-combine/
+**Man Utd's Lammens calls for more protection for goalkeepers at set pieces**\
+`Lammens had to contend with 10 Everton corners in United's 1-0 win at the Hill Dickinson Stadium on Monday night.`\
+https://nytimes.com/athletic/7072229/2026/02/26/senne-lammens-manchester-united-set-pieces/
 
-**Thompson lifts Sabres to win over Jack Hughes in Olympics return: 3 thoughts**\
-`Hughes pulled Thompson onto the ice for a pre-game ceremony celebrating Team USA's gold medal.`\
-https://nytimes.com/athletic/7071903/2026/02/26/sabres-tage-thompson-olympics-return-jack-hughes-devils/
+**Why scratching Zack Bolduc marks another new phase in Canadiens rebuild**\
+`The Canadiens are expected to begin the final stretch with Bolduc in the press box, a difficult decision that leads to many questions.`\
+https://nytimes.com/athletic/7071916/2026/02/26/canadiens-rebuild-zack-bolduc-newhook-st-louis/
 
-**Why selling at the trade deadline is only option for the Maple Leafs**\
-`The Leafs remain six points out of the final wild-card spot with one fewer game to make up ground after a 4-2 loss to Tampa Bay.`\
-https://nytimes.com/athletic/7071876/2026/02/26/maple-leafs-lightning-loss-playoff-hopes-trade-deadline/
+**How will Notre Dame replace Jeremiyah Love and Jadarian Price? In part, with eager freshmen**\
+`Jonaz Walton and Javian Osborne have yet to suit up for Notre Dame but could help fill the void in the running back room.`\
+https://nytimes.com/athletic/7071428/2026/02/26/notre-dame-replace-jeremiyah-love-and-jadarian-price/
 
