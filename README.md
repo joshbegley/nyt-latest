@@ -1,3 +1,11 @@
+**Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
+`The FAI say game will "provide tangible support for humanitarian efforts assisting civilians affected by the conflict" in the Middle East.`\
+https://nytimes.com/athletic/7072695/2026/02/26/ireland-israel-dublin-nations-league/
+
+**‘Meat Suit’ Review: Sitting With the Mess of Motherhood**\
+`In Aya Ogawa’s compassionate, sharply comical play, the pastel-pink public image of mommyhood doesn’t stand a chance.`\
+https://nytimes.com/2026/02/26/theater/meat-suit-review-motherhood-aya-ogawa.html
+
 **Why Was Mark Zuckerberg Front Row at Prada?**\
 `The Meta chief executive’s presence in Milan seemed to project his company’s ambitions.`\
 https://nytimes.com/2026/02/26/style/mark-zuckerberg-prada-milan-fashion-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072178/2026/02/26/evan-ferguson-brighton-roma-inju
 **Vonn is owning her Olympic trauma. It could be a gamechanger**\
 `The U.S. Winter Olympian's decision to reveal all about her horrific leg injuries has given her agency - and could even aid her recovery`\
 https://nytimes.com/athletic/7072617/2026/02/26/lindsey-vonn-injury-update/
-
-**Mamdani’s First ‘Rental Rip-off’ Event Invites Tenants to Air Grievances**\
-`Days after taking office, the mayor announced the hearings, an opportunity to hear tenants’ complaints about abusive landlords and poor housing conditions.`\
-https://nytimes.com/2026/02/26/nyregion/rental-rip-off-hearing-mamdani.html
-
-**Barnet boss claims discussion about Lauren James was behind nine-match ban**\
-`Dean Brennan claimed his comment had arisen from a discussion about the Chelsea star and the possibility of men and women mixing in a game.`\
-https://nytimes.com/athletic/7072830/2026/02/26/dean-brennan-woman-referee-ban-fa/
 
