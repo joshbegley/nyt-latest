@@ -1,3 +1,7 @@
+**TAFC: Vinicius Jr's victory dance as Real Madrid beat Benfica, what's eating Italian teams?**\
+`Today in TAFC: Vinicius Jr keeps on dancing, how bad are Italian teams, and why has their been a sporran U-turn?`\
+https://nytimes.com/athletic/7072149/2026/02/26/vinicius-jr-real-madrid-benfica-champions-league/
+
 **A Diamond's Local Legacy and Impact**\
 `Against a backdrop of ethical scrutiny, the diamond industry has been growing its legacy through social impact and sustainability.`\
 https://nytimes.com/paidpost/de-beers/a-diamonds-local-legacy-and-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071876/2026/02/26/maple-leafs-lightning-loss-playo
 **What allows Bo Bichette to be at his best in the biggest moments?**\
 `Over the last three seasons, nobody in baseball has a higher average with runners in scoring position than Bichette, .369.`\
 https://nytimes.com/athletic/7071834/2026/02/26/bo-bichette-best-biggest-moments/
-
-**NBA Awards Watch: 65-game rule brings uncertainty, and we have some new leaders**\
-`MVP or All-NBA "by default" doesn't feel like the best way to celebrate elite players in the league. But we'll see what happens.`\
-https://nytimes.com/athletic/7066168/2026/02/26/nba-awards-65-game-rule-nikola-jokic-kon-knueppel/
 

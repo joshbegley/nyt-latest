@@ -1,3 +1,7 @@
+**TAFC: Vinicius Jr's victory dance as Real Madrid beat Benfica, what's eating Italian teams?**\
+`Today in TAFC: Vinicius Jr keeps on dancing, how bad are Italian teams, and why has their been a sporran U-turn?`\
+https://nytimes.com/athletic/7072149/2026/02/26/vinicius-jr-real-madrid-benfica-champions-league/
+
 **A Diamond's Local Legacy and Impact**\
 `Against a backdrop of ethical scrutiny, the diamond industry has been growing its legacy through social impact and sustainability.`\
 https://nytimes.com/paidpost/de-beers/a-diamonds-local-legacy-and-impact.html
