@@ -1,3 +1,19 @@
+**They Helped Women Fight Online Abuse. They Were Barred From the U.S.**\
+`The founders of HateAid, a German human-rights group that helps victims of online attacks, were accused by the Trump administration of being part of a “global censorship-industrial complex.”`\
+https://nytimes.com/2026/02/26/technology/hateaid-online-abuse-free-speech-europe.html
+
+**The Devil Wears Sasuphi**\
+`A fledgling collection of elegant, easy to wear clothes designed by women is enjoying a flurry of visibility thanks to “The Devil Wears Prada 2.”`\
+https://nytimes.com/2026/02/26/style/the-devil-wears-sasuphi.html
+
+**FIFA hikes 2026 World Cup parking prices, including for disabled fans**\
+`FIFA recently raised prices and added inventory in additional U.S. cities after negotiating for control of lots near stadiums`\
+https://nytimes.com/athletic/7070786/2026/02/26/fifa-world-cup-parking-prices-ada-disabled-spots/
+
+**Reviewing NWSL's bold new 2026 jerseys: Big swings, city ties, and falling short**\
+`The NWSL went for bold looks with 18 new jerseys, so The Athletic went bold with our reviews.`\
+https://nytimes.com/athletic/7070946/2026/02/26/nwsl-2026-bold-jersey-review/
+
 **The Windup: A one-man milestone parade!**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7072740/2026/02/26/paul-goldschmidt-mlb-the-windup/
@@ -15,26 +31,10 @@ https://nytimes.com/2026/02/26/us/california-governor-democratic-political-machi
 https://nytimes.com/athletic/7072657/2026/02/26/jermaine-johnson-tvondre-sweat-jets-titans-trade/
 
 **Jeff Galloway, Olympian Who Transformed American Distance Running, Dies at 80**\
-`The runner, coach and best-selling author created the widely embraced run-walk-run method, which helped make running more accessible.`\
+`A runner, coach and best-selling author, he created the widely embraced run-walk-run method, which helped make running more accessible to the public.`\
 https://nytimes.com/2026/02/26/obituaries/jeff-galloway-dead.html
 
 **Blue Jackets come out of Olympic break with tough tests vs. Bruins, Islanders**\
 `"Every game gets tougher from here on in," coach Rick Bowness said. "It will. We just have to be up for that challenge."`\
 https://nytimes.com/athletic/7071258/2026/02/26/blue-jackets-olympic-break-tough-tests/
-
-**Jackson LaCombe returns to the Ducks motivated for 2030 Olympics**\
-`LaCombe didn't see any action in Milan thanks to Team USA's loaded back line, but he learned a lot watching his teammates win gold.`\
-https://nytimes.com/athletic/7071935/2026/02/26/jackson-lacombe-returns-to-ducks-motivated-for-2030-olympics/
-
-**The Bounce: Will we have an NBA MVP by default? Plus, let's rank the contenders**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7072585/2026/02/26/nba-mvp-65-game-jokic-sga-the-bounce/
-
-**Spurs' Porro and Danso both available for Fulham trip, Tudor says**\
-`Both players have been sidelined since January, leading to midfielders Archie Gray and Joao Palhinha covering in defence.`\
-https://nytimes.com/athletic/7072478/2026/02/26/porro-danso-tottenham-injury-update/
-
-**Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
-`"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
-https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
 
