@@ -1,3 +1,7 @@
+**Government Still Building Case for U.S.S. Cole Trial 25 Years After Attack**\
+`Prosecutors are scrambling to shore up the case from adverse judicial rulings. Defense lawyers say they are not ready for trial.`\
+https://nytimes.com/2026/02/26/us/politics/guantanamo-uss-cole-trial.html
+
 **Dan Duckhorn, Who Made Merlot a Napa Valley Star, Dies at 87**\
 `A founder of Duckhorn Vineyards, a California winemaker, Mr. Duckhorn transformed merlot from a blending grape into a premier American variety.`\
 https://nytimes.com/2026/02/26/us/dan-duckhorn-dead-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073806/2026/02/26/flyers-vs-rangers-stream-how-to-
 **How to watch Trail Blazers vs. Bulls: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Chicago Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073803/2026/02/26/trail-blazers-vs-bulls-stream-how-to-watch-feb-26/
-
-**How to watch Timberwolves vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073799/2026/02/26/timberwolves-vs-clippers-stream-how-to-watch-feb-26/
 

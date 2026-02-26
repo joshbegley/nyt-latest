@@ -1,3 +1,11 @@
+**Dan Duckhorn, Who Made Merlot a Napa Valley Star, Dies at 87**\
+`A founder of Duckhorn Vineyards, a California winemaker, Mr. Duckhorn transformed merlot from a blending grape into a premier American variety.`\
+https://nytimes.com/2026/02/26/us/dan-duckhorn-dead-california.html
+
+**What if Trump Believes All of It?**\
+`President Trump’s approval ratings have plummeted in his second term. But Tuesday night in his State of the Union address, he shared a very different narrative. Ezra Klein asks: What if Trump actually thinks everything he said is true?`\
+https://nytimes.com/video/opinion/100000010732772/what-if-trump-believes-all-of-it.html
+
 **Sens captain Brady Tkachuk addresses Trump call, White House TikTok and gold medal win**\
 `Tkachuk and teammate Jake Sanderson addressed reporters in Ottawa for the first time since winning an Olympic gold medal in men's hockey.`\
 https://nytimes.com/athletic/7070904/2026/02/26/tkachuk-sanderson-senators-trump-usa-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7073803/2026/02/26/trail-blazers-vs-bulls-stream-ho
 **How to watch Timberwolves vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073799/2026/02/26/timberwolves-vs-clippers-stream-how-to-watch-feb-26/
-
-**How to watch Kings vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073797/2026/02/26/kings-vs-mavericks-stream-how-to-watch-feb-26/
-
-**How to watch Blackhawks vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073786/2026/02/26/blackhawks-vs-predators-stream-how-to-watch-feb-26/
 
