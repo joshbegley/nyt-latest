@@ -1,3 +1,7 @@
+**Ronaldo buys 25 per cent stake in Saudi-owned Spanish side Almeria**\
+`Almeria are owned by a consortium led by the Saudi Media Company, the operator of Al Nassr’s stadium Mrsool Park.`\
+https://nytimes.com/athletic/7072177/2026/02/26/cristiano-ronaldo-owner-almeria-saudi-arabia/
+
 **Tracey Emin on Love, Loss and Getting Out of ‘My Bed’**\
 `Since the artist was diagnosed with aggressive bladder cancer in 2020, a lot has changed in her life and work. A new show at Tate Modern examines Tracey Emin’s “second life.”`\
 https://nytimes.com/2026/02/26/arts/tracey-emin-tate-modern-london-second-life.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/opinion/russia-ukraine-drone-war.html
 **When an Experimental Italian Artist Designed a New York Office**\
 `Plus: minimalist outdoor furniture, an art institute’s restaurant in Brooklyn and more recommendations from T Magazine.`\
 https://nytimes.com/2026/02/26/t-magazine/gaetano-pesce-chiat-day-office.html
-
-**Antarctica’s Mineral Riches Exposed as Climate Warms**\
-`Mining is banned on the frozen continent. But new research suggests that could change as ice melts and land and valuable minerals are exposed.`\
-https://nytimes.com/2026/02/26/climate/antarcticas-mineral-riches-exposed-as-climate-warms.html
 
