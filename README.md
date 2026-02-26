@@ -1,3 +1,35 @@
+**Vuori’s Joe Kudla, Drew Brees among bidders in Padres’ sale process: Sources**\
+`Other remaining suitors include Golden State Warriors owner Joe Lacob and English Premier League club owner José E. Feliciano.`\
+https://nytimes.com/athletic/7071964/2026/02/26/padres-sale-drew-brees-joe-kudla-vuori/
+
+**Block Cuts 40% of Its Work Force Because of Its Embrace of A.I.**\
+`About 4,000 workers will lose their jobs as the payments company does more work with new artificial intelligence tools, its top executive said.`\
+https://nytimes.com/2026/02/26/technology/block-square-job-cuts-ai.html
+
+**Jo Ann Bland, Child Activist in Civil Rights Struggle, Dies at 72**\
+`At 11, she was one of the youngest at the 1965 “Bloody Sunday” voting rights march in Selma, Ala., and was injured while crossing the Edmund Pettus Bridge.`\
+https://nytimes.com/2026/02/26/us/joanne-bland-dead.html
+
+**Dolphins top NFLPA's player survey, while Steelers finish last: Source**\
+`An arbitrator had ruled that the NFLPA could not publish survey results publicly, but could share them with the players and teams.`\
+https://nytimes.com/athletic/7074041/2026/02/26/nfl-nflpa-report-cards-2025-2026-survey-rankings/
+
+**Man United could pay up to £15.9m in Amorim exit compensation**\
+`It was reported at the time of Amorim's exit that United had paid around £10m as a compensation package to the Portuguese and his staff.`\
+https://nytimes.com/athletic/7074035/2026/02/26/man-united-amorim-compensation-news/
+
+**A Stolen Boat, a Deadly Gunfight and a Supposed Plot Against Cuba**\
+`The Cuban government’s account of a supposed armed raid into its territory was called into question after one of the men identified as being on the boat turned up in Miami.`\
+https://nytimes.com/2026/02/26/world/americas/cuba-gunfight-boat-miami.html
+
+**War or a Deal? U.S. and Iran Discuss What’s Next**\
+`Also, mortgage rates fall below 6 percent. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/02/26/briefing/us-iran-talks-hillary-clinton-epstein.html
+
+**Hawks to bring 'Magic City' strip club vibe to home game, but without the dancers**\
+`The Hawks plan to honor Atlanta's "iconic cultural institution" in a March 16 home game against the Magic at State Farm Arena.`\
+https://nytimes.com/athletic/7073339/2026/02/26/hawks-magic-city-strip-club-promotion/
+
 **N.Y. Doctor’s Final Bid to Avoid Extradition to Japan Fails in Court**\
 `Dr. Masahide Kanayama could be sent to Japan next week to face charges that he vandalized ancient religious sites, federal prosecutors said.`\
 https://nytimes.com/2026/02/26/us/manhattan-doctor-extradition-japan.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/02/26/us/manhattan-doctor-extradition-japan.html
 **What to Put in America’s Time Capsule?**\
 `The U.S. announced plans for a time capsule to be buried on July 4 and opened in 2276. Tell us what you think should be inside.`\
 https://nytimes.com/2026/02/26/briefing/what-to-put-in-americas-time-capsule.html
-
-**Vanguard Settles Case Claiming It Tried to Kill the Coal Industry**\
-`Republican-led states had accused financial firms of colluding against coal producers. Vanguard also agreed not to push for action to fight climate change.`\
-https://nytimes.com/2026/02/26/climate/vanguard-texas-coal-lawsuit-settlement.html
-
-**Anthropic Says Little Progress Made in Pentagon Talks Over A.I.**\
-`The Pentagon has imposed a Friday deadline over a demand that Anthropic provide unfettered access to its A.I. system without safeguards for military operations.`\
-https://nytimes.com/2026/02/26/technology/anthropic-pentagon-talks-ai.html
-
-**Will World Cup Games in Mexico Be Affected by Cartel Boss Killing?**\
-`Safety questions linger since the country is set to host matches in the world’s largest sporting event, the FIFA World Cup.`\
-https://nytimes.com/2026/02/26/world/americas/mexico-world-cup-safety.html
-
-**Regime Change in Cuba Appeals to Trump but Carries Risks**\
-`The Trump administration is signaling a different approach, after demanding an end to Cuba’s communist leadership.`\
-https://nytimes.com/2026/02/26/us/politics/trump-cuba-regime-change.html
-
-**What I'm hearing about Robert Thomas, Jordan Binnington and other Blues ahead of the trade deadline**\
-`Thomas and Binnington are among the most prominent Blues names on the trade board. Will they be on the move before March 6?`\
-https://nytimes.com/athletic/7073145/2026/02/26/blues-trade-deadline-thomas-binnington/
-
-**Liverpool's Kone-Doherty in talks over possible Molde transfer**\
-`The 19-year-old winger is out of contract at the end of the season and has been considering his options.`\
-https://nytimes.com/athletic/7073402/2026/02/26/liverpool-transfers-trent-kone-doherty-molde/
-
-**Chicago Bids Farewell to Jesse Jackson as Memorials Begin**\
-`Mourners lined up outside Rainbow PUSH, the organization Mr. Jackson founded decades ago. He died last week at 84.`\
-https://nytimes.com/2026/02/26/us/jesse-jackson-chicago-repose-rainbow-push.html
-
-**Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
-`Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
-https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
 

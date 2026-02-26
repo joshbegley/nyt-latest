@@ -1,3 +1,7 @@
+**Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
+`Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
+https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
+
 **Hawks to bring 'Magic City' strip club vibe to home game, but without the dancers**\
 `The Hawks plan to honor Atlanta's "iconic cultural institution" in a March 16 home game against the Magic at State Farm Arena.`\
 https://nytimes.com/athletic/7073339/2026/02/26/hawks-magic-city-strip-club-promotion/
