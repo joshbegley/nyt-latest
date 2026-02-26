@@ -1,3 +1,11 @@
+**Kalshi Accuses a ‘MrBeast’ Employee of Insider Trading**\
+`The prediction-market platform said it had reported the employee to federal regulators. The show’s parent company said it had “no tolerance for this behavior.”`\
+https://nytimes.com/2026/02/25/business/kalshi-mrbeast-employee-insider-trading-accusations.html
+
+**Patel Ousts F.B.I. Personnel Tied to Inquiry Into Trump’s Retained Classified Records**\
+`The firings are part of a rolling barrage of retribution aimed at those who worked on the two federal prosecutions of President Trump.`\
+https://nytimes.com/2026/02/25/us/politics/patel-fbi-firings-trump-classified-records.html
+
 **Patel Ousts F.B.I. Personnel Tied to Inquiry Into Trump’s Retained Classified Records**\
 `The firings are part of a rolling barrage of retribution aimed at those who worked on the two federal prosecutions into President Trump.`\
 https://nytimes.com/2026/02/25/us/politics/patel-fbi-firings-trump-classified-records.html
