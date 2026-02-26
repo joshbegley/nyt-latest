@@ -1,3 +1,7 @@
+**German Court Temporarily Removes an Extremist Label for the AfD**\
+`The domestic intelligence agency can still spy on the far-right party, and the ruling may not change Germans’ views, but it is a symbolic victory for the AfD.`\
+https://nytimes.com/2026/02/26/world/europe/germany-ruling-afd-extremist.html
+
 **From 'spat' to full-blown 'brawl': The sliding scale of on-pitch confrontations in football**\
 `After Chelsea and West Ham United were fined for their "mass confrontation", Tim Spiers explains the specific language around "bust-ups"`\
 https://nytimes.com/athletic/7072173/2026/02/26/from-spat-to-full-blown-brawl-the-sliding-scale-of-on-pitch-confrontations-in-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenla
 **NCAA committee proposes changes to rules about targeting, uniform violations**\
 `Under the proposal, players penalized for targeting wouldn't be suspended for part of the next game if they are for first-time offenders.`\
 https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-suspension/
-
-**Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
-`The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
-https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
 
