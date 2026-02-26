@@ -1,5 +1,9 @@
 **What We Know About the Gun Battle With Cuban Border Troops**\
 `Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
+https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
+
+**What We Know About the Gun Battle With Cuban Border Troops**\
+`Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
 https://nytimes.com/2026/02/26/us/what-we-know-gun-battle-cuba.html
 
 **Word of the Day: benevolent**\
