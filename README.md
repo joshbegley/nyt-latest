@@ -1,3 +1,11 @@
+**Highland Refusal**\
+`Yitzi Snow makes his New York Times Crossword debut.`\
+https://nytimes.com/2026/02/25/crosswords/daily-puzzle-2026-02-26.html
+
+**UConn obliterates St. John's, stakes claim to No. 1 seed**\
+`St. John's did not score a basket over the final 17-plus minutes, missing 24 consecutive field goals in the 32-point loss to UConn. `\
+https://nytimes.com/athletic/7071711/2026/02/25/uconn-st-johns-tarris-reed-dan-hurley-rick-pitino/
+
 **Trump Administration Withholds $259 Million in Medicaid Funds From Minnesota**\
 `Vice President JD Vance said that the Trump administration had been forced to “turn the screws on” Minnesota so the state would respond to allegations of fraud.`\
 https://nytimes.com/2026/02/25/us/politics/medicaid-funds-minnesota.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
 **Yankees to retire CC Sabathia's No. 52, add plaque to Monument Park**\
 `The left-hander will be the 24th Yankee player or manager to have their number retired. He had a 134-88 record in 11 seasons in New York.`\
 https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
-
-**Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\
-`The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school” when a student objected to the possible closure of a middle school. The remark was assailed as racist.`\
-https://nytimes.com/2026/02/25/nyregion/hunter-college-professor-allyson-friedman-racist-remarks.html
-
-**U.S. women’s hockey players eager to put focus on Olympic win, not 'distasteful' Trump joke**\
-`“I can’t wait 'til this blows over in a week and we can go back to each team being proud of what we accomplished,” Taylor Heise said.`\
-https://nytimes.com/athletic/7071322/2026/02/25/olympic-womens-hockey-reaction-trump/
 
