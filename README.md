@@ -1,3 +1,11 @@
+**Wayne Tinkle, who guided Oregon State to 2021 Elite Eight, won't return next season**\
+`Tinkle compiled a 175-204 record and made two NCAA Tournaments in 12 seasons.`\
+https://nytimes.com/athletic/7073811/2026/02/26/oregon-state-wayne-tinkle-fired/
+
+**Trump’s Fantasy State of the Union**\
+`Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
+https://nytimes.com/video/opinion/100000010732768/trumps-fantasy-state-of-the-union.html
+
 **Epstein Is Shaking the Climate World, Too**\
 `A major funder of the Earthshot Prize has been linked to the convicted sex offender.`\
 https://nytimes.com/2026/02/26/climate/epstein-climate-earthshot.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/guantanamo-uss-cole-trial.html
 **Dan Duckhorn, Who Made Merlot a Napa Valley Star, Dies at 87**\
 `A founder of Duckhorn Vineyards, a California winemaker, Mr. Duckhorn transformed merlot from a blending grape into a premier American variety.`\
 https://nytimes.com/2026/02/26/us/dan-duckhorn-dead-california.html
-
-**What if Trump Believes All of It?**\
-`President Trump’s approval ratings have plummeted in his second term. But Tuesday night in his State of the Union address, he shared a very different narrative. Ezra Klein asks: What if Trump actually thinks everything he said is true?`\
-https://nytimes.com/video/opinion/100000010732772/what-if-trump-believes-all-of-it.html
-
-**Sens captain Brady Tkachuk addresses Trump call, White House TikTok and gold medal win**\
-`Tkachuk and teammate Jake Sanderson addressed reporters in Ottawa for the first time since winning an Olympic gold medal in men's hockey.`\
-https://nytimes.com/athletic/7070904/2026/02/26/tkachuk-sanderson-senators-trump-usa-olympics/
 
