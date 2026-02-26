@@ -1,5 +1,5 @@
-**No. 8 Michigan tops No. 13 Ohio State in OT: What it means for stretch run**\
-`Wednesday's thriller wasn't the cleanest game in rivalry, but it held postseason implications for both Wolverines and Buckeyes.`\
+**No. 8 Michigan tops No. 13 Ohio State in OT: What it means for postseason**\
+`Wednesday's thriller between the Wolverines and Buckeyes wasn't the cleanest game in rivalry, but it was certainly entertaining.`\
 https://nytimes.com/athletic/7071825/2026/02/25/michigan-ohio-state-women-overtime/
 
 **Joe Gibbs Racing's former competition director offers spirited defense in lawsuit**\
