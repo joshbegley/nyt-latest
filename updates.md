@@ -1,3 +1,7 @@
+**Word of the Day: benevolent**\
+`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/26/learning/word-of-the-day-benevolent.html
+
 **Max Scherzer agrees to 1-year, $3 million deal with Blue Jays: Source**\
 `The 41-year-old performed at a high level with three solid postseason starts amid Toronto's quest for a World Series title in 2025.`\
 https://nytimes.com/athletic/6792113/2026/02/26/max-scherzer-blue-jays-mlb-free-agency/
