@@ -1,3 +1,11 @@
+**The Windup: A one-man milestone parade!**\
+`Welcome to The Windup, The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/7072740/2026/02/26/paul-goldschmidt-mlb-the-windup/
+
+**How a Close Associate of Epstein’s Found Career Redemption in Japan**\
+`Top Japanese officials are backing a tech and entrepreneurship initiative led by Joichi Ito, whose involvement with Jeffrey Epstein may endanger efforts to get the project off the ground.`\
+https://nytimes.com/2026/02/26/business/jeffrey-epstein-joichi-ito-japan.html
+
 **Why Are So Many Democrats Running for California Governor?**\
 `With California’s political machine on the wane, nobody has emerged as a clear front-runner. Democrats worry that nine of their candidates could split the vote and hand Republicans a win.`\
 https://nytimes.com/2026/02/26/us/california-governor-democratic-political-machine.html

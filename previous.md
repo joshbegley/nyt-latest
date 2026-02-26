@@ -1,3 +1,11 @@
+**The Windup: A one-man milestone parade!**\
+`Welcome to The Windup, The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/7072740/2026/02/26/paul-goldschmidt-mlb-the-windup/
+
+**How a Close Associate of Epstein’s Found Career Redemption in Japan**\
+`Top Japanese officials are backing a tech and entrepreneurship initiative led by Joichi Ito, whose involvement with Jeffrey Epstein may endanger efforts to get the project off the ground.`\
+https://nytimes.com/2026/02/26/business/jeffrey-epstein-joichi-ito-japan.html
+
 **Why Are So Many Democrats Running for California Governor?**\
 `With California’s political machine on the wane, nobody has emerged as a clear front-runner. Democrats worry that nine of their candidates could split the vote and hand Republicans a win.`\
 https://nytimes.com/2026/02/26/us/california-governor-democratic-political-machine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072478/2026/02/26/porro-danso-tottenham-injury-upd
 **Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
 `"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
 https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
-
-**Man Arrested in New York Snowball Fight That Police Said Injured Officers**\
-`The incident, which began as a playful event, shifted in tone when the police appeared. Mayor Zohran Mamdani has said it did not appear to be a crime, while other officials called for arrests.`\
-https://nytimes.com/2026/02/26/nyregion/nypd-snowball-arrest-washington-square.html
-
-**Wolves' Arokodare set to give statement to police after facing online racist abuse**\
-`Head coach Rob Edwards said it had been "a really difficult week" for Arokodare and that he is being supported by the club.`\
-https://nytimes.com/athletic/7072501/2026/02/26/tolu-arokodare-wolves-racist-abuse-statement/
 

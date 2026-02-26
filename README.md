@@ -1,3 +1,7 @@
+**FIFA hikes 2026 World Cup parking prices, including for disabled fans**\
+`FIFA recently raised prices and added inventory in additional U.S. cities after negotiating for control of lots near stadiums`\
+https://nytimes.com/athletic/7070786/2026/02/26/fifa-world-cup-parking-prices-ada-disabled-spots/
+
 **The Windup: A one-man milestone parade!**\
 `Welcome to The Windup, The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/7072740/2026/02/26/paul-goldschmidt-mlb-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072585/2026/02/26/nba-mvp-65-game-jokic-sga-the-bo
 **Spurs' Porro and Danso both available for Fulham trip, Tudor says**\
 `Both players have been sidelined since January, leading to midfielders Archie Gray and Joao Palhinha covering in defence.`\
 https://nytimes.com/athletic/7072478/2026/02/26/porro-danso-tottenham-injury-update/
-
-**Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
-`"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
-https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
 
