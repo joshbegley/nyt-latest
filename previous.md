@@ -1,3 +1,7 @@
+**Patel Ousts F.B.I. Personnel Tied to Inquiry Into Trump’s Retained Classified Records**\
+`The firings are part of a rolling barrage of retribution aimed at those who worked on the two federal prosecutions into President Trump.`\
+https://nytimes.com/2026/02/25/us/politics/patel-fbi-firings-trump-classified-records.html
+
 **No Corrections: Feb. 26, 2026**\
 `No corrections appeared in print on Thursday, Feb. 26, 2026.`\
 https://nytimes.com/2026/02/25/pageoneplus/no-corrections-feb-26-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.
 **Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
 `El miércoles, una lancha rápida matriculada en Florida entró en aguas cubanas y algunos de sus tripulantes intercambiaron disparos con tropas de Cuba. En 2022 ocurrieron dos enfrentamientos de este tipo.`\
 https://nytimes.com/2026/02/25/espanol/america-latina/cuba-lancha-estados-unidos-rubio.html
-
-**Trump’s State of the Union Was a Win for Democrats**\
-`Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
-https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
 

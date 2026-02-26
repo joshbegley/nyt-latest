@@ -1,3 +1,7 @@
+**Patel Ousts F.B.I. Personnel Tied to Inquiry Into Trump’s Retained Classified Records**\
+`The firings are part of a rolling barrage of retribution aimed at those who worked on the two federal prosecutions into President Trump.`\
+https://nytimes.com/2026/02/25/us/politics/patel-fbi-firings-trump-classified-records.html
+
 **No Corrections: Feb. 26, 2026**\
 `No corrections appeared in print on Thursday, Feb. 26, 2026.`\
 https://nytimes.com/2026/02/25/pageoneplus/no-corrections-feb-26-2026.html
