@@ -1,3 +1,7 @@
+**Jeff Galloway Made Me a Marathoner**\
+`The distance running icon, who died Wednesday at 80, taught me to endure. In December, we shared his final run.`\
+https://nytimes.com/2026/02/26/well/move/jeff-galloway-running-tribute.html
+
 **Vuori’s Joe Kudla, Drew Brees among bidders in Padres’ sale process: Sources**\
 `Other remaining suitors include Golden State Warriors owner Joe Lacob and English Premier League club owner José E. Feliciano.`\
 https://nytimes.com/athletic/7071964/2026/02/26/padres-sale-drew-brees-joe-kudla-vuori/
