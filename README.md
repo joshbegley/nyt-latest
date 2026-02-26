@@ -1,3 +1,15 @@
+**Hamster Wheel**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/02/26/learning/hamster-wheel.html
+
+**Bright Horizons Let Some Staff Work Without Full Vetting, Records Show**\
+`Inspectors found several instances in which child care staff members were working in classrooms even though they had not completed all of the required background checks.`\
+https://nytimes.com/2026/02/26/nyregion/bright-horizons-nyc-child-care.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/26/crosswords/spelling-bee-forum.html
+
 **What We Know About the Gun Battle With Cuban Border Troops**\
 `Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
 https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/26/opinion/japan-us-defense-military.html
 **​Kim Jong-un Hints at Improving U.S. Relations — With Caveats**\
 `​ The North Korean leader said that his country can get along well with the United States as long as Washington accepts it as a nuclear weapons state.`\
 https://nytimes.com/2026/02/26/world/asia/kim-nkorea-nuclear-us.html
-
-**The less remembered Antonio Conte outburst that foreshadowed Tottenham's plight**\
-`Conte may have been a bad fit for Spurs from the start, but he was on the money about the club's trajectory...`\
-https://nytimes.com/athletic/7069940/2026/02/26/the-lesser-remembered-antonio-conte-outburst-that-foreshadowed-tottenhams-current-plight/
-
-**Why Fulham could be prove key in Fantasy Premier League – and not just Harry Wilson**\
-`A strong run of fixtures, combined with great prices and consistent minutes for key players makes Marco Silva’s side a source of value`\
-https://nytimes.com/athletic/7068953/2026/02/26/fantasy-premier-league-tips-fpl-gameweek-28-fulham/
-
-**What's happened to Villa Park's atmosphere - and how can it be fixed?**\
-`Villa away supporters remain loud and unyielding, but working to enhance the sound of home fans is a growing issue facing the club`\
-https://nytimes.com/athletic/7067606/2026/02/26/whats-happened-to-villa-parks-atmosphere-and-how-can-it-be-fixed/
 
