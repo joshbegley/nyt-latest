@@ -1,3 +1,15 @@
+**Hamster Wheel**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/02/26/learning/hamster-wheel.html
+
+**Bright Horizons Let Some Staff Work Without Full Vetting, Records Show**\
+`Inspectors found several instances in which child care staff members were working in classrooms even though they had not completed all of the required background checks.`\
+https://nytimes.com/2026/02/26/nyregion/bright-horizons-nyc-child-care.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/26/crosswords/spelling-bee-forum.html
+
 **What We Know About the Gun Battle With Cuban Border Troops**\
 `Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
 https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
