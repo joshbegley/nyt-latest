@@ -1,3 +1,7 @@
+**Letting the Fur Fly at Fendi**\
+`Maria Grazia Chiuri makes her debut, and courts controversy. Sort of.`\
+https://nytimes.com/2026/02/26/style/fendi-maria-grazia-chiuri-fall-2026.html
+
 **Late Night Fixates on How Long Trump Spoke**\
 `“This time, Trump spoke and everyone else fell asleep,” Jimmy Fallon said.`\
 https://nytimes.com/2026/02/26/arts/television/late-night-trump-speech.html
