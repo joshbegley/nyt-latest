@@ -1,3 +1,7 @@
+**No Corrections: Feb. 26, 2026**\
+`No corrections appeared in print on Thursday, Feb. 26, 2026.`\
+https://nytimes.com/2026/02/25/pageoneplus/no-corrections-feb-26-2026.html
+
 **Star forward Bouanga, LAFC agree to contract extension**\
 `Bouanga had been the subject of transfer interest both in and out of MLS, but the LAFC star is set to stay put`\
 https://nytimes.com/athletic/7067938/2026/02/25/denis-bouanga-lafc-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/espanol/america-latina/cuba-lancha-estados-unidos
 **Trump’s State of the Union Was a Win for Democrats**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
-
-**An Inside Look at the State of the Union**\
-`Our photojournalist Kenny Holston was the only news photographer on the House floor during President Trump’s State of the Union speech. Here’s how he captured his images.`\
-https://nytimes.com/video/us/100000010725890/an-inside-look-at-the-state-of-the-union.html
 
