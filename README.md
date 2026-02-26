@@ -1,3 +1,7 @@
+**Sorry, SpaceX: It’s Getting Too Crowded Up There**\
+`Elon Musk wants to launch a million satellites, but researchers say global warming is changing the upper atmosphere in ways that makes space junk linger.`\
+https://nytimes.com/2026/02/26/climate/spacex-climate-musk-orbiting-data-centers.html
+
 **Premier League trialling direct-to-consumer streaming in Singapore**\
 `“Will it be replicable elsewhere? That’s what we’re going to find out,” league CEO Richard Masters said on Thursday.`\
 https://nytimes.com/athletic/7072894/2026/02/26/premier-league-streaming-premflix-singapore/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7072933/2026/02/26/maple-leafs-vs-panthers-stream-h
 **How to watch Red Wings vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7072931/2026/02/26/red-wings-vs-senators-stream-how-to-watch-feb-26/
-
-**Season eight of Netflix's 'Drive to Survive' to be shown on Apple TV in the U.S.**\
-`In October, Apple TV agreed a deal to become Formula One's exclusive U.S. broadcaster.`\
-https://nytimes.com/athletic/7072759/2026/02/26/drive-to-survive-netflx-apple-tv-f1/
-
-**How to watch Islanders vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072928/2026/02/26/islanders-vs-canadiens-stream-how-to-watch-feb-26/
 
