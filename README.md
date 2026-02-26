@@ -1,3 +1,11 @@
+**Mamdani and Trump Are Set to Meet in Washington**\
+`Mayor Zohran Mamdani’s trip to the White House on Thursday was unannounced. The topics he planned to discuss with President Trump were not immediately clear.`\
+https://nytimes.com/2026/02/26/nyregion/mamdani-trump-meeting.html
+
+**Venezuela’s Capital, Laid Low by Misrule, Is Stirring Back to Life**\
+`New restaurants are popping up in Caracas. Nightclubs are bursting at the seams. The streets are eerily safe — with big exceptions. Could a revival be on the horizon?`\
+https://nytimes.com/2026/02/26/world/americas/caracas-venezuela-economy.html
+
 **Justice Gorsuch’s Tariffs Warning**\
 `Granting a president new power is easy, he said. But taking it back is almost impossible.`\
 https://nytimes.com/2026/02/26/us/politics/the-docket-tariff-warning.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7072770/2026/02/26/max-scherzer-blue-jays-daughter-
 **Sorry, SpaceX: It’s Getting Too Crowded Up There**\
 `Elon Musk wants to launch a million satellites, but researchers say global warming is changing the upper atmosphere in ways that makes space junk linger.`\
 https://nytimes.com/2026/02/26/climate/spacex-climate-musk-orbiting-data-centers.html
-
-**Premier League trialling direct-to-consumer streaming in Singapore**\
-`“Will it be replicable elsewhere? That’s what we’re going to find out,” league CEO Richard Masters said on Thursday.`\
-https://nytimes.com/athletic/7072894/2026/02/26/premier-league-streaming-premflix-singapore/
-
-**What Eagles' shrinking middle class may reveal about future plans**\
-`Why there is a good chance the Eagles will either swing big in free agency or look for bargain deals, with little in between. `\
-https://nytimes.com/athletic/7072411/2026/02/26/philadelphia-eagles-shrinking-middle-class/
 
