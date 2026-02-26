@@ -1,3 +1,7 @@
+**U.S. women’s hockey players eager to put focus on Olympic win, not 'distasteful' Trump joke**\
+`“I can’t wait 'til this blows over in a week and we can go back to each team being proud of what we accomplished,” Taylor Heise said.`\
+https://nytimes.com/athletic/7071322/2026/02/25/olympic-womens-hockey-reaction-trump/
+
 **Police Officer Accused of Tracking Partner Using License Plate Reader**\
 `The Milwaukee officer used the technology to run searches on his partner’s plates 124 times, officials said, and he also tracked the person’s ex.`\
 https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
 **Vessels Have Clashed With Cuban Border Forces Before**\
 `On Wednesday, a Florida-registered speedboat entered Cuban waters and some on board exchanged gunfire with Cuban troops. Two such armed clashes occurred in 2022.`\
 https://nytimes.com/2026/02/25/world/americas/vessel-gunfight-cuba-history.html
-
-**Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
-`Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
-https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
 
