@@ -1,3 +1,7 @@
+**Letting the Fur Fly at Fendi**\
+`Maria Grazia Chiuri makes her debut, and courts controversy. Sort of.`\
+https://nytimes.com/2026/02/26/style/fendi-maria-grazia-chiuri-fall-2026.html
+
 **Late Night Fixates on How Long Trump Spoke**\
 `“This time, Trump spoke and everyone else fell asleep,” Jimmy Fallon said.`\
 https://nytimes.com/2026/02/26/arts/television/late-night-trump-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6792113/2026/02/26/max-scherzer-blue-jays-mlb-free-
 **Quenneville coaches 1,000th regular-season win, joins Bowman in elite company**\
 `Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
 https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
-
-**The New York Times in Print for Thursday, Feb. 26, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
 
