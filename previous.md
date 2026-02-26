@@ -1,3 +1,11 @@
+**Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
+`Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
+https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
+
+**Trump’s Go-To Tactic in the State of the Union**\
+`Our reporter Zolan Kanno-Youngs examines the context of a moment in the State of the Union speech when President Trump turned to a favorite tactic on immigration.`\
+https://nytimes.com/video/us/politics/100000010732261/trumps-go-to-tactic-in-the-state-of-the-union.html
+
 **What Does NASA Know About Aliens?**\
 `Does NASA have files on aliens? Jared Isaacman says no, and tells Ross Douthat on “Interesting Times” that extraterrestrials would pick a more exciting locale to visit than America’s naval bases.`\
 https://nytimes.com/video/opinion/100000010726865/what-does-nasa-know-about-aliens.html
@@ -25,8 +33,4 @@ https://nytimes.com/athletic/7073904/2026/02/26/wild-gold-medalists-avalanche/
 **Denmark’s Prime Minister Calls For a Snap Parliamentary Election**\
 `Prime Minister Mette Frederiksen’s announcement came just weeks after she surged in public opinion polls for standing up to President Trump’s threats to take over Greenland.`\
 https://nytimes.com/video/world/europe/100000010739263/denmark-election-greenland-trump.html
-
-**The Minnesota Fraud Scandal and the Fallout, Explained**\
-`An inquiry into scams involving money slated for social services has deepened over the years. It also is at the center of several recent domestic decisions by the Trump administration.`\
-https://nytimes.com/2026/02/26/us/minnesota-welfare-fraud-scandal.html
 
