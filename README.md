@@ -1,3 +1,7 @@
+**Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
+`El miércoles, una lancha rápida matriculada en Florida entró en aguas cubanas y algunos de sus tripulantes intercambiaron disparos con tropas de Cuba. En 2022 ocurrieron dos enfrentamientos de este tipo.`\
+https://nytimes.com/live/2026/02/25/espanol/cuba/cuba-lancha-estados-unidos-rubio
+
 **Trump’s Fantasy State of the Union**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-ga
 **Trump’s Push for Election Power Raises Fears He Will ‘Subvert’ Midterms**\
 `The president appears to be undermining Americans’ faith in the outcome, at a moment when Republicans face an uphill climb to keep control of Congress.`\
 https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html
-
-**Panthers tell Andy Dalton there will be competition for backup QB job**\
-`The Panthers have fielded calls about Dalton and could create $2.2 million in salary-cap space by trading the 38-year-old quarterback.`\
-https://nytimes.com/athletic/7071237/2026/02/25/andy-dalton-panthers-backup-qb-competition-trade/
 
