@@ -1,3 +1,11 @@
+**James Harden upgrades the Cavaliers, but Jarrett Allen was already surging**\
+`With Evan Mobley hurt, Cleveland needed Allen to step up. He has, averaging nearly 21 points and more than 11 rebounds since Jan. 28.`\
+https://nytimes.com/athletic/7072304/2026/02/26/nba-jarrett-allen-james-harden-cavs-surge/
+
+**Chris Bosh says he's 'lucky to be alive' after waking up 'covered in my own blood'**\
+`Bosh revealed a health issue caused him to black out at home and wake up covered in blood.`\
+https://nytimes.com/athletic/7072606/2026/02/26/chris-bosh-blood-health-scare/
+
 **How to watch Maple Leafs vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7072933/2026/02/26/maple-leafs-vs-panthers-stream-how-to-watch-feb-26/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072918/2026/02/26/heat-vs-76ers-stream-how-to-watc
 **How to watch Devils vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7072915/2026/02/26/devils-vs-penguins-stream-how-to-watch-feb-26/
-
-**How to watch Lightning vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072913/2026/02/26/lightning-vs-hurricanes-stream-how-to-watch-feb-26/
-
-**Woman Said to Be Arrested After Sneaking on to Plane, Again**\
-`Svetlana Dali was detained in Milan after she boarded a United flight without a ticket at Newark Liberty International Airport, according to two people familiar with incident. She was convicted last year of doing the same thing.`\
-https://nytimes.com/2026/02/26/nyregion/svetlana-dali-stowaway-united-italy-newark.html
 
