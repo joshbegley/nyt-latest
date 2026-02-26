@@ -1,3 +1,7 @@
+**Hawks to bring 'Magic City' strip club vibe to home game, but without the dancers**\
+`The Hawks plan to honor Atlanta's "iconic cultural institution" in a March 16 home game against the Magic at State Farm Arena.`\
+https://nytimes.com/athletic/7073339/2026/02/26/hawks-magic-city-strip-club-promotion/
+
 **N.Y. Doctor’s Final Bid to Avoid Extradition to Japan Fails in Court**\
 `Dr. Masahide Kanayama could be sent to Japan next week to face charges that he vandalized ancient religious sites, federal prosecutors said.`\
 https://nytimes.com/2026/02/26/us/manhattan-doctor-extradition-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073402/2026/02/26/liverpool-transfers-trent-kone-d
 **Chicago Bids Farewell to Jesse Jackson as Memorials Begin**\
 `Mourners lined up outside Rainbow PUSH, the organization Mr. Jackson founded decades ago. He died last week at 84.`\
 https://nytimes.com/2026/02/26/us/jesse-jackson-chicago-repose-rainbow-push.html
-
-**Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
-`Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
-https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
 
