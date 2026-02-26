@@ -1,3 +1,15 @@
+**Bucks finding success with a new 'recipe' without Giannis. What's been the difference?**\
+`"With no Giannis, you take that all day," Bucks coach Doc Rivers said after his team earned its eighth win in 10 games Wednesday night.`\
+https://nytimes.com/athletic/7072190/2026/02/26/bucks-nba-giannis-kevin-porter-jr-ryan-rollins/
+
+**Man Arrested in New York Snowball Fight That Police Said Injured Officers**\
+`The incident, which began as a playful event, shifted in tone when the police appeared. Mayor Zohran Mamdani has said it did not appear to be a crime, while other officials called for arrests.`\
+https://nytimes.com/2026/02/26/nyregion/nypd-snowball-arrest-washington-square.html
+
+**Wolves' Arokodare set to give statement to police after facing online racist abuse**\
+`Head coach Rob Edwards said it had been "a really difficult week" for Arokodare and that he is being supported by the club.`\
+https://nytimes.com/athletic/7072501/2026/02/26/tolu-arokodare-wolves-racist-abuse-statement/
+
 **The Latest New Zealander to Move to Australia Is an Ex-Prime Minister**\
 `Jacinda Ardern, New Zealand’s former leader, is basing her family in Australia “for the moment,” a spokesman said. She is part of a wave of Kiwis relocating to their larger neighbor.`\
 https://nytimes.com/2026/02/26/world/australia/new-zealand-jacinda-ardern-australia.html
