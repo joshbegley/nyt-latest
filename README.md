@@ -1,3 +1,15 @@
+**A Creamy Salad Dressing That Will Change Your Life**\
+`The chefs of a wildly popular modern izakaya in California share their secret to a dead-simple sauce that makes you feel great.`\
+https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
+
+**At Jil Sander, It Could All Be So Simple**\
+`Simone Bellotti continues to make the case for brainy minimalism. Also, some memorable Moncler jackets and an Italian signore with unforgettable style.`\
+https://nytimes.com/2026/02/26/style/at-jil-sander-it-could-all-be-so-simple.html
+
+**How to Use One 6-Ounce Can of Tomato Paste Across a Week of Dinners**\
+`Ras el hanout chickpea and spinach stew, three-bean soup and spiced tomato and eggplant pasta leave no tomato paste behind.`\
+https://nytimes.com/2026/02/26/dining/how-to-use-one-6-ounce-can-of-tomato-paste-across-a-week-of-dinners.html
+
 **How to Measure Real Progress in Education**\
 `Randi Weingarten, president of the American Federation of Teachers, and others respond to a Nicholas Kristof column. Also: Reagan’s warning about nuclear weapons; aging doctors.`\
 https://nytimes.com/2026/02/26/opinion/public-school-education.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/26/theater/meat-suit-review-motherhood-aya-ogawa.htm
 **Why Was Mark Zuckerberg Front Row at Prada?**\
 `The Meta chief executive’s presence in Milan seemed to project his company’s ambitions.`\
 https://nytimes.com/2026/02/26/style/mark-zuckerberg-prada-milan-fashion-week.html
-
-**U.S. Mortgage Rates Fall Below 6% for First Time in Years**\
-`The evidence is patchy on whether lower rates have meaningfully spurred more activity, as the Trump administration floats measures it says will make housing more affordable.`\
-https://nytimes.com/2026/02/26/business/mortgage-rates-30-year.html
-
-**Trump’s State of the Union Was Rage Bait**\
-`President Trump’s State of the Union address leaned heavily on rage bait for one reason, the Times Opinion columnist Jamelle Bouie argues: The president is trying to distract from the fact that he is failing to govern the country effectively.`\
-https://nytimes.com/video/opinion/100000010736178/trumps-state-of-the-union-was-rage-bait.html
-
-**Mamdani and Trump Are Set to Meet in Washington**\
-`Mayor Zohran Mamdani’s trip to the White House on Thursday was unannounced. The topics he planned to discuss with President Trump were not immediately clear.`\
-https://nytimes.com/2026/02/26/nyregion/mamdani-trump-meeting.html
 

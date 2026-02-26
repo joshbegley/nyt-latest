@@ -1,3 +1,11 @@
+**How to Measure Real Progress in Education**\
+`Randi Weingarten, president of the American Federation of Teachers, and others respond to a Nicholas Kristof column. Also: Reagan’s warning about nuclear weapons; aging doctors.`\
+https://nytimes.com/2026/02/26/opinion/public-school-education.html
+
+**‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell’s.`\
+https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
+
 **Brentford head coach Keith Andrews signs new six-year contract**\
 `Andrews, 45, has outperformed expectations with Brentford seventh in the table, only five points behind Chelsea in fifth place.`\
 https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentford-contract/
