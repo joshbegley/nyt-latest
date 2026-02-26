@@ -1,3 +1,11 @@
+**Why Nvidia’s Big Profits Aren’t Lifting Markets**\
+`The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
+https://nytimes.com/2026/02/26/business/dealbook/nvidias-ai-markets.html
+
+**Revel, a Maker of Software for Running Hardware, Raises $150 Million**\
+`The start-up, founded by a former top SpaceX engineer, promises to help companies reduce their testing times and optimize systems.`\
+https://nytimes.com/2026/02/26/business/dealbook/revel-software-hardware-fund-raise.html
+
 **Nebraska's offseason has been low on hype. But its new coaches inspired confidence Wednesday**\
 `There's less fanfare around Nebraska this spring after an end to the 2025 season marked by four losses in five games.`\
 https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-spring-practices/
