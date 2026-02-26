@@ -1,3 +1,7 @@
+**Chicago Man Faces U.S. Charges in Woman’s Killing During Bali Trip**\
+`The man is accused of conspiring with his then girlfriend to kill her mother, whose body was stuffed in a suitcase. He spent 11 years in prison in Bali, Indonesia, on related charges.`\
+https://nytimes.com/2026/02/26/us/tommy-schaefer-bali-suitcase-murder-court.html
+
 **Wild gold medalists reflect on 'hectic' week, making sure they're ready for NHL return**\
 `The Wild's U.S. Olympians are ready to get back at it. Quinn Hughes: “I feel like we owe it to the Wild to make sure we’re at our best.”`\
 https://nytimes.com/athletic/7073904/2026/02/26/wild-gold-medalists-avalanche/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/26/arts/design/jean-widmer-dead.html
 **Wayne Tinkle, who guided Oregon State to 2021 Elite Eight, won't return next season**\
 `Tinkle compiled a 175-204 record and made two NCAA Tournaments in 12 seasons.`\
 https://nytimes.com/athletic/7073811/2026/02/26/oregon-state-wayne-tinkle-fired/
-
-**Trump’s Fantasy State of the Union**\
-`Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
-https://nytimes.com/video/opinion/100000010732768/trumps-fantasy-state-of-the-union.html
 
