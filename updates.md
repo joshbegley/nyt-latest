@@ -1,3 +1,7 @@
+**Why Are So Many Democrats Running for California Governor?**\
+`With California’s political machine on the wane, nobody has emerged as a clear front-runner. Democrats worry that nine of their candidates could split the vote and hand Republicans a win.`\
+https://nytimes.com/2026/02/26/us/california-governor-democratic-political-machine.html
+
 **Jets agree to trade Jermaine Johnson to Titans for T’Vondre Sweat: Sources**\
 `Johnson was a first-round pick of the Jets in 2022.`\
 https://nytimes.com/athletic/7072657/2026/02/26/jermaine-johnson-tvondre-sweat-jets-titans-trade/
