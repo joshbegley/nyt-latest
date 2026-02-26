@@ -1,3 +1,23 @@
+**Wild gold medalists reflect on 'hectic' week, making sure they're ready for NHL return**\
+`The Wild's U.S. Olympians are ready to get back at it. Quinn Hughes: “I feel like we owe it to the Wild to make sure we’re at our best.”`\
+https://nytimes.com/athletic/7073904/2026/02/26/wild-gold-medalists-avalanche/
+
+**Denmark’s Prime Minister Calls For a Snap Parliamentary Election**\
+`Prime Minister Mette Frederiksen’s announcement came just weeks after she surged in public opinion polls for standing up to President Trump’s threats to take over Greenland.`\
+https://nytimes.com/video/world/europe/100000010739263/denmark-election-greenland-trump.html
+
+**The Minnesota Fraud Scandal and the Fallout, Explained**\
+`An inquiry into scams involving money slated for social services has deepened over the years. It also is at the center of several recent domestic decisions by the Trump administration.`\
+https://nytimes.com/2026/02/26/us/minnesota-welfare-fraud-scandal.html
+
+**Eight members of Team Cuba's WBC traveling party denied entry into U.S.**\
+`No players were denied entry and the team still plans to participate in the tournament, according to a WBC source.`\
+https://nytimes.com/athletic/7073941/2026/02/26/cuba-denied-entry-united-states-wbc/
+
+**Wings' Dylan Larkin reflects on Olympics victory, Trump call criticism**\
+`Among Dylan Larkin's Olympics memories: "How just crazy, stressful and intense" the gold medal game was.`\
+https://nytimes.com/athletic/7073912/2026/02/26/red-wings-dylan-larkin-olympic-gold-usa-women-trump/
+
 **Trump Declared Victory in Minneapolis. But What Did He Accomplish?**\
 `The Trump administration came under fire for an operation that turned lethal and politically toxic. But the show of force may also have had a bigger purpose: to serve as a warning.`\
 https://nytimes.com/2026/02/26/us/politics/trump-minneapolis-ice-immigration.html
@@ -13,28 +33,4 @@ https://nytimes.com/athletic/7073811/2026/02/26/oregon-state-wayne-tinkle-fired/
 **Trump’s Fantasy State of the Union**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/video/opinion/100000010732768/trumps-fantasy-state-of-the-union.html
-
-**Epstein Is Shaking the Climate World, Too**\
-`A major funder of the Earthshot Prize has been linked to the convicted sex offender.`\
-https://nytimes.com/2026/02/26/climate/epstein-climate-earthshot.html
-
-**Warner Bros. Discovery Deems Paramount’s $111 Billion Bid ‘Superior’**\
-`Netflix now has four business days to decide whether it wants to counter Paramount’s offer.`\
-https://nytimes.com/2026/02/26/business/warner-bros-discovery-deems-paramounts-111-billion-bid-superior.html
-
-**In Landmark Trial, Plaintiff Says Social Media Harm Started at Age 6**\
-`The plaintiff, a 20-year-old identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
-https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
-
-**15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
-`The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
-https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html
-
-**Game-Changing Drugs**\
-`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknowns about long-term use.`\
-https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
-
-**Where to Eat and Have a Shvitz**\
-`Three New York City banyas where you can squeeze in a great meal with a great sweat.`\
-https://nytimes.com/2026/02/26/dining/where-to-eat-and-have-a-shvitz.html
 
