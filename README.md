@@ -1,3 +1,27 @@
+**Anthropic Says Little Progress Made in Pentagon Talks Over A.I.**\
+`The Pentagon has imposed a Friday deadline over a demand that Anthropic provide unfettered access to its A.I. system without safeguards for military operations.`\
+https://nytimes.com/2026/02/26/technology/anthropic-pentagon-talks-ai.html
+
+**Will World Cup Games in Mexico Be Affected by Cartel Boss Killing?**\
+`Safety questions linger since the country is set to host matches in the world’s largest sporting event, the FIFA World Cup.`\
+https://nytimes.com/2026/02/26/world/americas/mexico-world-cup-safety.html
+
+**Regime Change in Cuba Appeals to Trump but Carries Risks**\
+`The Trump administration is signaling a different approach, after demanding an end to Cuba’s communist leadership.`\
+https://nytimes.com/2026/02/26/us/politics/trump-cuba-regime-change.html
+
+**What I'm hearing about Robert Thomas, Jordan Binnington and other Blues ahead of the trade deadline**\
+`Thomas and Binnington are among the most prominent Blues names on the trade board. Will they be on the move before March 6?`\
+https://nytimes.com/athletic/7073145/2026/02/26/blues-trade-deadline-thomas-binnington/
+
+**Liverpool's Kone-Doherty in talks over possible Molde transfer**\
+`The 19-year-old winger is out of contract at the end of the season and has been considering his options.`\
+https://nytimes.com/athletic/7073402/2026/02/26/liverpool-transfers-trent-kone-doherty-molde/
+
+**Chicago Bids Farewell to Jesse Jackson as Memorials Begin**\
+`Mourners lined up outside Rainbow PUSH, the organization Mr. Jackson founded decades ago. He died last week at 84.`\
+https://nytimes.com/2026/02/26/us/jesse-jackson-chicago-repose-rainbow-push.html
+
 **Parents Wait Months to Be Taken Off N.Y. Child Abuse List, Lawsuit Says**\
 `Over 4,800 parents waited at least a year for a decision from the state after challenging their listing on a database for people who have mistreated or abused children from 2020 through mid-2025.`\
 https://nytimes.com/2026/02/26/nyregion/child-abuse-database-lawsuit.html
@@ -13,24 +37,4 @@ https://nytimes.com/video/opinion/100000010726865/what-does-nasa-know-about-alie
 **Fantasy basketball hot topics: Memphis' minutes crunch, Jonathan Kuminga's Atlanta debut**\
 `Stan Son addresses fantasy-relevant NBA news, including Memphis' minutes share, injuries and who to target on waivers. `\
 https://nytimes.com/athletic/7073894/2026/02/26/fantasy-basketball-hot-topics-memphis-minutes/
-
-**Scoop City: What actually matters at the combine?**\
-`The combine drills and metrics that matter for quarterbacks, receivers and other positions`\
-https://nytimes.com/athletic/7073861/2026/02/26/nfl-combine-what-metrics-matter/
-
-**First the Moon, Then Mars**\
-`The NASA administrator Jared Isaacman tells Ross Douthat how his trips to space shaped his perspective on space travel.`\
-https://nytimes.com/video/opinion/100000010726859/first-the-moon-then-mars.html
-
-**Chicago Man Faces U.S. Charges in Woman’s Killing During Bali Trip**\
-`The man is accused of conspiring with his then girlfriend to kill her mother, whose body was stuffed in a suitcase. He spent 11 years in prison in Bali, Indonesia, on related charges.`\
-https://nytimes.com/2026/02/26/us/tommy-schaefer-bali-suitcase-murder-court.html
-
-**Wild gold medalists reflect on 'hectic' week, making sure they're ready for NHL return**\
-`The Wild's U.S. Olympians are ready to get back at it. Quinn Hughes: “I feel like we owe it to the Wild to make sure we’re at our best.”`\
-https://nytimes.com/athletic/7073904/2026/02/26/wild-gold-medalists-avalanche/
-
-**Denmark’s Prime Minister Calls For a Snap Parliamentary Election**\
-`Prime Minister Mette Frederiksen’s announcement came just weeks after she surged in public opinion polls for standing up to President Trump’s threats to take over Greenland.`\
-https://nytimes.com/video/world/europe/100000010739263/denmark-election-greenland-trump.html
 
