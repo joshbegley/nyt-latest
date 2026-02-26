@@ -1,40 +1,40 @@
-**The Trumpiest Trump We’ve Ever Beheld**\
-`The president is becoming the very thing that destroyed the Democrats: a reality-denying machine.`\
-https://nytimes.com/2026/02/26/opinion/trump-state-union-carterls-mexico.html
+**‘Time Is Not on Russia’s Side’**\
+`If the battle for Ukraine Is not World War I or World War III, what is it?`\
+https://nytimes.com/2026/02/26/opinion/russia-ukraine-drone-war.html
 
-**‘The Luckiest Man in America’ and More Streaming Gems**\
-`A game-show drama and a documentary valentine to a cult movie queen are among the little treats tucked away on your subscription streaming services this month.`\
-https://nytimes.com/2026/02/26/movies/the-luckiest-man-in-america-streaming.html
+**When an Experimental Italian Artist Designed a New York Office**\
+`Plus: minimalist outdoor furniture, an art institute’s restaurant in Brooklyn and more recommendations from T Magazine.`\
+https://nytimes.com/2026/02/26/t-magazine/gaetano-pesce-chiat-day-office.html
 
-**Don’t Make a Saint Out of Toni Morrison**\
-`It’s a disservice — to her and to us.`\
-https://nytimes.com/2026/02/26/podcasts/cannonball-toni-morrison.html
+**Antarctica’s Mineral Riches Exposed as Climate Warms**\
+`Mining is banned on the frozen continent. But new research suggests that could change as ice melts and land and valuable minerals are exposed.`\
+https://nytimes.com/2026/02/26/climate/antarcticas-mineral-riches-exposed-as-climate-warms.html
 
-**‘Z’? ‘Zo’? ‘Mam’? A New Mayor Needs a Nickname.**\
-`Mayor Zohran Mamdani has been given a bevy of nicknames by New York City’s tabloid newspapers and political class. Which will stick?`\
-https://nytimes.com/2026/02/26/business/media/zohran-mamdani-nyc-mayor-new-york-post.html
+**They Wanted a Two-Bedroom in Queens, With Room to Grow, for Less Than $400,000**\
+`Seeking to put down roots in their community, a pair of newlyweds searched the co-ops of Jackson Heights and Elmhurst. Here’s what they found.`\
+https://nytimes.com/interactive/2026/02/26/realestate/queens-jackson-heights-elmhurst-apartments-sale.html
 
-**With Bends, Crinkles and a Cool Decor Makeover, Carol Bove Takes the Guggenheim**\
-`She extracts something new from steel, dispelling its aura of brawn. Her signature form is a rumpled ribbon of metal painted to look as soft as suede.`\
-https://nytimes.com/2026/02/26/arts/design/carol-bove-guggenheim-museum.html
+**What Cultural or Family Traditions Are Important to You?**\
+`Asian cultures around the world are celebrating the Lunar New Year with a variety of rituals. How does tradition help you feel connected to your roots?`\
+https://nytimes.com/2026/02/26/learning/what-cultural-or-family-traditions-are-important-to-you.html
 
-**Putting on the Shvitz**\
-`This harsh winter, some New Yorkers found refuge at Sauna Fest in Domino Park in Brooklyn, with curated sweat sessions led by towel-swinging sauna masters.`\
-https://nytimes.com/2026/02/26/style/sauna-fest-brooklyn-domino-park.html
+**A.I. Complicates Old Internet Privacy Risks**\
+`Artificial intelligence is convenient and easy to use, but you should think about what you say to the chatbots.`\
+https://nytimes.com/2026/02/26/technology/personaltech/ai-complicates-old-internet-privacy-risks.html
 
-**Homes for Sale in Manhattan and the Bronx**\
-`This week’s properties are in Gramercy Park, Morningside Heights and on City Island.`\
-https://nytimes.com/2026/02/26/realestate/housing-market-nyc.html
+**When Chatbots Are Used to Plan Violence, Is There a Duty to Warn?**\
+`People are revealing sensitive personal information to A.I. chatbots — including plans to commit violent acts.`\
+https://nytimes.com/2026/02/26/technology/chatbots-duty-warn-police.html
 
-**Homes for Sale in New York and Connecticut**\
-`This week’s properties are four-bedroom homes in Lido Beach and Redding.`\
-https://nytimes.com/2026/02/26/realestate/new-york-connecticut-homes-for-sale.html
+**Cornyn, Paxton, Hunt: It’s a Republican Showdown in Texas**\
+`Times Opinion convened a panel of state experts to weigh in on the Senate Republican primary.`\
+https://nytimes.com/interactive/2026/02/26/opinion/texas-senate-candidates.html
 
-**A Japanese City Received 21 Gold Bars With Instructions: Fix Your Water Pipes**\
-`An anonymous donation of $3.6 million worth of gold highlights frustration with Osaka’s aging waterworks. It will only finance repairs to a fraction of the pipes that need to be replaced.`\
-https://nytimes.com/2026/02/26/world/asia/osaka-water-pipes-gold-bars.html
+**Israelis Are Waiting for War with Iran, Again**\
+`The national mood is somewhere between anxiety, resignation and anticipation as President Trump considers whether to attack Iran.`\
+https://nytimes.com/2026/02/26/world/middleeast/israel-iran-war.html
 
-**Noguchi Envisioned a More Open New York. New York Wasn’t Interested.**\
-`Isamu Noguchi became one of the most successful artists of the 20th century, but the city met his plans for public spaces with indifference.`\
-https://nytimes.com/2026/02/26/arts/design/noguchi-new-york-city-museum.html
+**The New Space Race**\
+`Can NASA and Elon Musk get us to Mars and beyond?`\
+https://nytimes.com/2026/02/26/opinion/space-nasa-elon-musk.html
 
