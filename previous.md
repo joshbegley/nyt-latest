@@ -1,40 +1,40 @@
+**James Harden upgrades the Cavaliers, but Jarrett Allen was already surging**\
+`With Evan Mobley hurt, Cleveland needed Allen to step up. He has, averaging nearly 21 points and more than 11 rebounds since Jan. 28.`\
+https://nytimes.com/athletic/7072304/2026/02/26/nba-jarrett-allen-james-harden-cavs-surge/
+
+**Chris Bosh says he's 'lucky to be alive' after waking up 'covered in my own blood'**\
+`Bosh revealed a health issue caused him to black out at home and wake up covered in blood.`\
+https://nytimes.com/athletic/7072606/2026/02/26/chris-bosh-blood-health-scare/
+
+**How to watch Maple Leafs vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072933/2026/02/26/maple-leafs-vs-panthers-stream-how-to-watch-feb-26/
+
+**How to watch Red Wings vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072931/2026/02/26/red-wings-vs-senators-stream-how-to-watch-feb-26/
+
+**Season eight of Netflix's 'Drive to Survive' to be shown on Apple TV in the U.S.**\
+`In October, Apple TV agreed a deal to become Formula One's exclusive U.S. broadcaster.`\
+https://nytimes.com/athletic/7072759/2026/02/26/drive-to-survive-netflx-apple-tv-f1/
+
+**How to watch Islanders vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072928/2026/02/26/islanders-vs-canadiens-stream-how-to-watch-feb-26/
+
+**How to watch Hornets vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072925/2026/02/26/hornets-vs-pacers-stream-how-to-watch-feb-26/
+
+**How to watch Blue Jackets vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072920/2026/02/26/blue-jackets-vs-bruins-stream-how-to-watch-feb-26/
+
+**How to watch Heat vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072918/2026/02/26/heat-vs-76ers-stream-how-to-watch-feb-26/
+
 **How to watch Devils vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7072915/2026/02/26/devils-vs-penguins-stream-how-to-watch-feb-26/
-
-**How to watch Lightning vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072913/2026/02/26/lightning-vs-hurricanes-stream-how-to-watch-feb-26/
-
-**Woman Said to Be Arrested After Sneaking on to Plane, Again**\
-`Svetlana Dali was detained in Milan after she boarded a United flight without a ticket at Newark Liberty International Airport, according to two people familiar with incident. She was convicted last year of doing the same thing.`\
-https://nytimes.com/2026/02/26/nyregion/svetlana-dali-stowaway-united-italy-newark.html
-
-**The Estrogen Patch Surged in Popularity. Now It’s in Shortage.**\
-`Changing attitudes around menopause treatment have driven up demand for hormone therapy.`\
-https://nytimes.com/2026/02/26/well/estrogen-patches-menopause-treatment.html
-
-**How to watch Georgetown vs. UConn women's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgetown Hoyas play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072883/2026/02/26/georgetown-vs-uconn-stream-how-to-watch-feb-26/
-
-**Science Practice | A Study on a Robotic Hand Design**\
-`A new robotic picker-upper can roam around freely, like Thing from “The Addams Family.”`\
-https://nytimes.com/2026/02/26/learning/science-practice-a-study-on-a-robotic-hand-design.html
-
-**How to watch Tennessee vs. LSU women's basketball: Time, TV, streaming**\
-`Find out how to watch the Tennessee Lady Volunteers play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072877/2026/02/26/tennessee-vs-lsu-stream-how-to-watch-feb-26/
-
-**How to watch North Carolina vs. Virginia women's basketball: Time, TV, streaming**\
-`Find out how to watch the North Carolina Tar Heels play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072873/2026/02/26/north-carolina-vs-virginia-stream-how-to-watch-feb-26/
-
-**How to watch Ole Miss vs. Florida women's basketball: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7072863/2026/02/26/ole-miss-vs-florida-stream-how-to-watch-feb-26/
-
-**Rose Lesniak, Poet Who Rescued Children and Trained Dogs, Dies at 70**\
-`A magnetic personality, she reinvented herself twice, bringing the same spirit to investigating child abuse and communing with dogs that she did to writing poetry.`\
-https://nytimes.com/2026/02/26/books/rose-lesniak-dead.html
 
