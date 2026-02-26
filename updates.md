@@ -1,3 +1,7 @@
+**After turbulence and trauma, Vinicius Jr was Real Madrid’s Champions League hero**\
+`In a match played in the shadow of an allegation of racist abuse, it was fitting that the 25-year-old Brazilian should illuminate things`\
+https://nytimes.com/athletic/7072122/2026/02/26/vinicius-jr-real-madrid-champions-league-benfica-victory/
+
 **China Wants Germany in Its Corner. It’s Not That Easy.**\
 `China’s play for U.S. allies has a problem: As Germany’s leader showed, Europe’s grievances with Beijing may run deeper than its frustration with Trump.`\
 https://nytimes.com/2026/02/26/world/asia/merz-china-analysis.html
