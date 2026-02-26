@@ -1,3 +1,7 @@
+**How Shaquille O'Neal and Damian Lillard made it in hip-hop as NBA stars**\
+`Shaquille O'Neal and Damian Lillard are the two who have generated the staying power to make it as an NBA standout and as a hip-hop artist.`\
+https://nytimes.com/athletic/7068142/2026/02/26/shaquille-oneal-damian-lillard-nba-basketball-hip-hop/
+
 **TAFC: Vinicius Jr's victory dance as Real Madrid beat Benfica, what's eating Italian teams?**\
 `Today in TAFC: Vinicius Jr keeps on dancing, how bad are Italian teams, and why has their been a sporran U-turn?`\
 https://nytimes.com/athletic/7072149/2026/02/26/vinicius-jr-real-madrid-benfica-champions-league/

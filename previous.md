@@ -1,3 +1,7 @@
+**How Shaquille O'Neal and Damian Lillard made it in hip-hop as NBA stars**\
+`Shaquille O'Neal and Damian Lillard are the two who have generated the staying power to make it as an NBA standout and as a hip-hop artist.`\
+https://nytimes.com/athletic/7068142/2026/02/26/shaquille-oneal-damian-lillard-nba-basketball-hip-hop/
+
 **TAFC: Vinicius Jr's victory dance as Real Madrid beat Benfica, what's eating Italian teams?**\
 `Today in TAFC: Vinicius Jr keeps on dancing, how bad are Italian teams, and why has their been a sporran U-turn?`\
 https://nytimes.com/athletic/7072149/2026/02/26/vinicius-jr-real-madrid-benfica-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071903/2026/02/26/sabres-tage-thompson-olympics-re
 **Why selling at the trade deadline is only option for the Maple Leafs**\
 `The Leafs remain six points out of the final wild-card spot with one fewer game to make up ground after a 4-2 loss to Tampa Bay.`\
 https://nytimes.com/athletic/7071876/2026/02/26/maple-leafs-lightning-loss-playoff-hopes-trade-deadline/
-
-**What allows Bo Bichette to be at his best in the biggest moments?**\
-`Over the last three seasons, nobody in baseball has a higher average with runners in scoring position than Bichette, .369.`\
-https://nytimes.com/athletic/7071834/2026/02/26/bo-bichette-best-biggest-moments/
 
