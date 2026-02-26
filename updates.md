@@ -1,3 +1,7 @@
+**Red Bull executive calls Klopp departure rumours 'complete nonsense'**\
+`The former Liverpool head coach has been Red Bull's global head of soccer since January 2025.`\
+https://nytimes.com/athletic/7072227/2026/02/26/jurgen-klopp-red-bull-future-latest/
+
 **Jaylen Brown likes where the Celtics are as a team despite loss to Nuggets**\
 `Boston ran out of gas in the second half of its last game on a swing through the West. But its top two players are hardly discouraged.`\
 https://nytimes.com/athletic/7072058/2026/02/26/jaylen-brown-celtics-loss-nuggets/

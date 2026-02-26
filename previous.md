@@ -1,3 +1,7 @@
+**Red Bull executive calls Klopp departure rumours 'complete nonsense'**\
+`The former Liverpool head coach has been Red Bull's global head of soccer since January 2025.`\
+https://nytimes.com/athletic/7072227/2026/02/26/jurgen-klopp-red-bull-future-latest/
+
 **Jaylen Brown likes where the Celtics are as a team despite loss to Nuggets**\
 `Boston ran out of gas in the second half of its last game on a swing through the West. But its top two players are hardly discouraged.`\
 https://nytimes.com/athletic/7072058/2026/02/26/jaylen-brown-celtics-loss-nuggets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071260/2026/02/26/denver-broncos-nfl-combine-payto
 **Ten prospects for the 49ers to watch this week, including Omar Cooper and Kenyon Sadiq**\
 `Edge rusher and receiver rank highly on the 49ers' to-do list. They could also use a tight end in a draft that is deep at the position.`\
 https://nytimes.com/athletic/7070588/2026/02/26/49ers-nfl-combine-draft-prospects/
-
-**Vincent Iorio 'has all the tools' to seize opportunities with Rangers**\
-`Madison Square Garden isn't a new venue for the Rangers' new defenseman. He just never thought it'd become his NHL home.`\
-https://nytimes.com/athletic/7071446/2026/02/26/vincent-iorio-rangers-defenseman-new-york/
 
