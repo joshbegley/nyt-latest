@@ -1,3 +1,11 @@
+**Warner Bros. Discovery Deems Paramount’s $111 Billion Bid ‘Superior’**\
+`Netflix now has four business days to decide whether it wants to counter Paramount’s offer.`\
+https://nytimes.com/2026/02/26/business/warner-bros-discovery-deems-paramounts-111-billion-bid-superior.html
+
+**In Landmark Trial, Plaintiff Says Social Media Harm Started at Age 6**\
+`The plaintiff, identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
+https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
+
 **15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
 `The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
 https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html

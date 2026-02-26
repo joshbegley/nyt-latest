@@ -1,9 +1,13 @@
+**Epstein Is Shaking the Climate World, Too**\
+`A major funder of the Earthshot Prize has been linked to the convicted sex offender.`\
+https://nytimes.com/2026/02/26/climate/epstein-climate-earthshot.html
+
 **Warner Bros. Discovery Deems Paramount’s $111 Billion Bid ‘Superior’**\
 `Netflix now has four business days to decide whether it wants to counter Paramount’s offer.`\
 https://nytimes.com/2026/02/26/business/warner-bros-discovery-deems-paramounts-111-billion-bid-superior.html
 
 **In Landmark Trial, Plaintiff Says Social Media Harm Started at Age 6**\
-`The plaintiff, identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
+`The plaintiff, a 20-year-old identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
 https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
 
 **15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010732772/what-if-trump-believes-all-of-
 **Sens captain Brady Tkachuk addresses Trump call, White House TikTok and gold medal win**\
 `Tkachuk and teammate Jake Sanderson addressed reporters in Ottawa for the first time since winning an Olympic gold medal in men's hockey.`\
 https://nytimes.com/athletic/7070904/2026/02/26/tkachuk-sanderson-senators-trump-usa-olympics/
-
-**How to watch Rockets vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073828/2026/02/26/rockets-vs-magic-stream-how-to-watch-feb-26/
 
