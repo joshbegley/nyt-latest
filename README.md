@@ -1,3 +1,7 @@
+**All these Bulls losses are weighing on Matas Buzelis**\
+`The second-year forward's normally unwavering confidence has been shaken by Chicago's roster overhaul and 10-game skid.`\
+https://nytimes.com/athletic/7072269/2026/02/26/matas-buzelis-bulls-losing/
+
 **Why Nvidia’s Big Profits Aren’t Lifting Markets**\
 `The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
 https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071426/2026/02/26/cubs-roster-projection-2-0-new-d
 **What a March CBA deal would mean for WNBA free agency, expansion and the draft**\
 `Expect a chaotic spring in the WNBA if a CBA deal is reached.`\
 https://nytimes.com/athletic/7071517/2026/02/26/wnba-cba-agreement-spring-free-agency-expansion-draft-camp/
-
-**Ausar Thompson is the Pistons' floor-raising, defensive dynamo**\
-`Cade Cunningham and Jalen Duren are Detroit's two best players. But Thompson showed against the Thunder why he's the biggest X-factor.`\
-https://nytimes.com/athletic/7072010/2026/02/26/ausar-thompson-pistons-defense-thunder-win/
 

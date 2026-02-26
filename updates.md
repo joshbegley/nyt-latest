@@ -1,5 +1,9 @@
 **Why Nvidia’s Big Profits Aren’t Lifting Markets**\
 `The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
+https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
+
+**Why Nvidia’s Big Profits Aren’t Lifting Markets**\
+`The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
 https://nytimes.com/2026/02/26/business/dealbook/nvidias-ai-markets.html
 
 **Revel, a Maker of Software for Running Hardware, Raises $150 Million**\

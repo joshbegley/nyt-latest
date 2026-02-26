@@ -1,6 +1,6 @@
 **Why Nvidia’s Big Profits Aren’t Lifting Markets**\
 `The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
-https://nytimes.com/2026/02/26/business/dealbook/nvidias-ai-markets.html
+https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
 
 **Revel, a Maker of Software for Running Hardware, Raises $150 Million**\
 `The start-up, founded by a former top SpaceX engineer, promises to help companies reduce their testing times and optimize systems.`\
