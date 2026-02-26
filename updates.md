@@ -1,3 +1,7 @@
+**2026 fantasy baseball points-league rankings: Top 300 players**\
+`Michael Waterloo shares his top 300 players for 2026 fantasy baseball points leagues, with Dodgers phenom Shohei Ohtani topping the list.`\
+https://nytimes.com/athletic/7073131/2026/02/26/points-league-rankings-2026-fantasy-baseball/
+
 **Oliver Grant, a Business Architect of Wu-Tang Clan, Dies**\
 `He was behind the scenes with Wu-Tang Clan, the New York rap group, since its founding and helped expand its reach with a fashion line.`\
 https://nytimes.com/2026/02/26/obituaries/oliver-power-grant-dead-wu-tang-clan-fashion.html

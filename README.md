@@ -1,3 +1,15 @@
+**From 'spat' to full-blown 'brawl': The sliding scale of on-pitch confrontations in football**\
+`After Chelsea and West Ham United were fined for their "mass confrontation", Tim Spiers explains the specific language around "bust-ups"`\
+https://nytimes.com/athletic/7072173/2026/02/26/from-spat-to-full-blown-brawl-the-sliding-scale-of-on-pitch-confrontations-in-football/
+
+**'Best moment in my life': Zach Werenski, back with Blue Jackets, still reveling in Olympic gold**\
+`Werenski also discussed honoring Johnny Gaudreau and the controversy involving President Donald Trump's comments.`\
+https://nytimes.com/athletic/7073155/2026/02/26/werenski-olympics-usa-blue-jackets/
+
+**Birds Aren’t Just Declining. They’re Declining Faster, a New Study Finds.**\
+`Scientists studying data collected over more than three decades found accelerating losses. Their research offers clues about the causes.`\
+https://nytimes.com/2026/02/26/climate/bird-declines.html
+
 **2026 fantasy baseball points-league rankings: Top 300 players**\
 `Michael Waterloo shares his top 300 players for 2026 fantasy baseball points leagues, with Dodgers phenom Shohei Ohtani topping the list.`\
 https://nytimes.com/athletic/7073131/2026/02/26/points-league-rankings-2026-fantasy-baseball/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-
 **Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
 `The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
 https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
-
-**ICE Car Chase Leads to Crash Involving Children, Newark Mayor Says**\
-`The crash happened on Wednesday morning, Mayor Ras Baraka said, as federal immigration agents were pursuing a man driving a van.`\
-https://nytimes.com/2026/02/26/nyregion/ice-car-crash-newark-baraka.html
-
-**Hillary Clinton’s Deposition on Epstein Disrupted by Leak of Photo of Her Testifying**\
-`The former secretary of state had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
-https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
-
-**'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
-`McAvoy has endured injury, infection, family concerns and more injury over the past year — and come through it a gold-medal winner.`\
-https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
 

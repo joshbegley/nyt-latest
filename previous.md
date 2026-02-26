@@ -1,3 +1,7 @@
+**2026 fantasy baseball points-league rankings: Top 300 players**\
+`Michael Waterloo shares his top 300 players for 2026 fantasy baseball points leagues, with Dodgers phenom Shohei Ohtani topping the list.`\
+https://nytimes.com/athletic/7073131/2026/02/26/points-league-rankings-2026-fantasy-baseball/
+
 **Oliver Grant, a Business Architect of Wu-Tang Clan, Dies**\
 `He was behind the scenes with Wu-Tang Clan, the New York rap group, since its founding and helped expand its reach with a fashion line.`\
 https://nytimes.com/2026/02/26/obituaries/oliver-power-grant-dead-wu-tang-clan-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-la
 **'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
 `McAvoy has endured injury, infection, family concerns and more injury over the past year — and come through it a gold-medal winner.`\
 https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
-
-**Arsenal's Smith withdraws from SheBelieves Cup with Canada due to concussion**\
-`Smith was set to face Colombia, the USWNT and Argentina in the week-long SheBelieves Cup tournament that starts on Sunday.`\
-https://nytimes.com/athletic/7065420/2026/02/26/arsenal-olivia-smith-injury-canada-concussion-update/
 
