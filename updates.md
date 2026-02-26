@@ -1,3 +1,7 @@
+**Trump’s Fantasy State of the Union**\
+`Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
+https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
+
 **An Inside Look at the State of the Union**\
 `Our photojournalist Kenny Holston was the only news photographer on the House floor during President Trump’s State of the Union speech. Here’s how he captured his images.`\
 https://nytimes.com/video/us/100000010725890/an-inside-look-at-the-state-of-the-union.html
