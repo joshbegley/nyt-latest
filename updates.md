@@ -1,3 +1,7 @@
+**Marco Rubio Says U.S. Is Probing Deadly Cuban Shooting**\
+`Cuban officials said border troops engaged in gunfire with a Florida-based speedboat on Wednesday, leaving four dead on the boat and six wounded. Secretary of State Marco Rubio said the U.S. is working to verify what happened and will respond accordingly.`\
+https://nytimes.com/video/world/americas/100000010738156/cuba-speedboat-shooting.html
+
 **After turbulence and trauma, Vinicius Jr was Real Madrid’s Champions League hero**\
 `In a match played in the shadow of an allegation of racist abuse, it was fitting that the 25-year-old Brazilian should illuminate things`\
 https://nytimes.com/athletic/7072122/2026/02/26/vinicius-jr-real-madrid-champions-league-benfica-victory/

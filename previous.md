@@ -1,3 +1,7 @@
+**Marco Rubio Says U.S. Is Probing Deadly Cuban Shooting**\
+`Cuban officials said border troops engaged in gunfire with a Florida-based speedboat on Wednesday, leaving four dead on the boat and six wounded. Secretary of State Marco Rubio said the U.S. is working to verify what happened and will respond accordingly.`\
+https://nytimes.com/video/world/americas/100000010738156/cuba-speedboat-shooting.html
+
 **After turbulence and trauma, Vinicius Jr was Real Madrid’s Champions League hero**\
 `In a match played in the shadow of an allegation of racist abuse, it was fitting that the 25-year-old Brazilian should illuminate things`\
 https://nytimes.com/athletic/7072122/2026/02/26/vinicius-jr-real-madrid-champions-league-benfica-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/crosswords/spelling-bee-forum.html
 **What We Know About the Gun Battle Off the Coast of Cuba**\
 `Four armed Cubans aboard a Florida-based speedboat died in a gunfight with Cuban border troops on Wednesday, officials said.`\
 https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
-
-**Word of the Day: benevolent**\
-`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/26/learning/word-of-the-day-benevolent.html
 
