@@ -2,6 +2,10 @@
 `Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
 https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
 
+**PSG aren't the side they were last season. Will they ever be again?**\
+`PSG are through to the last 16 of the Champions League but the nature of their victory over Monaco was not entirely convincing...`\
+https://nytimes.com/athletic/7071552/2026/02/26/psg-decline-monaco-champions-league/
+
 **The New York Times in Print for Thursday, Feb. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070655/2026/02/26/chelsea-premier-league-yellow-re
 **Branthwaite needs to play at centre-back. It will be better for both him and Everton**\
 `The Englishman has struggled to adapt to the makeshift left-back role he has been asked to play since returning from injury`\
 https://nytimes.com/athletic/7069981/2026/02/26/branthwaite-everton-defence-moyes/
-
-**Pereira’s eventful time at Olympiacos: Pitch invasions, Marinakis, and doing the double**\
-`The Forest head coach has had a varied career path, not least a colourful spell with Marinakis' Greek club Olympiacos`\
-https://nytimes.com/athletic/7070785/2026/02/26/vitor-pereira-olympiacos-marinakis/
 
