@@ -1,3 +1,11 @@
+**How to watch Alabama vs. Vanderbilt women's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7073734/2026/02/26/alabama-vs-vanderbilt-stream-how-to-watch-feb-26/
+
+**How to watch Georgia vs. Texas women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgia Lady Bulldogs play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7073731/2026/02/26/georgia-vs-texas-stream-how-to-watch-feb-26/
+
 **C.D.C.’s New Acting Director Draws Unexpected Praise From Agency Staff**\
 `Dr. Jay Bhattacharya, who was appointed to the role last week, has offered to publicly endorse vaccination, in particular the measles vaccine, winning over some agency employees.`\
 https://nytimes.com/2026/02/26/health/cdc-bhattacharya-vaccinations-measles.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/world/europe/germany-china-merz-europe-business.h
 **The 30-Year Search for Shorty Gallagher Finally Comes to an End**\
 `In the 1990s, Randy Kula set out to collect a photo of every baseball player to appear in a game for the Cleveland franchise, a charter member of the American League in 1901.`\
 https://nytimes.com/video/the-athletic/100000010739059/the-30-year-search-for-shorty-gallagher-finally-comes-to-an-end.html
-
-**After trading another defensive building block, what's next for the Jets?**\
-`A look at the team's options at edge rusher in light of the Jermaine Johnson trade.`\
-https://nytimes.com/athletic/7073576/2026/02/26/new-york-jets-jermaine-johnson-trade-edge-draft-free-agency/
-
-**PWHL 2025-26 playoff chances, projected standings and player ratings**\
-`Welcome to our 2025-26 PWHL projections where you will find each team’s projected point total and chances of winning the Walter Cup.`\
-https://nytimes.com/athletic/7070578/2026/02/26/pwhl-2025-26-playoff-chances-and-projected-standings/
 
