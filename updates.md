@@ -1,3 +1,7 @@
+**All these Bulls losses are weighing on Matas Buzelis**\
+`The second-year forward's normally unwavering confidence has been shaken by Chicago's roster overhaul and 10-game skid.`\
+https://nytimes.com/athletic/7072269/2026/02/26/matas-buzelis-bulls-losing/
+
 **Why Nvidia’s Big Profits Aren’t Lifting Markets**\
 `The chip giant at the center of the artificial intelligence boom again beat expectations. But they didn’t overcome investor jitters.`\
 https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
