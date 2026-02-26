@@ -1,3 +1,7 @@
+**Zack Wheeler throws first bullpen since TOS surgery, plus Phillies injury notes**\
+`Wheeler threw 21 pitches off the mound, the latest milestone in his recovery after undergoing thoracic outlet decompression surgery.`\
+https://nytimes.com/athletic/7074057/2026/02/26/zack-wheeler-phillies-injury-news/
+
 **Russia Launches Major Attack Hours Before U.S.-Ukraine Talks**\
 `Russia unleashed a series of drone and missile strikes on Ukraine on Thursday, injuring at least 20 people and damaging buildings in eight different regions.`\
 https://nytimes.com/video/world/europe/100000010739658/russia-drone-attack-ukraine-us-negotiation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/technology/block-square-job-cuts-ai.html
 **Jo Ann Bland, Child Activist in Civil Rights Struggle, Dies at 72**\
 `At 11, she was one of the youngest at the 1965 “Bloody Sunday” voting rights march in Selma, Ala., and was injured while crossing the Edmund Pettus Bridge.`\
 https://nytimes.com/2026/02/26/us/joanne-bland-dead.html
-
-**Dolphins top NFLPA's player survey, while Steelers finish last: Source**\
-`An arbitrator had ruled that the NFLPA could not publish survey results publicly, but could share them with the players and teams.`\
-https://nytimes.com/athletic/7074041/2026/02/26/nfl-nflpa-report-cards-2025-2026-survey-rankings/
 
