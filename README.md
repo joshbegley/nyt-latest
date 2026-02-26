@@ -1,3 +1,7 @@
+**Yankees to sign outfielder Randal Grichuk to minor-league deal: Source**\
+`Adding Grichuk, 34, could give the Yankees the righty bat they'd been looking to add to their bench.`\
+https://nytimes.com/athletic/7071859/2026/02/25/randal-grichuk-yankees-minor-league-deal/
+
 **No. 8 Michigan tops No. 13 Ohio State in OT: What it means for postseason**\
 `Wednesday's thriller between the Wolverines and Buckeyes wasn't the cleanest game in rivalry, but it was certainly entertaining.`\
 https://nytimes.com/athletic/7071825/2026/02/25/michigan-ohio-state-women-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/pageoneplus/no-corrections-feb-26-2026.html
 **Star forward Bouanga, LAFC agree to contract extension**\
 `Bouanga had been the subject of transfer interest both in and out of MLS, but the LAFC star is set to stay put`\
 https://nytimes.com/athletic/7067938/2026/02/25/denis-bouanga-lafc-contract-extension/
-
-**Canucks' Tyler Myers to sit against Jets for trade reasons: Sources**\
-`Vancouver said the defenseman, who has a full no-move clause, will be held out of the lineup Wednesday night for roster management reasons.`\
-https://nytimes.com/athletic/7071549/2026/02/25/canucks-tyler-myers-potential-trade/
 
