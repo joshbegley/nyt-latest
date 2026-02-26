@@ -1,3 +1,7 @@
+**Conor Benn to fight Regis Prograis in first bout with Zuffa Boxing**\
+`Benn will fight Prograis on his return to the Tottenham Hotspur Stadium where he defeated Chris Eubank Jr in November 2025.`\
+https://nytimes.com/athletic/7072476/2026/02/26/conor-been-regis-prograis-zuffa-boxing/
+
 **Tyler Myers' goodbye skate and why a Canucks trade deadline fire sale is a necessary step**\
 `As it stood Wednesday night, Vancouver is at the 1-yard line on a trade that would include Myers.`\
 https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadline-skate/

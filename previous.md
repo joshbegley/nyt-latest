@@ -1,3 +1,7 @@
+**Conor Benn to fight Regis Prograis in first bout with Zuffa Boxing**\
+`Benn will fight Prograis on his return to the Tottenham Hotspur Stadium where he defeated Chris Eubank Jr in November 2025.`\
+https://nytimes.com/athletic/7072476/2026/02/26/conor-been-regis-prograis-zuffa-boxing/
+
 **Tyler Myers' goodbye skate and why a Canucks trade deadline fire sale is a necessary step**\
 `As it stood Wednesday night, Vancouver is at the 1-yard line on a trade that would include Myers.`\
 https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadline-skate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072230/2026/02/26/lloyd-kelly-red-card-explainer-c
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/26/us/nancy-guthrie-updates
-
-**Cubs roster projection 2.0: New developments one month from Opening Day**\
-`So many things can happen between now and Opening Day, especially when several of Chicago’s best players will be competing in the WBC.`\
-https://nytimes.com/athletic/7071426/2026/02/26/cubs-roster-projection-2-0-new-developments/
 
