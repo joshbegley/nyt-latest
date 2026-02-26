@@ -1,3 +1,11 @@
+**Pochettino addresses his stance on political issues, Tottenham return links**\
+`Pochettino was asked about a number of topics in a Spanish radio interview, including a potential return to Spurs`\
+https://nytimes.com/athletic/7073292/2026/02/26/mauricio-pochettino-ice-trump-politics-tottenham-usmnt-world-cup/
+
+**Hillary Clinton’s Deposition on Epstein Disrupted by Leak of Photo of Her Testifying**\
+`The former secretary of state had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
+https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
+
 **Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
 `Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
 https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
