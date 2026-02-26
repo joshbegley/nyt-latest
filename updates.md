@@ -1,3 +1,7 @@
+**Why was Lloyd Kelly's Champions League yellow card controversially upgraded to a red?**\
+`The Juventus defender's dismissal against Galatasaray was curious`\
+https://nytimes.com/athletic/7072230/2026/02/26/lloyd-kelly-red-card-explainer-champions-league-juventus/
+
 **Siegel: It's clear. The Maple Leafs should sell at the deadline**\
 `At this point in the season, the Leafs need to weigh the short-, medium- and long-term future.`\
 https://nytimes.com/athletic/7071026/2026/02/26/maple-leafs-nhl-trade-deadline-treliving-pelley/
