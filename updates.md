@@ -1,3 +1,19 @@
+**Premier League trialling direct-to-consumer streaming in Singapore**\
+`“Will it be replicable elsewhere? That’s what we’re going to find out,” league CEO Richard Masters said on Thursday.`\
+https://nytimes.com/athletic/7072894/2026/02/26/premier-league-streaming-premflix-singapore/
+
+**What Eagles' shrinking middle class may reveal about future plans**\
+`Why there is a good chance the Eagles will either swing big in free agency or look for bargain deals, with little in between. `\
+https://nytimes.com/athletic/7072411/2026/02/26/philadelphia-eagles-shrinking-middle-class/
+
+**Twins' rotation takes another hit with David Festa's shoulder impingement**\
+`The exhibition season is less than a week old and already the Twins are down three starting pitchers.`\
+https://nytimes.com/athletic/7072731/2026/02/26/twins-rotation-david-festa-shoulder-injury/
+
+**Israeli Intelligence Agent Charged in Smuggling Goods Into Gaza**\
+`The indictment against an agent of the Shin Bet security agency added to a growing list of Israelis accused of exploiting their positions in the security forces to profit from the war in Gaza.`\
+https://nytimes.com/2026/02/26/world/middleeast/israeli-agent-smuggling-gaza.html
+
 **James Harden upgrades the Cavaliers, but Jarrett Allen was already surging**\
 `With Evan Mobley hurt, Cleveland needed Allen to step up. He has, averaging nearly 21 points and more than 11 rebounds since Jan. 28.`\
 https://nytimes.com/athletic/7072304/2026/02/26/nba-jarrett-allen-james-harden-cavs-surge/
