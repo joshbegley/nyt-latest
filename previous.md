@@ -22,7 +22,7 @@ https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.
 `El miércoles, una lancha rápida matriculada en Florida entró en aguas cubanas y algunos de sus tripulantes intercambiaron disparos con tropas de Cuba. En 2022 ocurrieron dos enfrentamientos de este tipo.`\
 https://nytimes.com/2026/02/25/espanol/america-latina/cuba-lancha-estados-unidos-rubio.html
 
-**Trump’s Fantasy State of the Union**\
+**Trump’s State of the Union Was a Win for Democrats**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
 https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
 

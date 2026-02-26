@@ -1,3 +1,7 @@
+**Trump’s State of the Union Was a Win for Democrats**\
+`Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
+https://nytimes.com/2026/02/25/opinion/ezra-klein-podcast-sotu-2026.html
+
 **Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
 `The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
 https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
