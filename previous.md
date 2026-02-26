@@ -1,3 +1,11 @@
+**Oliver Grant, a Business Architect of Wu-Tang Clan, Dies**\
+`He was behind the scenes with Wu-Tang Clan, the New York rap group, since its founding and helped expand its reach with a fashion line.`\
+https://nytimes.com/2026/02/26/obituaries/oliver-power-grant-dead-wu-tang-clan-fashion.html
+
+**FedEx Says It Could Return Any Money From Tariff Refunds to Customers**\
+`The company sued the administration days after the Supreme Court ruled against the president’s duties.`\
+https://nytimes.com/2026/02/26/business/fedex-says-it-could-return-any-money-from-tariff-refunds-to-customers.html
+
 **Pochettino addresses his stance on political issues, Tottenham return links**\
 `Pochettino was asked about a number of topics in a Spanish radio interview, including a potential return to Spurs`\
 https://nytimes.com/athletic/7073292/2026/02/26/mauricio-pochettino-ice-trump-politics-tottenham-usmnt-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-go
 **Arsenal's Smith withdraws from SheBelieves Cup with Canada due to concussion**\
 `Smith was set to face Colombia, the USWNT and Argentina in the week-long SheBelieves Cup tournament that starts on Sunday.`\
 https://nytimes.com/athletic/7065420/2026/02/26/arsenal-olivia-smith-injury-canada-concussion-update/
-
-**Promise David's injury starts a World Cup roster domino effect for Canada**\
-`The forward's hip injury could complicate things for Jesse Marsch, who envisioned David as a game-changing option off the bench`\
-https://nytimes.com/athletic/7072940/2026/02/26/promise-david-injury-canada-world-cup-roster/
-
-**Italian golfer injured after falling down elevator shaft before South African Open**\
-`The 36-year-old suffered the freak accident at his private accommodation on Wednesday.`\
-https://nytimes.com/athletic/7073036/2026/02/26/andrea-pavan-injured-elevator-shaft-fall/
 

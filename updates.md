@@ -1,3 +1,11 @@
+**Oliver Grant, a Business Architect of Wu-Tang Clan, Dies**\
+`He was behind the scenes with Wu-Tang Clan, the New York rap group, since its founding and helped expand its reach with a fashion line.`\
+https://nytimes.com/2026/02/26/obituaries/oliver-power-grant-dead-wu-tang-clan-fashion.html
+
+**FedEx Says It Could Return Any Money From Tariff Refunds to Customers**\
+`The company sued the administration days after the Supreme Court ruled against the president’s duties.`\
+https://nytimes.com/2026/02/26/business/fedex-says-it-could-return-any-money-from-tariff-refunds-to-customers.html
+
 **Pochettino addresses his stance on political issues, Tottenham return links**\
 `Pochettino was asked about a number of topics in a Spanish radio interview, including a potential return to Spurs`\
 https://nytimes.com/athletic/7073292/2026/02/26/mauricio-pochettino-ice-trump-politics-tottenham-usmnt-world-cup/
