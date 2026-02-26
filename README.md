@@ -1,3 +1,7 @@
+**Yankees to retire CC Sabathia's number, add plaque to Monument Park**\
+`No other Yankee will wear Sabathia's No. 52. `\
+https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
+
 **Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\
 `The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school” when a student objected to the possible closure of a middle school. The remark was assailed as racist.`\
 https://nytimes.com/2026/02/25/nyregion/hunter-college-professor-allyson-friedman-racist-remarks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/ilhan-omar-state-of-the-union-arrest.
 **How Was Trump’s Speech? Choose Your Own Algorithmic Adventure.**\
 `Here’s how social media may have shaped your impressions of the State of the Union.`\
 https://nytimes.com/2026/02/25/us/politics/trump-sotu-social-media-reactions.html
-
-**Tony Dungy likely out as regular on NBC's 'Football Night in America'**\
-`Dungy, who won a Super Bowl as a player with the Steelers and another as head coach of the Colts, has been on the NBC show for 17 seasons.`\
-https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
 

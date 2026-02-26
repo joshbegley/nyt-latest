@@ -1,9 +1,13 @@
+**Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\
+`The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school” when a student objected to the possible closure of a middle school. The remark was assailed as racist.`\
+https://nytimes.com/2026/02/25/nyregion/hunter-college-professor-allyson-friedman-racist-remarks.html
+
 **U.S. women’s hockey players eager to put focus on Olympic win, not 'distasteful' Trump joke**\
 `“I can’t wait 'til this blows over in a week and we can go back to each team being proud of what we accomplished,” Taylor Heise said.`\
 https://nytimes.com/athletic/7071322/2026/02/25/olympic-womens-hockey-reaction-trump/
 
 **Police Officer Accused of Tracking Partner Using License Plate Reader**\
-`The Milwaukee officer used the technology to run searches on his partner’s plates 124 times, officials said, and he also tracked the person’s ex.`\
+`The Milwaukee officer used the technology to run searches on his partner’s plate 124 times, officials said, and he also tracked the person’s ex.`\
 https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
 
 **Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/us/politics/trump-sotu-social-media-reactions.htm
 **Tony Dungy likely out as regular on NBC's 'Football Night in America'**\
 `Dungy, who won a Super Bowl as a player with the Steelers and another as head coach of the Colts, has been on the NBC show for 17 seasons.`\
 https://nytimes.com/athletic/7071218/2026/02/25/tony-dungy-nbc-pregame-changes/
-
-**Vessels Have Clashed With Cuban Border Forces Before**\
-`On Wednesday, a Florida-registered speedboat entered Cuban waters and some on board exchanged gunfire with Cuban troops. Two such armed clashes occurred in 2022.`\
-https://nytimes.com/2026/02/25/world/americas/vessel-gunfight-cuba-history.html
 

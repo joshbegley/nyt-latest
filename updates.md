@@ -1,3 +1,11 @@
+**Hunter College Places Professor Who Made ‘Abhorrent’ Remarks on Leave**\
+`The professor, speaking on a hot mic, said, “They’re too dumb to know they’re in a bad school” when a student objected to the possible closure of a middle school. The remark was assailed as racist.`\
+https://nytimes.com/2026/02/25/nyregion/hunter-college-professor-allyson-friedman-racist-remarks.html
+
+**Police Officer Accused of Tracking Partner Using License Plate Reader**\
+`The Milwaukee officer used the technology to run searches on his partner’s plate 124 times, officials said, and he also tracked the person’s ex.`\
+https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
+
 **U.S. women’s hockey players eager to put focus on Olympic win, not 'distasteful' Trump joke**\
 `“I can’t wait 'til this blows over in a week and we can go back to each team being proud of what we accomplished,” Taylor Heise said.`\
 https://nytimes.com/athletic/7071322/2026/02/25/olympic-womens-hockey-reaction-trump/
