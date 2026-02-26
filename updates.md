@@ -1,3 +1,11 @@
+**Hawks to bring 'Magic City' strip club vibe to home game, but without the dancers**\
+`The Hawks plan to honor Atlanta's "iconic cultural institution" in a March 16 home game against the Magic at State Farm Arena.`\
+https://nytimes.com/athletic/7073339/2026/02/26/hawks-magic-city-strip-club-promotion/
+
+**N.Y. Doctor’s Final Bid to Avoid Extradition to Japan Fails in Court**\
+`Dr. Masahide Kanayama could be sent to Japan next week to face charges that he vandalized ancient religious sites, federal prosecutors said.`\
+https://nytimes.com/2026/02/26/us/manhattan-doctor-extradition-japan.html
+
 **What to Put in America’s Time Capsule?**\
 `The U.S. announced plans for a time capsule to be buried on July 4 and opened in 2276. Tell us what you think should be inside.`\
 https://nytimes.com/2026/02/26/briefing/what-to-put-in-americas-time-capsule.html
