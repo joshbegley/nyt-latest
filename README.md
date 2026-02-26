@@ -1,3 +1,7 @@
+**How to Measure Real Progress in Education**\
+`Randi Weingarten, president of the American Federation of Teachers, and others respond to a Nicholas Kristof column. Also: Reagan’s warning about nuclear weapons; aging doctors.`\
+https://nytimes.com/2026/02/26/opinion/public-school-education.html
+
 **Brentford head coach Keith Andrews signs new six-year contract**\
 `Andrews, 45, has outperformed expectations with Brentford seventh in the table, only five points behind Chelsea in fifth place.`\
 https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentford-contract/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentfor
 https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/
 
 **‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
-`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell.`\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell’s.`\
 https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
 
 **Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010736178/trumps-state-of-the-union-was-
 **Mamdani and Trump Are Set to Meet in Washington**\
 `Mayor Zohran Mamdani’s trip to the White House on Thursday was unannounced. The topics he planned to discuss with President Trump were not immediately clear.`\
 https://nytimes.com/2026/02/26/nyregion/mamdani-trump-meeting.html
-
-**Venezuela’s Capital, Laid Low by Misrule, Is Stirring Back to Life**\
-`New restaurants are popping up in Caracas. Nightclubs are bursting at the seams. The streets are eerily safe — with big exceptions. Could a revival be on the horizon?`\
-https://nytimes.com/2026/02/26/world/americas/caracas-venezuela-economy.html
 

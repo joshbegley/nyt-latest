@@ -1,3 +1,11 @@
+**Brentford head coach Keith Andrews signs new six-year contract**\
+`Andrews, 45, has outperformed expectations with Brentford seventh in the table, only five points behind Chelsea in fifth place.`\
+https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentford-contract/
+
+**‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell.`\
+https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
+
 **Colts QB Anthony Richardson requests trade: Sources**\
 `Richardson ended the 2025 season on injured reserve due to an orbital fracture he suffered due to a “freak accident” during pregame warmups.`\
 https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/

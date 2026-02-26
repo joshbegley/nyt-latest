@@ -1,9 +1,13 @@
+**Brentford head coach Keith Andrews signs new six-year contract**\
+`Andrews, 45, has outperformed expectations with Brentford seventh in the table, only five points behind Chelsea in fifth place.`\
+https://nytimes.com/athletic/7073103/2026/02/26/keith-andrews-signs-new-brentford-contract/
+
 **Colts QB Anthony Richardson requests trade: Sources**\
 `Richardson ended the 2025 season on injured reserve due to an orbital fracture he suffered due to a “freak accident” during pregame warmups.`\
 https://nytimes.com/athletic/7073147/2026/02/26/anthony-richardson-colts-trade-request-nfl-news/
 
 **‘Scream 7’ Review: It’s Hard to Keep a Good Ghoul Down**\
-`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most familiarly terrified faces, including Neve Campbell.`\
+`Ghostface has returned amid a light fog of nostalgia in this reunion for some of the franchise’s most terrified faces, including Neve Campbell.`\
 https://nytimes.com/2026/02/26/movies/scream-7-review-neve-campbell.html
 
 **Ireland say Israel game in Dublin will be in 'safe and secure environment'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/nyregion/mamdani-trump-meeting.html
 **Venezuela’s Capital, Laid Low by Misrule, Is Stirring Back to Life**\
 `New restaurants are popping up in Caracas. Nightclubs are bursting at the seams. The streets are eerily safe — with big exceptions. Could a revival be on the horizon?`\
 https://nytimes.com/2026/02/26/world/americas/caracas-venezuela-economy.html
-
-**Justice Gorsuch’s Tariffs Warning**\
-`Granting a president new power is easy, he said. But taking it back is almost impossible.`\
-https://nytimes.com/2026/02/26/us/politics/the-docket-tariff-warning.html
 
