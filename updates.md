@@ -1,3 +1,7 @@
+**The Latest New Zealander to Move to Australia Is an Ex-Prime Minister**\
+`Jacinda Ardern, New Zealand’s former leader, is basing her family in Australia “for the moment,” a spokesman said. She is part of a wave of Kiwis relocating to their larger neighbor.`\
+https://nytimes.com/2026/02/26/world/australia/new-zealand-jacinda-ardern-australia.html
+
 **Dubai of the Caribbean, With Crypto? Locals Aren’t Buying It.**\
 `A Bitcoin baron wants to build a libertarian paradise on the island of Nevis. Democracy is getting in the way.`\
 https://nytimes.com/2026/02/26/business/st-kitts-nevis-destiny-olivier-janssens-crypto-libertarian.html
