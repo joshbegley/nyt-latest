@@ -1,6 +1,10 @@
+**Police Officer Accused of Tracking Partner Using License Plate Reader**\
+`The Milwaukee officer used the technology to run searches on his partner’s plates 124 times, officials said, and he also tracked the person’s ex.`\
+https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
+
 **Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
 `El miércoles, una lancha rápida matriculada en Florida entró en aguas cubanas y algunos de sus tripulantes intercambiaron disparos con tropas de Cuba. En 2022 ocurrieron dos enfrentamientos de este tipo.`\
-https://nytimes.com/live/2026/02/25/espanol/cuba/cuba-lancha-estados-unidos-rubio
+https://nytimes.com/2026/02/25/espanol/america-latina/cuba-lancha-estados-unidos-rubio.html
 
 **Trump’s Fantasy State of the Union**\
 `Ezra Klein and Aaron Retica react to Trump’s 2026 State of the Union speech.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/25/world/americas/vessel-gunfight-cuba-history.html
 **Weston McKennie's heroics force extra time, but Juve crashes out of UCL**\
 `Juventus entered the second leg of the knockout playoff round down three goals on aggregate but was saved, temporarily, by the American`\
 https://nytimes.com/athletic/7071223/2026/02/25/weston-mckennie-goal-juventus-galatasaray-champions-league-usmnt/
-
-**Trump’s Push for Election Power Raises Fears He Will ‘Subvert’ Midterms**\
-`The president appears to be undermining Americans’ faith in the outcome, at a moment when Republicans face an uphill climb to keep control of Congress.`\
-https://nytimes.com/2026/02/25/us/politics/trump-elections-midterms.html
 
