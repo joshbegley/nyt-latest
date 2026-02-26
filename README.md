@@ -1,3 +1,7 @@
+**Clinton Halts Epstein Deposition After Republican Leaks Photo of Her Testifying**\
+`Hillary Clinton, the former secretary of state, had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
+https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
+
 **'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
 `Charlie McAvoy has endured injury, infection, family concerns and more injury over the past year.`\
 https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/judge-white-house-ballroom-trump.html
 **A Creamy Salad Dressing That Will Change Your Life**\
 `The chefs of a popular modern izakaya in California share their secret to a sauce that makes you feel great.`\
 https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
-
-**At Jil Sander, It Could All Be So Simple**\
-`Simone Bellotti continues to make the case for brainy minimalism. Also, some memorable Moncler jackets and an Italian signore with unforgettable style.`\
-https://nytimes.com/2026/02/26/style/at-jil-sander-it-could-all-be-so-simple.html
 
