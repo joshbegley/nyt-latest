@@ -1,40 +1,40 @@
-**Ronaldo buys 25 per cent stake in Saudi-owned Spanish side Almeria**\
-`Almeria are owned by a consortium led by the Saudi Media Company, the operator of Al Nassr’s stadium Mrsool Park.`\
-https://nytimes.com/athletic/7072177/2026/02/26/cristiano-ronaldo-owner-almeria-saudi-arabia/
+**Fine Dining at Sea: How Chef Nobu Matsuhisa Is Redefining Cruise Cuisine**\
+`Long associated with convenience over creativity, cruise dining is being quietly reimagined, and Umi Uma is proving just how far it has come.`\
+https://nytimes.com/paidpost/crystal-cruises/fine-dining-at-sea-how-chef-nobu-matsuhisa-is-redefining-cruise-cuisine.html
 
-**Tracey Emin on Love, Loss and Getting Out of ‘My Bed’**\
-`Since the artist was diagnosed with aggressive bladder cancer in 2020, a lot has changed in her life and work. A new show at Tate Modern examines Tracey Emin’s “second life.”`\
-https://nytimes.com/2026/02/26/arts/tracey-emin-tate-modern-london-second-life.html
+**Aaron Judge talks Team USA captaincy, saluting service members and the WBC group chat**\
+`As Judge readies for the WBC, he is keeping a bigger perspective top of mind — and thinking about how he can best help his teammates. `\
+https://nytimes.com/athletic/7071285/2026/02/26/aaron-judge-wbc-team-usa-captain-yankees/
 
-**What It’s Like to Grow Up With A.I.: The Winners of Our Multimedia Challenge**\
-`Via essays, poems, videos, artwork and graphics, 35 students across the globe reflect on how this technology is affecting teenagers.`\
-https://nytimes.com/2026/02/26/learning/teens-on-growing-up-with-ai.html
+**It took Dan Campbell only 20 minutes to be sold on new Lions OC Drew Petzing**\
+`With the additions of Petzing and Mike Kafka, Campbell might have found what he was looking for with Detroit's offense.`\
+https://nytimes.com/athletic/7070463/2026/02/26/dan-campbell-drew-petzing-lions-nfl-combine/
 
-**Ravens should use this offseason to get back to their trench-building roots**\
-`Baltimore is coming off a season in which it struggled along the offensive and defensive lines and didn't consistently win in the trenches. `\
-https://nytimes.com/athletic/7069607/2026/02/26/ravens-trenches-offensive-defensive-linemen/
+**Thompson lifts Sabres to win over Jack Hughes in Olympics return: 3 thoughts**\
+`Hughes pulled Thompson onto the ice for a pre-game ceremony celebrating Team USA's gold medal.`\
+https://nytimes.com/athletic/7071903/2026/02/26/sabres-tage-thompson-olympics-return-jack-hughes-devils/
 
-**Wait, people actually bet on the NFL Combine?**\
-`Doug Kezirian explains all things when it comes to betting on the NFL Combine.`\
-https://nytimes.com/athletic/7070263/2026/02/26/nfl-combine-odds-betting/
+**Why selling at the trade deadline is only option for the Maple Leafs**\
+`The Leafs remain six points out of the final wild-card spot with one fewer game to make up ground after a 4-2 loss to Tampa Bay.`\
+https://nytimes.com/athletic/7071876/2026/02/26/maple-leafs-lightning-loss-playoff-hopes-trade-deadline/
 
-**The New York Times International Edition in Print for Friday, Feb. 27, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/26/todays-new-york-times-international-edition
+**What allows Bo Bichette to be at his best in the biggest moments?**\
+`Over the last three seasons, nobody in baseball has a higher average with runners in scoring position than Bichette, .369.`\
+https://nytimes.com/athletic/7071834/2026/02/26/bo-bichette-best-biggest-moments/
 
-**Adapting to a New World: Teachers on How A.I. Is Reshaping the Classroom**\
-`We asked high school educators what it’s like to teach at a time when A.I. is transforming education. They answered in images, essays and videos.`\
-https://nytimes.com/2026/02/26/learning/teachers-on-how-ai-is-reshaping-the-classroom.html
+**NBA Awards Watch: 65-game rule brings uncertainty, and we have some new leaders**\
+`MVP or All-NBA "by default" doesn't feel like the best way to celebrate elite players in the league. But we'll see what happens.`\
+https://nytimes.com/athletic/7066168/2026/02/26/nba-awards-65-game-rule-nikola-jokic-kon-knueppel/
 
-**What makes John Harbaugh a great coach? We asked his opponents**\
-`“It felt like home, and it felt like he was at the head of this household.”`\
-https://nytimes.com/athletic/7071754/2026/02/26/john-harbaugh-new-york-giants-reputation/
+**Harrison Bader dents a food truck and is already making an impact on Giants outfield**\
+`Bader has been the busiest player in camp while going 4 for 9 with a walk but he'll leave soon for the World Baseball Classic.`\
+https://nytimes.com/athletic/7071695/2026/02/26/harrison-bader-san-francisco-giants-jung-ho-lee/
 
-**‘Time Is Not on Russia’s Side’**\
-`If the battle for Ukraine Is not World War I or World War III, what is it?`\
-https://nytimes.com/2026/02/26/opinion/russia-ukraine-drone-war.html
+**Milwaukee banks on Brandon Woodruff, comeback master, to lead a very Brewers rotation**\
+`Despite an injury-filled past two seasons, the Brewers stuck with Brandon Woodruff. Now what?`\
+https://nytimes.com/athletic/7070517/2026/02/26/brewers-brandon-woodruff-injury-comeback/
 
-**When an Experimental Italian Artist Designed a New York Office**\
-`Plus: minimalist outdoor furniture, an art institute’s restaurant in Brooklyn and more recommendations from T Magazine.`\
-https://nytimes.com/2026/02/26/t-magazine/gaetano-pesce-chiat-day-office.html
+**Dissecting Olympics stats limitations and the 3-on-3 OT debate: NHL mailbag, Part 1**\
+`Plus whether Macklin Celebrini's Olympic play might get people invested in his Hart chances, and which players put themselves on the radar.`\
+https://nytimes.com/athletic/7071050/2026/02/26/nhl-mailbag-olympics-overtime-celebrini-slafkovsky-seeding/
 
