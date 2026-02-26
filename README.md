@@ -1,3 +1,7 @@
+**A Diamond's Local Legacy and Impact**\
+`Against a backdrop of ethical scrutiny, the diamond industry has been growing its legacy through social impact and sustainability.`\
+https://nytimes.com/paidpost/de-beers/a-diamonds-local-legacy-and-impact.html
+
 **The Pulse: The best freshman class ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7071018/2026/02/26/freshman-class-dybantsa-peterson-boozer-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071834/2026/02/26/bo-bichette-best-biggest-moments
 **NBA Awards Watch: 65-game rule brings uncertainty, and we have some new leaders**\
 `MVP or All-NBA "by default" doesn't feel like the best way to celebrate elite players in the league. But we'll see what happens.`\
 https://nytimes.com/athletic/7066168/2026/02/26/nba-awards-65-game-rule-nikola-jokic-kon-knueppel/
-
-**Harrison Bader dents a food truck and is already making an impact on Giants outfield**\
-`Bader has been the busiest player in camp while going 4 for 9 with a walk but he'll leave soon for the World Baseball Classic.`\
-https://nytimes.com/athletic/7071695/2026/02/26/harrison-bader-san-francisco-giants-jung-ho-lee/
 

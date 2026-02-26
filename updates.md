@@ -1,3 +1,11 @@
+**The Pulse: The best freshman class ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7071018/2026/02/26/freshman-class-dybantsa-peterson-boozer-the-pulse/
+
+**The only thing consistent about the Knicks lately has been their inconsistency**\
+`Behind the hot-and-cold production is an on-and-off process for the Knicks.`\
+https://nytimes.com/athletic/7071444/2026/02/26/knicks-inconsistency-towns-brunson-bridges-anunoby-nba/
+
 **Fine Dining at Sea: How Chef Nobu Matsuhisa Is Redefining Cruise Cuisine**\
 `Long associated with convenience over creativity, cruise dining is being quietly reimagined, and Umi Uma is proving just how far it has come.`\
 https://nytimes.com/paidpost/crystal-cruises/fine-dining-at-sea-how-chef-nobu-matsuhisa-is-redefining-cruise-cuisine.html

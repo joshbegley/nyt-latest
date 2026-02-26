@@ -1,3 +1,11 @@
+**The Pulse: The best freshman class ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7071018/2026/02/26/freshman-class-dybantsa-peterson-boozer-the-pulse/
+
+**The only thing consistent about the Knicks lately has been their inconsistency**\
+`Behind the hot-and-cold production is an on-and-off process for the Knicks.`\
+https://nytimes.com/athletic/7071444/2026/02/26/knicks-inconsistency-towns-brunson-bridges-anunoby-nba/
+
 **Fine Dining at Sea: How Chef Nobu Matsuhisa Is Redefining Cruise Cuisine**\
 `Long associated with convenience over creativity, cruise dining is being quietly reimagined, and Umi Uma is proving just how far it has come.`\
 https://nytimes.com/paidpost/crystal-cruises/fine-dining-at-sea-how-chef-nobu-matsuhisa-is-redefining-cruise-cuisine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7066168/2026/02/26/nba-awards-65-game-rule-nikola-j
 **Harrison Bader dents a food truck and is already making an impact on Giants outfield**\
 `Bader has been the busiest player in camp while going 4 for 9 with a walk but he'll leave soon for the World Baseball Classic.`\
 https://nytimes.com/athletic/7071695/2026/02/26/harrison-bader-san-francisco-giants-jung-ho-lee/
-
-**Milwaukee banks on Brandon Woodruff, comeback master, to lead a very Brewers rotation**\
-`Despite an injury-filled past two seasons, the Brewers stuck with Brandon Woodruff. Now what?`\
-https://nytimes.com/athletic/7070517/2026/02/26/brewers-brandon-woodruff-injury-comeback/
-
-**Dissecting Olympics stats limitations and the 3-on-3 OT debate: NHL mailbag, Part 1**\
-`Plus whether Macklin Celebrini's Olympic play might get people invested in his Hart chances, and which players put themselves on the radar.`\
-https://nytimes.com/athletic/7071050/2026/02/26/nhl-mailbag-olympics-overtime-celebrini-slafkovsky-seeding/
 
