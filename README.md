@@ -1,3 +1,11 @@
+**Scoop City: What actually matters at the combine?**\
+`The combine drills and metrics that matter for quarterbacks, receivers and other positions`\
+https://nytimes.com/athletic/7073861/2026/02/26/nfl-combine-what-metrics-matter/
+
+**First the Moon, Then Mars**\
+`The NASA administrator Jared Isaacman tells Ross Douthat how his trips to space shaped his perspective on space travel.`\
+https://nytimes.com/video/opinion/100000010726859/first-the-moon-then-mars.html
+
 **Chicago Man Faces U.S. Charges in Woman’s Killing During Bali Trip**\
 `The man is accused of conspiring with his then girlfriend to kill her mother, whose body was stuffed in a suitcase. He spent 11 years in prison in Bali, Indonesia, on related charges.`\
 https://nytimes.com/2026/02/26/us/tommy-schaefer-bali-suitcase-murder-court.html
@@ -21,16 +29,4 @@ https://nytimes.com/athletic/7073941/2026/02/26/cuba-denied-entry-united-states-
 **Wings' Dylan Larkin reflects on Olympics victory, Trump call criticism**\
 `Among Dylan Larkin's Olympics memories: "How just crazy, stressful and intense" the gold medal game was.`\
 https://nytimes.com/athletic/7073912/2026/02/26/red-wings-dylan-larkin-olympic-gold-usa-women-trump/
-
-**Trump Declared Victory in Minneapolis. But What Did He Accomplish?**\
-`The Trump administration came under fire for an operation that turned lethal and politically toxic. But the show of force may also have had a bigger purpose: to serve as a warning.`\
-https://nytimes.com/2026/02/26/us/politics/trump-minneapolis-ice-immigration.html
-
-**Jean Widmer, Designer of Celebrated French Graphics, Dies at 96**\
-`His minimalist road signs became a visual hallmark of France’s highways. He also created logos for cultural institutions like the Pompidou Center.`\
-https://nytimes.com/2026/02/26/arts/design/jean-widmer-dead.html
-
-**Wayne Tinkle, who guided Oregon State to 2021 Elite Eight, won't return next season**\
-`Tinkle compiled a 175-204 record and made two NCAA Tournaments in 12 seasons.`\
-https://nytimes.com/athletic/7073811/2026/02/26/oregon-state-wayne-tinkle-fired/
 
