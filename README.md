@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Deems Paramount’s $111 Billion Bid ‘Superior’**\
+`Netflix now has four business days to decide whether it wants to counter Paramount’s offer.`\
+https://nytimes.com/2026/02/26/business/warner-bros-discovery-deems-paramounts-111-billion-bid-superior.html
+
 **In Landmark Trial, Plaintiff Says Social Media Harm Started at Age 6**\
 `The plaintiff, identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
 https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070904/2026/02/26/tkachuk-sanderson-senators-trump
 **How to watch Rockets vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073828/2026/02/26/rockets-vs-magic-stream-how-to-watch-feb-26/
-
-**How to watch Spurs vs. Nets: Time, TV, streaming**\
-`Find out how to watch the San Antonio Spurs play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073820/2026/02/26/spurs-vs-nets-stream-how-to-watch-feb-26/
 
