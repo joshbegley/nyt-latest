@@ -1,3 +1,19 @@
+**Teresa de Lauretis, Coiner (and Critic) of Queer Theory, Dies at 87**\
+`She came up with the term as the title of a 1990 conference but saw its later popularity as a little superficial.`\
+https://nytimes.com/2026/02/26/books/teresa-de-lauretis-dead.html
+
+**Denver Mayor Bars ICE from City Property and Orders Protection for Protesters**\
+`Mayor Mike Johnston’s order is a defiant shift from his measured stance and risks drawing attention to Greater Denver after President Trump during the campaign promised a “bloody story” there.`\
+https://nytimes.com/2026/02/26/us/denver-mayor-ice-defiance.html
+
+**In Texas, a G.O.P. Civil War Erupts: ‘How MAGA Are You?’**\
+`Representative Dan Crenshaw, who has at times clashed with President Trump and his allies, is facing a conservative challenger in Tuesday’s primary.`\
+https://nytimes.com/2026/02/26/us/politics/crenshaw-texas-republicans-maga-trump-primary.html
+
+**Justice Dept. Mistakenly Exposed Cooperating Witnesses in Epstein Files**\
+`The disclosure is the latest example of how the urgent push to release the files led to the government inadvertently publicizing information it would normally keep under wraps.`\
+https://nytimes.com/2026/02/26/nyregion/epstein-cooperating-witnesses-redaction-error.html
+
 **German Court Temporarily Removes an Extremist Label for the AfD**\
 `The domestic intelligence agency can still spy on the far-right party, and the ruling may not change Germans’ views, but it is a symbolic victory for the AfD.`\
 https://nytimes.com/2026/02/26/world/europe/germany-ruling-afd-extremist.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7073131/2026/02/26/points-league-rankings-2026-fant
 **Oliver Grant, a Business Architect of Wu-Tang Clan, Dies**\
 `He was behind the scenes with Wu-Tang Clan, the New York rap group, since its founding and helped expand its reach with a fashion line.`\
 https://nytimes.com/2026/02/26/obituaries/oliver-power-grant-dead-wu-tang-clan-fashion.html
-
-**FedEx Says It Could Return Any Money From Tariff Refunds to Customers**\
-`The company sued the administration days after the Supreme Court ruled against the president’s duties.`\
-https://nytimes.com/2026/02/26/business/fedex-says-it-could-return-any-money-from-tariff-refunds-to-customers.html
-
-**Pochettino addresses his stance on political issues, Tottenham return links**\
-`Pochettino was asked about a number of topics in a Spanish radio interview, including a potential return to Spurs`\
-https://nytimes.com/athletic/7073292/2026/02/26/mauricio-pochettino-ice-trump-politics-tottenham-usmnt-world-cup/
-
-**Denmark’s Leader Calls Snap Elections After a Surge in Support Over Greenland**\
-`Experts say Prime Minister Mette Frederiksen is trying to capitalize on her success standing up to President Trump.`\
-https://nytimes.com/2026/02/26/world/europe/denmark-election-frederiksen-greenland.html
-
-**NCAA committee proposes changes to rules about targeting, uniform violations**\
-`Under the proposal, players penalized for targeting wouldn't be suspended for part of the next game if they are for first-time offenders.`\
-https://nytimes.com/athletic/7073197/2026/02/26/college-football-targeting-rule-suspension/
 
