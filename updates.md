@@ -1,3 +1,15 @@
+**What's happened to Villa Park's atmosphere - and how can it be fixed?**\
+`Villa away supporters remain loud and unyielding, but working to enhance the sound of home fans is a growing issue facing the club`\
+https://nytimes.com/athletic/7067606/2026/02/26/whats-happened-to-villa-parks-atmosphere-and-how-can-it-be-fixed/
+
+**This is how Chelsea can improve their discipline without losing on-field edge**\
+`Players from two historically ill-disciplined Premier League teams explain how Chelsea can reduce the number of cards they are receiving`\
+https://nytimes.com/athletic/7070655/2026/02/26/chelsea-premier-league-yellow-red-cards/
+
+**Branthwaite needs to play at centre-back. It will be better for both him and Everton**\
+`The Englishman has struggled to adapt to the makeshift left-back role he has been asked to play since returning from injury`\
+https://nytimes.com/athletic/7069981/2026/02/26/branthwaite-everton-defence-moyes/
+
 **Pereira’s eventful time at Olympiacos: Pitch invasions, Marinakis, and doing the double**\
 `The Forest head coach has had a varied career path, not least a colourful spell with Marinakis' Greek club Olympiacos`\
 https://nytimes.com/athletic/7070785/2026/02/26/vitor-pereira-olympiacos-marinakis/
