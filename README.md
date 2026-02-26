@@ -1,3 +1,7 @@
+**Immigration Agents Arrest Student Inside Columbia Building, School Says**\
+`Claire Shipman, the university’s acting president, said that the federal officials had misrepresented themselves to gain access.`\
+https://nytimes.com/2026/02/26/nyregion/columbia-university-ice-student.html
+
 **All the major fantasy baseball news you missed this offseason**\
 `Jake Ciely details how some of the biggest offseason MLB headlines impact fantasy baseball player values. `\
 https://nytimes.com/athletic/7070826/2026/02/26/fantasy-baseball-2026-mlb-offseason-kyle-tucker-alex-bregman/
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010737812/popcast-luke-combs-is-ready-t
 **‘The Pitt’ Is Showing Us the Complicated Reality of Psychosis**\
 `Subtle signs of mental distress often emerge before severe symptoms.`\
 https://nytimes.com/2026/02/26/well/mind/the-pitt-psychosis.html
-
-**They Helped Women Fight Online Abuse. They Were Barred From the U.S.**\
-`The founders of HateAid, a German human-rights group that helps victims of online attacks, were accused by the Trump administration of being part of a “global censorship-industrial complex.”`\
-https://nytimes.com/2026/02/26/technology/hateaid-online-abuse-free-speech-europe.html
 
