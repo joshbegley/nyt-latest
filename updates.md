@@ -1,3 +1,7 @@
+**Quenneville coaches 1,000th regular-season win, joins Bowman in elite company**\
+`Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
+https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
+
 **The New York Times in Print for Thursday, Feb. 26, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/26/todays-new-york-times
