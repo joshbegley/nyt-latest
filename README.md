@@ -30,7 +30,7 @@ https://nytimes.com/2026/02/26/technology/chatbots-duty-warn-police.html
 `Times Opinion convened a panel of state experts to weigh in on the Senate Republican primary.`\
 https://nytimes.com/interactive/2026/02/26/opinion/texas-senate-candidates.html
 
-**Israelis Are Waiting for War with Iran, Again**\
+**Israelis Are Waiting for War With Iran, Again**\
 `The national mood is somewhere between anxiety, resignation and anticipation as President Trump considers whether to attack Iran.`\
 https://nytimes.com/2026/02/26/world/middleeast/israel-iran-war.html
 
