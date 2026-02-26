@@ -1,3 +1,7 @@
+**Max Scherzer agrees to 1-year, $3 million deal with Blue Jays: Source**\
+`The 41-year-old performed at a high level with three solid postseason starts amid Toronto's quest for a World Series title in 2025.`\
+https://nytimes.com/athletic/6792113/2026/02/26/max-scherzer-blue-jays-mlb-free-agency/
+
 **Quenneville coaches 1,000th regular-season win, joins Bowman in elite company**\
 `Quenneville, who has a career record of 1,000-595-153 over 26 seasons, ranks second in NHL regular-season coaching victories.`\
 https://nytimes.com/athletic/7071526/2026/02/26/joel-quenneville-coach-1000-wins-bowman/
