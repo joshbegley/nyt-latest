@@ -1,3 +1,11 @@
+**Europe Needs Some Space From China and Trump. Its Firms Don’t.**\
+`Germany’s chancellor seeks to reduce Europe’s reliance on China and the United States. He speaks with a bluntness that few business leaders share.`\
+https://nytimes.com/2026/02/26/world/europe/germany-china-merz-europe-business.html
+
+**The 30-Year Search for Shorty Gallagher Finally Comes to an End**\
+`In the 1990s, Randy Kula set out to collect a photo of every baseball player to appear in a game for the Cleveland franchise, a charter member of the American League in 1901.`\
+https://nytimes.com/video/the-athletic/100000010739059/the-30-year-search-for-shorty-gallagher-finally-comes-to-an-end.html
+
 **After trading another defensive building block, what's next for the Jets?**\
 `A look at the team's options at edge rusher in light of the Jermaine Johnson trade.`\
 https://nytimes.com/athletic/7073576/2026/02/26/new-york-jets-jermaine-johnson-trade-edge-draft-free-agency/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/26/us/denver-mayor-ice-defiance.html
 **In Texas, a G.O.P. Civil War Erupts: ‘How MAGA Are You?’**\
 `Representative Dan Crenshaw, who has at times clashed with President Trump and his allies, is facing a conservative challenger in Tuesday’s primary.`\
 https://nytimes.com/2026/02/26/us/politics/crenshaw-texas-republicans-maga-trump-primary.html
-
-**Justice Dept. Mistakenly Exposed Cooperating Witnesses in Epstein Files**\
-`The disclosure is the latest example of how the urgent push to release the files led to the government inadvertently publicizing information it would normally keep under wraps.`\
-https://nytimes.com/2026/02/26/nyregion/epstein-cooperating-witnesses-redaction-error.html
-
-**German Court Temporarily Removes an Extremist Label for the AfD**\
-`The domestic intelligence agency can still spy on the far-right party, and the ruling may not change Germans’ views, but it is a symbolic victory for the AfD.`\
-https://nytimes.com/2026/02/26/world/europe/germany-ruling-afd-extremist.html
 
