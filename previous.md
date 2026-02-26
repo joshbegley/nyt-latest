@@ -1,3 +1,7 @@
+**Joe Gibbs Racing's former competition director offers spirited defense in lawsuit**\
+`The awkward breakup of the racing team and its former competition director took a new turn on Wednesday.`\
+https://nytimes.com/athletic/7071584/2026/02/25/joe-gibbs-racing-chris-gabehart-spire-lawsuit/
+
 **Highland Refusal**\
 `Yitzi Snow makes his New York Times Crossword debut.`\
 https://nytimes.com/2026/02/25/crosswords/daily-puzzle-2026-02-26.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071549/2026/02/25/canucks-tyler-myers-potential-tr
 **Lawmakers Ask Tech Companies What User Data They Provided to D.H.S.**\
 `The requests followed Times reporting that the Department of Homeland Security had sent Meta and other companies subpoenas for information on accounts that track or comment on ICE.`\
 https://nytimes.com/2026/02/25/technology/lawmakers-tech-companies-dhs.html
-
-**Yankees to retire CC Sabathia's No. 52, add plaque to Monument Park**\
-`The left-hander will be the 24th Yankee player or manager to have their number retired. He had a 134-88 record in 11 seasons in New York.`\
-https://nytimes.com/athletic/7071466/2026/02/25/cc-sabathia-number-retired-yankees-monument-park/
 

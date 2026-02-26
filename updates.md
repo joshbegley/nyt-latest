@@ -1,3 +1,7 @@
+**Joe Gibbs Racing's former competition director offers spirited defense in lawsuit**\
+`The awkward breakup of the racing team and its former competition director took a new turn on Wednesday.`\
+https://nytimes.com/athletic/7071584/2026/02/25/joe-gibbs-racing-chris-gabehart-spire-lawsuit/
+
 **Highland Refusal**\
 `Yitzi Snow makes his New York Times Crossword debut.`\
 https://nytimes.com/2026/02/25/crosswords/daily-puzzle-2026-02-26.html
