@@ -1,3 +1,7 @@
+**Tracey Emin on Love, Loss and Getting Out of ‘My Bed’**\
+`Since the artist was diagnosed with aggressive bladder cancer in 2020, a lot has changed in her life and work. A new show at Tate Modern examines Tracey Emin’s “second life.”`\
+https://nytimes.com/2026/02/26/arts/tracey-emin-tate-modern-london-second-life.html
+
 **What It’s Like to Grow Up With A.I.: The Winners of Our Multimedia Challenge**\
 `Via essays, poems, videos, artwork and graphics, 35 students across the globe reflect on how this technology is affecting teenagers.`\
 https://nytimes.com/2026/02/26/learning/teens-on-growing-up-with-ai.html
