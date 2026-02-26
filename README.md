@@ -1,3 +1,19 @@
+**C.D.C.’s New Acting Director Draws Unexpected Praise From Agency Staff**\
+`Dr. Jay Bhattacharya, who was appointed to the role last week, has offered to publicly endorse vaccination, in particular the measles vaccine, winning over some agency employees.`\
+https://nytimes.com/2026/02/26/health/cdc-bhattacharya-vaccinations-measles.html
+
+**Mexico’s Cartel Fight Is a Terrifying High-Wire Act**\
+`As drug gangs have become more deeply embedded in Mexico, “narco blockades” have become a way for them to visibly assert their power.`\
+https://nytimes.com/2026/02/26/opinion/international-world/mexico-cartel-violence.html
+
+**What’s Going On in This Picture? | March 2, 2026**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2026/02/26/learning/whats-going-on-in-this-picture-march-2-2026.html
+
+**The Incompetence of Trump 2.0**\
+`President Trump’s top officials are often portrayed as cunning political strategists. But too often, it’’s their carelessness and incompetence that put Americans at risk — and citizens are paying the price, argues Times Opinion’s editor, Kathleen Kingsbury.`\
+https://nytimes.com/video/opinion/100000010733762/the-incompetence-of-trump-2-0.html
+
 **What Your DNA Reveals About the Sex Life of Neanderthals**\
 `Most people alive today carry fragments of Neanderthal DNA in their genome. Now scientists are gaining a more intimate understanding of the ancient encounters that put it there.`\
 https://nytimes.com/2026/02/26/science/human-evolution-neanderthal-sex.html
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/7073576/2026/02/26/new-york-jets-jermaine-johnson-t
 **PWHL 2025-26 playoff chances, projected standings and player ratings**\
 `Welcome to our 2025-26 PWHL projections where you will find each team’s projected point total and chances of winning the Walter Cup.`\
 https://nytimes.com/athletic/7070578/2026/02/26/pwhl-2025-26-playoff-chances-and-projected-standings/
-
-**7 New Books We Recommend This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/02/26/books/review/new-recommended-books.html
-
-**What Teenagers Are Saying About Limiting A’s to Curb Grade Inflation**\
-`Students react to Harvard’s proposal to cap the number of A’s professors can award in an effort to make top grades more meaningful.`\
-https://nytimes.com/2026/02/26/learning/what-teenagers-are-saying-about-limiting-as-to-curb-grade-inflation.html
-
-**Teresa de Lauretis, Coiner (and Critic) of Queer Theory, Dies at 87**\
-`She came up with the term as the title of a 1990 conference but saw its later popularity as a little superficial.`\
-https://nytimes.com/2026/02/26/books/teresa-de-lauretis-dead.html
 

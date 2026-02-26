@@ -1,3 +1,11 @@
+**What Your DNA Reveals About the Sex Life of Neanderthals**\
+`Most people alive today carry fragments of Neanderthal DNA in their genome. Now scientists are gaining a more intimate understanding of the ancient encounters that put it there.`\
+https://nytimes.com/2026/02/26/science/human-evolution-neanderthal-sex.html
+
+**A telling stat says one of these 3 NBA teams should win the NBA title**\
+`In recent NBA history, the 40-before-20 rule has been a solid indicator of future champions. Which teams made the exclusive list this year?`\
+https://nytimes.com/athletic/7073089/2026/02/26/40-20-rule-nba-thunder-spurs-pistons/
+
 **Europe Needs Some Space From China and Trump. Its Firms Don’t.**\
 `Germany’s chancellor seeks to reduce Europe’s reliance on China and the United States. He speaks with a bluntness that few business leaders share.`\
 https://nytimes.com/2026/02/26/world/europe/germany-china-merz-europe-business.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/02/26/learning/what-teenagers-are-saying-about-limiting
 **Teresa de Lauretis, Coiner (and Critic) of Queer Theory, Dies at 87**\
 `She came up with the term as the title of a 1990 conference but saw its later popularity as a little superficial.`\
 https://nytimes.com/2026/02/26/books/teresa-de-lauretis-dead.html
-
-**Denver Mayor Bars ICE from City Property and Orders Protection for Protesters**\
-`Mayor Mike Johnston’s order is a defiant shift from his measured stance and risks drawing attention to Greater Denver after President Trump during the campaign promised a “bloody story” there.`\
-https://nytimes.com/2026/02/26/us/denver-mayor-ice-defiance.html
-
-**In Texas, a G.O.P. Civil War Erupts: ‘How MAGA Are You?’**\
-`Representative Dan Crenshaw, who has at times clashed with President Trump and his allies, is facing a conservative challenger in Tuesday’s primary.`\
-https://nytimes.com/2026/02/26/us/politics/crenshaw-texas-republicans-maga-trump-primary.html
 
