@@ -1,3 +1,19 @@
+**How to watch Georgetown vs. UConn women's basketball: Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072883/2026/02/26/georgetown-vs-uconn-stream-how-to-watch-feb-26/
+
+**Science Practice | A Study on a Robotic Hand Design**\
+`A new robotic picker-upper can roam around freely, like Thing from “The Addams Family.”`\
+https://nytimes.com/2026/02/26/learning/science-practice-a-study-on-a-robotic-hand-design.html
+
+**How to watch Tennessee vs. LSU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Lady Volunteers play the LSU Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072877/2026/02/26/tennessee-vs-lsu-stream-how-to-watch-feb-26/
+
+**How to watch North Carolina vs. Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7072873/2026/02/26/north-carolina-vs-virginia-stream-how-to-watch-feb-26/
+
 **How to watch Ole Miss vs. Florida women's basketball: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7072863/2026/02/26/ole-miss-vs-florida-stream-how-to-watch-feb-26/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7072851/2026/02/26/louisville-vs-georgia-tech-strea
 **Barcelona's De Jong to miss up to six weeks with hamstring injury**\
 `De Jong's injury comes just as fellow midfielder Pedri has returned from a hamstring issue of his own.`\
 https://nytimes.com/athletic/7072432/2026/02/26/frenkie-de-jong-barcelona-hamstring-injury/
-
-**Immigration Agents Arrest Student Inside Columbia Building, School Says**\
-`Claire Shipman, the university’s acting president, said that the federal officials had misrepresented themselves to gain access.`\
-https://nytimes.com/2026/02/26/nyregion/columbia-university-ice-student.html
-
-**All the major fantasy baseball news you missed this offseason**\
-`Jake Ciely details how some of the biggest offseason MLB headlines impact fantasy baseball player values. `\
-https://nytimes.com/athletic/7070826/2026/02/26/fantasy-baseball-2026-mlb-offseason-kyle-tucker-alex-bregman/
-
-**Family of U.N. Expert Critical of Israel Sues Trump Over Sanctions**\
-`The family of Francesca Albanese, a critic of Israel’s war in Gaza, asked a court to void the Trump administration’s sanctions against her.`\
-https://nytimes.com/2026/02/26/us/francesca-albanese-lawsuit-trump-sanctions-israel-gaza.html
-
-**6,000 Hogs Killed in Fire at Ohio Farm**\
-`The fire on Wednesday was fueled by strong winds, police officials said. The cause is under investigation.`\
-https://nytimes.com/2026/02/26/us/ohio-farm-fire-6000-hogs-killed.html
 
