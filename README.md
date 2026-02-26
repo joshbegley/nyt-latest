@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7071322/2026/02/25/olympic-womens-hockey-reaction-trump/
 
 **Police Officer Accused of Tracking Partner Using License Plate Reader**\
-`The Milwaukee officer used the technology to run searches on his partner’s plates 124 times, officials said, and he also tracked the person’s ex.`\
+`The Milwaukee officer used the technology to run searches on his partner’s plate 124 times, officials said, and he also tracked the person’s ex.`\
 https://nytimes.com/2026/02/25/us/milwaukee-police-officer-charged-flock-camera.html
 
 **Las fuerzas de Cuba ya han enfrentado otras embarcaciones de EE. UU.**\
