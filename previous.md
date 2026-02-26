@@ -1,3 +1,7 @@
+**What We Know About the Gun Battle With Cuban Border Troops**\
+`Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
+https://nytimes.com/2026/02/26/us/what-we-know-gun-battle-cuba.html
+
 **Word of the Day: benevolent**\
 `This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/26/learning/word-of-the-day-benevolent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068953/2026/02/26/fantasy-premier-league-tips-fpl-
 **What's happened to Villa Park's atmosphere - and how can it be fixed?**\
 `Villa away supporters remain loud and unyielding, but working to enhance the sound of home fans is a growing issue facing the club`\
 https://nytimes.com/athletic/7067606/2026/02/26/whats-happened-to-villa-parks-atmosphere-and-how-can-it-be-fixed/
-
-**This is how Chelsea can improve their discipline without losing on-field edge**\
-`Players from two historically ill-disciplined Premier League teams explain how Chelsea can reduce the number of cards they are receiving`\
-https://nytimes.com/athletic/7070655/2026/02/26/chelsea-premier-league-yellow-red-cards/
 

@@ -1,3 +1,7 @@
+**What We Know About the Gun Battle With Cuban Border Troops**\
+`Four armed Cuban nationals aboard a Florida-based speedboat died in a gunfight with border troops near the island nation’s coast, officials said.`\
+https://nytimes.com/2026/02/26/us/what-we-know-gun-battle-cuba.html
+
 **Word of the Day: benevolent**\
 `This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/26/learning/word-of-the-day-benevolent.html
