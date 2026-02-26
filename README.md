@@ -1,3 +1,11 @@
+**Eight members of Team Cuba's WBC traveling party denied entry into U.S.**\
+`No players were denied entry and the team still plans to participate in the tournament, according to a WBC source.`\
+https://nytimes.com/athletic/7073941/2026/02/26/cuba-denied-entry-united-states-wbc/
+
+**Wings' Dylan Larkin reflects on Olympics victory, Trump call criticism**\
+`Among Dylan Larkin's Olympics memories: "How just crazy, stressful and intense" the gold medal game was.`\
+https://nytimes.com/athletic/7073912/2026/02/26/red-wings-dylan-larkin-olympic-gold-usa-women-trump/
+
 **Trump Declared Victory in Minneapolis. But What Did He Accomplish?**\
 `The Trump administration came under fire for an operation that turned lethal and politically toxic. But the show of force may also have had a bigger purpose: to serve as a warning.`\
 https://nytimes.com/2026/02/26/us/politics/trump-minneapolis-ice-immigration.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
 **15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
 `The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
 https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html
-
-**Game-Changing Drugs**\
-`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknowns about long-term use.`\
-https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
-
-**Where to Eat and Have a Shvitz**\
-`Three New York City banyas where you can squeeze in a great meal with a great sweat.`\
-https://nytimes.com/2026/02/26/dining/where-to-eat-and-have-a-shvitz.html
 

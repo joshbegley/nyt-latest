@@ -1,3 +1,11 @@
+**Trump Declared Victory in Minneapolis. But What Did He Accomplish?**\
+`The Trump administration came under fire for an operation that turned lethal and politically toxic. But the show of force may also have had a bigger purpose: to serve as a warning.`\
+https://nytimes.com/2026/02/26/us/politics/trump-minneapolis-ice-immigration.html
+
+**Jean Widmer, Designer of Celebrated French Graphics, Dies at 96**\
+`His minimalist road signs became a visual hallmark of France’s highways. He also created logos for cultural institutions like the Pompidou Center.`\
+https://nytimes.com/2026/02/26/arts/design/jean-widmer-dead.html
+
 **Wayne Tinkle, who guided Oregon State to 2021 Elite Eight, won't return next season**\
 `Tinkle compiled a 175-204 record and made two NCAA Tournaments in 12 seasons.`\
 https://nytimes.com/athletic/7073811/2026/02/26/oregon-state-wayne-tinkle-fired/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
 **Where to Eat and Have a Shvitz**\
 `Three New York City banyas where you can squeeze in a great meal with a great sweat.`\
 https://nytimes.com/2026/02/26/dining/where-to-eat-and-have-a-shvitz.html
-
-**Government Still Building Case for U.S.S. Cole Trial 25 Years After Attack**\
-`Prosecutors are scrambling to shore up the case from adverse judicial rulings. Defense lawyers say they are not ready for trial.`\
-https://nytimes.com/2026/02/26/us/politics/guantanamo-uss-cole-trial.html
-
-**Dan Duckhorn, Who Made Merlot a Napa Valley Star, Dies at 87**\
-`A founder of Duckhorn Vineyards, a California winemaker, Mr. Duckhorn transformed merlot from a blending grape into a premier American variety.`\
-https://nytimes.com/2026/02/26/us/dan-duckhorn-dead-california.html
 
