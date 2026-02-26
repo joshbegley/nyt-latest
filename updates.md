@@ -1,3 +1,11 @@
+**Blue Jackets come out of Olympic break with tough tests vs. Bruins, Islanders**\
+`"Every game gets tougher from here on in," coach Rick Bowness said. "It will. We just have to be up for that challenge."`\
+https://nytimes.com/athletic/7071258/2026/02/26/blue-jackets-olympic-break-tough-tests/
+
+**Jackson LaCombe returns to the Ducks motivated for 2030 Olympics**\
+`LaCombe didn't see any action in Milan thanks to Team USA's loaded back line, but he learned a lot watching his teammates win gold.`\
+https://nytimes.com/athletic/7071935/2026/02/26/jackson-lacombe-returns-to-ducks-motivated-for-2030-olympics/
+
 **The Bounce: Will we have an NBA MVP by default? Plus, let's rank the contenders**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7072585/2026/02/26/nba-mvp-65-game-jokic-sga-the-bounce/

@@ -1,3 +1,11 @@
+**Jets agree to trade Jermaine Johnson to Titans for T’Vondre Sweat: Sources**\
+`Johnson was a first-round pick of the Jets in 2022.`\
+https://nytimes.com/athletic/7072657/2026/02/26/jermaine-johnson-tvondre-sweat-jets-titans-trade/
+
+**Jeff Galloway, Olympian Who Transformed American Distance Running, Dies at 80**\
+`The runner, coach and best-selling author created the widely embraced run-walk-run method, which helped make running more accessible.`\
+https://nytimes.com/2026/02/26/obituaries/jeff-galloway-dead.html
+
 **Blue Jackets come out of Olympic break with tough tests vs. Bruins, Islanders**\
 `"Every game gets tougher from here on in," coach Rick Bowness said. "It will. We just have to be up for that challenge."`\
 https://nytimes.com/athletic/7071258/2026/02/26/blue-jackets-olympic-break-tough-tests/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072501/2026/02/26/tolu-arokodare-wolves-racist-abu
 **The Latest New Zealander to Move to Australia Is an Ex-Prime Minister**\
 `Jacinda Ardern, New Zealand’s former leader, is basing her family in Australia “for the moment,” a spokesman said. She is part of a wave of Kiwis relocating to their larger neighbor.`\
 https://nytimes.com/2026/02/26/world/australia/new-zealand-jacinda-ardern-australia.html
-
-**Dubai of the Caribbean, With Crypto? Locals Aren’t Buying It.**\
-`A Bitcoin baron wants to build a libertarian paradise on the island of Nevis. Democracy is getting in the way.`\
-https://nytimes.com/2026/02/26/business/st-kitts-nevis-destiny-olivier-janssens-crypto-libertarian.html
-
-**Padres mailbag: Possible sale timeline, A.J. Preller’s contract, rotation depth**\
-`The Athletic's Dennis Lin answers reader questions about the potential Padres sale, GM extension and a flurry of low-cost acquisitions.`\
-https://nytimes.com/athletic/7070981/2026/02/26/padres-sale-aj-preller-contract-rotation/
 
