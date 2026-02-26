@@ -1,3 +1,7 @@
+**In Landmark Trial, Plaintiff Says Social Media Harm Started at Age 6**\
+`The plaintiff, identified only as K.G.M., took the stand to testify against Meta and Instagram in a bellwether case over tech addiction.`\
+https://nytimes.com/2026/02/26/technology/social-media-addiction-testimony.html
+
 **15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
 `The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
 https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073828/2026/02/26/rockets-vs-magic-stream-how-to-w
 **How to watch Spurs vs. Nets: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073820/2026/02/26/spurs-vs-nets-stream-how-to-watch-feb-26/
-
-**How to watch Pelicans vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073818/2026/02/26/pelicans-vs-jazz-stream-how-to-watch-feb-26/
 

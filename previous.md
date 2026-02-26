@@ -1,5 +1,9 @@
+**15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
+`The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
+https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html
+
 **Game-Changing Drugs**\
-`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknows about long-term use.`\
+`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknowns about long-term use.`\
 https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
 
 **Where to Eat and Have a Shvitz**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073820/2026/02/26/spurs-vs-nets-stream-how-to-watc
 **How to watch Pelicans vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7073818/2026/02/26/pelicans-vs-jazz-stream-how-to-watch-feb-26/
-
-**How to watch Wizards vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7073809/2026/02/26/wizards-vs-hawks-stream-how-to-watch-feb-26/
 

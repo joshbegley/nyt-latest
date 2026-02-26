@@ -1,3 +1,11 @@
+**15 South Africans Duped Into Fighting for Russia in Ukraine Return Home**\
+`The South African leader said that the men had come home two weeks after he had won agreement from President Vladimir V. Putin.`\
+https://nytimes.com/2026/02/26/world/africa/russia-ukraine-south-africa-fighters.html
+
+**Game-Changing Drugs**\
+`Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknowns about long-term use.`\
+https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
+
 **Game-Changing Drugs**\
 `Ozempic and similar weight-loss medications are hailed as miracle drugs. But there are plenty of unknows about long-term use.`\
 https://nytimes.com/2026/02/26/world/ozempic-glp-1-iran-hillary-clinton.html
