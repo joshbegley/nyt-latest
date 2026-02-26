@@ -1,3 +1,11 @@
+**Pereira’s eventful time at Olympiacos: Pitch invasions, Marinakis, and doing the double**\
+`The Forest head coach has had a varied career path, not least a colourful spell with Marinakis' Greek club Olympiacos`\
+https://nytimes.com/athletic/7070785/2026/02/26/vitor-pereira-olympiacos-marinakis/
+
+**Arsenal vs Manchester City: Analysing the Premier League title race**\
+`Five points separate City from league leaders Arsenal, and Guardiola's side have a game in hand. We have a serious title race on our hands`\
+https://nytimes.com/athletic/7070461/2026/02/26/arsenal-man-city-premier-league-title-race/
+
 **Why sporrans are so vital for Scotland fans at the 2026 World Cup**\
 `FIFA have announced that sporrans — for those who don’t know, the small pouches worn around the waist — will be allowed at the World Cup`\
 https://nytimes.com/athletic/7070393/2026/02/26/scotland-fans-sporrans-world-cup-fifa/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/trump-iran-strike.html
 **A British Special Election Could Hardly Have Come at a Worse Time for Starmer**\
 `A parliamentary by-election in Gorton and Denton, outside Manchester, will test support for Britain’s prime minister at a moment of intense political pressure.`\
 https://nytimes.com/2026/02/26/world/europe/gorton-denton-byelection-uk-starmer.html
-
-**After Bondi Beach Massacre, an Anti-Immigration Party Surges**\
-`The foreign roots of the men accused of killing 15 at a Jewish event have helped make Pauline Hanson and her One Nation party more palatable for some Australians.`\
-https://nytimes.com/2026/02/26/world/asia/australia-bondi-one-nation-immigration.html
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 26, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7071874/2026/02/26/connections-sports-edition-hints-answers-feb-26-2026/
 
