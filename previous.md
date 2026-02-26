@@ -1,40 +1,40 @@
-**The Latest New Zealander to Move to Australia Is an Ex-Prime Minister**\
-`Jacinda Ardern, New Zealand’s former leader, is basing her family in Australia “for the moment,” a spokesman said. She is part of a wave of Kiwis relocating to their larger neighbor.`\
-https://nytimes.com/2026/02/26/world/australia/new-zealand-jacinda-ardern-australia.html
+**Immigration Agents Arrest Student Inside Columbia Building, School Says**\
+`Claire Shipman, the university’s acting president, said that the federal officials had misrepresented themselves to gain access.`\
+https://nytimes.com/2026/02/26/nyregion/columbia-university-ice-student.html
 
-**Dubai of the Caribbean, With Crypto? Locals Aren’t Buying It.**\
-`A Bitcoin baron wants to build a libertarian paradise on the island of Nevis. Democracy is getting in the way.`\
-https://nytimes.com/2026/02/26/business/st-kitts-nevis-destiny-olivier-janssens-crypto-libertarian.html
+**All the major fantasy baseball news you missed this offseason**\
+`Jake Ciely details how some of the biggest offseason MLB headlines impact fantasy baseball player values. `\
+https://nytimes.com/athletic/7070826/2026/02/26/fantasy-baseball-2026-mlb-offseason-kyle-tucker-alex-bregman/
 
-**Padres mailbag: Possible sale timeline, A.J. Preller’s contract, rotation depth**\
-`The Athletic's Dennis Lin answers reader questions about the potential Padres sale, GM extension and a flurry of low-cost acquisitions.`\
-https://nytimes.com/athletic/7070981/2026/02/26/padres-sale-aj-preller-contract-rotation/
+**Family of U.N. Expert Critical of Israel Sues Trump Over Sanctions**\
+`The family of Francesca Albanese, a critic of Israel’s war in Gaza, asked a court to void the Trump administration’s sanctions against her.`\
+https://nytimes.com/2026/02/26/us/francesca-albanese-lawsuit-trump-sanctions-israel-gaza.html
 
-**Conor Benn to fight Regis Prograis in first bout with Zuffa Boxing**\
-`Benn will fight Prograis on his return to the Tottenham Hotspur Stadium where he defeated Chris Eubank Jr in November 2025.`\
-https://nytimes.com/athletic/7072476/2026/02/26/conor-been-regis-prograis-zuffa-boxing/
+**6,000 Hogs Killed in Fire at Ohio Farm**\
+`The fire on Wednesday was fueled by strong winds, police officials said. The cause is under investigation.`\
+https://nytimes.com/2026/02/26/us/ohio-farm-fire-6000-hogs-killed.html
 
-**Tyler Myers' goodbye skate and why a Canucks trade deadline fire sale is a necessary step**\
-`As it stood Wednesday night, Vancouver is at the 1-yard line on a trade that would include Myers.`\
-https://nytimes.com/athletic/7071551/2026/02/26/tyler-myers-canucks-trade-deadline-skate/
+**Sam Blum: The Angels may have stunk, but covering them sure didn't**\
+`Sam Blum will be leaving the Angels beat for The Athletic to become a national writer. His five years on the beat were a wild ride. `\
+https://nytimes.com/athletic/7071479/2026/02/26/sam-blum-angels-beat-writer-assignment/
 
-**All these Bulls losses are weighing on Matas Buzelis**\
-`The second-year forward's normally unwavering confidence has been shaken by Chicago's roster overhaul and 10-game skid.`\
-https://nytimes.com/athletic/7072269/2026/02/26/matas-buzelis-bulls-losing/
+**On the road with the fans of the most hopeless team in English football**\
+`Sheffield Wednesday have succumbed to the earliest relegation in EFL history – but the loyalty of their supporters cannot be doubted `\
+https://nytimes.com/athletic/7041343/2026/02/26/hopeless-fans-sheffield-wednesday-relegation-record/
 
-**Why Nvidia’s Big Profits Aren’t Lifting Markets**\
-`The chip giant at the center of the artificial intelligence boom again beat expectations. But it didn’t overcome investor jitters.`\
-https://nytimes.com/2026/02/26/business/dealbook/nvidia-ai-markets.html
+**A Surprise Move by Megan Thee Stallion: Starring on Broadway**\
+`For eight weeks this spring, the popular rapper will be featured as a nightclub impresario in “Moulin Rouge! The Musical.”`\
+https://nytimes.com/2026/02/26/theater/megan-thee-stallion-moulin-rouge-broadway.html
 
-**Revel, a Maker of Software for Running Hardware, Raises $150 Million**\
-`The start-up, founded by a former top SpaceX engineer, promises to help companies reduce their testing times and optimize systems.`\
-https://nytimes.com/2026/02/26/business/dealbook/revel-software-hardware-fund-raise.html
+**‘Heaven. This Creamy Dish Is Rich and Nourishing.’**\
+`Readers love this new coconut kitchri recipe, and it’s easy to see why this warming lentil and rice porridge is so popular.`\
+https://nytimes.com/2026/02/26/dining/heaven-this-creamy-dish-is-rich-and-nourishing.html
 
-**Nebraska's offseason has been low on hype. But its new coaches inspired confidence Wednesday**\
-`There's less fanfare around Nebraska this spring after an end to the 2025 season marked by four losses in five games.`\
-https://nytimes.com/athletic/7072218/2026/02/26/nebraska-football-new-coaches-spring-practices/
+**Popcast: Luke Combs Is Ready to Make Smash Hits (Again)**\
+`A few years on from the “Fast Car” phenomenon, Luke Combs is eager to make big streaming songs again.`\
+https://nytimes.com/video/podcasts/100000010737812/popcast-luke-combs-is-ready-to-make-smash-hits-again.html
 
-**Trump Administration Live Updates: U.S. and Iran Resume Nuclear Talks as Risk of War Looms**\
-``\
-https://nytimes.com/live/2026/02/26/us/trump-iran-epstein-clinton
+**‘The Pitt’ Is Showing Us the Complicated Reality of Psychosis**\
+`Subtle signs of mental distress often emerge before severe symptoms.`\
+https://nytimes.com/2026/02/26/well/mind/the-pitt-psychosis.html
 
