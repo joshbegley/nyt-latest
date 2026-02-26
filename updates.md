@@ -1,3 +1,7 @@
+**What We Know About the Gun Battle Off the Coast of Cuba**\
+`Four armed Cubans aboard a Florida-based speedboat died in a gunfight with Cuban border troops on Wednesday, officials said.`\
+https://nytimes.com/2026/02/26/us/cuba-speedboat-florida-shooting-killed.html
+
 **Letting the Fur Fly at Fendi**\
 `Maria Grazia Chiuri makes her debut, and courts controversy. Sort of.`\
 https://nytimes.com/2026/02/26/style/fendi-maria-grazia-chiuri-fall-2026.html
