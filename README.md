@@ -1,9 +1,17 @@
+**Trump Administration Asks Supreme Court to End Protections for Syrian Migrants**\
+`The president has sought to end the program, known as Temporary Protected Status, for various migrants as part of his mass deportation efforts.`\
+https://nytimes.com/2026/02/26/us/politics/supreme-court-deportation-syrians.html
+
+**ICE Car Chase Leads to Crash Involving Children, Newark Mayor Says**\
+`The crash happened on Wednesday morning, Mayor Ras Baraka said, as federal immigration agents were pursuing a man driving a van.`\
+https://nytimes.com/2026/02/26/nyregion/ice-car-crash-newark-baraka.html
+
 **Clinton Halts Epstein Deposition After Republican Leaks Photo of Her Testifying**\
 `Hillary Clinton, the former secretary of state, had requested a public hearing if she was going to be forced to testify in the House Oversight Committee’s investigation, but the G.O.P. chairman had refused.`\
 https://nytimes.com/2026/02/26/us/politics/hillary-clinton-epstein-deposition-lauren-boebert.html
 
 **'We deserve this': Bruins' Charlie McAvoy revels in U.S. Olympic gold after a year of misfortune**\
-`Charlie McAvoy has endured injury, infection, family concerns and more injury over the past year.`\
+`McAvoy has endured injury, infection, family concerns and more injury over the past year — and come through it a gold-medal winner.`\
 https://nytimes.com/athletic/7073237/2026/02/26/bruins-charlie-mcavoy-olympic-gold/
 
 **Arsenal's Smith withdraws from SheBelieves Cup with Canada due to concussion**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/t-magazine/trisha-brown-dance-company-performance
 **Live From the 10th Floor | Trisha Brown Dance Company**\
 `Dancers perform an excerpt of Trisha Brown’s “Set and Reset” (1983), with music by Laurie Anderson, in T Magazine’s office.`\
 https://nytimes.com/video/t-magazine/100000010730875/live-from-the-10th-floor-trisha-brown-dance-company.html
-
-**Judge Declines to Halt Construction on Trump’s East Wing Ballroom Project**\
-`A federal judge ruled that a lawsuit challenging the project needed to be revised before he could consider the larger questions it presented.`\
-https://nytimes.com/2026/02/26/us/politics/judge-white-house-ballroom-trump.html
-
-**A Creamy Salad Dressing That Will Change Your Life**\
-`The chefs of a popular modern izakaya in California share their secret to a sauce that makes you feel great.`\
-https://nytimes.com/2026/02/26/dining/silken-tofu-salad-dressing-rvr-los-angeles.html
 
