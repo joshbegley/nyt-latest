@@ -1,3 +1,7 @@
+**Blue Jackets come out of Olympic break with tough tests vs. Bruins, Islanders**\
+`"Every game gets tougher from here on in," coach Rick Bowness said. "It will. We just have to be up for that challenge."`\
+https://nytimes.com/athletic/7071258/2026/02/26/blue-jackets-olympic-break-tough-tests/
+
 **Jackson LaCombe returns to the Ducks motivated for 2030 Olympics**\
 `LaCombe didn't see any action in Milan thanks to Team USA's loaded back line, but he learned a lot watching his teammates win gold.`\
 https://nytimes.com/athletic/7071935/2026/02/26/jackson-lacombe-returns-to-ducks-motivated-for-2030-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/business/st-kitts-nevis-destiny-olivier-janssens-
 **Padres mailbag: Possible sale timeline, A.J. Preller’s contract, rotation depth**\
 `The Athletic's Dennis Lin answers reader questions about the potential Padres sale, GM extension and a flurry of low-cost acquisitions.`\
 https://nytimes.com/athletic/7070981/2026/02/26/padres-sale-aj-preller-contract-rotation/
-
-**Conor Benn to fight Regis Prograis in first bout with Zuffa Boxing**\
-`Benn will fight Prograis on his return to the Tottenham Hotspur Stadium where he defeated Chris Eubank Jr in November 2025.`\
-https://nytimes.com/athletic/7072476/2026/02/26/conor-been-regis-prograis-zuffa-boxing/
 
