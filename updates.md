@@ -1,3 +1,7 @@
+**Trump Administration Withholds $259 Million in Medicaid Funds From Minnesota**\
+`Vice President JD Vance said that the Trump administration had been forced to “turn the screws on” Minnesota so the state would respond to allegations of fraud.`\
+https://nytimes.com/2026/02/25/us/politics/medicaid-funds-minnesota.html
+
 **Kalshi Accuses a ‘MrBeast’ Employee of Insider Trading**\
 `The prediction-market platform said it had reported the employee to federal regulators. The show’s parent company said it had “no tolerance for this behavior.”`\
 https://nytimes.com/2026/02/25/business/kalshi-mrbeast-employee-insider-trading-accusations.html
