@@ -1,3 +1,11 @@
+**After trading another defensive building block, what's next for the Jets?**\
+`A look at the team's options at edge rusher in light of the Jermaine Johnson trade.`\
+https://nytimes.com/athletic/7073576/2026/02/26/new-york-jets-jermaine-johnson-trade-edge-draft-free-agency/
+
+**PWHL 2025-26 playoff chances, projected standings and player ratings**\
+`Welcome to our 2025-26 PWHL projections where you will find each team’s projected point total and chances of winning the Walter Cup.`\
+https://nytimes.com/athletic/7070578/2026/02/26/pwhl-2025-26-playoff-chances-and-projected-standings/
+
 **7 New Books We Recommend This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2026/02/26/books/review/new-recommended-books.html
