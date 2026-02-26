@@ -1,3 +1,23 @@
+**Russia Launches Major Attack Hours Before U.S.-Ukraine Talks**\
+`Russia unleashed a series of drone and missile strikes on Ukraine on Thursday, injuring at least 20 people and damaging buildings in eight different regions.`\
+https://nytimes.com/video/world/europe/100000010739658/russia-drone-attack-ukraine-us-negotiation.html
+
+**Edward L. Deci, 83, Dies; Found Self-Determination as a Key to Happiness**\
+`His work with his colleague Richard Ryan changed how psychologists understand human motivation and what people require to flourish.`\
+https://nytimes.com/2026/02/26/science/edward-l-deci-dead.html
+
+**Testimony Offers New Details on Justice Dept. Role in Abrego Garcia Prosecution**\
+`A top prosecutor, Robert E. McGuire, painted an extraordinary picture of senior Justice Department leaders peering over his shoulder and hurrying him along.`\
+https://nytimes.com/2026/02/26/us/kilmar-abrego-garcia-justice-department-trump.html
+
+**N.Y. Man With China Ties Charged With Marijuana Trafficking in Oklahoma**\
+`Sin Tung Chan was a member of a prominent hometown association in the city, one of hundreds of social clubs that often maintain close ties with the Chinese government.`\
+https://nytimes.com/2026/02/26/nyregion/nyc-china-hometown-oklahoma-marijuana.html
+
+**Will Rueben Bain Jr.'s short arms impact his 2026 NFL Draft stock?**\
+`Bain measured in with an arm length of 30 7/8 inches, which would be among the shortest in recent history for a drafted edge rusher.`\
+https://nytimes.com/athletic/7074047/2026/02/26/nfl-draft-2026-rueben-bain-jr-arm-length/
+
 **Jeff Galloway Made Me a Marathoner**\
 `The distance running icon, who died Wednesday at 80, taught me to endure. In December, we shared his final run.`\
 https://nytimes.com/2026/02/26/well/move/jeff-galloway-running-tribute.html
