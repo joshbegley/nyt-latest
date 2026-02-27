@@ -1,3 +1,15 @@
+**Carrick uncertain of De Ligt injury return**\
+`The 26-year-old centre-back has not featured for United since the victory at Crystal Palace on November 30.`\
+https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united/
+
+**John Lynch likes the 49ers current offensive line, but says 'we'll add to it'**\
+`“We want to continue to grow our offensive line,” Lynch said. “But we like the guys we have.”`\
+https://nytimes.com/athletic/7073377/2026/02/27/49ers-offensive-line-nfl-draft-john-lynch/
+
+**The I.R.S. Shut Its Direct File, but Here Are Other Free Filing Options**\
+`The agency still offers a Free File program that works with commercial tax software firms. Some companies also offer free tools for certain filers.`\
+https://nytimes.com/2026/02/27/your-money/irs-free-tax-filing.html
+
 **Breakdown of a takedown: How Lionel Messi was floored as pitch invaders interrupt Inter Miami friendly**\
 `The friendly fixture in Puerto Rico had to be paused late on as fans evaded security to run on to the pitch and greet the Argentinean`\
 https://nytimes.com/athletic/7075050/2026/02/27/messi-inter-miami-puerto-rico-pitch-invaders/

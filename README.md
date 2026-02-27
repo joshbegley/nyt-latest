@@ -1,3 +1,7 @@
+**Are Germany’s Top Cultural Events Becoming Impossible to Run?**\
+`A dispute over free speech at the Berlin Film Festival around Israel’s actions in Gaza, and rumors of the festival director’s firing, raised broader worries about Germany’s cultural landscape.`\
+https://nytimes.com/2026/02/27/arts/berlin-film-festival-tricia-tuttle-israel-gaza.html
+
 **Carrick uncertain of De Ligt injury return**\
 `The 26-year-old centre-back has not featured for United since the victory at Crystal Palace on November 30.`\
 https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074997/2026/02/27/raul-asencio-real-madrid-neck-in
 **Paramount Is Set to Win Warner Bros. Now Comes the Hard Part.**\
 `The media company controlled by the Ellisons out-dueled Netflix for control of Warner Bros. Discovery. The next step is making the combined media empires work.`\
 https://nytimes.com/2026/02/27/business/dealbook/paramount-warner-bros-netflix.html
-
-**Giants stock up/stock down: Tony Vitello doesn't sugarcoat Hayden Birdsong's rough start**\
-`"I think he's capable of better," the first-year manager said after Birdsong allowed three earned runs and threw 32 pitches in an inning.`\
-https://nytimes.com/athletic/7074530/2026/02/27/sf-giants-tony-vitello-hayden-birdsong/
 
