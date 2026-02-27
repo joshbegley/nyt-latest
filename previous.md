@@ -1,3 +1,11 @@
+**Premier League pushing for temporary concussion substitutes discussion**\
+`The topic is not on the agenda for the AGM of football's lawmakers, IFAB, which will take place in Wales on Saturday.`\
+https://nytimes.com/athletic/7075131/2026/02/27/premier-league-concussion-substitutes-ifab/
+
+**USMNT midfielder Tillman avoids serious ankle injury**\
+`The 23-year-old is expected to miss Bayer Leverkusen’s Bundesliga game against Mainz on Saturday.`\
+https://nytimes.com/athletic/7075067/2026/02/27/malik-tillman-injury-update-usmnt-leverkusen/
+
 **Men's college basketball weekend guide: Michigan-Illinois, Virginia-Duke, bubble games**\
 `And so begins college basketball's long, dramatic denouement. We're about to turn the calendar to March. Here's what to watch this weekend.`\
 https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-kansas-arizona-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075001/2026/02/27/connor-mcdavid-edmonton-oilers-p
 **Keep or trade? Peeke’s market value makes it a tough call**\
 `Last month, Peeke declined to disclose the nature of contract talks, but his trade value may not reach a must-move level.`\
 https://nytimes.com/athletic/7074674/2026/02/27/bruins-andrew-peeke-trade-deadline-value/
-
-**How outside zone addresses pressing question for Eagles offense**\
-`The Eagles' offensive staff overhaul, headlined by OC Sean Mannion's hire, signaled their goal to integrate more zone-blocking in 2026.`\
-https://nytimes.com/athletic/7072520/2026/02/27/eagles-offense-outside-zone-sean-mannion/
-
-**Weston McKennie: Goalscorer**\
-`The USMNT international is benefiting from taking on regular shots, a spike in his confidence and from the Spalletti Effect at Juventus`\
-https://nytimes.com/athletic/7074143/2026/02/27/weston-mckennie-usmnt-juventus-goalscorer/
 

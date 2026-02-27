@@ -1,3 +1,11 @@
+**Premier League pushing for temporary concussion substitutes discussion**\
+`The topic is not on the agenda for the AGM of football's lawmakers, IFAB, which will take place in Wales on Saturday.`\
+https://nytimes.com/athletic/7075131/2026/02/27/premier-league-concussion-substitutes-ifab/
+
+**USMNT midfielder Tillman avoids serious ankle injury**\
+`The 23-year-old is expected to miss Bayer Leverkusen’s Bundesliga game against Mainz on Saturday.`\
+https://nytimes.com/athletic/7075067/2026/02/27/malik-tillman-injury-update-usmnt-leverkusen/
+
 **Men's college basketball weekend guide: Michigan-Illinois, Virginia-Duke, bubble games**\
 `And so begins college basketball's long, dramatic denouement. We're about to turn the calendar to March. Here's what to watch this weekend.`\
 https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-kansas-arizona-how-to-watch/
