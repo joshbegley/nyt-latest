@@ -1,3 +1,7 @@
+**Dominican Republic shocks USA Basketball in World Cup qualifier**\
+`While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
+https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
+
 **Word of the Day: interpolate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html

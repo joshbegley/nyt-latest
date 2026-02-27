@@ -1,3 +1,7 @@
+**Dominican Republic shocks USA Basketball in World Cup qualifier**\
+`While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
+https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
+
 **Word of the Day: interpolate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-
 **The defensive transfers (in and out) you should be prioritising in FPL**\
 `Many managers are reaching a turning point when it comes to their investment in defence now that the dust has settled on Double Gameweek 26`\
 https://nytimes.com/athletic/7069974/2026/02/27/fantasy-premier-league-gameweek-28-fpl-tips-differentials/
-
-**Lionel Messi taken to the turf as fans race onto field in Puerto Rico**\
-`The shirtless spectator who caused Messi to be tackled had escaped capture, despite having fallen down as he cruised around the field.`\
-https://nytimes.com/athletic/7074720/2026/02/27/lionel-messi-fan-field-tackle-inter-miami/
 
