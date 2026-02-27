@@ -1,3 +1,7 @@
+**U.S.S. Ford Steams Toward a Possible War**\
+`The Navy’s newest aircraft carrier has had mechanical problems throughout its eight-month deployment, but officials now say it is ready for battle. Take a look inside the ship.`\
+https://nytimes.com/2026/02/27/us/politics/uss-ford-iran.html
+
 **Until Saturday: 10 ways to fix college football**\
 `Until Saturday is the Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
