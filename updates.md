@@ -1,3 +1,11 @@
+**Sondra Lee Dies at 97; Originated Roles in ‘Peter Pan’ and ‘Hello, Dolly!’**\
+`With her frenetic energy and 4-foot-10 frame, Ms. Lee seemed destined to play a certain kind of stage character: excitable, endearing and charmingly scheming.`\
+https://nytimes.com/2026/02/27/theater/sondra-lee-dead.html
+
+**War Court Prosecutor Asks Panel to Overturn Torture Finding in 9/11 Case**\
+`An appeals court heard a government effort to resurrect the 2007 interrogations of a prisoner at Guantánamo Bay.`\
+https://nytimes.com/2026/02/27/us/politics/war-court-torture.html
+
 **Read the Indictment**\
 `The Justice Department announced that 30 additional people were charged with disrupting a church service during a protest in Minnesota last month.`\
 https://nytimes.com/interactive/2026/02/27/us/doj-church-indictment.html
