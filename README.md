@@ -1,3 +1,11 @@
+**Google Workers Seek ‘Red Lines’ on Military A.I., Echoing Anthropic**\
+`More than 100 Google A.I. employees sent a letter to Jeff Dean, a chief scientist, opposing Gemini’s use for U.S. surveillance and some autonomous weapons.`\
+https://nytimes.com/2026/02/26/technology/google-deepmind-letter-pentagon.html
+
+**Trump to convene panel focused on future of college sports: Sources**\
+`The roundtable, scheduled for March 6, includes an invite list with dozens of important figures and sports celebrities.`\
+https://nytimes.com/athletic/7074279/2026/02/26/trump-panel-college-sports-future-issues/
+
 **Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
 `The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
 https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/nyregion/mamdani-trump-photo-newspapers.html
 **In surprise move, Commanders to release starting center Tyler Biadasz**\
 `Biadasz signed with the Commanders in 2024 after spending his first four seasons in the league in Dallas.`\
 https://nytimes.com/athletic/7074347/2026/02/26/commanders-tyler-biadasz-released-nfl/
-
-**Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
-`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor-league umpire before reaching the majors in 1971.`\
-https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
-
-**Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\
-`The office of a prosecutor based in Miami has issued new subpoenas in a wide-ranging inquiry aimed at President Trump’s perceived foes.`\
-https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html
 
