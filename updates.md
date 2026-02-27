@@ -1,3 +1,7 @@
+**Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
+`With a genius for melody and keen commercial instincts, he sang and co-wrote some of the definitive teenage anthems of the late 1950s and early ’60s, and then reinvented his career in the ’70s.`\
+https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html
+
 **This Year, It Will Be the ‘Trump Kennedy Center Honors’**\
 `Despite plans to close the building this summer for a two-year reconstruction project, the renamed ceremony will be held elsewhere, the center’s president said.`\
 https://nytimes.com/2026/02/27/arts/trump-kennedy-center-honors.html
