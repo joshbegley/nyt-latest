@@ -1,3 +1,7 @@
+**Analysis: Villa eye Europa League glory after drawing Lille in last 16**\
+`A reward for finishing second in the league phase table, Villa will have home advantage in the second leg on March 19.`\
+https://nytimes.com/athletic/7075141/2026/02/27/aston-villa-europa-league-draw-lille-last-16/
+
 **How India Became One of the World’s Biggest Economies**\
 `India has grown rapidly despite its slow industrialization, and its economy is now nearly as big as Japan’s.`\
 https://nytimes.com/2026/02/27/business/india-economy-gdp.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-
 **A speedier, stronger Marcelo Mayer is ready to shake injury-prone label, win a starting job**\
 `Mayer's training helped him post faster sprint times than Trevor Story and Jarren Duran. But his main goal is to play a full season.`\
 https://nytimes.com/athletic/7073535/2026/02/27/red-sox-marcelo-mayer-injury-prone-label-speed/
-
-**Guardians signing Rhys Hoskins was a surprise — to him and the team**\
-`As spring training arrived, Hoskins got antsy about landing with a team. The Guardians, he says, represent an opportunity.`\
-https://nytimes.com/athletic/7070449/2026/02/27/rhys-hoskins-cleveland-guardians-first-baseman/
 
