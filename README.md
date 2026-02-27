@@ -1,3 +1,7 @@
+**Victims’ Families Stunned by Failure of Air Safety Bill in House**\
+`Relatives of those who died in a midair collision over D.C. last year came to Washington to watch a vote they thought would go their way. It didn’t.`\
+https://nytimes.com/2026/02/27/us/politics/rotor-act-families.html
+
 **Book Club: Let’s Talk About ‘Wuthering Heights’**\
 `Emily Brontë’s classic Gothic romance is the basis for a new movie. It’s also more bonkers than you remember.`\
 https://nytimes.com/2026/02/27/books/review/podcast-wuthering-heights-book-club-emily-bronte.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076192/2026/02/27/wild-vs-mammoth-stream-how-to-wa
 **Royce Lewis' MRI results reveal 'really encouraging news' for Twins**\
 `Lewis won’t likely play in a spring training game again for Minnesota until Tuesday, but he expects to resume working out Saturday.`\
 https://nytimes.com/athletic/7076048/2026/02/27/royce-lewis-mri-results-twins/
-
-**How David Zaslav Pulled Off the Deal of a Lifetime**\
-`Not long ago, Mr. Zaslav was widely criticized for his management of Warner Bros. Discovery. He overcame the doubters, cementing a blockbuster sale to Paramount.`\
-https://nytimes.com/2026/02/27/business/media/david-zaslav-warner-bros-discovery-paramount.html
 
