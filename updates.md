@@ -1,3 +1,7 @@
+**Anthony Edwards owns crunch time for Wolves: 'You don't want me to pass the ball'**\
+`Edwards took things into his own hands on Thursday and dragged Minnesota to a win at the Clippers.`\
+https://nytimes.com/athletic/7069949/2026/02/27/anthony-edwards-timberwolves-crunch-time-clippers/
+
 **Are Germany’s Top Cultural Events Becoming Impossible to Run?**\
 `A dispute over free speech at the Berlin Film Festival around Israel’s actions in Gaza, and rumors of the festival director’s firing, raised broader worries about Germany’s cultural landscape.`\
 https://nytimes.com/2026/02/27/arts/berlin-film-festival-tricia-tuttle-israel-gaza.html
