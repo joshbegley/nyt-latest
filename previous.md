@@ -1,3 +1,11 @@
+**Real Madrid's Raul Asencio to miss Getafe match with neck injury**\
+`The 23-year-old was taken off on a stretcher and with a neck brace on during the mid-week win against Benfica. `\
+https://nytimes.com/athletic/7074997/2026/02/27/raul-asencio-real-madrid-neck-injury/
+
+**Paramount Is Set to Win Warner Bros. Now Comes the Hard Part.**\
+`The media company controlled by the Ellisons out-dueled Netflix for control of Warner Bros. Discovery. The next step is making the combined media empires work.`\
+https://nytimes.com/2026/02/27/business/dealbook/paramount-warner-bros-netflix.html
+
 **Giants stock up/stock down: Tony Vitello doesn't sugarcoat Hayden Birdsong's rough start**\
 `"I think he's capable of better," the first-year manager said after Birdsong allowed three earned runs and threw 32 pitches in an inning.`\
 https://nytimes.com/athletic/7074530/2026/02/27/sf-giants-tony-vitello-hayden-birdsong/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075019/2026/02/27/champions-league-last-16-analysi
 **Trump Administration Live Updates: Pentagon’s Laser Strike on U.S. Drone Raises Alarms**\
 ``\
 https://nytimes.com/live/2026/02/27/us/trump-bill-clinton-epstein
-
-**February blahs: Bulls complete winless month, extend losing streak to 11 games**\
-`Chicago remade its roster around the trade deadline earlier this month and hasn't won since. At least its draft position is improving.`\
-https://nytimes.com/athletic/7075025/2026/02/27/bulls-losing-streak-tank-nba-draft/
-
-**What to Know About the Search for Nancy Guthrie**\
-``\
-https://nytimes.com/live/2026/02/27/us/nancy-guthrie-updates
 
