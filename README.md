@@ -1,3 +1,7 @@
+**Green Party Defeats Labour in U.K. Special Election, in Blow to Starmer**\
+`The result marks the first time the Greens have won a British parliamentary by-election and signals the frustration of left-leaning voters with Prime Minister Keir Starmer.`\
+https://nytimes.com/2026/02/26/world/europe/gorton-denton-result-green-party-labour.html
+
 **Blue Jackets come out with a burst, but Bruins get win behind Korpisalo, Kuraly**\
 `The Blue Jackets were proud of their play despite not quite being able to solve former teammate Joonas Korpisalo.`\
 https://nytimes.com/athletic/7074541/2026/02/26/blue-jackets-werenski-korpisalo-kuraly-bruins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074279/2026/02/26/trump-panel-college-sports-futur
 **Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
 `The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
 https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
-
-**In Trump’s Case for War, a Series of False or Unproven Claims**\
-`Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
-https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
 
