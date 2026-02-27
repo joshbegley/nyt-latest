@@ -1,3 +1,7 @@
+**'We got to find a way to win the game': Blackhawks coach rues missed opportunity**\
+`Connor Bedard scored and the team later led 2-1, but missteps in the final 15 minutes resulted in a 4-2 loss to the Predators.`\
+https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-bedard/
+
 **The defensive transfers (in and out) you should be prioritising in FPL**\
 `Many managers are reaching a turning point when it comes to their investment in defence now that the dust has settled on Double Gameweek 26`\
 https://nytimes.com/athletic/7069974/2026/02/27/fantasy-premier-league-gameweek-28-fpl-tips-differentials/
