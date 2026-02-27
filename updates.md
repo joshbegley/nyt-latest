@@ -1,3 +1,11 @@
+**The 2024 draft class is at a crossroads. It's time to put up or shut up**\
+`For a lot of these players, teams are done (or should be done) with charity minutes and gifted starting roles.`\
+https://nytimes.com/athletic/7071475/2026/02/27/nba-draft-2024-zaccharie-risacher-ronald-holland-reed-sheppard/
+
+**What to Know About the Clashes Between Pakistan and Afghanistan**\
+`The renewed violence between the neighboring countries stems from Pakistan’s accusations that Afghanistan’s Taliban government has harbored a militant group.`\
+https://nytimes.com/2026/02/27/world/asia/afghanistan-pakistan-taliban-airstrikes.html
+
 **Browns big board: The offensive tackle prospects Cleveland should consider**\
 `We focus solely on introducing the tackles in this class and explore the possibility of the Browns drafting more than one. `\
 https://nytimes.com/athletic/7074088/2026/02/27/browns-2026-big-board-offensive-tackles/
