@@ -1,3 +1,7 @@
+**Word of the Day: interpolate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
+
 **Crystal Palace and Oliver Glasner have established an uneasy truce... for now**\
 `Selhurst Park enjoyed a rare sense of unity as progress was assured into the last 16 of the UEFA Conference League, but will it last?`\
 https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conference-mostar-guessand/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069974/2026/02/27/fantasy-premier-league-gameweek-
 **Lionel Messi taken to the turf as fans race onto field in Puerto Rico**\
 `The shirtless spectator who caused Messi to be tackled had escaped capture, despite having fallen down as he cruised around the field.`\
 https://nytimes.com/athletic/7074720/2026/02/27/lionel-messi-fan-field-tackle-inter-miami/
-
-**The sailing team hoping to benefit from co-owner Ryan Reynolds' storytelling**\
-`Self-confessed introvert Slingsby is getting used to the newfound fame that comes with being co-owner of a team with Ryan Reynolds.`\
-https://nytimes.com/athletic/7072188/2026/02/27/australia-sail-gp-ryan-reynolds-investment-impact/
 
