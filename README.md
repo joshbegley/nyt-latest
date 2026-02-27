@@ -1,3 +1,7 @@
+**Henrietta Lacks’s Family Settles Suit With Novartis Over Use of Her Cells**\
+`Ms. Lacks’s family accused Novartis of profiting from her cells, which were taken from her without her consent in 1951, when she was dying of cervical cancer.`\
+https://nytimes.com/2026/02/27/us/novartis-settlement-henrietta-lacks-stolen-cells.html
+
 **Rangers claim forward Tye Kartye off waivers from Kraken**\
 `Tye Kartye will join a glut of bottom-six forwards on the Rangers vying for playing time.`\
 https://nytimes.com/athletic/7076109/2026/02/27/rangers-tye-kartye-waivers-kraken/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076215/2026/02/27/knicks-vs-bucks-stream-how-to-wa
 **How to watch Grizzlies vs. Mavericks: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7076213/2026/02/27/grizzlies-vs-mavericks-stream-how-to-watch-feb-27/
-
-**How to watch Jets vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076206/2026/02/27/jets-vs-ducks-stream-how-to-watch-feb-27/
 
