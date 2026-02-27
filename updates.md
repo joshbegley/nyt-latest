@@ -1,3 +1,11 @@
+**Google Workers Seek ‘Red Lines’ on Military A.I., Echoing Anthropic**\
+`More than 100 Google A.I. employees sent a letter to Jeff Dean, a chief scientist, opposing Gemini’s use for U.S. surveillance and some autonomous weapons.`\
+https://nytimes.com/2026/02/26/technology/google-deepmind-letter-pentagon.html
+
+**Trump to convene panel focused on future of college sports: Sources**\
+`The roundtable, scheduled for March 6, includes an invite list with dozens of important figures and sports celebrities.`\
+https://nytimes.com/athletic/7074279/2026/02/26/trump-panel-college-sports-future-issues/
+
 **Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
 `The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
 https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
