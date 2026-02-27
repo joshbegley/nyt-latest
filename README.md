@@ -1,3 +1,7 @@
+**Anthony Edwards owns crunch time for Wolves: 'You don't want me to pass the ball'**\
+`Edwards took things into his own hands on Thursday and dragged Minnesota to a win at the Clippers.`\
+https://nytimes.com/athletic/7069949/2026/02/27/anthony-edwards-timberwolves-crunch-time-clippers/
+
 **Are Germany’s Top Cultural Events Becoming Impossible to Run?**\
 `A dispute over free speech at the Berlin Film Festival around Israel’s actions in Gaza, and rumors of the festival director’s firing, raised broader worries about Germany’s cultural landscape.`\
 https://nytimes.com/2026/02/27/arts/berlin-film-festival-tricia-tuttle-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075087/2026/02/27/chris-wood-nottingham-forest-inj
 **Real Madrid's Raul Asencio to miss Getafe match with neck injury**\
 `The 23-year-old was taken off on a stretcher and with a neck brace on during the mid-week win against Benfica. `\
 https://nytimes.com/athletic/7074997/2026/02/27/raul-asencio-real-madrid-neck-injury/
-
-**Paramount Is Set to Win Warner Bros. Now Comes the Hard Part.**\
-`The media company controlled by the Ellisons out-dueled Netflix for control of Warner Bros. Discovery. The next step is making the combined media empires work.`\
-https://nytimes.com/2026/02/27/business/dealbook/paramount-warner-bros-netflix.html
 
