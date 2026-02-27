@@ -1,3 +1,7 @@
+**The Cult of Marni Returns**\
+`Meryll Rogge makes her debut at the house, and brings it back to its roots.`\
+https://nytimes.com/2026/02/27/style/marni-fall-2026.html
+
 **Visiting the Brazilian 'varzea' teams who take their name and inspiration from Arsenal**\
 `A trip to Brazil alongside club legends Gilberto and Ian Wright gave an insight to the importance of grassroots football in the country.`\
 https://nytimes.com/athletic/7072778/2026/02/27/arsenal-brazil-gilberto-silva-varzea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conferenc
 **Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
 `The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
 https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
-
-**Is Nottingham Forest's Europa League run a blessing or a curse?**\
-`Vitor Pereira has quickly discovered what Postecoglou and Dyche found out - that Forest are strongest when last year's core all feature`\
-https://nytimes.com/athletic/7074343/2026/02/27/forest-europa-league-pereira-squad-fenerbahce/
 
