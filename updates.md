@@ -1,3 +1,7 @@
+**NHL clears Senators' Arthur Kaliyev to return after gambling allegations**\
+`Kaliyev, 24, was accused of scamming by former partner Lauren Mochen last November through a series of TikTok videos.`\
+https://nytimes.com/athletic/7074416/2026/02/26/arthur-kaliyev-called-up-nhl-gambling-allegations-cleared/
+
 **‘The Pitt’ Season 2, Episode 8 Recap: Unplugged**\
 `Without internet, the Pitt was even more chaotic than usual. This on a national holiday on which people blow up things for fun.`\
 https://nytimes.com/2026/02/26/arts/television/the-pitt-recap-season-2-episode-8.html

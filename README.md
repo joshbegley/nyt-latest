@@ -1,3 +1,7 @@
+**Sam Coffey says USWNT has ‘responsibility’ to speak out in new era**\
+`Coffey said while it was easier as a younger player to look to older players, it's time for current players to advocate for change.`\
+https://nytimes.com/athletic/7074362/2026/02/26/sam-coffey-uswnt-social-issues-shebelieves-cup/
+
 **NHL clears Senators' Arthur Kaliyev to return after gambling allegations**\
 `Kaliyev, 24, was accused of scamming by former partner Lauren Mochen last November through a series of TikTok videos.`\
 https://nytimes.com/athletic/7074416/2026/02/26/arthur-kaliyev-called-up-nhl-gambling-allegations-cleared/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074178/2026/02/26/nflpa-report-cards-2026-grades/
 **Men Charged With Hate Crimes After Trying to Light Woman’s Boots on Fire**\
 `One of the men recorded a live-streamed video as the other made racist and sexual comments during the incident in Manhattan, the police said.`\
 https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.html
-
-**Vance Continues to Criticize Democrats’ Attitude During State of the Union**\
-`Speaking in Wisconsin to support Republicans ahead of the midterm elections, Vice President JD Vance reminded his audience that Democrats had not stood up at the president’s behest on Tuesday.`\
-https://nytimes.com/2026/02/26/us/politics/vance-wisconsin-democrats-midterms.html
 
