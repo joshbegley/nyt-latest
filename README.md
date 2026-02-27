@@ -1,3 +1,7 @@
+**A Lesson in Transforming the Bitter Into the Sweet**\
+`In her latest column, Yewande Komolafe explores the transformative powers of eru stew from Cameroon.`\
+https://nytimes.com/2026/02/27/dining/cameroon-eru-soup-stew-recipe.html
+
 **Trump Says He’s ‘Not Happy’ With Progress of Iran Talks**\
 `The president expressed his negative view of the status of nuclear talks  as he weighed military strikes against Iran.`\
 https://nytimes.com/2026/02/27/us/politics/trump-iran-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-sche
 **AI: Health & Science**\
 ``\
 https://nytimes.com/spotlight/ai-health-science
-
-**Ask a Journalist: Making a Compelling Argument**\
-`Nicholas Kristof, an Opinion columnist, joins us in March to talk to teenagers all about opinion writing. Post your comments and questions by March 15.`\
-https://nytimes.com/2026/02/27/learning/lesson-plans/ask-a-journalist-making-a-compelling-argument.html
 
