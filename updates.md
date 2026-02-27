@@ -1,3 +1,7 @@
+**Palace to play AEK Larnaca in Conference League round of 16**\
+`Palace are already familiar with Larnaca, having been defeated 1-0 at home by the Cypriot side in the league phase.`\
+https://nytimes.com/athletic/7075199/2026/02/27/crystal-palace-larnaca-conference-league-draw/
+
 **E.U. Pushes Ahead With South American Trade Deal Despite Legal Challenge**\
 `The provisional application of the agreement with Brazil, Argentina, Paraguay and Uruguay is intended to diversify Europe’s trading relationships.`\
 https://nytimes.com/2026/02/27/business/eu-mercosur-trade.html
