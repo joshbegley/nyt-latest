@@ -1,40 +1,40 @@
-**The 2024 draft class is at a crossroads. It's time to put up or shut up**\
-`For a lot of these players, teams are done (or should be done) with charity minutes and gifted starting roles.`\
-https://nytimes.com/athletic/7071475/2026/02/27/nba-draft-2024-zaccharie-risacher-ronald-holland-reed-sheppard/
+**'Was it a good race?' 10 years and 5.5 million votes later, the Top 10**\
+`Every NASCAR Cup Series race for the past 10 years, The Athletic's Jeff Gluck has asked fans a simple question: "Was it a good race?"`\
+https://nytimes.com/athletic/7071174/2026/02/27/jeff-gluck-twitter-poll-nascar-good-race/
 
-**What to Know About the Clashes Between Pakistan and Afghanistan**\
-`The renewed violence between the neighboring countries stems from Pakistan’s accusations that Afghanistan’s Taliban government has harbored a militant group.`\
-https://nytimes.com/2026/02/27/world/asia/afghanistan-pakistan-taliban-airstrikes.html
+**What Brian Schottenheimer thinks could push Cowboys' offense to 'another level'**\
+`Schottenheimer discussed Pickens, Javonte Williams returning, Christian Parker's 3-4 scheme and the Eagles' interest in Klayton Adams.`\
+https://nytimes.com/athletic/7073947/2026/02/27/cowboys-combine-george-pickens-javonte-williams/
 
-**Browns big board: The offensive tackle prospects Cleveland should consider**\
-`We focus solely on introducing the tackles in this class and explore the possibility of the Browns drafting more than one. `\
-https://nytimes.com/athletic/7074088/2026/02/27/browns-2026-big-board-offensive-tackles/
+**Silovs silences Jack Hughes, Devils as Penguins find their legs**\
+`The goaltender held down the fort until the Penguins shook off the post-Olympic rust.`\
+https://nytimes.com/athletic/7074604/2026/02/27/penguins-arturs-silovs-olympics-malkin-devils/
 
-**Anthony Richardson seeks trade from Indianapolis: How did the Colts and their No. 4 pick get here?**\
-`Richardson wasn't the star the Colts hoped for at the outset, but the franchise sacrificed his long-term development for short-term benefit.`\
-https://nytimes.com/athletic/7074568/2026/02/27/anthony-richardson-trade-indianapolis-colts-2026/
+**Life after Game 7: Could the Blue Jays actually be better this year?**\
+`Vlad Jr. and company, now joined by key reinforcements, are determined to get back to the World Series, and then ... make history. `\
+https://nytimes.com/athletic/7073024/2026/02/27/blue-jays-2026-season-game-7-world-series/
 
-**The New York Times International Edition in Print for Saturday, Feb. 28, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/02/27/todays-new-york-times-international-edition
+**Larkin powers gutsy OT win for Red Wings to begin home stretch: 5 thoughts**\
+`The Red Wings looked a little rusty to start their first game back from the Olympics, but gold-medal-winner Larkin soon stepped in.`\
+https://nytimes.com/athletic/7074625/2026/02/27/red-wings-dylan-larkin-olympics-gibson-edvinsson-senators/
 
-**Ravens big board: 5 positions Baltimore could consider at pick No. 14**\
-`We explore Baltimore’s options with its first-round selection and break them down by position.`\
-https://nytimes.com/athletic/7073212/2026/02/27/baltimore-ravens-2026-big-board/
+**Joey Cantillo, Emmet Sheehan and other potential MLB breakout pitchers for 2026**\
+`These pitchers meet the criteria to be potential breakout starters this season, though some breakouts seem more likely than others.`\
+https://nytimes.com/athletic/7069000/2026/02/27/mlb-pitching-breakout-candidates-2026/
 
-**Wirtz set to miss West Ham game with back injury, timeframe for return uncertain**\
-`The 22-year-old picked up the issue during the warm-up before the 1-0 victory over Nottingham Forest last weekend.`\
-https://nytimes.com/athletic/7075002/2026/02/27/liverpool-florian-wirtz-injury-update/
+**Remembering the Converse Weapons commercial: When NBA legends became rappers**\
+`It's a cherished historical chestnut now, but when Converse had NBA stars rap to promote their new "Weapons," it changed the game.`\
+https://nytimes.com/athletic/7070805/2026/02/27/nba-converse-weapons-commercial-1986/
 
-**Hungary Plays the Spoiler in Europe, as Orban Seeks Votes at Home**\
-`Facing a serious election challenge, Prime Minister Viktor Orban is holding up a big E.U. loan for Ukraine. Analysts say the timing is no coincidence.`\
-https://nytimes.com/2026/02/27/world/europe/hungary-plays-the-spoiler-in-europe-as-orban-seeks-votes-at-home.html
+**Lions' Terrion Arnold linked to alleged armed robbery, kidnapping in Florida**\
+`Boakai Hilton allegedly planned the robbery and kidnapping of three people while with Arnold, in retaliation for thefts at Arnold's rental.`\
+https://nytimes.com/athletic/7074828/2026/02/27/lions-terrion-arnold-robbery-kidnapping-florida/
 
-**What I'm hearing at the combine: Patriots to prioritize edge rusher, O-line in free agency**\
-`While the Patriots will soon have to make a call on Stefon Diggs, the team sees edge rusher and the O-line as areas of need in free agency.`\
-https://nytimes.com/athletic/7073290/2026/02/27/patriots-stefon-diggs-nfl-combine-free-agency-draft/
+**The Canadiens have progressed in many ways, but playing with a lead is not one of them**\
+`If the Canadiens want to mature into a winning team, they will need to show more maturity in closing out games they are leading. `\
+https://nytimes.com/athletic/7074822/2026/02/27/canadiens-lose-islanders-playing-with-a-lead/
 
-**What I heard about the Falcons at the NFL Scouting Combine**\
-`Reading the tea leaves, it seems the Falcons might be playing 2026 without linebacker Kaden Elliss and wide receiver Darnell Mooney.`\
-https://nytimes.com/athletic/7073923/2026/02/27/atlanta-falcons-nfl-combine-ian-cunningham-kaden-elliss/
+**Mets' director of hitting on a new hierarchy and an evolving role: Q&A with Jeff Albert**\
+`Albert explains his teaching style, his view of the lineup, his thoughts on situtational hitting and more: "I can't wait."`\
+https://nytimes.com/athletic/7068254/2026/02/27/mets-director-hitting-jeff-albert/
 
