@@ -1,3 +1,11 @@
+**Justice Department Sues 5 States, Most Republican-Led, for Voter Data**\
+`The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and New Jersey, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
+https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-voter-data.html
+
+**After F.B.I. Raid, Los Angeles School Board Will Discuss Superintendent**\
+`Board members will meet Thursday after agents raided the home and office of Alberto Carvalho, the Los Angeles Unified School District superintendent. The F.B.I. also searched the Florida home of a consultant with ties to the schools chief.`\
+https://nytimes.com/2026/02/26/us/los-angeles-school-board-meeting-superintendent-fbi-raid.html
+
 **Supreme Court Lawyer Who Moonlit in High-Stakes Poker Is Convicted of Tax Fraud**\
 `The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
 https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
