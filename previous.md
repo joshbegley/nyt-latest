@@ -1,3 +1,23 @@
+**Ask a Journalist: Making a Compelling Argument**\
+`Nicholas Kristof, an Opinion columnist, joins us in March to talk to teenagers all about opinion writing. Post your comments and questions by March 15.`\
+https://nytimes.com/2026/02/27/learning/lesson-plans/ask-a-journalist-making-a-compelling-argument.html
+
+**Joey Aguilar shifts focus to NFL, done pursuing NCAA eligibility case**\
+`"I feel good where I'm at, and I'm excited," Aguilar said Friday at the NFL Scouting Combine.`\
+https://nytimes.com/athletic/7075919/2026/02/27/joey-aguilar-tennessee-ncaa-eligibility-nfl/
+
+**Review: ‘Gala Flamenca’ Brings New Blood and Traditional Thrills**\
+`The centerpiece of the annual Flamenco Festival New York saw the introduction of another wonder in Juan Tomás de la Molía, alongside some veterans of the art.`\
+https://nytimes.com/2026/02/27/arts/dance/gala-flamenca-flamenco-festival-review.html
+
+**Overlooked No More: Bobby Garnett, ‘Godfather’ of Vintage Dealers**\
+`His store, Bobby From Boston, transformed the way vintage men’s wear is sold, serving as a model for a generation of retailers.`\
+https://nytimes.com/2026/02/27/obituaries/bobby-garnett-overlooked.html
+
+**Justice Thomas Bemoans Incivility as Security Prompts Cancellation of In-Person Speech**\
+`The justice participated remotely in a closed-door session of a legal conference, a reminder of the heightened threats facing jurists in recent years.`\
+https://nytimes.com/2026/02/27/us/politics/supreme-court-thomas-security.html
+
 **The Epstein Files and Our Broken Public Trust**\
 `Readers discuss an Opinion guest essay by Daniel Richman. Also: A response from Deputy Attorney General Todd Blanche; President Trump and seniors’ health.`\
 https://nytimes.com/2026/02/27/opinion/jeffrey-epstein-files.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/7074780/2026/02/27/sf-giants-bullpen-roles-2026/
 **NFL salary cap set to climb to record $301.2 million for 2026**\
 `The 2026 salary cap will be nearly double the figure from 10 years ago and $118.7 million more than just five years ago.`\
 https://nytimes.com/athletic/7075864/2026/02/27/nfl-salary-cap-2026-record/
-
-**Ranking the 16 teams remaining in this season's Champions League after the draw**\
-`After the Champions League draw on Friday, how do the teams left in the competition rank in terms of likely winners?`\
-https://nytimes.com/athletic/7075329/2026/02/27/champions-league-rankings-after-draw/
-
-**The Lakers are talented but erratic. Their loss in Phoenix was further proof**\
-`For 44 minutes Thursday, the Lakers outscored the Suns by 26 points. And they still lost.`\
-https://nytimes.com/athletic/7075770/2026/02/27/suns-lakers-inconsistency-nba-standings/
-
-**The Maple Leafs can't afford to learn the wrong lessons from a lost season**\
-`MLSE president Keith Pelley offered a window this week into what he believes has gone wrong for the Leafs. He missed the mark.`\
-https://nytimes.com/athletic/7075565/2026/02/27/maple-leafs-treliving-pelley-nhl/
-
-**NASA Aims for 2 Moon Landings in 2028 With New Artemis Schedule**\
-`Jared Isaacman, the agency’s administrator, said the Artemis III mission would move to 2027 and would no longer attempt a lunar landing.`\
-https://nytimes.com/2026/02/27/science/nasa-moon-landings-artemis-schedule.html
-
-**Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
-`The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
-https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html
 
