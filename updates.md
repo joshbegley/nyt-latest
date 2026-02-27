@@ -1,3 +1,7 @@
+**U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
+`Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
+https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
+
 **Read Judge Schiltz’s Order**\
 `In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
 https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
