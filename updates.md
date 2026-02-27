@@ -1,3 +1,7 @@
+**Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
+`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor league umpire before reaching the majors in 1971.`\
+https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
+
 **Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\
 `The office of a prosecutor based in Miami has issued new subpoenas in a wide-ranging inquiry aimed at President Trump’s perceived foes.`\
 https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html

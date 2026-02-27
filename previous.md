@@ -1,3 +1,7 @@
+**Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
+`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor league umpire before reaching the majors in 1971.`\
+https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
+
 **Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\
 `The office of a prosecutor based in Miami has issued new subpoenas in a wide-ranging inquiry aimed at President Trump’s perceived foes.`\
 https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-vote
 **After F.B.I. Raid, Los Angeles School Board Will Discuss Superintendent**\
 `Board members will meet Thursday after agents raided the home and office of Alberto Carvalho, the Los Angeles Unified School District superintendent. The F.B.I. also searched the Florida home of a consultant with ties to the schools chief.`\
 https://nytimes.com/2026/02/26/us/los-angeles-school-board-meeting-superintendent-fbi-raid.html
-
-**NHL trade rumblings: Latest on Stamkos, O'Reilly, Kadri, Giroux, the Panthers, Canadiens and more**\
-`Also: Why the Sharks could flip Sherwood, the Stars await Seguin news and why the Blue Jackets aren't selling ahead of the March 6 deadline.`\
-https://nytimes.com/athletic/7074080/2026/02/26/nhl-trade-deadline-stamkos-oreilly-kadri/
 
