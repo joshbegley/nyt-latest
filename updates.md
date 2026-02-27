@@ -1,3 +1,7 @@
+**Forest draw Midtjylland in Europa League last-16**\
+`Vitor Pereira's side beat Fenerbahce 4-2 on aggregate in the play-offs to secure qualification to the knockouts.`\
+https://nytimes.com/athletic/7075179/2026/02/27/nottingham-forest-europa-league-midtjylland/
+
 **Analysis: Villa eye Europa League glory after drawing Lille in last 16**\
 `A reward for finishing second in the league phase table, Villa will have home advantage in the second leg on March 19.`\
 https://nytimes.com/athletic/7075141/2026/02/27/aston-villa-europa-league-draw-lille-last-16/
