@@ -1,3 +1,31 @@
+**Giants stock up/stock down: Tony Vitello doesn't sugarcoat Hayden Birdsong's rough start**\
+`"I think he's capable of better," the first-year manager said after Birdsong allowed three earned runs and threw 32 pitches in an inning.`\
+https://nytimes.com/athletic/7074530/2026/02/27/sf-giants-tony-vitello-hayden-birdsong/
+
+**Six months until F1's newest race: How work stands at the Spanish GP in Madrid**\
+`The new home of the Spanish GP will open in Madrid in just six months. Here's how the work on F1's newest race currently stands`\
+https://nytimes.com/athletic/7075113/2026/02/27/madrid-f1-race-track-work/
+
+**What I heard about the Chargers at the NFL combine: Will Joe Hortiz be adaptable?**\
+`Hortiz has generally avoided top-of-the-market deals but with a need to upgrade the offensive line, will he alter that approach? `\
+https://nytimes.com/athletic/7074197/2026/02/27/chargers-nfl-combine-intel-2026/
+
+**As Caleb Williams and Ben Johnson prep for 2026, efficiency is the name of the game**\
+`Williams turned heads with his magic act last season in Chicago. Now comes the quest to continue mastering the routine.`\
+https://nytimes.com/athletic/7073474/2026/02/27/caleb-williams-ben-johnson-bears-2026/
+
+**Nothing is certain about the Dodgers' Opening Day rotation except uncertainty**\
+`With several starters headed to the WBC and others likely headed for the IL, the Dodgers are still ironing out the Opening Day rotation.`\
+https://nytimes.com/athletic/7069183/2026/02/27/dodgers-opening-day-rotation-spring-training/
+
+**Premier League relegation battle: The pivotal fixtures this weekend**\
+`The Athletic runs through four fixtures with serious relegation implications this weekend`\
+https://nytimes.com/athletic/7075092/2026/02/27/premier-league-relegation-battle-the-pivotal-fixtures/
+
+**Champions League round of 16 draw analysed: Predictions, best games and star players**\
+`The Athletic's experts analyse the Champions League draw — and look at possible paths to the final`\
+https://nytimes.com/athletic/7075019/2026/02/27/champions-league-last-16-analysis/
+
 **Trump Administration Live Updates: Pentagon’s Laser Strike on U.S. Drone Raises Alarms**\
 ``\
 https://nytimes.com/live/2026/02/27/us/trump-bill-clinton-epstein
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7075025/2026/02/27/bulls-losing-streak-tank-nba-dra
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/27/us/nancy-guthrie-updates
-
-**Forest draw Midtjylland in Europa League last-16**\
-`Vitor Pereira's side beat Fenerbahce 4-2 on aggregate in the play-offs to secure qualification to the knockouts.`\
-https://nytimes.com/athletic/7075179/2026/02/27/nottingham-forest-europa-league-midtjylland/
-
-**Analysis: Villa eye Europa League glory after drawing Lille in last 16**\
-`A reward for finishing second in the league phase table, Villa will have home advantage in the second leg on March 19.`\
-https://nytimes.com/athletic/7075141/2026/02/27/aston-villa-europa-league-draw-lille-last-16/
-
-**How India Became One of the World’s Biggest Economies**\
-`India has grown rapidly despite its slow industrialization, and its economy is now nearly as big as Japan’s.`\
-https://nytimes.com/2026/02/27/business/india-economy-gdp.html
-
-**Catching up with Nico Hoerner, the glue guy who holds the Cubs together**\
-`There’s no better representative of what this club aspires to be than Hoerner: playing with speed, instincts, style and intelligence.`\
-https://nytimes.com/athletic/7074130/2026/02/27/chicago-cubs-nico-hoerner-q-a-spring-training/
-
-**Reassessing the Twins' starting rotation after Pablo López, David Festa injuries**\
-`Minnesota's starting pitching depth disappeared in two weeks, but do the Twins need to sign a veteran free agent for rotation help?`\
-https://nytimes.com/athletic/7072495/2026/02/27/minnesota-twins-rotation-hierarchy-reset/
-
-**Fantasy Premier League live Q&A: Gameweek 28 advice from Ben Dinnery**\
-`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target and avoid for Gameweek 28 and beyond`\
-https://nytimes.com/athletic/7074994/2026/02/27/fantasy-premier-league-live-qa-gameweek-28-advice-from-ben-dinnery/
-
-**The Sixers were wobbling but chose to fight. Now they've won 3 straight**\
-`After some bad losses around the All-Star break, Tyrese Maxey challenged his teammates. They've responded, including Thursday vs. Miami.`\
-https://nytimes.com/athletic/7074875/2026/02/27/sixers-winning-streak-maxey-embiid/
 
