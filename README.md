@@ -1,40 +1,40 @@
-**The Plunging Birthrate**\
-`We asked women about their views on having kids.`\
-https://nytimes.com/2026/02/27/briefing/the-plunging-birthrate.html
+**Men's college basketball weekend guide: Michigan-Illinois, Virginia-Duke, bubble games**\
+`And so begins college basketball's long, dramatic denouement. We're about to turn the calendar to March. Here's what to watch this weekend.`\
+https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-kansas-arizona-how-to-watch/
 
-**The Pulse: MLB's most interesting team**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7073757/2026/02/27/blue-jays-game-7-2026-the-pulse/
+**A speedier, stronger Marcelo Mayer is ready to shake injury-prone label, win a starting job**\
+`Mayer's training helped him post faster sprint times than Trevor Story and Jarren Duran. But his main goal is to play a full season.`\
+https://nytimes.com/athletic/7073535/2026/02/27/red-sox-marcelo-mayer-injury-prone-label-speed/
 
-**Jose Lima was one of baseball's true characters. He also had a unique perspective on failure**\
-`Jose Lima loved baseball, but he didn’t take himself too seriously. He also didn't take failure too seriously.`\
-https://nytimes.com/athletic/7074557/2026/02/27/jose-lima-failure-philosophy-perspective/
+**Guardians signing Rhys Hoskins was a surprise — to him and the team**\
+`As spring training arrived, Hoskins got antsy about landing with a team. The Guardians, he says, represent an opportunity.`\
+https://nytimes.com/athletic/7070449/2026/02/27/rhys-hoskins-cleveland-guardians-first-baseman/
 
-**Dynasty league baseball rankings: Top 400 players, from Shohei Ohtani to Luisangel Acuña**\
-`Chris Welsh shares his top-400 dynasty list for fantasy baseball and explains how he values players at opposite ends of the age spectrum.`\
-https://nytimes.com/athletic/7073706/2026/02/27/dynasty-rankings-fantasy-baseball-2026/
+**Rangers insider: Schneider faces uncertain future, plus the latest on Trocheck**\
+`The Rangers have eight days to maximize their trade deadline profits, which may or may not include Schneider.`\
+https://nytimes.com/athletic/7074486/2026/02/27/rangers-braden-schneider-vincent-trocheck-nhl-trade-deadline/
 
-**How defender Emily Sonnett became the USWNT most consistent player**\
-`The 32-year-old defender has found staying power in her consistency and quiet leadership.`\
-https://nytimes.com/athletic/7067359/2026/02/27/emily-sonnett-uswnt-quiet-leadership/
+**The Suns are short-handed and slumping, but Lakers win showed it's too early to give up**\
+`The Suns have had more impressive wins, but given the circumstances have had none bigger.`\
+https://nytimes.com/athletic/7074811/2026/02/27/suns-beat-lakers-royce-oneale/
 
-**Women's basketball bracket watch: Assessing weird seasons of Tennessee, Notre Dame and more**\
-`The Lady Vols and Irish are likely safe, but they've had unusual seasons. `\
-https://nytimes.com/athletic/7074667/2026/02/27/womens-basketball-bracket-tennessee-notre-dame/
+**Zooming in on 5 interesting hitters in Tigers camp**\
+`What do Trei Cruz, Eduardo Valencia, Jace Jung, Hao-Yu Lee and Max Anderson have to prove this spring?`\
+https://nytimes.com/athletic/7074247/2026/02/27/analyzing-five-detroit-tigers-hitters/
 
-**'Was it a good race?' 10 years and 5.5 million votes later, the Top 10**\
-`Every NASCAR Cup Series race for the past 10 years, The Athletic's Jeff Gluck has asked fans a simple question: "Was it a good race?"`\
-https://nytimes.com/athletic/7071174/2026/02/27/jeff-gluck-twitter-poll-nascar-good-race/
+**Connor McDavid refocusing with Oilers after Olympic heartbreak**\
+`There is no time for McDavid to dwell on Canada's missed gold medal with Edmonton in the thick of the race for the playoffs.`\
+https://nytimes.com/athletic/7075001/2026/02/27/connor-mcdavid-edmonton-oilers-playoff-race/
 
-**What Brian Schottenheimer thinks could push Cowboys' offense to 'another level'**\
-`Schottenheimer discussed Pickens, Javonte Williams returning, Christian Parker's 3-4 scheme and the Eagles' interest in Klayton Adams.`\
-https://nytimes.com/athletic/7073947/2026/02/27/cowboys-combine-george-pickens-javonte-williams/
+**Keep or trade? Peeke’s market value makes it a tough call**\
+`Last month, Peeke declined to disclose the nature of contract talks, but his trade value may not reach a must-move level.`\
+https://nytimes.com/athletic/7074674/2026/02/27/bruins-andrew-peeke-trade-deadline-value/
 
-**Silovs silences Jack Hughes, Devils as Penguins find their legs**\
-`The goaltender held down the fort until the Penguins shook off the post-Olympic rust.`\
-https://nytimes.com/athletic/7074604/2026/02/27/penguins-arturs-silovs-olympics-malkin-devils/
+**How outside zone addresses pressing question for Eagles offense**\
+`The Eagles' offensive staff overhaul, headlined by OC Sean Mannion's hire, signaled their goal to integrate more zone-blocking in 2026.`\
+https://nytimes.com/athletic/7072520/2026/02/27/eagles-offense-outside-zone-sean-mannion/
 
-**Life after Game 7: Could the Blue Jays actually be better this year?**\
-`Vlad Jr. and company, now joined by key reinforcements, are determined to get back to the World Series, and then ... make history. `\
-https://nytimes.com/athletic/7073024/2026/02/27/blue-jays-2026-season-game-7-world-series/
+**Weston McKennie: Goalscorer**\
+`The USMNT international is benefiting from taking on regular shots, a spike in his confidence and from the Spalletti Effect at Juventus`\
+https://nytimes.com/athletic/7074143/2026/02/27/weston-mckennie-usmnt-juventus-goalscorer/
 
