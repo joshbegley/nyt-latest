@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7076043/2026/02/27/george-pickens-cowboys-franchise
 `The state will hold party primaries as well as some general elections for nonpartisan local offices. Early voting continues through Monday.`\
 https://nytimes.com/2026/02/27/us/elections/how-to-vote-arkansas-primary.html
 
-**Usyk to fight former kickboxing champion Verhoeven for WBC title**\
+**Usyk to fight former kickboxing champion Verhoeven at Pyramids of Giza**\
 `Usyk’s last fight was a comprehensive fifth round knockout of Daniel Dubois at Wembley Stadium in July.`\
 https://nytimes.com/athletic/7076025/2026/02/27/oleksandr-usyk-rico-verhoeven-boxing-fight-wbc/
 

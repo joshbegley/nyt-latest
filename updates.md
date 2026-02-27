@@ -1,3 +1,23 @@
+**Cowboys place franchise tag on receiver George Pickens**\
+`Earlier this week, Cowboys coach Brian Schottenheimer specifically mentioned his plans for Pickens in the upcoming season.`\
+https://nytimes.com/athletic/7076043/2026/02/27/george-pickens-cowboys-franchise-tag/
+
+**How to Vote in the Arkansas Primary**\
+`The state will hold party primaries as well as some general elections for nonpartisan local offices. Early voting continues through Monday.`\
+https://nytimes.com/2026/02/27/us/elections/how-to-vote-arkansas-primary.html
+
+**Usyk to fight former kickboxing champion Verhoeven for WBC title**\
+`Usyk’s last fight was a comprehensive fifth round knockout of Daniel Dubois at Wembley Stadium in July.`\
+https://nytimes.com/athletic/7076025/2026/02/27/oleksandr-usyk-rico-verhoeven-boxing-fight-wbc/
+
+**How the Editor in Chief of Marie Claire Gets Styled for a Trip to Italy**\
+`Nikki Ogunnaike took cues from a model for her hair, but the rest of her style is all her.`\
+https://nytimes.com/interactive/2026/02/27/nyregion/routine-nikki-ogunnaike-marie-claire.html
+
+**Here are 10 ways The Athletic proposes to fix college football**\
+`And how would you propose to fix college football? Let us know. `\
+https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
+
 **Highly rated college admissions counselors based on parent reviews as of Jan 2026**\
 `College admissions is no longer a straightforward process; it has become a competitive process that requires thoughtfulness and customization.`\
 https://nytimes.com/paidpost/empowerly/highly-rated-college-admissions-counselors-based-on-parent-reviews-as-of-jan-2026.html
