@@ -1,3 +1,7 @@
+**An Update: Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
+`On Friday, the state approved a settlement that included a $3,000 fine but no acknowledgment of guilt for a tree poisoning that riled people in scenic Rockport, Maine.`\
+https://nytimes.com/2026/02/27/us/politics/maine-tree-poisoning.html
+
 **Packers hiring Cam Achord as new special teams coordinator**\
 `Achord previously coached special teams with the Giants and Patriots.`\
 https://nytimes.com/athletic/7076344/2026/02/27/packers-hiring-cam-achord-as-new-special-teams-coordinator/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/war-court-torture.html
 **Read the Indictment**\
 `The Justice Department announced that 30 additional people were charged with disrupting a church service during a protest in Minnesota last month.`\
 https://nytimes.com/interactive/2026/02/27/us/doj-church-indictment.html
-
-**Inter Miami to visit White House next week to mark MLS Cup win**\
-`The team will visit on Thursday, March 5, according to a White House official.`\
-https://nytimes.com/athletic/7076260/2026/02/27/inter-miami-white-house-visit/
 
