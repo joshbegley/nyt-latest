@@ -1,3 +1,11 @@
+**Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
+`The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
+https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html
+
+**Prime Tire: The first time Alonso-Honda went wrong**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7076236/2026/02/27/fernando-alonso-honda-aston-martin-f1-prime-tire/
+
 **Victims’ Families Stunned by Failure of Air Safety Bill in House**\
 `Relatives of those who died in a midair collision over D.C. last year came to Washington to watch a vote they thought would go their way. It didn’t.`\
 https://nytimes.com/2026/02/27/us/politics/rotor-act-families.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7076203/2026/02/27/nuggets-vs-thunder-stream-how-to
 **How to watch Nets vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7076199/2026/02/27/nets-vs-celtics-stream-how-to-watch-feb-27/
-
-**How to watch Wild vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076192/2026/02/27/wild-vs-mammoth-stream-how-to-watch-feb-27/
-
-**Royce Lewis' MRI results reveal 'really encouraging news' for Twins**\
-`Lewis won’t likely play in a spring training game again for Minnesota until Tuesday, but he expects to resume working out Saturday.`\
-https://nytimes.com/athletic/7076048/2026/02/27/royce-lewis-mri-results-twins/
 

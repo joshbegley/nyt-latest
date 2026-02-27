@@ -1,3 +1,11 @@
+**Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
+`The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
+https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html
+
+**Prime Tire: The first time Alonso-Honda went wrong**\
+`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
+https://nytimes.com/athletic/7076236/2026/02/27/fernando-alonso-honda-aston-martin-f1-prime-tire/
+
 **Victims’ Families Stunned by Failure of Air Safety Bill in House**\
 `Relatives of those who died in a midair collision over D.C. last year came to Washington to watch a vote they thought would go their way. It didn’t.`\
 https://nytimes.com/2026/02/27/us/politics/rotor-act-families.html
