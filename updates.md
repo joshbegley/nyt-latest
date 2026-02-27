@@ -1,3 +1,11 @@
+**Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
+`The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
+https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
+
+**Is Nottingham Forest's Europa League run a blessing or a curse?**\
+`Vitor Pereira has quickly discovered what Postecoglou and Dyche found out - that Forest are strongest when last year's core all feature`\
+https://nytimes.com/athletic/7074343/2026/02/27/forest-europa-league-pereira-squad-fenerbahce/
+
 **The New York Times in Print for Friday, Feb. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/27/todays-new-york-times
