@@ -1,3 +1,7 @@
+**Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
+`The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
+https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
+
 **In Trump’s Case for War, a Series of False or Unproven Claims**\
 `Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
 https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
