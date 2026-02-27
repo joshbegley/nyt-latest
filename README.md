@@ -23,7 +23,7 @@ https://nytimes.com/paidpost/empowerly/highly-rated-college-admissions-counselor
 https://nytimes.com/2026/02/27/us/politics/uss-ford-iran.html
 
 **Here are 10 ways The Athletic proposes to fix college football**\
-`And how would you propose to fix college football? Let us know. `\
+`And how would you to fix college football? Let us know. `\
 https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
 
 **AI: Health & Science**\
