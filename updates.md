@@ -1,3 +1,7 @@
+**Wirtz set to miss West Ham game with back injury, timeframe for return uncertain**\
+`The 22-year-old picked up the issue during the warm-up before the 1-0 victory over Nottingham Forest last weekend.`\
+https://nytimes.com/athletic/7075002/2026/02/27/liverpool-florian-wirtz-injury-update/
+
 **Hungary Plays the Spoiler in Europe, as Orban Seeks Votes at Home**\
 `Facing a serious election challenge, Prime Minister Viktor Orban is holding up a big E.U. loan for Ukraine. Analysts say the timing is no coincidence.`\
 https://nytimes.com/2026/02/27/world/europe/hungary-plays-the-spoiler-in-europe-as-orban-seeks-votes-at-home.html
