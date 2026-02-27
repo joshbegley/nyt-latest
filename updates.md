@@ -1,3 +1,11 @@
+**Review: A Harpist Merges Old and New, With Help From Friends**\
+`The multifaceted musician Parker Ramsay assembled an evening of Baroque and contemporary music, including a premiere by Georg Friedrich Haas.`\
+https://nytimes.com/2026/02/27/arts/music/parker-ramsay-harp-review.html
+
+**Prosecutors Plan to Drop 2 of the Charges Against Alexander Brothers**\
+`A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking. The three men would still face 10 other charges.`\
+https://nytimes.com/2026/02/27/nyregion/alexander-brothers-trial-sex-charges-dropped.html
+
 **Why momentum is building toward a Ristolainen trade, and what it means for Flyers**\
 `After an impressive showing at the Olympics, will Ristolainen be on the move to a contending team?`\
 https://nytimes.com/athletic/7075654/2026/02/27/flyers-ristolainen-trade-defense/

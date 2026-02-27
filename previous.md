@@ -1,3 +1,7 @@
+**Review: A Harpist Merges Old and New, With Help From Friends**\
+`The multifaceted musician Parker Ramsay assembled an evening of Baroque and contemporary music, including a premiere by Georg Friedrich Haas.`\
+https://nytimes.com/2026/02/27/arts/music/parker-ramsay-harp-review.html
+
 **Why momentum is building toward a Ristolainen trade, and what it means for Flyers**\
 `After an impressive showing at the Olympics, will Ristolainen be on the move to a contending team?`\
 https://nytimes.com/athletic/7075654/2026/02/27/flyers-ristolainen-trade-defense/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/7075704/2026/02/27/olympic-hockey-hughes-knight-ton
 `The move would split off the money-losing social media platform as the company pursues a merger with a fusion power company.`\
 https://nytimes.com/2026/02/27/business/trump-media-truth-social-spin-off.html
 
-**Prosecutors Plan to Drop 2 Charges Against Alexander Brothers**\
-`A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking.`\
+**Prosecutors Plan to Drop 2 of the Charges Against Alexander Brothers**\
+`A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking. The three men would still face 10 other charges.`\
 https://nytimes.com/2026/02/27/nyregion/alexander-brothers-trial-sex-charges-dropped.html
 
 **Were Duterte’s Speeches Orders to Kill or Hyperbole?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/world/asia/rodrigo-duterte-icc-trial-hague.html
 **Luke Combs Opens Up About Body-Image Issues**\
 `On “Popcast,” the country superstar Luke Combs, known for hits like “Beer Never Broke My Heart” and his cover of Tracy Chapman’s “Fast Car,” discussed how body-image issues have affected him throughout his career.`\
 https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-body-image-issues.html
-
-**Cadillac reveals name of F1 car for debut season**\
-`The American team is joining the F1 grid as the 11th team.`\
-https://nytimes.com/athletic/7075650/2026/02/27/cadillac-f1-car-name-andretti/
 
