@@ -1,3 +1,7 @@
+**The Bounce: Why the internet is roasting the Lakers' Deandre Ayton**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7075452/2026/02/27/deandre-ayton-clint-capela-lakers-nba-the-bounce/
+
 **Josh Sargent is in Toronto, looking forward after 'complicated' Norwich transfer saga**\
 `Sargent was banished to Norwich's U-21s after making his transfer request, but he finally has his wish: a new start in MLS`\
 https://nytimes.com/athletic/7068685/2026/02/27/josh-sargent-interview-toronto-fc-norwich-city-transfer-mls-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/arts/berlin-film-festival-tricia-tuttle-israel-ga
 **Carrick uncertain of De Ligt injury return**\
 `The 26-year-old centre-back has not featured for United since the victory at Crystal Palace on November 30.`\
 https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united/
-
-**John Lynch likes the 49ers current offensive line, but says 'we'll add to it'**\
-`“We want to continue to grow our offensive line,” Lynch said. “But we like the guys we have.”`\
-https://nytimes.com/athletic/7073377/2026/02/27/49ers-offensive-line-nfl-draft-john-lynch/
 
