@@ -1,3 +1,11 @@
+**Trump Said the Government Will No Longer Use Anthropic’s A.I.**\
+`Also, the president said he is “not happy” with Iran’s negotiators. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/02/27/briefing/trump-pentagon-anthropic-ai.html
+
+**What Are ICE Agents Allowed to Do on College Campuses?**\
+`Federal agents do not have any special privileges on campuses. To arrest a student at Columbia University this week, they used a tactic of questionable legality.`\
+https://nytimes.com/2026/02/27/nyregion/immigration-agents-college-campus-columbia.html
+
 **Silicon Valley Rallies Behind Anthropic in A.I. Clash With Trump**\
 `Actions by the president and the Pentagon appeared to drive a wedge between Washington and the tech industry, whose leaders and workers spoke out for the start-up.`\
 https://nytimes.com/2026/02/27/technology/anthropic-trump-pentagon-silicon-valley.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/arts/trump-kennedy-center-honors.html
 **An Update: Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
 `On Friday, the state approved a settlement that included a $3,000 fine but no acknowledgment of guilt for a tree poisoning that riled people in scenic Rockport, Maine.`\
 https://nytimes.com/2026/02/27/us/politics/maine-tree-poisoning.html
-
-**Packers hiring Cam Achord as new special teams coordinator**\
-`Achord previously coached special teams with the Giants and Patriots.`\
-https://nytimes.com/athletic/7076344/2026/02/27/packers-hiring-cam-achord-as-new-special-teams-coordinator/
-
-**Iris Cantor, Philanthropist and Art Collector, Dies at 95**\
-`She and her husband, the financier B. Gerald Cantor, amassed one of the largest private collections of Rodin artworks, donating much of it to museums around the world.`\
-https://nytimes.com/2026/02/27/giving/iris-cantor-dead.html
 
