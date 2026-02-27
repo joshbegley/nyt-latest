@@ -1,3 +1,7 @@
+**'We got to find a way to win the game': Blackhawks coach rues missed opportunity**\
+`Connor Bedard scored and the team later led 2-1, but missteps in the final 15 minutes resulted in a 4-2 loss to the Predators.`\
+https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-bedard/
+
 **The defensive transfers (in and out) you should be prioritising in FPL**\
 `Many managers are reaching a turning point when it comes to their investment in defence now that the dust has settled on Double Gameweek 26`\
 https://nytimes.com/athletic/7069974/2026/02/27/fantasy-premier-league-gameweek-28-fpl-tips-differentials/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069964/2026/02/27/newcastle-gordon-striker-premier
 **The Prospects: Marli Salmon, Arsenal**\
 `The Athletic is keeping an eye on the best young players in the country and this week it's time for a calm, ball-playing defender at Arsenal`\
 https://nytimes.com/athletic/7070758/2026/02/27/prospects-marli-salmon-arsenal/
-
-**The art of a Premier League title hunt: Squeaky bums, psychological warfare, and TV watchalongs**\
-`As Manchester City attempt to overhaul Arsenal, what is the science behind plotting the perfect title pursuit?`\
-https://nytimes.com/athletic/7060281/2026/02/27/premier-league-title-race-squeaky-bum/
 
