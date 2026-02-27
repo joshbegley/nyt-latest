@@ -1,3 +1,11 @@
+**Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\
+`The office of a prosecutor based in Miami has issued new subpoenas in a wide-ranging inquiry aimed at President Trump’s perceived foes.`\
+https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html
+
+**Chicago Bears stadium race heats up as Illinois, Indiana push bills forward**\
+`Indiana Gov. Mike Braun signs bill meant to lure Bears, while Illinois House committee recommends bill with property tax incentives.`\
+https://nytimes.com/athletic/7074068/2026/02/26/bears-stadium-illinois-indiana-passes-bills/
+
 **Justice Department Sues 5 States, Most Republican-Led, for Voter Data**\
 `The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and New Jersey, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
 https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-voter-data.html
