@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7074347/2026/02/26/commanders-tyler-biadasz-released-nfl/
 
 **Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
-`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor league umpire before reaching the majors in 1971.`\
+`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor-league umpire before reaching the majors in 1971.`\
 https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
 
 **Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\

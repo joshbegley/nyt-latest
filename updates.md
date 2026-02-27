@@ -1,3 +1,7 @@
+**In surprise move, Commanders to release starting center Tyler Biadasz**\
+`Biadasz signed with the Commanders in 2024 after spending his first four seasons in the league in Dallas.`\
+https://nytimes.com/athletic/7074347/2026/02/26/commanders-tyler-biadasz-released-nfl/
+
 **Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
 `Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor league umpire before reaching the majors in 1971.`\
 https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
