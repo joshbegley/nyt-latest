@@ -1,3 +1,7 @@
+**A Prada Show So Good, It Overshadowed Mark Zuckerberg**\
+`Miuccia Prada and Raf Simons offer a multilayered meditation on dressing. And some really great shoes.`\
+https://nytimes.com/2026/02/27/style/prada-fall-2026.html
+
 **South Korea Clears Way for Google Maps to Fully Operate**\
 `South Korea approved Google’s request to export detailed map data, reversing a longstanding restriction that made the tool largely nonfunctional.`\
 https://nytimes.com/2026/02/27/world/asia/google-maps-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-
 **Word of the Day: interpolate**\
 `This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
-
-**Crystal Palace and Oliver Glasner have established an uneasy truce... for now**\
-`Selhurst Park enjoyed a rare sense of unity as progress was assured into the last 16 of the UEFA Conference League, but will it last?`\
-https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conference-mostar-guessand/
 
