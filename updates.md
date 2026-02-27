@@ -1,3 +1,7 @@
+**Analysis: Villa eye Europa League glory after drawing Lille in last 16**\
+`A reward for finishing second in the league phase table, Villa will have home advantage in the second leg on March 19.`\
+https://nytimes.com/athletic/7075141/2026/02/27/aston-villa-europa-league-draw-lille-last-16/
+
 **How India Became One of the World’s Biggest Economies**\
 `India has grown rapidly despite its slow industrialization, and its economy is now nearly as big as Japan’s.`\
 https://nytimes.com/2026/02/27/business/india-economy-gdp.html

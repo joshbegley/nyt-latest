@@ -1,3 +1,7 @@
+**Forest draw Midtjylland in Europa League last-16**\
+`Vitor Pereira's side beat Fenerbahce 4-2 on aggregate in the play-offs to secure qualification to the knockouts.`\
+https://nytimes.com/athletic/7075179/2026/02/27/nottingham-forest-europa-league-midtjylland/
+
 **Analysis: Villa eye Europa League glory after drawing Lille in last 16**\
 `A reward for finishing second in the league phase table, Villa will have home advantage in the second leg on March 19.`\
 https://nytimes.com/athletic/7075141/2026/02/27/aston-villa-europa-league-draw-lille-last-16/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075067/2026/02/27/malik-tillman-injury-update-usmn
 **Men's college basketball weekend guide: Michigan-Illinois, Virginia-Duke, bubble games**\
 `And so begins college basketball's long, dramatic denouement. We're about to turn the calendar to March. Here's what to watch this weekend.`\
 https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-kansas-arizona-how-to-watch/
-
-**A speedier, stronger Marcelo Mayer is ready to shake injury-prone label, win a starting job**\
-`Mayer's training helped him post faster sprint times than Trevor Story and Jarren Duran. But his main goal is to play a full season.`\
-https://nytimes.com/athletic/7073535/2026/02/27/red-sox-marcelo-mayer-injury-prone-label-speed/
 
