@@ -1,3 +1,11 @@
+**The Plunging Birthrate**\
+`We asked women about their views on having kids.`\
+https://nytimes.com/2026/02/27/briefing/the-plunging-birthrate.html
+
+**The Pulse: MLB's most interesting team**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7073757/2026/02/27/blue-jays-game-7-2026-the-pulse/
+
 **Jose Lima was one of baseball's true characters. He also had a unique perspective on failure**\
 `Jose Lima loved baseball, but he didn’t take himself too seriously. He also didn't take failure too seriously.`\
 https://nytimes.com/athletic/7074557/2026/02/27/jose-lima-failure-philosophy-perspective/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7074604/2026/02/27/penguins-arturs-silovs-olympics-
 **Life after Game 7: Could the Blue Jays actually be better this year?**\
 `Vlad Jr. and company, now joined by key reinforcements, are determined to get back to the World Series, and then ... make history. `\
 https://nytimes.com/athletic/7073024/2026/02/27/blue-jays-2026-season-game-7-world-series/
-
-**Larkin powers gutsy OT win for Red Wings to begin home stretch: 5 thoughts**\
-`The Red Wings looked a little rusty to start their first game back from the Olympics, but gold-medal-winner Larkin soon stepped in.`\
-https://nytimes.com/athletic/7074625/2026/02/27/red-wings-dylan-larkin-olympics-gibson-edvinsson-senators/
-
-**Joey Cantillo, Emmet Sheehan and other potential MLB breakout pitchers for 2026**\
-`These pitchers meet the criteria to be potential breakout starters this season, though some breakouts seem more likely than others.`\
-https://nytimes.com/athletic/7069000/2026/02/27/mlb-pitching-breakout-candidates-2026/
 
