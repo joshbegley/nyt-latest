@@ -1,3 +1,11 @@
+**Judge Approves $345 Million Verdict Against Greenpeace in Pipeline Suit**\
+`Greenpeace has said the verdict could bankrupt it. The lawsuit was over the group’s role in protests against the Dakota Access Pipeline.`\
+https://nytimes.com/2026/02/27/climate/greenpeace-energy-transfer-verdict-dakota-access.html
+
+**It’s the turf Aaron Rodgers once called ‘borderline unplayable’ — how will the Steelers fix it?**\
+`Their stadium's turf was one of a series of low grades the organization received on this year's NFLPA report cards.`\
+https://nytimes.com/athletic/7075772/2026/02/27/steelers-nflpa-report-card-acrisure-stadium-turf/
+
 **Sondra Lee Dies at 97; Originated Roles in ‘Peter Pan’ and ‘Hello, Dolly!’**\
 `With her frenetic energy and 4-foot-10 frame, Ms. Lee seemed destined to play a certain kind of stage character: excitable, endearing and charmingly scheming.`\
 https://nytimes.com/2026/02/27/theater/sondra-lee-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/card/2026/02/27/smarter-living/wirecutter/
 **Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
 `The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
 https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html
-
-**Prime Tire: The first time Alonso-Honda went wrong**\
-`Welcome to Prime Tire, The Athletic’s F1 newsletter.`\
-https://nytimes.com/athletic/7076236/2026/02/27/fernando-alonso-honda-aston-martin-f1-prime-tire/
-
-**Victims’ Families Stunned by Failure of Air Safety Bill in House**\
-`Relatives of those who died in a midair collision over D.C. last year came to Washington to watch a vote they thought would go their way. It didn’t.`\
-https://nytimes.com/2026/02/27/us/politics/rotor-act-families.html
 
