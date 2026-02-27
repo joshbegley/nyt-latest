@@ -1,3 +1,7 @@
+**An Update: Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
+`On Friday, the state approved a settlement that included a $3,000 fine but no acknowledgment of guilt for a tree poisoning that riled people in scenic Rockport, Maine.`\
+https://nytimes.com/2026/02/27/us/politics/maine-tree-poisoning.html
+
 **Packers hiring Cam Achord as new special teams coordinator**\
 `Achord previously coached special teams with the Giants and Patriots.`\
 https://nytimes.com/athletic/7076344/2026/02/27/packers-hiring-cam-achord-as-new-special-teams-coordinator/
