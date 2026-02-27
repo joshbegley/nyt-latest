@@ -1,40 +1,40 @@
-**In Tuesday’s North Carolina Primaries, the Left Is Aiming for Democrats**\
-`From a Charlotte-area House race to three statehouse races, North Carolina liberals are signaling that their tolerance for Democratic stalwarts may be coming to an end.`\
-https://nytimes.com/2026/02/27/us/politics/north-carolina-primaries-liberal-challengers.html
+**Hungary Plays the Spoiler in Europe, as Orban Seeks Votes at Home**\
+`Facing a serious election challenge, Prime Minister Viktor Orban is holding up a big E.U. loan for Ukraine. Analysts say the timing is no coincidence.`\
+https://nytimes.com/2026/02/27/world/europe/hungary-plays-the-spoiler-in-europe-as-orban-seeks-votes-at-home.html
 
-**The Best-Kept Secret in Washington**\
-`On what makes Congress secret and toxic.`\
-https://nytimes.com/2026/02/27/opinion/congress-trump-secret-toxic.html
+**What I'm hearing at the combine: Patriots to prioritize edge rusher, O-line in free agency**\
+`While the Patriots will soon have to make a call on Stefon Diggs, the team sees edge rusher and the O-line as areas of need in free agency.`\
+https://nytimes.com/athletic/7073290/2026/02/27/patriots-stefon-diggs-nfl-combine-free-agency-draft/
 
-**How ‘The Pitt’ Grosses You Out**\
-`The medical drama tests viewers with protruding bones, visible organs and buckets of blood. Here’s how makeup and effects artists created seven gory afflictions.`\
-https://nytimes.com/2026/02/27/arts/television/the-pitt.html
+**What I heard about the Falcons at the NFL Scouting Combine**\
+`Reading the tea leaves, it seems the Falcons might be playing 2026 without linebacker Kaden Elliss and wide receiver Darnell Mooney.`\
+https://nytimes.com/athletic/7073923/2026/02/27/atlanta-falcons-nfl-combine-ian-cunningham-kaden-elliss/
 
-**Would You Go to a Concert With Your Dad? (Yes, Your Dad!)**\
-`Across the country, fathers are donning sparkly blazers and purple wigs to bond with their kids at pop music shows. Is it heartwarming or just plain cringey?`\
-https://nytimes.com/2026/02/27/learning/would-you-go-to-a-concert-with-your-dad-yes-your-dad.html
+**For CNN, a Change in Ownership Means a Suddenly Uncertain Future**\
+`Paramount’s apparent victory over Netflix in securing Warner Bros. Discovery has led to concerns within the CNN newsroom.`\
+https://nytimes.com/2026/02/27/business/media/cnn-paramount-david-ellison.html
 
-**Book Club: Read ‘Kin,’ by Tayari Jones, With the Book Review**\
-`In March, the Book Review Book Club will read and discuss Tayari Jones’s new novel, about two motherless girls and their lifelong search for family.`\
-https://nytimes.com/2026/02/27/books/review/kin-tayari-jones-book-club.html
+**Tech, TV, Movies and News: Ellisons on Brink of Colossal Empire**\
+`If Paramount can close its deal to buy Warner Bros. Discovery, Larry and David Ellison will influence nearly every corner of news, entertainment and tech.`\
+https://nytimes.com/2026/02/27/business/media/tech-tv-movies-and-news-ellisons-on-brink-of-colossal-empire.html
 
-**Mamdani Can End the Homelessness Crisis. Here’s How.**\
-`Our aim should be to make permanent housing, not shelters, the default.`\
-https://nytimes.com/2026/02/27/opinion/new-york-homelessness-mamdani.html
+**The Big Benefits of Small Talk**\
+`Start a conversation. Research suggests you won’t regret it.`\
+https://nytimes.com/2026/02/27/well/benefits-small-talk.html
 
-**You Can’t Shame People Into Vaccinating Their Kids. I Should Know.**\
-`For a long time, I was angry at my mom for not vaccinating me.`\
-https://nytimes.com/2026/02/27/opinion/growing-up-unvaccinated.html
+**The New York Times News Quiz, Feb. 27, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/02/27/briefing/trump-us-hockey-team-el-mencho-news-quiz.html
 
-**A World Where All Is Free? That’s Elon Musk’s Theory of ‘Sustainable Abundance.’**\
-`The Tesla and SpaceX chief has told his followers that they will live in a world where robots will take care of every need and people do not have to work, in what has become his latest slogan.`\
-https://nytimes.com/2026/02/27/business/a-world-where-all-is-free-thats-elon-musks-theory-of-sustainable-abundance.html
+**What Both Anthropic and the Pentagon Get Wrong**\
+`Neither Anthropic nor the Pentagon are thinking about this issue in a meaningful way.`\
+https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-ai-defense.html
 
-**Watch the Final Scene of ‘Train Dreams’**\
-`The director Clint Bentley discusses the conclusion to his film, which stars Joel Edgerton and is an Oscar nominee for best picture.`\
-https://nytimes.com/2026/02/27/movies/train-dreams-clip.html
+**Do I Have to Watch a Show I Dislike With My Son?**\
+`A ruling on a dispute over quality time.`\
+https://nytimes.com/interactive/2026/02/27/magazine/star-trek-hodgman-quiz.html
 
-**Michael Pollan Wants to Know Where Consciousness Comes From**\
-`“A World Appears” explores what makes you you.`\
-https://nytimes.com/2026/02/27/books/review/a-world-appears-michael-pollan.html
+**Texas Can Soon Enforce Law Aimed at Restricting Drag Shows**\
+`The U.S. Court of Appeals for the Fifth Circuit ruled that a Texas law banning some performances in front of children can go into effect in March as a legal battle continues.`\
+https://nytimes.com/2026/02/27/us/texas-law-drag-shows-restriction.html
 
