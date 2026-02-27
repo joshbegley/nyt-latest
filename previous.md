@@ -1,3 +1,7 @@
+**Until Saturday: 10 ways to fix college football**\
+`Until Saturday is the Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
+
 **AI: Health & Science**\
 ``\
 https://nytimes.com/spotlight/ai-health-science
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/27/opinion/jeffrey-epstein-files.html
 **McLaren agrees settlement with Chip Ganassi Racing over Palou contract breach**\
 `McLaren won the case it brought against Palou following his decision to renege on his agreement to join its IndyCar team in 2023.`\
 https://nytimes.com/athletic/7075839/2026/02/27/mclaren-alex-palou-chip-ganassi-racing-settlement/
-
-**The Giants' bullpen is far from set, but the roles will be clear**\
-`It's still unclear which eight pitchers will fill the Giants' bullpen at the start of the season, but their roles are easy to define.`\
-https://nytimes.com/athletic/7074780/2026/02/27/sf-giants-bullpen-roles-2026/
 

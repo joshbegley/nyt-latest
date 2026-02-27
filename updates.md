@@ -1,3 +1,7 @@
+**Until Saturday: 10 ways to fix college football**\
+`Until Saturday is the Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
+
 **AI: Health & Science**\
 ``\
 https://nytimes.com/spotlight/ai-health-science
