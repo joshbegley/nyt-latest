@@ -1,3 +1,7 @@
+**Why momentum is building toward a Ristolainen trade, and what it means for Flyers**\
+`After an impressive showing at the Olympics, will Ristolainen be on the move to a contending team?`\
+https://nytimes.com/athletic/7075654/2026/02/27/flyers-ristolainen-trade-defense/
+
 **Bill Clinton Begins Deposition About His Relationship With Epstein**\
 `Republicans appeared eager to press the former president. Democrats said they hoped to use his appearance as precedent to demand that President Trump also answer questions.`\
 https://nytimes.com/2026/02/27/us/politics/bill-clinton-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-bod
 **Cadillac reveals name of F1 car for debut season**\
 `The American team is joining the F1 grid as the 11th team.`\
 https://nytimes.com/athletic/7075650/2026/02/27/cadillac-f1-car-name-andretti/
-
-**How to watch Sabres vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7075668/2026/02/27/sabres-vs-panthers-stream-how-to-watch-feb-27/
 

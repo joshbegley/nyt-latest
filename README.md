@@ -1,27 +1,3 @@
-**Why momentum is building toward a Ristolainen trade, and what it means for Flyers**\
-`After an impressive showing at the Olympics, will Ristolainen be on the move to a contending team?`\
-https://nytimes.com/athletic/7075654/2026/02/27/flyers-ristolainen-trade-defense/
-
-**Bill Clinton Begins Deposition About His Relationship With Epstein**\
-`Republicans appeared eager to press the former president. Democrats said they hoped to use his appearance as precedent to demand that President Trump also answer questions.`\
-https://nytimes.com/2026/02/27/us/politics/bill-clinton-epstein.html
-
-**Brighton's Milner unsure whether he will continue playing next season**\
-`The 40-year-old midfielder broke Gareth Barry's record of 653 games by starting Brighton's 2-0 win at Brentford.`\
-https://nytimes.com/athletic/7070384/2026/02/27/james-milner-brighton-future-record/
-
-**Watching sports stars play through pain: Risks, rewards, and what our reporters thought**\
-`What's it like seeing sports stars play through pain in search of glory? Our reporters explain what it was like to witness shocking moments.`\
-https://nytimes.com/athletic/7075250/2026/02/27/vonn-acl-crash-jack-hughes-teeth-olympics/
-
-**U.S. hockey heroes Hilary Knight, Jack Hughes and Quinn Hughes to appear on 'Tonight Show'**\
-`Knight and the Hughes brothers, who had key goals for the U.S. men's and women's gold-medal teams, will be hosted by Jimmy Fallon on Monday.`\
-https://nytimes.com/athletic/7075704/2026/02/27/olympic-hockey-hughes-knight-tonight-show/
-
-**Trump Media Explores Spinning Off Truth Social**\
-`The move would split off the money-losing social media platform as the company pursues a merger with a fusion power company.`\
-https://nytimes.com/2026/02/27/business/trump-media-truth-social-spin-off.html
-
 **Prosecutors Plan to Drop 2 Charges Against Alexander Brothers**\
 `A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking.`\
 https://nytimes.com/2026/02/27/nyregion/alexander-brothers-trial-sex-charges-dropped.html
@@ -37,4 +13,28 @@ https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-bod
 **Cadillac reveals name of F1 car for debut season**\
 `The American team is joining the F1 grid as the 11th team.`\
 https://nytimes.com/athletic/7075650/2026/02/27/cadillac-f1-car-name-andretti/
+
+**How to watch Sabres vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075668/2026/02/27/sabres-vs-panthers-stream-how-to-watch-feb-27/
+
+**How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075664/2026/02/27/cavaliers-vs-pistons-stream-how-to-watch-feb-27/
+
+**How to watch Golden Knights vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075661/2026/02/27/golden-knights-vs-capitals-stream-how-to-watch-feb-27/
+
+**How to watch Miami (OH) vs. Western Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Western Michigan Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075640/2026/02/27/miami-oh-vs-western-michigan-stream-how-to-watch-feb-27/
+
+**Diego Pavia says mentor Johnny Manziel 'is giving me some good advice'**\
+`Perhaps no one can understand mercurial Vanderbilt quarterback Diego Pavia better than Johnny Manziel.`\
+https://nytimes.com/athletic/7075573/2026/02/27/diego-pavia-johnny-manziel-mentor-nfl-combine-qb/
+
+**Employment Commission Says Agencies Can Restrict Bathroom Use by Gender Identity**\
+`The ruling extends the Equal Employment Opportunity Commission’s intervention on President Trump’s gender and race priorities.`\
+https://nytimes.com/2026/02/27/us/politics/eeoc-gender-bathrooms-transgender.html
 
