@@ -1,3 +1,15 @@
+**Quote of the Day: How a ‘Team From a Small Town Up North’ Is Slaying the European Elites**\
+`Quotation of the Day for Friday, Feburary 27, 2026.`\
+https://nytimes.com/2026/02/26/pageoneplus/quote-of-the-day-how-a-team-from-a-small-town-up-north-is-slaying-the-european-elites.html
+
+**Pentagon Fires Another Laser at Drone, Prompting New Air Closure**\
+`After the downing of a Customs and Border Protection drone, the F.A.A. closed the airspace above Fort Hancock, Texas.`\
+https://nytimes.com/2026/02/26/us/drone-faa-dhs-el-paso-airspace.html
+
+**Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
+`The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follow months of worsening relations between the neighboring countries.`\
+https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
+
 **Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
 `The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follows months of worsening relations between the neighboring countries.`\
 https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
