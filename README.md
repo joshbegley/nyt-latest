@@ -6,13 +6,13 @@ https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout
 `Vitor Pereira has quickly discovered what Postecoglou and Dyche found out - that Forest are strongest when last year's core all feature`\
 https://nytimes.com/athletic/7074343/2026/02/27/forest-europa-league-pereira-squad-fenerbahce/
 
+**The Shields Are Down, Mr. President**\
+`Personnel once meant policy; now it means flattery.`\
+https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
+
 **The New York Times in Print for Friday, Feb. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/27/todays-new-york-times
-
-**Trump’s Shields Are Down**\
-`Personnel once meant policy; now it means flattery.`\
-https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
 
 **Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
 `Appearing on the NBC programs will make an already high-mileage week even more demanding for the Wild defenseman.`\
