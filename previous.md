@@ -1,3 +1,11 @@
+**Luke Combs Opens Up About Body-Image Issues**\
+`On “Popcast,” the country superstar Luke Combs, known for hits like “Beer Never Broke My Heart” and his cover of Tracy Chapman’s “Fast Car,” discussed how body-image issues have affected him throughout his career.`\
+https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-body-image-issues.html
+
+**Cadillac reveals name of F1 car for debut season**\
+`The American team is joining the F1 grid as the 11th team.`\
+https://nytimes.com/athletic/7075650/2026/02/27/cadillac-f1-car-name-andretti/
+
 **How to watch Sabres vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7075668/2026/02/27/sabres-vs-panthers-stream-how-to-watch-feb-27/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010741684/pakistan-airstrikes-afghani
 **Iran’s Students, Undeterred After Deadly Crackdown, Are Protesting Again**\
 `The unrest underlines the intensity of domestic discontent, even as Tehran’s government grapples with the threat of U.S. strikes. Here’s what to know.`\
 https://nytimes.com/2026/02/27/world/middleeast/iran-student-protests.html
-
-**Transgender Kansans Sue After Driver’s Licenses Are Abruptly Canceled**\
-`As Kansas invalidates hundreds of licenses and birth certificates, transgender people say their constitutional rights have been violated.`\
-https://nytimes.com/2026/02/27/us/transgender-kansas-drivers-licenses-lawsuit.html
-
-**With Canucks at a low point, stakes for trade deadline have never been higher**\
-`The vivid memory of far too many dysfunctional Canucks trade deadlines past is inescapable.`\
-https://nytimes.com/athletic/7074812/2026/02/27/canucks-nhl-trade-deadline-2026-standings/
 
