@@ -1,3 +1,11 @@
+**Quote of the Day: How a ‘Team From a Small Town Up North’ Is Slaying the European Elites**\
+`Quotation of the Day for Friday, Feburary 27, 2026.`\
+https://nytimes.com/2026/02/26/pageoneplus/quote-of-the-day-how-a-team-from-a-small-town-up-north-is-slaying-the-european-elites.html
+
+**Pentagon Fires Another Laser at Drone, Prompting New Air Closure**\
+`After the downing of a Customs and Border Protection drone, the F.A.A. closed the airspace above Fort Hancock, Texas.`\
+https://nytimes.com/2026/02/26/us/drone-faa-dhs-el-paso-airspace.html
+
 **Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
 `The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follow months of worsening relations between the neighboring countries.`\
 https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/arts/television/the-pitt-recap-season-2-episode-8
 **Serving Piece**\
 `Caroline Hand opens our solving weekend with a scintillating New York Times Crossword debut.`\
 https://nytimes.com/2026/02/26/crosswords/daily-puzzle-2026-02-27.html
-
-**Google Workers Seek ‘Red Lines’ on Military A.I., Echoing Anthropic**\
-`More than 100 Google A.I. employees sent a letter to Jeff Dean, a chief scientist, opposing Gemini’s use for U.S. surveillance and some autonomous weapons.`\
-https://nytimes.com/2026/02/26/technology/google-deepmind-letter-pentagon.html
-
-**Trump to convene panel focused on future of college sports: Sources**\
-`The roundtable, scheduled for March 6, includes an invite list with dozens of important figures and sports celebrities.`\
-https://nytimes.com/athletic/7074279/2026/02/26/trump-panel-college-sports-future-issues/
 
