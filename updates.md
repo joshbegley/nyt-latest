@@ -1,3 +1,7 @@
+**Green Party Defeats Labour in U.K. Special Election, in Blow to Starmer**\
+`The result marks the first time the Greens have won a British parliamentary by-election and signals the frustration of left-leaning voters with Prime Minister Keir Starmer.`\
+https://nytimes.com/2026/02/26/world/europe/gorton-denton-result-green-party-labour.html
+
 **Blue Jackets come out with a burst, but Bruins get win behind Korpisalo, Kuraly**\
 `The Blue Jackets were proud of their play despite not quite being able to solve former teammate Joonas Korpisalo.`\
 https://nytimes.com/athletic/7074541/2026/02/26/blue-jackets-werenski-korpisalo-kuraly-bruins/
