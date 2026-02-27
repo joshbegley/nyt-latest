@@ -1,3 +1,7 @@
+**Chicago Bears stadium race heats up as Illinois, Indiana push bills forward**\
+`Indiana Gov. Mike Braun signs bill meant to lure Bears, while Illinois House committee recommends bill with property tax incentives.`\
+https://nytimes.com/athletic/7074068/2026/02/26/bears-stadium-illinois-indiana-passes-bills/
+
 **Supreme Court Lawyer Who Moonlit in High-Stakes Poker Is Convicted of Tax Fraud**\
 `The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
 https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074080/2026/02/26/nhl-trade-deadline-stamkos-oreil
 **32.6 Million Watched State of the Union, Nielsen Says**\
 `The audience was roughly on par with former President Biden’s final State of the Union address in 2024.`\
 https://nytimes.com/2026/02/26/business/media/state-of-the-union-nielsen-ratings.html
-
-**Trump’s Yes-Men Presidency**\
-`Trump’s State of the Union was a mirror of his administration. On “The Ezra Klein Show,” Ezra and the Times Opinion editor Aaron Retica discuss the yes-man culture surrounding Trump.`\
-https://nytimes.com/video/opinion/100000010732776/trumps-yes-men-presidency.html
 
