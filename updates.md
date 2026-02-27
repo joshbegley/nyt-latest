@@ -1,3 +1,11 @@
+**Judge Approves $345 Million Verdict Against Greenpeace in Pipeline Suit**\
+`Greenpeace has said the verdict could bankrupt it. The lawsuit was over the group’s role in protests against the Dakota Access Pipeline.`\
+https://nytimes.com/2026/02/27/climate/greenpeace-energy-transfer-verdict-dakota-access.html
+
+**It’s the turf Aaron Rodgers once called ‘borderline unplayable’ — how will the Steelers fix it?**\
+`Their stadium's turf was one of a series of low grades the organization received on this year's NFLPA report cards.`\
+https://nytimes.com/athletic/7075772/2026/02/27/steelers-nflpa-report-card-acrisure-stadium-turf/
+
 **Sondra Lee Dies at 97; Originated Roles in ‘Peter Pan’ and ‘Hello, Dolly!’**\
 `With her frenetic energy and 4-foot-10 frame, Ms. Lee seemed destined to play a certain kind of stage character: excitable, endearing and charmingly scheming.`\
 https://nytimes.com/2026/02/27/theater/sondra-lee-dead.html
