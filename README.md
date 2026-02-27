@@ -1,3 +1,11 @@
+**Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
+`The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
+https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
+
+**Is Nottingham Forest's Europa League run a blessing or a curse?**\
+`Vitor Pereira has quickly discovered what Postecoglou and Dyche found out - that Forest are strongest when last year's core all feature`\
+https://nytimes.com/athletic/7074343/2026/02/27/forest-europa-league-pereira-squad-fenerbahce/
+
 **The New York Times in Print for Friday, Feb. 27, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/27/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072188/2026/02/27/australia-sail-gp-ryan-reynolds-
 **Forest have inflicted pain on Hurzeler before – this time he needs to build momentum**\
 `Forest are opponents who have haunted the Brighton boss more than most during his 18 months in the Premier League`\
 https://nytimes.com/athletic/7059983/2026/02/27/hurzeler-brighton-forest-hoodoo/
-
-**Chelsea have a terrible record against their 'Big Six' rivals. It needs to improve**\
-`Liam Rosenior has plenty on his to-do list, but reversing the downturn against Arsenal and Man City should be considered a top priority`\
-https://nytimes.com/athletic/7072246/2026/02/27/chelsea-arsenal-man-city-analysis-big-six/
-
-**Joao Palhinha divided opinion at first, but he is exactly what Spurs need right now**\
-`After failing at Bayern, Pahlinha was considered by some as a better fit for a bottom-half side. Fittingly, that's where Spurs are at`\
-https://nytimes.com/athletic/7072205/2026/02/27/palhinha-spurs-midfied-tackles/
 
