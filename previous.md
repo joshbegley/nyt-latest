@@ -1,3 +1,15 @@
+**How to watch Sabres vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075668/2026/02/27/sabres-vs-panthers-stream-how-to-watch-feb-27/
+
+**How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075664/2026/02/27/cavaliers-vs-pistons-stream-how-to-watch-feb-27/
+
+**How to watch Golden Knights vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075661/2026/02/27/golden-knights-vs-capitals-stream-how-to-watch-feb-27/
+
 **How to watch Miami (OH) vs. Western Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the Western Michigan Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7075640/2026/02/27/miami-oh-vs-western-michigan-stream-how-to-watch-feb-27/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/27/us/transgender-kansas-drivers-licenses-lawsuit.ht
 **With Canucks at a low point, stakes for trade deadline have never been higher**\
 `The vivid memory of far too many dysfunctional Canucks trade deadlines past is inescapable.`\
 https://nytimes.com/athletic/7074812/2026/02/27/canucks-nhl-trade-deadline-2026-standings/
-
-**Sunderland in talks with Sixth Street for women's team sale**\
-`The club has received multiple offers from would-be buyers or investors over the past 12 months as they aim to reach the WSL again. `\
-https://nytimes.com/athletic/7046270/2026/02/27/sunderland-women-sixth-street-owner/
-
-**Snowy With a Chance of Meatloaf**\
-`Easy turkey meatloaf was a big hit this week, as were cashew butter chicken korma and beef tagine with green beans and olives.`\
-https://nytimes.com/2026/02/27/dining/snowy-with-a-chance-of-meatloaf.html
-
-**‘Chinese Republicans’ Review: These Women Are Playing to Win**\
-`Alex Lin’s new play focuses on four ambitious climbers of the corporate ladder. But their success comes at what cost?`\
-https://nytimes.com/2026/02/27/theater/chinese-republicans-review-alex-lin.html
 

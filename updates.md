@@ -1,3 +1,15 @@
+**How to watch Sabres vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075668/2026/02/27/sabres-vs-panthers-stream-how-to-watch-feb-27/
+
+**How to watch Cavaliers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075664/2026/02/27/cavaliers-vs-pistons-stream-how-to-watch-feb-27/
+
+**How to watch Golden Knights vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075661/2026/02/27/golden-knights-vs-capitals-stream-how-to-watch-feb-27/
+
 **How to watch Miami (OH) vs. Western Michigan men's basketball: Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the Western Michigan Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7075640/2026/02/27/miami-oh-vs-western-michigan-stream-how-to-watch-feb-27/
