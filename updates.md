@@ -1,3 +1,7 @@
+**With Possible Strike Looming, U.S. Says Staff Can Leave Israel, and Urges Speed**\
+`In an email to embassy workers Friday morning, Ambassador Mike Huckabee warned them that if they wanted to leave Israel, they “should do so TODAY.”`\
+https://nytimes.com/2026/02/27/world/middleeast/us-embassy-jerusalem-authorized-departure.html
+
 **A Prada Show So Good, It Overshadowed Mark Zuckerberg**\
 `Miuccia Prada and Raf Simons offer a multilayered meditation on dressing. And some really great shoes.`\
 https://nytimes.com/2026/02/27/style/prada-fall-2026.html
