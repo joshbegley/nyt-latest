@@ -1,3 +1,15 @@
+**Carrick uncertain of De Ligt injury return**\
+`The 26-year-old centre-back has not featured for United since the victory at Crystal Palace on November 30.`\
+https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united/
+
+**John Lynch likes the 49ers current offensive line, but says 'we'll add to it'**\
+`“We want to continue to grow our offensive line,” Lynch said. “But we like the guys we have.”`\
+https://nytimes.com/athletic/7073377/2026/02/27/49ers-offensive-line-nfl-draft-john-lynch/
+
+**The I.R.S. Shut Its Direct File, but Here Are Other Free Filing Options**\
+`The agency still offers a Free File program that works with commercial tax software firms. Some companies also offer free tools for certain filers.`\
+https://nytimes.com/2026/02/27/your-money/irs-free-tax-filing.html
+
 **Breakdown of a takedown: How Lionel Messi was floored as pitch invaders interrupt Inter Miami friendly**\
 `The friendly fixture in Puerto Rico had to be paused late on as fans evaded security to run on to the pitch and greet the Argentinean`\
 https://nytimes.com/athletic/7075050/2026/02/27/messi-inter-miami-puerto-rico-pitch-invaders/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/02/27/business/dealbook/paramount-warner-bros-netflix.h
 **Giants stock up/stock down: Tony Vitello doesn't sugarcoat Hayden Birdsong's rough start**\
 `"I think he's capable of better," the first-year manager said after Birdsong allowed three earned runs and threw 32 pitches in an inning.`\
 https://nytimes.com/athletic/7074530/2026/02/27/sf-giants-tony-vitello-hayden-birdsong/
-
-**Six months until F1's newest race: How work stands at the Spanish GP in Madrid**\
-`The new home of the Spanish GP will open in Madrid in just six months. Here's how the work on F1's newest race currently stands`\
-https://nytimes.com/athletic/7075113/2026/02/27/madrid-f1-race-track-work/
-
-**What I heard about the Chargers at the NFL combine: Will Joe Hortiz be adaptable?**\
-`Hortiz has generally avoided top-of-the-market deals but with a need to upgrade the offensive line, will he alter that approach? `\
-https://nytimes.com/athletic/7074197/2026/02/27/chargers-nfl-combine-intel-2026/
-
-**As Caleb Williams and Ben Johnson prep for 2026, efficiency is the name of the game**\
-`Williams turned heads with his magic act last season in Chicago. Now comes the quest to continue mastering the routine.`\
-https://nytimes.com/athletic/7073474/2026/02/27/caleb-williams-ben-johnson-bears-2026/
 
