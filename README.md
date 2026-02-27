@@ -1,3 +1,7 @@
+**Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
+`The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
+https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
+
 **In Trump’s Case for War, a Series of False or Unproven Claims**\
 `Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
 https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-
 **Trump Ally Expands Inquiry of Former Officials Who Investigated the President**\
 `The office of a prosecutor based in Miami has issued new subpoenas in a wide-ranging inquiry aimed at President Trump’s perceived foes.`\
 https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html
-
-**Chicago Bears stadium race heats up as Illinois, Indiana push bills forward**\
-`Indiana Gov. Mike Braun signs bill meant to lure Bears, while Illinois House committee recommends bill with property tax incentives.`\
-https://nytimes.com/athletic/7074068/2026/02/26/bears-stadium-illinois-indiana-passes-bills/
 
