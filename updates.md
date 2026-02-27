@@ -1,3 +1,11 @@
+**Sullivan, 16, becomes youngest American goalscorer in Champions Cup history**\
+`The midfielder scored twice in Philadelphia Union's 7-0 win over Defence Force in the first round of the competition.`\
+https://nytimes.com/athletic/7075402/2026/02/27/cavan-sullivan-champions-cup-philadelphia-union-youngest-goalscorer/
+
+**Fernando Mendoza on Raiders, working with Tom Brady: 'I’m all about learning'**\
+`Mendoza: "To be able to have the opportunity to be mentored by (Brady) would mean so much, especially to learn."`\
+https://nytimes.com/athletic/7075383/2026/02/27/fernando-mendoza-raiders-tom-brady-nfl-combine/
+
 **Why Sonny Styles was the biggest winner of 2026 NFL combine's first on-field workouts**\
 `Styles may have guaranteed himself a top-10 NFL Draft selection with his combine performance.`\
 https://nytimes.com/athletic/7075474/2026/02/27/nfl-combine-player-field-workout-winners-draft/
