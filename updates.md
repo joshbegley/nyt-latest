@@ -1,3 +1,7 @@
+**NASA Aims for 2 Moon Landings in 2028 With New Artemis Schedule**\
+`Jared Isaacman, the agency’s administrator, said the Artemis III mission would move to 2027 and would no longer attempt a lunar landing.`\
+https://nytimes.com/2026/02/27/science/nasa-moon-landings-artemis-schedule.html
+
 **Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
 `The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
 https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html

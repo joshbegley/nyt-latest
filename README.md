@@ -1,3 +1,7 @@
+**The Maple Leafs can't afford to learn the wrong lessons from a lost season**\
+`MLSE president Keith Pelley offered a window this week into what he believes has gone wrong for the Leafs. He missed the mark.`\
+https://nytimes.com/athletic/7075565/2026/02/27/maple-leafs-treliving-pelley-nhl/
+
 **NASA Aims for 2 Moon Landings in 2028 With New Artemis Schedule**\
 `Jared Isaacman, the agency’s administrator, said the Artemis III mission would move to 2027 and would no longer attempt a lunar landing.`\
 https://nytimes.com/2026/02/27/science/nasa-moon-landings-artemis-schedule.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075654/2026/02/27/flyers-ristolainen-trade-defense
 **Bill Clinton Begins Deposition About His Relationship With Epstein**\
 `Republicans appeared eager to press the former president. Democrats said they hoped to use his appearance as precedent to demand that President Trump also answer questions.`\
 https://nytimes.com/2026/02/27/us/politics/bill-clinton-epstein.html
-
-**Brighton's Milner unsure whether he will continue playing next season**\
-`The 40-year-old midfielder broke Gareth Barry's record of 653 games by starting Brighton's 2-0 win at Brentford.`\
-https://nytimes.com/athletic/7070384/2026/02/27/james-milner-brighton-future-record/
 
