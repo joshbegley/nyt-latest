@@ -1,3 +1,7 @@
+**The Epstein Files and Our Broken Public Trust**\
+`Readers discuss an Opinion guest essay by Daniel Richman. Also: A response from Deputy Attorney General Todd Blanche; President Trump and seniors’ health.`\
+https://nytimes.com/2026/02/27/opinion/jeffrey-epstein-files.html
+
 **McLaren agrees settlement with Chip Ganassi Racing over Palou contract breach**\
 `McLaren won the case it brought against Palou following his decision to renege on his agreement to join its IndyCar team in 2023.`\
 https://nytimes.com/athletic/7075839/2026/02/27/mclaren-alex-palou-chip-ganassi-racing-settlement/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/27/science/nasa-moon-landings-artemis-schedule.html
 **Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
 `The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
 https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html
-
-**Benfica suspends five fans for acts of 'a racist nature' in Madrid game**\
-`Benfica said disciplinary proceedings were ongoing over "inappropriate behaviours in the stands of a racist nature" in the February 17 game.`\
-https://nytimes.com/athletic/7075745/2026/02/27/benfica-racism-fans-vinicius-suspended/
 
