@@ -1,3 +1,19 @@
+**Browns big board: The offensive tackle prospects Cleveland should consider**\
+`We focus solely on introducing the tackles in this class and explore the possibility of the Browns drafting more than one. `\
+https://nytimes.com/athletic/7074088/2026/02/27/browns-2026-big-board-offensive-tackles/
+
+**Anthony Richardson seeks trade from Indianapolis: How did the Colts and their No. 4 pick get here?**\
+`Richardson wasn't the star the Colts hoped for at the outset, but the franchise sacrificed his long-term development for short-term benefit.`\
+https://nytimes.com/athletic/7074568/2026/02/27/anthony-richardson-trade-indianapolis-colts-2026/
+
+**The New York Times International Edition in Print for Saturday, Feb. 28, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/02/27/todays-new-york-times-international-edition
+
+**Ravens big board: 5 positions Baltimore could consider at pick No. 14**\
+`We explore Baltimore’s options with its first-round selection and break them down by position.`\
+https://nytimes.com/athletic/7073212/2026/02/27/baltimore-ravens-2026-big-board/
+
 **Wirtz set to miss West Ham game with back injury, timeframe for return uncertain**\
 `The 22-year-old picked up the issue during the warm-up before the 1-0 victory over Nottingham Forest last weekend.`\
 https://nytimes.com/athletic/7075002/2026/02/27/liverpool-florian-wirtz-injury-update/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/27/business/media/cnn-paramount-david-ellison.html
 **Tech, TV, Movies and News: Ellisons on Brink of Colossal Empire**\
 `If Paramount can close its deal to buy Warner Bros. Discovery, Larry and David Ellison will influence nearly every corner of news, entertainment and tech.`\
 https://nytimes.com/2026/02/27/business/media/tech-tv-movies-and-news-ellisons-on-brink-of-colossal-empire.html
-
-**The Big Benefits of Small Talk**\
-`Start a conversation. Research suggests you won’t regret it.`\
-https://nytimes.com/2026/02/27/well/benefits-small-talk.html
-
-**The New York Times News Quiz, Feb. 27, 2026**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2026/02/27/briefing/trump-us-hockey-team-el-mencho-news-quiz.html
-
-**What Both Anthropic and the Pentagon Get Wrong**\
-`Neither Anthropic nor the Pentagon are thinking about this issue in a meaningful way.`\
-https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-ai-defense.html
-
-**Do I Have to Watch a Show I Dislike With My Son?**\
-`A ruling on a dispute over quality time.`\
-https://nytimes.com/interactive/2026/02/27/magazine/star-trek-hodgman-quiz.html
 
