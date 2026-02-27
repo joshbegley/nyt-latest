@@ -1,3 +1,11 @@
+**Rangers claim forward Tye Kartye off waivers from Kraken**\
+`Tye Kartye will join a glut of bottom-six forwards on the Rangers vying for playing time.`\
+https://nytimes.com/athletic/7076109/2026/02/27/rangers-tye-kartye-waivers-kraken/
+
+**The 3 Best Lip Liners **\
+``\
+https://nytimes.com/card/2026/02/27/smarter-living/wirecutter/
+
 **Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
 `The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
 https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html

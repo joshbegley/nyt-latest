@@ -1,3 +1,11 @@
+**Rangers claim forward Tye Kartye off waivers from Kraken**\
+`Tye Kartye will join a glut of bottom-six forwards on the Rangers vying for playing time.`\
+https://nytimes.com/athletic/7076109/2026/02/27/rangers-tye-kartye-waivers-kraken/
+
+**The 3 Best Lip Liners **\
+``\
+https://nytimes.com/card/2026/02/27/smarter-living/wirecutter/
+
 **Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
 `The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
 https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7076213/2026/02/27/grizzlies-vs-mavericks-stream-ho
 **How to watch Jets vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7076206/2026/02/27/jets-vs-ducks-stream-how-to-watch-feb-27/
-
-**How to watch Nuggets vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076203/2026/02/27/nuggets-vs-thunder-stream-how-to-watch-feb-27/
-
-**How to watch Nets vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076199/2026/02/27/nets-vs-celtics-stream-how-to-watch-feb-27/
 
