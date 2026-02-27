@@ -1,3 +1,7 @@
+**Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
+`After each scoring game-winning goals in OT, the Hughes brothers have been criticized for their political decorum following the Games.`\
+https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
+
 **'We got to find a way to win the game': Blackhawks coach rues missed opportunity**\
 `Connor Bedard scored and the team later led 2-1, but missteps in the final 15 minutes resulted in a 4-2 loss to the Predators.`\
 https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-bedard/

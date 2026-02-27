@@ -1,3 +1,7 @@
+**Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
+`After each scoring game-winning goals in OT, the Hughes brothers have been criticized for their political decorum following the Games.`\
+https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
+
 **'We got to find a way to win the game': Blackhawks coach rues missed opportunity**\
 `Connor Bedard scored and the team later led 2-1, but missteps in the final 15 minutes resulted in a 4-2 loss to the Predators.`\
 https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-bedard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7071767/2026/02/27/axel-disasi-west-ham-liverpool/
 **Relentless pressing, sharper shooting and tactically aware: Is Anthony Gordon a striker now?**\
 `The 25-year-old is playing through the middle far more often now and it seems to be a role that suits both him and Newcastle United`\
 https://nytimes.com/athletic/7069964/2026/02/27/newcastle-gordon-striker-premier-league-champions-league/
-
-**The Prospects: Marli Salmon, Arsenal**\
-`The Athletic is keeping an eye on the best young players in the country and this week it's time for a calm, ball-playing defender at Arsenal`\
-https://nytimes.com/athletic/7070758/2026/02/27/prospects-marli-salmon-arsenal/
 
