@@ -1,3 +1,11 @@
+**Tennis player loses match on point penalty for slow play as returner**\
+`Terence Atmane was penalized by umpire Scotty Moore after going to take a towel from a ballkid while his opponent was ready to serve.`\
+https://nytimes.com/athletic/7074962/2026/02/27/terence-atmane-point-penalty-slow-play-tennis/
+
+**‘Train Dreams' | Anatomy of a Scene**\
+`The director Clint Bentley narrates a sequence from his film starring Joel Edgerton.`\
+https://nytimes.com/video/movies/100000010732820/train-dreams-scene.html
+
 **With Possible Strike Looming, U.S. Says Staff Can Leave Israel, and Urges Speed**\
 `In an email to embassy workers Friday morning, Ambassador Mike Huckabee warned them that if they wanted to leave Israel, they “should do so TODAY.”`\
 https://nytimes.com/2026/02/27/world/middleeast/us-embassy-jerusalem-authorized-departure.html

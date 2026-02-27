@@ -1,3 +1,11 @@
+**Tennis player loses match on point penalty for slow play as returner**\
+`Terence Atmane was penalized by umpire Scotty Moore after going to take a towel from a ballkid while his opponent was ready to serve.`\
+https://nytimes.com/athletic/7074962/2026/02/27/terence-atmane-point-penalty-slow-play-tennis/
+
+**‘Train Dreams' | Anatomy of a Scene**\
+`The director Clint Bentley narrates a sequence from his film starring Joel Edgerton.`\
+https://nytimes.com/video/movies/100000010732820/train-dreams-scene.html
+
 **With Possible Strike Looming, U.S. Says Staff Can Leave Israel, and Urges Speed**\
 `In an email to embassy workers Friday morning, Ambassador Mike Huckabee warned them that if they wanted to leave Israel, they “should do so TODAY.”`\
 https://nytimes.com/2026/02/27/world/middleeast/us-embassy-jerusalem-authorized-departure.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/crosswords/spelling-bee-forum.html
 **Riding the Bus**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/02/27/learning/riding-the-bus.html
-
-**Late Night Lampoons Trump’s State of the Union Ratings**\
-`Stephen Colbert joked that the president “is really dragging down broadcast television” with lower ratings for Tuesday’s State of the Union than last year’s address.`\
-https://nytimes.com/2026/02/27/arts/television/late-night-trump-state-of-the-union-ratings.html
-
-**Dominican Republic shocks USA Basketball in World Cup qualifier**\
-`While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
-https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
 
