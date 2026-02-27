@@ -1,3 +1,11 @@
+**Usyk to fight former kickboxing champion Verhoeven at Pyramids of Giza**\
+`Usyk’s last fight was a comprehensive fifth round knockout of Daniel Dubois at Wembley Stadium in July.`\
+https://nytimes.com/athletic/7076025/2026/02/27/oleksandr-usyk-rico-verhoeven-boxing-fight-wbc/
+
+**Here are 10 ways The Athletic proposes to fix college football**\
+`And how would you to fix college football? Let us know. `\
+https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-scheduling-until-saturday/
+
 **Cowboys place franchise tag on receiver George Pickens**\
 `Earlier this week, Cowboys coach Brian Schottenheimer specifically mentioned his plans for Pickens in the upcoming season.`\
 https://nytimes.com/athletic/7076043/2026/02/27/george-pickens-cowboys-franchise-tag/
