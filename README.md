@@ -1,3 +1,7 @@
+**Crystal Palace and Oliver Glasner have established an uneasy truce... for now**\
+`Selhurst Park enjoyed a rare sense of unity as progress was assured into the last 16 of the UEFA Conference League, but will it last?`\
+https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conference-mostar-guessand/
+
 **Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
 `The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
 https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074720/2026/02/27/lionel-messi-fan-field-tackle-in
 **The sailing team hoping to benefit from co-owner Ryan Reynolds' storytelling**\
 `Self-confessed introvert Slingsby is getting used to the newfound fame that comes with being co-owner of a team with Ryan Reynolds.`\
 https://nytimes.com/athletic/7072188/2026/02/27/australia-sail-gp-ryan-reynolds-investment-impact/
-
-**Forest have inflicted pain on Hurzeler before – this time he needs to build momentum**\
-`Forest are opponents who have haunted the Brighton boss more than most during his 18 months in the Premier League`\
-https://nytimes.com/athletic/7059983/2026/02/27/hurzeler-brighton-forest-hoodoo/
 
