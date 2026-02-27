@@ -1,3 +1,15 @@
+**How Israel Lost Americans**\
+`Netanyahu and his government deserve the growing bipartisan opprobrium they’re receiving.`\
+https://nytimes.com/2026/02/27/opinion/israel-american-public-opinion.html
+
+**What You Taught Me About Texas**\
+`Our readers in the state offer a window into the current center of the political universe.`\
+https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
+
+**Neil Sedaka: 14 Essential Songs**\
+`The singer and songwriter, who died on Friday at 86, gave voice to teenage dreams, then executed one of music’s most unexpected comebacks.`\
+https://nytimes.com/2026/02/27/arts/music/neil-sedaka-songs.html
+
 **Trump Said the Government Will No Longer Use Anthropic’s A.I.**\
 `Also, the president said he is “not happy” with Iran’s negotiators. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/02/27/briefing/trump-pentagon-anthropic-ai.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/style/100000010742155/prada-fall-runway.html
 **Fewer Detectives Will Hunt for Nancy Guthrie, Signaling a New Phase**\
 `After a month with little visible progress, the sheriff in Pima County, Ariz., is sending some deputies back to their regular units.`\
 https://nytimes.com/2026/02/27/us/nancy-guthrie-detectives.html
-
-**Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
-`He sang and co-wrote some of the definitive teenage anthems of the 1950s and early ’60s, including “Breaking Up Is Hard to Do,” and then reinvented his career in the ’70s.`\
-https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html
-
-**This Year, It Will Be the ‘Trump Kennedy Center Honors’**\
-`Despite plans to close the building this summer for a two-year reconstruction project, the renamed ceremony will be held elsewhere, the center’s president said.`\
-https://nytimes.com/2026/02/27/arts/trump-kennedy-center-honors.html
-
-**An Update: Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
-`On Friday, the state approved a settlement that included a $3,000 fine but no acknowledgment of guilt for a tree poisoning that riled people in scenic Rockport, Maine.`\
-https://nytimes.com/2026/02/27/us/politics/maine-tree-poisoning.html
 
