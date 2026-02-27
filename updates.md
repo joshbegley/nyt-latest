@@ -1,3 +1,7 @@
+**The Warning Signs Flashing From the Tech-Heavy Bloat of the S&P 500**\
+`The shifting composition of big public companies in the stock index shows how lopsided and less dynamic the American economy has become.`\
+https://nytimes.com/interactive/2026/02/26/business/stock-market-sp-500-nvidia-tech-bubble-crises.html
+
 **Sam Coffey says USWNT has ‘responsibility’ to speak out in new era**\
 `Coffey said while it was easier as a younger player to look to older players, it's time for current players to advocate for change.`\
 https://nytimes.com/athletic/7074362/2026/02/26/sam-coffey-uswnt-social-issues-shebelieves-cup/
