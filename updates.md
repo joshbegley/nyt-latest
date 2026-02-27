@@ -1,3 +1,15 @@
+**Mailbag: Will Crosby play in 2030 Olympics? Who's on an all-time Penguins roster?**\
+`Josh Yohe opens his mailbag for a Penguins thought exercise and all kinds of questions and answers about the Olympics.`\
+https://nytimes.com/athletic/7038670/2026/02/27/sidney-crosby-olympics-hockey-canada-penguins/
+
+**Mavericks won't raise season ticket prices: 'We didn't deliver this year'**\
+`After a season rife with turmoil and disappointment, the Mavericks are keeping their ticket prices stable. `\
+https://nytimes.com/athletic/7075482/2026/02/27/mavericks-season-ticket-prices-no-increase/
+
+**What Was It Like to Work at Calvin Klein in the ’90s? Ask Them.**\
+`FX’s “Love Story” has former employees waxing nostalgic about calla lilies (always white), paper clips (always black) and desk lunches (generally discouraged).`\
+https://nytimes.com/2026/02/27/style/love-story-carolyn-bessette-kennedy-calvin-klein.html
+
 **Should Barcelona be worried by all these hamstring injuries?**\
 `Seven Barca players have suffered hamstring injuries so far this season. Are Hansi Flick's demanding tactics a factor?`\
 https://nytimes.com/athletic/7075390/2026/02/27/barcelona-injuries-de-jong-pedri-flick/

@@ -1,3 +1,15 @@
+**Mailbag: Will Crosby play in 2030 Olympics? Who's on an all-time Penguins roster?**\
+`Josh Yohe opens his mailbag for a Penguins thought exercise and all kinds of questions and answers about the Olympics.`\
+https://nytimes.com/athletic/7038670/2026/02/27/sidney-crosby-olympics-hockey-canada-penguins/
+
+**Mavericks won't raise season ticket prices: 'We didn't deliver this year'**\
+`After a season rife with turmoil and disappointment, the Mavericks are keeping their ticket prices stable. `\
+https://nytimes.com/athletic/7075482/2026/02/27/mavericks-season-ticket-prices-no-increase/
+
+**What Was It Like to Work at Calvin Klein in the ’90s? Ask Them.**\
+`FX’s “Love Story” has former employees waxing nostalgic about calla lilies (always white), paper clips (always black) and desk lunches (generally discouraged).`\
+https://nytimes.com/2026/02/27/style/love-story-carolyn-bessette-kennedy-calvin-klein.html
+
 **Should Barcelona be worried by all these hamstring injuries?**\
 `Seven Barca players have suffered hamstring injuries so far this season. Are Hansi Flick's demanding tactics a factor?`\
 https://nytimes.com/athletic/7075390/2026/02/27/barcelona-injuries-de-jong-pedri-flick/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7075445/2026/02/27/nhl-trade-deadline-buyers-seller
 **The Bounce: Why the internet is roasting the Lakers' Deandre Ayton**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7075452/2026/02/27/deandre-ayton-clint-capela-lakers-nba-the-bounce/
-
-**Josh Sargent is in Toronto, looking forward after 'complicated' Norwich transfer saga**\
-`Sargent was banished to Norwich's U-21s after making his transfer request, but he finally has his wish: a new start in MLS`\
-https://nytimes.com/athletic/7068685/2026/02/27/josh-sargent-interview-toronto-fc-norwich-city-transfer-mls-usmnt/
-
-**Lowetide: Has Oilers rookie winger Matt Savoie turned the corner?**\
-`Savoie's development as a bona fide contributor to a successful contender represents a major accomplishment.`\
-https://nytimes.com/athletic/7073942/2026/02/27/edmonton-oilers-matt-savoie-stats-trade-deadline-2026/
-
-**OpenAI Raises $110 Billion to Fuel Growth, Extending A.I. Boom**\
-`Amazon, Nvidia and SoftBank led the investment, valuing the parent of ChatGPT at $730 billion.`\
-https://nytimes.com/2026/02/27/business/openai-funding.html
 
