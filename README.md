@@ -1,6 +1,18 @@
+**The Prospects: Marli Salmon, Arsenal**\
+`The Athletic is keeping an eye on the best young players in the country and this week it's time for a calm, ball-playing defender at Arsenal`\
+https://nytimes.com/athletic/7070758/2026/02/27/prospects-marli-salmon-arsenal/
+
+**The art of a Premier League title hunt: Squeaky bums, psychological warfare, and TV watchalongs**\
+`As Manchester City attempt to overhaul Arsenal, what is the science behind plotting the perfect title pursuit?`\
+https://nytimes.com/athletic/7060281/2026/02/27/premier-league-title-race-squeaky-bum/
+
 **The Premier League relegation battle analysed: Where race to beat drop will be won and lost**\
 `Toughest fixtures, squad strengths and set-piece weaknesses. This is what each team circling the drain has going for them, and against them`\
 https://nytimes.com/athletic/7072769/2026/02/27/premier-league-relegation-leeds-tottenham-nottingham-forest-west-ham-burnley-wolves/
+
+**Ranking the 16 teams remaining in this season's Champions League**\
+`The most- and least-likely teams to land European football's biggest prize as the competition reaches a crucial juncture `\
+https://nytimes.com/athletic/7072387/2026/02/27/ranking-the-16-teams-remaining-in-this-seasons-champions-league/
 
 **As a ball boy he helped Origi score 'that' goal. Now he is trying to save his career**\
 `Oakley Cannonier became a local hero for his role in an iconic Champions League goal but now must leave the club if he is to make the grade`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7073195/2026/02/27/elland-road-under-the-lights-lee
 **Arteta and Guardiola have embraced midfield chaos. It's working**\
 `The Premier League's title contenders have both surrendered some ball control in exchange for being able to attack open spaces `\
 https://nytimes.com/athletic/7072104/2026/02/27/premier-league-midfield-chaos-arsenal-man-city/
-
-**Premier League Matchday 28 numbers to know: Liverpool's comebacks, Spurs' back-three risks**\
-`What are the key stats you need to know as the title and relegation battles heat up?`\
-https://nytimes.com/athletic/7073144/2026/02/27/premier-league-md28-numbers/
-
-**Amid Rhetoric About Rupture With U.S., Finland Urges Calm**\
-`“We don’t need a bulldozer,” says Alexander Stubb, Finland’s president and a golf partner of President Trump. “Reform doesn’t mean destruction.”`\
-https://nytimes.com/2026/02/27/world/europe/finland-alexander-stubb-nato-trump.html
-
-**India Built the World’s Back Office. A.I. Is Starting to Shrink It.**\
-`Artificial intelligence promises to automate the white-collar work that made India a tech powerhouse. The country is racing to adapt before it’s too late.`\
-https://nytimes.com/2026/02/27/technology/india-technology-jobs-ai.html
 
