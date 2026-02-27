@@ -1,3 +1,19 @@
+**Minnesota Offers Plan to Fight Fraud as Trump Moves to Freeze Funds**\
+`Gov. Tim Walz of Minnesota laid out legislative measures to prevent fraud after a scandal that has upended the political landscape in the state.`\
+https://nytimes.com/2026/02/26/us/minnesota-fraud-medicaid.html
+
+**Mamdani’s Gift for Trump: A Front Page Celebrating the President**\
+`What do you bring the president when you visit the White House? Mayor Zohran Mamdani made a choice that seemed to please Donald Trump.`\
+https://nytimes.com/2026/02/26/nyregion/mamdani-trump-photo-newspapers.html
+
+**Bruce Froemming, an enduring umpire with decades of colorful confrontations, dies at 86**\
+`Froemming, who was born Sept. 29, 1939, in Milwaukee, served 13 years as a minor-league umpire before reaching the majors in 1971.`\
+https://nytimes.com/athletic/7073994/2026/02/26/mlb-umpire-bruce-froemming-dies-86/
+
+**Supreme Court Lawyer Who Moonlighted in High-Stakes Poker Is Convicted of Tax Fraud**\
+`The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
+https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
+
 **In surprise move, Commanders to release starting center Tyler Biadasz**\
 `Biadasz signed with the Commanders in 2024 after spending his first four seasons in the league in Dallas.`\
 https://nytimes.com/athletic/7074347/2026/02/26/commanders-tyler-biadasz-released-nfl/
