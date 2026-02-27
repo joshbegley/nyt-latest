@@ -1,3 +1,7 @@
+**AI: Health & Science**\
+``\
+https://nytimes.com/spotlight/ai-health-science
+
 **Ask a Journalist: Making a Compelling Argument**\
 `Nicholas Kristof, an Opinion columnist, joins us in March to talk to teenagers all about opinion writing. Post your comments and questions by March 15.`\
 https://nytimes.com/2026/02/27/learning/lesson-plans/ask-a-journalist-making-a-compelling-argument.html
