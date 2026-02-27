@@ -1,3 +1,7 @@
+**Breakdown of a takedown: How Lionel Messi was floored as pitch invaders interrupt Inter Miami friendly**\
+`The friendly fixture in Puerto Rico had to be paused late on as fans evaded security to run on to the pitch and greet the Argentinean`\
+https://nytimes.com/athletic/7075050/2026/02/27/messi-inter-miami-puerto-rico-pitch-invaders/
+
 **Palace to play AEK Larnaca in Conference League round of 16**\
 `Palace are already familiar with Larnaca, having been defeated 1-0 at home by the Cypriot side in the league phase.`\
 https://nytimes.com/athletic/7075199/2026/02/27/crystal-palace-larnaca-conference-league-draw/
