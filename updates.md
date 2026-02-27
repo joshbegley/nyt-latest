@@ -1,3 +1,11 @@
+**Word of the Day: interpolate**\
+`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
+
+**Crystal Palace and Oliver Glasner have established an uneasy truce... for now**\
+`Selhurst Park enjoyed a rare sense of unity as progress was assured into the last 16 of the UEFA Conference League, but will it last?`\
+https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conference-mostar-guessand/
+
 **The Shields Are Down, Mr. President**\
 `Personnel once meant policy; now it means flattery.`\
 https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
