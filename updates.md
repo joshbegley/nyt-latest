@@ -1,3 +1,23 @@
+**Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
+`The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
+https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html
+
+**Benfica suspends five fans for acts of 'a racist nature' in Madrid game**\
+`Benfica said disciplinary proceedings were ongoing over "inappropriate behaviours in the stands of a racist nature" in the February 17 game.`\
+https://nytimes.com/athletic/7075745/2026/02/27/benfica-racism-fans-vinicius-suspended/
+
+**Pentagon Standoff Is a Decisive Moment for How A.I. Will Be Used in War**\
+`The Pentagon’s contract dispute with Anthropic is part of a wider clash about the use of artificial intelligence for national security and who decides on any safeguards.`\
+https://nytimes.com/2026/02/27/technology/defense-department-anthropic-ai-safety.html
+
+**Flashback: Your Weekly History Quiz, Feb. 28, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/02/27/upshot/flashback.html
+
+**Wild trade tracker: Steven Stamkos a fit? Or Trocheck? The latest buzz a week ahead of the deadline**\
+`Stamkos has 29 goals in 58 games for the Predators this season and would look good on the Wild power play. But at what cost?`\
+https://nytimes.com/athletic/7075630/2026/02/27/minnesota-wild-trade-tracker-2026/
+
 **Review: A Harpist Merges Old and New, With Help From Friends**\
 `The multifaceted musician Parker Ramsay assembled an evening of Baroque and contemporary music, including a premiere by Georg Friedrich Haas.`\
 https://nytimes.com/2026/02/27/arts/music/parker-ramsay-harp-review.html

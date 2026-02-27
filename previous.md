@@ -1,3 +1,23 @@
+**Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
+`The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
+https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html
+
+**Benfica suspends five fans for acts of 'a racist nature' in Madrid game**\
+`Benfica said disciplinary proceedings were ongoing over "inappropriate behaviours in the stands of a racist nature" in the February 17 game.`\
+https://nytimes.com/athletic/7075745/2026/02/27/benfica-racism-fans-vinicius-suspended/
+
+**Pentagon Standoff Is a Decisive Moment for How A.I. Will Be Used in War**\
+`The Pentagon’s contract dispute with Anthropic is part of a wider clash about the use of artificial intelligence for national security and who decides on any safeguards.`\
+https://nytimes.com/2026/02/27/technology/defense-department-anthropic-ai-safety.html
+
+**Flashback: Your Weekly History Quiz, Feb. 28, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/02/27/upshot/flashback.html
+
+**Wild trade tracker: Steven Stamkos a fit? Or Trocheck? The latest buzz a week ahead of the deadline**\
+`Stamkos has 29 goals in 58 games for the Predators this season and would look good on the Wild power play. But at what cost?`\
+https://nytimes.com/athletic/7075630/2026/02/27/minnesota-wild-trade-tracker-2026/
+
 **Review: A Harpist Merges Old and New, With Help From Friends**\
 `The multifaceted musician Parker Ramsay assembled an evening of Baroque and contemporary music, including a premiere by Georg Friedrich Haas.`\
 https://nytimes.com/2026/02/27/arts/music/parker-ramsay-harp-review.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7070384/2026/02/27/james-milner-brighton-future-rec
 **Watching sports stars play through pain: Risks, rewards, and what our reporters thought**\
 `What's it like seeing sports stars play through pain in search of glory? Our reporters explain what it was like to witness shocking moments.`\
 https://nytimes.com/athletic/7075250/2026/02/27/vonn-acl-crash-jack-hughes-teeth-olympics/
-
-**U.S. hockey heroes Hilary Knight, Jack Hughes and Quinn Hughes to appear on 'Tonight Show'**\
-`Knight and the Hughes brothers, who had key goals for the U.S. men's and women's gold-medal teams, will be hosted by Jimmy Fallon on Monday.`\
-https://nytimes.com/athletic/7075704/2026/02/27/olympic-hockey-hughes-knight-tonight-show/
-
-**Trump Media Explores Spinning Off Truth Social**\
-`The move would split off the money-losing social media platform as the company pursues a merger with a fusion power company.`\
-https://nytimes.com/2026/02/27/business/trump-media-truth-social-spin-off.html
-
-**Prosecutors Plan to Drop 2 of the Charges Against Alexander Brothers**\
-`A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking. The three men would still face 10 other charges.`\
-https://nytimes.com/2026/02/27/nyregion/alexander-brothers-trial-sex-charges-dropped.html
-
-**Were Duterte’s Speeches Orders to Kill or Hyperbole?**\
-`Judges at the International Criminal Court have heard starkly different interpretations this week of the words of former President Rodrigo Duterte of the Philippines.`\
-https://nytimes.com/2026/02/27/world/asia/rodrigo-duterte-icc-trial-hague.html
-
-**Luke Combs Opens Up About Body-Image Issues**\
-`On “Popcast,” the country superstar Luke Combs, known for hits like “Beer Never Broke My Heart” and his cover of Tracy Chapman’s “Fast Car,” discussed how body-image issues have affected him throughout his career.`\
-https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-body-image-issues.html
 

@@ -1,3 +1,7 @@
+**NASA Aims for 2 Moon Landings in 2028 With New Artemis Schedule**\
+`Jared Isaacman, the agency’s administrator, said the Artemis III mission would move to 2027 and would no longer attempt a lunar landing.`\
+https://nytimes.com/2026/02/27/science/nasa-moon-landings-artemis-schedule.html
+
 **Review: Robert Rauschenberg’s Sharp Dancing Mind on Display**\
 `The Trisha Brown Dance Company is presenting a stellar double bill of Rauschenberg-designed works by Merce Cunningham and Trisha Brown.`\
 https://nytimes.com/2026/02/27/arts/dance/trisha-brown-bam-robert-rauschenberg.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/bill-clinton-epstein.html
 **Brighton's Milner unsure whether he will continue playing next season**\
 `The 40-year-old midfielder broke Gareth Barry's record of 653 games by starting Brighton's 2-0 win at Brentford.`\
 https://nytimes.com/athletic/7070384/2026/02/27/james-milner-brighton-future-record/
-
-**Watching sports stars play through pain: Risks, rewards, and what our reporters thought**\
-`What's it like seeing sports stars play through pain in search of glory? Our reporters explain what it was like to witness shocking moments.`\
-https://nytimes.com/athletic/7075250/2026/02/27/vonn-acl-crash-jack-hughes-teeth-olympics/
 
