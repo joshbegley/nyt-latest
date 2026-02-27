@@ -1,3 +1,11 @@
+**Silicon Valley Rallies Behind Anthropic in A.I. Clash With Trump**\
+`Actions by the president and the Pentagon appeared to drive a wedge between Washington and the tech industry, whose leaders and workers spoke out for the start-up.`\
+https://nytimes.com/2026/02/27/technology/anthropic-trump-pentagon-silicon-valley.html
+
+**Near the White House, Hundreds of High School Students Protest ICE**\
+`The demonstration at the Lincoln Memorial was the latest in a string of school walkouts across the country, which have resulted in arrests and condemnation from some officials, and plaudits from others.`\
+https://nytimes.com/2026/02/27/us/politics/washington-student-ice-protests.html
+
 **Student Remains in Honduras After ICE Vows to Deport Her Again**\
 `Any Lucia López Belloza was deported by mistake. A judge ordered her return by Friday. When the Trump administration sent a plane, she decided not to get on.`\
 https://nytimes.com/2026/02/27/us/politics/college-student-honduras-deportation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7076344/2026/02/27/packers-hiring-cam-achord-as-new
 **Iris Cantor, Philanthropist and Art Collector, Dies at 95**\
 `She and her husband, the financier B. Gerald Cantor, amassed one of the largest private collections of Rodin artworks, donating much of it to museums around the world.`\
 https://nytimes.com/2026/02/27/giving/iris-cantor-dead.html
-
-**30 More People Are Indicted in Anti-ICE Church Protest in Minnesota**\
-`The newly indicted people join nine others, including Don Lemon, in facing charges in connection to a protest of President Trump’s immigration crackdown during a worship service.`\
-https://nytimes.com/2026/02/27/us/minnesota-ice-cities-church-indictment.html
-
-**Tyler Seguin out for rest of season, including playoffs: Sources**\
-`Tyler Seguin had surgery to repair a torn ACL in his right knee on Dec. 16 after being injured in New York against the Rangers on Dec. 2.`\
-https://nytimes.com/athletic/7076259/2026/02/27/stars-tyler-seguin-injury-season/
 
