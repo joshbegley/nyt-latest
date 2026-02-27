@@ -1,3 +1,7 @@
+**With Possible Strike Looming, U.S. Says Staff Can Leave Israel, and Urges Speed**\
+`In an email to embassy workers Friday morning, Ambassador Mike Huckabee warned them that if they wanted to leave Israel, they “should do so TODAY.”`\
+https://nytimes.com/2026/02/27/world/middleeast/us-embassy-jerusalem-authorized-departure.html
+
 **A Prada Show So Good, It Overshadowed Mark Zuckerberg**\
 `Miuccia Prada and Raf Simons offer a multilayered meditation on dressing. And some really great shoes.`\
 https://nytimes.com/2026/02/27/style/prada-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/arts/television/late-night-trump-state-of-the-uni
 **Dominican Republic shocks USA Basketball in World Cup qualifier**\
 `While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
 https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
-
-**Word of the Day: interpolate**\
-`This word has appeared in three articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
 
