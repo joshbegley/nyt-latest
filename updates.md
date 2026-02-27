@@ -1,3 +1,7 @@
+**This Year, It Will Be the ‘Trump Kennedy Center Honors’**\
+`Despite plans to close the building this summer for a two-year reconstruction project, the renamed ceremony will be held elsewhere, the center’s president said.`\
+https://nytimes.com/2026/02/27/arts/trump-kennedy-center-honors.html
+
 **An Update: Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
 `On Friday, the state approved a settlement that included a $3,000 fine but no acknowledgment of guilt for a tree poisoning that riled people in scenic Rockport, Maine.`\
 https://nytimes.com/2026/02/27/us/politics/maine-tree-poisoning.html

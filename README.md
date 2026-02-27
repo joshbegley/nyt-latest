@@ -1,3 +1,7 @@
+**Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
+`With a genius for melody and keen commercial instincts, he sang and co-wrote some of the definitive teenage anthems of the late 1950s and early ’60s and then reinvented his career in the ’70s.`\
+https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html
+
 **This Year, It Will Be the ‘Trump Kennedy Center Honors’**\
 `Despite plans to close the building this summer for a two-year reconstruction project, the renamed ceremony will be held elsewhere, the center’s president said.`\
 https://nytimes.com/2026/02/27/arts/trump-kennedy-center-honors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075772/2026/02/27/steelers-nflpa-report-card-acris
 **Sondra Lee Dies at 97; Originated Roles in ‘Peter Pan’ and ‘Hello, Dolly!’**\
 `With her frenetic energy and 4-foot-10 frame, Ms. Lee seemed destined to play a certain kind of stage character: excitable, endearing and charmingly scheming.`\
 https://nytimes.com/2026/02/27/theater/sondra-lee-dead.html
-
-**War Court Prosecutor Asks Panel to Overturn Torture Finding in 9/11 Case**\
-`An appeals court heard a government effort to resurrect the 2007 interrogations of a prisoner at Guantánamo Bay.`\
-https://nytimes.com/2026/02/27/us/politics/war-court-torture.html
 
