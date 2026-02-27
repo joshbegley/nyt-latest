@@ -1,3 +1,7 @@
+**NHL clears Senators' Arthur Kaliyev to return after gambling allegations**\
+`Kaliyev, 24, was accused of scamming by former partner Lauren Mochen last November through a series of TikTok videos.`\
+https://nytimes.com/athletic/7074416/2026/02/26/arthur-kaliyev-called-up-nhl-gambling-allegations-cleared/
+
 **‘The Pitt’ Season 2, Episode 8 Recap: Unplugged**\
 `Without internet, the Pitt was even more chaotic than usual. This on a national holiday on which people blow up things for fun.`\
 https://nytimes.com/2026/02/26/arts/television/the-pitt-recap-season-2-episode-8.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.htm
 **Vance Continues to Criticize Democrats’ Attitude During State of the Union**\
 `Speaking in Wisconsin to support Republicans ahead of the midterm elections, Vice President JD Vance reminded his audience that Democrats had not stood up at the president’s behest on Tuesday.`\
 https://nytimes.com/2026/02/26/us/politics/vance-wisconsin-democrats-midterms.html
-
-**Minnesota Offers Plan to Fight Fraud as Trump Moves to Freeze Funds**\
-`Gov. Tim Walz of Minnesota laid out legislative measures to prevent fraud after a scandal that has upended the political landscape in the state.`\
-https://nytimes.com/2026/02/26/us/minnesota-fraud-medicaid.html
 
