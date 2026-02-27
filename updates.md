@@ -1,3 +1,11 @@
+**Fewer Detectives Will Hunt for Nancy Guthrie, Signaling a New Phase**\
+`After a month with little visible progress, the sheriff in Pima County, Ariz., is sending some deputies back to their regular units.`\
+https://nytimes.com/2026/02/27/us/nancy-guthrie-detectives.html
+
+**Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
+`He sang and co-wrote some of the definitive teenage anthems of the 1950s and early ’60s, including “Breaking Up Is Hard to Do,” and then reinvented his career in the ’70s.`\
+https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html
+
 **Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
 `With a genius for melody and keen commercial instincts, he sang and co-wrote some of the definitive teenage anthems of the late 1950s and early ’60s, and then reinvented his career in the ’70s.`\
 https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html

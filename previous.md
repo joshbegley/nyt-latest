@@ -1,5 +1,9 @@
+**Fewer Detectives Will Hunt for Nancy Guthrie, Signaling a New Phase**\
+`After a month with little visible progress, the sheriff in Pima County, Ariz., is sending some deputies back to their regular units.`\
+https://nytimes.com/2026/02/27/us/nancy-guthrie-detectives.html
+
 **Neil Sedaka, Singing Craftsman of Memorable Pop Songs, Dies at 86**\
-`With a genius for melody and keen commercial instincts, he sang and co-wrote some of the definitive teenage anthems of the late 1950s and early ’60s, and then reinvented his career in the ’70s.`\
+`He sang and co-wrote some of the definitive teenage anthems of the 1950s and early ’60s, including “Breaking Up Is Hard to Do,” and then reinvented his career in the ’70s.`\
 https://nytimes.com/2026/02/27/arts/music/neil-sedaka-dead.html
 
 **This Year, It Will Be the ‘Trump Kennedy Center Honors’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/climate/greenpeace-energy-transfer-verdict-dakota
 **It’s the turf Aaron Rodgers once called ‘borderline unplayable’ — how will the Steelers fix it?**\
 `Their stadium's turf was one of a series of low grades the organization received on this year's NFLPA report cards.`\
 https://nytimes.com/athletic/7075772/2026/02/27/steelers-nflpa-report-card-acrisure-stadium-turf/
-
-**Sondra Lee Dies at 97; Originated Roles in ‘Peter Pan’ and ‘Hello, Dolly!’**\
-`With her frenetic energy and 4-foot-10 frame, Ms. Lee seemed destined to play a certain kind of stage character: excitable, endearing and charmingly scheming.`\
-https://nytimes.com/2026/02/27/theater/sondra-lee-dead.html
 
