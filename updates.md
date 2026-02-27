@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Pentagon’s Laser Strike on U.S. Drone Raises Alarms**\
+``\
+https://nytimes.com/live/2026/02/27/us/trump-bill-clinton-epstein
+
+**February blahs: Bulls complete winless month, extend losing streak to 11 games**\
+`Chicago remade its roster around the trade deadline earlier this month and hasn't won since. At least its draft position is improving.`\
+https://nytimes.com/athletic/7075025/2026/02/27/bulls-losing-streak-tank-nba-draft/
+
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/27/us/nancy-guthrie-updates
+
 **Forest draw Midtjylland in Europa League last-16**\
 `Vitor Pereira's side beat Fenerbahce 4-2 on aggregate in the play-offs to secure qualification to the knockouts.`\
 https://nytimes.com/athletic/7075179/2026/02/27/nottingham-forest-europa-league-midtjylland/

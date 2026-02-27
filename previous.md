@@ -1,3 +1,15 @@
+**Trump Administration Live Updates: Pentagon’s Laser Strike on U.S. Drone Raises Alarms**\
+``\
+https://nytimes.com/live/2026/02/27/us/trump-bill-clinton-epstein
+
+**February blahs: Bulls complete winless month, extend losing streak to 11 games**\
+`Chicago remade its roster around the trade deadline earlier this month and hasn't won since. At least its draft position is improving.`\
+https://nytimes.com/athletic/7075025/2026/02/27/bulls-losing-streak-tank-nba-draft/
+
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/27/us/nancy-guthrie-updates
+
 **Forest draw Midtjylland in Europa League last-16**\
 `Vitor Pereira's side beat Fenerbahce 4-2 on aggregate in the play-offs to secure qualification to the knockouts.`\
 https://nytimes.com/athletic/7075179/2026/02/27/nottingham-forest-europa-league-midtjylland/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7074994/2026/02/27/fantasy-premier-league-live-qa-g
 **The Sixers were wobbling but chose to fight. Now they've won 3 straight**\
 `After some bad losses around the All-Star break, Tyrese Maxey challenged his teammates. They've responded, including Thursday vs. Miami.`\
 https://nytimes.com/athletic/7074875/2026/02/27/sixers-winning-streak-maxey-embiid/
-
-**Premier League pushing for temporary concussion substitutes discussion**\
-`The topic is not on the agenda for the AGM of football's lawmakers, IFAB, which will take place in Wales on Saturday.`\
-https://nytimes.com/athletic/7075131/2026/02/27/premier-league-concussion-substitutes-ifab/
-
-**USMNT midfielder Tillman avoids serious ankle injury**\
-`The 23-year-old is expected to miss Bayer Leverkusen’s Bundesliga game against Mainz on Saturday.`\
-https://nytimes.com/athletic/7075067/2026/02/27/malik-tillman-injury-update-usmnt-leverkusen/
-
-**Men's college basketball weekend guide: Michigan-Illinois, Virginia-Duke, bubble games**\
-`And so begins college basketball's long, dramatic denouement. We're about to turn the calendar to March. Here's what to watch this weekend.`\
-https://nytimes.com/athletic/7068903/2026/02/27/michigan-illinois-virginia-duke-kansas-arizona-how-to-watch/
 
