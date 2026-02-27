@@ -1,3 +1,7 @@
+**Blue Jackets come out with a burst, but Bruins get win behind Korpisalo, Kuraly**\
+`The Blue Jackets were proud of their play despite not quite being able to solve former teammate Joonas Korpisalo.`\
+https://nytimes.com/athletic/7074541/2026/02/26/blue-jackets-werenski-korpisalo-kuraly-bruins/
+
 **The Warning Signs Flashing From the Tech-Heavy Bloat of the S&P 500**\
 `The shifting composition of big public companies in the stock index shows how lopsided and less dynamic the American economy has become.`\
 https://nytimes.com/interactive/2026/02/26/business/stock-market-sp-500-nvidia-tech-bubble-crises.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-eve
 **In Trump’s Case for War, a Series of False or Unproven Claims**\
 `Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
 https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
-
-**2026 NFLPA report cards: Grades for all 32 teams**\
-`The NFLPA team report card survey seeks players' feedback on working conditions for all 32 NFL teams.`\
-https://nytimes.com/athletic/7074178/2026/02/26/nflpa-report-cards-2026-grades/
 
