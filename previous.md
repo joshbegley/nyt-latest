@@ -1,3 +1,11 @@
+**30 More People Are Indicted in Anti-ICE Church Protest in Minnesota**\
+`The newly indicted people join nine others, including Don Lemon, in facing charges in connection to a protest of President Trump’s immigration crackdown during a worship service.`\
+https://nytimes.com/2026/02/27/us/minnesota-ice-cities-church-indictment.html
+
+**Tyler Seguin out for rest of season, including playoffs: Sources**\
+`Tyler Seguin had surgery to repair a torn ACL in his right knee on Dec. 16 after being injured in New York against the Rangers on Dec. 2.`\
+https://nytimes.com/athletic/7076259/2026/02/27/stars-tyler-seguin-injury-season/
+
 **Judge Approves $345 Million Verdict Against Greenpeace in Pipeline Suit**\
 `Greenpeace has said the verdict could bankrupt it. The lawsuit was over the group’s role in protests against the Dakota Access Pipeline.`\
 https://nytimes.com/2026/02/27/climate/greenpeace-energy-transfer-verdict-dakota-access.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/us/novartis-settlement-henrietta-lacks-stolen-cel
 **Rangers claim forward Tye Kartye off waivers from Kraken**\
 `Tye Kartye will join a glut of bottom-six forwards on the Rangers vying for playing time.`\
 https://nytimes.com/athletic/7076109/2026/02/27/rangers-tye-kartye-waivers-kraken/
-
-**The 3 Best Lip Liners **\
-``\
-https://nytimes.com/card/2026/02/27/smarter-living/wirecutter/
-
-**Kamala Harris Endorses Jasmine Crockett in Texas Senate Race**\
-`The endorsement from the former vice president, her most significant since leaving office, comes as Ms. Crockett is facing a competitive Democratic primary contest against James Talarico.`\
-https://nytimes.com/2026/02/27/us/politics/kamala-harris-endorses-jasmine-crockett-texas-senate.html
 
