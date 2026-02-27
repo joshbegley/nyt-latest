@@ -1,3 +1,19 @@
+**Jose Lima was one of baseball's true characters. He also had a unique perspective on failure**\
+`Jose Lima loved baseball, but he didn’t take himself too seriously. He also didn't take failure too seriously.`\
+https://nytimes.com/athletic/7074557/2026/02/27/jose-lima-failure-philosophy-perspective/
+
+**Dynasty league baseball rankings: Top 400 players, from Shohei Ohtani to Luisangel Acuña**\
+`Chris Welsh shares his top-400 dynasty list for fantasy baseball and explains how he values players at opposite ends of the age spectrum.`\
+https://nytimes.com/athletic/7073706/2026/02/27/dynasty-rankings-fantasy-baseball-2026/
+
+**How defender Emily Sonnett became the USWNT most consistent player**\
+`The 32-year-old defender has found staying power in her consistency and quiet leadership.`\
+https://nytimes.com/athletic/7067359/2026/02/27/emily-sonnett-uswnt-quiet-leadership/
+
+**Women's basketball bracket watch: Assessing weird seasons of Tennessee, Notre Dame and more**\
+`The Lady Vols and Irish are likely safe, but they've had unusual seasons. `\
+https://nytimes.com/athletic/7074667/2026/02/27/womens-basketball-bracket-tennessee-notre-dame/
+
 **'Was it a good race?' 10 years and 5.5 million votes later, the Top 10**\
 `Every NASCAR Cup Series race for the past 10 years, The Athletic's Jeff Gluck has asked fans a simple question: "Was it a good race?"`\
 https://nytimes.com/athletic/7071174/2026/02/27/jeff-gluck-twitter-poll-nascar-good-race/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7074625/2026/02/27/red-wings-dylan-larkin-olympics-
 **Joey Cantillo, Emmet Sheehan and other potential MLB breakout pitchers for 2026**\
 `These pitchers meet the criteria to be potential breakout starters this season, though some breakouts seem more likely than others.`\
 https://nytimes.com/athletic/7069000/2026/02/27/mlb-pitching-breakout-candidates-2026/
-
-**Remembering the Converse Weapons commercial: When NBA legends became rappers**\
-`It's a cherished historical chestnut now, but when Converse had NBA stars rap to promote their new "Weapons," it changed the game.`\
-https://nytimes.com/athletic/7070805/2026/02/27/nba-converse-weapons-commercial-1986/
-
-**Lions' Terrion Arnold linked to alleged armed robbery, kidnapping in Florida**\
-`Boakai Hilton allegedly planned the robbery and kidnapping of three people while with Arnold, in retaliation for thefts at Arnold's rental.`\
-https://nytimes.com/athletic/7074828/2026/02/27/lions-terrion-arnold-robbery-kidnapping-florida/
-
-**The Canadiens have progressed in many ways, but playing with a lead is not one of them**\
-`If the Canadiens want to mature into a winning team, they will need to show more maturity in closing out games they are leading. `\
-https://nytimes.com/athletic/7074822/2026/02/27/canadiens-lose-islanders-playing-with-a-lead/
-
-**Mets' director of hitting on a new hierarchy and an evolving role: Q&A with Jeff Albert**\
-`Albert explains his teaching style, his view of the lineup, his thoughts on situtational hitting and more: "I can't wait."`\
-https://nytimes.com/athletic/7068254/2026/02/27/mets-director-hitting-jeff-albert/
 
