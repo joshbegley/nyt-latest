@@ -1,3 +1,11 @@
+**Read the Indictment**\
+`The Justice Department announced that 30 additional people were charged with disrupting a church service during a protest in Minnesota last month.`\
+https://nytimes.com/interactive/2026/02/27/us/doj-church-indictment.html
+
+**Inter Miami to visit White House next week to mark MLS Cup win**\
+`The team will visit on Thursday, March 5, according to a White House official.`\
+https://nytimes.com/athletic/7076260/2026/02/27/inter-miami-white-house-visit/
+
 **Henrietta Lacks’s Family Settles Suit With Novartis Over Use of Her Cells**\
 `Ms. Lacks’s family accused Novartis of profiting from her cells, which were taken from her without her consent in 1951, when she was dying of cervical cancer.`\
 https://nytimes.com/2026/02/27/us/novartis-settlement-henrietta-lacks-stolen-cells.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/books/review/podcast-wuthering-heights-book-club-
 **Dowman makes Arsenal Under-21 return after ankle injury**\
 `Dowman, 16, was named in the starting XI and was withdrawn at half-time against Ipswich.`\
 https://nytimes.com/athletic/7076210/2026/02/27/max-dowman-injury-return/
-
-**How to watch Knicks vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076215/2026/02/27/knicks-vs-bucks-stream-how-to-watch-feb-27/
-
-**How to watch Grizzlies vs. Mavericks: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Dallas Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7076213/2026/02/27/grizzlies-vs-mavericks-stream-how-to-watch-feb-27/
 
