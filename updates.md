@@ -1,3 +1,7 @@
+**South Korea Clears Way for Google Maps to Fully Operate**\
+`South Korea approved Google’s request to export detailed map data, reversing a longstanding restriction that made the tool largely nonfunctional.`\
+https://nytimes.com/2026/02/27/world/asia/google-maps-south-korea.html
+
 **The Cult of Marni Returns**\
 `Meryll Rogge makes her debut at the house, and brings it back to its roots.`\
 https://nytimes.com/2026/02/27/style/marni-fall-2026.html
