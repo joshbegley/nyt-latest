@@ -1,4 +1,8 @@
 **Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
+`Appearing on the NBC programs will make an already high-mileage week even more demanding for the Wild defenseman.`\
+https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
+
+**Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
 `After each scoring game-winning goals in OT, the Hughes brothers have been criticized for their political decorum following the Games.`\
 https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
 
