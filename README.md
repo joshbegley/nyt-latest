@@ -1,3 +1,11 @@
+**Josh Sargent is in Toronto, looking forward after 'complicated' Norwich transfer saga**\
+`Sargent was banished to Norwich's U-21s after making his transfer request, but he finally has his wish: a new start in MLS`\
+https://nytimes.com/athletic/7068685/2026/02/27/josh-sargent-interview-toronto-fc-norwich-city-transfer-mls-usmnt/
+
+**Lowetide: Has Oilers rookie winger Matt Savoie turned the corner?**\
+`Savoie's development as a bona fide contributor to a successful contender represents a major accomplishment.`\
+https://nytimes.com/athletic/7073942/2026/02/27/edmonton-oilers-matt-savoie-stats-trade-deadline-2026/
+
 **OpenAI Raises $110 Billion to Fuel Growth, Extending A.I. Boom**\
 `Amazon, Nvidia and SoftBank led the investment, valuing the parent of ChatGPT at $730 billion.`\
 https://nytimes.com/2026/02/27/business/openai-funding.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united
 **John Lynch likes the 49ers current offensive line, but says 'we'll add to it'**\
 `“We want to continue to grow our offensive line,” Lynch said. “But we like the guys we have.”`\
 https://nytimes.com/athletic/7073377/2026/02/27/49ers-offensive-line-nfl-draft-john-lynch/
-
-**The I.R.S. Shut Its Direct File, but Here Are Other Free Filing Options**\
-`The agency still offers a Free File program that works with commercial tax software firms. Some companies also offer free tools for certain filers.`\
-https://nytimes.com/2026/02/27/your-money/irs-free-tax-filing.html
-
-**Breakdown of a takedown: How Lionel Messi was floored as pitch invaders interrupt Inter Miami friendly**\
-`The friendly fixture in Puerto Rico had to be paused late on as fans evaded security to run on to the pitch and greet the Argentinean`\
-https://nytimes.com/athletic/7075050/2026/02/27/messi-inter-miami-puerto-rico-pitch-invaders/
 
