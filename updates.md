@@ -1,3 +1,7 @@
+**Vance Continues to Criticize Democrats’ Attitude During State of the Union**\
+`Speaking in Wisconsin to support Republicans ahead of the midterm elections, Vice President JD Vance reminded his audience that Democrats had not stood up at the president’s behest on Tuesday.`\
+https://nytimes.com/2026/02/26/us/politics/vance-wisconsin-democrats-midterms.html
+
 **Minnesota Offers Plan to Fight Fraud as Trump Moves to Freeze Funds**\
 `Gov. Tim Walz of Minnesota laid out legislative measures to prevent fraud after a scandal that has upended the political landscape in the state.`\
 https://nytimes.com/2026/02/26/us/minnesota-fraud-medicaid.html

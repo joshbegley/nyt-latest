@@ -1,3 +1,7 @@
+**Vance Continues to Criticize Democrats’ Attitude During State of the Union**\
+`Speaking in Wisconsin to support Republicans ahead of the midterm elections, Vice President JD Vance reminded his audience that Democrats had not stood up at the president’s behest on Tuesday.`\
+https://nytimes.com/2026/02/26/us/politics/vance-wisconsin-democrats-midterms.html
+
 **Minnesota Offers Plan to Fight Fraud as Trump Moves to Freeze Funds**\
 `Gov. Tim Walz of Minnesota laid out legislative measures to prevent fraud after a scandal that has upended the political landscape in the state.`\
 https://nytimes.com/2026/02/26/us/minnesota-fraud-medicaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
 **Read Judge Schiltz’s Order**\
 `In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
 https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
-
-**Judge Says U.S. Is Intentionally Violating the Law on Immigration**\
-`Judge Zahid N. Quraishi said federal prosecutors in New Jersey had lost credibility on immigration issues. He’s the latest federal judge to show impatience with the Trump administration.`\
-https://nytimes.com/2026/02/26/nyregion/new-jersey-trump-immigration-federal-judge.html
 
