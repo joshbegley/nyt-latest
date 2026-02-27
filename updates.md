@@ -1,3 +1,7 @@
+**Highly rated college admissions counselors based on parent reviews as of Jan 2026**\
+`College admissions is no longer a straightforward process; it has become a competitive process that requires thoughtfulness and customization.`\
+https://nytimes.com/paidpost/empowerly/highly-rated-college-admissions-counselors-based-on-parent-reviews-as-of-jan-2026.html
+
 **U.S.S. Ford Steams Toward a Possible War**\
 `The Navy’s newest aircraft carrier has had mechanical problems throughout its eight-month deployment, but officials now say it is ready for battle. Take a look inside the ship.`\
 https://nytimes.com/2026/02/27/us/politics/uss-ford-iran.html

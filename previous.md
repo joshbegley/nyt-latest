@@ -1,3 +1,7 @@
+**Highly rated college admissions counselors based on parent reviews as of Jan 2026**\
+`College admissions is no longer a straightforward process; it has become a competitive process that requires thoughtfulness and customization.`\
+https://nytimes.com/paidpost/empowerly/highly-rated-college-admissions-counselors-based-on-parent-reviews-as-of-jan-2026.html
+
 **U.S.S. Ford Steams Toward a Possible War**\
 `The Navy’s newest aircraft carrier has had mechanical problems throughout its eight-month deployment, but officials now say it is ready for battle. Take a look inside the ship.`\
 https://nytimes.com/2026/02/27/us/politics/uss-ford-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/supreme-court-thomas-security.html
 **The Epstein Files and Our Broken Public Trust**\
 `Readers discuss an Opinion guest essay by Daniel Richman. Also: A response from Deputy Attorney General Todd Blanche; President Trump and seniors’ health.`\
 https://nytimes.com/2026/02/27/opinion/jeffrey-epstein-files.html
-
-**McLaren agrees settlement with Chip Ganassi Racing over Palou contract breach**\
-`McLaren won the case it brought against Palou following his decision to renege on his agreement to join its IndyCar team in 2023.`\
-https://nytimes.com/athletic/7075839/2026/02/27/mclaren-alex-palou-chip-ganassi-racing-settlement/
 
