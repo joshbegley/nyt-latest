@@ -1,3 +1,11 @@
+**Why Sonny Styles was the biggest winner of 2026 NFL combine's first on-field workouts**\
+`Styles may have guaranteed himself a top-10 NFL Draft selection with his combine performance.`\
+https://nytimes.com/athletic/7075474/2026/02/27/nfl-combine-player-field-workout-winners-draft/
+
+**Dispute Between Pentagon and Anthropic Intensifies as Deadline Looms**\
+`Defense officials criticized the A.I. firm after it rejected their latest offer. Anthropic has until 5:01 p.m. on Friday to give them unrestricted access to its model.`\
+https://nytimes.com/2026/02/27/us/politics/anthropic-military-ai.html
+
 **Mailbag: Will Crosby play in 2030 Olympics? Who's on an all-time Penguins roster?**\
 `Josh Yohe opens his mailbag for a Penguins thought exercise and all kinds of questions and answers about the Olympics.`\
 https://nytimes.com/athletic/7038670/2026/02/27/sidney-crosby-olympics-hockey-canada-penguins/
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010732118/mapping-the-risks-of-
 **Chelsea held squad meeting to support players after Fofana abuse**\
 `Head coach Liam Rosenior also revealed the club brought in Dr Michael Bennett from the PFA as head of performance wellbeing last June.`\
 https://nytimes.com/athletic/7075433/2026/02/27/chelsea-fofana-racism-bennett/
-
-**Ranking the NHL's 10 biggest trade deadline buyers and sellers**\
-`Who are the most likely buyers and sellers? And let's take a deeper look at which players might be on the trade block over the next week.`\
-https://nytimes.com/athletic/7075445/2026/02/27/nhl-trade-deadline-buyers-sellers-red-light/
-
-**The Bounce: Why the internet is roasting the Lakers' Deandre Ayton**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7075452/2026/02/27/deandre-ayton-clint-capela-lakers-nba-the-bounce/
 

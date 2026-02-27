@@ -1,3 +1,7 @@
+**Fernando Mendoza on Raiders, working with Tom Brady: 'I’m all about learning'**\
+`Mendoza: "To be able to have the opportunity to be mentored by (Brady) would mean so much, especially to learn."`\
+https://nytimes.com/athletic/7075383/2026/02/27/fernando-mendoza-raiders-tom-brady-nfl-combine/
+
 **Why Sonny Styles was the biggest winner of 2026 NFL combine's first on-field workouts**\
 `Styles may have guaranteed himself a top-10 NFL Draft selection with his combine performance.`\
 https://nytimes.com/athletic/7075474/2026/02/27/nfl-combine-player-field-workout-winners-draft/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/02/27/movies/new-movies-this-week-critics.html
 **Mapping the Risks of Attacking Iran**\
 `Our national security correspondent David E. Sanger maps Iran’s options for retaliation if the United States or Israel strikes.`\
 https://nytimes.com/video/world/middleeast/100000010732118/mapping-the-risks-of-attacking-iran.html
-
-**Chelsea held squad meeting to support players after Fofana abuse**\
-`Head coach Liam Rosenior also revealed the club brought in Dr Michael Bennett from the PFA as head of performance wellbeing last June.`\
-https://nytimes.com/athletic/7075433/2026/02/27/chelsea-fofana-racism-bennett/
 

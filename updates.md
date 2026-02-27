@@ -1,3 +1,11 @@
+**Why Sonny Styles was the biggest winner of 2026 NFL combine's first on-field workouts**\
+`Styles may have guaranteed himself a top-10 NFL Draft selection with his combine performance.`\
+https://nytimes.com/athletic/7075474/2026/02/27/nfl-combine-player-field-workout-winners-draft/
+
+**Dispute Between Pentagon and Anthropic Intensifies as Deadline Looms**\
+`Defense officials criticized the A.I. firm after it rejected their latest offer. Anthropic has until 5:01 p.m. on Friday to give them unrestricted access to its model.`\
+https://nytimes.com/2026/02/27/us/politics/anthropic-military-ai.html
+
 **Mailbag: Will Crosby play in 2030 Olympics? Who's on an all-time Penguins roster?**\
 `Josh Yohe opens his mailbag for a Penguins thought exercise and all kinds of questions and answers about the Olympics.`\
 https://nytimes.com/athletic/7038670/2026/02/27/sidney-crosby-olympics-hockey-canada-penguins/
