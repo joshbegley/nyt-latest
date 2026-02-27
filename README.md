@@ -19,11 +19,11 @@ https://nytimes.com/2026/02/26/nyregion/new-jersey-trump-immigration-federal-jud
 https://nytimes.com/2026/02/26/us/dog-abandoned-las-vegas-airport-adopted.html
 
 **Justice Department Sues 5 States, Most Republican-Led, for Voter Data**\
-`The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and West Virginia, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
+`The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and New Jersey, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
 https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-voter-data.html
 
-**Los Angeles School Board Will Meet to Discuss Superintendent After F.B.I. Raid**\
-`The meeting comes after agents raided the home and office of Alberto Carvalho, the Los Angeles Unified School District superintendent. The F.B.I. also searched the Florida home of a consultant with ties to the schools chief.`\
+**After F.B.I. Raid, Los Angeles School Board Will Discuss Superintendent**\
+`Board members will meet Thursday after agents raided the home and office of Alberto Carvalho, the Los Angeles Unified School District superintendent. The F.B.I. also searched the Florida home of a consultant with ties to the schools chief.`\
 https://nytimes.com/2026/02/26/us/los-angeles-school-board-meeting-superintendent-fbi-raid.html
 
 **NHL trade rumblings: Latest on Stamkos, O'Reilly, Kadri, Giroux, the Panthers, Canadiens and more**\

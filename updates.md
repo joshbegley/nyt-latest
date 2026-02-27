@@ -1,3 +1,7 @@
+**Supreme Court Lawyer Who Moonlit in High-Stakes Poker Is Convicted of Tax Fraud**\
+`The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
+https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
+
 **U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
 `Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
 https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html

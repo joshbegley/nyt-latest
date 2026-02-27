@@ -1,3 +1,7 @@
+**Supreme Court Lawyer Who Moonlit in High-Stakes Poker Is Convicted of Tax Fraud**\
+`The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
+https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
+
 **U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
 `Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
 https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/business/media/state-of-the-union-nielsen-ratings
 **Trump’s Yes-Men Presidency**\
 `Trump’s State of the Union was a mirror of his administration. On “The Ezra Klein Show,” Ezra and the Times Opinion editor Aaron Retica discuss the yes-man culture surrounding Trump.`\
 https://nytimes.com/video/opinion/100000010732776/trumps-yes-men-presidency.html
-
-**Federal Judge Accuses Trump Administration of Repeatedly Disobeying Orders**\
-`The judge warned government officials that they would be held in criminal contempt if the pattern, related to immigration enforcement in Minnesota, continues.`\
-https://nytimes.com/2026/02/26/us/minnesota-judge-ice-immigration.html
 
