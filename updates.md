@@ -1,3 +1,11 @@
+**Prosecutors Plan to Drop 2 Charges Against Alexander Brothers**\
+`A federal judge in the case must decide whether she will approve dropping the charges against the brothers, who are accused of sex trafficking.`\
+https://nytimes.com/2026/02/27/nyregion/alexander-brothers-trial-sex-charges-dropped.html
+
+**Were Duterte’s Speeches Orders to Kill or Hyperbole?**\
+`Judges at the International Criminal Court have heard starkly different interpretations this week of the words of former President Rodrigo Duterte of the Philippines.`\
+https://nytimes.com/2026/02/27/world/asia/rodrigo-duterte-icc-trial-hague.html
+
 **Luke Combs Opens Up About Body-Image Issues**\
 `On “Popcast,” the country superstar Luke Combs, known for hits like “Beer Never Broke My Heart” and his cover of Tracy Chapman’s “Fast Car,” discussed how body-image issues have affected him throughout his career.`\
 https://nytimes.com/video/podcasts/100000010738787/luke-combs-opens-up-about-body-image-issues.html
