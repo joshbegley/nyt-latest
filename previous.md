@@ -1,3 +1,7 @@
+**NHL trade rumblings: Latest on Stamkos, O'Reilly, Kadri, Giroux, the Panthers, Canadiens and more**\
+`Also: Why the Sharks could flip Sherwood, the Stars await Seguin news and why the Blue Jackets aren't selling ahead of the March 6 deadline.`\
+https://nytimes.com/athletic/7074080/2026/02/26/nhl-trade-deadline-stamkos-oreilly-kadri/
+
 **32.6 Million Watched State of the Union, Nielsen Says**\
 `The audience was roughly on par with former President Biden’s final State of the Union address in 2024.`\
 https://nytimes.com/2026/02/26/business/media/state-of-the-union-nielsen-ratings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/nyregion/nyc-china-hometown-oklahoma-marijuana.ht
 **Will Rueben Bain Jr.'s short arms impact his 2026 NFL Draft stock?**\
 `Bain measured in with an arm length of 30 7/8 inches, which would be among the shortest in recent history for a drafted edge rusher.`\
 https://nytimes.com/athletic/7074047/2026/02/26/nfl-draft-2026-rueben-bain-jr-arm-length/
-
-**Jeff Galloway Made Me a Marathoner**\
-`The distance running icon, who died Wednesday at 80, taught me to endure. In December, we shared his final run.`\
-https://nytimes.com/2026/02/26/well/move/jeff-galloway-running-tribute.html
 

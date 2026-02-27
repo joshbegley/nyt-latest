@@ -1,3 +1,7 @@
+**NHL trade rumblings: Latest on Stamkos, O'Reilly, Kadri, Giroux, the Panthers, Canadiens and more**\
+`Also: Why the Sharks could flip Sherwood, the Stars await Seguin news and why the Blue Jackets aren't selling ahead of the March 6 deadline.`\
+https://nytimes.com/athletic/7074080/2026/02/26/nhl-trade-deadline-stamkos-oreilly-kadri/
+
 **32.6 Million Watched State of the Union, Nielsen Says**\
 `The audience was roughly on par with former President Biden’s final State of the Union address in 2024.`\
 https://nytimes.com/2026/02/26/business/media/state-of-the-union-nielsen-ratings.html
