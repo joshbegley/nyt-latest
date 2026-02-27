@@ -1,3 +1,11 @@
+**E.U. Pushes Ahead With South American Trade Deal Despite Legal Challenge**\
+`The provisional application of the agreement with Brazil, Argentina, Paraguay and Uruguay is intended to diversify Europe’s trading relationships.`\
+https://nytimes.com/2026/02/27/business/eu-mercosur-trade.html
+
+**Forest hopeful for Wood return in April after knee injury**\
+`There remains a mood of caution at the club while the New Zealand international continues his recovery, having been sidelined since October.`\
+https://nytimes.com/athletic/7075087/2026/02/27/chris-wood-nottingham-forest-injury-timeline/
+
 **Real Madrid's Raul Asencio to miss Getafe match with neck injury**\
 `The 23-year-old was taken off on a stretcher and with a neck brace on during the mid-week win against Benfica. `\
 https://nytimes.com/athletic/7074997/2026/02/27/raul-asencio-real-madrid-neck-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7069183/2026/02/27/dodgers-opening-day-rotation-spr
 **Premier League relegation battle: The pivotal fixtures this weekend**\
 `The Athletic runs through four fixtures with serious relegation implications this weekend`\
 https://nytimes.com/athletic/7075092/2026/02/27/premier-league-relegation-battle-the-pivotal-fixtures/
-
-**Champions League round of 16 draw analysed: Predictions, best games and star players**\
-`The Athletic's experts analyse the Champions League draw — and look at possible paths to the final`\
-https://nytimes.com/athletic/7075019/2026/02/27/champions-league-last-16-analysis/
-
-**Trump Administration Live Updates: Pentagon’s Laser Strike on U.S. Drone Raises Alarms**\
-``\
-https://nytimes.com/live/2026/02/27/us/trump-bill-clinton-epstein
 

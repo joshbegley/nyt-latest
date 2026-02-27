@@ -1,3 +1,11 @@
+**E.U. Pushes Ahead With South American Trade Deal Despite Legal Challenge**\
+`The provisional application of the agreement with Brazil, Argentina, Paraguay and Uruguay is intended to diversify Europe’s trading relationships.`\
+https://nytimes.com/2026/02/27/business/eu-mercosur-trade.html
+
+**Forest hopeful for Wood return in April after knee injury**\
+`There remains a mood of caution at the club while the New Zealand international continues his recovery, having been sidelined since October.`\
+https://nytimes.com/athletic/7075087/2026/02/27/chris-wood-nottingham-forest-injury-timeline/
+
 **Real Madrid's Raul Asencio to miss Getafe match with neck injury**\
 `The 23-year-old was taken off on a stretcher and with a neck brace on during the mid-week win against Benfica. `\
 https://nytimes.com/athletic/7074997/2026/02/27/raul-asencio-real-madrid-neck-injury/

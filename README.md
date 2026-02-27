@@ -1,3 +1,7 @@
+**Palace to play AEK Larnaca in Conference League round of 16**\
+`Palace are already familiar with Larnaca, having been defeated 1-0 at home by the Cypriot side in the league phase.`\
+https://nytimes.com/athletic/7075199/2026/02/27/crystal-palace-larnaca-conference-league-draw/
+
 **E.U. Pushes Ahead With South American Trade Deal Despite Legal Challenge**\
 `The provisional application of the agreement with Brazil, Argentina, Paraguay and Uruguay is intended to diversify Europe’s trading relationships.`\
 https://nytimes.com/2026/02/27/business/eu-mercosur-trade.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073474/2026/02/27/caleb-williams-ben-johnson-bears
 **Nothing is certain about the Dodgers' Opening Day rotation except uncertainty**\
 `With several starters headed to the WBC and others likely headed for the IL, the Dodgers are still ironing out the Opening Day rotation.`\
 https://nytimes.com/athletic/7069183/2026/02/27/dodgers-opening-day-rotation-spring-training/
-
-**Premier League relegation battle: The pivotal fixtures this weekend**\
-`The Athletic runs through four fixtures with serious relegation implications this weekend`\
-https://nytimes.com/athletic/7075092/2026/02/27/premier-league-relegation-battle-the-pivotal-fixtures/
 
