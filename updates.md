@@ -1,3 +1,15 @@
+**OpenAI Raises $110 Billion to Fuel Growth, Extending A.I. Boom**\
+`Amazon, Nvidia and SoftBank led the investment, valuing the parent of ChatGPT at $730 billion.`\
+https://nytimes.com/2026/02/27/business/openai-funding.html
+
+**Championship race reset: Spurs, Pistons and 6 other teams with a real shot**\
+`Remember when this was Oklahoma City’s title (defense) to lose? At this point, we have ourselves an all-out derby.`\
+https://nytimes.com/athletic/7074972/2026/02/27/nba-championship-race-thunder-spurs-pistons-knicks-celtics/
+
+**Blue Jays, Max Scherzer grant daughter’s wish with return to Toronto**\
+`Brooke Scherzer was hoping her dad would pitch in Toronto again, and she got her wish.`\
+https://nytimes.com/athletic/7072770/2026/02/27/scherzer-blue-jays-daughter-letter/
+
 **4 Things You Didn’t Know About the Plummeting U.S. Birthrate**\
 `There is good news buried behind the worries about population decline, some experts say.`\
 https://nytimes.com/2026/02/27/us/politics/us-birthrate-decline-takeaways.html
