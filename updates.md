@@ -1,3 +1,15 @@
+**Can Mamdani (and Trump) Build a Neighborhood Over a Queens Rail Yard?**\
+`Mayor Zohran Mamdani said President Trump was receptive to partnering on a project to build some 12,000 homes in Queens. Many hurdles still await.`\
+https://nytimes.com/2026/02/27/nyregion/sunnyside-yard-mamdani-trump.html
+
+**Bay FC signs Italy captain Cristiana Girelli on loan from Juventus**\
+`Girelli is expected to add her leadership and experience to a young Bay FC team ahead of their third NWSL season.`\
+https://nytimes.com/athletic/7075072/2026/02/27/bay-fc-signs-italy-captain-cristiana-girelli-loan-juventus/
+
+**Navy’s Newest Aircraft Carrier Heads to Mideast as It Fixes Nagging Problems**\
+`The carrier has had mechanical problems throughout its eight-month deployment, but officials now say it is ready for battle. Take a look inside the ship.`\
+https://nytimes.com/2026/02/27/us/politics/uss-ford-iran.html
+
 **A Lesson in Transforming the Bitter Into the Sweet**\
 `In her latest column, Yewande Komolafe explores the transformative powers of eru stew from Cameroon.`\
 https://nytimes.com/2026/02/27/dining/cameroon-eru-soup-stew-recipe.html
