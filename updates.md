@@ -1,3 +1,7 @@
+**Sam Coffey says USWNT has ‘responsibility’ to speak out in new era**\
+`Coffey said while it was easier as a younger player to look to older players, it's time for current players to advocate for change.`\
+https://nytimes.com/athletic/7074362/2026/02/26/sam-coffey-uswnt-social-issues-shebelieves-cup/
+
 **NHL clears Senators' Arthur Kaliyev to return after gambling allegations**\
 `Kaliyev, 24, was accused of scamming by former partner Lauren Mochen last November through a series of TikTok videos.`\
 https://nytimes.com/athletic/7074416/2026/02/26/arthur-kaliyev-called-up-nhl-gambling-allegations-cleared/
