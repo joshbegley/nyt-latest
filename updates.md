@@ -1,3 +1,7 @@
+**Are Germany’s Top Cultural Events Becoming Impossible to Run?**\
+`A dispute over free speech at the Berlin Film Festival around Israel’s actions in Gaza, and rumors of the festival director’s firing, raised broader worries about Germany’s cultural landscape.`\
+https://nytimes.com/2026/02/27/arts/berlin-film-festival-tricia-tuttle-israel-gaza.html
+
 **Carrick uncertain of De Ligt injury return**\
 `The 26-year-old centre-back has not featured for United since the victory at Crystal Palace on November 30.`\
 https://nytimes.com/athletic/7075323/2026/02/27/de-ligt-injury-manchester-united/
