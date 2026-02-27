@@ -1,3 +1,7 @@
+**Late Night Lampoons Trump’s State of the Union Ratings**\
+`Stephen Colbert joked that the president “is really dragging down broadcast television” with lower ratings for Tuesday’s State of the Union than last year’s address.`\
+https://nytimes.com/2026/02/27/arts/television/late-night-trump-state-of-the-union-ratings.html
+
 **Dominican Republic shocks USA Basketball in World Cup qualifier**\
 `While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
 https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live
 **'We got to find a way to win the game': Blackhawks coach rues missed opportunity**\
 `Connor Bedard scored and the team later led 2-1, but missteps in the final 15 minutes resulted in a 4-2 loss to the Predators.`\
 https://nytimes.com/athletic/7074354/2026/02/27/blackhawks-predators-nhl-connor-bedard/
-
-**The defensive transfers (in and out) you should be prioritising in FPL**\
-`Many managers are reaching a turning point when it comes to their investment in defence now that the dust has settled on Double Gameweek 26`\
-https://nytimes.com/athletic/7069974/2026/02/27/fantasy-premier-league-gameweek-28-fpl-tips-differentials/
 
