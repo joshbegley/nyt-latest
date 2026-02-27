@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Feb. 27, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/27/todays-new-york-times
+
+**Trump’s Shields Are Down**\
+`Personnel once meant policy; now it means flattery.`\
+https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
+
 **Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
 `Appearing on the NBC programs will make an already high-mileage week even more demanding for the Wild defenseman.`\
 https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7072246/2026/02/27/chelsea-arsenal-man-city-analysi
 **Joao Palhinha divided opinion at first, but he is exactly what Spurs need right now**\
 `After failing at Bayern, Pahlinha was considered by some as a better fit for a bottom-half side. Fittingly, that's where Spurs are at`\
 https://nytimes.com/athletic/7072205/2026/02/27/palhinha-spurs-midfied-tackles/
-
-**Axel Disasi can give West Ham the much-needed clout to upset Liverpool**\
-`West Ham have conceded just one goal in Axel Disasi's first four matches in their defence - can his extend his record at Anfield?`\
-https://nytimes.com/athletic/7071767/2026/02/27/axel-disasi-west-ham-liverpool/
-
-**Relentless pressing, sharper shooting and tactically aware: Is Anthony Gordon a striker now?**\
-`The 25-year-old is playing through the middle far more often now and it seems to be a role that suits both him and Newcastle United`\
-https://nytimes.com/athletic/7069964/2026/02/27/newcastle-gordon-striker-premier-league-champions-league/
 

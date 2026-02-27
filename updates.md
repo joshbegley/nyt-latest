@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Feb. 27, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/27/todays-new-york-times
+
+**Trump’s Shields Are Down**\
+`Personnel once meant policy; now it means flattery.`\
+https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
+
 **Minnesota Wild's Quinn Hughes to appear on 'SNL,' 'The Tonight Show'**\
 `Appearing on the NBC programs will make an already high-mileage week even more demanding for the Wild defenseman.`\
 https://nytimes.com/athletic/7074663/2026/02/27/quinn-hughes-saturday-night-live/
