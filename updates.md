@@ -1,3 +1,11 @@
+**The Epstein Files and Our Broken Public Trust**\
+`Readers discuss an Opinion guest essay by Daniel Richman. Also: A response from Deputy Attorney General Todd Blanche; President Trump and seniors’ health.`\
+https://nytimes.com/2026/02/27/opinion/jeffrey-epstein-files.html
+
+**McLaren agrees settlement with Chip Ganassi Racing over Palou contract breach**\
+`McLaren won the case it brought against Palou following his decision to renege on his agreement to join its IndyCar team in 2023.`\
+https://nytimes.com/athletic/7075839/2026/02/27/mclaren-alex-palou-chip-ganassi-racing-settlement/
+
 **The Giants' bullpen is far from set, but the roles will be clear**\
 `It's still unclear which eight pitchers will fill the Giants' bullpen at the start of the season, but their roles are easy to define.`\
 https://nytimes.com/athletic/7074780/2026/02/27/sf-giants-bullpen-roles-2026/
