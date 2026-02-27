@@ -1,3 +1,7 @@
+**The Lakers are talented but erratic. Their loss in Phoenix was further proof**\
+`For 44 minutes Thursday, the Lakers outscored the Suns by 26 points. And they still lost.`\
+https://nytimes.com/athletic/7075770/2026/02/27/suns-lakers-inconsistency-nba-standings/
+
 **The Maple Leafs can't afford to learn the wrong lessons from a lost season**\
 `MLSE president Keith Pelley offered a window this week into what he believes has gone wrong for the Leafs. He missed the mark.`\
 https://nytimes.com/athletic/7075565/2026/02/27/maple-leafs-treliving-pelley-nhl/
