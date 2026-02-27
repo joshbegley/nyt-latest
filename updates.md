@@ -1,3 +1,7 @@
+**The Shields Are Down, Mr. President**\
+`Personnel once meant policy; now it means flattery.`\
+https://nytimes.com/2026/02/27/opinion/trump-cabinet-noem-bondi-hegseth-lutnick.html
+
 **Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
 `The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
 https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
