@@ -1,3 +1,7 @@
+**Breakdown of a takedown: How Lionel Messi was floored as pitch invaders interrupt Inter Miami friendly**\
+`The friendly fixture in Puerto Rico had to be paused late on as fans evaded security to run on to the pitch and greet the Argentinean`\
+https://nytimes.com/athletic/7075050/2026/02/27/messi-inter-miami-puerto-rico-pitch-invaders/
+
 **Palace to play AEK Larnaca in Conference League round of 16**\
 `Palace are already familiar with Larnaca, having been defeated 1-0 at home by the Cypriot side in the league phase.`\
 https://nytimes.com/athletic/7075199/2026/02/27/crystal-palace-larnaca-conference-league-draw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074197/2026/02/27/chargers-nfl-combine-intel-2026/
 **As Caleb Williams and Ben Johnson prep for 2026, efficiency is the name of the game**\
 `Williams turned heads with his magic act last season in Chicago. Now comes the quest to continue mastering the routine.`\
 https://nytimes.com/athletic/7073474/2026/02/27/caleb-williams-ben-johnson-bears-2026/
-
-**Nothing is certain about the Dodgers' Opening Day rotation except uncertainty**\
-`With several starters headed to the WBC and others likely headed for the IL, the Dodgers are still ironing out the Opening Day rotation.`\
-https://nytimes.com/athletic/7069183/2026/02/27/dodgers-opening-day-rotation-spring-training/
 
