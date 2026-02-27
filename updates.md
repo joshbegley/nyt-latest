@@ -1,3 +1,11 @@
+**A Lesson in Transforming the Bitter Into the Sweet**\
+`In her latest column, Yewande Komolafe explores the transformative powers of eru stew from Cameroon.`\
+https://nytimes.com/2026/02/27/dining/cameroon-eru-soup-stew-recipe.html
+
+**Trump Says He’s ‘Not Happy’ With Progress of Iran Talks**\
+`The president expressed his negative view of the status of nuclear talks  as he weighed military strikes against Iran.`\
+https://nytimes.com/2026/02/27/us/politics/trump-iran-talks.html
+
 **Usyk to fight former kickboxing champion Verhoeven at Pyramids of Giza**\
 `Usyk’s last fight was a comprehensive fifth round knockout of Daniel Dubois at Wembley Stadium in July.`\
 https://nytimes.com/athletic/7076025/2026/02/27/oleksandr-usyk-rico-verhoeven-boxing-fight-wbc/

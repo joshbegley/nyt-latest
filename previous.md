@@ -1,3 +1,11 @@
+**A Lesson in Transforming the Bitter Into the Sweet**\
+`In her latest column, Yewande Komolafe explores the transformative powers of eru stew from Cameroon.`\
+https://nytimes.com/2026/02/27/dining/cameroon-eru-soup-stew-recipe.html
+
+**Trump Says He’s ‘Not Happy’ With Progress of Iran Talks**\
+`The president expressed his negative view of the status of nuclear talks  as he weighed military strikes against Iran.`\
+https://nytimes.com/2026/02/27/us/politics/trump-iran-talks.html
+
 **Cowboys place franchise tag on receiver George Pickens**\
 `Earlier this week, Cowboys coach Brian Schottenheimer specifically mentioned his plans for Pickens in the upcoming season.`\
 https://nytimes.com/athletic/7076043/2026/02/27/george-pickens-cowboys-franchise-tag/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075978/2026/02/27/college-football-nil-portal-sche
 **AI: Health & Science**\
 ``\
 https://nytimes.com/spotlight/ai-health-science
-
-**Ask a Journalist: Making a Compelling Argument**\
-`Nicholas Kristof, an Opinion columnist, joins us in March to talk to teenagers all about opinion writing. Post your comments and questions by March 15.`\
-https://nytimes.com/2026/02/27/learning/lesson-plans/ask-a-journalist-making-a-compelling-argument.html
-
-**Joey Aguilar shifts focus to NFL, done pursuing NCAA eligibility case**\
-`"I feel good where I'm at, and I'm excited," Aguilar said Friday at the NFL Scouting Combine.`\
-https://nytimes.com/athletic/7075919/2026/02/27/joey-aguilar-tennessee-ncaa-eligibility-nfl/
 
