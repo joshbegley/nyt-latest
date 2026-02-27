@@ -1,3 +1,15 @@
+**Green Party Defeats Labour in U.K. Special Election**\
+`Hannah Spencer, a plumber by trade, won a British parliamentary seat in a district that had been represented by the Labour Party for generations. Her victory signaled frustration from left-leaning voters with Prime Minister Keir Starmer.`\
+https://nytimes.com/video/world/europe/100000010742176/green-party-wins-uk-election-labour-loses.html
+
+**13 Measles Cases Reported at Texas Immigration Detention Facility**\
+`The infections at the center in El Paso come amid growing worries by some lawmakers about the conditions at immigration detention centers across the country.`\
+https://nytimes.com/2026/02/27/us/measles-camp-east-montana-detention-texas.html
+
+**Falcons fire LaTroy Lewis amid investigation into allegations while at Michigan**\
+`Lewis, who coached at Michigan from 2022 to 2025, was hired by the Falcons earlier this month.`\
+https://nytimes.com/athletic/7075964/2026/02/27/latroy-lewis-fired-falcons-sexual-assault-allegations/
+
 **Can Mamdani (and Trump) Build a Neighborhood Over a Queens Rail Yard?**\
 `Mayor Zohran Mamdani said President Trump was receptive to partnering on a project to build some 12,000 homes in Queens. Many hurdles still await.`\
 https://nytimes.com/2026/02/27/nyregion/sunnyside-yard-mamdani-trump.html
