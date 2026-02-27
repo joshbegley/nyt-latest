@@ -1,3 +1,11 @@
+**Student Remains in Honduras After ICE Vows to Deport Her Again**\
+`Any Lucia López Belloza was deported by mistake. A judge ordered her return by Friday. When the Trump administration sent a plane, she decided not to get on.`\
+https://nytimes.com/2026/02/27/us/politics/college-student-honduras-deportation.html
+
+**Prada Peels Back the Layers at Milan Fashion Week**\
+`At Milan Fashion Week, Prada showcased a collection built on layering. For the models, it was like shedding a skin each of the four times they strutted down the runway, revealing a new look with each cycle.`\
+https://nytimes.com/video/style/100000010742155/prada-fall-runway.html
+
 **Fewer Detectives Will Hunt for Nancy Guthrie, Signaling a New Phase**\
 `After a month with little visible progress, the sheriff in Pima County, Ariz., is sending some deputies back to their regular units.`\
 https://nytimes.com/2026/02/27/us/nancy-guthrie-detectives.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/us/minnesota-ice-cities-church-indictment.html
 **Tyler Seguin out for rest of season, including playoffs: Sources**\
 `Tyler Seguin had surgery to repair a torn ACL in his right knee on Dec. 16 after being injured in New York against the Rangers on Dec. 2.`\
 https://nytimes.com/athletic/7076259/2026/02/27/stars-tyler-seguin-injury-season/
-
-**Judge Approves $345 Million Verdict Against Greenpeace in Pipeline Suit**\
-`Greenpeace has said the verdict could bankrupt it. The lawsuit was over the group’s role in protests against the Dakota Access Pipeline.`\
-https://nytimes.com/2026/02/27/climate/greenpeace-energy-transfer-verdict-dakota-access.html
-
-**It’s the turf Aaron Rodgers once called ‘borderline unplayable’ — how will the Steelers fix it?**\
-`Their stadium's turf was one of a series of low grades the organization received on this year's NFLPA report cards.`\
-https://nytimes.com/athletic/7075772/2026/02/27/steelers-nflpa-report-card-acrisure-stadium-turf/
 
