@@ -1,3 +1,11 @@
+**Packers hiring Cam Achord as new special teams coordinator**\
+`Achord previously coached special teams with the Giants and Patriots.`\
+https://nytimes.com/athletic/7076344/2026/02/27/packers-hiring-cam-achord-as-new-special-teams-coordinator/
+
+**Iris Cantor, Philanthropist and Art Collector, Dies at 95**\
+`She and her husband, the financier B. Gerald Cantor, amassed one of the largest private collections of Rodin artworks, donating much of it to museums around the world.`\
+https://nytimes.com/2026/02/27/giving/iris-cantor-dead.html
+
 **30 More People Are Indicted in Anti-ICE Church Protest in Minnesota**\
 `The newly indicted people join nine others, including Don Lemon, in facing charges in connection to a protest of President Trump’s immigration crackdown during a worship service.`\
 https://nytimes.com/2026/02/27/us/minnesota-ice-cities-church-indictment.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/02/27/us/doj-church-indictment.html
 **Inter Miami to visit White House next week to mark MLS Cup win**\
 `The team will visit on Thursday, March 5, according to a White House official.`\
 https://nytimes.com/athletic/7076260/2026/02/27/inter-miami-white-house-visit/
-
-**Henrietta Lacks’s Family Settles Suit With Novartis Over Use of Her Cells**\
-`Ms. Lacks’s family accused Novartis of profiting from her cells, which were taken from her without her consent in 1951, when she was dying of cervical cancer.`\
-https://nytimes.com/2026/02/27/us/novartis-settlement-henrietta-lacks-stolen-cells.html
-
-**Rangers claim forward Tye Kartye off waivers from Kraken**\
-`Tye Kartye will join a glut of bottom-six forwards on the Rangers vying for playing time.`\
-https://nytimes.com/athletic/7076109/2026/02/27/rangers-tye-kartye-waivers-kraken/
 
