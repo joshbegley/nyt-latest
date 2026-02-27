@@ -1,40 +1,40 @@
-**Tennis player loses match on point penalty for slow play as returner**\
-`Terence Atmane was penalized by umpire Scotty Moore after going to take a towel from a ballkid while his opponent was ready to serve.`\
-https://nytimes.com/athletic/7074962/2026/02/27/terence-atmane-point-penalty-slow-play-tennis/
+**In Tuesday’s North Carolina Primaries, the Left Is Aiming for Democrats**\
+`From a Charlotte-area House race to three statehouse races, North Carolina liberals are signaling that their tolerance for Democratic stalwarts may be coming to an end.`\
+https://nytimes.com/2026/02/27/us/politics/north-carolina-primaries-liberal-challengers.html
 
-**‘Train Dreams' | Anatomy of a Scene**\
-`The director Clint Bentley narrates a sequence from his film starring Joel Edgerton.`\
-https://nytimes.com/video/movies/100000010732820/train-dreams-scene.html
+**The Best-Kept Secret in Washington**\
+`On what makes Congress secret and toxic.`\
+https://nytimes.com/2026/02/27/opinion/congress-trump-secret-toxic.html
 
-**With Possible Strike Looming, U.S. Says Staff Can Leave Israel, and Urges Speed**\
-`In an email to embassy workers Friday morning, Ambassador Mike Huckabee warned them that if they wanted to leave Israel, they “should do so TODAY.”`\
-https://nytimes.com/2026/02/27/world/middleeast/us-embassy-jerusalem-authorized-departure.html
+**How ‘The Pitt’ Grosses You Out**\
+`The medical drama tests viewers with protruding bones, visible organs and buckets of blood. Here’s how makeup and effects artists created seven gory afflictions.`\
+https://nytimes.com/2026/02/27/arts/television/the-pitt.html
 
-**A Prada Show So Good, It Overshadowed Mark Zuckerberg**\
-`Miuccia Prada and Raf Simons offer a multilayered meditation on dressing. And some really great shoes.`\
-https://nytimes.com/2026/02/27/style/prada-fall-2026.html
+**Would You Go to a Concert With Your Dad? (Yes, Your Dad!)**\
+`Across the country, fathers are donning sparkly blazers and purple wigs to bond with their kids at pop music shows. Is it heartwarming or just plain cringey?`\
+https://nytimes.com/2026/02/27/learning/would-you-go-to-a-concert-with-your-dad-yes-your-dad.html
 
-**South Korea Clears Way for Google Maps to Fully Operate**\
-`South Korea approved Google’s request to export detailed map data, reversing a longstanding restriction that made the tool largely nonfunctional.`\
-https://nytimes.com/2026/02/27/world/asia/google-maps-south-korea.html
+**Book Club: Read ‘Kin,’ by Tayari Jones, With the Book Review**\
+`In March, the Book Review Book Club will read and discuss Tayari Jones’s new novel, about two motherless girls and their lifelong search for family.`\
+https://nytimes.com/2026/02/27/books/review/kin-tayari-jones-book-club.html
 
-**The Cult of Marni Returns**\
-`Meryll Rogge makes her debut at the house, and brings it back to its roots.`\
-https://nytimes.com/2026/02/27/style/marni-fall-2026.html
+**Mamdani Can End the Homelessness Crisis. Here’s How.**\
+`Our aim should be to make permanent housing, not shelters, the default.`\
+https://nytimes.com/2026/02/27/opinion/new-york-homelessness-mamdani.html
 
-**Visiting the Brazilian 'varzea' teams who take their name and inspiration from Arsenal**\
-`A trip to Brazil alongside club legends Gilberto and Ian Wright gave an insight to the importance of grassroots football in the country.`\
-https://nytimes.com/athletic/7072778/2026/02/27/arsenal-brazil-gilberto-silva-varzea/
+**You Can’t Shame People Into Vaccinating Their Kids. I Should Know.**\
+`For a long time, I was angry at my mom for not vaccinating me.`\
+https://nytimes.com/2026/02/27/opinion/growing-up-unvaccinated.html
 
-**Border Patrol Left a Refugee at a Cafe. Days Later, He Was Found Dead.**\
-`The disabled man had been released from jail when federal officers showed up and drove him to a coffee shop. His family searched for him for days.`\
-https://nytimes.com/2026/02/27/nyregion/myanmar-refugee-buffalo-border-patrol.html
+**A World Where All Is Free? That’s Elon Musk’s Theory of ‘Sustainable Abundance.’**\
+`The Tesla and SpaceX chief has told his followers that they will live in a world where robots will take care of every need and people do not have to work, in what has become his latest slogan.`\
+https://nytimes.com/2026/02/27/business/a-world-where-all-is-free-thats-elon-musks-theory-of-sustainable-abundance.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/27/crosswords/spelling-bee-forum.html
+**Watch the Final Scene of ‘Train Dreams’**\
+`The director Clint Bentley discusses the conclusion to his film, which stars Joel Edgerton and is an Oscar nominee for best picture.`\
+https://nytimes.com/2026/02/27/movies/train-dreams-clip.html
 
-**Riding the Bus**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/02/27/learning/riding-the-bus.html
+**Michael Pollan Wants to Know Where Consciousness Comes From**\
+`“A World Appears” explores what makes you you.`\
+https://nytimes.com/2026/02/27/books/review/a-world-appears-michael-pollan.html
 
