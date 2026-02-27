@@ -1,3 +1,11 @@
+**In Trump’s Case for War, a Series of False or Unproven Claims**\
+`Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
+https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
+
+**2026 NFLPA report cards: Grades for all 32 teams**\
+`The NFLPA team report card survey seeks players' feedback on working conditions for all 32 NFL teams.`\
+https://nytimes.com/athletic/7074178/2026/02/26/nflpa-report-cards-2026-grades/
+
 **Men Charged With Hate Crimes After Trying to Light Woman’s Boots on Fire**\
 `One of the men recorded a live-streamed video as the other made racist and sexual comments during the incident in Manhattan, the police said.`\
 https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.html

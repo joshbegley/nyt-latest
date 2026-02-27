@@ -1,3 +1,11 @@
+**In Trump’s Case for War, a Series of False or Unproven Claims**\
+`Key elements of the Trump administration’s arguments this week for another military campaign against Iran do not hold up.`\
+https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.html
+
+**2026 NFLPA report cards: Grades for all 32 teams**\
+`The NFLPA team report card survey seeks players' feedback on working conditions for all 32 NFL teams.`\
+https://nytimes.com/athletic/7074178/2026/02/26/nflpa-report-cards-2026-grades/
+
 **Men Charged With Hate Crimes After Trying to Light Woman’s Boots on Fire**\
 `One of the men recorded a live-streamed video as the other made racist and sexual comments during the incident in Manhattan, the police said.`\
 https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/us/trump-investigations-miami-prosecutor.html
 **Chicago Bears stadium race heats up as Illinois, Indiana push bills forward**\
 `Indiana Gov. Mike Braun signs bill meant to lure Bears, while Illinois House committee recommends bill with property tax incentives.`\
 https://nytimes.com/athletic/7074068/2026/02/26/bears-stadium-illinois-indiana-passes-bills/
-
-**Supreme Court Lawyer Who Moonlighted in High-Stakes Poker Is Convicted of Tax Fraud**\
-`The lawyer Thomas C. Goldstein, who co-founded the SCOTUSblog website, hid millions in gambling income from the government, federal prosecutors said.`\
-https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasion.html
-
-**U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
-`Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
-https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
 
