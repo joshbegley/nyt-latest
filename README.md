@@ -1,3 +1,7 @@
+**Wirtz set to miss West Ham game with back injury, timeframe for return uncertain**\
+`The 22-year-old picked up the issue during the warm-up before the 1-0 victory over Nottingham Forest last weekend.`\
+https://nytimes.com/athletic/7075002/2026/02/27/liverpool-florian-wirtz-injury-update/
+
 **Hungary Plays the Spoiler in Europe, as Orban Seeks Votes at Home**\
 `Facing a serious election challenge, Prime Minister Viktor Orban is holding up a big E.U. loan for Ukraine. Analysts say the timing is no coincidence.`\
 https://nytimes.com/2026/02/27/world/europe/hungary-plays-the-spoiler-in-europe-as-orban-seeks-votes-at-home.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-ai-defense.html
 **Do I Have to Watch a Show I Dislike With My Son?**\
 `A ruling on a dispute over quality time.`\
 https://nytimes.com/interactive/2026/02/27/magazine/star-trek-hodgman-quiz.html
-
-**Texas Can Soon Enforce Law Aimed at Restricting Drag Shows**\
-`The U.S. Court of Appeals for the Fifth Circuit ruled that a Texas law banning some performances in front of children can go into effect in March as a legal battle continues.`\
-https://nytimes.com/2026/02/27/us/texas-law-drag-shows-restriction.html
 
