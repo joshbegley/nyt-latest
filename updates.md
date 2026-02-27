@@ -1,3 +1,7 @@
+**A Prada Show So Good, It Overshadowed Mark Zuckerberg**\
+`Miuccia Prada and Raf Simons offer a multilayered meditation on dressing. And some really great shoes.`\
+https://nytimes.com/2026/02/27/style/prada-fall-2026.html
+
 **South Korea Clears Way for Google Maps to Fully Operate**\
 `South Korea approved Google’s request to export detailed map data, reversing a longstanding restriction that made the tool largely nonfunctional.`\
 https://nytimes.com/2026/02/27/world/asia/google-maps-south-korea.html
