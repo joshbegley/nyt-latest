@@ -1,3 +1,7 @@
+**'Was it a good race?' 10 years and 5.5 million votes later, the Top 10**\
+`Every NASCAR Cup Series race for the past 10 years, The Athletic's Jeff Gluck has asked fans a simple question: "Was it a good race?"`\
+https://nytimes.com/athletic/7071174/2026/02/27/jeff-gluck-twitter-poll-nascar-good-race/
+
 **What Brian Schottenheimer thinks could push Cowboys' offense to 'another level'**\
 `Schottenheimer discussed Pickens, Javonte Williams returning, Christian Parker's 3-4 scheme and the Eagles' interest in Klayton Adams.`\
 https://nytimes.com/athletic/7073947/2026/02/27/cowboys-combine-george-pickens-javonte-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074822/2026/02/27/canadiens-lose-islanders-playing
 **Mets' director of hitting on a new hierarchy and an evolving role: Q&A with Jeff Albert**\
 `Albert explains his teaching style, his view of the lineup, his thoughts on situtational hitting and more: "I can't wait."`\
 https://nytimes.com/athletic/7068254/2026/02/27/mets-director-hitting-jeff-albert/
-
-**Knicks' Jose Alvarado is back home in New York, but love for New Orleans remains genuine**\
-`Jose Alvarado opens up about leaving New Orleans to play in his hometown of New York. `\
-https://nytimes.com/athletic/7069916/2026/02/27/knicks-pelicans-jose-alvarado-return-home/
 
