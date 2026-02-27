@@ -1,3 +1,7 @@
+**South Korea Clears Way for Google Maps to Fully Operate**\
+`South Korea approved Google’s request to export detailed map data, reversing a longstanding restriction that made the tool largely nonfunctional.`\
+https://nytimes.com/2026/02/27/world/asia/google-maps-south-korea.html
+
 **The Cult of Marni Returns**\
 `Meryll Rogge makes her debut at the house, and brings it back to its roots.`\
 https://nytimes.com/2026/02/27/style/marni-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/learning/word-of-the-day-interpolate.html
 **Crystal Palace and Oliver Glasner have established an uneasy truce... for now**\
 `Selhurst Park enjoyed a rare sense of unity as progress was assured into the last 16 of the UEFA Conference League, but will it last?`\
 https://nytimes.com/athletic/7065627/2026/02/27/crystal-palace-glasner-conference-mostar-guessand/
-
-**Khris Middleton hasn't decided if he'll stay with Mavericks or join a contender**\
-`The 34-year-old former champion said he would talk to his agent over the weekend before deciding his future. `\
-https://nytimes.com/athletic/7074797/2026/02/27/khris-middleton-mavericks-buyout-contract/
 
