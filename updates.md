@@ -1,3 +1,7 @@
+**Late Night Lampoons Trump’s State of the Union Ratings**\
+`Stephen Colbert joked that the president “is really dragging down broadcast television” with lower ratings for Tuesday’s State of the Union than last year’s address.`\
+https://nytimes.com/2026/02/27/arts/television/late-night-trump-state-of-the-union-ratings.html
+
 **Dominican Republic shocks USA Basketball in World Cup qualifier**\
 `While a disappointing loss, the U.S. remains likely to qualify for the World Cup in 2027.`\
 https://nytimes.com/athletic/7074743/2026/02/27/us-dominican-republic-world-cup-qualifier/
