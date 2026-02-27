@@ -1,3 +1,7 @@
+**The Warning Signs Flashing From the Tech-Heavy Bloat of the S&P 500**\
+`The shifting composition of big public companies in the stock index shows how lopsided and less dynamic the American economy has become.`\
+https://nytimes.com/interactive/2026/02/26/business/stock-market-sp-500-nvidia-tech-bubble-crises.html
+
 **Sam Coffey says USWNT has ‘responsibility’ to speak out in new era**\
 `Coffey said while it was easier as a younger player to look to older players, it's time for current players to advocate for change.`\
 https://nytimes.com/athletic/7074362/2026/02/26/sam-coffey-uswnt-social-issues-shebelieves-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/politics/trump-iran-claims-nuclear-weapons.htm
 **2026 NFLPA report cards: Grades for all 32 teams**\
 `The NFLPA team report card survey seeks players' feedback on working conditions for all 32 NFL teams.`\
 https://nytimes.com/athletic/7074178/2026/02/26/nflpa-report-cards-2026-grades/
-
-**Men Charged With Hate Crimes After Trying to Light Woman’s Boots on Fire**\
-`One of the men recorded a live-streamed video as the other made racist and sexual comments during the incident in Manhattan, the police said.`\
-https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.html
 
