@@ -1,5 +1,5 @@
 **Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
-`The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follows months of worsening relations between the neighboring countries.`\
+`The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follow months of worsening relations between the neighboring countries.`\
 https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
 
 **Green Party Defeats Labour in U.K. Special Election, in Blow to Starmer**\

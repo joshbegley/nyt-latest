@@ -1,3 +1,7 @@
+**Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
+`The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follows months of worsening relations between the neighboring countries.`\
+https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
+
 **Green Party Defeats Labour in U.K. Special Election, in Blow to Starmer**\
 `The result marks the first time the Greens have won a British parliamentary by-election and signals the frustration of left-leaning voters with Prime Minister Keir Starmer.`\
 https://nytimes.com/2026/02/26/world/europe/gorton-denton-result-green-party-labour.html

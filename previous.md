@@ -1,3 +1,7 @@
+**Pakistan Strikes Afghanistan in ‘Open War’ Against Taliban Regime**\
+`The airstrikes came hours after Afghan troops had attacked Pakistani border positions and follows months of worsening relations between the neighboring countries.`\
+https://nytimes.com/2026/02/26/world/asia/pakistan-afghanistan-taliban.html
+
 **Green Party Defeats Labour in U.K. Special Election, in Blow to Starmer**\
 `The result marks the first time the Greens have won a British parliamentary by-election and signals the frustration of left-leaning voters with Prime Minister Keir Starmer.`\
 https://nytimes.com/2026/02/26/world/europe/gorton-denton-result-green-party-labour.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/technology/google-deepmind-letter-pentagon.html
 **Trump to convene panel focused on future of college sports: Sources**\
 `The roundtable, scheduled for March 6, includes an invite list with dozens of important figures and sports celebrities.`\
 https://nytimes.com/athletic/7074279/2026/02/26/trump-panel-college-sports-future-issues/
-
-**Hillary Clinton Denies Ever Meeting Jeffrey Epstein**\
-`The former first lady, senator and secretary of state, Hillary Clinton, told congressional members in a closed-door deposition that she had no dealings with Jeffrey Epstein.`\
-https://nytimes.com/video/us/politics/100000010739870/hillary-clinton-denies-ever-meeting-jeffrey-epstein.html
 
