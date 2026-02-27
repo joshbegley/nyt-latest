@@ -1,3 +1,7 @@
+**Dog Abandoned at Las Vegas Airport Adopted by Responding Police Officer**\
+`The previous owner was arrested and charged with animal abandonment and resisting arrest, police said.`\
+https://nytimes.com/2026/02/26/us/dog-abandoned-las-vegas-airport-adopted.html
+
 **Justice Department Sues 5 States, Most Republican-Led, for Voter Data**\
 `The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and West Virginia, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
 https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-voter-data.html

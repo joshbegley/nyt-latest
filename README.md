@@ -1,3 +1,11 @@
+**Read Judge Schiltz’s Order**\
+`In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
+https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
+
+**Judge Says U.S. Is Intentionally Violating the Law on Immigration**\
+`Judge Zahid N. Quraishi said federal prosecutors in New Jersey had lost credibility on immigration issues. He’s the latest federal judge to show impatience with the Trump administration.`\
+https://nytimes.com/2026/02/26/nyregion/new-jersey-trump-immigration-federal-judge.html
+
 **Dog Abandoned at Las Vegas Airport Adopted by Responding Police Officer**\
 `The previous owner was arrested and charged with animal abandonment and resisting arrest, police said.`\
 https://nytimes.com/2026/02/26/us/dog-abandoned-las-vegas-airport-adopted.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/26/us/minnesota-judge-ice-immigration.html
 **Zack Wheeler throws first bullpen since TOS surgery, plus Phillies injury notes**\
 `Wheeler threw 21 pitches off the mound, the latest milestone in his recovery after undergoing thoracic outlet decompression surgery.`\
 https://nytimes.com/athletic/7074057/2026/02/26/zack-wheeler-phillies-injury-news/
-
-**Russia Launches Major Attack Hours Before U.S.-Ukraine Talks**\
-`Russia unleashed a series of drone and missile strikes on Ukraine on Thursday, injuring at least 20 people and damaging buildings in eight different regions.`\
-https://nytimes.com/video/world/europe/100000010739658/russia-drone-attack-ukraine-us-negotiation.html
-
-**Edward L. Deci, 83, Dies; Found Self-Determination as a Key to Happiness**\
-`His work with his colleague Richard Ryan changed how psychologists understand human motivation and what people require to flourish.`\
-https://nytimes.com/2026/02/26/science/edward-l-deci-dead.html
 

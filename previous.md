@@ -1,3 +1,7 @@
+**Dog Abandoned at Las Vegas Airport Adopted by Responding Police Officer**\
+`The previous owner was arrested and charged with animal abandonment and resisting arrest, police said.`\
+https://nytimes.com/2026/02/26/us/dog-abandoned-las-vegas-airport-adopted.html
+
 **Justice Department Sues 5 States, Most Republican-Led, for Voter Data**\
 `The Trump administration sued Utah, Oklahoma and West Virginia, as well as Kentucky and West Virginia, to obtain unredacted voter registration databases in pursuit of baseless claims of voter fraud.`\
 https://nytimes.com/2026/02/26/us/politics/justice-department-sues-5-states-voter-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010739658/russia-drone-attack-ukrai
 **Edward L. Deci, 83, Dies; Found Self-Determination as a Key to Happiness**\
 `His work with his colleague Richard Ryan changed how psychologists understand human motivation and what people require to flourish.`\
 https://nytimes.com/2026/02/26/science/edward-l-deci-dead.html
-
-**Testimony Offers New Details on Justice Dept. Role in Abrego Garcia Prosecution**\
-`A top prosecutor, Robert E. McGuire, painted an extraordinary picture of senior Justice Department leaders peering over his shoulder and hurrying him along.`\
-https://nytimes.com/2026/02/26/us/kilmar-abrego-garcia-justice-department-trump.html
 
