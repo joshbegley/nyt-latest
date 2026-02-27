@@ -1,3 +1,7 @@
+**4 Things You Didn’t Know About the Plummeting U.S. Birthrate**\
+`There is good news buried behind the worries about population decline, some experts say.`\
+https://nytimes.com/2026/02/27/us/politics/us-birthrate-decline-takeaways.html
+
 **Anthony Edwards owns crunch time for Wolves: 'You don't want me to pass the ball'**\
 `Edwards took things into his own hands on Thursday and dragged Minnesota to a win at the Clippers.`\
 https://nytimes.com/athletic/7069949/2026/02/27/anthony-edwards-timberwolves-crunch-time-clippers/
