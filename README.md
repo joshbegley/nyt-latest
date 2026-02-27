@@ -1,3 +1,27 @@
+**How to watch Miami (OH) vs. Western Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Western Michigan Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7075640/2026/02/27/miami-oh-vs-western-michigan-stream-how-to-watch-feb-27/
+
+**Diego Pavia says mentor Johnny Manziel 'is giving me some good advice'**\
+`Perhaps no one can understand mercurial Vanderbilt quarterback Diego Pavia better than Johnny Manziel.`\
+https://nytimes.com/athletic/7075573/2026/02/27/diego-pavia-johnny-manziel-mentor-nfl-combine-qb/
+
+**Employment Commission Says Agencies Can Restrict Bathroom Use by Gender Identity**\
+`The ruling extends the Equal Employment Opportunity Commission’s intervention on President Trump’s gender and race priorities.`\
+https://nytimes.com/2026/02/27/us/politics/eeoc-gender-bathrooms-transgender.html
+
+**Pakistan Launches Airstrikes on Afghanistan**\
+`Tensions between Afghanistan and Pakistan escalated on Friday as the two countries clashed.`\
+https://nytimes.com/video/world/asia/100000010741684/pakistan-airstrikes-afghanistan-taliban.html
+
+**Iran’s Students, Undeterred After Deadly Crackdown, Are Protesting Again**\
+`The unrest underlines the intensity of domestic discontent, even as Tehran’s government grapples with the threat of U.S. strikes. Here’s what to know.`\
+https://nytimes.com/2026/02/27/world/middleeast/iran-student-protests.html
+
+**Transgender Kansans Sue After Driver’s Licenses Are Abruptly Canceled**\
+`As Kansas invalidates hundreds of licenses and birth certificates, transgender people say their constitutional rights have been violated.`\
+https://nytimes.com/2026/02/27/us/transgender-kansas-drivers-licenses-lawsuit.html
+
 **With Canucks at a low point, stakes for trade deadline have never been higher**\
 `The vivid memory of far too many dysfunctional Canucks trade deadlines past is inescapable.`\
 https://nytimes.com/athletic/7074812/2026/02/27/canucks-nhl-trade-deadline-2026-standings/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/02/27/dining/snowy-with-a-chance-of-meatloaf.html
 **‘Chinese Republicans’ Review: These Women Are Playing to Win**\
 `Alex Lin’s new play focuses on four ambitious climbers of the corporate ladder. But their success comes at what cost?`\
 https://nytimes.com/2026/02/27/theater/chinese-republicans-review-alex-lin.html
-
-**Five Horror Movies to Stream Now**\
-`This month brings a malign quarterback, a naughty robot hottie and the grim reaper himself.`\
-https://nytimes.com/2026/02/27/movies/horror-movies-streaming.html
-
-**Sullivan, 16, becomes youngest American goalscorer in Champions Cup history**\
-`The midfielder scored twice in Philadelphia Union's 7-0 win over Defence Force in the first round of the competition.`\
-https://nytimes.com/athletic/7075402/2026/02/27/cavan-sullivan-champions-cup-philadelphia-union-youngest-goalscorer/
-
-**Fernando Mendoza on Raiders, working with Tom Brady: 'I’m all about learning'**\
-`Mendoza: "To be able to have the opportunity to be mentored by (Brady) would mean so much, especially to learn."`\
-https://nytimes.com/athletic/7075383/2026/02/27/fernando-mendoza-raiders-tom-brady-nfl-combine/
-
-**Why Sonny Styles was the biggest winner of 2026 NFL combine's first on-field workouts**\
-`Styles may have guaranteed himself a top-10 NFL Draft selection with his combine performance.`\
-https://nytimes.com/athletic/7075474/2026/02/27/nfl-combine-player-field-workout-winners-draft/
-
-**Dispute Between Pentagon and Anthropic Intensifies as Deadline Looms**\
-`Defense officials criticized the A.I. firm after it rejected their latest offer. Anthropic has until 5:01 p.m. on Friday to give them unrestricted access to its model.`\
-https://nytimes.com/2026/02/27/us/politics/anthropic-military-ai.html
-
-**Mailbag: Will Crosby play in 2030 Olympics? Who's on an all-time Penguins roster?**\
-`Josh Yohe opens his mailbag for a Penguins thought exercise and all kinds of questions and answers about the Olympics.`\
-https://nytimes.com/athletic/7038670/2026/02/27/sidney-crosby-olympics-hockey-canada-penguins/
 
