@@ -1,3 +1,7 @@
+**U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
+`Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
+https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
+
 **Read Judge Schiltz’s Order**\
 `In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
 https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010732776/trumps-yes-men-presidency.html
 **Federal Judge Accuses Trump Administration of Repeatedly Disobeying Orders**\
 `The judge warned government officials that they would be held in criminal contempt if the pattern, related to immigration enforcement in Minnesota, continues.`\
 https://nytimes.com/2026/02/26/us/minnesota-judge-ice-immigration.html
-
-**Zack Wheeler throws first bullpen since TOS surgery, plus Phillies injury notes**\
-`Wheeler threw 21 pitches off the mound, the latest milestone in his recovery after undergoing thoracic outlet decompression surgery.`\
-https://nytimes.com/athletic/7074057/2026/02/26/zack-wheeler-phillies-injury-news/
 

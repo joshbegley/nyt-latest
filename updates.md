@@ -1,3 +1,11 @@
+**Read Judge Schiltz’s Order**\
+`In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
+https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
+
+**Judge Says U.S. Is Intentionally Violating the Law on Immigration**\
+`Judge Zahid N. Quraishi said federal prosecutors in New Jersey had lost credibility on immigration issues. He’s the latest federal judge to show impatience with the Trump administration.`\
+https://nytimes.com/2026/02/26/nyregion/new-jersey-trump-immigration-federal-judge.html
+
 **Dog Abandoned at Las Vegas Airport Adopted by Responding Police Officer**\
 `The previous owner was arrested and charged with animal abandonment and resisting arrest, police said.`\
 https://nytimes.com/2026/02/26/us/dog-abandoned-las-vegas-airport-adopted.html
