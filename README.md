@@ -1,3 +1,7 @@
+**Men Charged With Hate Crimes After Trying to Light Woman’s Boots on Fire**\
+`One of the men recorded a live-streamed video as the other made racist and sexual comments during the incident in Manhattan, the police said.`\
+https://nytimes.com/2026/02/26/nyregion/hate-crime-maga-boots-fire-manhattan.html
+
 **Vance Continues to Criticize Democrats’ Attitude During State of the Union**\
 `Speaking in Wisconsin to support Republicans ahead of the midterm elections, Vice President JD Vance reminded his audience that Democrats had not stood up at the president’s behest on Tuesday.`\
 https://nytimes.com/2026/02/26/us/politics/vance-wisconsin-democrats-midterms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/26/us/thomas-goldstein-supreme-court-poker-tax-evasi
 **U.S. and Iranian Officials Wrap Up Latest Round of Talks**\
 `Representatives of the countries were in Geneva this week to discuss the fate of Iran’s nuclear program.`\
 https://nytimes.com/2026/02/26/world/middleeast/iran-us-talks.html
-
-**Read Judge Schiltz’s Order**\
-`In a scathing order, the chief federal judge in Minnesota accused federal officials of continuing to disobey judicial orders related to immigration enforcement.`\
-https://nytimes.com/interactive/2026/02/26/us/schiltz-order.html
 
