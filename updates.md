@@ -1,3 +1,11 @@
+**False and outdated videos circulated online after the Iran strikes.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
+
+**After shootout loss, Penguins' Evgeni Malkin says no progress made in contract talks**\
+`Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
+https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
+
 **After shootout loss, Penguins' Evgeni Malkin says no progress has been made in contract talks**\
 `Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
 https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
