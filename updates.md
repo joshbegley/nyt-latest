@@ -1,3 +1,7 @@
+**Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**\
+`Waves of retaliatory strikes were reported in Israel and across several Gulf countries on Saturday. The Emirati government said at least one person was killed from falling missile debris.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html
+
 **Banks Are Becoming Bulwarks for Vulnerable Seniors**\
 `Older Americans are losing billions of dollars annually to financial exploitation. Banks and investment firms are training employees to spot red flags and stop the transactions.`\
 https://nytimes.com/2026/02/28/health/scams-elderly-banks.html
