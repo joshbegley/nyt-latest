@@ -1,3 +1,23 @@
+**Ed Iskenderian, Hot Rod Pioneer Known as the ‘Camfather,’ Dies at 104**\
+`“His influence can be felt in every form of motorsport today,” Car and Driver magazine wrote of the man who powered some of the fastest cars of his era with his innovative engine camshafts.`\
+https://nytimes.com/2026/02/28/sports/autoracing/ed-iskenderian-dead.html
+
+**Fact-Checking Trump’s Justifications for Attacking Iran**\
+`The president made unsupported and exaggerated claims in a speech announcing the attack on Iran.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-fact-check.html
+
+**A vast section of Middle East airspace has been closed, causing 1,600 flight cancellations.**\
+`A major hub in Dubai has suspended operations following U.S.-Israeli strikes on Iran. The sweeping closures are stranding passengers.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/middle-east-airport-closures-emirates-qatar
+
+**Leeds 0 Man City 1: How important could this result be? How did City cope without Haaland?**\
+`Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
+https://nytimes.com/athletic/7073026/2026/02/28/briefing-leeds-0-1-manchester-city-analysis/
+
+**Mapping the U.S.-Led Attacks on Iran**\
+`Maps show where U.S. and Israel have struck Iran, and where Iran has retaliated.`\
+https://nytimes.com/2026/02/28/world/middleeast/us-israel-iran-attack-maps.html
+
 **Israel Targeted Top Iranian Leaders in Attack’s Opening Strikes**\
 `At least one gathering of senior officials and military leaders was hit, but it was not immediately clear whether the effort to kill them had succeeded.`\
 https://nytimes.com/2026/02/28/world/middleeast/israel-iran-assassination-khamenei.html
