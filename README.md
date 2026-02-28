@@ -1,3 +1,7 @@
+**Congress Faces War Powers Votes in Wake of Iran Strikes**\
+`Following the attack, Democrats and a few Republicans escalated their calls for swift votes on whether to curb the president’s power to continue using force against Iran without explicit authorization.`\
+https://nytimes.com/2026/02/28/us/politics/congress-war-powers-votes-iran.html
+
 **For Trump, the Iran Attack Is the Ultimate War of Choice**\
 `There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/business/dealbook/berkshire-hathaway-earnings-gre
 **FIFA focused on 'everybody participating' at World Cup after U.S. attack on Iran**\
 `Military action has increased tensions between the two countries ahead of this summer's tournament`\
 https://nytimes.com/athletic/7077233/2026/02/28/fifa-world-cup-iran-attack-united-states/
-
-**How to watch Rockets vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077261/2026/02/28/rockets-vs-heat-stream-how-to-watch-feb-28/
 
