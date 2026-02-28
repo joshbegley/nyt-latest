@@ -1,3 +1,7 @@
+**Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
+`Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
+https://nytimes.com/athletic/7077856/2026/02/28/rainmakers-marco-scutaro-showed-luis-arraez-what-was-possible-for-a-kid-from-small-town-venezuela/
+
 **Royals, Starling Marte agree to major-league contract: Source**\
 `Marte, 37, hit .270 with nine homers for the Mets in 98 games last season.`\
 https://nytimes.com/athletic/7077968/2026/02/28/mlb-free-agent-signing-starling-marte-royals/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaig
 **What You Taught Me About Texas**\
 `Our readers in the state offer a window into the current center of the political universe.`\
 https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
-
-**How to watch Lakers vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077919/2026/02/28/lakers-vs-warriors-stream-how-to-watch-feb-28/
 
