@@ -1,3 +1,31 @@
+**Real Madrid vs Man City... again? Is an increase in repeat fixtures damaging the Champions League?**\
+`Group match-ups have been repeated in the knockouts as many times in a season and a half of the new format as in the previous 32 years`\
+https://nytimes.com/athletic/7075554/2026/02/28/champions-league-repeat-fixtures/
+
+**Talk of the Devils debate: Should Benjamin Sesko stay as a super-sub?**\
+`This is what our Talk of the Devils team have learnt about Manchester United this week`\
+https://nytimes.com/athletic/7075496/2026/02/28/talk-of-the-devils-benjamin-sesko/
+
+**The anatomy of a Haaland duel: Shirt pulls, sly kicks, off-the-ball barges and trash talk**\
+`Dan Burn was just the latest victim of a tussle with Erling Haaland, but he won't be the last...`\
+https://nytimes.com/athletic/7072652/2026/02/28/erling-haaland-manchester-city-duels/
+
+**Philipp Lahm: Where are Germany's super talents? Where are the specialists?**\
+`Germany has produced talented players, but not regularly produced super talents — or specialists in attack, defence or midfield`\
+https://nytimes.com/athletic/7068009/2026/02/28/philipp-lahm-super-talents-specialists-germany/
+
+**Why don't more football teams place players on the side of the box for penalties?**\
+`A tweak that a handful of teams are using could result in a curious marginal gain `\
+https://nytimes.com/athletic/7069905/2026/02/28/why-dont-more-football-teams-place-players-on-the-side-of-the-box-for-penalties/
+
+**Chelsea have traded places with Arsenal and risk repeating Wenger's errors**\
+`In recent years, Chelsea have been proud to have a low average age, but history shows few teams win without proven, experienced leaders`\
+https://nytimes.com/athletic/7075303/2026/02/28/chelsea-arsenal-wenger-youth/
+
+**Former U.S. Air Force Officer Is Accused of Training Chinese Military Pilots**\
+`The former officer traveled to China to train pilots of the People’s Liberation Army Air Force without approval from the State Department, the Justice Department said.`\
+https://nytimes.com/2026/02/28/us/air-force-pilot-china-arrest.html
+
 **Canada’s Leader Heads to Asia and Australia to Build ‘Middle Power’ Bonds**\
 `Prime Minister Mark Carney visits India, Australia and Japan seeking deals to strengthen his country’s links to Indo-Pacific powers and break Canada’s dependence on the United States.`\
 https://nytimes.com/2026/02/28/world/canada/carney-asia-australia-visit.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7075045/2026/02/28/bundesliga-mark-goldbridge-overl
 **Leeds kept running under Marsch and Allardyce – but that didn't stop them going down**\
 `Marsch weighed in this week after Allardyce commented about how running had dipped off before his arrival at Leeds`\
 https://nytimes.com/athletic/7075360/2026/02/28/jesse-marsch-sam-allardyce-leeds/
-
-**Connections: Sports Edition Coach: Hints and answers for Feb. 28, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7076798/2026/02/28/connections-sports-edition-hints-answers-feb-28-2026/
-
-**To Extract Hot Water From the Earth, a Plan to Pipe It In First**\
-`Developers are using a new geothermal technology in Germany to produce clean energy.`\
-https://nytimes.com/2026/02/28/business/germany-geothermal-renewable-energy.html
-
-**Corrections: Feb. 28, 2026**\
-`Corrections that appeared in print on Saturday, Feb. 28, 2026.`\
-https://nytimes.com/2026/02/28/pageoneplus/corrections-feb-28-2026.html
-
-**Quote of the Day: How ‘The Pitt’ Grosses Viewers Out**\
-`Quotation of the Day for Saturday, February 28, 2026.`\
-https://nytimes.com/2026/02/27/pageoneplus/quote-of-the-day-how-the-pitt-grosses-viewers-out.html
-
-**'I don’t know what these guys are smoking': Panthers goalie blasts replay decision**\
-`Daniil Tarasov says he was interfered with on the goal that put the Panthers down 2-1 against the Sabres.`\
-https://nytimes.com/athletic/7076827/2026/02/27/panthers-goalie-daniil-tarasov-sabres-interference/
-
-**Judge delays ruling in Joe Gibbs Racing fight to block Chris Gabehart’s move**\
-`A judge in North Carolina chose to postpone a ruling on a temporary restraining order, imploring the two sides to discuss until Monday.`\
-https://nytimes.com/athletic/7076612/2026/02/27/joe-gibbs-racing-chris-gabehart-spire-motorsports-nascar/
-
-**Michigan rolls past Illinois to win Big Ten title outright**\
-`Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
-https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
 
