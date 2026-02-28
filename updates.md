@@ -1,3 +1,11 @@
+**Iran Says Dozens Killed in Strike on School**\
+`The strike on an elementary school in the southern Iran town of Minab was one of two attacks that appear to have hit schools during U.S. and Israeli strikes on Iran on Saturday.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-school-strike-us-israel.html
+
+**A debatable handball, a six-minute VAR review and a decision that left Burnley enraged**\
+`Explaining the contentious moment Burnley were denied an equaliser that might have given them a 4-4 draw against Brentford`\
+https://nytimes.com/athletic/7077566/2026/02/28/burnley-goal-handball-var-disallowed/
+
 **A debatable handball, a six-minute VAR review and a decision that left Burnley enraged**\
 `Explaining the contentious moment Burnley were denied an equaliser that would have given them a 4-4 draw against Brentford`\
 https://nytimes.com/athletic/7077566/2026/02/28/burnley-goal-handball-var-disallowed/
