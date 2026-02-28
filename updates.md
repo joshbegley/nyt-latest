@@ -1,3 +1,11 @@
+**Man Convicted of Forging Threats Against Trump Gets 16.5 Years in Prison**\
+`A Wisconsin man was found guilty of impersonating an undocumented immigrant in handwritten letters that threatened to kill the president in an effort to get the immigrant deported.`\
+https://nytimes.com/2026/02/27/us/trump-threat-letters-sentenced.html
+
+**Watching Macklin Celebrini at Olympics was 'a life memory' for father Rick**\
+`While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
+https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
+
 **Watching Macklin Celebrini play for Canada at Olympics was 'a life memory' for father Rick**\
 `While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
 https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
