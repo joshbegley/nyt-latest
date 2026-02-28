@@ -1,3 +1,19 @@
+**How to watch Villanova vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077524/2026/02/28/villanova-vs-st-john-s-stream-how-to-watch-feb-28/
+
+**How to watch Alabama vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077522/2026/02/28/alabama-vs-tennessee-stream-how-to-watch-feb-28/
+
+**How to watch Duquesne vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duquesne Dukes play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077520/2026/02/28/duquesne-vs-saint-louis-stream-how-to-watch-feb-28/
+
+**How to watch BYU vs. West Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077518/2026/02/28/byu-vs-west-virginia-stream-how-to-watch-feb-28/
+
 **Pentagon to Cut Ties With Top Universities and Think Tanks**\
 `Defense Secretary Pete Hegseth said he was banning attendance at Yale, Princeton, Brown and other elite colleges and think tanks, accusing them of indoctrinating service members with liberal ideologies.`\
 https://nytimes.com/2026/02/28/us/politics/pentagon-universities-think-tanks.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/28/us/nancy-guthrie-update
 **The Folly of Attacking Iran**\
 `We don’t know how likely it is that the attacks will be successful, nor what costs or risks they bring.`\
 https://nytimes.com/2026/02/28/opinion/trump-iran-war.html
-
-**Elite Doctors Served Jeffrey Epstein While Treating His ‘Girls’**\
-`A small stable of doctors gave V.I.P. medical services to the sex offender and the women around him. Some doctors bent or broke the ethical rules of their profession.`\
-https://nytimes.com/2026/02/28/us/jeffrey-epstein-doctors.html
-
-**Iran Retaliates After Attack by U.S. and Israel**\
-`The United States and Israel attacked Iran in a major assault on at least nine cities. In retaliation, Iran fired waves of ballistic missiles at Israel and targeted at least four U.S. military bases in the Persian Gulf.`\
-https://nytimes.com/video/admin/100000010744151/irantest-78380.html
-
-**Mavericks upgrade Ryan Nembhard from two-way to standard contract: Source**\
-`Dallas holds a team option on Nembhard's contract in 2026-27, which will provide flexibility in revamping the team's backcourt.`\
-https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-standard-contract/
-
-**Here’s What Members of Congress Are Saying About the Attacks on Iran**\
-`As explosions rocked Tehran, Republicans largely voiced support as Democrats warned about a costly and unauthorized conflict.`\
-https://nytimes.com/2026/02/28/world/middleeast/congress-iran-attacks-reaction.html
 
