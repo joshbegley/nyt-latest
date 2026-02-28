@@ -1,40 +1,40 @@
-**Barcelona making progress in Rashford permanent move from Man Utd**\
-`Barcelona sources indicated the Spanish champions intend to pay the €30m buy option included in his loan deal over three €10m installments.`\
-https://nytimes.com/athletic/7076163/2026/02/28/marcus-rashford-barcelona-manchester-united-permanent-transfer/
+**Jerry Jones expects Cowboys to spend more in free agency: 'I can see us being aggressive'**\
+`"I have every intention of working very good with his agent,” Jones said of dealing with Pickens' agent David Mulugheta.`\
+https://nytimes.com/athletic/7076859/2026/02/28/cowboys-jerry-jones-george-pickens-negotiations/
+
+**From Los Angeles to Oakland, California artists celebrate Alysa Liu**\
+`After a Los Angeles-area mural depicting Olympic gold medalist Alysa Liu went viral, a Bay Area artist group began their own version.`\
+https://nytimes.com/athletic/7076675/2026/02/28/alysa-liu-los-angeles-oakland-murals/
+
+**Ranking the Winnipeg Jets’ top 11 trade assets: Which ones could be in play?**\
+`Today, we rank the Jets' top trade chips from most valuable to least.`\
+https://nytimes.com/athletic/7073877/2026/02/28/winnipeg-jets-trade-assets/
+
+**How to watch QB, RB and WR workouts at the NFL Scouting Combine**\
+`Quarterbacks, running backs and receivers have their workouts televised this Saturday afternoon.`\
+https://nytimes.com/athletic/7076134/2026/02/28/nfl-combine-workouts-qb-rb-wr-how-to-watch/
+
+**What potential trade suitors need to know about Robert Thomas and Jordan Kyrou**\
+`Interested teams just have to look past some of this year’s team-wide struggles to isolate what these two can bring to a lineup.`\
+https://nytimes.com/athletic/7073527/2026/02/28/nhl-trade-deadline-jordan-kyrou-robert-thomas/
+
+**Jeff Galloway remembered for inspiring thousands: 'Without a doubt, he saved my life'**\
+`One tribute to Galloway read: "He is survived by every person who ever crossed a finish line and thought, ‘I didn't think I could do this.'"`\
+https://nytimes.com/athletic/7076575/2026/02/28/jeff-galloway-obituary-olympics-marathon/
+
+**Don’t Let Your Children Grow Up to Be Fashion Models**\
+`‘Americas Next Top Model’ was bad. The reality of fashion was often worse.`\
+https://nytimes.com/2026/02/28/opinion/tyra-banks-americas-next-top-model-netflix.html
+
+**Hollywood Isn’t Celebrating Ellison’s Win**\
+`Anxiety about Netflix gives way to anxiety about layoffs.`\
+https://nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-netflix.html
+
+**If A.I. Is a Weapon, Who Should Control It?**\
+`Better to put this power in the hands of private industry or government officials?`\
+https://nytimes.com/2026/02/28/opinion/artificial-intelligence-trump-hegseth-anthropic.html
 
 **Will Trump’s Failures Cost the G.O.P. in Texas?**\
 `The round table convenes to discuss the upcoming Texas primaries and Trump’s State of the Union shortcomings.`\
-https://nytimes.com/video/opinion/100000010738959/will-trumps-failures-cost-the-gop-in-texas.html
-
-**Israelis Take Shelter as Sirens Warn of Incoming Missiles**\
-`People across the country took cover from Iran’s retaliatory strikes. “Oh, I did not miss this sound,” one woman said of the air raid alerts.`\
-https://nytimes.com/2026/02/28/world/middleeast/israel-missiles-shelter-iran.html
-
-**Trump’s case for striking Iran rests on questionable claims.**\
-`By Mark Mazzetti, Edward Wong, David E. Sanger and Julian E. Barnes`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/trumps-case-for-striking-iran-rests-on-questionable-claims
-
-**Here’s What World Leaders Are Saying About the U.S.-Led Attack on Iran**\
-`Governments around the world urged restraint after the United States and Israel launched a major assault, and Iran vowed retaliation.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-reaction.html
-
-**Mandel: Here's how I imagine Trump's meeting to 'save' college sports could go**\
-`An imagined, satirical look at the conversation that could happen to save college sports.`\
-https://nytimes.com/athletic/7076440/2026/02/28/save-college-sports-panel-trump-nil/
-
-**How to watch Trail Blazers vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077040/2026/02/28/trail-blazers-vs-hornets-stream-how-to-watch-feb-28/
-
-**How to watch Penguins vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077037/2026/02/28/penguins-vs-rangers-stream-how-to-watch-feb-28/
-
-**How to watch Virginia vs. Duke men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077033/2026/02/28/virginia-vs-duke-stream-how-to-watch-feb-28/
-
-**How to watch Seton Hall vs. UConn men's basketball: Time, TV, streaming**\
-`Find out how to watch the Seton Hall Pirates play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077030/2026/02/28/seton-hall-vs-uconn-stream-how-to-watch-feb-28/
+https://nytimes.com/2026/02/28/opinion/trump-texas-voters.html
 
