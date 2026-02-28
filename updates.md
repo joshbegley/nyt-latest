@@ -1,3 +1,11 @@
+**Live Updates: Israel Says It has Launched an Attack on Iran**\
+`Explosions were reported in Tehran, according to multiple residents.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
+
+**Here’s the latest.**\
+`By Aaron Boxerman and Farnaz Fassihi`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-strikes-us
+
 **Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
 `A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
 https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
