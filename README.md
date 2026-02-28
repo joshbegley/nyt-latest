@@ -1,4 +1,8 @@
-**Live Updates: Israel Says It has Launched an Attack on Iran**\
+**Aston Villa versus a mid-to-low block - the nightmare continues**\
+`Unai Emery's side were out-worked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
+https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
+
+**Live Updates: Israel Says It Has Launched an Attack on Iran**\
 `Explosions were reported in Tehran, according to multiple residents.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072297/2026/02/28/tottenham-hotspur-decline-enic-l
 **Real Madrid vs Man City... again? Is an increase in repeat fixtures damaging the Champions League?**\
 `Group match-ups have been repeated in the knockouts as many times in a season and a half of the new format as in the previous 32 years`\
 https://nytimes.com/athletic/7075554/2026/02/28/champions-league-repeat-fixtures/
-
-**Talk of the Devils debate: Should Benjamin Sesko stay as a super-sub?**\
-`This is what our Talk of the Devils team have learnt about Manchester United this week`\
-https://nytimes.com/athletic/7075496/2026/02/28/talk-of-the-devils-benjamin-sesko/
 
