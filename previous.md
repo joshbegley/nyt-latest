@@ -1,3 +1,27 @@
+**Canada’s Leader Heads to Asia and Australia to Build ‘Middle Power’ Bonds**\
+`Prime Minister Mark Carney visits India, Australia and Japan seeking deals to strengthen his country’s links to Indo-Pacific powers and break Canada’s dependence on the United States.`\
+https://nytimes.com/2026/02/28/world/canada/carney-asia-australia-visit.html
+
+**Is the Bundesliga's tie-up with Mark Goldbridge and The Overlap paying off?**\
+`The Bundesliga did deals with YouTube creators. Has it worked out for them?`\
+https://nytimes.com/athletic/7075045/2026/02/28/bundesliga-mark-goldbridge-overlap-interview/
+
+**Leeds kept running under Marsch and Allardyce – but that didn't stop them going down**\
+`Marsch weighed in this week after Allardyce commented about how running had dipped off before his arrival at Leeds`\
+https://nytimes.com/athletic/7075360/2026/02/28/jesse-marsch-sam-allardyce-leeds/
+
+**Connections: Sports Edition Coach: Hints and answers for Feb. 28, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7076798/2026/02/28/connections-sports-edition-hints-answers-feb-28-2026/
+
+**To Extract Hot Water From the Earth, a Plan to Pipe It In First**\
+`Developers are using a new geothermal technology in Germany to produce clean energy.`\
+https://nytimes.com/2026/02/28/business/germany-geothermal-renewable-energy.html
+
+**Corrections: Feb. 28, 2026**\
+`Corrections that appeared in print on Saturday, Feb. 28, 2026.`\
+https://nytimes.com/2026/02/28/pageoneplus/corrections-feb-28-2026.html
+
 **Quote of the Day: How ‘The Pitt’ Grosses Viewers Out**\
 `Quotation of the Day for Saturday, February 28, 2026.`\
 https://nytimes.com/2026/02/27/pageoneplus/quote-of-the-day-how-the-pitt-grosses-viewers-out.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7076612/2026/02/27/joe-gibbs-racing-chris-gabehart-
 **Michigan rolls past Illinois to win Big Ten title outright**\
 `Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
 https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
-
-**Man Convicted of Forging Threats Against Trump Gets 16.5 Years in Prison**\
-`A Wisconsin man was found guilty of impersonating an undocumented immigrant in handwritten letters that threatened to kill the president in an effort to get the immigrant deported.`\
-https://nytimes.com/2026/02/27/us/trump-threat-letters-sentenced.html
-
-**Watching Macklin Celebrini at Olympics was 'a life memory' for father Rick**\
-`While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
-https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
-
-**OpenAI Reaches A.I. Agreement With Defense Dept. After Anthropic Clash**\
-`The deal came hours after President Trump had ordered federal agencies to stop using artificial intelligence technology made by Anthropic, an OpenAI rival.`\
-https://nytimes.com/2026/02/27/technology/openai-reaches-ai-agreement-with-defense-dept-after-anthropic-clash.html
-
-**David White, JC Tretter among 3 finalists to be named NFLPA executive director: Sources**\
-`American Conference commissioner Tim Pernetti is the third finalist to be the NFLPA's top executive.`\
-https://nytimes.com/athletic/7076417/2026/02/27/nflpa-executive-director-finalists/
-
-**Pressure Gauge?**\
-`Adam Levav’s latest themeless puzzle is a breath of fresh air.`\
-https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
-
-**Bill Clinton Says He ‘Did Nothing Wrong’ in House Epstein Inquiry**\
-`Former President Bill Clinton told members of the House Oversight Committee in a closed-door deposition that he “saw nothing” and had done nothing wrong when he associated with Jeffrey Epstein decades ago.`\
-https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-deposition.html
 
