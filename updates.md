@@ -1,3 +1,7 @@
+**Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
+`A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
+https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
+
 **The New York Times in Print for Saturday, Feb. 28, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
