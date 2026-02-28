@@ -1,3 +1,7 @@
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/28/us/nancy-guthrie-update
+
 **The Folly of Attacking Iran**\
 `We don’t know how likely it is that the attacks will be successful, nor what costs or risks they bring.`\
 https://nytimes.com/2026/02/28/opinion/trump-iran-war.html
