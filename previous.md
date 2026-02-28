@@ -1,3 +1,7 @@
+**Royals, Starling Marte agree to major-league contract: Source**\
+`Marte, 37, hit .270 with nine homers for the Mets in 98 games last season.`\
+https://nytimes.com/athletic/7077968/2026/02/28/mlb-free-agent-signing-starling-marte-royals/
+
 **Arkansas RB Mike Washington Jr. sheds tears after 4.33 40 at NFL combine**\
 `Mike Washington Jr. clocked the fastest 40 time by a running back at the combine since 2024.`\
 https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
 **How to watch Lakers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077919/2026/02/28/lakers-vs-warriors-stream-how-to-watch-feb-28/
-
-**U.S. Ability to Determine What Comes Next in Iran Might Be Limited**\
-`Questions remain about how much effort the Trump administration will put into changing the Iranian government.`\
-https://nytimes.com/2026/02/28/us/politics/trump-iran-intelligence.html
 

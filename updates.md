@@ -1,3 +1,7 @@
+**Royals, Starling Marte agree to major-league contract: Source**\
+`Marte, 37, hit .270 with nine homers for the Mets in 98 games last season.`\
+https://nytimes.com/athletic/7077968/2026/02/28/mlb-free-agent-signing-starling-marte-royals/
+
 **Arkansas RB Mike Washington Jr. sheds tears after 4.33 40 at NFL combine**\
 `Mike Washington Jr. clocked the fastest 40 time by a running back at the combine since 2024.`\
 https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-time/
