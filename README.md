@@ -1,3 +1,11 @@
+**Live Updates: Israel Says It has Launched an Attack on Iran**\
+`Explosions were reported in Tehran, according to multiple residents.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
+
+**Here’s the latest.**\
+`By Aaron Boxerman and Farnaz Fassihi`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-strikes-us
+
 **Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
 `A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
 https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075554/2026/02/28/champions-league-repeat-fixtures
 **Talk of the Devils debate: Should Benjamin Sesko stay as a super-sub?**\
 `This is what our Talk of the Devils team have learnt about Manchester United this week`\
 https://nytimes.com/athletic/7075496/2026/02/28/talk-of-the-devils-benjamin-sesko/
-
-**The anatomy of a Haaland duel: Shirt pulls, sly kicks, off-the-ball barges and trash talk**\
-`Dan Burn was just the latest victim of a tussle with Erling Haaland, but he won't be the last...`\
-https://nytimes.com/athletic/7072652/2026/02/28/erling-haaland-manchester-city-duels/
-
-**Philipp Lahm: Where are Germany's super talents? Where are the specialists?**\
-`Germany has produced talented players, but not regularly produced super talents — or specialists in attack, defence or midfield`\
-https://nytimes.com/athletic/7068009/2026/02/28/philipp-lahm-super-talents-specialists-germany/
 
