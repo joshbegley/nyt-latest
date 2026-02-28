@@ -1,3 +1,11 @@
+**Taiwan Arms Sale Approved by Congress Is Delayed as Trump Plans Visit to Beijing**\
+`The package worth billions of dollars and endorsed by lawmakers is stalled at the State Department as the U.S. and China plan an April summit.`\
+https://nytimes.com/2026/02/27/us/politics/trump-taiwan-arms-sale.html
+
+**Columbia Student Detained by ICE Promotes ‘Beauty’ and ‘Brains’ Online**\
+`Elmina Aghayeva has 114,000 followers on Instagram and has seemingly never posted about politics, unlike other Columbia University students detained by immigration officers.`\
+https://nytimes.com/2026/02/27/nyregion/columbia-student-ice-influencer.html
+
 **Crypto’s Richest Man Details His Secret Talks, Prison Time and Humbling Comedown**\
 `In a draft of his memoir, Changpeng Zhao, the founder of Binance, laid out the secret negotiations that led to his imprisonment and a run-in with ICE.`\
 https://nytimes.com/2026/02/27/technology/cz-changpeng-zhao-binance-memoir-prison.html
