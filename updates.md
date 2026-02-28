@@ -1,3 +1,7 @@
+**Guess What Trump Values Above the Constitution**\
+`The State of the Union was very revealing.`\
+https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html
+
 **What You Taught Me About Texas**\
 `Our readers in the state offer a window into the current center of the political universe.`\
 https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
