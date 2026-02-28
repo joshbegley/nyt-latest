@@ -1,3 +1,7 @@
+**How the BAFTAs Bungled Its Big Awards Night**\
+`The awards show didn’t mention racist slurs when it told the audience a man with Tourette’s might make “involuntarily noises.”`\
+https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
+
 **Guardiola calls for “respect" after Leeds fans boo stoppage for breaking Ramadan fast**\
 `Boos and whistles rang around Elland Road during a short break after sunset that allowed City’s Muslim players to break their fast`\
 https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramadan-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077879/2026/02/28/arkansas-vs-florida-stream-how-t
 **How to watch Virginia Tech vs. North Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077877/2026/02/28/virginia-tech-vs-north-carolina-stream-how-to-watch-feb-28/
-
-**How to watch Gonzaga vs. Saint Mary's (CA) men's basketball: Time, TV, streaming**\
-`Find out how to watch the Gonzaga Bulldogs play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077875/2026/02/28/gonzaga-vs-saint-mary-s-ca-stream-how-to-watch-feb-28/
 
