@@ -1,3 +1,7 @@
+**Twins have a trio of outfield prospects waiting in the wings. Target Field could be next**\
+`Walker Jenkins, Emmanuel Rodriguez and Gabriel Gonzalez are close to the majors. Playing together in the Twins' outfield is a possibility.`\
+https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outfield/
+
 **The United States and Israel Attack Iran**\
 `The country is retaliating, and the Middle East is in crisis.`\
 https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076134/2026/02/28/nfl-combine-workouts-qb-rb-wr-ho
 **What potential trade suitors need to know about Robert Thomas and Jordan Kyrou**\
 `Interested teams just have to look past some of this year’s team-wide struggles to isolate what these two can bring to a lineup.`\
 https://nytimes.com/athletic/7073527/2026/02/28/nhl-trade-deadline-jordan-kyrou-robert-thomas/
-
-**Jeff Galloway remembered for inspiring thousands: 'Without a doubt, he saved my life'**\
-`One tribute to Galloway read: "He is survived by every person who ever crossed a finish line and thought, ‘I didn't think I could do this.'"`\
-https://nytimes.com/athletic/7076575/2026/02/28/jeff-galloway-obituary-olympics-marathon/
 
