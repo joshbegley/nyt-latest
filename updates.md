@@ -1,3 +1,15 @@
+**Twins have a trio of outfield prospects waiting in the wings. Target Field could be next**\
+`Walker Jenkins, Emmanuel Rodriguez and Gabriel Gonzalez are close to the majors. Playing together in the Twins' outfield is a possibility.`\
+https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outfield/
+
+**The United States and Israel Attack Iran**\
+`The country is retaliating, and the Middle East is in crisis.`\
+https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
+
+**As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**\
+`The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
+
 **As the U.S. Bombed Tehran, Iranians Said They Felt Abandoned by Their Leaders**\
 `The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
