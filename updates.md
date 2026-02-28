@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077261/2026/02/28/rockets-vs-heat-stream-how-to-watch-feb-28/
+
 **How to watch Oilers vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077253/2026/02/28/oilers-vs-sharks-stream-how-to-watch-feb-28/

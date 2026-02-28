@@ -1,3 +1,7 @@
+**How to watch Rockets vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077261/2026/02/28/rockets-vs-heat-stream-how-to-watch-feb-28/
+
 **How to watch Oilers vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077253/2026/02/28/oilers-vs-sharks-stream-how-to-watch-feb-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077225/2026/02/28/maryland-vs-michigan-stream-how-
 **How to watch Nebraska vs. USC men's basketball: Time, TV, streaming**\
 `Find out how to watch the Nebraska Cornhuskers play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077221/2026/02/28/nebraska-vs-usc-stream-how-to-watch-feb-28/
-
-**Medvedev wins Dubai title; doubles final played despite Iran missile attacks**\
-`The final was still scheduled to take place on Saturday night, despite projectiles being seen over Dubai as Iran fired retaliatory missiles.`\
-https://nytimes.com/athletic/7077150/2026/02/28/dubai-tennis-medvedez-iran-missiles-uae/
 
