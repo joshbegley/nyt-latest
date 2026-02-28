@@ -1,3 +1,7 @@
+**‘Avalanche!’: Survivors Recount the Tragedy at Perry’s Peak**\
+`The story of how nine skiers were killed, and six survived, in the deadliest avalanche in modern California history.`\
+https://nytimes.com/interactive/2026/02/28/us/tahoe-avalanche-survivors.html
+
 **Trump Calls for Change in Iran’s Leadership**\
 `In an eight-minute video, President Trump said Iran directly endangers the United States and urged the Iranian people to rise up once the U.S. strikes end.`\
 https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
