@@ -1,3 +1,11 @@
+**A debatable handball, a six-minute VAR review and a decision that left Burnley enraged**\
+`Explaining the contentious moment Burnley were denied an equaliser that would have given them a 4-4 draw against Brentford`\
+https://nytimes.com/athletic/7077566/2026/02/28/burnley-goal-handball-var-disallowed/
+
+**Netanyahu Takes His Shot at Regime Change in Iran**\
+`The United States and Israel have declared their war aim as paving the way for a popular uprising against the government in Tehran.`\
+https://nytimes.com/2026/02/28/world/middleeast/netanyahu-regime-change-iran.html
+
 **San Francisco Ballet Pulls Out of Kennedy Center Performances**\
 `The ballet company, one of the country’s most prestigious, had been under pressure to cancel its shows amid President Trump’s takeover of the performing arts center.`\
 https://nytimes.com/2026/02/28/arts/dance/kennedy-center-san-francisco-ballet.html

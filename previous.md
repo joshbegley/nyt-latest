@@ -1,3 +1,11 @@
+**A debatable handball, a six-minute VAR review and a decision that left Burnley enraged**\
+`Explaining the contentious moment Burnley were denied an equaliser that would have given them a 4-4 draw against Brentford`\
+https://nytimes.com/athletic/7077566/2026/02/28/burnley-goal-handball-var-disallowed/
+
+**Netanyahu Takes His Shot at Regime Change in Iran**\
+`The United States and Israel have declared their war aim as paving the way for a popular uprising against the government in Tehran.`\
+https://nytimes.com/2026/02/28/world/middleeast/netanyahu-regime-change-iran.html
+
 **San Francisco Ballet Pulls Out of Kennedy Center Performances**\
 `The ballet company, one of the country’s most prestigious, had been under pressure to cancel its shows amid President Trump’s takeover of the performing arts center.`\
 https://nytimes.com/2026/02/28/arts/dance/kennedy-center-san-francisco-ballet.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7077557/2026/02/28/islanders-vs-blue-jackets-stream
 **Iranian Attacks on Israel Shine a Light on Shelter Shortage**\
 `The missile barrages highlight a shortage of bomb shelters in a country that has been preparing for war with Iran for decades.`\
 https://nytimes.com/2026/02/28/world/middleeast/israel-bomb-shelter-shortage-iran.html
-
-**How to watch Senators vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077553/2026/02/28/senators-vs-maple-leafs-stream-how-to-watch-feb-28/
-
-**How to watch Raptors vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077551/2026/02/28/raptors-vs-wizards-stream-how-to-watch-feb-28/
 

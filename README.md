@@ -1,3 +1,7 @@
+**Iran Says Dozens Killed in Strike on School**\
+`The strike on an elementary school in the southern Iran town of Minab was one of two attacks that appear to have hit schools during U.S. and Israeli strikes on Iran on Saturday.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-says-dozens-killed-in-strike-on-school.html
+
 **A debatable handball, a six-minute VAR review and a decision that left Burnley enraged**\
 `Explaining the contentious moment Burnley were denied an equaliser that would have given them a 4-4 draw against Brentford`\
 https://nytimes.com/athletic/7077566/2026/02/28/burnley-goal-handball-var-disallowed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077563/2026/02/28/blackhawks-vs-avalanche-stream-h
 **How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077557/2026/02/28/islanders-vs-blue-jackets-stream-how-to-watch-feb-28/
-
-**Iranian Attacks on Israel Shine a Light on Shelter Shortage**\
-`The missile barrages highlight a shortage of bomb shelters in a country that has been preparing for war with Iran for decades.`\
-https://nytimes.com/2026/02/28/world/middleeast/israel-bomb-shelter-shortage-iran.html
 
