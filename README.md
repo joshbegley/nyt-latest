@@ -1,3 +1,7 @@
+**An attack on Iran carries risks for the U.S., experts say.**\
+`By Abdi Latif Dahir and Samuel Granados`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/an-attack-on-iran-carries-risks-for-the-us-experts-say
+
 **Trump’s Attack on Iran Is Reckless**\
 `Donald Trump promised voters that he would end wars, not start them.`\
 https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jok
 **The New York Times in Print for Saturday, Feb. 28, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
-
-**Chelsea would have expected more from £88.5m Gittens and Garnacho, but time is on their side**\
-`Both players joined Chelsea in the summer, but neither has become first-choice since then`\
-https://nytimes.com/athletic/7073063/2026/02/28/chelsea-gittens-garnacho-analysis/
 
