@@ -1,3 +1,15 @@
+**How the BAFTAs Bungled Its Big Awards Night**\
+`The awards show didn’t mention racist slurs when it told the audience a man with Tourette’s might make “involuntarily noises.”`\
+https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
+
+**Guardiola calls for “respect" after Leeds fans boo stoppage for breaking Ramadan fast**\
+`Boos and whistles rang around Elland Road during a short break after sunset that allowed City’s Muslim players to break their fast`\
+https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramadan-guardiola/
+
+**In Texas, Paxton Has Led Efforts to Spread False Claims About Elections**\
+`The Texas attorney general is vying for the Republican nomination for Senate in Tuesday’s primary.`\
+https://nytimes.com/2026/02/28/us/elections/paxton-texas-election-voting.html
+
 **In Texas, Paxton has led efforts to spread false claims about elections**\
 `By Nick Corasaniti`\
 https://nytimes.com/2026/02/28/us/elections/paxton-integrity-post.html
