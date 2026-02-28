@@ -1,3 +1,7 @@
+**Guess What Trump Values Above the Constitution**\
+`The State of the Union was very revealing.`\
+https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html
+
 **Trump, the Self-Declared Peace President, Goes to War Seeking Regime Change**\
 `President Trump has become increasingly willing to assert American power overseas, a decade after propelling himself to the highest office by promising to focus on “America first.”`\
 https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/us/politics/trump-iran-intelligence.html
 **How to watch Pelicans vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077897/2026/02/28/pelicans-vs-jazz-stream-how-to-watch-feb-28/
-
-**How to watch Canucks vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077886/2026/02/28/canucks-vs-kraken-stream-how-to-watch-feb-28/
 
