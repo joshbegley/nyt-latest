@@ -1,3 +1,11 @@
+**Barcelona making progress in Rashford permanent move from Man Utd**\
+`Barcelona sources indicated the Spanish champions intend to pay the €30m buy option included in his loan deal over three €10m installments.`\
+https://nytimes.com/athletic/7076163/2026/02/28/marcus-rashford-barcelona-manchester-united-permanent-transfer/
+
+**Will Trump’s Failures Cost the G.O.P. in Texas?**\
+`The round table convenes to discuss the upcoming Texas primaries and Trump’s State of the Union shortcomings.`\
+https://nytimes.com/video/opinion/100000010738959/will-trumps-failures-cost-the-gop-in-texas.html
+
 **Israelis Take Shelter as Sirens Warn of Incoming Missiles**\
 `People across the country took cover from Iran’s retaliatory strikes. “Oh, I did not miss this sound,” one woman said of the air raid alerts.`\
 https://nytimes.com/2026/02/28/world/middleeast/israel-missiles-shelter-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7077033/2026/02/28/virginia-vs-duke-stream-how-to-w
 **How to watch Seton Hall vs. UConn men's basketball: Time, TV, streaming**\
 `Find out how to watch the Seton Hall Pirates play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077030/2026/02/28/seton-hall-vs-uconn-stream-how-to-watch-feb-28/
-
-**How to watch Louisville vs. Clemson men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077028/2026/02/28/louisville-vs-clemson-stream-how-to-watch-feb-28/
-
-**How to watch Colorado vs. Houston men's basketball: Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077026/2026/02/28/colorado-vs-houston-stream-how-to-watch-feb-28/
 
