@@ -1,3 +1,7 @@
+**With Brennan Othmann's demotion, it's time to accept the reality of his Rangers situation**\
+`The Rangers made clear where the 2021 first-round pick stands on their roster. Now they need to do what’s best for both sides.`\
+https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-tye-kartye/
+
 **Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
 `Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
 https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scutaro-venezuela-connection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramad
 **How Wesley Hunt of Texas Is Working in Plain Sight With Outside Groups**\
 `Exchanges between two X accounts appear to offer a vivid example of how campaigns may sidestep campaign-finance law to share strategic information.`\
 https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaign-finance.html
-
-**What You Taught Me About Texas**\
-`Our readers in the state offer a window into the current center of the political universe.`\
-https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
 
