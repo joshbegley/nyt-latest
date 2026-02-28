@@ -1,3 +1,7 @@
+**FIFA focused on 'everybody participating' at World Cup after U.S. attack on Iran**\
+`Military action has increased tensions between the two countries ahead of this summer's tournament`\
+https://nytimes.com/athletic/7077233/2026/02/28/fifa-world-cup-iran-attack-united-states/
+
 **How to watch Rockets vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077261/2026/02/28/rockets-vs-heat-stream-how-to-watch-feb-28/
