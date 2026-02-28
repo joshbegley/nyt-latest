@@ -1,4 +1,8 @@
-**Watching Macklin Celebrini play for Canada at Olympics was 'a life memory' for father Rick**\
+**Man Convicted of Forging Threats Against Trump Gets 16.5 Years in Prison**\
+`A Wisconsin man was found guilty of impersonating an undocumented immigrant in handwritten letters that threatened to kill the president in an effort to get the immigrant deported.`\
+https://nytimes.com/2026/02/27/us/trump-threat-letters-sentenced.html
+
+**Watching Macklin Celebrini at Olympics was 'a life memory' for father Rick**\
 `While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
 https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba
 **Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
 `Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
 https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
-
-**Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
-`The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
-https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
 
