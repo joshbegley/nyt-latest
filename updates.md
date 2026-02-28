@@ -1,3 +1,7 @@
+**Trump Calls for Change in Iran’s Leadership**\
+`In an eight-minute video, President Trump said Iran directly endangers the United States and urged the Iranian people to rise up once the U.S. strikes end.`\
+https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
+
 **A Tale of Two Seasons at Columbia, and Two Responses to Student Arrests**\
 `When Mahmoud Khalil was detained by immigration agents last year, the university’s response was restrained. It was different with Elmina Aghayeva this week.`\
 https://nytimes.com/2026/02/28/nyregion/columbia-student-ice-arrest.html

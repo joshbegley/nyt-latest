@@ -1,3 +1,7 @@
+**Trump Calls for Change in Iran’s Leadership**\
+`In an eight-minute video, President Trump said Iran directly endangers the United States and urged the Iranian people to rise up once the U.S. strikes end.`\
+https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
+
 **A Tale of Two Seasons at Columbia, and Two Responses to Student Arrests**\
 `When Mahmoud Khalil was detained by immigration agents last year, the university’s response was restrained. It was different with Elmina Aghayeva this week.`\
 https://nytimes.com/2026/02/28/nyregion/columbia-student-ice-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-us-last-bombed-
 **Mammoth continue to be Wild's 'kryptonite,' Joel Eriksson Ek injured: Takeaways**\
 `"They make plays, they're hard on pucks," Mats Zuccarello said of Utah. "They play that in-your-face game."`\
 https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-ek-injured/
-
-**Aston Villa versus a mid-to-low block - the nightmare continues**\
-`Unai Emery's side were outworked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
-https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
 
