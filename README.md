@@ -1,3 +1,7 @@
+**'It's special, man': Jalen Duren steps up with Cade Cunningham out in win over Cavaliers**\
+`After Cunningham fouled out, Duren took control for the Pistons in the fourth quarter and overtime against their Eastern Conference rivals.`\
+https://nytimes.com/athletic/7076889/2026/02/28/jalen-duren-cade-cunningham-pistons-cavaliers/
+
 **Football lawmakers to punish players who cover mouths when speaking to opponents**\
 `The new law comes after Real Madrid's Vinicius Junior was allegedly racially abused by Benfica's Gianluca Prestianni on February 17.`\
 https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinicius-junior-real-madrid-benfica-prestianni/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077250/2026/02/28/bruins-vs-flyers-stream-how-to-w
 **How to watch Devils vs. Blues: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077248/2026/02/28/devils-vs-blues-stream-how-to-watch-feb-28/
-
-**See photos and videos from the Middle East after the U.S.-led attacks.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/see-photos-and-videos-from-the-middle-east-after-the-us-led-attacks
 
