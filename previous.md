@@ -1,3 +1,7 @@
+**Maggie Gyllenhaal Thinks Hollywood Likes Women to Direct ‘Little Movies’**\
+`With a big budget and a lot to say, the filmmaker is unleashing her inner monster with “The Bride!”`\
+https://nytimes.com/2026/02/28/magazine/maggie-gyllenhaal-interview.html
+
 **F1 manufacturers agree to engine testing rule change after compression ratio row**\
 `In December, it emerged that Mercedes had found a possible loophole in the rules that could lead to a performance advantage.`\
 https://nytimes.com/athletic/7077002/2026/02/28/f1-engine-rule-change-compression-ratio/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/climate/seabed-mining-rulebook-isa-metals-company
 **5 Great Specials to Stream This Winter**\
 `Taylor Tomlinson, Kevin Nealon, Chris Spencer, Isabel Hagen and Jackie Kashian deliver very different but very funny hours to get you through the cold.`\
 https://nytimes.com/2026/02/28/arts/television/comedy-specials-tomlinson-nealon-hagen.html
-
-**Wind graphs and energy gels: What it takes to win an early-season bike race**\
-`The Athletic spent a day in the Soudal–Quick-Step team car at the Vuelta ao Algarve, and saw Texas-born Paul Magnier pull off a stage win`\
-https://nytimes.com/athletic/7073097/2026/02/28/inside-team-car-soudal-quick-step-volta-algarve-magnier/
 
