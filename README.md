@@ -1,3 +1,7 @@
+**Crypto’s Richest Man Details His Secret Talks, Prison Time and Humbling Comedown**\
+`In a draft of his memoir, Changpeng Zhao, the founder of Binance, laid out the secret negotiations that led to his imprisonment and a run-in with ICE.`\
+https://nytimes.com/2026/02/27/technology/cz-changpeng-zhao-binance-memoir-prison.html
+
 **Why Did Trump Go to War With Anthropic?**\
 `The military needs the very best A.I. to streamline its operations. It should find ways to work with these companies, not erect barriers.`\
 https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-hegseth.html
@@ -15,7 +19,7 @@ https://nytimes.com/2026/02/27/technology/meta-self-harm-notifications-parents.h
 https://nytimes.com/2026/02/27/us/elections/how-to-vote-north-carolina-primary.html
 
 **Los Angeles Schools Chief Is Placed on Leave Following F.B.I. Raid**\
-`Alberto Carvalho, superintendent of the Los Angeles Unified School District, was placed on leave on Friday after F.B.I. agents raided his home and district office this week.`\
+`Alberto Carvalho, superintendent of the Los Angeles Unified School District, was placed on paid leave after F.B.I. agents raided his home and district office this week.`\
 https://nytimes.com/2026/02/27/us/lausd-superintendent-alberto-carvalho-fbi.html
 
 **How Israel Lost Americans**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/arts/music/neil-sedaka-songs.html
 **Trump Said the Government Will No Longer Use Anthropic’s A.I.**\
 `Also, the president said he is “not happy” with Iran’s negotiators. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/02/27/briefing/trump-pentagon-anthropic-ai.html
-
-**What Are ICE Agents Allowed to Do on College Campuses?**\
-`Federal agents do not have any special privileges on campuses. To arrest a student at Columbia University this week, they used a tactic of questionable legality.`\
-https://nytimes.com/2026/02/27/nyregion/immigration-agents-college-campus-columbia.html
 
