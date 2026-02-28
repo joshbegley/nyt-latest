@@ -1,3 +1,7 @@
+**Quote of the Day: How ‘The Pitt’ Grosses Viewers Out**\
+`Quotation of the Day for Saturday, February 28, 2026.`\
+https://nytimes.com/2026/02/27/pageoneplus/quote-of-the-day-how-the-pitt-grosses-viewers-out.html
+
 **'I don’t know what these guys are smoking': Panthers goalie blasts replay decision**\
 `Daniil Tarasov says he was interfered with on the goal that put the Panthers down 2-1 against the Sabres.`\
 https://nytimes.com/athletic/7076827/2026/02/27/panthers-goalie-daniil-tarasov-sabres-interference/
