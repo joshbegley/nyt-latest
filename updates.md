@@ -1,3 +1,11 @@
+**At Gucci: Bodies, Bodies, Bodies**\
+`In this week’s most anticipated show in Milan, Demna debuted his new look for the brand. Was it any good?`\
+https://nytimes.com/2026/02/28/style/gucci-demna-show.html
+
+**Trump Calls for Overthrow of Iran’s Government**\
+`In an eight-minute video, President Trump announced a “massive” campaign of U.S. strikes on Iran and urged the Iranian people to rise up once they end.`\
+https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
+
 **Initial Focus of U.S. Strikes in Iran Is Military Targets**\
 `Dozens of attacks were carried out by warplanes launched from bases and aircraft carriers in the region. President Trump said the targets included missile sites, Iran’s navy and nuclear facilities.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-us-attacks-military-targets.html
