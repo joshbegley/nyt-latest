@@ -1,3 +1,15 @@
+**The Folly of Attacking Iran**\
+`We don’t know how likely it is that the attacks will be successful, nor what costs or risks they bring.`\
+https://nytimes.com/2026/02/28/opinion/trump-iran-war.html
+
+**Elite Doctors Served Jeffrey Epstein While Treating His ‘Girls’**\
+`A small stable of doctors gave V.I.P. medical services to the sex offender and the women around him. Some doctors bent or broke the ethical rules of their profession.`\
+https://nytimes.com/2026/02/28/us/jeffrey-epstein-doctors.html
+
+**Iran Retaliates After Attack by U.S. and Israel**\
+`The United States and Israel attacked Iran in a major assault on at least nine cities. In retaliation, Iran fired waves of ballistic missiles at Israel and targeted at least four U.S. military bases in the Persian Gulf.`\
+https://nytimes.com/video/admin/100000010744151/irantest-78380.html
+
 **Mavericks upgrade Ryan Nembhard from two-way to standard contract: Source**\
 `Dallas holds a team option on Nembhard's contract in 2026-27, which will provide flexibility in revamping the team's backcourt.`\
 https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-standard-contract/
