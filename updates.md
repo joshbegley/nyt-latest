@@ -1,5 +1,9 @@
 **Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
 `Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
+https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scutaro-venezuela-connection/
+
+**Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
+`Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
 https://nytimes.com/athletic/7077856/2026/02/28/rainmakers-marco-scutaro-showed-luis-arraez-what-was-possible-for-a-kid-from-small-town-venezuela/
 
 **Royals, Starling Marte agree to major-league contract: Source**\
