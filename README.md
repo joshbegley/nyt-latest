@@ -1,3 +1,7 @@
+**Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**\
+`Waves of retaliatory strikes were reported in Israel and across several Gulf countries on Saturday. The Emirati government said at least one person was killed from falling missile debris.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html
+
 **Banks Are Becoming Bulwarks for Vulnerable Seniors**\
 `Older Americans are losing billions of dollars annually to financial exploitation. Banks and investment firms are training employees to spot red flags and stop the transactions.`\
 https://nytimes.com/2026/02/28/health/scams-elderly-banks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/world/iran-israel-trump-attack-photos.html
 **Twins have a trio of outfield prospects waiting in the wings. Target Field could be next**\
 `Walker Jenkins, Emmanuel Rodriguez and Gabriel Gonzalez are close to the majors. Playing together in the Twins' outfield is a possibility.`\
 https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outfield/
-
-**The United States and Israel Attack Iran**\
-`The country is retaliating, and the Middle East is in crisis.`\
-https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
 
