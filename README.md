@@ -1,3 +1,7 @@
+**Football lawmakers vote for countdowns to combat timewasting and increase VAR powers**\
+`Throw-ins and goal kicks will be given a five-second countdown by a referee who considers there to be a deliberate delay.`\
+https://nytimes.com/athletic/7077094/2026/02/28/var-football-ifab-timewasting-clock/
+
 **Video: Go inside the Indianapolis restaurant where NFL deals get done**\
 `Mike Silver takes you behind the scenes at St. Elmo Steak House during NFL Scouting Combine week.`\
 https://nytimes.com/athletic/7076065/2026/02/28/nfl-st-elmo-steak-house-video/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
 **As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**\
 `The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
-
-**The Pulse: A plot twist in the West**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7076882/2026/02/28/a-plot-twist-in-the-west-plus-pavias-manziel-connection/
 
