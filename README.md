@@ -18,9 +18,9 @@ https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramad
 `Exchanges between two X accounts appear to offer a vivid example of how campaigns may sidestep campaign-finance law to share strategic information.`\
 https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaign-finance.html
 
-**In Texas, Paxton Has Led Efforts to Spread False Claims About Elections**\
-`The Texas attorney general is vying for the Republican nomination for Senate in Tuesday’s primary.`\
-https://nytimes.com/2026/02/28/us/elections/paxton-texas-election-voting.html
+**What You Taught Me About Texas**\
+`Our readers in the state offer a window into the current center of the political universe.`\
+https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
 
 **How to watch Lakers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Golden State Warriors, with time, TV channel and streaming information.`\

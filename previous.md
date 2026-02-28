@@ -1,3 +1,11 @@
+**Trump, the Self-Declared Peace President, Goes to War Seeking Regime Change**\
+`President Trump has become increasingly willing to assert American power overseas, a decade after propelling himself to the highest office by promising to focus on “America first.”`\
+https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
+
+**A War of Choice Does Not Make Us Safer**\
+`“The first mission of a president is to keep Americans safe,” says Times columnist Nicholas Kristof following the United States and Israel’s military strike against Iran Saturday.`\
+https://nytimes.com/video/opinion/100000010744432/a-war-of-choice-does-not-make-us-safer.html
+
 **How the BAFTAs Bungled Its Big Awards Night**\
 `The awards show didn’t mention racist slurs when it told the audience a man with Tourette’s might make “involuntarily noises.”`\
 https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7077897/2026/02/28/pelicans-vs-jazz-stream-how-to-w
 **How to watch Canucks vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077886/2026/02/28/canucks-vs-kraken-stream-how-to-watch-feb-28/
-
-**How to watch Arkansas vs. Florida men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077879/2026/02/28/arkansas-vs-florida-stream-how-to-watch-feb-28/
-
-**How to watch Virginia Tech vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Virginia Tech Hokies play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077877/2026/02/28/virginia-tech-vs-north-carolina-stream-how-to-watch-feb-28/
 

@@ -1,3 +1,11 @@
+**Trump, the Self-Declared Peace President, Goes to War Seeking Regime Change**\
+`President Trump has become increasingly willing to assert American power overseas, a decade after propelling himself to the highest office by promising to focus on “America first.”`\
+https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
+
+**A War of Choice Does Not Make Us Safer**\
+`“The first mission of a president is to keep Americans safe,” says Times columnist Nicholas Kristof following the United States and Israel’s military strike against Iran Saturday.`\
+https://nytimes.com/video/opinion/100000010744432/a-war-of-choice-does-not-make-us-safer.html
+
 **How the BAFTAs Bungled Its Big Awards Night**\
 `The awards show didn’t mention racist slurs when it told the audience a man with Tourette’s might make “involuntarily noises.”`\
 https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
