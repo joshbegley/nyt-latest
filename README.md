@@ -1,3 +1,7 @@
+**Warriors sign Gui Santos to three-year contract extension**\
+`Santos is averaging a career-high 6.6 points, 3.2 rebounds and 1.7 assists while shooting 53.1 percent from the field in his third season.`\
+https://nytimes.com/athletic/7077827/2026/02/28/gui-santos-warriors-contract-extension/
+
 **Only 21% of Americans Support the United States Initiating an Attack on Iran**\
 `The public’s appetite for a U.S. attack on Iran was low before President Trump and Israel took action on Saturday.`\
 https://nytimes.com/2026/02/28/us/politics/poll-americans-support-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077716/2026/02/28/europa-league-nottingham-forest-
 **Mapping the U.S.-Led Attacks on Iran**\
 `Maps show where U.S. and Israel have struck Iran, and where Iran has retaliated.`\
 https://nytimes.com/2026/02/28/world/middleeast/us-israel-iran-attack-maps.html
-
-**Oil Shipments in Persian Gulf Already Disrupted by Iran Attack**\
-`Tankers have begun to steer clear of the region and the Strait of Hormuz, threatening to push up energy prices.`\
-https://nytimes.com/2026/02/28/business/energy-environment/oil-gas-iran-attack.html
 
