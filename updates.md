@@ -1,3 +1,15 @@
+**Mammoth continue to be Wild's 'kryptonite,' Joel Eriksson Ek injured: Takeaways**\
+`"They make plays, they're hard on pucks," Mats Zuccarello said of Utah. "They play that in-your-face game."`\
+https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-ek-injured/
+
+**Aston Villa versus a mid-to-low block - the nightmare continues**\
+`Unai Emery's side were outworked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
+https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
+
+**Live Updates: U.S. and Israel Conduct Strikes on Iran**\
+`Large explosions were reported in Tehran, according to several residents, and air-raid sirens rang across Israel.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
+
 **Live Updates: Israel Says It has Launched an Attack on Iran**\
 `Explosions were reported in Tehran, according to multiple residents.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump

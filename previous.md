@@ -1,5 +1,13 @@
-**Live Updates: Israel Says It has Launched an Attack on Iran**\
-`Explosions were reported in Tehran, according to multiple residents.`\
+**Mammoth continue to be Wild's 'kryptonite,' Joel Eriksson Ek injured: Takeaways**\
+`"They make plays, they're hard on pucks," Mats Zuccarello said of Utah. "They play that in-your-face game."`\
+https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-ek-injured/
+
+**Aston Villa versus a mid-to-low block - the nightmare continues**\
+`Unai Emery's side were outworked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
+https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
+
+**Live Updates: U.S. and Israel Conduct Strikes on Iran**\
+`Large explosions were reported in Tehran, according to several residents, and air-raid sirens rang across Israel.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
 
 **Here’s the latest.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7075137/2026/02/28/everton-leeds-tottenham-the-prem
 **From title favourites to relegation contenders in 10 years — what did Spurs do wrong?**\
 `This time 10 years ago, Spurs were on top of the world — so how have they fallen so far in the decade since?`\
 https://nytimes.com/athletic/7072297/2026/02/28/tottenham-hotspur-decline-enic-levy-pochettino/
-
-**Real Madrid vs Man City... again? Is an increase in repeat fixtures damaging the Champions League?**\
-`Group match-ups have been repeated in the knockouts as many times in a season and a half of the new format as in the previous 32 years`\
-https://nytimes.com/athletic/7075554/2026/02/28/champions-league-repeat-fixtures/
-
-**Talk of the Devils debate: Should Benjamin Sesko stay as a super-sub?**\
-`This is what our Talk of the Devils team have learnt about Manchester United this week`\
-https://nytimes.com/athletic/7075496/2026/02/28/talk-of-the-devils-benjamin-sesko/
 
