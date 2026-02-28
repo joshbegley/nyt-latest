@@ -1,3 +1,19 @@
+**Ed Iskenderian, Hot Rod Pioneer Known as the ‘Camfather,’ Dies at 104**\
+`“His influence can be felt in every form of motorsport today,” Car and Driver magazine wrote of the man who powered some of the fastest cars of his era with his innovative engine camshafts.`\
+https://nytimes.com/2026/02/28/sports/autoracing/ed-iskenderian-dead.html
+
+**Fact-Checking Trump’s Justifications for Attacking Iran**\
+`The president made unsupported and exaggerated claims in a speech announcing the attack on Iran.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-fact-check.html
+
+**A vast section of Middle East airspace has been closed, causing 1,600 flight cancellations.**\
+`A major hub in Dubai has suspended operations following U.S.-Israeli strikes on Iran. The sweeping closures are stranding passengers.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/middle-east-airport-closures-emirates-qatar
+
+**Leeds 0 Man City 1: How important could this result be? How did City cope without Haaland?**\
+`Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
+https://nytimes.com/athletic/7073026/2026/02/28/briefing-leeds-0-1-manchester-city-analysis/
+
 **Israel Targeted Top Iranian Leaders in Attack’s Opening Strikes**\
 `At least one gathering of senior officials and military leaders was hit, but it was not immediately clear whether the effort to kill them had succeeded.`\
 https://nytimes.com/2026/02/28/world/middleeast/israel-iran-assassination-khamenei.html
@@ -8,7 +24,7 @@ https://nytimes.com/athletic/7077716/2026/02/28/europa-league-nottingham-forest-
 
 **Mapping the U.S.-Led Attacks on Iran**\
 `Maps show where U.S. and Israel have struck Iran, and where Iran has retaliated.`\
-https://nytimes.com/2026/02/28/world/middleeast/mapping-the-us-led-attacks-on-iran.html
+https://nytimes.com/2026/02/28/world/middleeast/us-israel-iran-attack-maps.html
 
 **Oil Shipments in Persian Gulf Already Disrupted by Iran Attack**\
 `Tankers have begun to steer clear of the region and the Strait of Hormuz, threatening to push up energy prices.`\
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/congress-iran-notif
 **No Clear Endgame in the Conflict Between Afghanistan and Pakistan**\
 `Pakistan’s airstrikes in Afghanistan showed its overwhelming superiority in conventional warfare, but the Taliban have refined a lethal repertoire of guerrilla tactics.`\
 https://nytimes.com/2026/02/28/world/asia/afghanistan-pakistan-war-taliban.html
-
-**A Sports Frenzy for the Most Valuable Influencers**\
-`To reach young audiences raised on social media, leagues are giving content creators access to marquee moments.`\
-https://nytimes.com/2026/02/28/arts/sports-influencers-content-creators-nfl-nba.html
-
-**Demna Struts Into Gucci**\
-`The big debut of Milan Fashion Week sure had a lot of oomph. But will that be enough to turn Gucci’s business around?`\
-https://nytimes.com/2026/02/28/style/demna-struts-into-gucci.html
-
-**Formula 1 monitoring Middle East conflict after Iran strikes U.S. base near Bahrain circuit**\
-`F1's new season visits Bahrain and Saudi Arabia in six weeks `\
-https://nytimes.com/athletic/7077602/2026/02/28/f1-iran-attack-united-states-bahrain-saudi-arabia/
-
-**Trump’s Unilateral Attack on Iran Paves Way for Broader Dispute Over War Powers**\
-`Critics say the president is violating the Constitution, and many Democrats and at least two Republicans in Congress say they must vote on whether to enter such a conflict.`\
-https://nytimes.com/2026/02/28/world/middleeast/trump-iran-war-powers.html
 
