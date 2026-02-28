@@ -1,3 +1,11 @@
+**'I don’t know what these guys are smoking': Panthers goalie blasts replay decision**\
+`Daniil Tarasov says he was interfered with on the goal that put the Panthers down 2-1 against the Sabres.`\
+https://nytimes.com/athletic/7076827/2026/02/27/panthers-goalie-daniil-tarasov-sabres-interference/
+
+**Judge delays ruling in Joe Gibbs Racing fight to block Chris Gabehart’s move**\
+`A judge in North Carolina chose to postpone a ruling on a temporary restraining order, imploring the two sides to discuss until Monday.`\
+https://nytimes.com/athletic/7076612/2026/02/27/joe-gibbs-racing-chris-gabehart-spire-motorsports-nascar/
+
 **Michigan rolls past Illinois to win Big Ten title outright**\
 `Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
 https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
