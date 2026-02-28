@@ -1,40 +1,40 @@
-**Mavericks upgrade Ryan Nembhard from two-way to standard contract: Source**\
-`Dallas holds a team option on Nembhard's contract in 2026-27, which will provide flexibility in revamping the team's backcourt.`\
-https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-standard-contract/
+**How to watch Villanova vs. St. John's men's basketball: Time, TV, streaming**\
+`Find out how to watch the Villanova Wildcats play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077524/2026/02/28/villanova-vs-st-john-s-stream-how-to-watch-feb-28/
 
-**Here’s What Members of Congress Are Saying About the Attacks on Iran**\
-`As explosions rocked Tehran, Republicans largely voiced support as Democrats warned about a costly and unauthorized conflict.`\
-https://nytimes.com/2026/02/28/world/middleeast/congress-iran-attacks-reaction.html
+**How to watch Alabama vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077522/2026/02/28/alabama-vs-tennessee-stream-how-to-watch-feb-28/
 
-**Haaland misses Man City's trip to Leeds United**\
-`Prior to today, Haaland had not missed a single game league this season.`\
-https://nytimes.com/athletic/7077402/2026/02/28/haaland-man-city-leeds-teams/
+**How to watch Duquesne vs. Saint Louis men's basketball: Time, TV, streaming**\
+`Find out how to watch the Duquesne Dukes play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077520/2026/02/28/duquesne-vs-saint-louis-stream-how-to-watch-feb-28/
 
-**Congress Faces War Powers Votes in Wake of Iran Strikes**\
-`Following the attack, Democrats and a few Republicans escalated their calls for swift votes on whether to curb the president’s power to continue using force against Iran without explicit authorization.`\
-https://nytimes.com/2026/02/28/us/politics/congress-war-powers-votes-iran.html
+**How to watch BYU vs. West Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077518/2026/02/28/byu-vs-west-virginia-stream-how-to-watch-feb-28/
 
-**For Trump, the Iran Attack Is the Ultimate War of Choice**\
-`There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
-https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html
+**Pentagon to Cut Ties With Top Universities and Think Tanks**\
+`Defense Secretary Pete Hegseth said he was banning attendance at Yale, Princeton, Brown and other elite colleges and think tanks, accusing them of indoctrinating service members with liberal ideologies.`\
+https://nytimes.com/2026/02/28/us/politics/pentagon-universities-think-tanks.html
 
-**I Must Make This Gorgeous Chicken Dish**\
-`To see Cameroonian chicken and plantains is to want Cameroonian chicken and plantains.`\
-https://nytimes.com/2026/02/28/dining/i-must-make-this-gorgeous-chicken-dish.html
+**The Briefing - Newcastle 2 Everton 3: Ramsey sickener, Pope problems and what happened to Fortress St James'?**\
+`Defensive errors cost Newcastle dear yet again as Eddie Howe's side slipped to a fifth defeat in six Premier League matches`\
+https://nytimes.com/athletic/7073025/2026/02/28/newcastle-ramsey-pope-home-everton-briefing/
 
-**Banged-up Clippers hope recent rest helps ahead of boom-or-bust March**\
-`After playing one game in six days, the Clippers will need to navigate a brutal March schedule that includes 18 games in 31 days.`\
-https://nytimes.com/athletic/7076561/2026/02/28/clippers-kawhi-leonard-march-schedule/
+**The Briefing - Liverpool 5 West Ham 2: Was this 'thrashing' as convincing as it looked?**\
+`The big talking points dissected as Liverpool won a seven-goal thriller at Anfield`\
+https://nytimes.com/athletic/7073023/2026/02/28/liverpool-west-ham-result-analysis/
 
-**'It's special, man': Jalen Duren steps up with Cade Cunningham out in win over Cavaliers**\
-`After Cunningham fouled out, Duren took control for the Pistons in the fourth quarter and overtime against their Eastern Conference rivals.`\
-https://nytimes.com/athletic/7076889/2026/02/28/jalen-duren-cade-cunningham-pistons-cavaliers/
+**Omloop Nieuwsblad: Van der Poel marks debut with dominant win, Vollering sprints to victory in women's race**\
+`Breaking down the key moments from the first cobbled race of the WorldTour season`\
+https://nytimes.com/athletic/7077330/2026/02/28/omloop-nieuwsblad-briefing-van-der-poel/
 
-**Football lawmakers to punish players who cover mouths when speaking to opponents**\
-`The new law comes after Real Madrid's Vinicius Junior was allegedly racially abused by Benfica's Gianluca Prestianni on February 17.`\
-https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinicius-junior-real-madrid-benfica-prestianni/
+**What to Know About the Search for Nancy Guthrie**\
+``\
+https://nytimes.com/live/2026/02/28/us/nancy-guthrie-update
 
-**The President of War**\
-`The U.S. military was once a tool of last resort for American presidents.`\
-https://nytimes.com/2026/02/28/opinion/international-world/the-president-of-war.html
+**The Folly of Attacking Iran**\
+`We don’t know how likely it is that the attacks will be successful, nor what costs or risks they bring.`\
+https://nytimes.com/2026/02/28/opinion/trump-iran-war.html
 
