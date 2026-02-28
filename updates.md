@@ -1,3 +1,7 @@
+**Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
+`He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
+https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
+
 **With Brennan Othmann's demotion, it's time to accept the reality of his Rangers situation**\
 `The Rangers made clear where the 2021 first-round pick stands on their roster. Now they need to do what’s best for both sides.`\
 https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-tye-kartye/
