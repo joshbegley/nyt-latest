@@ -1,3 +1,7 @@
+**What to Know About the U.S. Attacks on Iran**\
+`The United States, joined by Israel, launched an attack on major cities in Iran, as President Trump called on Iranians to overthrow the government.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-what-to-know.html
+
 **What to Know About the U.S. Attacks Iran**\
 `The United States, joined by Israel, launched an attack on major cities in Iran, as President Trump called on Iranians to overthrow the government.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-what-to-know.html
