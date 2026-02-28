@@ -1,3 +1,19 @@
+**How to watch Virginia vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077033/2026/02/28/virginia-vs-duke-stream-how-to-watch-feb-28/
+
+**How to watch Seton Hall vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Seton Hall Pirates play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077030/2026/02/28/seton-hall-vs-uconn-stream-how-to-watch-feb-28/
+
+**How to watch Louisville vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077028/2026/02/28/louisville-vs-clemson-stream-how-to-watch-feb-28/
+
+**How to watch Colorado vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077026/2026/02/28/colorado-vs-houston-stream-how-to-watch-feb-28/
+
 **What to Know About the U.S. Attacks on Iran**\
 `The United States, joined by Israel, launched an attack on major cities in Iran, as President Trump called on Iranians to overthrow the government.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-what-to-know.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7076843/2026/02/28/sabres-win-panthers-changed-team
 **‘You Accept the Risk and the Fear’: What It Takes to Report on the Mexican Cartels**\
 `Cultivating sources. Verifying claims. Staying safe. After the death of El Mencho, four journalists share their approach to this difficult, dangerous work.`\
 https://nytimes.com/2026/02/28/insider/times-reporters-mexico-el-mencho-cartels.html
-
-**My Aging Mother Won’t Stop Driving. Should I Take Away Her Keys?**\
-`The D.M.V. has suspended her license and she’s irate, blaming us.`\
-https://nytimes.com/2026/02/28/magazine/aging-mother-driving-ethics.html
-
-**America Has Occupied Canada, in the Creative Mind of a Toronto Artist**\
-`A speculative public art series that began in alleyways and on buildings and a tennis court fence is opening as a chilling new show at Western University.`\
-https://nytimes.com/2026/02/28/world/canada/dara-vandor-canada-us-trump.html
-
-**Wordle Review No. 1,716**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 1, 2026.`\
-https://nytimes.com/2026/02/28/crosswords/wordle-review-1716.html
-
-**The Hawks are honoring Magic City. It's not as bizarre as it may seem**\
-`The Atlanta strip club has been central to the music scene in the city. And the Hawks themselves have longstanding ties to the venue.`\
-https://nytimes.com/athletic/7075747/2026/02/28/nba-atlanta-hawks-magic-city-night/
 

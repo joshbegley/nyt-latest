@@ -1,3 +1,19 @@
+**How to watch Virginia vs. Duke men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077033/2026/02/28/virginia-vs-duke-stream-how-to-watch-feb-28/
+
+**How to watch Seton Hall vs. UConn men's basketball: Time, TV, streaming**\
+`Find out how to watch the Seton Hall Pirates play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077030/2026/02/28/seton-hall-vs-uconn-stream-how-to-watch-feb-28/
+
+**How to watch Louisville vs. Clemson men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077028/2026/02/28/louisville-vs-clemson-stream-how-to-watch-feb-28/
+
+**How to watch Colorado vs. Houston men's basketball: Time, TV, streaming**\
+`Find out how to watch the Colorado Buffaloes play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077026/2026/02/28/colorado-vs-houston-stream-how-to-watch-feb-28/
+
 **What to Know About the U.S. Attacks on Iran**\
 `The United States, joined by Israel, launched an attack on major cities in Iran, as President Trump called on Iranians to overthrow the government.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-what-to-know.html
