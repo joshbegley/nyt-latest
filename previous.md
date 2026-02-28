@@ -1,3 +1,7 @@
+**Banks Are Becoming Bulwarks for Vulnerable Seniors**\
+`Older Americans are losing billions of dollars annually to financial exploitation. Banks and investment firms are training employees to spot red flags and stop the transactions.`\
+https://nytimes.com/2026/02/28/health/scams-elderly-banks.html
+
 **Football lawmakers vote for countdowns to combat timewasting and increase VAR powers**\
 `Throw-ins and goal kicks will be given a five-second countdown by a referee who considers there to be a deliberate delay.`\
 https://nytimes.com/athletic/7077094/2026/02/28/var-football-ifab-timewasting-clock/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outf
 **The United States and Israel Attack Iran**\
 `The country is retaliating, and the Middle East is in crisis.`\
 https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
-
-**As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**\
-`The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
 

@@ -1,3 +1,7 @@
+**Banks Are Becoming Bulwarks for Vulnerable Seniors**\
+`Older Americans are losing billions of dollars annually to financial exploitation. Banks and investment firms are training employees to spot red flags and stop the transactions.`\
+https://nytimes.com/2026/02/28/health/scams-elderly-banks.html
+
 **Football lawmakers vote for countdowns to combat timewasting and increase VAR powers**\
 `Throw-ins and goal kicks will be given a five-second countdown by a referee who considers there to be a deliberate delay.`\
 https://nytimes.com/athletic/7077094/2026/02/28/var-football-ifab-timewasting-clock/
