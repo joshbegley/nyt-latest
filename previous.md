@@ -1,3 +1,11 @@
+**After shootout loss, Penguins' Evgeni Malkin says no progress has been made in contract talks**\
+`Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
+https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
+
+**Jon Scheyer for national coach of the year? That's how good Duke looks**\
+`Not even a top-15 team that entered 25-3 and winners of nine straight could hold a candle to the scariest team in college basketball.`\
+https://nytimes.com/athletic/7077819/2026/02/28/duke-basketball-jon-scheyer-coach-awards/
+
 **Diagramming the Blows to Iran’s Leadership**\
 `Among those killed in strikes, according to the U.S. and Israel, were Iran’s supreme leader and three of his top military commanders.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-leadership-khamenei-shamkhani-pakpour-nasirzadeh.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scut
 **Royals, Starling Marte agree to major-league contract: Source**\
 `Marte, 37, hit .270 with nine homers for the Mets in 98 games last season.`\
 https://nytimes.com/athletic/7077968/2026/02/28/mlb-free-agent-signing-starling-marte-royals/
-
-**Arkansas RB Mike Washington Jr. sheds tears after 4.33 40 at NFL combine**\
-`Mike Washington Jr. clocked the fastest 40 time by a running back at the combine since 2024.`\
-https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-time/
-
-**Guess What Trump Values Above the Constitution**\
-`The State of the Union was very revealing.`\
-https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html
 

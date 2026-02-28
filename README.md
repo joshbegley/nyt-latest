@@ -1,4 +1,4 @@
-**After shootout loss, Penguins' Evgeni Malkin says no progress has been made in contract talks**\
+**After shootout loss, Penguins' Evgeni Malkin says no progress made in contract talks**\
 `Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
 https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
 
