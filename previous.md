@@ -1,3 +1,7 @@
+**Michigan rolls past Illinois to win Big Ten title outright**\
+`Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
+https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
+
 **Man Convicted of Forging Threats Against Trump Gets 16.5 Years in Prison**\
 `A Wisconsin man was found guilty of impersonating an undocumented immigrant in handwritten letters that threatened to kill the president in an effort to get the immigrant deported.`\
 https://nytimes.com/2026/02/27/us/trump-threat-letters-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076588/2026/02/27/miami-ohio-survives-western-mich
 **Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
 `The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
 https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
-
-**Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
-`Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
-https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
 

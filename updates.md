@@ -1,3 +1,7 @@
+**Michigan rolls past Illinois to win Big Ten title outright**\
+`Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
+https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
+
 **Man Convicted of Forging Threats Against Trump Gets 16.5 Years in Prison**\
 `A Wisconsin man was found guilty of impersonating an undocumented immigrant in handwritten letters that threatened to kill the president in an effort to get the immigrant deported.`\
 https://nytimes.com/2026/02/27/us/trump-threat-letters-sentenced.html
