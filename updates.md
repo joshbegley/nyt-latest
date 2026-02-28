@@ -1,3 +1,11 @@
+**Live Updates: Israel Says It has Launched an Attack on Iran**\
+`Explosions were reported in Tehran, according to multiple residents.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
+
+**Talk of the Devils debate: Should Benjamin Sesko stay as a super-sub?**\
+`This is what our Talk of the Devils team have learnt about Manchester United this week`\
+https://nytimes.com/athletic/7075496/2026/02/28/talk-of-the-devils-benjamin-sesko/
+
 **Live Updates: U.S. and Israel Conduct Strikes on Iran**\
 `Large explosions were reported in Tehran, according to several residents, and air-raid sirens rang across Iran.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
