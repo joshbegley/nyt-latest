@@ -1,40 +1,40 @@
-**At Gucci: Bodies, Bodies, Bodies**\
-`In this week’s most anticipated show in Milan, Demna debuted his new look for the brand. Was it any good?`\
-https://nytimes.com/2026/02/28/style/gucci-demna-show.html
+**F1 manufacturers agree to engine testing rule change after compression ratio row**\
+`In December, it emerged that Mercedes had found a possible loophole in the rules that could lead to a performance advantage.`\
+https://nytimes.com/athletic/7077002/2026/02/28/f1-engine-rule-change-compression-ratio/
 
-**Initial Focus of U.S. Strikes in Iran Is Military Targets**\
-`Dozens of attacks were carried out by warplanes launched from bases and aircraft carriers in the region. President Trump said the targets included missile sites, Iran’s navy and nuclear facilities.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-us-attacks-military-targets.html
+**Trump Gives Green Light to Private Oil Sales to Cuba**\
+`After blocking foreign oil shipments, the Trump administration is now allowing small amounts of oil to enter Cuba — as long as they circumvent government hands.`\
+https://nytimes.com/2026/02/28/world/americas/trump-cuba-oil-sales.html
 
-**Chaos and Panic Grip Tehran as Airstrikes Shake City**\
-`Iranians were beginning their workweek as U.S. and Israeli strikes sent people fleeing parts of the capital and parents racing to collect children from schools.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-reaction-us-attack-tehran.html
+**Netflix Lost Warner. Maybe That’s a Good Thing.**\
+`It is entirely possible, analysts say, that Netflix will be better off by bailing from its $83 billion deal with Warner Bros. Discovery.`\
+https://nytimes.com/2026/02/28/business/media/netflix-lost-warner-maybe-thats-a-good-thing.html
 
-**‘Avalanche!’: Survivors Recount the Tragedy at Perry’s Peak**\
-`The story of how nine skiers were killed, and six survived, in the deadliest avalanche in modern California history.`\
-https://nytimes.com/interactive/2026/02/28/us/tahoe-avalanche-survivors.html
+**The Bloody Rise and Fall of Mexico’s Top Crime Boss**\
+`El Mencho’s brutality and business acumen put him atop the cartel world, until he made a fatal mistake.`\
+https://nytimes.com/2026/02/28/world/americas/mexico-mencho-career-death.html
 
-**Trump Calls for Overthrow of Iran’s Government**\
-`In an eight-minute video, President Trump announced a “massive” campaign of U.S. strikes on Iran and urged the Iranian people to rise up once they end.`\
-https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
+**Of Ice and Men. And Frogs. And Cats. And Minions.**\
+`As the blizzard surged, a garden of snow sculptures arose in a Brooklyn park — a testament to New York creativity.`\
+https://nytimes.com/2026/02/28/arts/snowmen-sculptures-brooklyn-park.html
 
-**A Tale of Two Seasons at Columbia, and Two Responses to Student Arrests**\
-`When Mahmoud Khalil was detained by immigration agents last year, the university’s response was restrained. It was different with Elmina Aghayeva this week.`\
-https://nytimes.com/2026/02/28/nyregion/columbia-student-ice-arrest.html
+**Abrupt Change for Warner Bros. Prompts Many Grim Faces**\
+`Employees at the company had started to warm to the idea of Netflix as its corporate owner. Now they face the prospect of major cuts under Paramount.`\
+https://nytimes.com/2026/02/28/business/warner-bros-paramount-reaction.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/02/28/crosswords/spelling-bee-forum.html
+**Zuffa Boxing wants to 'crush' the sport's old guard. Will it succeed?**\
+`Battle lines have been drawn in the fight over the sport's future – and things could get ugly `\
+https://nytimes.com/athletic/7075227/2026/02/28/zuffa-boxing-dana-white-turki-al-sheikh/
 
-**How a Parks Worker Lives on $37,500 in Tompkinsville, Staten Island**\
-`Sara Robinson left Brooklyn for Staten Island to afford an apartment where she could live by herself, but she still has to keep a tight budget.`\
-https://nytimes.com/interactive/2026/02/28/nyregion/nyc-budgeting-affordability-robinson.html
+**Can Nations Agree How to Mine the Sea? This Is the Year, She Says.**\
+`Leticia Carvalho heads a global authority that’s been struggling to set rules for a decade. President Trump’s aggressive push on ocean mining makes her task more urgent.`\
+https://nytimes.com/2026/02/28/climate/seabed-mining-rulebook-isa-metals-company.html
 
-**West Ham United's 2024-25 accounts: Record £104.2m pre-tax loss cause for concern**\
-`Significant player spending and a rising wage bill have not translated to improved performances on the pitch, a trend maintained this term`\
-https://nytimes.com/athletic/7076476/2026/02/28/west-ham-accounts-record-loss-wage-revenue/
+**5 Great Specials to Stream This Winter**\
+`Taylor Tomlinson, Kevin Nealon, Chris Spencer, Isabel Hagen and Jackie Kashian deliver very different but very funny hours to get you through the cold.`\
+https://nytimes.com/2026/02/28/arts/television/comedy-specials-tomlinson-nealon-hagen.html
 
-**An attack on Iran carries risks for the U.S., experts say.**\
-`Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-attack-us-risk
+**Wind graphs and energy gels: What it takes to win an early-season bike race**\
+`The Athletic spent a day in the Soudal–Quick-Step team car at the Vuelta ao Algarve, and saw Texas-born Paul Magnier pull off a stage win`\
+https://nytimes.com/athletic/7073097/2026/02/28/inside-team-car-soudal-quick-step-volta-algarve-magnier/
 
