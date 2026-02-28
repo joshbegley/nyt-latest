@@ -1,3 +1,23 @@
+**How to watch Capitals vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077582/2026/02/28/capitals-vs-canadiens-stream-how-to-watch-feb-28/
+
+**How to watch Predators vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077575/2026/02/28/predators-vs-stars-stream-how-to-watch-feb-28/
+
+**How to watch Red Wings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077573/2026/02/28/red-wings-vs-hurricanes-stream-how-to-watch-feb-28/
+
+**How to watch Sabres vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077571/2026/02/28/sabres-vs-lightning-stream-how-to-watch-feb-28/
+
+**How to watch Blackhawks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077563/2026/02/28/blackhawks-vs-avalanche-stream-how-to-watch-feb-28/
+
 **How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077557/2026/02/28/islanders-vs-blue-jackets-stream-how-to-watch-feb-28/
