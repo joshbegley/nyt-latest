@@ -1,3 +1,7 @@
+**Formula 1 monitoring Middle East conflict after Iran strikes U.S. base near Bahrain circuit**\
+`F1's new season visits Bahrain and Saudi Arabia in six weeks `\
+https://nytimes.com/athletic/7077602/2026/02/28/f1-iran-attack-united-states-bahrain-saudi-arabia/
+
 **Trump’s Unilateral Attack on Iran Paves Way for Broader Dispute Over War Powers**\
 `Critics say the president is violating the Constitution, and many Democrats and at least two Republicans in Congress say they must vote on whether to enter such a conflict.`\
 https://nytimes.com/2026/02/28/world/middleeast/trump-iran-war-powers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077573/2026/02/28/red-wings-vs-hurricanes-stream-h
 **How to watch Sabres vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077571/2026/02/28/sabres-vs-lightning-stream-how-to-watch-feb-28/
-
-**How to watch Blackhawks vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077563/2026/02/28/blackhawks-vs-avalanche-stream-how-to-watch-feb-28/
 
