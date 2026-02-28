@@ -1,3 +1,11 @@
+**Trump Tells Iranians to ‘Take Over’ Their Government. But How?**\
+`President Trump’s ambiguous appeal comes after he undermined U.S.-funded media outlets that normally would have helped the administration reach people inside the country.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.html
+
+**‘Mess Around and Find Out’: 4 Opinion Writers on the Khamenei Strike**\
+`How should Americans feel about the potential for regime change? What happens now?`\
+https://nytimes.com/2026/02/28/opinion/khamenei-supreme-leader-iran-dead.html
+
 **False and outdated videos circulated online after the Iran strikes.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/28/opinion/iran-supreme-leader-dead-khamenei.html
 **Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
 `He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
 https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
-
-**With Brennan Othmann's demotion, it's time to accept the reality of his Rangers situation**\
-`The Rangers made clear where the 2021 first-round pick stands on their roster. Now they need to do what’s best for both sides.`\
-https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-tye-kartye/
-
-**Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
-`Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
-https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scutaro-venezuela-connection/
 

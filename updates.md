@@ -1,3 +1,11 @@
+**Trump Tells Iranians to ‘Take Over’ Their Government. But How?**\
+`President Trump’s ambiguous appeal comes after he undermined U.S.-funded media outlets that normally would have helped the administration reach people inside the country.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.html
+
+**‘Mess Around and Find Out’: 4 Opinion Writers on the Khamenei Strike**\
+`How should Americans feel about the potential for regime change? What happens now?`\
+https://nytimes.com/2026/02/28/opinion/khamenei-supreme-leader-iran-dead.html
+
 **False and outdated videos circulated online after the Iran strikes.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
