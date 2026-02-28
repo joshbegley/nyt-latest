@@ -1,3 +1,7 @@
+**'It's special, man': Jalen Duren steps up with Cade Cunningham out in win over Cavaliers**\
+`After Cunningham fouled out, Duren took control for the Pistons in the fourth quarter and overtime against their Eastern Conference rivals.`\
+https://nytimes.com/athletic/7076889/2026/02/28/jalen-duren-cade-cunningham-pistons-cavaliers/
+
 **Football lawmakers to punish players who cover mouths when speaking to opponents**\
 `The new law comes after Real Madrid's Vinicius Junior was allegedly racially abused by Benfica's Gianluca Prestianni on February 17.`\
 https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinicius-junior-real-madrid-benfica-prestianni/
