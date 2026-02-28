@@ -1,3 +1,7 @@
+**Only 21% of Americans Support the United States Initiating an Attack on Iran**\
+`The public’s appetite for a U.S. attack on Iran was low before President Trump and Israel took action on Saturday.`\
+https://nytimes.com/2026/02/28/us/politics/poll-americans-support-iran-attack.html
+
 **How Iranians Can Take Control of Their Future**\
 `U.S. military interventions have often gone poorly for the countries in question. But there is much the world, and Iranians, can do.`\
 https://nytimes.com/2026/02/28/opinion/iran-us-war-attack-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/world/middleeast/us-israel-iran-attack-maps.html
 **Oil Shipments in Persian Gulf Already Disrupted by Iran Attack**\
 `Tankers have begun to steer clear of the region and the Strait of Hormuz, threatening to push up energy prices.`\
 https://nytimes.com/2026/02/28/business/energy-environment/oil-gas-iran-attack.html
-
-**The Trump administration notified Congress in advance of the Iran strikes.**\
-`The notification stood in contrast to past military actions President Trump has undertaken unilaterally without consulting with Congress, drawing bipartisan anger.`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/congress-iran-notification
 
