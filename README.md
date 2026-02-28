@@ -1,3 +1,15 @@
+**A Tale of Two Seasons at Columbia, and Two Responses to Student Arrests**\
+`When Mahmoud Khalil was detained by immigration agents last year, the university’s response was restrained. It was different with Elmina Aghayeva this week.`\
+https://nytimes.com/2026/02/28/nyregion/columbia-student-ice-arrest.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/02/28/crosswords/spelling-bee-forum.html
+
+**How a Parks Worker Lives on $37,500 in Tompkinsville, Staten Island**\
+`Sara Robinson left Brooklyn for Staten Island to afford an apartment where she could live by herself, but she still has to keep a tight budget.`\
+https://nytimes.com/interactive/2026/02/28/nyregion/nyc-budgeting-affordability-robinson.html
+
 **West Ham United's 2024-25 accounts: Record £104.2m pre-tax loss cause for concern**\
 `Significant player spending and a rising wage bill have not translated to improved performances on the pitch, a trend maintained this term`\
 https://nytimes.com/athletic/7076476/2026/02/28/west-ham-accounts-record-loss-wage-revenue/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-
 **Aston Villa versus a mid-to-low block - the nightmare continues**\
 `Unai Emery's side were outworked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
 https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
-
-**Live Updates: Trump Announces ‘Major Combat Operations’ in Iran**\
-`Explosions were reported in Tehran as President Trump said in an eight-minute video that the U.S. had begun a large attack. Israel also said it was attacking Iran.`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
-
-**Here’s the latest.**\
-`By Aaron Boxerman, Farnaz Fassihi, Ronen Bergman and Helene Cooper`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-strikes-us
-
-**Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
-`A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
-https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
 

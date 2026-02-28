@@ -1,8 +1,12 @@
+**West Ham United's 2024-25 accounts: Record £104.2m pre-tax loss cause for concern**\
+`Significant player spending and a rising wage bill have not translated to improved performances on the pitch, a trend maintained this term`\
+https://nytimes.com/athletic/7076476/2026/02/28/west-ham-accounts-record-loss-wage-revenue/
+
 **An Attack on Iran Carries Risks for the U.S., Experts Say**\
 `Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
 https://nytimes.com/2026/02/26/world/middleeast/iran-attack-us-risk.html
 
-**Trump’s Attack on Iran Is Reckless**\
+**Why Have You Started This War, Mr. President?**\
 `Donald Trump promised voters that he would end wars, not start them.`\
 https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
 
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-
 `Unai Emery's side were outworked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
 https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
 
-**Live Updates: U.S. and Israel Conduct Strikes on Iran**\
-`Large explosions were reported in Tehran, according to several residents, and air-raid sirens rang across Israel.`\
+**Live Updates: Trump Announces ‘Major Combat Operations’ in Iran**\
+`Explosions were reported in Tehran as President Trump said in an eight-minute video that the U.S. had begun a large attack. Israel also said it was attacking Iran.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
 
 **Here’s the latest.**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-strikes-us
 **Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
 `A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
 https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
-
-**The New York Times in Print for Saturday, Feb. 28, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
 
