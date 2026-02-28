@@ -1,3 +1,7 @@
+**Arkansas RB Mike Washington Jr. sheds tears after 4.33 40 at NFL combine**\
+`Mike Washington Jr. clocked the fastest 40 time by a running back at the combine since 2024.`\
+https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-time/
+
 **Guess What Trump Values Above the Constitution**\
 `The State of the Union was very revealing.`\
 https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html

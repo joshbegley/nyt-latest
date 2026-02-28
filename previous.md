@@ -1,3 +1,7 @@
+**Arkansas RB Mike Washington Jr. sheds tears after 4.33 40 at NFL combine**\
+`Mike Washington Jr. clocked the fastest 40 time by a running back at the combine since 2024.`\
+https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-time/
+
 **Guess What Trump Values Above the Constitution**\
 `The State of the Union was very revealing.`\
 https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077919/2026/02/28/lakers-vs-warriors-stream-how-to
 **U.S. Ability to Determine What Comes Next in Iran Might Be Limited**\
 `Questions remain about how much effort the Trump administration will put into changing the Iranian government.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-intelligence.html
-
-**How to watch Pelicans vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077897/2026/02/28/pelicans-vs-jazz-stream-how-to-watch-feb-28/
 
