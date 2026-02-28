@@ -1,3 +1,7 @@
+**Israelis Take Shelter as Sirens Warn of Incoming Missiles**\
+`People across the country took cover from Iran’s retaliatory strikes. “Oh, I did not miss this sound,” one woman said of the air raid alerts.`\
+https://nytimes.com/2026/02/28/world/middleeast/israel-missiles-shelter-iran.html
+
 **Trump’s case for striking Iran rests on questionable claims.**\
 `By Mark Mazzetti, Edward Wong, David E. Sanger and Julian E. Barnes`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/trumps-case-for-striking-iran-rests-on-questionable-claims
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077028/2026/02/28/louisville-vs-clemson-stream-how
 **How to watch Colorado vs. Houston men's basketball: Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077026/2026/02/28/colorado-vs-houston-stream-how-to-watch-feb-28/
-
-**What to Know About the U.S. Attacks on Iran**\
-`The United States, joined by Israel, launched an attack on major cities in Iran, as President Trump called on Iranians to overthrow the government.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-what-to-know.html
 

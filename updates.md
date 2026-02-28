@@ -1,3 +1,7 @@
+**Israelis Take Shelter as Sirens Warn of Incoming Missiles**\
+`People across the country took cover from Iran’s retaliatory strikes. “Oh, I did not miss this sound,” one woman said of the air raid alerts.`\
+https://nytimes.com/2026/02/28/world/middleeast/israel-missiles-shelter-iran.html
+
 **Trump’s case for striking Iran rests on questionable claims.**\
 `By Mark Mazzetti, Edward Wong, David E. Sanger and Julian E. Barnes`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/trumps-case-for-striking-iran-rests-on-questionable-claims
