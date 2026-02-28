@@ -1,3 +1,11 @@
+**Crypto’s Richest Man Details His Secret Talks, Prison Time and Humbling Comedown**\
+`In a draft of his memoir, Changpeng Zhao, the founder of Binance, laid out the secret negotiations that led to his imprisonment and a run-in with ICE.`\
+https://nytimes.com/2026/02/27/technology/cz-changpeng-zhao-binance-memoir-prison.html
+
+**Los Angeles Schools Chief Is Placed on Leave Following F.B.I. Raid**\
+`Alberto Carvalho, superintendent of the Los Angeles Unified School District, was placed on paid leave after F.B.I. agents raided his home and district office this week.`\
+https://nytimes.com/2026/02/27/us/lausd-superintendent-alberto-carvalho-fbi.html
+
 **Why Did Trump Go to War With Anthropic?**\
 `The military needs the very best A.I. to streamline its operations. It should find ways to work with these companies, not erect barriers.`\
 https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-hegseth.html
