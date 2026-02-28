@@ -1,3 +1,19 @@
+**Pentagon to Cut Ties With Top Universities and Think Tanks**\
+`Defense Secretary Pete Hegseth said he was banning attendance at Yale, Princeton, Brown and other elite colleges and think tanks, accusing them of indoctrinating service members with liberal ideologies.`\
+https://nytimes.com/2026/02/28/us/politics/pentagon-universities-think-tanks.html
+
+**The Briefing - Newcastle 2 Everton 3: Ramsey sickener, Pope problems and what happened to Fortress St James'?**\
+`Defensive errors cost Newcastle dear yet again as Eddie Howe's side slipped to a fifth defeat in six Premier League matches`\
+https://nytimes.com/athletic/7073025/2026/02/28/newcastle-ramsey-pope-home-everton-briefing/
+
+**The Briefing - Liverpool 5 West Ham 2: Was this 'thrashing' as convincing as it looked?**\
+`The big talking points dissected as Liverpool won a seven-goal thriller at Anfield`\
+https://nytimes.com/athletic/7073023/2026/02/28/liverpool-west-ham-result-analysis/
+
+**Omloop Nieuwsblad: Van der Poel marks debut with dominant win, Vollering sprints to victory in women's race**\
+`Breaking down the key moments from the first cobbled race of the WorldTour season`\
+https://nytimes.com/athletic/7077330/2026/02/28/omloop-nieuwsblad-briefing-van-der-poel/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/28/us/nancy-guthrie-update

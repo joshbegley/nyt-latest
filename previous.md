@@ -1,3 +1,19 @@
+**Pentagon to Cut Ties With Top Universities and Think Tanks**\
+`Defense Secretary Pete Hegseth said he was banning attendance at Yale, Princeton, Brown and other elite colleges and think tanks, accusing them of indoctrinating service members with liberal ideologies.`\
+https://nytimes.com/2026/02/28/us/politics/pentagon-universities-think-tanks.html
+
+**The Briefing - Newcastle 2 Everton 3: Ramsey sickener, Pope problems and what happened to Fortress St James'?**\
+`Defensive errors cost Newcastle dear yet again as Eddie Howe's side slipped to a fifth defeat in six Premier League matches`\
+https://nytimes.com/athletic/7073025/2026/02/28/newcastle-ramsey-pope-home-everton-briefing/
+
+**The Briefing - Liverpool 5 West Ham 2: Was this 'thrashing' as convincing as it looked?**\
+`The big talking points dissected as Liverpool won a seven-goal thriller at Anfield`\
+https://nytimes.com/athletic/7073023/2026/02/28/liverpool-west-ham-result-analysis/
+
+**Omloop Nieuwsblad: Van der Poel marks debut with dominant win, Vollering sprints to victory in women's race**\
+`Breaking down the key moments from the first cobbled race of the WorldTour season`\
+https://nytimes.com/athletic/7077330/2026/02/28/omloop-nieuwsblad-briefing-van-der-poel/
+
 **What to Know About the Search for Nancy Guthrie**\
 ``\
 https://nytimes.com/live/2026/02/28/us/nancy-guthrie-update
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-stan
 **Here’s What Members of Congress Are Saying About the Attacks on Iran**\
 `As explosions rocked Tehran, Republicans largely voiced support as Democrats warned about a costly and unauthorized conflict.`\
 https://nytimes.com/2026/02/28/world/middleeast/congress-iran-attacks-reaction.html
-
-**Haaland misses Man City's trip to Leeds United**\
-`Prior to today, Haaland had not missed a single game league this season.`\
-https://nytimes.com/athletic/7077402/2026/02/28/haaland-man-city-leeds-teams/
-
-**Congress Faces War Powers Votes in Wake of Iran Strikes**\
-`Following the attack, Democrats and a few Republicans escalated their calls for swift votes on whether to curb the president’s power to continue using force against Iran without explicit authorization.`\
-https://nytimes.com/2026/02/28/us/politics/congress-war-powers-votes-iran.html
-
-**For Trump, the Iran Attack Is the Ultimate War of Choice**\
-`There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
-https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html
-
-**I Must Make This Gorgeous Chicken Dish**\
-`To see Cameroonian chicken and plantains is to want Cameroonian chicken and plantains.`\
-https://nytimes.com/2026/02/28/dining/i-must-make-this-gorgeous-chicken-dish.html
 
