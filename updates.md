@@ -1,3 +1,7 @@
+**Football lawmakers to punish players who cover mouths when speaking to opponents**\
+`The new law comes after Real Madrid's Vinicius Junior was allegedly racially abused by Benfica's Gianluca Prestianni on February 17.`\
+https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinicius-junior-real-madrid-benfica-prestianni/
+
 **The President of War**\
 `The U.S. military was once a tool of last resort for American presidents.`\
 https://nytimes.com/2026/02/28/opinion/international-world/the-president-of-war.html
