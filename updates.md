@@ -1,3 +1,11 @@
+**Diagramming the Blows to Iran’s Leadership**\
+`Among those killed in strikes, according to the U.S. and Israel, were Iran’s supreme leader and three of his top military commanders.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-leadership-khamenei-shamkhani-pakpour-nasirzadeh.html
+
+**The attacks touched off protests across the United States and abroad.**\
+`By Ashley Ahn and Zia Haider Rahman`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-attacks-touched-off-protests-across-the-united-states-and-abroad
+
 **Going Down Fast**\
 `Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
 https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
