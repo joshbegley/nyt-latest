@@ -1,3 +1,15 @@
+**The President of War**\
+`The U.S. military was once a tool of last resort for American presidents.`\
+https://nytimes.com/2026/02/28/opinion/international-world/the-president-of-war.html
+
+**The March Monthly Bake: Chocolate Guinness Cake**\
+`Nigella Lawson’s recipe is a five-star classic for a reason.`\
+https://nytimes.com/2026/02/28/dining/the-march-monthly-bake-chocolate-guinness-cake.html
+
+**Berkshire Hathaway Posts a Drop in Earnings in Buffett’s Last Year**\
+`In his first report as C.E.O., Gregory Abel, stuck to a straight commentary rather than Warren Buffett’s folksy tone. The lower earnings were largely driven by declines in the insurance business.`\
+https://nytimes.com/2026/02/28/business/dealbook/berkshire-hathaway-earnings-gregory-abel-warren-buffett.html
+
 **FIFA focused on 'everybody participating' at World Cup after U.S. attack on Iran**\
 `Military action has increased tensions between the two countries ahead of this summer's tournament`\
 https://nytimes.com/athletic/7077233/2026/02/28/fifa-world-cup-iran-attack-united-states/
