@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7076476/2026/02/28/west-ham-accounts-record-loss-wa
 `Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
 https://nytimes.com/2026/02/26/world/middleeast/iran-attack-us-risk.html
 
-**Trump’s Attack on Iran Is Reckless**\
+**Why Have You Started This War, Mr. President?**\
 `Donald Trump promised voters that he would end wars, not start them.`\
 https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
 
@@ -27,7 +27,7 @@ https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-
 https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
 
 **Live Updates: Trump Announces ‘Major Combat Operations’ in Iran**\
-`In an eight-minute video, President Trump said the U.S. had begun a large attack, as explosions were reported in Tehran. Israel also said it was attacking Iran.`\
+`Explosions were reported in Tehran as President Trump said in an eight-minute video that the U.S. had begun a large attack. Israel also said it was attacking Iran.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
 
 **Here’s the latest.**\
