@@ -1,6 +1,6 @@
-**An attack on Iran carries risks for the U.S., experts say.**\
-`By Abdi Latif Dahir and Samuel Granados`\
-https://nytimes.com/2026/02/26/world/middleeast/an-attack-on-iran-carries-risks-for-the-us-experts-say.html
+**An Attack on Iran Carries Risks for the U.S., Experts Say**\
+`Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
+https://nytimes.com/2026/02/26/world/middleeast/iran-attack-us-risk.html
 
 **Trump’s Attack on Iran Is Reckless**\
 `Donald Trump promised voters that he would end wars, not start them.`\

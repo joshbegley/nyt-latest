@@ -1,5 +1,9 @@
 **An attack on Iran carries risks for the U.S., experts say.**\
 `By Abdi Latif Dahir and Samuel Granados`\
+https://nytimes.com/2026/02/26/world/middleeast/an-attack-on-iran-carries-risks-for-the-us-experts-say.html
+
+**An attack on Iran carries risks for the U.S., experts say.**\
+`By Abdi Latif Dahir and Samuel Granados`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/an-attack-on-iran-carries-risks-for-the-us-experts-say
 
 **Trump’s Attack on Iran Is Reckless**\
