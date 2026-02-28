@@ -1,3 +1,23 @@
+**PSG given free Ligue 1 weekend before Champions League tie at Chelsea**\
+`PSG were due to host Nantes in Ligue 1 on Sunday, March 15, just two days ahead of the second leg against Chelsea at Stamford Bridge.`\
+https://nytimes.com/athletic/7077145/2026/02/28/psg-chelsea-champions-league/
+
+**How to watch Texas Tech vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077229/2026/02/28/texas-tech-vs-iowa-state-stream-how-to-watch-feb-28/
+
+**How to watch Kansas vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077227/2026/02/28/kansas-vs-arizona-stream-how-to-watch-feb-28/
+
+**How to watch Maryland vs. Michigan women's basketball: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077225/2026/02/28/maryland-vs-michigan-stream-how-to-watch-feb-28/
+
+**How to watch Nebraska vs. USC men's basketball: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077221/2026/02/28/nebraska-vs-usc-stream-how-to-watch-feb-28/
+
 **Medvedev wins Dubai title; doubles final played despite Iran missile attacks**\
 `The final was still scheduled to take place on Saturday night, despite projectiles being seen over Dubai as Iran fired retaliatory missiles.`\
 https://nytimes.com/athletic/7077150/2026/02/28/dubai-tennis-medvedez-iran-missiles-uae/
