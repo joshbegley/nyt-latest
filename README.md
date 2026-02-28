@@ -1,3 +1,7 @@
+**Judge delays ruling in Joe Gibbs Racing fight to block Chris Gabehart’s move**\
+`A judge in North Carolina chose to postpone a ruling on a temporary restraining order, imploring the two sides to discuss until Monday.`\
+https://nytimes.com/athletic/7076612/2026/02/27/joe-gibbs-racing-chris-gabehart-spire-motorsports-nascar/
+
 **Michigan rolls past Illinois to win Big Ten title outright**\
 `Morez Johnson Jr. scored 19 points and Michigan claimed its first outright title since 2021 as it eyes a top seed in the NCAA Tournament.`\
 https://nytimes.com/athletic/7076751/2026/02/27/michigan-illinois-big-ten-title-mens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-b
 **Miami (Ohio) survives Western Michigan upset bid for 29th straight win**\
 `The RedHawks have two regular-season games left, against Toledo and at Ohio.`\
 https://nytimes.com/athletic/7076588/2026/02/27/miami-ohio-survives-western-michigan-29th-straight-win/
-
-**Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
-`The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
-https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
 
