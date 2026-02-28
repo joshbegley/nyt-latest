@@ -1,3 +1,11 @@
+**As the U.S. Bombed Tehran, Iranians Said They Felt Abandoned by Their Leaders**\
+`The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
+
+**The Pulse: A plot twist in the West**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7076882/2026/02/28/a-plot-twist-in-the-west-plus-pavias-manziel-connection/
+
 **SailGP: Spain lead Australia by four points after day one of Sydney Grand Prix**\
 `“The most thing we want is a reliable boat and today the boat felt good," said Spanish skipper Diego Botin.`\
 https://nytimes.com/athletic/7077055/2026/02/28/sailgp-sydney-spain-lead-day-one/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7076575/2026/02/28/jeff-galloway-obituary-olympics-
 **Don’t Let Your Children Grow Up to Be Fashion Models**\
 `‘Americas Next Top Model’ was bad. The reality of fashion was often worse.`\
 https://nytimes.com/2026/02/28/opinion/tyra-banks-americas-next-top-model-netflix.html
-
-**Hollywood Isn’t Celebrating Ellison’s Win**\
-`Anxiety about Netflix gives way to anxiety about layoffs.`\
-https://nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-netflix.html
-
-**If A.I. Is a Weapon, Who Should Control It?**\
-`Better to put this power in the hands of private industry or government officials?`\
-https://nytimes.com/2026/02/28/opinion/artificial-intelligence-trump-hegseth-anthropic.html
 

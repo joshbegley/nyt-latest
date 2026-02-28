@@ -1,3 +1,11 @@
+**As the U.S. Bombed Tehran, Iranians Said They Felt Abandoned by Their Leaders**\
+`The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
+
+**The Pulse: A plot twist in the West**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7076882/2026/02/28/a-plot-twist-in-the-west-plus-pavias-manziel-connection/
+
 **SailGP: Spain lead Australia by four points after day one of Sydney Grand Prix**\
 `“The most thing we want is a reliable boat and today the boat felt good," said Spanish skipper Diego Botin.`\
 https://nytimes.com/athletic/7077055/2026/02/28/sailgp-sydney-spain-lead-day-one/

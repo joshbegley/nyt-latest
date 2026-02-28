@@ -1,4 +1,8 @@
-**As the U.S. Bombed Tehran, Iranians Said They Felt Abandoned by Their Leaders**\
+**The United States and Israel Attack Iran**\
+`The country is retaliating, and the Middle East is in crisis.`\
+https://nytimes.com/2026/02/28/briefing/us-israel-strike-iran.html
+
+**As U.S. Bombs Tehran, Some Iranians Feel Abandoned by Their Leaders**\
 `The government provided little advice in the days before the attacks or as the bombs fell, more than a dozen Iranians said in interviews.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073527/2026/02/28/nhl-trade-deadline-jordan-kyrou-
 **Jeff Galloway remembered for inspiring thousands: 'Without a doubt, he saved my life'**\
 `One tribute to Galloway read: "He is survived by every person who ever crossed a finish line and thought, ‘I didn't think I could do this.'"`\
 https://nytimes.com/athletic/7076575/2026/02/28/jeff-galloway-obituary-olympics-marathon/
-
-**Don’t Let Your Children Grow Up to Be Fashion Models**\
-`‘Americas Next Top Model’ was bad. The reality of fashion was often worse.`\
-https://nytimes.com/2026/02/28/opinion/tyra-banks-americas-next-top-model-netflix.html
 
