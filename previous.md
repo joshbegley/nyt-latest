@@ -1,3 +1,7 @@
+**Chaos and Panic Grip Tehran as Airstrikes Shake City**\
+`Iranians were beginning their workweek as U.S. and Israeli strikes sent people fleeing parts of the capital and parents racing to collect children from schools.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-reaction-us-attack-tehran.html
+
 **‘Avalanche!’: Survivors Recount the Tragedy at Perry’s Peak**\
 `The story of how nine skiers were killed, and six survived, in the deadliest avalanche in modern California history.`\
 https://nytimes.com/interactive/2026/02/28/us/tahoe-avalanche-survivors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
 **Wolverhampton Wanderers. Victory. Joy**\
 `Victory against Aston Villa took Wolves to 13 points, above Derby's record low of 11, but also injected some belief into both squad and club`\
 https://nytimes.com/athletic/7076500/2026/02/28/wolves-edwards-villa-joy/
-
-**The U.S. last bombed Iran in June, striking three nuclear facilities.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-us-last-bombed-iran-in-june-striking-three-nuclear-facilities
 
