@@ -1,3 +1,19 @@
+**Trump’s Attack on Iran Is Reckless**\
+`Donald Trump promised voters that he would end wars, not start them.`\
+https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
+
+**Wolverhampton Wanderers. Victory. Joy**\
+`Victory against Aston Villa took Wolves to 13 points, above Derby's record low of 11, but also injected some belief into both squad and club`\
+https://nytimes.com/athletic/7076500/2026/02/28/wolves-edwards-villa-joy/
+
+**The U.S. last bombed Iran in June, striking three nuclear facilities.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-us-last-bombed-iran-in-june-striking-three-nuclear-facilities
+
+**Here’s the latest.**\
+`By Aaron Boxerman, Farnaz Fassihi, Ronen Bergman and Helene Cooper`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-strikes-us
+
 **Mammoth continue to be Wild's 'kryptonite,' Joel Eriksson Ek injured: Takeaways**\
 `"They make plays, they're hard on pucks," Mats Zuccarello said of Utah. "They play that in-your-face game."`\
 https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-ek-injured/
