@@ -1,3 +1,7 @@
+**Chelsea would have expected more from £88.5m Gittens and Garnacho, but time is on their side**\
+`Both players joined Chelsea in the summer, but neither has become first-choice since then`\
+https://nytimes.com/athletic/7073063/2026/02/28/chelsea-gittens-garnacho-analysis/
+
 **Arsenal's season in blocks: The themes behind their bid for success**\
 `The first six months of the season can be split into themes - from injuries, to rotation to player revivals and Arteta's adaptations.`\
 https://nytimes.com/athletic/7070014/2026/02/28/arsenals-season-premier-league-sections/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069905/2026/02/28/why-dont-more-football-teams-pla
 **Chelsea have traded places with Arsenal and risk repeating Wenger's errors**\
 `In recent years, Chelsea have been proud to have a low average age, but history shows few teams win without proven, experienced leaders`\
 https://nytimes.com/athletic/7075303/2026/02/28/chelsea-arsenal-wenger-youth/
-
-**Former U.S. Air Force Officer Is Accused of Training Chinese Military Pilots**\
-`The former officer traveled to China to train pilots of the People’s Liberation Army Air Force without approval from the State Department, the Justice Department said.`\
-https://nytimes.com/2026/02/28/us/air-force-pilot-china-arrest.html
 
