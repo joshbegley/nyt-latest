@@ -2,8 +2,8 @@
 `Unai Emery's side were out-worked and outwitted by the division's bottom club, but their tactical failings at Molineux felt familiar`\
 https://nytimes.com/athletic/7075895/2026/02/28/aston-villa-emery-rogers-wolves-low-block/
 
-**Live Updates: Israel Says It Has Launched an Attack on Iran**\
-`Explosions were reported in Tehran, according to multiple residents.`\
+**Live Updates: U.S. and Israel Conduct Strikes on Iran**\
+`Large explosions were reported in Tehran, according to several residents, and air-raid sirens rang across Iran.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump
 
 **Here’s the latest.**\
