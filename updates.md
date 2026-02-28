@@ -1,3 +1,7 @@
+**In Texas, Paxton has led efforts to spread false claims about elections**\
+`By Nick Corasaniti`\
+https://nytimes.com/2026/02/28/us/elections/paxton-integrity-post.html
+
 **How Wesley Hunt of Texas Is Working in Plain Sight With Outside Groups**\
 `Exchanges between two X accounts appear to offer a vivid example of how campaigns may sidestep campaign-finance law to share strategic information.`\
 https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaign-finance.html
