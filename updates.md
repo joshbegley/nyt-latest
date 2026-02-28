@@ -1,3 +1,11 @@
+**Two Nebraska-Omaha women's basketball players rescue trapped driver from sinkhole**\
+`Olivia Borsutzki and Esra Kurban were on their way home from practice when they noticed something off at a red light. `\
+https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-basketball-rescue/
+
+**Miami (Ohio) survives Western Michigan upset bid for 29th straight win**\
+`The RedHawks have two regular-season games left, against Toledo and at Ohio.`\
+https://nytimes.com/athletic/7076588/2026/02/27/miami-ohio-survives-western-michigan-29th-straight-win/
+
 **Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
 `The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
 https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
