@@ -1,3 +1,7 @@
+**Banged-up Clippers hope recent rest helps ahead of boom-or-bust March**\
+`After playing one game in six days, the Clippers will need to navigate a brutal March schedule that includes 18 games in 31 days.`\
+https://nytimes.com/athletic/7076561/2026/02/28/clippers-kawhi-leonard-march-schedule/
+
 **'It's special, man': Jalen Duren steps up with Cade Cunningham out in win over Cavaliers**\
 `After Cunningham fouled out, Duren took control for the Pistons in the fourth quarter and overtime against their Eastern Conference rivals.`\
 https://nytimes.com/athletic/7076889/2026/02/28/jalen-duren-cade-cunningham-pistons-cavaliers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077253/2026/02/28/oilers-vs-sharks-stream-how-to-w
 **How to watch Bruins vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077250/2026/02/28/bruins-vs-flyers-stream-how-to-watch-feb-28/
-
-**How to watch Devils vs. Blues: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077248/2026/02/28/devils-vs-blues-stream-how-to-watch-feb-28/
 
