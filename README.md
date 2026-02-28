@@ -1,3 +1,7 @@
+**Trump Announces ‘Major Combat Operations’ in Iran**\
+`President Trump on Saturday announced that the United States was conducting a large attack on Iran and called for regime change. Israel also said it was striking the country.`\
+https://nytimes.com/video/world/asia/100000010743603/iran-trump-us-israel-attacks.html
+
 **Maggie Gyllenhaal Thinks Hollywood Likes Women to Direct ‘Little Movies’**\
 `With a big budget and a lot to say, the filmmaker is unleashing her inner monster with “The Bride!”`\
 https://nytimes.com/2026/02/28/magazine/maggie-gyllenhaal-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075227/2026/02/28/zuffa-boxing-dana-white-turki-al
 **Can Nations Agree How to Mine the Sea? This Is the Year, She Says.**\
 `Leticia Carvalho heads a global authority that’s been struggling to set rules for a decade. President Trump’s aggressive push on ocean mining makes her task more urgent.`\
 https://nytimes.com/2026/02/28/climate/seabed-mining-rulebook-isa-metals-company.html
-
-**5 Great Specials to Stream This Winter**\
-`Taylor Tomlinson, Kevin Nealon, Chris Spencer, Isabel Hagen and Jackie Kashian deliver very different but very funny hours to get you through the cold.`\
-https://nytimes.com/2026/02/28/arts/television/comedy-specials-tomlinson-nealon-hagen.html
 
