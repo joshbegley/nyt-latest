@@ -1,3 +1,7 @@
+**Pressure Gauge?**\
+`Adam Levav’s latest themeless puzzle is a breath of fresh air.`\
+https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
+
 **Bill Clinton Says He ‘Did Nothing Wrong’ in House Epstein Inquiry**\
 `Former President Bill Clinton told members of the House Oversight Committee in a closed-door deposition that he “saw nothing” and had done nothing wrong when he associated with Jeffrey Epstein decades ago.`\
 https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-deposition.html

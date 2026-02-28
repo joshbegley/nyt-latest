@@ -1,3 +1,7 @@
+**Pressure Gauge?**\
+`Adam Levav’s latest themeless puzzle is a breath of fresh air.`\
+https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
+
 **Bill Clinton Says He ‘Did Nothing Wrong’ in House Epstein Inquiry**\
 `Former President Bill Clinton told members of the House Oversight Committee in a closed-door deposition that he “saw nothing” and had done nothing wrong when he associated with Jeffrey Epstein decades ago.`\
 https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-deposition.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/arts/design/cambodia-celebrates-the-return-of-loo
 **Taiwan Arms Sale Approved by Congress Is Delayed as Trump Plans Visit to Beijing**\
 `The package worth billions of dollars and endorsed by lawmakers is stalled at the State Department as the U.S. and China plan an April summit.`\
 https://nytimes.com/2026/02/27/us/politics/trump-taiwan-arms-sale.html
-
-**Columbia Student Detained by ICE Promotes ‘Beauty’ and ‘Brains’ Online**\
-`Elmina Aghayeva has 114,000 followers on Instagram and has seemingly never posted about politics, unlike other Columbia University students detained by immigration officers.`\
-https://nytimes.com/2026/02/27/nyregion/columbia-student-ice-influencer.html
 
