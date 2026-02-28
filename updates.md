@@ -1,3 +1,11 @@
+**How to watch Trail Blazers vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077040/2026/02/28/trail-blazers-vs-hornets-stream-how-to-watch-feb-28/
+
+**How to watch Penguins vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077037/2026/02/28/penguins-vs-rangers-stream-how-to-watch-feb-28/
+
 **How to watch Virginia vs. Duke men's basketball: Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077033/2026/02/28/virginia-vs-duke-stream-how-to-watch-feb-28/
