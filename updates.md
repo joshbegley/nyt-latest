@@ -1,3 +1,11 @@
+**Initial Focus of U.S. Strikes in Iran Is Military Targets**\
+`Dozens of attacks were carried out by warplanes launched from bases and aircraft carriers in the region. President Trump said the targets included missile sites, Iran’s navy and nuclear facilities.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-us-attacks-military-targets.html
+
+**An attack on Iran carries risks for the U.S., experts say.**\
+`Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-attack-us-risk
+
 **Chaos and Panic Grip Tehran as Airstrikes Shake City**\
 `Iranians were beginning their workweek as U.S. and Israeli strikes sent people fleeing parts of the capital and parents racing to collect children from schools.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-reaction-us-attack-tehran.html

@@ -1,3 +1,7 @@
+**Initial Focus of U.S. Strikes in Iran Is Military Targets**\
+`Dozens of attacks were carried out by warplanes launched from bases and aircraft carriers in the region. President Trump said the targets included missile sites, Iran’s navy and nuclear facilities.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-us-attacks-military-targets.html
+
 **Chaos and Panic Grip Tehran as Airstrikes Shake City**\
 `Iranians were beginning their workweek as U.S. and Israeli strikes sent people fleeing parts of the capital and parents racing to collect children from schools.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-reaction-us-attack-tehran.html
@@ -26,15 +30,11 @@ https://nytimes.com/interactive/2026/02/28/nyregion/nyc-budgeting-affordability-
 `Significant player spending and a rising wage bill have not translated to improved performances on the pitch, a trend maintained this term`\
 https://nytimes.com/athletic/7076476/2026/02/28/west-ham-accounts-record-loss-wage-revenue/
 
-**An Attack on Iran Carries Risks for the U.S., Experts Say**\
+**An attack on Iran carries risks for the U.S., experts say.**\
 `Iran’s medium‑range ballistic missiles are capable of traveling more than 1,200 miles, putting them in range of several American bases.`\
-https://nytimes.com/2026/02/26/world/middleeast/iran-attack-us-risk.html
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/iran-attack-us-risk
 
 **Why Have You Started This War, Mr. President?**\
 `Donald Trump promised voters that he would end wars, not start them.`\
 https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
-
-**Wolverhampton Wanderers. Victory. Joy**\
-`Victory against Aston Villa took Wolves to 13 points, above Derby's record low of 11, but also injected some belief into both squad and club`\
-https://nytimes.com/athletic/7076500/2026/02/28/wolves-edwards-villa-joy/
 
