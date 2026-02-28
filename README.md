@@ -1,3 +1,11 @@
+**Trump’s Attack on Iran Is Reckless**\
+`Donald Trump promised voters that he would end wars, not start them.`\
+https://nytimes.com/2026/02/28/opinion/iran-attack-trump-war.html
+
+**Wolverhampton Wanderers. Victory. Joy**\
+`Victory against Aston Villa took Wolves to 13 points, above Derby's record low of 11, but also injected some belief into both squad and club`\
+https://nytimes.com/athletic/7076500/2026/02/28/wolves-edwards-villa-joy/
+
 **The U.S. last bombed Iran in June, striking three nuclear facilities.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-us-last-bombed-iran-in-june-striking-three-nuclear-facilities
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
 **Chelsea would have expected more from £88.5m Gittens and Garnacho, but time is on their side**\
 `Both players joined Chelsea in the summer, but neither has become first-choice since then`\
 https://nytimes.com/athletic/7073063/2026/02/28/chelsea-gittens-garnacho-analysis/
-
-**Arsenal's season in blocks: The themes behind their bid for success**\
-`The first six months of the season can be split into themes - from injuries, to rotation to player revivals and Arteta's adaptations.`\
-https://nytimes.com/athletic/7070014/2026/02/28/arsenals-season-premier-league-sections/
-
-**Everton, Leeds, Tottenham – The Premier League underdogs hoping to upset the odds**\
-`England’s top division is known for its competitive depth, meaning there is usually at least one upset every gameweek`\
-https://nytimes.com/athletic/7075137/2026/02/28/everton-leeds-tottenham-the-premier-league-underdogs-hoping-to-upset-the-odds/
 
