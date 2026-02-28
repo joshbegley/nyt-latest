@@ -1,3 +1,11 @@
+**How Iranians Can Take Control of Their Future**\
+`U.S. military interventions have often gone poorly for the countries in question. But there is much the world, and Iranians, can do.`\
+https://nytimes.com/2026/02/28/opinion/iran-us-war-attack-protests.html
+
+**Leeds 0 Man City 1: No Haaland, no problem as City keep title chase alive**\
+`Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
+https://nytimes.com/athletic/7073026/2026/02/28/leeds-manchester-city-premier-league-haaland-analysis/
+
 **Leeds 0 Man City 1: No Haaland, no problem as City keep title hunt alive**\
 `Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
 https://nytimes.com/athletic/7073026/2026/02/28/briefing-leeds-0-1-manchester-city-analysis/
