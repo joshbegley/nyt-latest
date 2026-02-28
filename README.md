@@ -1,3 +1,7 @@
+**Why Did Trump Go to War With Anthropic?**\
+`The military needs the very best A.I. to streamline its operations. It should find ways to work with these companies, not erect barriers.`\
+https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-hegseth.html
+
 **Trump Signals Opposition to Tariff Refunds, Hinting at Legal War to Come**\
 `One week after the Supreme Court invalidated President Trump’s tariffs, he suggested that his administration could try to relitigate a case that was decided 6 to 3.`\
 https://nytimes.com/2026/02/27/business/trump-tariffs-refunds-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/briefing/trump-pentagon-anthropic-ai.html
 **What Are ICE Agents Allowed to Do on College Campuses?**\
 `Federal agents do not have any special privileges on campuses. To arrest a student at Columbia University this week, they used a tactic of questionable legality.`\
 https://nytimes.com/2026/02/27/nyregion/immigration-agents-college-campus-columbia.html
-
-**Silicon Valley Rallies Behind Anthropic in A.I. Clash With Trump**\
-`Actions by the president and the Pentagon appeared to drive a wedge between Washington and the tech industry, whose leaders and workers spoke out for the start-up.`\
-https://nytimes.com/2026/02/27/technology/anthropic-trump-pentagon-silicon-valley.html
 
