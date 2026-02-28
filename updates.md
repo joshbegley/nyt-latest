@@ -1,3 +1,7 @@
+**Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
+`The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
+https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
+
 **‘We Got to Win the Midterms’: Trump Takes His State of the Union Message on the Road**\
 `During a visit to Texas, President Trump made clear that he would be driving home his depiction of Democrats as out of step ahead of the elections in November.`\
 https://nytimes.com/2026/02/27/us/politics/trump-midterms-state-of-the-union.html
