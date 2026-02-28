@@ -1,3 +1,11 @@
+**Two Nebraska-Omaha women's basketball players rescue trapped driver from sinkhole**\
+`Olivia Borsutzki and Esra Kurban were on their way home from practice when they noticed something off at a red light. `\
+https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-basketball-rescue/
+
+**Miami (Ohio) survives Western Michigan upset bid for 29th straight win**\
+`The RedHawks have two regular-season games left, against Toledo and at Ohio.`\
+https://nytimes.com/athletic/7076588/2026/02/27/miami-ohio-survives-western-michigan-29th-straight-win/
+
 **Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
 `The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
 https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/nyregion/columbia-student-ice-influencer.html
 **Crypto’s Richest Man Details His Secret Talks, Prison Time and Humbling Comedown**\
 `In a draft of his memoir, Changpeng Zhao, the founder of Binance, laid out the secret negotiations that led to his imprisonment and a run-in with ICE.`\
 https://nytimes.com/2026/02/27/technology/cz-changpeng-zhao-binance-memoir-prison.html
-
-**Why Did Trump Go to War With Anthropic?**\
-`The military needs the very best A.I. to streamline its operations. It should find ways to work with these companies, not erect barriers.`\
-https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-hegseth.html
-
-**Trump Signals Opposition to Tariff Refunds, Hinting at Legal War to Come**\
-`One week after the Supreme Court invalidated President Trump’s tariffs, he suggested that his administration could try to relitigate a case that was decided 6 to 3.`\
-https://nytimes.com/2026/02/27/business/trump-tariffs-refunds-supreme-court.html
 

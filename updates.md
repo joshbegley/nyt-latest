@@ -1,3 +1,7 @@
+**Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
+`The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
+https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
+
 **Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
 `Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
 https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
