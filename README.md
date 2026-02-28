@@ -1,3 +1,7 @@
+**Medvedev wins Dubai title; doubles final played despite Iran missile attacks**\
+`The final was still scheduled to take place on Saturday night, despite projectiles being seen over Dubai as Iran fired retaliatory missiles.`\
+https://nytimes.com/athletic/7077150/2026/02/28/dubai-tennis-medvedez-iran-missiles-uae/
+
 **Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**\
 `Waves of retaliatory strikes were reported in Israel and across several Gulf countries on Saturday. The Emirati government said at least one person was killed from falling missile debris.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/business/dealbook/lloyd-blankfein-book.html
 **Smoke-Filled Skies and Crowded Bomb Shelters After Iran Is Attacked**\
 `See images from the Middle East after the United States and Israel on Saturday launched a major attack against Tehran.`\
 https://nytimes.com/2026/02/28/world/iran-israel-trump-attack-photos.html
-
-**Twins have a trio of outfield prospects waiting in the wings. Target Field could be next**\
-`Walker Jenkins, Emmanuel Rodriguez and Gabriel Gonzalez are close to the majors. Playing together in the Twins' outfield is a possibility.`\
-https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outfield/
 
