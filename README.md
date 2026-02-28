@@ -1,3 +1,7 @@
+**PSG given free Ligue 1 weekend before Champions League tie at Chelsea**\
+`PSG were due to host Nantes in Ligue 1 on Sunday, March 15, just two days ahead of the second leg against Chelsea at Stamford Bridge.`\
+https://nytimes.com/athletic/7077145/2026/02/28/psg-chelsea-champions-league/
+
 **How to watch Texas Tech vs. Iowa State men's basketball: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the Iowa State Cyclones, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077229/2026/02/28/texas-tech-vs-iowa-state-stream-how-to-watch-feb-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077094/2026/02/28/var-football-ifab-timewasting-cl
 **Video: Go inside the Indianapolis restaurant where NFL deals get done**\
 `Mike Silver takes you behind the scenes at St. Elmo Steak House during NFL Scouting Combine week.`\
 https://nytimes.com/athletic/7076065/2026/02/28/nfl-st-elmo-steak-house-video/
-
-**Bill Guerin on Olympic gold, roster validation and team chemistry: 'It was like a dream'**\
-`There was immense pressure on Guerin to earn gold with the Team USA roster he helped assemble. `\
-https://nytimes.com/athletic/7076584/2026/02/28/bill-guerin-olympic-gold-roster-criticism-team-usa/
 
