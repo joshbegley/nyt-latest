@@ -1,3 +1,7 @@
+**Bill Clinton Says He ‘Did Nothing Wrong’ in House Epstein Inquiry**\
+`Former President Bill Clinton told members of the House Oversight Committee in a closed-door deposition that he “saw nothing” and had done nothing wrong when he associated with Jeffrey Epstein decades ago.`\
+https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-deposition.html
+
 **Two Nebraska-Omaha women's basketball players rescue trapped driver from sinkhole**\
 `Olivia Borsutzki and Esra Kurban were on their way home from practice when they noticed something off at a red light. `\
 https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-basketball-rescue/
