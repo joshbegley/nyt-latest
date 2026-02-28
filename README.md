@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7077602/2026/02/28/f1-iran-attack-united-states-bah
 `Critics say the president is violating the Constitution, and many Democrats and at least two Republicans in Congress say they must vote on whether to enter such a conflict.`\
 https://nytimes.com/2026/02/28/world/middleeast/trump-iran-war-powers.html
 
-**Iran Says Dozens Killed in Strike on School**\
+**Iran Says Dozens Are Killed in Strike on School**\
 `The strike on an elementary school in the southern Iran town of Minab was one of two attacks that appear to have hit schools during U.S. and Israeli strikes on Iran on Saturday.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-school-strike-us-israel.html
 
