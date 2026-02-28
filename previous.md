@@ -1,3 +1,7 @@
+**San Francisco Ballet Pulls Out of Kennedy Center Performances**\
+`The ballet company, one of the country’s most prestigious, had been under pressure to cancel its shows amid President Trump’s takeover of the performing arts center.`\
+https://nytimes.com/2026/02/28/arts/dance/kennedy-center-san-francisco-ballet.html
+
 **How to watch Capitals vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077582/2026/02/28/capitals-vs-canadiens-stream-how-to-watch-feb-28/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077553/2026/02/28/senators-vs-maple-leafs-stream-h
 **How to watch Raptors vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Toronto Raptors play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077551/2026/02/28/raptors-vs-wizards-stream-how-to-watch-feb-28/
-
-**How to watch Flames vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077545/2026/02/28/flames-vs-kings-stream-how-to-watch-feb-28/
 
