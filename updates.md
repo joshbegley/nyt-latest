@@ -1,3 +1,11 @@
+**Formula 1 monitoring Middle East conflict after Iran strikes U.S. base near Bahrain circuit**\
+`F1's new season visits Bahrain and Saudi Arabia in six weeks `\
+https://nytimes.com/athletic/7077602/2026/02/28/f1-iran-attack-united-states-bahrain-saudi-arabia/
+
+**Iran Says Dozens Are Killed in Strike on School**\
+`The strike on an elementary school in the southern Iran town of Minab was one of two attacks that appear to have hit schools during U.S. and Israeli strikes on Iran on Saturday.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-school-strike-us-israel.html
+
 **Trump’s Unilateral Attack on Iran Paves Way for Broader Dispute Over War Powers**\
 `Critics say the president is violating the Constitution, and many Democrats and at least two Republicans in Congress say they must vote on whether to enter such a conflict.`\
 https://nytimes.com/2026/02/28/world/middleeast/trump-iran-war-powers.html
