@@ -1,3 +1,5 @@
+
+
 **Formula 1 monitoring Middle East conflict after Iran strikes U.S. base near Bahrain circuit**\
 `F1's new season visits Bahrain and Saudi Arabia in six weeks `\
 https://nytimes.com/athletic/7077602/2026/02/28/f1-iran-attack-united-states-bahrain-saudi-arabia/
