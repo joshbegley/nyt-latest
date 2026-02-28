@@ -1,3 +1,7 @@
+**‘Avalanche!’: Survivors Recount the Tragedy at Perry’s Peak**\
+`The story of how nine skiers were killed, and six survived, in the deadliest avalanche in modern California history.`\
+https://nytimes.com/interactive/2026/02/28/us/tahoe-avalanche-survivors.html
+
 **Trump Calls for Change in Iran’s Leadership**\
 `In an eight-minute video, President Trump said Iran directly endangers the United States and urged the Iranian people to rise up once the U.S. strikes end.`\
 https://nytimes.com/2026/02/28/world/middleeast/trump-iran-strikes-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076500/2026/02/28/wolves-edwards-villa-joy/
 **The U.S. last bombed Iran in June, striking three nuclear facilities.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-us-last-bombed-iran-in-june-striking-three-nuclear-facilities
-
-**Mammoth continue to be Wild's 'kryptonite,' Joel Eriksson Ek injured: Takeaways**\
-`"They make plays, they're hard on pucks," Mats Zuccarello said of Utah. "They play that in-your-face game."`\
-https://nytimes.com/athletic/7076862/2026/02/28/wild-lose-mammoth-joel-eriksson-ek-injured/
 
