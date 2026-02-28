@@ -1,3 +1,7 @@
+**David White, JC Tretter among 3 finalists to be named NFLPA executive director: Sources**\
+`American Conference commissioner Tim Pernetti is the third finalist to be the NFLPA's top executive.`\
+https://nytimes.com/athletic/7076417/2026/02/27/nflpa-executive-director-finalists/
+
 **Pressure Gauge?**\
 `Adam Levav’s latest themeless puzzle is a breath of fresh air.`\
 https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/trump-midterms-state-of-the-union.htm
 **Cambodia Celebrates the Return of Looted Artifacts From a Tainted Dealer**\
 `The dealer, who died in 2020, had been accused of selling illegally excavated treasures of the Khmer culture. His estate returned dozens of them this week.`\
 https://nytimes.com/2026/02/27/arts/design/cambodia-celebrates-the-return-of-looted-artifacts-from-tainted-dealer.html
-
-**Taiwan Arms Sale Approved by Congress Is Delayed as Trump Plans Visit to Beijing**\
-`The package worth billions of dollars and endorsed by lawmakers is stalled at the State Department as the U.S. and China plan an April summit.`\
-https://nytimes.com/2026/02/27/us/politics/trump-taiwan-arms-sale.html
 

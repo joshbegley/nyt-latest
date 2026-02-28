@@ -1,3 +1,7 @@
+**David White, JC Tretter among 3 finalists to be named NFLPA executive director: Sources**\
+`American Conference commissioner Tim Pernetti is the third finalist to be the NFLPA's top executive.`\
+https://nytimes.com/athletic/7076417/2026/02/27/nflpa-executive-director-finalists/
+
 **Pressure Gauge?**\
 `Adam Levav’s latest themeless puzzle is a breath of fresh air.`\
 https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
