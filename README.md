@@ -1,3 +1,7 @@
+**'I don’t know what these guys are smoking': Panthers goalie blasts replay decision**\
+`Daniil Tarasov says he was interfered with on the goal that put the Panthers down 2-1 against the Sabres.`\
+https://nytimes.com/athletic/7076827/2026/02/27/panthers-goalie-daniil-tarasov-sabres-interference/
+
 **Judge delays ruling in Joe Gibbs Racing fight to block Chris Gabehart’s move**\
 `A judge in North Carolina chose to postpone a ruling on a temporary restraining order, imploring the two sides to discuss until Monday.`\
 https://nytimes.com/athletic/7076612/2026/02/27/joe-gibbs-racing-chris-gabehart-spire-motorsports-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-depos
 **Two Nebraska-Omaha women's basketball players rescue trapped driver from sinkhole**\
 `Olivia Borsutzki and Esra Kurban were on their way home from practice when they noticed something off at a red light. `\
 https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-basketball-rescue/
-
-**Miami (Ohio) survives Western Michigan upset bid for 29th straight win**\
-`The RedHawks have two regular-season games left, against Toledo and at Ohio.`\
-https://nytimes.com/athletic/7076588/2026/02/27/miami-ohio-survives-western-michigan-29th-straight-win/
 
