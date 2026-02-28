@@ -1,3 +1,23 @@
+**How to watch Capitals vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077582/2026/02/28/capitals-vs-canadiens-stream-how-to-watch-feb-28/
+
+**How to watch Predators vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077575/2026/02/28/predators-vs-stars-stream-how-to-watch-feb-28/
+
+**How to watch Red Wings vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077573/2026/02/28/red-wings-vs-hurricanes-stream-how-to-watch-feb-28/
+
+**How to watch Sabres vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077571/2026/02/28/sabres-vs-lightning-stream-how-to-watch-feb-28/
+
+**How to watch Blackhawks vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077563/2026/02/28/blackhawks-vs-avalanche-stream-how-to-watch-feb-28/
+
 **How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077557/2026/02/28/islanders-vs-blue-jackets-stream-how-to-watch-feb-28/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7077551/2026/02/28/raptors-vs-wizards-stream-how-to
 **How to watch Flames vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Calgary Flames play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077545/2026/02/28/flames-vs-kings-stream-how-to-watch-feb-28/
-
-**How to watch Villanova vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the Villanova Wildcats play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077524/2026/02/28/villanova-vs-st-john-s-stream-how-to-watch-feb-28/
-
-**How to watch Alabama vs. Tennessee men's basketball: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Tennessee Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077522/2026/02/28/alabama-vs-tennessee-stream-how-to-watch-feb-28/
-
-**How to watch Duquesne vs. Saint Louis men's basketball: Time, TV, streaming**\
-`Find out how to watch the Duquesne Dukes play the Saint Louis Billikens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077520/2026/02/28/duquesne-vs-saint-louis-stream-how-to-watch-feb-28/
-
-**How to watch BYU vs. West Virginia men's basketball: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077518/2026/02/28/byu-vs-west-virginia-stream-how-to-watch-feb-28/
-
-**Pentagon to Cut Ties With Top Universities and Think Tanks**\
-`Defense Secretary Pete Hegseth said he was banning attendance at Yale, Princeton, Brown and other elite colleges and think tanks, accusing them of indoctrinating service members with liberal ideologies.`\
-https://nytimes.com/2026/02/28/us/politics/pentagon-universities-think-tanks.html
 
