@@ -1,3 +1,23 @@
+**Video: Go inside the Indianapolis restaurant where NFL deals get done**\
+`Mike Silver takes you behind the scenes at St. Elmo Steak House during NFL Scouting Combine week.`\
+https://nytimes.com/athletic/7076065/2026/02/28/nfl-st-elmo-steak-house-video/
+
+**Bill Guerin on Olympic gold, roster validation and team chemistry: 'It was like a dream'**\
+`There was immense pressure on Guerin to earn gold with the Team USA roster he helped assemble. `\
+https://nytimes.com/athletic/7076584/2026/02/28/bill-guerin-olympic-gold-roster-criticism-team-usa/
+
+**Mamdani Is Naming New York’s Next Culture Czar**\
+`Diya Vij, the incoming commissioner of the Department of Cultural Affairs, said she wanted to make “open, accessible and sometimes radical cultural activities possible.”`\
+https://nytimes.com/2026/02/28/arts/design/mamdani-culture-czar-diya-vij.html
+
+**Several rounds of U.S.-Iran nuclear talks failed to stave off strikes.**\
+`By Aaron Boxerman, Erika Solomon and Nick Cumming-Bruce`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/several-rounds-of-us-iran-nuclear-talks-failed-to-stave-off-strikes
+
+**Lloyd Blankfein on Trump, Epstein and Life After Goldman Sachs**\
+`In a wide-ranging interview with Andrew Ross Sorkin, Goldman’s former C.E.O. discussed his life and new memoir.`\
+https://nytimes.com/2026/02/28/business/dealbook/lloyd-blankfein-book.html
+
 **Smoke-Filled Skies and Crowded Bomb Shelters After Iran Is Attacked**\
 `See images from the Middle East after the United States and Israel on Saturday launched a major attack against Tehran.`\
 https://nytimes.com/2026/02/28/world/iran-israel-trump-attack-photos.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/02/28/world/middleeast/iran-war-mood.html
 **The Pulse: A plot twist in the West**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7076882/2026/02/28/a-plot-twist-in-the-west-plus-pavias-manziel-connection/
-
-**SailGP: Spain lead Australia by four points after day one of Sydney Grand Prix**\
-`“The most thing we want is a reliable boat and today the boat felt good," said Spanish skipper Diego Botin.`\
-https://nytimes.com/athletic/7077055/2026/02/28/sailgp-sydney-spain-lead-day-one/
-
-**Jerry Jones expects Cowboys to spend more in free agency: 'I can see us being aggressive'**\
-`"I have every intention of working very good with his agent,” Jones said of dealing with Pickens' agent David Mulugheta.`\
-https://nytimes.com/athletic/7076859/2026/02/28/cowboys-jerry-jones-george-pickens-negotiations/
-
-**From Los Angeles to Oakland, California artists celebrate Alysa Liu**\
-`After a Los Angeles-area mural depicting Olympic gold medalist Alysa Liu went viral, a Bay Area artist group began their own version.`\
-https://nytimes.com/athletic/7076675/2026/02/28/alysa-liu-los-angeles-oakland-murals/
-
-**Ranking the Winnipeg Jets’ top 11 trade assets: Which ones could be in play?**\
-`Today, we rank the Jets' top trade chips from most valuable to least.`\
-https://nytimes.com/athletic/7073877/2026/02/28/winnipeg-jets-trade-assets/
-
-**How to watch QB, RB and WR workouts at the NFL Scouting Combine**\
-`Quarterbacks, running backs and receivers have their workouts televised this Saturday afternoon.`\
-https://nytimes.com/athletic/7076134/2026/02/28/nfl-combine-workouts-qb-rb-wr-how-to-watch/
 

@@ -1,3 +1,7 @@
+**Smoke-Filled Skies and Crowded Bomb Shelters After Iran Is Attacked**\
+`See images from the Middle East after the United States and Israel on Saturday launched a major attack against Tehran.`\
+https://nytimes.com/2026/02/28/world/iran-israel-trump-attack-photos.html
+
 **Twins have a trio of outfield prospects waiting in the wings. Target Field could be next**\
 `Walker Jenkins, Emmanuel Rodriguez and Gabriel Gonzalez are close to the majors. Playing together in the Twins' outfield is a possibility.`\
 https://nytimes.com/athletic/7074585/2026/02/28/mlb-twins-prospects-players-outfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7073877/2026/02/28/winnipeg-jets-trade-assets/
 **How to watch QB, RB and WR workouts at the NFL Scouting Combine**\
 `Quarterbacks, running backs and receivers have their workouts televised this Saturday afternoon.`\
 https://nytimes.com/athletic/7076134/2026/02/28/nfl-combine-workouts-qb-rb-wr-how-to-watch/
-
-**What potential trade suitors need to know about Robert Thomas and Jordan Kyrou**\
-`Interested teams just have to look past some of this year’s team-wide struggles to isolate what these two can bring to a lineup.`\
-https://nytimes.com/athletic/7073527/2026/02/28/nhl-trade-deadline-jordan-kyrou-robert-thomas/
 
