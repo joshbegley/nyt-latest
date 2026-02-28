@@ -1,3 +1,7 @@
+**With Brennan Othmann's demotion, it's time to accept the reality of his Rangers situation**\
+`The Rangers made clear where the 2021 first-round pick stands on their roster. Now they need to do what’s best for both sides.`\
+https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-tye-kartye/
+
 **Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
 `Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
 https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scutaro-venezuela-connection/

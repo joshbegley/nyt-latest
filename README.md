@@ -1,3 +1,7 @@
+**Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
+`He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
+https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
+
 **With Brennan Othmann's demotion, it's time to accept the reality of his Rangers situation**\
 `The Rangers made clear where the 2021 first-round pick stands on their roster. Now they need to do what’s best for both sides.`\
 https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-tye-kartye/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
 **Guardiola calls for “respect" after Leeds fans boo stoppage for breaking Ramadan fast**\
 `Boos and whistles rang around Elland Road during a short break after sunset that allowed City’s Muslim players to break their fast`\
 https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramadan-guardiola/
-
-**How Wesley Hunt of Texas Is Working in Plain Sight With Outside Groups**\
-`Exchanges between two X accounts appear to offer a vivid example of how campaigns may sidestep campaign-finance law to share strategic information.`\
-https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaign-finance.html
 
