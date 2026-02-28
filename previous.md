@@ -1,3 +1,7 @@
+**Cambodia Celebrates the Return of Looted Artifacts From a Tainted Dealer**\
+`The dealer, who died in 2020, had been accused of selling illegally excavated treasures of the Khmer culture. His estate returned dozens of them this week.`\
+https://nytimes.com/2026/02/27/arts/design/cambodia-celebrates-the-return-of-looted-artifacts-from-tainted-dealer.html
+
 **Taiwan Arms Sale Approved by Congress Is Delayed as Trump Plans Visit to Beijing**\
 `The package worth billions of dollars and endorsed by lawmakers is stalled at the State Department as the U.S. and China plan an April summit.`\
 https://nytimes.com/2026/02/27/us/politics/trump-taiwan-arms-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/lausd-superintendent-alberto-carvalho-fbi.html
 **How Israel Lost Americans**\
 `Netanyahu and his government deserve the growing bipartisan opprobrium they’re receiving.`\
 https://nytimes.com/2026/02/27/opinion/israel-american-public-opinion.html
-
-**What You Taught Me About Texas**\
-`Our readers in the state offer a window into the current center of the political universe.`\
-https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
 
