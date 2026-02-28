@@ -1,3 +1,7 @@
+**Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
+`Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
+https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
+
 **Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
 `The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
 https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/business/trump-tariffs-refunds-supreme-court.html
 **Instagram to Alert Parents to Teens’ Self-Harm Searches**\
 `Parents will receive notifications if a child has used the platform repeatedly to search for terms related to suicide or self-harm, but users must opt in to get them.`\
 https://nytimes.com/2026/02/27/technology/meta-self-harm-notifications-parents.html
-
-**How to Vote in the North Carolina Primary**\
-`Marquee primary contests will determine the major-party nominees for an open U.S. Senate seat. The real action could unfold lower down the ballot.`\
-https://nytimes.com/2026/02/27/us/elections/how-to-vote-north-carolina-primary.html
 
