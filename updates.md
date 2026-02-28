@@ -1,3 +1,19 @@
+**Mavericks upgrade Ryan Nembhard from two-way to standard contract: Source**\
+`Dallas holds a team option on Nembhard's contract in 2026-27, which will provide flexibility in revamping the team's backcourt.`\
+https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-standard-contract/
+
+**Here’s What Members of Congress Are Saying About the Attacks on Iran**\
+`As explosions rocked Tehran, Republicans largely voiced support as Democrats warned about a costly and unauthorized conflict.`\
+https://nytimes.com/2026/02/28/world/middleeast/congress-iran-attacks-reaction.html
+
+**Haaland misses Man City's trip to Leeds United**\
+`Prior to today, Haaland had not missed a single game league this season.`\
+https://nytimes.com/athletic/7077402/2026/02/28/haaland-man-city-leeds-teams/
+
+**Congress Faces War Powers Votes in Wake of Iran Strikes**\
+`Following the attack, Democrats and a few Republicans escalated their calls for swift votes on whether to curb the president’s power to continue using force against Iran without explicit authorization.`\
+https://nytimes.com/2026/02/28/us/politics/congress-war-powers-votes-iran.html
+
 **For Trump, the Iran Attack Is the Ultimate War of Choice**\
 `There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html

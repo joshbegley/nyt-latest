@@ -1,3 +1,19 @@
+**Mavericks upgrade Ryan Nembhard from two-way to standard contract: Source**\
+`Dallas holds a team option on Nembhard's contract in 2026-27, which will provide flexibility in revamping the team's backcourt.`\
+https://nytimes.com/athletic/7077385/2026/02/28/nba-mavericks-ryan-nembhard-standard-contract/
+
+**Here’s What Members of Congress Are Saying About the Attacks on Iran**\
+`As explosions rocked Tehran, Republicans largely voiced support as Democrats warned about a costly and unauthorized conflict.`\
+https://nytimes.com/2026/02/28/world/middleeast/congress-iran-attacks-reaction.html
+
+**Haaland misses Man City's trip to Leeds United**\
+`Prior to today, Haaland had not missed a single game league this season.`\
+https://nytimes.com/athletic/7077402/2026/02/28/haaland-man-city-leeds-teams/
+
+**Congress Faces War Powers Votes in Wake of Iran Strikes**\
+`Following the attack, Democrats and a few Republicans escalated their calls for swift votes on whether to curb the president’s power to continue using force against Iran without explicit authorization.`\
+https://nytimes.com/2026/02/28/us/politics/congress-war-powers-votes-iran.html
+
 **For Trump, the Iran Attack Is the Ultimate War of Choice**\
 `There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinici
 **The President of War**\
 `The U.S. military was once a tool of last resort for American presidents.`\
 https://nytimes.com/2026/02/28/opinion/international-world/the-president-of-war.html
-
-**The March Monthly Bake: Chocolate Guinness Cake**\
-`Nigella Lawson’s recipe is a five-star classic for a reason.`\
-https://nytimes.com/2026/02/28/dining/the-march-monthly-bake-chocolate-guinness-cake.html
-
-**Berkshire Hathaway Posts a Drop in Earnings in Buffett’s Last Year**\
-`In his first report as C.E.O., Gregory Abel, stuck to a straight commentary rather than Warren Buffett’s folksy tone. The lower earnings were largely driven by declines in the insurance business.`\
-https://nytimes.com/2026/02/28/business/dealbook/berkshire-hathaway-earnings-gregory-abel-warren-buffett.html
-
-**FIFA focused on 'everybody participating' at World Cup after U.S. attack on Iran**\
-`Military action has increased tensions between the two countries ahead of this summer's tournament`\
-https://nytimes.com/athletic/7077233/2026/02/28/fifa-world-cup-iran-attack-united-states/
-
-**How to watch Rockets vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077261/2026/02/28/rockets-vs-heat-stream-how-to-watch-feb-28/
 
