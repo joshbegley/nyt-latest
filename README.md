@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 28, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
+
 **Chelsea would have expected more from £88.5m Gittens and Garnacho, but time is on their side**\
 `Both players joined Chelsea in the summer, but neither has become first-choice since then`\
 https://nytimes.com/athletic/7073063/2026/02/28/chelsea-gittens-garnacho-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068009/2026/02/28/philipp-lahm-super-talents-speci
 **Why don't more football teams place players on the side of the box for penalties?**\
 `A tweak that a handful of teams are using could result in a curious marginal gain `\
 https://nytimes.com/athletic/7069905/2026/02/28/why-dont-more-football-teams-place-players-on-the-side-of-the-box-for-penalties/
-
-**Chelsea have traded places with Arsenal and risk repeating Wenger's errors**\
-`In recent years, Chelsea have been proud to have a low average age, but history shows few teams win without proven, experienced leaders`\
-https://nytimes.com/athletic/7075303/2026/02/28/chelsea-arsenal-wenger-youth/
 
