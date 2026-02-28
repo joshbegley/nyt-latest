@@ -1,3 +1,15 @@
+**Trump’s case for striking Iran rests on questionable claims.**\
+`By Mark Mazzetti, Edward Wong, David E. Sanger and Julian E. Barnes`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/trumps-case-for-striking-iran-rests-on-questionable-claims
+
+**Here’s What World Leaders Are Saying About the U.S.-Led Attack on Iran**\
+`Governments around the world urged restraint after the United States and Israel launched a major assault, and Iran vowed retaliation.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-attacks-reaction.html
+
+**Mandel: Here's how I imagine Trump's meeting to 'save' college sports could go**\
+`An imagined, satirical look at the conversation that could happen to save college sports.`\
+https://nytimes.com/athletic/7076440/2026/02/28/save-college-sports-panel-trump-nil/
+
 **How to watch Trail Blazers vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077040/2026/02/28/trail-blazers-vs-hornets-stream-how-to-watch-feb-28/
