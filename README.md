@@ -1,3 +1,7 @@
+**False and outdated videos circulated online after the Iran strikes.**\
+`By Stuart A. Thompson`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
+
 **After shootout loss, Penguins' Evgeni Malkin says no progress made in contract talks**\
 `Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
 https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078033/2026/02/28/rangers-brennan-othmann-trade-ty
 **Rainmakers: Marco Scutaro showed Luis Arraez what was possible for a kid from small-town Venezuela**\
 `Arraez grew up watching Scutaro, who believes in his fellow countryman: "The Giants will love him and he'll stay here for a while." `\
 https://nytimes.com/athletic/7077856/2026/02/28/sf-giants-luis-arraez-marco-scutaro-venezuela-connection/
-
-**Royals, Starling Marte agree to major-league contract: Source**\
-`Marte, 37, hit .270 with nine homers for the Mets in 98 games last season.`\
-https://nytimes.com/athletic/7077968/2026/02/28/mlb-free-agent-signing-starling-marte-royals/
 
