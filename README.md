@@ -1,3 +1,19 @@
+**Ty Simpson believes he's a franchise quarterback. Do the Steelers agree?**\
+`Which is the real Simpson? The QB who starred as Alabama started 8-1, or the QB who showed flaws as the Tide lost three of their final six?`\
+https://nytimes.com/athletic/7076600/2026/02/28/ty-simpson-pittsburgh-steelers-draft-targets/
+
+**Pat Riley thinks a suit makes a more effective leader. He might be right**\
+`“I think an audience wants to see somebody on the sidelines who looks like a leader, dresses like a leader, acts like a leader,” Riley said.`\
+https://nytimes.com/athletic/7075737/2026/02/28/pat-riley-suits-basketball-coaches-leadership/
+
+**Trump Calls on Iranians to Overthrow Regime**\
+`In a video posted on Truth Social on Saturday, President Trump warned Iranians to stay safe as the United States bombed their country and called on them to overthrow the regime and take control after the attack.`\
+https://nytimes.com/video/world/middleeast/100000010743706/trump-calls-on-iranians-to-overthrow-regime.html
+
+**Will Giants take a big free-agent swing up front? What I'm hearing at the NFL Combine**\
+`Plus, why they might be in on a running back, out on tight ends, and a new candidate for the No. 5 pick emerges.`\
+https://nytimes.com/athletic/7076452/2026/02/28/new-york-giants-combine-free-agency-plans/
+
 **Trump Announces ‘Major Combat Operations’ in Iran**\
 `President Trump on Saturday announced that the United States was conducting a large attack on Iran and called for regime change. Israel also said it was striking the country.`\
 https://nytimes.com/video/world/asia/100000010743603/iran-trump-us-israel-attacks.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/02/28/business/media/netflix-lost-warner-maybe-thats-a-
 **The Bloody Rise and Fall of Mexico’s Top Crime Boss**\
 `El Mencho’s brutality and business acumen put him atop the cartel world, until he made a fatal mistake.`\
 https://nytimes.com/2026/02/28/world/americas/mexico-mencho-career-death.html
-
-**Of Ice and Men. And Frogs. And Cats. And Minions.**\
-`As the blizzard surged, a garden of snow sculptures arose in a Brooklyn park — a testament to New York creativity.`\
-https://nytimes.com/2026/02/28/arts/snowmen-sculptures-brooklyn-park.html
-
-**Abrupt Change for Warner Bros. Prompts Many Grim Faces**\
-`Employees at the company had started to warm to the idea of Netflix as its corporate owner. Now they face the prospect of major cuts under Paramount.`\
-https://nytimes.com/2026/02/28/business/warner-bros-paramount-reaction.html
-
-**Zuffa Boxing wants to 'crush' the sport's old guard. Will it succeed?**\
-`Battle lines have been drawn in the fight over the sport's future – and things could get ugly `\
-https://nytimes.com/athletic/7075227/2026/02/28/zuffa-boxing-dana-white-turki-al-sheikh/
-
-**Can Nations Agree How to Mine the Sea? This Is the Year, She Says.**\
-`Leticia Carvalho heads a global authority that’s been struggling to set rules for a decade. President Trump’s aggressive push on ocean mining makes her task more urgent.`\
-https://nytimes.com/2026/02/28/climate/seabed-mining-rulebook-isa-metals-company.html
 
