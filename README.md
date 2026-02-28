@@ -1,3 +1,7 @@
+**Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
+`The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
+https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
+
 **‘We Got to Win the Midterms’: Trump Takes His State of the Union Message on the Road**\
 `During a visit to Texas, President Trump made clear that he would be driving home his depiction of Democrats as out of step ahead of the elections in November.`\
 https://nytimes.com/2026/02/27/us/politics/trump-midterms-state-of-the-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/technology/meta-self-harm-notifications-parents.h
 **How to Vote in the North Carolina Primary**\
 `Marquee primary contests will determine the major-party nominees for an open U.S. Senate seat. The real action could unfold lower down the ballot.`\
 https://nytimes.com/2026/02/27/us/elections/how-to-vote-north-carolina-primary.html
-
-**Los Angeles Schools Chief Is Placed on Leave Following F.B.I. Raid**\
-`Alberto Carvalho, superintendent of the Los Angeles Unified School District, was placed on paid leave after F.B.I. agents raided his home and district office this week.`\
-https://nytimes.com/2026/02/27/us/lausd-superintendent-alberto-carvalho-fbi.html
 
