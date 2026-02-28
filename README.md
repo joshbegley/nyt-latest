@@ -1,3 +1,7 @@
+**Thunder outlast Nuggets in playoff-like slugfest as Nikola Jokić confronts Lu Dort**\
+`A tense, tight West showdown boiled over after Jokić objected to a hip check from Dort, which resulted in the latter's ejection. `\
+https://nytimes.com/athletic/7076842/2026/02/28/thunder-nuggets-fight-nikoka-jokic-lu-dort/
+
 **The New York Times in Print for Saturday, Feb. 28, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072652/2026/02/28/erling-haaland-manchester-city-d
 **Philipp Lahm: Where are Germany's super talents? Where are the specialists?**\
 `Germany has produced talented players, but not regularly produced super talents — or specialists in attack, defence or midfield`\
 https://nytimes.com/athletic/7068009/2026/02/28/philipp-lahm-super-talents-specialists-germany/
-
-**Why don't more football teams place players on the side of the box for penalties?**\
-`A tweak that a handful of teams are using could result in a curious marginal gain `\
-https://nytimes.com/athletic/7069905/2026/02/28/why-dont-more-football-teams-place-players-on-the-side-of-the-box-for-penalties/
 

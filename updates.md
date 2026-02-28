@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Feb. 28, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/02/28/todays-new-york-times
+
 **Chelsea would have expected more from £88.5m Gittens and Garnacho, but time is on their side**\
 `Both players joined Chelsea in the summer, but neither has become first-choice since then`\
 https://nytimes.com/athletic/7073063/2026/02/28/chelsea-gittens-garnacho-analysis/
