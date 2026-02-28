@@ -1,3 +1,7 @@
+**Pistons-Cavaliers delayed for nearly 13 minutes after arena horn malfunctions**\
+`The glitch forced a long delay in Detroit's game against the Cleveland Cavaliers, though most fans seemed unbothered by the noise. `\
+https://nytimes.com/athletic/7076651/2026/02/27/pistons-horn-cavaliers-arena-nba/
+
 **Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
 `Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
 https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/opinion/anthropic-pentagon-hegseth.html
 **Trump Signals Opposition to Tariff Refunds, Hinting at Legal War to Come**\
 `One week after the Supreme Court invalidated President Trump’s tariffs, he suggested that his administration could try to relitigate a case that was decided 6 to 3.`\
 https://nytimes.com/2026/02/27/business/trump-tariffs-refunds-supreme-court.html
-
-**Instagram to Alert Parents to Teens’ Self-Harm Searches**\
-`Parents will receive notifications if a child has used the platform repeatedly to search for terms related to suicide or self-harm, but users must opt in to get them.`\
-https://nytimes.com/2026/02/27/technology/meta-self-harm-notifications-parents.html
 

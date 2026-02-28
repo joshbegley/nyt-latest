@@ -1,3 +1,7 @@
+**Scouts Will Abandon D.E.I. Policies Under Agreement With Pentagon, Hegseth Says**\
+`Scouting America said it had staved off a demand from the Pentagon to ban girls from the organization and change its name back to Boy Scouts of America.`\
+https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth.html
+
 **Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
 `The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
 https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
