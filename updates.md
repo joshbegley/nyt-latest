@@ -1,3 +1,5 @@
+
+
 **How Israel Lost Americans**\
 `Netanyahu and his government deserve the growing bipartisan opprobrium they’re receiving.`\
 https://nytimes.com/2026/02/27/opinion/israel-american-public-opinion.html
