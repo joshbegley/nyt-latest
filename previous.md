@@ -1,3 +1,7 @@
+**Trump’s Unilateral Attack on Iran Paves Way for Broader Dispute Over War Powers**\
+`Critics say the president is violating the Constitution, and many Democrats and at least two Republicans in Congress say they must vote on whether to enter such a conflict.`\
+https://nytimes.com/2026/02/28/world/middleeast/trump-iran-war-powers.html
+
 **Iran Says Dozens Killed in Strike on School**\
 `The strike on an elementary school in the southern Iran town of Minab was one of two attacks that appear to have hit schools during U.S. and Israeli strikes on Iran on Saturday.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-school-strike-us-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077571/2026/02/28/sabres-vs-lightning-stream-how-t
 **How to watch Blackhawks vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7077563/2026/02/28/blackhawks-vs-avalanche-stream-how-to-watch-feb-28/
-
-**How to watch Islanders vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7077557/2026/02/28/islanders-vs-blue-jackets-stream-how-to-watch-feb-28/
 
