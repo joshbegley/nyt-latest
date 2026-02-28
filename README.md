@@ -1,3 +1,7 @@
+**Football lawmakers to punish players who cover mouths when speaking to opponents**\
+`The new law comes after Real Madrid's Vinicius Junior was allegedly racially abused by Benfica's Gianluca Prestianni on February 17.`\
+https://nytimes.com/athletic/7077318/2026/02/28/football-law-rules-racism-vinicius-junior-real-madrid-benfica-prestianni/
+
 **The President of War**\
 `The U.S. military was once a tool of last resort for American presidents.`\
 https://nytimes.com/2026/02/28/opinion/international-world/the-president-of-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077248/2026/02/28/devils-vs-blues-stream-how-to-wa
 **See photos and videos from the Middle East after the U.S.-led attacks.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/see-photos-and-videos-from-the-middle-east-after-the-us-led-attacks
-
-**PSG given free Ligue 1 weekend before Champions League tie at Chelsea**\
-`PSG were due to host Nantes in Ligue 1 on Sunday, March 15, just two days ahead of the second leg against Chelsea at Stamford Bridge.`\
-https://nytimes.com/athletic/7077145/2026/02/28/psg-chelsea-champions-league/
 
