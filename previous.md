@@ -1,3 +1,11 @@
+**Going Down Fast**\
+`Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
+https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
+
+**The Immovable and Ruinous Obsessions of Ayatollah Khamenei**\
+`The supreme leader organized his existence around one big idea: resistance.`\
+https://nytimes.com/2026/02/28/opinion/iran-supreme-leader-dead-khamenei.html
+
 **Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
 `He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
 https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
 **A War of Choice Does Not Make Us Safer**\
 `“The first mission of a president is to keep Americans safe,” says Times columnist Nicholas Kristof following the United States and Israel’s military strike against Iran Saturday.`\
 https://nytimes.com/video/opinion/100000010744432/a-war-of-choice-does-not-make-us-safer.html
-
-**How the BAFTAs Bungled Its Big Awards Night**\
-`The awards show didn’t mention racist slurs when it told the audience a man with Tourette’s might make “involuntarily noises.”`\
-https://nytimes.com/2026/02/28/movies/baftas-bbc-racial-slur-tourettes.html
-
-**Guardiola calls for “respect" after Leeds fans boo stoppage for breaking Ramadan fast**\
-`Boos and whistles rang around Elland Road during a short break after sunset that allowed City’s Muslim players to break their fast`\
-https://nytimes.com/athletic/7077868/2026/02/28/man-city-leeds-muslim-boos-ramadan-guardiola/
 

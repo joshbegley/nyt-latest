@@ -1,3 +1,11 @@
+**Diagramming the Blows to Iran’s Leadership**\
+`Among those killed in strikes, according to the U.S. and Israel, were Iran’s supreme leader and three of his top military commanders.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-leadership-khamenei-shamkhani-pakpour-nasirzadeh.html
+
+**The attacks touched off protests across the United States and abroad.**\
+`By Ashley Ahn and Zia Haider Rahman`\
+https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-attacks-touched-off-protests-across-the-united-states-and-abroad
+
 **Going Down Fast**\
 `Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
 https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7077890/2026/02/28/nfl-combine-mike-washington-40-t
 **Guess What Trump Values Above the Constitution**\
 `The State of the Union was very revealing.`\
 https://nytimes.com/2026/02/28/opinion/trump-state-of-the-union.html
-
-**Trump, the Self-Declared Peace President, Goes to War Seeking Regime Change**\
-`President Trump has become increasingly willing to assert American power overseas, a decade after propelling himself to the highest office by promising to focus on “America first.”`\
-https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
-
-**A War of Choice Does Not Make Us Safer**\
-`“The first mission of a president is to keep Americans safe,” says Times columnist Nicholas Kristof following the United States and Israel’s military strike against Iran Saturday.`\
-https://nytimes.com/video/opinion/100000010744432/a-war-of-choice-does-not-make-us-safer.html
 

@@ -1,3 +1,11 @@
+**Going Down Fast**\
+`Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
+https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
+
+**The Immovable and Ruinous Obsessions of Ayatollah Khamenei**\
+`The supreme leader organized his existence around one big idea: resistance.`\
+https://nytimes.com/2026/02/28/opinion/iran-supreme-leader-dead-khamenei.html
+
 **Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
 `He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
 https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
