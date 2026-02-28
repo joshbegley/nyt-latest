@@ -1,3 +1,7 @@
+**What You Taught Me About Texas**\
+`Our readers in the state offer a window into the current center of the political universe.`\
+https://nytimes.com/2026/02/27/us/politics/texas-elections-senate-primary.html
+
 **Trump, the Self-Declared Peace President, Goes to War Seeking Regime Change**\
 `President Trump has become increasingly willing to assert American power overseas, a decade after propelling himself to the highest office by promising to focus on “America first.”`\
 https://nytimes.com/2026/02/28/us/politics/trump-peace-president-war.html
