@@ -1,3 +1,11 @@
+**For Trump, the Iran Attack Is the Ultimate War of Choice**\
+`There was no immediate threat from Iran. But the president saw a chance to push a weakened government over the edge, and is betting he can spark a popular uprising.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-attack.html
+
+**I Must Make This Gorgeous Chicken Dish**\
+`To see Cameroonian chicken and plantains is to want Cameroonian chicken and plantains.`\
+https://nytimes.com/2026/02/28/dining/i-must-make-this-gorgeous-chicken-dish.html
+
 **Banged-up Clippers hope recent rest helps ahead of boom-or-bust March**\
 `After playing one game in six days, the Clippers will need to navigate a brutal March schedule that includes 18 games in 31 days.`\
 https://nytimes.com/athletic/7076561/2026/02/28/clippers-kawhi-leonard-march-schedule/
