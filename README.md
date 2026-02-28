@@ -1,3 +1,7 @@
+**Quote of the Day: How ‘The Pitt’ Grosses Viewers Out**\
+`Quotation of the Day for Saturday, February 28, 2026.`\
+https://nytimes.com/2026/02/27/pageoneplus/quote-of-the-day-how-the-pitt-grosses-viewers-out.html
+
 **'I don’t know what these guys are smoking': Panthers goalie blasts replay decision**\
 `Daniil Tarasov says he was interfered with on the goal that put the Panthers down 2-1 against the Sabres.`\
 https://nytimes.com/athletic/7076827/2026/02/27/panthers-goalie-daniil-tarasov-sabres-interference/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/crosswords/daily-puzzle-2026-02-28.html
 **Bill Clinton Says He ‘Did Nothing Wrong’ in House Epstein Inquiry**\
 `Former President Bill Clinton told members of the House Oversight Committee in a closed-door deposition that he “saw nothing” and had done nothing wrong when he associated with Jeffrey Epstein decades ago.`\
 https://nytimes.com/video/us/politics/100000010742366/bill-clinton-epstein-deposition.html
-
-**Two Nebraska-Omaha women's basketball players rescue trapped driver from sinkhole**\
-`Olivia Borsutzki and Esra Kurban were on their way home from practice when they noticed something off at a red light. `\
-https://nytimes.com/athletic/7076586/2026/02/27/nebraska-omaha-sinkhole-womens-basketball-rescue/
 
