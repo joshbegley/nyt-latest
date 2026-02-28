@@ -1,3 +1,11 @@
+**Watching Macklin Celebrini play for Canada at Olympics was 'a life memory' for father Rick**\
+`While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
+https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
+
+**OpenAI Reaches A.I. Agreement With Defense Dept. After Anthropic Clash**\
+`The deal came hours after President Trump had ordered federal agencies to stop using artificial intelligence technology made by Anthropic, an OpenAI rival.`\
+https://nytimes.com/2026/02/27/technology/openai-reaches-ai-agreement-with-defense-dept-after-anthropic-clash.html
+
 **David White, JC Tretter among 3 finalists to be named NFLPA executive director: Sources**\
 `American Conference commissioner Tim Pernetti is the third finalist to be the NFLPA's top executive.`\
 https://nytimes.com/athletic/7076417/2026/02/27/nflpa-executive-director-finalists/

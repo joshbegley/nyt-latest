@@ -1,3 +1,11 @@
+**Watching Macklin Celebrini play for Canada at Olympics was 'a life memory' for father Rick**\
+`While acknowledging he felt "a little guilty" leaving the Warriors, Rick Celebrini was grateful to watch his son Macklin in the Olympics.`\
+https://nytimes.com/athletic/7076755/2026/02/27/macklin-celebrini-olympics-canada-rick-warriors/
+
+**OpenAI Reaches A.I. Agreement With Defense Dept. After Anthropic Clash**\
+`The deal came hours after President Trump had ordered federal agencies to stop using artificial intelligence technology made by Anthropic, an OpenAI rival.`\
+https://nytimes.com/2026/02/27/technology/openai-reaches-ai-agreement-with-defense-dept-after-anthropic-clash.html
+
 **David White, JC Tretter among 3 finalists to be named NFLPA executive director: Sources**\
 `American Conference commissioner Tim Pernetti is the third finalist to be the NFLPA's top executive.`\
 https://nytimes.com/athletic/7076417/2026/02/27/nflpa-executive-director-finalists/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/02/27/us/politics/scouting-america-dei-pentagon-hegseth
 **Radiohead Demands That ICE Remove Its Song From a Social Media Video**\
 `The band condemned the Trump administration for using the song “Let Down” in a post showing victims of violent crimes that federal officials said had been committed by illegal immigrants.`\
 https://nytimes.com/2026/02/27/us/politics/radiohead-ice-dhs-video-trump.html
-
-**‘We Got to Win the Midterms’: Trump Takes His State of the Union Message on the Road**\
-`During a visit to Texas, President Trump made clear that he would be driving home his depiction of Democrats as out of step ahead of the elections in November.`\
-https://nytimes.com/2026/02/27/us/politics/trump-midterms-state-of-the-union.html
-
-**Cambodia Celebrates the Return of Looted Artifacts From a Tainted Dealer**\
-`The dealer, who died in 2020, had been accused of selling illegally excavated treasures of the Khmer culture. His estate returned dozens of them this week.`\
-https://nytimes.com/2026/02/27/arts/design/cambodia-celebrates-the-return-of-looted-artifacts-from-tainted-dealer.html
 
