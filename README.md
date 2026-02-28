@@ -1,3 +1,7 @@
+**SailGP: Spain lead Australia by four points after day one of Sydney Grand Prix**\
+`“The most thing we want is a reliable boat and today the boat felt good," said Spanish skipper Diego Botin.`\
+https://nytimes.com/athletic/7077055/2026/02/28/sailgp-sydney-spain-lead-day-one/
+
 **Jerry Jones expects Cowboys to spend more in free agency: 'I can see us being aggressive'**\
 `"I have every intention of working very good with his agent,” Jones said of dealing with Pickens' agent David Mulugheta.`\
 https://nytimes.com/athletic/7076859/2026/02/28/cowboys-jerry-jones-george-pickens-negotiations/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/opinion/warner-bros-discovery-paramount-ellison-n
 **If A.I. Is a Weapon, Who Should Control It?**\
 `Better to put this power in the hands of private industry or government officials?`\
 https://nytimes.com/2026/02/28/opinion/artificial-intelligence-trump-hegseth-anthropic.html
-
-**Will Trump’s Failures Cost the G.O.P. in Texas?**\
-`The round table convenes to discuss the upcoming Texas primaries and Trump’s State of the Union shortcomings.`\
-https://nytimes.com/2026/02/28/opinion/trump-texas-voters.html
 
