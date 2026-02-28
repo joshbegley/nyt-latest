@@ -1,3 +1,7 @@
+**Medvedev wins Dubai title; doubles final played despite Iran missile attacks**\
+`The final was still scheduled to take place on Saturday night, despite projectiles being seen over Dubai as Iran fired retaliatory missiles.`\
+https://nytimes.com/athletic/7077150/2026/02/28/dubai-tennis-medvedez-iran-missiles-uae/
+
 **Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**\
 `Waves of retaliatory strikes were reported in Israel and across several Gulf countries on Saturday. The Emirati government said at least one person was killed from falling missile debris.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html
