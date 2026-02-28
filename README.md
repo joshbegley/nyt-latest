@@ -1,3 +1,15 @@
+**How Wesley Hunt of Texas Is Working in Plain Sight With Outside Groups**\
+`Exchanges between two X accounts appear to offer a vivid example of how campaigns may sidestep campaign-finance law to share strategic information.`\
+https://nytimes.com/2026/02/28/us/politics/wesley-hunt-texas-senate-race-campaign-finance.html
+
+**paxton integrity post**\
+`By Nick Corasaniti`\
+https://nytimes.com/2026/02/28/us/elections/paxton-integrity-post.html
+
+**How to watch Lakers vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7077919/2026/02/28/lakers-vs-warriors-stream-how-to-watch-feb-28/
+
 **U.S. Ability to Determine What Comes Next in Iran Might Be Limited**\
 `Questions remain about how much effort the Trump administration will put into changing the Iranian government.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-intelligence.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7077875/2026/02/28/gonzaga-vs-saint-mary-s-ca-strea
 **Warriors sign Gui Santos to three-year contract extension**\
 `Santos is averaging a career-high 6.6 points, 3.2 rebounds and 1.7 assists while shooting 53.1 percent from the field in his third season.`\
 https://nytimes.com/athletic/7077827/2026/02/28/gui-santos-warriors-contract-extension/
-
-**Only 21% of Americans Support the United States Initiating an Attack on Iran**\
-`The public’s appetite for a U.S. attack on Iran was low before President Trump and Israel took action on Saturday.`\
-https://nytimes.com/2026/02/28/us/politics/poll-americans-support-iran-attack.html
-
-**How Iranians Can Take Control of Their Future**\
-`U.S. military interventions have often gone poorly for the countries in question. But there is much the world, and Iranians, can do.`\
-https://nytimes.com/2026/02/28/opinion/iran-us-war-attack-protests.html
-
-**Ed Iskenderian, Hot Rod Pioneer Known as the ‘Camfather,’ Dies at 104**\
-`“His influence can be felt in every form of motorsport today,” Car and Driver magazine wrote of the man who powered some of the fastest cars of his era with his innovative engine camshafts.`\
-https://nytimes.com/2026/02/28/sports/autoracing/ed-iskenderian-dead.html
 
