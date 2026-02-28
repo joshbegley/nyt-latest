@@ -1,3 +1,7 @@
+**Leeds 0 Man City 1: No Haaland, no problem as City keep title hunt alive**\
+`Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
+https://nytimes.com/athletic/7073026/2026/02/28/briefing-leeds-0-1-manchester-city-analysis/
+
 **Ed Iskenderian, Hot Rod Pioneer Known as the ‘Camfather,’ Dies at 104**\
 `“His influence can be felt in every form of motorsport today,” Car and Driver magazine wrote of the man who powered some of the fastest cars of his era with his innovative engine camshafts.`\
 https://nytimes.com/2026/02/28/sports/autoracing/ed-iskenderian-dead.html

@@ -10,7 +10,7 @@ https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-fact-check.html
 `A major hub in Dubai has suspended operations following U.S.-Israeli strikes on Iran. The sweeping closures are stranding passengers.`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/middle-east-airport-closures-emirates-qatar
 
-**Leeds 0 Man City 1: How important could this result be? How did City cope without Haaland?**\
+**Leeds 0 Man City 1: No Haaland, no problem as City keep title hunt alive**\
 `Pep Guardiola's side win their sixth straight game in challenging circumstances to keep the pressure up on Arsenal`\
 https://nytimes.com/athletic/7073026/2026/02/28/briefing-leeds-0-1-manchester-city-analysis/
 
