@@ -1,3 +1,7 @@
+**‘We Got to Win the Midterms’: Trump Takes His State of the Union Message on the Road**\
+`During a visit to Texas, President Trump made clear that he would be driving home his depiction of Democrats as out of step ahead of the elections in November.`\
+https://nytimes.com/2026/02/27/us/politics/trump-midterms-state-of-the-union.html
+
 **Cambodia Celebrates the Return of Looted Artifacts From a Tainted Dealer**\
 `The dealer, who died in 2020, had been accused of selling illegally excavated treasures of the Khmer culture. His estate returned dozens of them this week.`\
 https://nytimes.com/2026/02/27/arts/design/cambodia-celebrates-the-return-of-looted-artifacts-from-tainted-dealer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/27/us/elections/how-to-vote-north-carolina-primary.h
 **Los Angeles Schools Chief Is Placed on Leave Following F.B.I. Raid**\
 `Alberto Carvalho, superintendent of the Los Angeles Unified School District, was placed on paid leave after F.B.I. agents raided his home and district office this week.`\
 https://nytimes.com/2026/02/27/us/lausd-superintendent-alberto-carvalho-fbi.html
-
-**How Israel Lost Americans**\
-`Netanyahu and his government deserve the growing bipartisan opprobrium they’re receiving.`\
-https://nytimes.com/2026/02/27/opinion/israel-american-public-opinion.html
 
