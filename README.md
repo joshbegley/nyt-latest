@@ -1,3 +1,11 @@
+**Who Could Take Over for Ayatollah Ali Khamenei?**\
+`President Trump has declared that Iran’s supreme leader was dead. If that is true, the next question is which of his possible successors might carry on his work.`\
+https://nytimes.com/2026/02/28/world/middleeast/ali-khamenei-iran-leader-succession.html
+
+**Trump’s Decision to Strike Iran Opens New Fissures in Midterms**\
+`Republicans largely supported the decision, while Democrats mostly opposed it — but divisions appeared in both parties.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-midterms.html
+
 **Trump Tells Iranians to ‘Take Over’ Their Government. But How?**\
 `President Trump’s ambiguous appeal comes after he undermined U.S.-funded media outlets that normally would have helped the administration reach people inside the country.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-attacks-touched
 **Going Down Fast**\
 `Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
 https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
-
-**The Immovable and Ruinous Obsessions of Ayatollah Khamenei**\
-`The supreme leader organized his existence around one big idea: resistance.`\
-https://nytimes.com/2026/02/28/opinion/iran-supreme-leader-dead-khamenei.html
-
-**Joe Randall, Chef Who Celebrated Black Cooking Traditions, Dies at 79**\
-`He helped bring the African American cooking of the Carolina Lowcountry to the world and became known as the “dean of Southern Cuisine.”`\
-https://nytimes.com/2026/02/28/dining/joe-randall-dead.html
 
