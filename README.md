@@ -1,3 +1,31 @@
+**Air travel to and from the Middle East has become increasingly precarious.**\
+`By Christine Chung`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/air-travel-to-and-from-the-middle-east-has-become-increasingly-precarious
+
+**How to watch Panthers vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078994/2026/03/01/panthers-vs-islanders-stream-how-to-watch-march-1/
+
+**Sam Kerr scores first Australia goal in over two years in winning start at Asian Cup**\
+`The 32-year-old striker scored the only goal against the Philippines in Perth in a narrow win for an injury-depleted Matildas team`\
+https://nytimes.com/athletic/7078629/2026/03/01/sam-kerr-scores-first-australia-goal-in-over-two-years-in-winning-start-at-asian-cup/
+
+**How to watch Trail Blazers vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Portland Trail Blazers play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078992/2026/03/01/trail-blazers-vs-hawks-stream-how-to-watch-march-1/
+
+**How to watch Blues vs. Wild: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078979/2026/03/01/blues-vs-wild-stream-how-to-watch-march-1/
+
+**How to watch Grizzlies vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078966/2026/03/01/grizzlies-vs-pacers-stream-how-to-watch-march-1/
+
+**How to watch Pistons vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078964/2026/03/01/pistons-vs-magic-stream-how-to-watch-march-1/
+
 **How to watch UCLA vs. USC women's basketball: Time, TV, streaming**\
 `Find out how to watch the UCLA Bruins play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078949/2026/03/01/ucla-vs-usc-stream-how-to-watch-march-1/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/01/opinion/letters/us-iran-war.html
 **Manchester United 2 Crystal Palace 1: Sesko's starting impact, Shaw concern but up to third**\
 `Michael Carrick's side had to come from behind at Old Trafford, but they thrived and prevailed once the visitors had been reduced to 10 men`\
 https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-briefing/
-
-**Charles Phan’s Beloved Bò Lúc Lắc (Shaking Beef)**\
-`This savory, tangy stir-fry tastes distinctly like the sunshine state.`\
-https://nytimes.com/2026/03/01/dining/charles-phans-beloved-bo-luc-lc-shaking-beef.html
-
-**The Briefing - Fulham 2 Tottenham 1: Where does this leave Spurs? Fan reaction? Why did Wilson goal stand?**\
-`There was more VAR controversy, but also protests and anger from fans after another London derby defeat for Spurs`\
-https://nytimes.com/athletic/7073028/2026/03/01/tottenham-fulham-premier-leaguetudor-wilson-dragusin/
-
-**Pentagon Announces First Three U.S. Deaths in War With Iran**\
-`U.S. Central Command did not say where the troops were killed but added that five others had been seriously wounded and that several had shrapnel injuries.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-war-us-troops-dead.html
-
-**‘We Are Orphans’: Shiite Muslims Protest the Killing of Khamenei**\
-`Shiite Muslims around the world protested the killing of Ayatollah Ali Khamenei, Iran’s supreme leader and a senior Shiite Muslim cleric. He died on Saturday during U.S. and Israeli attacks on his country.`\
-https://nytimes.com/video/world/middleeast/100000010745249/iran-khamenei-protests-shiite.html
-
-**Man Utd fans unveil pro-immigration banner aimed at Sir Jim Ratcliffe**\
-`The banner read: "MUFC proudly colonised by immigrants", and featured seven international players to have represented the club.`\
-https://nytimes.com/athletic/7078644/2026/03/01/manchester-united-fans-immigration-banner-jim-ratcliffe/
-
-**Iran’s Regime May Survive, but the Middle East Will Be Changed**\
-`A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
-https://nytimes.com/2026/03/01/world/europe/iran-regime-middle-east-khamenei.html
-
-**Israelis Are Tense but Relieved That Iran’s Supreme Leader Is Dead**\
-`Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
-https://nytimes.com/2026/03/01/world/middleeast/israel-iran-supreme-leader-dead.html
 
