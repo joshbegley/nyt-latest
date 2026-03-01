@@ -1,3 +1,11 @@
+**FIBA postpones World Cup qualifiers in Lebanon, Qatar after U.S. attack on Iran**\
+`The international basketball federation said the games will be rescheduled at the beginning of the next qualifying window in late June.`\
+https://nytimes.com/athletic/7078906/2026/03/01/fiba-basketball-world-cup-qualifiers-postponed-iran-war/
+
+**Glasner: 'Old Trafford bonus' could have helped Man Utd in penalty decision**\
+`Palace defender Maxence Lacroix was sent off after being adjudged to have fouled Matheus Cunha inside the box.`\
+https://nytimes.com/athletic/7079163/2026/03/01/crystal-palace-manchester-united-glasner-penalty/
+
 **U.S.-Israeli Attacks on Iran Disrupt Shipping in the Red Sea**\
 `Though the conflict is centered on the Persian Gulf, shipping companies fear that the Iran-backed Houthi militia in Yemen could resume attacks on vessels in the Red Sea hundreds of miles to the west.`\
 https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-ji
 **Where the Strikes Leave Iranians**\
 `Iran is reeling a day after the United States and Israel carried out a large attack that killed Iran’s supreme leader, Ayatollah Ali Khamenei.`\
 https://nytimes.com/video/world/middleeast/100000010744246/life-in-iran-after-american-israeli-strikes.html
-
-**Vikings eyeing Aaron Jones, Javon Hargrave as release candidates: Sources**\
-`Minnesota must clear around $45 million in cap space ahead of the new league year.`\
-https://nytimes.com/athletic/7079075/2026/03/01/vikings-aaron-jones-javon-hargrave-nfl-free-agency/
-
-**Spurs' Tudor accuses Jimenez of 'cheating' in opening goal vs. Fulham**\
-`Jimenez appeared to push Spurs defender Radu Dragusin in the build up to the opening goal at Craven Cottage.`\
-https://nytimes.com/athletic/7079054/2026/03/01/igor-tudor-raul-jimenez-tottenham-fulham/
 

@@ -1,3 +1,11 @@
+**U.S.-Israeli Attacks on Iran Disrupt Shipping in the Red Sea**\
+`Though the conflict is centered on the Persian Gulf, shipping companies fear that the Iran-backed Houthi militia in Yemen could resume attacks on vessels in the Red Sea hundreds of miles to the west.`\
+https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
+
+**Iran Fires Cheap Drones Into Arab Countries, Wreaking Havoc**\
+`It already proved its effectiveness on the battlefields of Ukraine. Now the Iranian-made Shahed-136 kamikaze has been unleashed across the Arab Gulf.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-fires-drones.html
+
 **Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
 `McClain lost the opportunity for her first national championship and an automatic qualification spot for the 2026 World Championships.`\
 https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
