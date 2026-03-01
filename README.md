@@ -1,3 +1,7 @@
+**The Attack on Iran: A Range of Voices**\
+`Readers offer varied perspectives, including praise and criticism, on the strikes again Iran.`\
+https://nytimes.com/2026/03/01/opinion/letters/us-iran-war.html
+
 **Manchester United 2 Crystal Palace 1: Sesko's starting impact, Shaw concern but up to third**\
 `Michael Carrick's side had to come from behind at Old Trafford, but they thrived and prevailed once the visitors had been reduced to 10 men`\
 https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-briefing/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-b
 https://nytimes.com/2026/03/01/dining/charles-phans-beloved-bo-luc-lc-shaking-beef.html
 
 **The Briefing - Fulham 2 Tottenham 1: Where does this leave Spurs? Fan reaction? Why did Wilson goal stand?**\
-`There was more VAR controversy, but also protests and anger from fans after another London derby defeat for Spurs.`\
+`There was more VAR controversy, but also protests and anger from fans after another London derby defeat for Spurs`\
 https://nytimes.com/athletic/7073028/2026/03/01/tottenham-fulham-premier-leaguetudor-wilson-dragusin/
 
 **Pentagon Announces First Three U.S. Deaths in War With Iran**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/israel-iran-supreme-leader-dead.
 **‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
 `Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
-
-**Music, at Least, Doesn’t Lie**\
-`In an age in which facts are losing their meaning, the performing arts can ground us in what is true.`\
-https://nytimes.com/2026/03/01/opinion/music-truth-ai-social-media.html
 
