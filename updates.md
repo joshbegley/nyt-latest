@@ -1,3 +1,7 @@
+**Iranians Take to the Streets to Celebrate Khamenei’s Death**\
+`Some Iranians said on social media that they were privately mourning the supreme leader. But displays of exuberance broke out in cities across the country.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-khameni-celebrations.html
+
 **Flyers' long-term solution in net just might be Dan Vladar after all**\
 `Vladar came to Philadelphia for an opportunity to show he could be a No. 1 goaltender. To this point, he's played like one.`\
 https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
