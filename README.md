@@ -1,3 +1,7 @@
+**In Latest Turn From Talks to War, U.S. Casts Doubt on Diplomacy**\
+`President Trump again deployed heavy force against a country with which he had been negotiating, continuing a pattern seen in previous attacks on Iran and Venezuela.`\
+https://nytimes.com/2026/03/01/us/politics/iran-nuclear-talks-war-trump-diplomacy.html
+
 **What Now in Iran?**\
 `Ayatollah Ali Khamenei is dead. Whoever takes his place will shape the Middle East’s future.`\
 https://nytimes.com/2026/03/01/world/ali-khamenei-iran-us-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/khamenei-compound-strikes-tehran
 **Democrats Question Trump’s Urgency to Attack Iran**\
 `Lawmakers questioned whether the United States faced an “imminent” threat from Iran, a requirement for the president to lawfully initiate military action without congressional approval.`\
 https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgency-to-attack-iran.html
-
-**Epstein’s New Mexico Ranch Gets Scrutiny at Last. It May Be Too Late.**\
-`Heinous allegations have prompted state officials to restart an inquiry, which went cold in 2019, into the convicted sex offender’s lesser-known property.`\
-https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html
 
