@@ -1,3 +1,7 @@
+**Steve Kerr: 'Stupid mistake' discussing Kristaps Porziņģis' POTS diagnosis**\
+`The Golden State Warriors big man missed a fourth straight game Saturday, a day after Kerr expressed optimism about his return.`\
+https://nytimes.com/athletic/7078206/2026/02/28/warriors-injury-update-porzingis-illness-kerr-curry/
+
 **Iranians Take to the Streets to Celebrate Khamenei’s Death**\
 `Some Iranians said on social media that they were privately mourning the supreme leader. But displays of exuberance broke out in cities across the country.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-khameni-celebrations.html
