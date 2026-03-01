@@ -1,3 +1,11 @@
+**St. Louis Cardinals sign manager Oli Marmol to 2-year extension**\
+`The Cardinals have gone 325-323 over four seasons with Marmol as the team's manager.`\
+https://nytimes.com/athletic/7079114/2026/03/01/oli-marmol-cardinals-contract-extension/
+
+**Trump Says He’s Open to Talks With Iran’s New Leadership**\
+`In an interview with The Atlantic, President Trump said the country’s new leaders after the death of Ayatollah Ali Khamenei “want to talk” but did not say whom he was referring to.`\
+https://nytimes.com/2026/03/01/world/middleeast/trump-iran-leadership-khamenei.html
+
 **FIBA postpones World Cup qualifiers in Lebanon, Qatar after U.S. attack on Iran**\
 `The international basketball federation said the games will be rescheduled at the beginning of the next qualifying window in late June.`\
 https://nytimes.com/athletic/7078906/2026/03/01/fiba-basketball-world-cup-qualifiers-postponed-iran-war/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-
 **Do the Edmonton Oilers have enough to offer at the trade deadline?**\
 `With no cap room and a roster that has several needs, Oilers general manager Stan Bowman is in a tough spot.`\
 https://nytimes.com/athletic/7077599/2026/03/01/edmonton-oilers-trade-deadline-nhl/
-
-**Kings fire head coach Jim Hiller, name D.J. Smith interim boss**\
-`D.J. Smith will take over behind the bench with the Kings sitting outside the playoffs.`\
-https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-jim-hiller/
-
-**Where the Strikes Leave Iranians**\
-`Iran is reeling a day after the United States and Israel carried out a large attack that killed Iran’s supreme leader, Ayatollah Ali Khamenei.`\
-https://nytimes.com/video/world/middleeast/100000010744246/life-in-iran-after-american-israeli-strikes.html
 
