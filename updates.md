@@ -1,3 +1,11 @@
+**Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
+`Jess McClain is led off-course in bizarre finish at U.S. Half Marathon Championships`\
+https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
+
+**Do the Edmonton Oilers have enough to offer at the trade deadline?**\
+`With no cap room and a roster that has several needs, Oilers general manager Stan Bowman is in a tough spot.`\
+https://nytimes.com/athletic/7077599/2026/03/01/edmonton-oilers-trade-deadline-nhl/
+
 **Kings fire head coach Jim Hiller and name D.J. Smith interim boss**\
 `D.J. Smith will take over behind the bench with the Kings sitting outside the playoffs.`\
 https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-jim-hiller/

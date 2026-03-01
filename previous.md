@@ -1,3 +1,11 @@
+**Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
+`Jess McClain is led off-course in bizarre finish at U.S. Half Marathon Championships`\
+https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
+
+**Do the Edmonton Oilers have enough to offer at the trade deadline?**\
+`With no cap room and a roster that has several needs, Oilers general manager Stan Bowman is in a tough spot.`\
+https://nytimes.com/athletic/7077599/2026/03/01/edmonton-oilers-trade-deadline-nhl/
+
 **Kings fire head coach Jim Hiller and name D.J. Smith interim boss**\
 `D.J. Smith will take over behind the bench with the Kings sitting outside the playoffs.`\
 https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-jim-hiller/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079017/2026/03/01/danny-welbeck-fabian-hurzeler-fo
 **9 Killed in City near Jerusalem After Iranian Missile Strike**\
 `The toll in Beit Shemesh was the highest in Israel since the start of the conflict with Iran on Saturday.`\
 https://nytimes.com/2026/03/01/world/middleeast/9-killed-beit-shemesh-iranian-missiles.html
-
-**Dortmund captain Can set for lengthy spell out with cruciate ligament injury**\
-`The 32-year-old was forced off in the 45th minute of Dortmund's Bundesliga defeat to Bayern Munich on Saturday.`\
-https://nytimes.com/athletic/7078943/2026/03/01/emre-can-cruciate-ligament-injury-dortmund/
-
-**Protesters Try to Storm U.S. Consulate as Thousands in Pakistan Protest Iran Strikes**\
-`At least 22 people were killed in protests across Pakistan as Iran’s neighbors brace for turmoil and the fallout of a possible regional conflict.`\
-https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.html
 
