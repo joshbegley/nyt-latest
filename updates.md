@@ -1,3 +1,7 @@
+**Shipping Traffic Through Strait of Hormuz Plummets After Attacks on Iran**\
+`One of the world’s most vital maritime arteries saw a 70 percent drop in vessel traffic.`\
+https://nytimes.com/2026/02/28/world/middleeast/strait-of-hormuz-ship-traffic.html
+
 **Iranian Americans in L.A. Find Hope in U.S.-Israeli Strikes on Iran**\
 `Californians of Iranian descent said they welcomed the possible end of an oppressive government in Tehran that their families had fled.`\
 https://nytimes.com/2026/02/28/us/iranian-americans-los-angeles.html

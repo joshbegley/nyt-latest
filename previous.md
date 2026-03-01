@@ -1,3 +1,7 @@
+**Shipping Traffic Through Strait of Hormuz Plummets After Attacks on Iran**\
+`One of the world’s most vital maritime arteries saw a 70 percent drop in vessel traffic.`\
+https://nytimes.com/2026/02/28/world/middleeast/strait-of-hormuz-ship-traffic.html
+
 **Iranian Americans in L.A. Find Hope in U.S.-Israeli Strikes on Iran**\
 `Californians of Iranian descent said they welcomed the possible end of an oppressive government in Tehran that their families had fled.`\
 https://nytimes.com/2026/02/28/us/iranian-americans-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/opinion/khamenei-supreme-leader-iran-dead.html
 **False and outdated videos circulated online after the Iran strikes.**\
 `By Stuart A. Thompson`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
-
-**After shootout loss, Penguins' Evgeni Malkin says no progress made in contract talks**\
-`Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
-https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
 
