@@ -1,3 +1,15 @@
+**In New York, Fury, Anxiety and Joy Over the Attacks on Iran**\
+`As Mayor Zohran Mamdani assailed what he called a “catastrophic escalation” in Iran, some Iranian Americans worried about what comes next, while others celebrated.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-attacks-reaction-new-york.html
+
+**Screen Actors Guild’s Actor Awards Winners List: Updating Live**\
+`“One Battle After Another” and “Sinners” are facing off in the last major awards before the Oscars.`\
+https://nytimes.com/2026/03/01/movies/sag-actor-awards-complete-winners-list.html
+
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Celebrities are walking the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
+
 **Iranian Strikes on Gulf States Reach the Hundreds**\
 `Iran has fired nearly 400 missiles and over 800 drones across the Persian Gulf in the past two days, according to government reports.`\
 https://nytimes.com/2026/03/01/world/middleeast/gulf-states-strikes.html
