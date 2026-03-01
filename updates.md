@@ -1,3 +1,7 @@
+**Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Is Dead at 86**\
+`As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
+https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
+
 **Iran Launches Retaliatory Strikes Against Israel and U.S. Bases**\
 `After a series of attacks by the United States and Israel on Saturday, Iran retaliated, striking several countries in the Middle East that host U.S. bases.`\
 https://nytimes.com/video/world/middleeast/100000010744217/iran-launches-retaliatory-strikes-against-israel-and-us-bases.html
