@@ -1,3 +1,15 @@
+**Strike on Girls’ School Kills 115, Iranian State Media Says**\
+`Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/girls-school-strike-iran-video
+
+**Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
+`Johnson already has familiarity with some of the Eagles' staff.`\
+https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-johnson-texans/
+
+**Penguins bounce back with conviction: 'Kind of a statement win for us'**\
+`The Penguins shut out the Pacific-leading Vegas Golden Knights 5-0 after a rough outing in New York the day before.`\
+https://nytimes.com/athletic/7079541/2026/03/01/penguins-shutout-silovs-rust-karlsson-vegas/
+
 **How the Assault on Iran Unfolded**\
 `Despite warnings after an earlier wave of killings, top Iranian officials gathered in person, and Israel seized the chance to kill Iran’s supreme leader.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-israel-strikes.html
