@@ -1,3 +1,7 @@
+**Israel launches new military strikes as Iran retaliates after Khamenei’s killing.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/israel-launches-new-military-strikes-as-iran-retaliates-after-khameneis-killing
+
 **Would You Like to Wear Your Bed, Not Just Sleep in It?**\
 `Blanket statements were the biggest trend in Milan. Jil Sander led the way; Bottega Veneta got hairy.`\
 https://nytimes.com/2026/03/01/style/milan-fashion-week-trends.html
