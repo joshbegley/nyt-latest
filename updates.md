@@ -1,3 +1,11 @@
+**Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
+`The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
+
+**Stakes Quickly Rise for U.S. in War, With 3 Service Members Killed**\
+`The grim toll signaled that Iran was more prepared for war than the Trump administration anticipated, U.S. military officials said.`\
+https://nytimes.com/2026/03/01/us/politics/iran-war-troops-deaths-casualties.html
+
 **Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
 `"How they looked at it — is ridiculous. That was malicious. It was a cheap shot," Nuggets coach David Adelman said.`\
 https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
