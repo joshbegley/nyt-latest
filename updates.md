@@ -1,3 +1,7 @@
+**Eight moments that made Burnley vs Brentford this season's most chaotic game**\
+`Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down.`\
+https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
+
 **After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
 `The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
 https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
