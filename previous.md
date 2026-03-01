@@ -1,3 +1,7 @@
+**Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
+`Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
+https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
+
 **AFC Champions League ties postponed after U.S.-Israeli attack on Iran**\
 `The AFC also confirmed fixtures in the Champions League Two, including the tie involving Cristiano Ronaldo's Al Nassr, were off`\
 https://nytimes.com/athletic/7078582/2026/03/01/afc-champions-league-us-israel-iran/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077315/2026/03/01/luke-kornet-blog-spurs-victor-we
 **Wordle Review No. 1,717**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 2, 2026.`\
 https://nytimes.com/2026/03/01/crosswords/wordle-review-1717.html
-
-**The End of the Illusion for Cuba’s Regime**\
-`Without a political transformation, Cuba’s economic recovery will remain an illusion.`\
-https://nytimes.com/2026/03/01/opinion/cuba-trump-economy-oil-venezuela.html
 

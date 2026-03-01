@@ -1,3 +1,7 @@
+**Three Are Killed in Shooting at Bar in Austin**\
+`The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
+https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
+
 **Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
 `Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
 https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078232/2026/03/01/maple-leafs-trade-deadline-retoo
 **From Bus 1 Boy to Blog Boy: One of the most talented Spurs writers is Wemby’s backup**\
 `It turns out that one of the best writers covering the Spurs is their backup center. Here's how it came together.`\
 https://nytimes.com/athletic/7077315/2026/03/01/luke-kornet-blog-spurs-victor-wembanyama/
-
-**Wordle Review No. 1,717**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 2, 2026.`\
-https://nytimes.com/2026/03/01/crosswords/wordle-review-1717.html
 

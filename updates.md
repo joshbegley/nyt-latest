@@ -1,3 +1,7 @@
+**Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
+`Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
+https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
+
 **AFC Champions League ties postponed after U.S.-Israeli attack on Iran**\
 `The AFC also confirmed fixtures in the Champions League Two, including the tie involving Cristiano Ronaldo's Al Nassr, were off`\
 https://nytimes.com/athletic/7078582/2026/03/01/afc-champions-league-us-israel-iran/
