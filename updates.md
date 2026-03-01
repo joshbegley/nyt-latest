@@ -1,3 +1,7 @@
+**Iranian Strikes on Gulf States Reach the Hundreds**\
+`Iran has fired nearly 400 missiles and over 800 drones across the Persian Gulf in the past two days, according to government reports.`\
+https://nytimes.com/2026/03/01/world/middleeast/gulf-states-strikes.html
+
 **Trump Says He Is the ‘Least Racist’ President. But His Term Echoes a Grim Past.**\
 `Woodrow Wilson’s presidency has taken on new resonance among historians and critics of President Trump, particularly when it comes to race.`\
 https://nytimes.com/2026/03/01/us/politics/trump-racism-woodrow-wilson.html
