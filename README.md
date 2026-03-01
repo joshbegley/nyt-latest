@@ -1,3 +1,11 @@
+**Spurs' Tudor accuses Jimenez of 'cheating' in opening goal vs. Fulham**\
+`Jimenez appeared to push Spurs defender Radu Dragusin in the build up to the opening goal at Craven Cottage.`\
+https://nytimes.com/athletic/7079054/2026/03/01/igor-tudor-raul-jimenez-tottenham-fulham/
+
+**Iran’s regional alliance has been severely weakened in recent years.**\
+`Weakened after two years of wars`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/irans-regional-alliance-has-been-severely-weakened-in-recent-years
+
 **An Iranian’s Account of the Day Khamenei Was Killed**\
 `Speaking from Iran, a 25-year-old woman recounted the mix of joy and hope that took hold after news broke that the country’s supreme leader had been killed in a series of U.S. and Israeli airstrikes.`\
 https://nytimes.com/video/world/asia/100000010745135/iran-khamenei-killing-us-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7078994/2026/03/01/panthers-vs-islanders-stream-how
 **Sam Kerr scores first Australia goal in over two years in winning start at Asian Cup**\
 `The 32-year-old striker scored the only goal against the Philippines in Perth in a narrow win for an injury-depleted Matildas team`\
 https://nytimes.com/athletic/7078629/2026/03/01/sam-kerr-scores-first-australia-goal-in-over-two-years-in-winning-start-at-asian-cup/
-
-**How to watch Trail Blazers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078992/2026/03/01/trail-blazers-vs-hawks-stream-how-to-watch-march-1/
-
-**How to watch Blues vs. Wild: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078979/2026/03/01/blues-vs-wild-stream-how-to-watch-march-1/
 
