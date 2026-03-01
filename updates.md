@@ -1,3 +1,7 @@
+**Flyers' long-term solution in net just might be Dan Vladar after all**\
+`The 28-year-old goalie has been stellar in net but his value to the Flyers goes beyond just his strong numbers.`\
+https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
+
 **Shipping Traffic Through Strait of Hormuz Plummets After Attacks on Iran**\
 `One of the world’s most vital maritime arteries saw a 70 percent drop in vessel traffic.`\
 https://nytimes.com/2026/02/28/world/middleeast/strait-of-hormuz-ship-traffic.html

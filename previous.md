@@ -1,3 +1,7 @@
+**Flyers' long-term solution in net just might be Dan Vladar after all**\
+`The 28-year-old goalie has been stellar in net but his value to the Flyers goes beyond just his strong numbers.`\
+https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
+
 **Shipping Traffic Through Strait of Hormuz Plummets After Attacks on Iran**\
 `One of the world’s most vital maritime arteries saw a 70 percent drop in vessel traffic.`\
 https://nytimes.com/2026/02/28/world/middleeast/strait-of-hormuz-ship-traffic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.htm
 **‘Mess Around and Find Out’: 4 Opinion Writers on the Khamenei Strike**\
 `How should Americans feel about the potential for regime change? What happens now?`\
 https://nytimes.com/2026/02/28/opinion/khamenei-supreme-leader-iran-dead.html
-
-**False and outdated videos circulated online after the Iran strikes.**\
-`By Stuart A. Thompson`\
-https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-videos-circulated-online-after-the-iran-strikes
 
