@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ the President Wishes All Who Celebrate a ‘Happy World War III’**\
+`With Connor Storrie of “Heated Rivalry” hosting, this weekend’s “Saturday Night Live” featured cameos by U.S. Olympic hockey stars.`\
+https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry-trump-world-war-iii.html
+
 **Why the Senators could — and should — buy ahead of the NHL trade deadline**\
 `The Sens are only five points out of a playoff spot after beating Toronto Saturday, putting them in position to be buyers this week.`\
 https://nytimes.com/athletic/7077926/2026/03/01/senators-staios-trade-deadline-buying/

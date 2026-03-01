@@ -1,3 +1,7 @@
+**On ‘S.N.L.,’ the President Wishes All Who Celebrate a ‘Happy World War III’**\
+`With Connor Storrie of “Heated Rivalry” hosting, this weekend’s “Saturday Night Live” featured cameos by U.S. Olympic hockey stars.`\
+https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry-trump-world-war-iii.html
+
 **Why the Senators could — and should — buy ahead of the NHL trade deadline**\
 `The Sens are only five points out of a playoff spot after beating Toronto Saturday, putting them in position to be buyers this week.`\
 https://nytimes.com/athletic/7077926/2026/03/01/senators-staios-trade-deadline-buying/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078682/2026/03/01/robert-lewandowski-barcelona-inj
 **How to watch Minnesota vs. Illinois women's basketball: Time, TV, streaming**\
 `Find out how to watch the Minnesota Golden Gophers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078723/2026/03/01/minnesota-vs-illinois-stream-how-to-watch-march-1/
-
-**How to watch LSU vs. Mississippi State women's basketball: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078720/2026/03/01/lsu-vs-mississippi-state-stream-how-to-watch-march-1/
 
