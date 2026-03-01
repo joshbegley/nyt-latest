@@ -1,10 +1,18 @@
+**Trump Says He Is the ‘Least Racist’ President. But His Term Echoes a Grim Past.**\
+`Woodrow Wilson’s presidency has taken on new resonance among historians and critics of President Trump, particularly when it comes to race.`\
+https://nytimes.com/2026/03/01/us/politics/trump-racism-woodrow-wilson.html
+
+**Where the Stars Are**\
+`Leslie Benson calls it the way she sees it.`\
+https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
+
 **2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
 `Celebrities have begun to walk the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
 https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
 
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
 `Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
-https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/girls-school-strike-iran-video
+https://nytimes.com/2025/03/01/world/middleeast/girls-school-strike-iran-video.html
 
 **Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
 `Johnson already has familiarity with some of the Eagles' staff.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/01/world/ali-khamenei-iran-us-israel.html
 **How the Assault on Iran Unfolded**\
 `Despite warnings after an earlier wave of killings, top Iranian officials gathered in person, and Israel seized the chance to kill Iran’s supreme leader.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-israel-strikes.html
-
-**Stock Market Investors Brace for Iran War Repercussions**\
-`Wall Street has largely shrugged off geopolitical upheaval in recent years. But the United States’ war against Iran comes at a more precarious time for the stock market.`\
-https://nytimes.com/2026/03/01/business/stock-market-iran-war-fallout.html
-
-**How Energy Prices Could Soar if Iran War Grinds On**\
-`Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
-https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
 
