@@ -1,3 +1,15 @@
+**Manchester United 2 Crystal Palace 1: Sesko's starting impact, Shaw concern but up to third**\
+`Michael Carrick's side had to come from behind at Old Trafford, but they thrived and prevailed once the visitors had been reduced to 10 men`\
+https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-briefing/
+
+**Charles Phan’s Beloved Bò Lúc Lắc (Shaking Beef)**\
+`This savory, tangy stir-fry tastes distinctly like the sunshine state.`\
+https://nytimes.com/2026/03/01/dining/charles-phans-beloved-bo-luc-lc-shaking-beef.html
+
+**The Briefing - Fulham 2 Tottenham 1: Where does this leave Spurs? Fan reaction? Why did Wilson goal stand?**\
+`There was more VAR controversy, but also protests and anger from fans after another London derby defeat for Spurs.`\
+https://nytimes.com/athletic/7073028/2026/03/01/tottenham-tudor-wilson-dragusin/
+
 **Pentagon Announces First Three U.S. Deaths in War With Iran**\
 `U.S. Central Command did not say where the troops were killed but added that five others had been seriously wounded and that several had shrapnel injuries.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-war-us-troops-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassin
 **Music, at Least, Doesn’t Lie**\
 `In an age in which facts are losing their meaning, the performing arts can ground us in what is true.`\
 https://nytimes.com/2026/03/01/opinion/music-truth-ai-social-media.html
-
-**Dodgers players I'm watching as spring games ramp up**\
-`It may take the reigning World Series champions most of the spring to sort out their starting rotation.`\
-https://nytimes.com/athletic/7077687/2026/03/01/dodgers-blake-snell-starting-rotation-bullpen/
-
-**On ‘S.N.L.,’ the President Wishes All Who Celebrate a ‘Happy World War III’**\
-`With Connor Storrie of “Heated Rivalry” hosting, this weekend’s “Saturday Night Live” featured cameos by U.S. Olympic hockey stars.`\
-https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry-trump-world-war-iii.html
-
-**Why the Senators could — and should — buy ahead of the NHL trade deadline**\
-`The Sens are only five points out of a playoff spot after beating Toronto Saturday, putting them in position to be buyers this week.`\
-https://nytimes.com/athletic/7077926/2026/03/01/senators-staios-trade-deadline-buying/
 
