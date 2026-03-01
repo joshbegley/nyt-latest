@@ -1,3 +1,7 @@
+**Democrats Question Trump’s Urgency to Attack Iran**\
+`Lawmakers questioned whether the United States faced an “imminent” threat from Iran, a requirement for the president to lawfully initiate military action without congressional approval.`\
+https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgency-to-attack-iran.html
+
 **Texas jumps to No. 4 as last year's Final Four lead NCAA top-16 rankings**\
 `The race between Texas and Vanderbilt for the last No. 1 seed gets interesting, Minnesota rises and the importance of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
