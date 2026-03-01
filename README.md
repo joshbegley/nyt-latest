@@ -15,7 +15,7 @@ https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgenc
 https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html
 
 **Big Change Seems Certain in Iran. What Kind Is the Question.**\
-`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence in the country.`\
+`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
 
 **N.Y.P.D. Steps Up Security After U.S.-Israel Attacks in Iran**\
