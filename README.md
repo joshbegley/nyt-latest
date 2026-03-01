@@ -1,3 +1,7 @@
+**Blue Jackets blow early lead on 3 bad-luck goals, endure tough loss to Islanders**\
+`After a 4-3 loss in overtime, the Blue Jackets now sit five points behind the Bruins for the second wild-card spot.`\
+https://nytimes.com/athletic/7078190/2026/02/28/blue-jackets-islanders-loss-goals/
+
 **Iran Launches Retaliatory Strikes Against Israel and U.S. Bases**\
 `After a series of attacks by the United States and Israel on Saturday, Iran retaliated, striking several countries in the Middle East that host U.S. bases.`\
 https://nytimes.com/video/world/middleeast/100000010744217/iran-launches-retaliatory-strikes-against-israel-and-us-bases.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
 **Michigan's L.J. Cason out for season with torn ACL**\
 `The Wolverines sophomore was averaging 12.1 points per game over the seven games before his injury Friday night against Illinois.`\
 https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-acl/
-
-**Death of Girl From Los Angeles School Investigated as a Homicide, Police Say**\
-`The Los Angeles police did not offer details on the death of a student at Reseda High School, but a family said that a 12-year-old girl attending the school died after being struck with a water bottle.`\
-https://nytimes.com/2026/02/28/us/young-girl-water-bottle-la-homicide.html
 
