@@ -1,3 +1,7 @@
+**How to watch UCLA vs. USC women's basketball: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the USC Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078949/2026/03/01/ucla-vs-usc-stream-how-to-watch-march-1/
+
 **The Attack on Iran: A Range of Voices**\
 `Readers offer varied perspectives, including praise and criticism, on the strikes again Iran.`\
 https://nytimes.com/2026/03/01/opinion/letters/us-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/europe/iran-regime-middle-east-khamenei.htm
 **Israelis Are Tense but Relieved That Iran’s Supreme Leader Is Dead**\
 `Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
 https://nytimes.com/2026/03/01/world/middleeast/israel-iran-supreme-leader-dead.html
-
-**‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
-`Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
 
