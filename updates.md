@@ -1,3 +1,7 @@
+**Trump’s War of Choice With Iran**\
+`Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
+https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
+
 **Why so many footballers cover their mouths when speaking**\
 `With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
 https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
