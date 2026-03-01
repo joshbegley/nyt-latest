@@ -1,3 +1,11 @@
+**The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
+`The United States and Israel killed many senior Iranian leaders in the .`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/the-us-israeli-attacks-have-killed-a-number-of-iranian-leaders
+
+**The Pulse: Cardinals in the wilderness**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7078378/2026/03/01/cardinals-in-the-wilderness-plus-irans-world-cup-limbo/
+
 **What I learned about the 2026 college football season at the NFL combine**\
 `With the college football season concluding only five weeks before the combine, many draft prospects had their alma maters on their minds.`\
 https://nytimes.com/athletic/7078132/2026/03/01/nfl-combine-college-football-notes/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/7078083/2026/03/01/michael-busch-cubs-spring-traini
 `With the trade deadline approaching, the Wild GM has to decide whether he needs to take another big swing to put his team over the top.`\
 https://nytimes.com/athletic/7077667/2026/03/01/wild-trade-deadline-bill-guerin-nhl/
 
+**Lakers blow out Warriors after pregame assist from LeBron's daughter**\
+`James said his daughter joined him this weekend on the road for the first time in his 23-year career`\
+https://nytimes.com/athletic/7078441/2026/03/01/lakers-warriors-lebron-james-zhuri-warriors-win/
+
 **Top Iranian security official says interim government will be formed Sunday.**\
 `By Leily Nikounazar`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
 **Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
 `Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
 https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
-
-**AFC Champions League ties postponed after U.S.-Israeli attack on Iran**\
-`The AFC also confirmed fixtures in the Champions League Two, including the tie involving Cristiano Ronaldo's Al Nassr, were off`\
-https://nytimes.com/athletic/7078582/2026/03/01/afc-champions-league-us-israel-iran/
-
-**Nick Suzuki's travel plans out of Milan could be helping him excel for Canadiens**\
-`Suzuki was a big factor in an important Canadiens win, and how quickly he got back to Montreal from the Olympics helps explain why.`\
-https://nytimes.com/athletic/7078485/2026/03/01/nick-suzuki-milan-travel-excel-canadiens/
-
-**Sabres' dominant win over Lightning shows they can hang with East's elite: 5 thoughts**\
-`Buffalo moved to within 4 points of Atlantic-leading Tampa Bay; the teams meet twice more this season.`\
-https://nytimes.com/athletic/7078318/2026/03/01/sabres-beat-lightning-dominant-elite-east/
 
