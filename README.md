@@ -1,3 +1,7 @@
+**Strike on Girls’ School Kills 115, Iranian State Media Says**\
+`Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/girls-school-strike-iran-video
+
 **Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
 `Johnson already has familiarity with some of the Eagles' staff.`\
 https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-johnson-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.h
 **Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
 `The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
-
-**Stakes Quickly Rise for U.S. in War, With 3 Service Members Killed**\
-`The grim toll signaled that Iran was more prepared for war than the Trump administration anticipated, U.S. military officials said.`\
-https://nytimes.com/2026/03/01/us/politics/iran-war-troops-deaths-casualties.html
 
