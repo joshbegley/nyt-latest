@@ -1,3 +1,11 @@
+**Spurs' Tudor accuses Jimenez of 'cheating' in opening goal vs. Fulham**\
+`Jimenez appeared to push Spurs defender Radu Dragusin in the build up to the opening goal at Craven Cottage.`\
+https://nytimes.com/athletic/7079054/2026/03/01/igor-tudor-raul-jimenez-tottenham-fulham/
+
+**Iran’s regional alliance has been severely weakened in recent years.**\
+`Weakened after two years of wars`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/irans-regional-alliance-has-been-severely-weakened-in-recent-years
+
 **An Iranian’s Account of the Day Khamenei Was Killed**\
 `Speaking from Iran, a 25-year-old woman recounted the mix of joy and hope that took hold after news broke that the country’s supreme leader had been killed in a series of U.S. and Israeli airstrikes.`\
 https://nytimes.com/video/world/asia/100000010745135/iran-khamenei-killing-us-israel.html
