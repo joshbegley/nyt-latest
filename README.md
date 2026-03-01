@@ -1,40 +1,40 @@
-**How to watch South Carolina vs. Kentucky women's basketball: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078696/2026/03/01/south-carolina-vs-kentucky-stream-how-to-watch-march-1/
+**SailGP: Team U.S. victorious at Sydney Grand Prix to exorcise memories from 2025**\
+`Taylor Canfield’s crew did not even make it to the start line a year ago, but exploited conditions expertly this time round to pip Team GB`\
+https://nytimes.com/athletic/7078656/2026/03/01/sailgp-united-states-sydney-canfield/
 
-**How to watch Iowa vs. Wisconsin women's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078694/2026/03/01/iowa-vs-wisconsin-stream-how-to-watch-march-1/
+**Barcelona's Lewandowski sidelined with eye socket fracture**\
+`Barca said the injury will keep Lewandowski out of the Copa del Rey semi-final first leg against Atletico Madrid.`\
+https://nytimes.com/athletic/7078682/2026/03/01/robert-lewandowski-barcelona-injury-eye-fracture/
 
-**How to watch Florida vs. Georgia women's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078691/2026/03/01/florida-vs-georgia-stream-how-to-watch-march-1/
+**How to watch Minnesota vs. Illinois women's basketball: Time, TV, streaming**\
+`Find out how to watch the Minnesota Golden Gophers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078723/2026/03/01/minnesota-vs-illinois-stream-how-to-watch-march-1/
 
-**How to watch Michigan State vs. Indiana men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078689/2026/03/01/michigan-state-vs-indiana-stream-how-to-watch-march-1/
+**How to watch LSU vs. Mississippi State women's basketball: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078720/2026/03/01/lsu-vs-mississippi-state-stream-how-to-watch-march-1/
 
-**Killing Iran’s Leader**\
-`We look at the events leading to the death of Ayatollah Ali Khamenei and what comes next.`\
-https://nytimes.com/2026/03/01/briefing/killing-irans-leader.html
+**How to watch Oklahoma vs. Missouri women's basketball: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078717/2026/03/01/oklahoma-vs-missouri-stream-how-to-watch-march-1/
 
-**OPEC Plus to Boost Oil Production as Iran Strikes Threaten Price Spike**\
-`The cartel pledged to increase output by 206,000 barrels a day from next month, and said that members would “closely monitor and assess market conditions.”`\
-https://nytimes.com/2026/03/01/world/middleeast/opec-plus-oil-production-prices.html
+**How to watch Baylor vs. TCU women's basketball: Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078715/2026/03/01/baylor-vs-tcu-stream-how-to-watch-march-1/
 
-**TGL's regular season ends this week. Who will stay alive to win the SoFi Cup?**\
-`Jupiter Links must win both matches this week to get into the playoffs.`\
-https://nytimes.com/athletic/7078647/2026/03/01/tgl-betting-preview-boston-jupiter-new-york-los-angeles/
+**How to watch Arizona State vs. Texas Tech women's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078712/2026/03/01/arizona-state-vs-texas-tech-stream-how-to-watch-march-1/
 
-**The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
-`The United States and Israel killed many senior Iranian leaders in the .`\
-https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/the-us-israeli-attacks-have-killed-a-number-of-iranian-leaders
+**How to watch Purdue vs. Ohio State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078710/2026/03/01/purdue-vs-ohio-state-stream-how-to-watch-march-1/
 
-**The Pulse: Cardinals in the wilderness**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7078378/2026/03/01/cardinals-in-the-wilderness-plus-irans-world-cup-limbo/
+**How to watch Vanderbilt vs. Tennessee women's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078706/2026/03/01/vanderbilt-vs-tennessee-stream-how-to-watch-march-1/
 
-**What I learned about the 2026 college football season at the NFL combine**\
-`With the college football season concluding only five weeks before the combine, many draft prospects had their alma maters on their minds.`\
-https://nytimes.com/athletic/7078132/2026/03/01/nfl-combine-college-football-notes/
+**How to watch Cincinnati vs. West Virginia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bearcats play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078704/2026/03/01/cincinnati-vs-west-virginia-stream-how-to-watch-march-1/
 

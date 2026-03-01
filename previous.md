@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078696/2026/03/01/south-carolina-vs-kentucky-stream-how-to-watch-march-1/
+
+**How to watch Iowa vs. Wisconsin women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078694/2026/03/01/iowa-vs-wisconsin-stream-how-to-watch-march-1/
+
+**How to watch Florida vs. Georgia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078691/2026/03/01/florida-vs-georgia-stream-how-to-watch-march-1/
+
+**How to watch Michigan State vs. Indiana men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078689/2026/03/01/michigan-state-vs-indiana-stream-how-to-watch-march-1/
+
 **Killing Iran’s Leader**\
 `We look at the events leading to the death of Ayatollah Ali Khamenei and what comes next.`\
 https://nytimes.com/2026/03/01/briefing/killing-irans-leader.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7078378/2026/03/01/cardinals-in-the-wilderness-plus
 **What I learned about the 2026 college football season at the NFL combine**\
 `With the college football season concluding only five weeks before the combine, many draft prospects had their alma maters on their minds.`\
 https://nytimes.com/athletic/7078132/2026/03/01/nfl-combine-college-football-notes/
-
-**Maple Leafs after 60: How far can Toronto fall after a trade deadline sell-off?**\
-`With 22 games left, the odds are completely stacked against the Leafs falling to the bottom five of the league — even with a sell-off. `\
-https://nytimes.com/athletic/7076246/2026/03/01/maple-leafs-nhl-trade-deadline-sell/
-
-**Michael Busch, Cubs hope he can build on his career-best 2025 season**\
-`Plus notes on Imanaga's early-spring velocity, former Dodgers outfielder Michael Conforto and more.`\
-https://nytimes.com/athletic/7078083/2026/03/01/michael-busch-cubs-spring-training-mlb/
-
-**Wild insider: Bill Guerin's on a heater but faces tough decisions at trade deadline**\
-`With the trade deadline approaching, the Wild GM has to decide whether he needs to take another big swing to put his team over the top.`\
-https://nytimes.com/athletic/7077667/2026/03/01/wild-trade-deadline-bill-guerin-nhl/
-
-**Lakers blow out Warriors after pregame assist from LeBron's daughter**\
-`James said his daughter joined him this weekend on the road for the first time in his 23-year career`\
-https://nytimes.com/athletic/7078441/2026/03/01/lakers-warriors-lebron-james-zhuri-warriors-win/
 

@@ -1,3 +1,19 @@
+**How to watch South Carolina vs. Kentucky women's basketball: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078696/2026/03/01/south-carolina-vs-kentucky-stream-how-to-watch-march-1/
+
+**How to watch Iowa vs. Wisconsin women's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078694/2026/03/01/iowa-vs-wisconsin-stream-how-to-watch-march-1/
+
+**How to watch Florida vs. Georgia women's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078691/2026/03/01/florida-vs-georgia-stream-how-to-watch-march-1/
+
+**How to watch Michigan State vs. Indiana men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078689/2026/03/01/michigan-state-vs-indiana-stream-how-to-watch-march-1/
+
 **Killing Iran’s Leader**\
 `We look at the events leading to the death of Ayatollah Ali Khamenei and what comes next.`\
 https://nytimes.com/2026/03/01/briefing/killing-irans-leader.html
