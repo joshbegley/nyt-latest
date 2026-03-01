@@ -1,3 +1,15 @@
+**What Now in Iran?**\
+`Ayatollah Ali Khamenei is dead. Whoever takes his place will shape the Middle East’s future.`\
+https://nytimes.com/2026/03/01/world/ali-khamenei-iran-us-israel.html
+
+**How the Assault on Iran Unfolded**\
+`Despite warnings after an earlier wave of assassinations, top Iranian officials gathered in person, and Israel seized the chance to kill Iran’s supreme leader.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-israel-strikes.html
+
+**Stock Market Investors Brace for Iran War Fallout**\
+`Wall Street has largely shrugged off geopolitical upheaval in recent years. But the United States’ war against Iran comes at a more precarious time for the stock market.`\
+https://nytimes.com/2026/03/01/business/stock-market-iran-war-fallout.html
+
 **How Energy Prices Could Soar if Iran War Grinds On**\
 `Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
 https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgenc
 **Epstein’s New Mexico Ranch Gets Scrutiny at Last. It May Be Too Late.**\
 `Heinous allegations have prompted state officials to restart an inquiry, which went cold in 2019, into the convicted sex offender’s lesser-known property.`\
 https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html
-
-**Big Change Seems Certain in Iran. What Kind Is the Question.**\
-`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
-
-**N.Y.P.D. Steps Up Security After U.S.-Israel Attacks in Iran**\
-`Officers in the Police Department’s international liaison unit, including at outposts abroad, are gathering information about potential threats to New York City.`\
-https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
-
-**Texas jumps to No. 4 as last year's Final Four lead NCAA top-16 rankings**\
-`The race between Texas and Vanderbilt for the last No. 1 seed gets interesting, Minnesota rises and the importance of head-to-head matchups.`\
-https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
 
