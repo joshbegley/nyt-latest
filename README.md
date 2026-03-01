@@ -1,3 +1,11 @@
+**Iran’s Regime May Survive, but the Middle East Will Be Changed**\
+`A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
+https://nytimes.com/2026/03/01/world/europe/irans-regime-may-survive-but-the-middle-east-will-be-changed.html
+
+**Israelis Are Tense But Relieved That Iran’s Supreme Leader is Dead**\
+`Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
+https://nytimes.com/2026/03/01/world/middleeast/israelis-are-tense-but-relieved-that-irans-supreme-leader-is-dead.html
+
 **‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
 `Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7078744/2026/03/01/bucks-vs-bulls-stream-how-to-wat
 **How to watch Cavaliers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078741/2026/03/01/cavaliers-vs-nets-stream-how-to-watch-march-1/
-
-**How to watch Timberwolves vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078739/2026/03/01/timberwolves-vs-nuggets-stream-how-to-watch-march-1/
-
-**How to watch Blackhawks vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078735/2026/03/01/blackhawks-vs-mammoth-stream-how-to-watch-march-1/
 
