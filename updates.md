@@ -1,3 +1,15 @@
+**‘We Are Orphans’: Shiite Muslims Protest the Killing of Khamenei**\
+`Shiite Muslims around the world protested the killing of Ayatollah Ali Khamenei, Iran’s supreme leader and a senior Shiite Muslim cleric. He died on Saturday during U.S. and Israeli attacks on his country.`\
+https://nytimes.com/video/world/middleeast/100000010745249/iran-khamenei-protests-shiite.html
+
+**Iran’s Regime May Survive, but the Middle East Will Be Changed**\
+`A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
+https://nytimes.com/2026/03/01/world/europe/iran-regime-middle-east-khamenei.html
+
+**Israelis Are Tense but Relieved That Iran’s Supreme Leader Is Dead**\
+`Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
+https://nytimes.com/2026/03/01/world/middleeast/israel-iran-supreme-leader-dead.html
+
 **Man Utd fans unveil pro-immigration banner aimed at Sir Jim Ratcliffe**\
 `The banner read: "MUFC proudly colonised by immigrants", and featured seven international players to have represented the club.`\
 https://nytimes.com/athletic/7078644/2026/03/01/manchester-united-fans-immigration-banner-jim-ratcliffe/

@@ -1,3 +1,7 @@
+**Pentagon Announces First Three U.S. Deaths in War With Iran**\
+`U.S. Central Command did not say where the troops were killed but added that five others had been seriously wounded and that several had shrapnel injuries.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-war-us-troops-dead.html
+
 **‘We Are Orphans’: Shiite Muslims Protest the Killing of Khamenei**\
 `Shiite Muslims around the world protested the killing of Ayatollah Ali Khamenei, Iran’s supreme leader and a senior Shiite Muslim cleric. He died on Saturday during U.S. and Israeli attacks on his country.`\
 https://nytimes.com/video/world/middleeast/100000010745249/iran-khamenei-protests-shiite.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry
 **Why the Senators could — and should — buy ahead of the NHL trade deadline**\
 `The Sens are only five points out of a playoff spot after beating Toronto Saturday, putting them in position to be buyers this week.`\
 https://nytimes.com/athletic/7077926/2026/03/01/senators-staios-trade-deadline-buying/
-
-**How to watch Jets vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078747/2026/03/01/jets-vs-sharks-stream-how-to-watch-march-1/
 
