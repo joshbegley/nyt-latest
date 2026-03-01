@@ -1,3 +1,7 @@
+**Protesters Try to Storm U.S. Consulate as Thousands in Pakistan Protest Iran Strikes**\
+`At least 22 people were killed in protests across Pakistan as Iran’s neighbors brace for turmoil and the fallout of a possible regional conflict.`\
+https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.html
+
 **Air travel to and from the Middle East has become increasingly precarious.**\
 `By Christine Chung`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/air-travel-to-and-from-the-middle-east-has-become-increasingly-precarious

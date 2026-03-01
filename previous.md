@@ -1,3 +1,7 @@
+**Protesters Try to Storm U.S. Consulate as Thousands in Pakistan Protest Iran Strikes**\
+`At least 22 people were killed in protests across Pakistan as Iran’s neighbors brace for turmoil and the fallout of a possible regional conflict.`\
+https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.html
+
 **Air travel to and from the Middle East has become increasingly precarious.**\
 `By Christine Chung`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/air-travel-to-and-from-the-middle-east-has-become-increasingly-precarious
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078949/2026/03/01/ucla-vs-usc-stream-how-to-watch-
 **The Attack on Iran: A Range of Voices**\
 `Readers offer varied perspectives, including praise and criticism, on the strikes again Iran.`\
 https://nytimes.com/2026/03/01/opinion/letters/us-iran-war.html
-
-**Manchester United 2 Crystal Palace 1: Sesko's starting impact, Shaw concern but up to third**\
-`Michael Carrick's side had to come from behind at Old Trafford, but they thrived and prevailed once the visitors had been reduced to 10 men`\
-https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-briefing/
 
