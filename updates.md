@@ -1,3 +1,7 @@
+**Ayatollah Ali Khamenei**\
+`Mr. Khamenei became Iran’s supreme leader in 1989, wielding ultimate religious and political authority over the state and security apparatus.`\
+https://nytimes.com/2026/03/01/world/middleeast/ayatollah-ali-khamenei.html
+
 **The U.S. Released the Epstein Files. The Arrests Are Overseas.**\
 `While the latest tranche of documents about the sex offender Jeffrey Epstein has exposed a deeply American scandal, it is Europe where the aggressive enforcement is taking place.`\
 https://nytimes.com/2026/03/01/world/europe/epstein-files-arrests-europe-uk.html
