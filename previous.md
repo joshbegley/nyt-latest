@@ -1,7 +1,3 @@
-**Death of Girl From Los Angeles School Investigated as a Homicide, Police Say**\
-`The Los Angeles police did not offer details on the death of a student at Reseda High School, but a family said that a 12-year-old girl attending the school died after being struck with a water bottle.`\
-https://nytimes.com/2026/02/28/us/young-girl-water-bottle-la-homicide.html
-
 **Who Could Take Over for Ayatollah Ali Khamenei?**\
 `President Trump has declared that Iran’s supreme leader was dead. If that is true, the next question is which of his possible successors might carry on his work.`\
 https://nytimes.com/2026/02/28/world/middleeast/ali-khamenei-iran-leader-succession.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/02/28/world/middleeast/iran-leadership-khamenei-shamkha
 **The attacks touched off protests across the United States and abroad.**\
 `By Ashley Ahn and Zia Haider Rahman`\
 https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/the-attacks-touched-off-protests-across-the-united-states-and-abroad
+
+**Going Down Fast**\
+`Matt Proulx and Jeffrey Martinovic’s puzzle gives Sunday solvers a lift.`\
+https://nytimes.com/2026/02/28/crosswords/daily-puzzle-2026-03-01.html
 
