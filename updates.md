@@ -1,3 +1,7 @@
+**Trump Stays Out of Public View After U.S. Launches Military Assault on Iran**\
+`President Trump did not deliver a formal address to the American public to explain why the country was at war, a departure from his predecessors.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-public-comments.html
+
 **Blue Jackets blow early lead on 3 bad-luck goals, endure tough loss to Islanders**\
 `After a 4-3 loss in overtime, the Blue Jackets now sit five points behind the Bruins for the second wild-card spot.`\
 https://nytimes.com/athletic/7078190/2026/02/28/blue-jackets-islanders-loss-goals/

@@ -1,3 +1,7 @@
+**Trump Stays Out of Public View After U.S. Launches Military Assault on Iran**\
+`President Trump did not deliver a formal address to the American public to explain why the country was at war, a departure from his predecessors.`\
+https://nytimes.com/2026/02/28/us/politics/trump-iran-public-comments.html
+
 **Blue Jackets blow early lead on 3 bad-luck goals, endure tough loss to Islanders**\
 `After a 4-3 loss in overtime, the Blue Jackets now sit five points behind the Bruins for the second wild-card spot.`\
 https://nytimes.com/athletic/7078190/2026/02/28/blue-jackets-islanders-loss-goals/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/us/iranian-americans-los-angeles.html
 **At the Pentagon, OpenAI is In and Anthropic Is Out**\
 `It’s been a crazy 48 hours in the A.I. industry.`\
 https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
-
-**Michigan's L.J. Cason out for season with torn ACL**\
-`The Wolverines sophomore was averaging 12.1 points per game over the seven games before his injury Friday night against Illinois.`\
-https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-acl/
 
