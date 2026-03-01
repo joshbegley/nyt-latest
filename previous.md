@@ -1,9 +1,13 @@
+**Killing Iran’s Leader**\
+`We look at the events leading to the death of Ayatollah Ali Khamenei and what comes next.`\
+https://nytimes.com/2026/03/01/briefing/killing-irans-leader.html
+
 **OPEC Plus to Boost Oil Production as Iran Strikes Threaten Price Spike**\
 `The cartel pledged to increase output by 206,000 barrels a day from next month, and said that members would “closely monitor and assess market conditions.”`\
 https://nytimes.com/2026/03/01/world/middleeast/opec-plus-oil-production-prices.html
 
 **TGL's regular season ends this week. Who will stay alive to win the SoFi Cup?**\
-`Jupiter Links must win both watches this week to get into the playoffs.`\
+`Jupiter Links must win both matches this week to get into the playoffs.`\
 https://nytimes.com/athletic/7078647/2026/03/01/tgl-betting-preview-boston-jupiter-new-york-los-angeles/
 
 **The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077667/2026/03/01/wild-trade-deadline-bill-guerin-
 **Lakers blow out Warriors after pregame assist from LeBron's daughter**\
 `James said his daughter joined him this weekend on the road for the first time in his 23-year career`\
 https://nytimes.com/athletic/7078441/2026/03/01/lakers-warriors-lebron-james-zhuri-warriors-win/
-
-**Top Iranian security official says interim government will be formed Sunday.**\
-`By Leily Nikounazar`\
-https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
 
