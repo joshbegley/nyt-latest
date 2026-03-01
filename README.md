@@ -1,3 +1,11 @@
+**Where the Strikes Leave Iranians**\
+`Iran is reeling a day after the United States and Israel carried out a large attack that killed Iran’s supreme leader, Ayatollah Ali Khamenei.`\
+https://nytimes.com/video/world/middleeast/100000010744246/life-in-iran-after-american-israeli-strikes.html
+
+**Vikings eyeing Aaron Jones, Javon Hargrave as release candidates: Sources**\
+`Minnesota must clear around $45 million in cap space ahead of the new league year.`\
+https://nytimes.com/athletic/7079075/2026/03/01/vikings-aaron-jones-javon-hargrave-nfl-free-agency/
+
 **Spurs' Tudor accuses Jimenez of 'cheating' in opening goal vs. Fulham**\
 `Jimenez appeared to push Spurs defender Radu Dragusin in the build up to the opening goal at Craven Cottage.`\
 https://nytimes.com/athletic/7079054/2026/03/01/igor-tudor-raul-jimenez-tottenham-fulham/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.htm
 **Air travel to and from the Middle East has become increasingly precarious.**\
 `By Christine Chung`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/air-travel-to-and-from-the-middle-east-has-become-increasingly-precarious
-
-**How to watch Panthers vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078994/2026/03/01/panthers-vs-islanders-stream-how-to-watch-march-1/
-
-**Sam Kerr scores first Australia goal in over two years in winning start at Asian Cup**\
-`The 32-year-old striker scored the only goal against the Philippines in Perth in a narrow win for an injury-depleted Matildas team`\
-https://nytimes.com/athletic/7078629/2026/03/01/sam-kerr-scores-first-australia-goal-in-over-two-years-in-winning-start-at-asian-cup/
 
