@@ -1,3 +1,7 @@
+**OPEC Plus to Boost Oil Production as Iran Strikes Threaten Price Spike**\
+`The cartel pledged to increase output by 206,000 barrels a day from next month, and said that members would “closely monitor and assess market conditions.”`\
+https://nytimes.com/2026/03/01/world/middleeast/opec-plus-oil-production-prices.html
+
 **TGL's regular season ends this week. Who will stay alive to win the SoFi Cup?**\
 `Jupiter Links must win both watches this week to get into the playoffs.`\
 https://nytimes.com/athletic/7078647/2026/03/01/tgl-betting-preview-boston-jupiter-new-york-los-angeles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078441/2026/03/01/lakers-warriors-lebron-james-zhu
 **Top Iranian security official says interim government will be formed Sunday.**\
 `By Leily Nikounazar`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
-
-**3 Killed in Shooting at Bar in Austin**\
-`The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
-https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
 
