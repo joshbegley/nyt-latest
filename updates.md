@@ -1,3 +1,7 @@
+**Ready for WBC, Byron Buxton says Twins clubhouse is in good spot**\
+`Buxton's messages to Twins teammates before he left: "Come out and challenge yourself."`\
+https://nytimes.com/athletic/7079464/2026/03/01/byron-buxton-world-baseball-classic-twins/
+
 **In Latest Turn From Talks to War, U.S. Casts Doubt on Diplomacy**\
 `President Trump again deployed heavy force against a country with which he had been negotiating, continuing a pattern seen in previous attacks on Iran and Venezuela.`\
 https://nytimes.com/2026/03/01/us/politics/iran-nuclear-talks-war-trump-diplomacy.html
