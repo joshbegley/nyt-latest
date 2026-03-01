@@ -1,3 +1,11 @@
+**Iran’s Regime May Survive, but the Middle East Will Be Changed**\
+`A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
+https://nytimes.com/2026/03/01/world/europe/irans-regime-may-survive-but-the-middle-east-will-be-changed.html
+
+**Israelis Are Tense but Relieved That Iran’s Supreme Leader Is Dead**\
+`Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
+https://nytimes.com/2026/03/01/world/middleeast/israelis-are-tense-but-relieved-that-irans-supreme-leader-is-dead.html
+
 **‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
 `Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
