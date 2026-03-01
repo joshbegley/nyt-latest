@@ -1,3 +1,11 @@
+**U.S.-Israeli Attacks on Iran Disrupts Shipping in the Red Sea**\
+`Though the conflict is centered on the Persian Gulf, shipping companies fear that the Iran-backed Houthi militia in Yemen could resume attacks on vessels in the Red Sea hundreds of miles to the west.`\
+https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
+
+**Iran Fires Cheap Drones Into Arab Countries, Wreaking Havoc**\
+`It already proved its effectiveness on the battlefields of Ukraine. Now the Iranian-made Shahed-136 kamikaze has been unleashed across the Arab Gulf.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-fires-drones.html
+
 **India book England semi-final as Sanju Samson inspires historic run chase**\
 `Samson scored 97 not out out off just 50 deliveries as the holders impressively overhauled the West Indies' 195-4 with four balls to spare`\
 https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-england/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079075/2026/03/01/vikings-aaron-jones-javon-hargra
 **Spurs' Tudor accuses Jimenez of 'cheating' in opening goal vs. Fulham**\
 `Jimenez appeared to push Spurs defender Radu Dragusin in the build up to the opening goal at Craven Cottage.`\
 https://nytimes.com/athletic/7079054/2026/03/01/igor-tudor-raul-jimenez-tottenham-fulham/
-
-**Iran’s regional alliance has been severely weakened in recent years.**\
-`Weakened after two years of wars`\
-https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/irans-regional-alliance-has-been-severely-weakened-in-recent-years
-
-**An Iranian’s Account of the Day Khamenei Was Killed**\
-`Speaking from Iran, a 25-year-old woman recounted the mix of joy and hope that took hold after news broke that the country’s supreme leader had been killed in a series of U.S. and Israeli airstrikes.`\
-https://nytimes.com/video/world/asia/100000010745135/iran-khamenei-killing-us-israel.html
 

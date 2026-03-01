@@ -1,3 +1,7 @@
+**Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
+`McClain lost the opportunity for her first national championship and an automatic qualification spot for the 2026 World Championships.`\
+https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
+
 **India book England semi-final as Sanju Samson inspires historic run chase**\
 `Samson scored 97 not out out off just 50 deliveries as the holders impressively overhauled the West Indies' 195-4 with four balls to spare`\
 https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-england/
