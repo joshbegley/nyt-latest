@@ -1,3 +1,7 @@
+**An Iranian’s Account of the Day Khamenei Was Killed**\
+`Speaking from Iran, a 25-year-old woman recounted the mix of joy and hope that took hold after news broke that the country’s supreme leader had been killed in a series of U.S. and Israeli airstrikes.`\
+https://nytimes.com/video/world/asia/100000010745135/iran-khamenei-killing-us-israel.html
+
 **Welbeck in 'best shape ever' after winning goal vs. Forest - Hurzeler**\
 `The 35-year-old striker reached ten Premier League goals for the second season in succession.`\
 https://nytimes.com/athletic/7079017/2026/03/01/danny-welbeck-fabian-hurzeler-form/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078992/2026/03/01/trail-blazers-vs-hawks-stream-ho
 **How to watch Blues vs. Wild: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078979/2026/03/01/blues-vs-wild-stream-how-to-watch-march-1/
-
-**How to watch Grizzlies vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078966/2026/03/01/grizzlies-vs-pacers-stream-how-to-watch-march-1/
 

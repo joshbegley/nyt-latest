@@ -1,3 +1,7 @@
+**Welbeck in 'best shape ever' after winning goal vs. Forest - Hurzeler**\
+`The 35-year-old striker reached ten Premier League goals for the second season in succession.`\
+https://nytimes.com/athletic/7079017/2026/03/01/danny-welbeck-fabian-hurzeler-form/
+
 **9 Killed in City near Jerusalem After Iranian Missile Strike**\
 `The toll in Beit Shemesh was the highest in Israel since the start of the conflict with Iran on Saturday.`\
 https://nytimes.com/2026/03/01/world/middleeast/9-killed-beit-shemesh-iranian-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078979/2026/03/01/blues-vs-wild-stream-how-to-watc
 **How to watch Grizzlies vs. Pacers: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Indiana Pacers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078966/2026/03/01/grizzlies-vs-pacers-stream-how-to-watch-march-1/
-
-**How to watch Pistons vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078964/2026/03/01/pistons-vs-magic-stream-how-to-watch-march-1/
 

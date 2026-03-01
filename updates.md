@@ -1,3 +1,7 @@
+**Welbeck in 'best shape ever' after winning goal vs. Forest - Hurzeler**\
+`The 35-year-old striker reached ten Premier League goals for the second season in succession.`\
+https://nytimes.com/athletic/7079017/2026/03/01/danny-welbeck-fabian-hurzeler-form/
+
 **9 Killed in City near Jerusalem After Iranian Missile Strike**\
 `The toll in Beit Shemesh was the highest in Israel since the start of the conflict with Iran on Saturday.`\
 https://nytimes.com/2026/03/01/world/middleeast/9-killed-beit-shemesh-iranian-missiles.html
