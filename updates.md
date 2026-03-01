@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi, Ronen Bergman, Zolan Kanno-Youngs and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/heres-the-latest
+
+**Live Updates: Iran Vows to Avenge Leader’s Death as Strikes Continue**\
+`U.S. and Israeli attacks entered a second day as Iran’s surviving leadership said the old guard would remain in control.`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump
+
 **Liverpool have become a set-piece team. And that’s OK**\
 `They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026`\
 https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/

@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi, Ronen Bergman, Zolan Kanno-Youngs and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/heres-the-latest
+
+**Live Updates: Iran Vows to Avenge Leader’s Death as Strikes Continue**\
+`U.S. and Israeli attacks entered a second day as Iran’s surviving leadership said the old guard would remain in control.`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump
+
 **Liverpool have become a set-piece team. And that’s OK**\
 `They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026`\
 https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/01/todays-new-york-times
 **Is Craig Berube’s future with the Maple Leafs sealed?**\
 `Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
 https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/
-
-**Another T206 Honus Wagner card, first Michael Jordan 1/1 sell for millions**\
-`A T206 Wagner sells for the second time in about a week, but an even rarer Michael Jordan card nearly eclipsed it. `\
-https://nytimes.com/athletic/7078188/2026/03/01/t206-honus-wagner-card-garagiola/
-
-**U.S. Olympic men's, women's hockey stars joke about 'Heated Rivalry,' Trump invite on 'SNL'**\
-`Gold medalists Jack Hughes, Quinn Hughes, Hilary Knight and Megan Keller appeared on "Saturday Night Live" hosted by actor Connor Storrie.`\
-https://nytimes.com/athletic/7078328/2026/03/01/snl-olympic-hockey-hughes-knight-keller/
 
