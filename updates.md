@@ -1,3 +1,7 @@
+**Would You Like to Wear Your Bed, Not Just Sleep in It?**\
+`Blanket statements were the biggest trend in Milan. Jil Sander led the way; Bottega Veneta got hairy.`\
+https://nytimes.com/2026/03/01/style/milan-fashion-week-trends.html
+
 **Dissecting Lamine Yamal's first career hat-trick: He is back to his peak at a decisive time**\
 `The 18-year-old has had a difficult season on and off the pitch, but he proved once again his elite level on Saturday`\
 https://nytimes.com/athletic/7078158/2026/03/01/lamine-yamal-barcelona-hat-trick/
