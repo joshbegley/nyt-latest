@@ -1,3 +1,7 @@
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Celebrities have begun to walk the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
+
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
 `Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/girls-school-strike-iran-video
