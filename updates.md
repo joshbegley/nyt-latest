@@ -1,3 +1,7 @@
+**Man Utd fans unveil pro-immigration banner aimed at Sir Jim Ratcliffe**\
+`The banner read: "MUFC proudly colonised by immigrants", and featured seven international players to have represented the club.`\
+https://nytimes.com/athletic/7078644/2026/03/01/manchester-united-fans-immigration-banner-jim-ratcliffe/
+
 **Iran’s Regime May Survive, but the Middle East Will Be Changed**\
 `A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
 https://nytimes.com/2026/03/01/world/europe/irans-regime-may-survive-but-the-middle-east-will-be-changed.html
