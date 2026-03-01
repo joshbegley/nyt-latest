@@ -1,3 +1,7 @@
+**Iranian Americans in L.A. Find Hope in U.S.-Israeli Strikes on Iran**\
+`Californians of Iranian descent said they welcomed the possible end of an oppressive government in Tehran that their families had fled.`\
+https://nytimes.com/2026/02/28/us/iranian-americans-los-angeles.html
+
 **At the Pentagon, OpenAI is In and Anthropic Is Out**\
 `It’s been a crazy 48 hours in the A.I. industry.`\
 https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
