@@ -1,14 +1,18 @@
+**‘We Are Orphans’: Shiite Muslims Protest the Killing of Khamenei**\
+`Shiite Muslims around the world protested the killing of Ayatollah Ali Khamenei, Iran’s supreme leader and a senior Shiite Muslim cleric. He died on Saturday during U.S. and Israeli attacks on his country.`\
+https://nytimes.com/video/world/middleeast/100000010745249/iran-khamenei-protests-shiite.html
+
 **Man Utd fans unveil pro-immigration banner aimed at Sir Jim Ratcliffe**\
 `The banner read: "MUFC proudly colonised by immigrants", and featured seven international players to have represented the club.`\
 https://nytimes.com/athletic/7078644/2026/03/01/manchester-united-fans-immigration-banner-jim-ratcliffe/
 
 **Iran’s Regime May Survive, but the Middle East Will Be Changed**\
 `A badly weakened Iran will no longer intimidate or threaten its neighbors in the same way. The regional impact could be comparable to the collapse of the Soviet Union.`\
-https://nytimes.com/2026/03/01/world/europe/irans-regime-may-survive-but-the-middle-east-will-be-changed.html
+https://nytimes.com/2026/03/01/world/europe/iran-regime-middle-east-khamenei.html
 
 **Israelis Are Tense but Relieved That Iran’s Supreme Leader Is Dead**\
 `Iranian missile and drone attacks have caused anxiety across Israel, but many believe it is a price worth paying for killing Ayatollah Ali Khamenei.`\
-https://nytimes.com/2026/03/01/world/middleeast/israelis-are-tense-but-relieved-that-irans-supreme-leader-is-dead.html
+https://nytimes.com/2026/03/01/world/middleeast/israel-iran-supreme-leader-dead.html
 
 **‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
 `Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077926/2026/03/01/senators-staios-trade-deadline-b
 **How to watch Jets vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078747/2026/03/01/jets-vs-sharks-stream-how-to-watch-march-1/
-
-**How to watch Bucks vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078744/2026/03/01/bucks-vs-bulls-stream-how-to-watch-march-1/
 
