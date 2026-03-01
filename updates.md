@@ -1,3 +1,7 @@
+**How Energy Prices Could Soar if Iran War Grinds On**\
+`Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
+https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
+
 **Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
 `"That was malicious. It was a cheap shot," Nuggets coach David Adelman said of a flagrant foul that resulted in a Friday skirmish.`\
 https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
