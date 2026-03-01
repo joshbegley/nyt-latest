@@ -1,5 +1,5 @@
-**Eight moments that made Burnley vs Brentford this season's most chaotic game**\
-`Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down.`\
+**Eight moments that made Burnley 3-4 Brentford this season's most chaotic game**\
+`Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down`\
 https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
 
 **After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
