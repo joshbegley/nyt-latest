@@ -1,3 +1,19 @@
+**What I learned about the 2026 college football season at the NFL combine**\
+`With the college football season concluding only five weeks before the combine, many draft prospects had their alma maters on their minds.`\
+https://nytimes.com/athletic/7078132/2026/03/01/nfl-combine-college-football-notes/
+
+**Maple Leafs after 60: How far can Toronto fall after a trade deadline sell-off?**\
+`With 22 games left, the odds are completely stacked against the Leafs falling to the bottom five of the league — even with a sell-off. `\
+https://nytimes.com/athletic/7076246/2026/03/01/maple-leafs-nhl-trade-deadline-sell/
+
+**Michael Busch, Cubs hope he can build on his career-best 2025 season**\
+`Plus notes on Imanaga's early-spring velocity, former Dodgers outfielder Michael Conforto and more.`\
+https://nytimes.com/athletic/7078083/2026/03/01/michael-busch-cubs-spring-training-mlb/
+
+**Wild insider: Bill Guerin's on a heater but faces tough decisions at trade deadline**\
+`With the trade deadline approaching, the Wild GM has to decide whether he needs to take another big swing to put his team over the top.`\
+https://nytimes.com/athletic/7077667/2026/03/01/wild-trade-deadline-bill-guerin-nhl/
+
 **Top Iranian security official says interim government will be formed Sunday.**\
 `By Leily Nikounazar`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7078485/2026/03/01/nick-suzuki-milan-travel-excel-c
 **Sabres' dominant win over Lightning shows they can hang with East's elite: 5 thoughts**\
 `Buffalo moved to within 4 points of Atlantic-leading Tampa Bay; the teams meet twice more this season.`\
 https://nytimes.com/athletic/7078318/2026/03/01/sabres-beat-lightning-dominant-elite-east/
-
-**A Tyrant Falls. Dangerous Uncertainty Begins.**\
-`No one should mourn Ayatollah Khamenei, but Trump is creating the opportunity for chaos and violence with his campaign against Iran.`\
-https://nytimes.com/2026/03/01/opinion/iran-khamenei-killed-what-next.html
-
-**The Killing of Iran’s Supreme Leader and the End of an Era in the Middle East**\
-`Iran’s supreme leader, Ayatollah Ali Khamenei, was killed in a major assault launched by the United States and Israel.`\
-https://nytimes.com/2026/03/01/podcasts/the-daily/iran-supreme-leader-killed-strike.html
-
-**Connections Companion No. 995**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 2, 2026.`\
-https://nytimes.com/2026/03/01/crosswords/connections-companion-995.html
-
-**Mirtle: Should the Maple Leafs just tear it all down?**\
-`With just two regulation wins in their last 15 games, the Leafs look like a team that has given up. Are they fixable?`\
-https://nytimes.com/athletic/7078232/2026/03/01/maple-leafs-trade-deadline-retool-rebuild/
 

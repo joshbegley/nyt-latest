@@ -1,3 +1,7 @@
+**Top Iranian security official says interim government will be formed Sunday.**\
+`By Leily Nikounazar`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
+
 **3 Killed in Shooting at Bar in Austin**\
 `The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
 https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html

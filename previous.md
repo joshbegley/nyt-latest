@@ -1,3 +1,7 @@
+**Top Iranian security official says interim government will be formed Sunday.**\
+`By Leily Nikounazar`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian-security-official-says-interim-government-will-be-formed-sunday
+
 **3 Killed in Shooting at Bar in Austin**\
 `The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
 https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/crosswords/connections-companion-995.html
 **Mirtle: Should the Maple Leafs just tear it all down?**\
 `With just two regulation wins in their last 15 games, the Leafs look like a team that has given up. Are they fixable?`\
 https://nytimes.com/athletic/7078232/2026/03/01/maple-leafs-trade-deadline-retool-rebuild/
-
-**From Bus 1 Boy to Blog Boy: One of the most talented Spurs writers is Wemby’s backup**\
-`It turns out that one of the best writers covering the Spurs is their backup center. Here's how it came together.`\
-https://nytimes.com/athletic/7077315/2026/03/01/luke-kornet-blog-spurs-victor-wembanyama/
 
