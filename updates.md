@@ -1,3 +1,7 @@
+**Pentagon Announces First Three U.S. Deaths in War With Iran**\
+`U.S. Central Command did not say where the troops were killed but added that five others had been seriously wounded and that several had shrapnel injuries.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-war-us-troops-dead.html
+
 **‘We Are Orphans’: Shiite Muslims Protest the Killing of Khamenei**\
 `Shiite Muslims around the world protested the killing of Ayatollah Ali Khamenei, Iran’s supreme leader and a senior Shiite Muslim cleric. He died on Saturday during U.S. and Israeli attacks on his country.`\
 https://nytimes.com/video/world/middleeast/100000010745249/iran-khamenei-protests-shiite.html
