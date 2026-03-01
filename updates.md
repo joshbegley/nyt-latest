@@ -1,3 +1,7 @@
+**Three Are Killed in Shooting at Bar in Austin**\
+`The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
+https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
+
 **Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
 `Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
 https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
