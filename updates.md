@@ -1,3 +1,7 @@
+**Texas jumps to No. 4 as last year's Final Four lead NCAA top-16 rankings**\
+`The race between Texas and Vanderbilt for the last No. 1 seed gets interesting, Minnesota rises and the importance of head-to-head matchups.`\
+https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
+
 **Epstein’s New Mexico Ranch Gets Scrutiny at Last. It May Be Too Late.**\
 `Heinous allegations have prompted state officials to restart an inquiry, which went cold in 2019, into the convicted sex offender’s lesser-known property.`\
 https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html

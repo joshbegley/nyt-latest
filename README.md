@@ -1,3 +1,7 @@
+**Democrats Question Trump’s Urgency to Attack Iran**\
+`Lawmakers questioned whether the United States faced an “imminent” threat from Iran, a requirement for the president to lawfully initiate military action without congressional approval.`\
+https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgency-to-attack-iran.html
+
 **Epstein’s New Mexico Ranch Gets Scrutiny at Last. It May Be Too Late.**\
 `Heinous allegations have prompted state officials to restart an inquiry, which went cold in 2019, into the convicted sex offender’s lesser-known property.`\
 https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079387/2026/03/01/thunder-vs-mavericks-stream-how-
 **How to watch Kings vs. Lakers: Time, TV, streaming**\
 `Find out how to watch the Sacramento Kings play the Los Angeles Lakers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7079379/2026/03/01/kings-vs-lakers-stream-how-to-watch-march-1/
-
-**How to watch Pelicans vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7079375/2026/03/01/pelicans-vs-clippers-stream-how-to-watch-march-1/
 
