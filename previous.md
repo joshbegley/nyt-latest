@@ -1,3 +1,7 @@
+**TGL's regular season ends this week. Who will stay alive to win the SoFi Cup?**\
+`Jupiter Links must win both watches this week to get into the playoffs.`\
+https://nytimes.com/athletic/7078647/2026/03/01/tgl-betting-preview-boston-jupiter-new-york-los-angeles/
+
 **The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
 `The United States and Israel killed many senior Iranian leaders in the .`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/the-us-israeli-attacks-have-killed-a-number-of-iranian-leaders
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/top-iranian
 **3 Killed in Shooting at Bar in Austin**\
 `The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
 https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
-
-**Iran’s Attacks on Persian Gulf Countries Crack Their Safe Haven Image**\
-`Iran responded to an American and Israeli assault by attacking Dubai, Abu Dhabi, Qatar and Bahrain, threatening those states’ reputations for security and openness.`\
-https://nytimes.com/2026/03/01/world/middleeast/irans-attacks-on-persian-gulf-countries-crack-their-safe-haven-image.html
 
