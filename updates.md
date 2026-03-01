@@ -1,3 +1,19 @@
+**Iran Got Trump All Wrong**\
+`We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
+https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html
+
+**War and Peace Cannot Be Left to One Man — Especially Not This Man**\
+`The Constitution isn’t a technicality.`\
+https://nytimes.com/2026/03/01/opinion/trump-iran-congress-approval.html
+
+**In Texas, the Old, Kinder, Gentler G.O.P. Faces Its Alamo Moment**\
+`John Cornyn says his challenger doesn’t have the character to serve in the Senate. MAGA voters might not care.`\
+https://nytimes.com/2026/03/01/opinion/texas-gop-primary.html
+
+**The New York Times in Print for Sunday, March 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/01/todays-new-york-times
+
 **Is Craig Berube’s future with the Maple Leafs sealed?**\
 `Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
 https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/

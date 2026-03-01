@@ -1,3 +1,19 @@
+**Iran Got Trump All Wrong**\
+`We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
+https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html
+
+**War and Peace Cannot Be Left to One Man — Especially Not This Man**\
+`The Constitution isn’t a technicality.`\
+https://nytimes.com/2026/03/01/opinion/trump-iran-congress-approval.html
+
+**In Texas, the Old, Kinder, Gentler G.O.P. Faces Its Alamo Moment**\
+`John Cornyn says his challenger doesn’t have the character to serve in the Senate. MAGA voters might not care.`\
+https://nytimes.com/2026/03/01/opinion/texas-gop-primary.html
+
+**The New York Times in Print for Sunday, March 1, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/01/todays-new-york-times
+
 **Is Craig Berube’s future with the Maple Leafs sealed?**\
 `Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
 https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-
 **Will football's law changes really make the sport better?**\
 `VAR expansion, offside overhauls and time-wasting crackdowns promise real change. But will it be for the better?`\
 https://nytimes.com/athletic/7077851/2026/03/01/will-footballs-law-changes-really-make-the-sport-better/
-
-**Jordan Pickford's wonder save shows why he so important to Everton and England**\
-`The goalkeeper's incredible stoppage-time save ensured that Everton took all three points in their quest for European qualification`\
-https://nytimes.com/athletic/7077967/2026/03/01/jordan-pickfords-wonder-save-shows-why-he-so-important-to-everton-and-england/
-
-**Arsenal vs Chelsea: Lessons from Carabao Cup? Minimum season expectations? Most important player?**\
-`Another London derby for league leaders Arsenal as they host Chelsea, who are looking to make up for their Carabao Cup semi-final defeat`\
-https://nytimes.com/athletic/7072575/2026/03/01/arsenal-chelsea-preview-premier-league/
-
-**Rayan is already one of the Premier League's most fearsome attackers**\
-`It’s not about Bournemouth discovering Rayan; it’s about them believing in him. They took the plunge — and it looks like they have a bargain`\
-https://nytimes.com/athletic/7077734/2026/03/01/rayan-bournemouth-analysis/
-
-**The C.I.A. Helped Pinpoint a Gathering of Iranian Leaders. Then Israel Struck.**\
-`The killing of Iran’s supreme leader and other top Iranian officials came after close intelligence sharing between the United States and Israel, according to people familiar with the operation.`\
-https://nytimes.com/2026/03/01/us/politics/cia-israel-ayatollah-compound.html
 
