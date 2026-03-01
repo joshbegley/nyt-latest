@@ -1,3 +1,11 @@
+**In New York, Fury, Anxiety and Joy Over the Attacks on Iran**\
+`As Mayor Zohran Mamdani assailed what he called a “catastrophic escalation” in Iran, some Iranian Americans worried about what comes next, while others celebrated.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-attacks-reaction-new-york.html
+
+**Screen Actors Guild’s Actor Awards Winners List: Updating Live**\
+`“One Battle After Another” and “Sinners” are facing off in the last major awards before the Oscars.`\
+https://nytimes.com/2026/03/01/movies/sag-actor-awards-complete-winners-list.html
+
 **Iranian Strikes on Gulf States Reach the Hundreds**\
 `Iran has fired nearly 400 missiles and over 800 drones across the Persian Gulf in the past two days, according to government reports.`\
 https://nytimes.com/2026/03/01/world/middleeast/gulf-states-strikes.html
@@ -11,7 +19,7 @@ https://nytimes.com/2026/03/01/us/politics/trump-racism-woodrow-wilson.html
 https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
 
 **2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
-`Celebrities have begun to walk the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
+`Celebrities are walking the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
 https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
 
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079541/2026/03/01/penguins-shutout-silovs-rust-kar
 **Ready for WBC, Byron Buxton says Twins clubhouse is in good spot**\
 `Buxton's messages to Twins teammates before he left: "Come out and challenge yourself."`\
 https://nytimes.com/athletic/7079464/2026/03/01/byron-buxton-world-baseball-classic-twins/
-
-**In Latest Turn From Talks to War, U.S. Casts Doubt on Diplomacy**\
-`President Trump again deployed heavy force against a country with which he had been negotiating, continuing a pattern seen in previous attacks on Iran and Venezuela.`\
-https://nytimes.com/2026/03/01/us/politics/iran-nuclear-talks-war-trump-diplomacy.html
-
-**What Now in Iran?**\
-`Ayatollah Ali Khamenei is dead. Whoever takes his place will shape the Middle East’s future.`\
-https://nytimes.com/2026/03/01/world/ali-khamenei-iran-us-israel.html
 
