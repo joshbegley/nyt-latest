@@ -1,3 +1,7 @@
+**Liverpool have become a set-piece team. And that’s OK**\
+`They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026.`\
+https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
+
 **Eight moments that made Burnley 3-4 Brentford this season's most chaotic game**\
 `Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down`\
 https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078188/2026/03/01/t206-honus-wagner-card-garagiola
 **U.S. Olympic men's, women's hockey stars joke about 'Heated Rivalry,' Trump invite on 'SNL'**\
 `Gold medalists Jack Hughes, Quinn Hughes, Hilary Knight and Megan Keller appeared on "Saturday Night Live" hosted by actor Connor Storrie.`\
 https://nytimes.com/athletic/7078328/2026/03/01/snl-olympic-hockey-hughes-knight-keller/
-
-**Trump’s War of Choice With Iran**\
-`Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
-https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
 

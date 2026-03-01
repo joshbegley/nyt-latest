@@ -1,3 +1,7 @@
+**Liverpool have become a set-piece team. And that’s OK**\
+`They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026.`\
+https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
+
 **Eight moments that made Burnley 3-4 Brentford this season's most chaotic game**\
 `Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down`\
 https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
