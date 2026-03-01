@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
 `Plus: The race between Texas and Vanderbilt for the last No. 1 seed, Minnesota's rise and the power of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
 
-**Aidan Miller is 'pain-free' after back flare-up, but Phillies remain cautious**\
+**Aidan Miller is pain-free after back flare-up, but Phillies remain cautious**\
 `This was going to be an important spring training for Miller. Now, it's uncertain whether he'll play before the start of the regular season.`\
 https://nytimes.com/athletic/7079331/2026/03/01/aidan-miller-back-injury-phillies-prospect/
 
