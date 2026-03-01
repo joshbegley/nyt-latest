@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/01/world/middleeast/opec-plus-oil-production-prices.html
 
 **TGL's regular season ends this week. Who will stay alive to win the SoFi Cup?**\
-`Jupiter Links must win both watches this week to get into the playoffs.`\
+`Jupiter Links must win both matches this week to get into the playoffs.`\
 https://nytimes.com/athletic/7078647/2026/03/01/tgl-betting-preview-boston-jupiter-new-york-los-angeles/
 
 **The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
