@@ -1,3 +1,15 @@
+**Is Craig Berube’s future with the Maple Leafs sealed?**\
+`Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
+https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/
+
+**Another T206 Honus Wagner card, first Michael Jordan 1/1 sell for millions**\
+`A T206 Wagner sells for the second time in about a week, but an even rarer Michael Jordan card nearly eclipsed it. `\
+https://nytimes.com/athletic/7078188/2026/03/01/t206-honus-wagner-card-garagiola/
+
+**U.S. Olympic men's, women's hockey stars joke about 'Heated Rivalry,' Trump invite on 'SNL'**\
+`Gold medalists Jack Hughes, Quinn Hughes, Hilary Knight and Megan Keller appeared on "Saturday Night Live" hosted by actor Connor Storrie.`\
+https://nytimes.com/athletic/7078328/2026/03/01/snl-olympic-hockey-hughes-knight-keller/
+
 **Trump’s War of Choice With Iran**\
 `Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
 https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7077734/2026/03/01/rayan-bournemouth-analysis/
 **The C.I.A. Helped Pinpoint a Gathering of Iranian Leaders. Then Israel Struck.**\
 `The killing of Iran’s supreme leader and other top Iranian officials came after close intelligence sharing between the United States and Israel, according to people familiar with the operation.`\
 https://nytimes.com/2026/03/01/us/politics/cia-israel-ayatollah-compound.html
-
-**Asian Cup is another opportunity for Australia to grow women's soccer. Will it stick this time?**\
-`Women's soccer has grown across the world, but 2023 World Cup host Australia is working to push past a plateau `\
-https://nytimes.com/athletic/7041606/2026/03/01/australia-women-soccer-growth-challenges/
-
-**40 Years and 10,000 Broadcasts In, They’re Still Live on Air**\
-`Rick Ardon and Susannah Carr have been delivering the news together in Western Australia since 1985 — a Guinness World Record.`\
-https://nytimes.com/2026/03/01/business/media/anchors-rick-ardon-susannah-carr-perth-australia.html
-
-**Quote of the Day: With Packed Clubs and $160 Steaks, Caracas Is Stirring Back to Life**\
-`Quotation of the Day for March 1, 2026.`\
-https://nytimes.com/2026/03/01/pageoneplus/quote-of-the-day-with-packed-clubs-and-160-steaks-caracas-is-stirring-back-to-life.html
 

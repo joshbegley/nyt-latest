@@ -1,3 +1,15 @@
+**Is Craig Berube’s future with the Maple Leafs sealed?**\
+`Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
+https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/
+
+**Another T206 Honus Wagner card, first Michael Jordan 1/1 sell for millions**\
+`A T206 Wagner sells for the second time in about a week, but an even rarer Michael Jordan card nearly eclipsed it. `\
+https://nytimes.com/athletic/7078188/2026/03/01/t206-honus-wagner-card-garagiola/
+
+**U.S. Olympic men's, women's hockey stars joke about 'Heated Rivalry,' Trump invite on 'SNL'**\
+`Gold medalists Jack Hughes, Quinn Hughes, Hilary Knight and Megan Keller appeared on "Saturday Night Live" hosted by actor Connor Storrie.`\
+https://nytimes.com/athletic/7078328/2026/03/01/snl-olympic-hockey-hughes-knight-keller/
+
 **Trump’s War of Choice With Iran**\
 `Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
 https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
