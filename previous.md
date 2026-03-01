@@ -1,3 +1,7 @@
+**Dissecting Lamine Yamal's first career hat-trick: He is back to his peak at a decisive time**\
+`The 18-year-old has had a difficult season on and off the pitch, but he proved once again his elite level on Saturday. `\
+https://nytimes.com/athletic/7078158/2026/03/01/lamine-yamal-barcelona-hat-trick/
+
 **Ayatollah Ali Khamenei**\
 `Mr. Khamenei became Iran’s supreme leader in 1989, wielding ultimate religious and political authority over the state and security apparatus.`\
 https://nytimes.com/2026/03/01/world/middleeast/ayatollah-ali-khamenei.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement
 **Eight moments that made Burnley 3-4 Brentford this season's most chaotic game**\
 `Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down`\
 https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
-
-**After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
-`The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
-https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
 

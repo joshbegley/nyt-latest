@@ -1,3 +1,7 @@
+**Dissecting Lamine Yamal's first career hat-trick: He is back to his peak at a decisive time**\
+`The 18-year-old has had a difficult season on and off the pitch, but he proved once again his elite level on Saturday. `\
+https://nytimes.com/athletic/7078158/2026/03/01/lamine-yamal-barcelona-hat-trick/
+
 **Ayatollah Ali Khamenei**\
 `Mr. Khamenei became Iran’s supreme leader in 1989, wielding ultimate religious and political authority over the state and security apparatus.`\
 https://nytimes.com/2026/03/01/world/middleeast/ayatollah-ali-khamenei.html
