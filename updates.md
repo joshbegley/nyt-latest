@@ -1,3 +1,11 @@
+**9 Killed in City near Jerusalem After Iranian Missile Strike**\
+`The toll in Beit Shemesh was the highest in Israel since the start of the conflict with Iran on Saturday.`\
+https://nytimes.com/2026/03/01/world/middleeast/9-killed-beit-shemesh-iranian-missiles.html
+
+**Dortmund captain Can set for lengthy spell out with cruciate ligament injury**\
+`The 32-year-old was forced off in the 45th minute of Dortmund's Bundesliga defeat to Bayern Munich on Saturday.`\
+https://nytimes.com/athletic/7078943/2026/03/01/emre-can-cruciate-ligament-injury-dortmund/
+
 **Protesters Try to Storm U.S. Consulate as Thousands in Pakistan Protest Iran Strikes**\
 `At least 22 people were killed in protests across Pakistan as Iran’s neighbors brace for turmoil and the fallout of a possible regional conflict.`\
 https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.html
