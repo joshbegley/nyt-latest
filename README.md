@@ -1,3 +1,11 @@
+**9 Killed in City near Jerusalem After Iranian Missile Strike**\
+`The toll in Beit Shemesh was the highest in Israel since the start of the conflict with Iran on Saturday.`\
+https://nytimes.com/2026/03/01/world/middleeast/9-killed-beit-shemesh-iranian-missiles.html
+
+**Dortmund captain Can set for lengthy spell out with cruciate ligament injury**\
+`The 32-year-old was forced off in the 45th minute of Dortmund's Bundesliga defeat to Bayern Munich on Saturday.`\
+https://nytimes.com/athletic/7078943/2026/03/01/emre-can-cruciate-ligament-injury-dortmund/
+
 **Protesters Try to Storm U.S. Consulate as Thousands in Pakistan Protest Iran Strikes**\
 `At least 22 people were killed in protests across Pakistan as Iran’s neighbors brace for turmoil and the fallout of a possible regional conflict.`\
 https://nytimes.com/2026/03/01/world/asia/iran-afghanistan-pakistan-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7078966/2026/03/01/grizzlies-vs-pacers-stream-how-t
 **How to watch Pistons vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078964/2026/03/01/pistons-vs-magic-stream-how-to-watch-march-1/
-
-**How to watch UCLA vs. USC women's basketball: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078949/2026/03/01/ucla-vs-usc-stream-how-to-watch-march-1/
-
-**The Attack on Iran: A Range of Voices**\
-`Readers offer varied perspectives, including praise and criticism, on the strikes again Iran.`\
-https://nytimes.com/2026/03/01/opinion/letters/us-iran-war.html
 
