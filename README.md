@@ -1,3 +1,7 @@
+**Iranians Take to the Streets to Celebrate Khamenei’s Death**\
+`Some Iranians said on social media that they were privately mourning the supreme leader. But displays of exuberance broke out in cities across the country.`\
+https://nytimes.com/2026/02/28/world/middleeast/iran-khameni-celebrations.html
+
 **Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Dies at 86**\
 `As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
 https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/world/middleeast/ali-khamenei-iran-leader-success
 **Trump’s Decision to Strike Iran Opens New Fissures in Midterms**\
 `Republicans largely supported the decision, while Democrats mostly opposed it — but divisions appeared in both parties.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-midterms.html
-
-**Trump Tells Iranians to ‘Take Over’ Their Government. But How?**\
-`President Trump’s ambiguous appeal comes after he undermined U.S.-funded media outlets that normally would have helped the administration reach people inside the country.`\
-https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.html
 
