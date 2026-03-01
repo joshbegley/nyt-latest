@@ -1,3 +1,15 @@
+**The New York Times International Edition in Print for Monday, March 2, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/01/todays-new-york-times-international-edition
+
+**How to watch Golden Knights vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078612/2026/03/01/golden-knights-vs-penguins-stream-how-to-watch-march-1/
+
+**How to watch Spurs vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078609/2026/03/01/spurs-vs-knicks-stream-how-to-watch-march-1/
+
 **How to watch Duke vs. North Carolina women's basketball: Time, TV, streaming**\
 `Find out how to watch the Duke Blue Devils play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078603/2026/03/01/duke-vs-north-carolina-stream-how-to-watch-march-1/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/01/us/politics/iran-trump-diplomacy-fail.html
 **A Rock Star Philosopher**\
 `Michael Sandel, the Harvard professor, has been predicting this political moment for decades. We called him to discuss where we go from here.`\
 https://nytimes.com/2026/03/01/briefing/a-rock-star-philosopher.html
-
-**Solve the March Bonus Puzzle**\
-`This month’s reality television themed grid was co-constructed by Christina Iverson and Gabby Windey.`\
-https://nytimes.com/2026/03/01/crosswords/solve-the-march-bonus-puzzle.html
-
-**As the Midterms Begin, Texas Offers a Test Case for Both Parties**\
-`Should Democrats concentrate on swing voters or their base? Can more traditional Republicans win in the MAGA era? Tuesday’s Senate primary in Texas will show the direction the parties are taking.`\
-https://nytimes.com/2026/03/01/us/politics/texas-election-cornyn-paxton-crockett-talarico.html
-
-**What the Texas Primary Battle Means for the Midterms**\
-`The first battle of the midterm elections will be the U.S. Senate primary in Texas. Our Texas bureau chief, David Goodman, explains why Democrats and Republicans across the U.S. are watching closely to see what happens in the state.`\
-https://nytimes.com/video/us/politics/100000010736993/what-the-texas-primary-battle-means-for-the-midterms.html
 
