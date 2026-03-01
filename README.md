@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-en
 https://nytimes.com/athletic/7078872/2026/03/01/la-liga-alleged-racist-abuse-elche-espanyol/
 
 **Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
-`Jess McClain is led off-course in bizarre finish at U.S. Half Marathon Championships`\
+`McClain lost the opportunity for her first national championship and an automatic qualification spot for the 2026 World Championships.`\
 https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
 
 **Do the Edmonton Oilers have enough to offer at the trade deadline?**\

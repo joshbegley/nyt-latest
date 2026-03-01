@@ -1,3 +1,15 @@
+**India book England semi-final as Sanju Samson inspires historic run chase**\
+`Samson scored 97 not out out off just 50 deliveries as the holders impressively overhauled the West Indies' 195-4 with four balls to spare`\
+https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-england/
+
+**La Liga investigating incident of alleged racist abuse in Elche vs. Espanyol**\
+`Espanyol defender Omar El Hilali alleged that Elche striker Rafa Mir directed an anti-immigrant insult towards him.`\
+https://nytimes.com/athletic/7078872/2026/03/01/la-liga-alleged-racist-abuse-elche-espanyol/
+
+**Kings fire head coach Jim Hiller, name D.J. Smith interim boss**\
+`D.J. Smith will take over behind the bench with the Kings sitting outside the playoffs.`\
+https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-jim-hiller/
+
 **Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
 `Jess McClain is led off-course in bizarre finish at U.S. Half Marathon Championships`\
 https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
