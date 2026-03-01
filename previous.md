@@ -1,3 +1,11 @@
+**Big Change Seems Certain in Iran. What Kind Is the Question.**\
+`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence in the country.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
+
+**N.Y.P.D. Steps Up Security After U.S.-Israel Attacks in Iran**\
+`Officers in the Police Department’s international liaison unit, including at outposts abroad, are gathering information about potential threats to New York City.`\
+https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
+
 **UConn women still No. 1 in updated NCAA top-16 rankings**\
 `Plus: The race between Texas and Vanderbilt for the last No. 1 seed, Minnesota's rise and the power of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079375/2026/03/01/pelicans-vs-clippers-stream-how-
 **How to watch UConn vs. St. John's women's basketball: Time, TV, streaming**\
 `Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7079352/2026/03/01/uconn-vs-st-john-s-stream-how-to-watch-march-1/
-
-**How Talks Between Anthropic and the Defense Dept. Fell Apart**\
-`The Pentagon and Anthropic were close to agreeing on the use of artificial intelligence. But strong personalities, mutual dislike and a rival company unraveled a deal.`\
-https://nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html
-
-**Trump and Netanyahu Are Doing the Free World a Favor**\
-`American hearts should be moved by moments like this, when free nations band together to administer justice and supply hope.`\
-https://nytimes.com/2026/03/01/opinion/trump-netanyahu-iran-free-world.html
 

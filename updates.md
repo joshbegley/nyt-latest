@@ -1,3 +1,11 @@
+**Big Change Seems Certain in Iran. What Kind Is the Question.**\
+`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence in the country.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
+
+**N.Y.P.D. Steps Up Security After U.S.-Israel Attacks in Iran**\
+`Officers in the Police Department’s international liaison unit, including at outposts abroad, are gathering information about potential threats to New York City.`\
+https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
+
 **UConn women still No. 1 in updated NCAA top-16 rankings**\
 `Plus: The race between Texas and Vanderbilt for the last No. 1 seed, Minnesota's rise and the power of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
