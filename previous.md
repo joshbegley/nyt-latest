@@ -1,3 +1,7 @@
+**How to watch UConn vs. St. John's women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7079352/2026/03/01/uconn-vs-st-john-s-stream-how-to-watch-march-1/
+
 **How Talks Between Anthropic and the Defense Dept. Fell Apart**\
 `The Pentagon and Anthropic were close to agreeing on the use of artificial intelligence. But strong personalities, mutual dislike and a rival company unraveled a deal.`\
 https://nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079163/2026/03/01/crystal-palace-manchester-united
 **U.S.-Israeli Attacks on Iran Disrupt Shipping in the Red Sea**\
 `Though the conflict is centered on the Persian Gulf, shipping companies fear that the Iran-backed Houthi militia in Yemen could resume attacks on vessels in the Red Sea hundreds of miles to the west.`\
 https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
-
-**Iran Fires Cheap Drones Into Arab Countries, Wreaking Havoc**\
-`It already proved its effectiveness on the battlefields of Ukraine. Now the Iranian-made Shahed-136 kamikaze has been unleashed across the Arab Gulf.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-fires-drones.html
 

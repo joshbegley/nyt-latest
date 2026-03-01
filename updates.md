@@ -1,3 +1,7 @@
+**How to watch UConn vs. St. John's women's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7079352/2026/03/01/uconn-vs-st-john-s-stream-how-to-watch-march-1/
+
 **How Talks Between Anthropic and the Defense Dept. Fell Apart**\
 `The Pentagon and Anthropic were close to agreeing on the use of artificial intelligence. But strong personalities, mutual dislike and a rival company unraveled a deal.`\
 https://nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html
