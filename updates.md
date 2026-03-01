@@ -1,3 +1,7 @@
+**After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
+`The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
+https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
+
 **Iran Got Trump All Wrong**\
 `We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
 https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html

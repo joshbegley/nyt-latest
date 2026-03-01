@@ -1,3 +1,7 @@
+**After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
+`The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
+https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
+
 **Iran Got Trump All Wrong**\
 `We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
 https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-
 **Why so many footballers cover their mouths when speaking**\
 `With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
 https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
-
-**Will football's law changes really make the sport better?**\
-`VAR expansion, offside overhauls and time-wasting crackdowns promise real change. But will it be for the better?`\
-https://nytimes.com/athletic/7077851/2026/03/01/will-footballs-law-changes-really-make-the-sport-better/
 

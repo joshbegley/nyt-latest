@@ -1,3 +1,7 @@
+**Eight moments that made Burnley vs Brentford this season's most chaotic game**\
+`Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down.`\
+https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
+
 **After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
 `The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
 https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078328/2026/03/01/snl-olympic-hockey-hughes-knight
 **Trump’s War of Choice With Iran**\
 `Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
 https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
-
-**Why so many footballers cover their mouths when speaking**\
-`With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
-https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
 
