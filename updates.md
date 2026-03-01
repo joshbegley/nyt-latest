@@ -1,3 +1,7 @@
+**Liverpool have become a set-piece team. And that’s OK**\
+`They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026`\
+https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
+
 **Israel launches new military strikes as Iran retaliates after Khamenei’s killing.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/israel-launches-new-military-strikes-as-iran-retaliates-after-khameneis-killing

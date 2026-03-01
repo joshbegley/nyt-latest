@@ -1,7 +1,3 @@
-**Israel launches new military strikes as Iran retaliates after Khamenei’s killing.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/israel-launches-new-military-strikes-as-iran-retaliates-after-khameneis-killing
-
 **Would You Like to Wear Your Bed, Not Just Sleep in It?**\
 `Blanket statements were the biggest trend in Milan. Jil Sander led the way; Bottega Veneta got hairy.`\
 https://nytimes.com/2026/03/01/style/milan-fashion-week-trends.html
@@ -37,4 +33,8 @@ https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/heres-the-l
 **Live Updates: Iran Vows to Avenge Leader’s Death as Strikes Continue**\
 `U.S. and Israeli attacks entered a second day as Iran’s surviving leadership said the old guard would remain in control.`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump
+
+**Liverpool have become a set-piece team. And that’s OK**\
+`They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026`\
+https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
 
