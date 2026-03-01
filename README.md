@@ -1,3 +1,11 @@
+**Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
+`The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
+
+**Stakes Quickly Rise for U.S. in War, With 3 Service Members Killed**\
+`The grim toll signaled that Iran was more prepared for war than the Trump administration anticipated, U.S. military officials said.`\
+https://nytimes.com/2026/03/01/us/politics/iran-war-troops-deaths-casualties.html
+
 **Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
 `"How they looked at it — is ridiculous. That was malicious. It was a cheap shot," Nuggets coach David Adelman said.`\
 https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-ra
 **Aidan Miller is pain-free after back flare-up, but Phillies remain cautious**\
 `This was going to be an important spring training for Miller. Now, it's uncertain whether he'll play before the start of the regular season.`\
 https://nytimes.com/athletic/7079331/2026/03/01/aidan-miller-back-injury-phillies-prospect/
-
-**How to watch 76ers vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7079394/2026/03/01/76ers-vs-celtics-stream-how-to-watch-march-1/
-
-**How to watch Flames vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7079389/2026/03/01/flames-vs-ducks-stream-how-to-watch-march-1/
 
