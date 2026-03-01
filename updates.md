@@ -1,3 +1,7 @@
+**Flyers' long-term solution in net just might be Dan Vladar after all**\
+`Vladar came to Philadelphia for an opportunity to show he could be a No. 1 goaltender. To this point, he's played like one.`\
+https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
+
 **Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Dies at 86**\
 `As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
 https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
