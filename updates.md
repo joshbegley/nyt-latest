@@ -1,3 +1,15 @@
+**Manchester United 2 Crystal Palace 1: Sesko's starting impact, Shaw concern but up to third**\
+`Michael Carrick's side had to come from behind at Old Trafford, but they thrived and prevailed once the visitors had been reduced to 10 men`\
+https://nytimes.com/athletic/7073027/2026/03/01/manchester-united-sesko-palace-briefing/
+
+**Charles Phan’s Beloved Bò Lúc Lắc (Shaking Beef)**\
+`This savory, tangy stir-fry tastes distinctly like the sunshine state.`\
+https://nytimes.com/2026/03/01/dining/charles-phans-beloved-bo-luc-lc-shaking-beef.html
+
+**The Briefing - Fulham 2 Tottenham 1: Where does this leave Spurs? Fan reaction? Why did Wilson goal stand?**\
+`There was more VAR controversy, but also protests and anger from fans after another London derby defeat for Spurs.`\
+https://nytimes.com/athletic/7073028/2026/03/01/tottenham-tudor-wilson-dragusin/
+
 **Pentagon Announces First Three U.S. Deaths in War With Iran**\
 `U.S. Central Command did not say where the troops were killed but added that five others had been seriously wounded and that several had shrapnel injuries.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-war-us-troops-dead.html
