@@ -1,3 +1,7 @@
+**At the Pentagon, OpenAI is In and Anthropic Is Out**\
+`It’s been a crazy 48 hours in the A.I. industry.`\
+https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
+
 **Michigan's L.J. Cason out for season with torn ACL**\
 `The Wolverines sophomore was averaging 12.1 points per game over the seven games before his injury Friday night against Illinois.`\
 https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-acl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-c
 **Jon Scheyer for national coach of the year? That's how good Duke looks**\
 `Not even a top-15 team that entered 25-3 and winners of nine straight could hold a candle to the scariest team in college basketball.`\
 https://nytimes.com/athletic/7077819/2026/02/28/duke-basketball-jon-scheyer-coach-awards/
-
-**Diagramming the Blows to Iran’s Leadership**\
-`Among those killed in strikes, according to the U.S. and Israel, were Iran’s supreme leader and three of his top military commanders.`\
-https://nytimes.com/2026/02/28/world/middleeast/iran-leadership-khamenei-shamkhani-pakpour-nasirzadeh.html
 

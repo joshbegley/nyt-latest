@@ -1,3 +1,7 @@
+**Michigan's L.J. Cason out for season with torn ACL**\
+`The Wolverines sophomore was averaging 12.1 points per game over the seven games before his injury Friday night against Illinois.`\
+https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-acl/
+
 **Death of Girl From Los Angeles School Investigated as a Homicide, Police Say**\
 `The Los Angeles police did not offer details on the death of a student at Reseda High School, but a family said that a 12-year-old girl attending the school died after being struck with a water bottle.`\
 https://nytimes.com/2026/02/28/us/young-girl-water-bottle-la-homicide.html
