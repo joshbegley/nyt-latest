@@ -1,3 +1,7 @@
+**Would You Like to Wear Your Bed, Not Just Sleep in It?**\
+`Blanket statements were the biggest trend in Milan. Jil Sander led the way; Bottega Veneta got hairy.`\
+https://nytimes.com/2026/03/01/style/milan-fashion-week-trends.html
+
 **Dissecting Lamine Yamal's first career hat-trick: He is back to his peak at a decisive time**\
 `The 18-year-old has had a difficult season on and off the pitch, but he proved once again his elite level on Saturday`\
 https://nytimes.com/athletic/7078158/2026/03/01/lamine-yamal-barcelona-hat-trick/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump
 **Liverpool have become a set-piece team. And that’s OK**\
 `They arrived late to the set-piece party but Liverpool have now become the life and soul of it with nine scored in 2026`\
 https://nytimes.com/athletic/7078215/2026/03/01/liverpool-set-pieces-improvement/
-
-**Eight moments that made Burnley 3-4 Brentford this season's most chaotic game**\
-`Botched kick-offs, own goals and VAR controversy - this seven-goal thriller at Turf Moor had it all. We break it down`\
-https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-league/
 
