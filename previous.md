@@ -1,3 +1,11 @@
+**UConn women still No. 1 in updated NCAA top-16 rankings**\
+`Plus: The race between Texas and Vanderbilt for the last No. 1 seed, Minnesota's rise and the power of head-to-head matchups.`\
+https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
+
+**Aidan Miller is 'pain-free' after back flare-up, but Phillies to remain cautious**\
+`This was going to be an important spring training for Miller. Now, it's uncertain whether he'll play before the start of the regular season.`\
+https://nytimes.com/athletic/7079331/2026/03/01/aidan-miller-back-injury-phillies-prospect/
+
 **How to watch 76ers vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7079394/2026/03/01/76ers-vs-celtics-stream-how-to-watch-march-1/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.ht
 **Trump and Netanyahu Are Doing the Free World a Favor**\
 `American hearts should be moved by moments like this, when free nations band together to administer justice and supply hope.`\
 https://nytimes.com/2026/03/01/opinion/trump-netanyahu-iran-free-world.html
-
-**Ohio State WR Carnell Tate's 40-yard dash at NFL combine under dispute**\
-`Tate’s official time ranked 27th among the group of 34 participating wide receiver prospects at the NFL combine in Indianapolis.`\
-https://nytimes.com/athletic/7079130/2026/03/01/carnell-tate-40-time-nfl-combine/
-
-**The Briefing - Arsenal 2 Chelsea 1: How big a win was this for Arteta? What was Neto thinking?**\
-`Analysing the big talking points from a significant game in the title race and battle for Champions League qualification`\
-https://nytimes.com/athletic/7073030/2026/03/01/arsenal-chelsea-score-report-analysis/
 
