@@ -1,3 +1,7 @@
+**Kings fire head coach Jim Hiller and name D.J. Smith interim boss**\
+`D.J. Smith will take over behind the bench with the Kings sitting outside the playoffs.`\
+https://nytimes.com/athletic/6892153/2026/03/01/los-angeles-kings-coach-fired-jim-hiller/
+
 **Where the Strikes Leave Iranians**\
 `Iran is reeling a day after the United States and Israel carried out a large attack that killed Iran’s supreme leader, Ayatollah Ali Khamenei.`\
 https://nytimes.com/video/world/middleeast/100000010744246/life-in-iran-after-american-israeli-strikes.html
