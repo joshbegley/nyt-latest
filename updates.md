@@ -1,3 +1,15 @@
+**Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
+`"How they looked at it — is ridiculous. That was malicious. It was a cheap shot," Nuggets coach David Adelman said.`\
+https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
+
+**Strikes Destroyed Newly Built Structures at Khamenei’s Compound**\
+`Images showed new roofs and structures connecting existing buildings at the compound where Ayatollah Ali Khamenei was killed on Saturday.`\
+https://nytimes.com/2026/03/01/world/middleeast/khamenei-compound-strikes-tehran.html
+
+**Big Change Seems Certain in Iran. What Kind Is the Question.**\
+`Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
+
 **Democrats Question Trump’s Urgency to Attack Iran**\
 `Lawmakers questioned whether the United States faced an “imminent” threat from Iran, a requirement for the president to lawfully initiate military action without congressional approval.`\
 https://nytimes.com/2026/03/01/world/middleeast/democrats-question-trumps-urgency-to-attack-iran.html
