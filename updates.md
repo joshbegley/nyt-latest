@@ -1,3 +1,7 @@
+**Blue Jackets blow early lead on 3 bad-luck goals, endure tough loss to Islanders**\
+`After a 4-3 loss in overtime, the Blue Jackets now sit five points behind the Bruins for the second wild-card spot.`\
+https://nytimes.com/athletic/7078190/2026/02/28/blue-jackets-islanders-loss-goals/
+
 **Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Is Dead at 86**\
 `As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
 https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
