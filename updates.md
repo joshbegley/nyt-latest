@@ -1,3 +1,11 @@
+**Epstein’s New Mexico Ranch Gets Scrutiny at Last. It May Be Too Late.**\
+`Heinous allegations have prompted state officials to restart an inquiry, which went cold in 2019, into the convicted sex offender’s lesser-known property.`\
+https://nytimes.com/2026/03/01/us/jeffrey-epstein-new-mexico-zorro-ranch.html
+
+**Aidan Miller is pain-free after back flare-up, but Phillies remain cautious**\
+`This was going to be an important spring training for Miller. Now, it's uncertain whether he'll play before the start of the regular season.`\
+https://nytimes.com/athletic/7079331/2026/03/01/aidan-miller-back-injury-phillies-prospect/
+
 **Big Change Seems Certain in Iran. What Kind Is the Question.**\
 `Experts say that Iran’s clerical rulers may be too deeply entrenched for Iranians to topple them, and that the U.S. and Israeli strikes risk setting off deeper radicalization or violence in the country.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html

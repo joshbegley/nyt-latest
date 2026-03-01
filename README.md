@@ -10,8 +10,8 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-what-next.html
 `Officers in the Police Department’s international liaison unit, including at outposts abroad, are gathering information about potential threats to New York City.`\
 https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
 
-**UConn women still No. 1 in updated NCAA top-16 rankings**\
-`Plus: The race between Texas and Vanderbilt for the last No. 1 seed, Minnesota's rise and the power of head-to-head matchups.`\
+**Texas jumps to No. 4 as last year's Final Four lead NCAA top-16 rankings**\
+`The race between Texas and Vanderbilt for the last No. 1 seed gets interesting, Minnesota rises and the importance of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
 
 **Aidan Miller is pain-free after back flare-up, but Phillies remain cautious**\
