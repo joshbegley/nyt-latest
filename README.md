@@ -1,3 +1,19 @@
+**Why so many footballers cover their mouths when speaking**\
+`With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
+https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
+
+**Will football's law changes really make the sport better?**\
+`VAR expansion, offside overhauls and time-wasting crackdowns promise real change. But will it be for the better?`\
+https://nytimes.com/athletic/7077851/2026/03/01/will-footballs-law-changes-really-make-the-sport-better/
+
+**Jordan Pickford's wonder save shows why he so important to Everton and England**\
+`The goalkeeper's incredible stoppage-time save ensured that Everton took all three points in their quest for European qualification`\
+https://nytimes.com/athletic/7077967/2026/03/01/jordan-pickfords-wonder-save-shows-why-he-so-important-to-everton-and-england/
+
+**Arsenal vs Chelsea: Lessons from Carabao Cup? Minimum season expectations? Most important player?**\
+`Another London derby for league leaders Arsenal as they host Chelsea, who are looking to make up for their Carabao Cup semi-final defeat`\
+https://nytimes.com/athletic/7072575/2026/03/01/arsenal-chelsea-preview-premier-league/
+
 **Rayan is already one of the Premier League's most fearsome attackers**\
 `It’s not about Bournemouth discovering Rayan; it’s about them believing in him. They took the plunge — and it looks like they have a bargain`\
 https://nytimes.com/athletic/7077734/2026/03/01/rayan-bournemouth-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/01/pageoneplus/quote-of-the-day-with-packed-clubs-an
 **In Ukraine, a Community of ‘Simple Believers’ Shuns the Modern World**\
 `The Christians known as viruiuchi prostaky see electricity, cars, higher education and much else as distractions from what really matters.`\
 https://nytimes.com/2026/03/01/world/europe/ukraine-simple-believers.html
-
-**Christina Applegate Planned to Burn Her Journals. She Made a Memoir From Them Instead.**\
-`Funny, furious and profane, “You With the Sad Eyes” finds the TV star facing childhood trauma and reflecting on the limits imposed by illness.`\
-https://nytimes.com/2026/03/01/books/review/christina-applegate-memoir.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 1, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7078346/2026/03/01/connections-sports-edition-hints-answers-march-1-2026/
-
-**NBA tanking, March Madness and Angel Reese's multi-hyphenate stardom**\
-`Between trading their best players and finding creative ways to sit talent, franchises can quickly turn down seasons into disasters.`\
-https://nytimes.com/athletic/7076644/2026/03/01/nba-tanking-angel-reese-the-athletic-show/
-
-**Corrections: March 1, 2026**\
-`Corrections that appeared in print on Sunday, March 1, 2026.`\
-https://nytimes.com/2026/03/01/pageoneplus/corrections-march-1-2026.html
 

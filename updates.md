@@ -1,3 +1,15 @@
+**Rayan is already one of the Premier League's most fearsome attackers**\
+`It’s not about Bournemouth discovering Rayan; it’s about them believing in him. They took the plunge — and it looks like they have a bargain`\
+https://nytimes.com/athletic/7077734/2026/03/01/rayan-bournemouth-analysis/
+
+**The C.I.A. Helped Pinpoint a Gathering of Iranian Leaders. Then Israel Struck.**\
+`The killing of Iran’s supreme leader and other top Iranian officials came after close intelligence sharing between the United States and Israel, according to people familiar with the operation.`\
+https://nytimes.com/2026/03/01/us/politics/cia-israel-ayatollah-compound.html
+
+**Asian Cup is another opportunity for Australia to grow women's soccer. Will it stick this time?**\
+`Women's soccer has grown across the world, but 2023 World Cup host Australia is working to push past a plateau `\
+https://nytimes.com/athletic/7041606/2026/03/01/australia-women-soccer-growth-challenges/
+
 **40 Years and 10,000 Broadcasts In, They’re Still Live on Air**\
 `Rick Ardon and Susannah Carr have been delivering the news together in Western Australia since 1985 — a Guinness World Record.`\
 https://nytimes.com/2026/03/01/business/media/anchors-rick-ardon-susannah-carr-perth-australia.html
