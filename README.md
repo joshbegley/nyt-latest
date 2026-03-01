@@ -1,4 +1,4 @@
-**U.S.-Israeli Attacks on Iran Disrupts Shipping in the Red Sea**\
+**U.S.-Israeli Attacks on Iran Disrupt Shipping in the Red Sea**\
 `Though the conflict is centered on the Persian Gulf, shipping companies fear that the Iran-backed Houthi militia in Yemen could resume attacks on vessels in the Red Sea hundreds of miles to the west.`\
 https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
 
