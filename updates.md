@@ -1,3 +1,19 @@
+**Why so many footballers cover their mouths when speaking**\
+`With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
+https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
+
+**Will football's law changes really make the sport better?**\
+`VAR expansion, offside overhauls and time-wasting crackdowns promise real change. But will it be for the better?`\
+https://nytimes.com/athletic/7077851/2026/03/01/will-footballs-law-changes-really-make-the-sport-better/
+
+**Jordan Pickford's wonder save shows why he so important to Everton and England**\
+`The goalkeeper's incredible stoppage-time save ensured that Everton took all three points in their quest for European qualification`\
+https://nytimes.com/athletic/7077967/2026/03/01/jordan-pickfords-wonder-save-shows-why-he-so-important-to-everton-and-england/
+
+**Arsenal vs Chelsea: Lessons from Carabao Cup? Minimum season expectations? Most important player?**\
+`Another London derby for league leaders Arsenal as they host Chelsea, who are looking to make up for their Carabao Cup semi-final defeat`\
+https://nytimes.com/athletic/7072575/2026/03/01/arsenal-chelsea-preview-premier-league/
+
 **Rayan is already one of the Premier League's most fearsome attackers**\
 `It’s not about Bournemouth discovering Rayan; it’s about them believing in him. They took the plunge — and it looks like they have a bargain`\
 https://nytimes.com/athletic/7077734/2026/03/01/rayan-bournemouth-analysis/

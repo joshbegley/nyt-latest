@@ -1,3 +1,7 @@
+**Trump’s War of Choice With Iran**\
+`Our national security correspondent David E. Sanger examines the war of choice that President Trump has initiated with Iran.`\
+https://nytimes.com/video/us/politics/100000010744046/trumps-war-of-choice-with-iran.html
+
 **Why so many footballers cover their mouths when speaking**\
 `With ever-increasing scrutiny about their interactions, players have begun hiding even the most mundane of spoken interactions `\
 https://nytimes.com/athletic/7070779/2026/03/01/premier-league-players-covering-their-mouth/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/business/media/anchors-rick-ardon-susannah-carr-p
 **Quote of the Day: With Packed Clubs and $160 Steaks, Caracas Is Stirring Back to Life**\
 `Quotation of the Day for March 1, 2026.`\
 https://nytimes.com/2026/03/01/pageoneplus/quote-of-the-day-with-packed-clubs-and-160-steaks-caracas-is-stirring-back-to-life.html
-
-**In Ukraine, a Community of ‘Simple Believers’ Shuns the Modern World**\
-`The Christians known as viruiuchi prostaky see electricity, cars, higher education and much else as distractions from what really matters.`\
-https://nytimes.com/2026/03/01/world/europe/ukraine-simple-believers.html
 
