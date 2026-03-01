@@ -1,3 +1,7 @@
+**3 Killed in Shooting at Bar in Austin**\
+`The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
+https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
+
 **Three Are Killed in Shooting at Bar in Austin**\
 `The gunman was killed by police officers, and 14 others were hospitalized in the shooting early Sunday, officials said.`\
 https://nytimes.com/2026/03/01/us/austin-shooting-bufords-6th-street.html
