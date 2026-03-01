@@ -1,3 +1,7 @@
+**Trump and Netanyahu Are Doing the Free World a Favor**\
+`American hearts should be moved by moments like this, when free nations band together to administer justice and supply hope.`\
+https://nytimes.com/2026/03/01/opinion/trump-netanyahu-iran-free-world.html
+
 **Ohio State WR Carnell Tate's 40-yard dash at NFL combine under dispute**\
 `Tate’s official time ranked 27th among the group of 34 participating wide receiver prospects at the NFL combine in Indianapolis.`\
 https://nytimes.com/athletic/7079130/2026/03/01/carnell-tate-40-time-nfl-combine/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-fires-drones.html
 **India book England semi-final as Sanju Samson inspires historic run chase**\
 `Samson scored 97 not out out off just 50 deliveries as the holders impressively overhauled the West Indies' 195-4 with four balls to spare`\
 https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-england/
-
-**La Liga investigating incident of alleged racist abuse in Elche vs. Espanyol**\
-`Espanyol defender Omar El Hilali alleged that Elche striker Rafa Mir directed an anti-immigrant insult towards him.`\
-https://nytimes.com/athletic/7078872/2026/03/01/la-liga-alleged-racist-abuse-elche-espanyol/
 
