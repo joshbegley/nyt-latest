@@ -1,3 +1,7 @@
+**Iran Launches Retaliatory Strikes Against Israel and U.S. Bases**\
+`After a series of attacks by the United States and Israel on Saturday, Iran retaliated, striking several countries in the Middle East that host U.S. bases.`\
+https://nytimes.com/video/world/middleeast/100000010744217/iran-launches-retaliatory-strikes-against-israel-and-us-bases.html
+
 **Steve Kerr: 'Stupid mistake' discussing Kristaps Porziņģis' POTS diagnosis**\
 `The Golden State Warriors big man missed a fourth straight game Saturday, a day after Kerr expressed optimism about his return.`\
 https://nytimes.com/athletic/7078206/2026/02/28/warriors-injury-update-porzingis-illness-kerr-curry/

@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7078206/2026/02/28/warriors-injury-update-porzingis
 `Some Iranians said on social media that they were privately mourning the supreme leader. But displays of exuberance broke out in cities across the country.`\
 https://nytimes.com/2026/02/28/world/middleeast/iran-khameni-celebrations.html
 
-**Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Dies at 86**\
+**Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Is Dead at 86**\
 `As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
 https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
 

@@ -1,3 +1,7 @@
+**Iran Launches Retaliatory Strikes Against Israel and U.S. Bases**\
+`After a series of attacks by the United States and Israel on Saturday, Iran retaliated, striking several countries in the Middle East that host U.S. bases.`\
+https://nytimes.com/video/world/middleeast/100000010744217/iran-launches-retaliatory-strikes-against-israel-and-us-bases.html
+
 **Steve Kerr: 'Stupid mistake' discussing Kristaps Porziņģis' POTS diagnosis**\
 `The Golden State Warriors big man missed a fourth straight game Saturday, a day after Kerr expressed optimism about his return.`\
 https://nytimes.com/athletic/7078206/2026/02/28/warriors-injury-update-porzingis-illness-kerr-curry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-ac
 **Death of Girl From Los Angeles School Investigated as a Homicide, Police Say**\
 `The Los Angeles police did not offer details on the death of a student at Reseda High School, but a family said that a 12-year-old girl attending the school died after being struck with a water bottle.`\
 https://nytimes.com/2026/02/28/us/young-girl-water-bottle-la-homicide.html
-
-**Who Could Take Over for Ayatollah Ali Khamenei?**\
-`President Trump has declared that Iran’s supreme leader was dead. If that is true, the next question is which of his possible successors might carry on his work.`\
-https://nytimes.com/2026/02/28/world/middleeast/ali-khamenei-iran-leader-succession.html
 
