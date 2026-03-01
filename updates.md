@@ -1,3 +1,19 @@
+**In Latest Turn From Talks to War, U.S. Casts Doubt on Diplomacy**\
+`President Trump again deployed heavy force against a country with which he had been negotiating, continuing a pattern seen in previous attacks on Iran and Venezuela.`\
+https://nytimes.com/2026/03/01/us/politics/iran-nuclear-talks-war-trump-diplomacy.html
+
+**What Now in Iran?**\
+`Ayatollah Ali Khamenei is dead. Whoever takes his place will shape the Middle East’s future.`\
+https://nytimes.com/2026/03/01/world/ali-khamenei-iran-us-israel.html
+
+**How the Assault on Iran Unfolded**\
+`Despite warnings after an earlier wave of assassinations, top Iranian officials gathered in person, and Israel seized the chance to kill Iran’s supreme leader.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-israel-strikes.html
+
+**Stock Market Investors Brace for Iran War Fallout**\
+`Wall Street has largely shrugged off geopolitical upheaval in recent years. But the United States’ war against Iran comes at a more precarious time for the stock market.`\
+https://nytimes.com/2026/03/01/business/stock-market-iran-war-fallout.html
+
 **How Energy Prices Could Soar if Iran War Grinds On**\
 `Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
 https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
