@@ -1,3 +1,7 @@
+**How Talks Between Anthropic and the Defense Dept. Fell Apart**\
+`The Pentagon and Anthropic were close to agreeing on the use of artificial intelligence. But strong personalities, mutual dislike and a rival company unraveled a deal.`\
+https://nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html
+
 **Trump and Netanyahu Are Doing the Free World a Favor**\
 `American hearts should be moved by moments like this, when free nations band together to administer justice and supply hope.`\
 https://nytimes.com/2026/03/01/opinion/trump-netanyahu-iran-free-world.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/maersk-red-sea-iran-war.html
 **Iran Fires Cheap Drones Into Arab Countries, Wreaking Havoc**\
 `It already proved its effectiveness on the battlefields of Ukraine. Now the Iranian-made Shahed-136 kamikaze has been unleashed across the Arab Gulf.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-fires-drones.html
-
-**India book England semi-final as Sanju Samson inspires historic run chase**\
-`Samson scored 97 not out out off just 50 deliveries as the holders impressively overhauled the West Indies' 195-4 with four balls to spare`\
-https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-england/
 
