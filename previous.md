@@ -1,3 +1,15 @@
+**How to watch Duke vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078603/2026/03/01/duke-vs-north-carolina-stream-how-to-watch-march-1/
+
+**How to watch Texas vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078601/2026/03/01/texas-vs-alabama-stream-how-to-watch-march-1/
+
+**How to watch Ohio State vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078599/2026/03/01/ohio-state-vs-michigan-state-stream-how-to-watch-march-1/
+
 **SheBelieves Cup 2026: How to watch, who's facing the USWNT and key players to track**\
 `The U.S. looks to reclaim its SheBelieves Cup title against Canada, Colombia and Argentina. `\
 https://nytimes.com/athletic/7075388/2026/03/01/shebelieves-cup-2026-how-to-watch-whos-facing-the-uswnt-and-key-players-to-track/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/01/us/politics/texas-election-cornyn-paxton-crockett
 **What the Texas Primary Battle Means for the Midterms**\
 `The first battle of the midterm elections will be the U.S. Senate primary in Texas. Our Texas bureau chief, David Goodman, explains why Democrats and Republicans across the U.S. are watching closely to see what happens in the state.`\
 https://nytimes.com/video/us/politics/100000010736993/what-the-texas-primary-battle-means-for-the-midterms.html
-
-**Are ‘Bossware’ Tools Tracking You?**\
-`In recent years, the technologies used to surveil workers have become more sophisticated and widespread.`\
-https://nytimes.com/2026/03/01/business/bossware-work-surveillance-tools.html
-
-**For Immigrants in Detention, Spiritual Care Can Be Hard to Find**\
-`Some religious groups have sued for access, others have been denied entrance to detention facilities.`\
-https://nytimes.com/2026/03/01/us/immigrants-ice-detention-lent-ramadan.html
-
-**As the F1 Season Begins, Teams Are Still Trying to Make Sense of New Regulations**\
-`Testing has resulted in much confusion, and some drivers have been critical, including Max Verstappen.`\
-https://nytimes.com/2026/03/01/sports/f1-racing-regulations.html
 

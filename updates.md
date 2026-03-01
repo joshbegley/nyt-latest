@@ -1,3 +1,15 @@
+**How to watch Duke vs. North Carolina women's basketball: Time, TV, streaming**\
+`Find out how to watch the Duke Blue Devils play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078603/2026/03/01/duke-vs-north-carolina-stream-how-to-watch-march-1/
+
+**How to watch Texas vs. Alabama women's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078601/2026/03/01/texas-vs-alabama-stream-how-to-watch-march-1/
+
+**How to watch Ohio State vs. Michigan State women's basketball: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7078599/2026/03/01/ohio-state-vs-michigan-state-stream-how-to-watch-march-1/
+
 **SheBelieves Cup 2026: How to watch, who's facing the USWNT and key players to track**\
 `The U.S. looks to reclaim its SheBelieves Cup title against Canada, Colombia and Argentina. `\
 https://nytimes.com/athletic/7075388/2026/03/01/shebelieves-cup-2026-how-to-watch-whos-facing-the-uswnt-and-key-players-to-track/
