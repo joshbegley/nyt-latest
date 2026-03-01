@@ -7,7 +7,7 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
 https://nytimes.com/2026/03/01/us/politics/iran-war-troops-deaths-casualties.html
 
 **Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
-`"How they looked at it — is ridiculous. That was malicious. It was a cheap shot," Nuggets coach David Adelman said.`\
+`"That was malicious. It was a cheap shot," Nuggets coach David Adelman said of a flagrant foul that resulted in a Friday skirmish.`\
 https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
 
 **Strikes Destroyed Newly Built Structures at Khamenei’s Compound**\
