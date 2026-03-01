@@ -1,3 +1,15 @@
+**‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
+`Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
+
+**Music, at Least, Doesn’t Lie**\
+`In an age in which facts are losing their meaning, the performing arts can ground us in what is true.`\
+https://nytimes.com/2026/03/01/opinion/music-truth-ai-social-media.html
+
+**Dodgers players I'm watching as spring games ramp up**\
+`It may take the reigning World Series champions most of the spring to sort out their starting rotation.`\
+https://nytimes.com/athletic/7077687/2026/03/01/dodgers-blake-snell-starting-rotation-bullpen/
+
 **On ‘S.N.L.,’ the President Wishes All Who Celebrate a ‘Happy World War III’**\
 `With Connor Storrie of “Heated Rivalry” hosting, this weekend’s “Saturday Night Live” featured cameos by U.S. Olympic hockey stars.`\
 https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry-trump-world-war-iii.html

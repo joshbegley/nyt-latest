@@ -1,3 +1,15 @@
+**‘It’s Surreal’: Iranians in Disbelief After Supreme Leader Assassinated**\
+`Large crowds of people celebrated the killing of Ayatollah Ali Khamenei in American and Israeli strikes, while many others gathered to mourn.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-disbelief-khamenei-assassination.html
+
+**Music, at Least, Doesn’t Lie**\
+`In an age in which facts are losing their meaning, the performing arts can ground us in what is true.`\
+https://nytimes.com/2026/03/01/opinion/music-truth-ai-social-media.html
+
+**Dodgers players I'm watching as spring games ramp up**\
+`It may take the reigning World Series champions most of the spring to sort out their starting rotation.`\
+https://nytimes.com/athletic/7077687/2026/03/01/dodgers-blake-snell-starting-rotation-bullpen/
+
 **On ‘S.N.L.,’ the President Wishes All Who Celebrate a ‘Happy World War III’**\
 `With Connor Storrie of “Heated Rivalry” hosting, this weekend’s “Saturday Night Live” featured cameos by U.S. Olympic hockey stars.`\
 https://nytimes.com/2026/03/01/arts/television/snl-connor-storrie-heated-rivalry-trump-world-war-iii.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7078739/2026/03/01/timberwolves-vs-nuggets-stream-h
 **How to watch Blackhawks vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7078735/2026/03/01/blackhawks-vs-mammoth-stream-how-to-watch-march-1/
-
-**SailGP: Team U.S. victorious at Sydney Grand Prix to exorcise memories from 2025**\
-`Taylor Canfield’s crew did not even make it to the start line a year ago, but exploited conditions expertly this time round to pip Team GB`\
-https://nytimes.com/athletic/7078656/2026/03/01/sailgp-united-states-sydney-canfield/
-
-**Barcelona's Lewandowski sidelined with eye socket fracture**\
-`Barca said the injury will keep Lewandowski out of the Copa del Rey semi-final first leg against Atletico Madrid.`\
-https://nytimes.com/athletic/7078682/2026/03/01/robert-lewandowski-barcelona-injury-eye-fracture/
-
-**How to watch Minnesota vs. Illinois women's basketball: Time, TV, streaming**\
-`Find out how to watch the Minnesota Golden Gophers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7078723/2026/03/01/minnesota-vs-illinois-stream-how-to-watch-march-1/
 
