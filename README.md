@@ -1,3 +1,7 @@
+**Iranian Americans in L.A. Find Hope in U.S.-Israeli Strikes on Iran**\
+`Californians of Iranian descent said they welcomed the possible end of an oppressive government in Tehran that their families had fled.`\
+https://nytimes.com/2026/02/28/us/iranian-americans-los-angeles.html
+
 **At the Pentagon, OpenAI is In and Anthropic Is Out**\
 `It’s been a crazy 48 hours in the A.I. industry.`\
 https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/02/28/world/iran-strikes-trump/false-and-outdated-
 **After shootout loss, Penguins' Evgeni Malkin says no progress made in contract talks**\
 `Malkin opened up about his contract situation following a 3-2 shootout loss in New York on Saturday. `\
 https://nytimes.com/athletic/7077991/2026/02/28/penguins-evgeni-malkin-rangers-contract/
-
-**Jon Scheyer for national coach of the year? That's how good Duke looks**\
-`Not even a top-15 team that entered 25-3 and winners of nine straight could hold a candle to the scariest team in college basketball.`\
-https://nytimes.com/athletic/7077819/2026/02/28/duke-basketball-jon-scheyer-coach-awards/
 

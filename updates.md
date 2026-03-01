@@ -1,3 +1,7 @@
+**At the Pentagon, OpenAI is In and Anthropic Is Out**\
+`It’s been a crazy 48 hours in the A.I. industry.`\
+https://nytimes.com/2026/02/28/podcasts/hardfork-pentagon-anthropic-openai.html
+
 **Michigan's L.J. Cason out for season with torn ACL**\
 `The Wolverines sophomore was averaging 12.1 points per game over the seven games before his injury Friday night against Illinois.`\
 https://nytimes.com/athletic/7078136/2026/02/28/lj-cason-injury-michigan-torn-acl/
