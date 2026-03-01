@@ -1,3 +1,19 @@
+**The U.S. Released the Epstein Files. The Arrests Are Overseas.**\
+`While the latest tranche of documents about the sex offender Jeffrey Epstein has exposed a deeply American scandal, it is Europe where the aggressive enforcement is taking place.`\
+https://nytimes.com/2026/03/01/world/europe/epstein-files-arrests-europe-uk.html
+
+**It’s March. Do You Know Where Your Children Are Going to Camp?**\
+`For many New York City parents, the quest to find an affordable, convenient summer camp amounts to an unpleasant annual hazing ritual.`\
+https://nytimes.com/2026/03/01/nyregion/nyc-summer-camps.html
+
+**‘He Opened the Safe and Took Out All the Cash That Was There’**\
+`A waiter’s training takes an unlikely turn, panic on a crowded bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/01/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/01/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Farnaz Fassihi, Ronen Bergman, Zolan Kanno-Youngs and Aaron Boxerman`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/heres-the-latest
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-a
 **Iran Got Trump All Wrong**\
 `We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
 https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html
-
-**War and Peace Cannot Be Left to One Man — Especially Not This Man**\
-`The Constitution isn’t a technicality.`\
-https://nytimes.com/2026/03/01/opinion/trump-iran-congress-approval.html
-
-**In Texas, the Old, Kinder, Gentler G.O.P. Faces Its Alamo Moment**\
-`John Cornyn says his challenger doesn’t have the character to serve in the Senate. MAGA voters might not care.`\
-https://nytimes.com/2026/03/01/opinion/texas-gop-primary.html
-
-**The New York Times in Print for Sunday, March 1, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/01/todays-new-york-times
-
-**Is Craig Berube’s future with the Maple Leafs sealed?**\
-`Mired by an abysmal stretch of games, how many of the Leafs' problems are due to coaching versus talent?`\
-https://nytimes.com/athletic/7078316/2026/03/01/craig-berube-maple-leafs-fate-sealed/
 

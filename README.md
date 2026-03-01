@@ -1,3 +1,7 @@
+**Ayatollah Ali Khamenei**\
+`Mr. Khamenei became Iran’s supreme leader in 1989, wielding ultimate religious and political authority over the state and security apparatus.`\
+https://nytimes.com/2026/03/01/world/middleeast/ayatollah-ali-khamenei.html
+
 **The U.S. Released the Epstein Files. The Arrests Are Overseas.**\
 `While the latest tranche of documents about the sex offender Jeffrey Epstein has exposed a deeply American scandal, it is Europe where the aggressive enforcement is taking place.`\
 https://nytimes.com/2026/03/01/world/europe/epstein-files-arrests-europe-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7078223/2026/03/01/burnley-brentford-chaos-premier-
 **After Producers Guild Awards, Can ‘One Battle After Another’ Be Beaten?**\
 `The Paul Thomas Anderson film also took the top Directors Guild prize as well, a good sign for the movie’s best picture prospects at the Oscars.`\
 https://nytimes.com/2026/03/01/movies/one-battle-after-another-producers-guild-awards.html
-
-**Iran Got Trump All Wrong**\
-`We should not squander this moment, when Iran is uniquely weak and vulnerable and we hold all of the advantages — literally.`\
-https://nytimes.com/2026/03/01/opinion/iran-trump-bad-faith.html
 

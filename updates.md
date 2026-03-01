@@ -1,3 +1,19 @@
+**The U.S. Released the Epstein Files. The Arrests Are Overseas.**\
+`While the latest tranche of documents about the sex offender Jeffrey Epstein has exposed a deeply American scandal, it is Europe where the aggressive enforcement is taking place.`\
+https://nytimes.com/2026/03/01/world/europe/epstein-files-arrests-europe-uk.html
+
+**It’s March. Do You Know Where Your Children Are Going to Camp?**\
+`For many New York City parents, the quest to find an affordable, convenient summer camp amounts to an unpleasant annual hazing ritual.`\
+https://nytimes.com/2026/03/01/nyregion/nyc-summer-camps.html
+
+**‘He Opened the Safe and Took Out All the Cash That Was There’**\
+`A waiter’s training takes an unlikely turn, panic on a crowded bus and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/01/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/01/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Farnaz Fassihi, Ronen Bergman, Zolan Kanno-Youngs and Aaron Boxerman`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/heres-the-latest
