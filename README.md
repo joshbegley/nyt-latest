@@ -1,3 +1,7 @@
+**How Energy Prices Could Soar if Iran War Grinds On**\
+`Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
+https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
+
 **Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
 `The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/nypd-security-iran-attack.html
 **Texas jumps to No. 4 as last year's Final Four lead NCAA top-16 rankings**\
 `The race between Texas and Vanderbilt for the last No. 1 seed gets interesting, Minnesota rises and the importance of head-to-head matchups.`\
 https://nytimes.com/athletic/7079131/2026/03/01/ncaa-womens-basketball-top-16-rankings/
-
-**Aidan Miller is pain-free after back flare-up, but Phillies remain cautious**\
-`This was going to be an important spring training for Miller. Now, it's uncertain whether he'll play before the start of the regular season.`\
-https://nytimes.com/athletic/7079331/2026/03/01/aidan-miller-back-injury-phillies-prospect/
 
