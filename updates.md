@@ -1,3 +1,7 @@
+**An Iranian’s Account of the Day Khamenei Was Killed**\
+`Speaking from Iran, a 25-year-old woman recounted the mix of joy and hope that took hold after news broke that the country’s supreme leader had been killed in a series of U.S. and Israeli airstrikes.`\
+https://nytimes.com/video/world/asia/100000010745135/iran-khamenei-killing-us-israel.html
+
 **Welbeck in 'best shape ever' after winning goal vs. Forest - Hurzeler**\
 `The 35-year-old striker reached ten Premier League goals for the second season in succession.`\
 https://nytimes.com/athletic/7079017/2026/03/01/danny-welbeck-fabian-hurzeler-form/
