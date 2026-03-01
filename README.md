@@ -1,3 +1,11 @@
+**Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
+`Johnson already has familiarity with some of the Eagles' staff.`\
+https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-johnson-texans/
+
+**Penguins bounce back with conviction: 'Kind of a statement win for us'**\
+`The Penguins shut out the Pacific-leading Vegas Golden Knights 5-0 after a rough outing in New York the day before.`\
+https://nytimes.com/athletic/7079541/2026/03/01/penguins-shutout-silovs-rust-karlsson-vegas/
+
 **Ready for WBC, Byron Buxton says Twins clubhouse is in good spot**\
 `Buxton's messages to Twins teammates before he left: "Come out and challenge yourself."`\
 https://nytimes.com/athletic/7079464/2026/03/01/byron-buxton-world-baseball-classic-twins/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
 **Stakes Quickly Rise for U.S. in War, With 3 Service Members Killed**\
 `The grim toll signaled that Iran was more prepared for war than the Trump administration anticipated, U.S. military officials said.`\
 https://nytimes.com/2026/03/01/us/politics/iran-war-troops-deaths-casualties.html
-
-**Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
-`"That was malicious. It was a cheap shot," Nuggets coach David Adelman said of a flagrant foul that resulted in a Friday skirmish.`\
-https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
-
-**Strikes Destroyed Newly Built Structures at Khamenei’s Compound**\
-`Images showed new roofs and structures connecting existing buildings at the compound where Ayatollah Ali Khamenei was killed on Saturday.`\
-https://nytimes.com/2026/03/01/world/middleeast/khamenei-compound-strikes-tehran.html
 

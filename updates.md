@@ -1,3 +1,11 @@
+**How the Assault on Iran Unfolded**\
+`Despite warnings after an earlier wave of killings, top Iranian officials gathered in person, and Israel seized the chance to kill Iran’s supreme leader.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-israel-strikes.html
+
+**Stock Market Investors Brace for Iran War Repercussions**\
+`Wall Street has largely shrugged off geopolitical upheaval in recent years. But the United States’ war against Iran comes at a more precarious time for the stock market.`\
+https://nytimes.com/2026/03/01/business/stock-market-iran-war-fallout.html
+
 **Ready for WBC, Byron Buxton says Twins clubhouse is in good spot**\
 `Buxton's messages to Twins teammates before he left: "Come out and challenge yourself."`\
 https://nytimes.com/athletic/7079464/2026/03/01/byron-buxton-world-baseball-classic-twins/
