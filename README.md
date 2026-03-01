@@ -1,3 +1,7 @@
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Celebrities have begun to walk the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
+
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
 `Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
 https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/girls-school-strike-iran-video
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/business/stock-market-iran-war-fallout.html
 **How Energy Prices Could Soar if Iran War Grinds On**\
 `Prices of oil and other commodities are expected to jump when trading resumes on Sunday, but how long they will stay high will depend on what the United States, Israel and Iran do next.`\
 https://nytimes.com/2026/03/01/business/energy-environment/iran-war-oil-prices.html
-
-**Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
-`The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
 
