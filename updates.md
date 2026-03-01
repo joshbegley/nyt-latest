@@ -1,3 +1,15 @@
+**The U.S.-Israeli attacks have killed a number of Iranian leaders.**\
+`The United States and Israel killed many senior Iranian leaders in the .`\
+https://nytimes.com/live/2026/03/01/world/iran-attack-khamenei-trump/the-us-israeli-attacks-have-killed-a-number-of-iranian-leaders
+
+**The Pulse: Cardinals in the wilderness**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7078378/2026/03/01/cardinals-in-the-wilderness-plus-irans-world-cup-limbo/
+
+**Lakers blow out Warriors after pregame assist from LeBron's daughter**\
+`James said his daughter joined him this weekend on the road for the first time in his 23-year career`\
+https://nytimes.com/athletic/7078441/2026/03/01/lakers-warriors-lebron-james-zhuri-warriors-win/
+
 **What I learned about the 2026 college football season at the NFL combine**\
 `With the college football season concluding only five weeks before the combine, many draft prospects had their alma maters on their minds.`\
 https://nytimes.com/athletic/7078132/2026/03/01/nfl-combine-college-football-notes/
