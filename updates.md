@@ -1,3 +1,7 @@
+**Nuggets still upset, call Lu Dort's foul on Nikola Jokic 'malicious'**\
+`"That was malicious. It was a cheap shot," Nuggets coach David Adelman said of a flagrant foul that resulted in a Friday skirmish.`\
+https://nytimes.com/athletic/7079367/2026/03/01/nuggets-lu-dorts-malicious-foul-nikola-jokic/
+
 **Iran’s Ballistic Missile Launchers Have Been Cut by Half, Israeli Official Says**\
 `The Israeli military says it identified a significant recent acceleration in Iran’s efforts to rebuild its missile production capabilities.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-missile-launchers.html
