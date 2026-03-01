@@ -1,3 +1,7 @@
+**Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Dies at 86**\
+`As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
+https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
+
 **Flyers' long-term solution in net just might be Dan Vladar after all**\
 `The 28-year-old goalie has been stellar in net but his value to the Flyers goes beyond just his strong numbers.`\
 https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/

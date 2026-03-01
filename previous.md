@@ -1,3 +1,7 @@
+**Ayatollah Ali Khamenei, Hard-Line Cleric Who Made Iran a Regional Power, Dies at 86**\
+`As Iran’s second supreme leader, he brutally crushed dissent at home and expanded Iran’s footprint abroad, challenging Saudi Arabia for regional dominance.`\
+https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
+
 **Flyers' long-term solution in net just might be Dan Vladar after all**\
 `The 28-year-old goalie has been stellar in net but his value to the Flyers goes beyond just his strong numbers.`\
 https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/02/28/us/politics/trump-iran-attack-midterms.html
 **Trump Tells Iranians to ‘Take Over’ Their Government. But How?**\
 `President Trump’s ambiguous appeal comes after he undermined U.S.-funded media outlets that normally would have helped the administration reach people inside the country.`\
 https://nytimes.com/2026/02/28/us/politics/trump-iran-messaging-broadcasting.html
-
-**‘Mess Around and Find Out’: 4 Opinion Writers on the Khamenei Strike**\
-`How should Americans feel about the potential for regime change? What happens now?`\
-https://nytimes.com/2026/02/28/opinion/khamenei-supreme-leader-iran-dead.html
 

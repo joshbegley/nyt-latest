@@ -3,7 +3,7 @@
 https://nytimes.com/2026/02/28/world/middleeast/ayatollah-ali-khamenei-dead.html
 
 **Flyers' long-term solution in net just might be Dan Vladar after all**\
-`The 28-year-old goalie has been stellar in net but his value to the Flyers goes beyond just his strong numbers.`\
+`Vladar came to Philadelphia for an opportunity to show he could be a No. 1 goaltender. To this point, he's played like one.`\
 https://nytimes.com/athletic/7078179/2026/02/28/flyers-bruins-goalie-dan-vladar/
 
 **Shipping Traffic Through Strait of Hormuz Plummets After Attacks on Iran**\
