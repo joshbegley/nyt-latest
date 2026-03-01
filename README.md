@@ -1,3 +1,11 @@
+**Ohio State WR Carnell Tate's 40-yard dash at NFL combine under dispute**\
+`Tate’s official time ranked 27th among the group of 34 participating wide receiver prospects at the NFL combine in Indianapolis.`\
+https://nytimes.com/athletic/7079130/2026/03/01/carnell-tate-40-time-nfl-combine/
+
+**The Briefing - Arsenal 2 Chelsea 1: How big a win was this for Arteta? What was Neto thinking?**\
+`Analysing the big talking points from a significant game in the title race and battle for Champions League qualification`\
+https://nytimes.com/athletic/7073030/2026/03/01/arsenal-chelsea-score-report-analysis/
+
 **St. Louis Cardinals sign manager Oli Marmol to 2-year extension**\
 `The Cardinals have gone 325-323 over four seasons with Marmol as the team's manager.`\
 https://nytimes.com/athletic/7079114/2026/03/01/oli-marmol-cardinals-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079008/2026/03/01/india-samson-west-indies-semi-en
 **La Liga investigating incident of alleged racist abuse in Elche vs. Espanyol**\
 `Espanyol defender Omar El Hilali alleged that Elche striker Rafa Mir directed an anti-immigrant insult towards him.`\
 https://nytimes.com/athletic/7078872/2026/03/01/la-liga-alleged-racist-abuse-elche-espanyol/
-
-**Distance runner Jess McClain led off-course at U.S. Half Marathon Championships**\
-`McClain lost the opportunity for her first national championship and an automatic qualification spot for the 2026 World Championships.`\
-https://nytimes.com/athletic/7079062/2026/03/01/jess-mcclain-led-off-course-u-s-half-marathon-championships/
-
-**Do the Edmonton Oilers have enough to offer at the trade deadline?**\
-`With no cap room and a roster that has several needs, Oilers general manager Stan Bowman is in a tough spot.`\
-https://nytimes.com/athletic/7077599/2026/03/01/edmonton-oilers-trade-deadline-nhl/
 
