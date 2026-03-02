@@ -1,3 +1,7 @@
+**AP men's hoops Top 25: Duke, Arizona remain 1-2, BYU falls out for first time this season**\
+`The biggest intrigue entering March is which team will be in fourth when Selection Sunday rolls around.`\
+https://nytimes.com/athletic/7081486/2026/03/02/ap-top-25-mens-basketball-poll-duke-arizona-michigan/
+
 **Giannis listed as questionable for Bucks, could play vs. Celtics**\
 `Antetokounmpo missed all of Milwaukee’s games in February with a right calf (soleus) strain.`\
 https://nytimes.com/athletic/7081554/2026/03/02/giannis-antetokounmpo-injury-bucks-return/
