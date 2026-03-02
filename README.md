@@ -1,3 +1,7 @@
+**USWNT captain Lindsey Heaps leads team to SheBelieves Cup win, Trinity Rodman injured**\
+`Trinity Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
+https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
+
 **Chad Baker-Mazara no longer with USC basketball**\
 `Baker-Mazara appeared in 26 games this season, averaging 18.5 points, 4.2 rebounds and 2.8 assists per contest.`\
 https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
 **2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
 `Teyana Taylor, Noah Wyle and Chase Infiniti are among the arrivals at the Shrine Auditorium in Los Angeles for the Screen Actor Guild’s Actor Awards.`\
 https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
-
-**Strike on Girls’ School Kills 115, Iranian State Media Says**\
-`Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
-https://nytimes.com/2025/03/01/world/middleeast/girls-school-strike-iran-video.html
 
