@@ -1,40 +1,40 @@
-**14 Unforgettable Looks at the SAG Actor Awards**\
-`Painted torsos, tulip skirts, Jazz Age style and more.`\
-https://nytimes.com/2026/03/01/style/sag-actor-awards-looks-fashion.html
+**Breaking down Chelsea's 10 red cards: hopeless challenges, reckless elbows and last-man lunges**\
+`Pedro Neto became the ninth different Chelsea player to be sent off this season after incurring two quick bookings against Arsenal`\
+https://nytimes.com/athletic/7079410/2026/03/02/breaking-down-chelseas-10-red-cards-hopeless-challenges-reckless-elbows-and-last-man-lunges/
 
-**Iran Strikes U.S. Military Facilities Across Gulf Region**\
-`A Times analysis of satellite imagery and verified videos shows Iran found vulnerabilities in U.S. locations in the region.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-strikes-us-military-facilities.html
+**Virgil van Dijk has been available for Liverpool for 99 league games. This is how he does it**\
+`The Dutch veteran will complete the remarkable milestone if he is fit against Wolves in midweek with his professionalism setting a standard`\
+https://nytimes.com/athletic/7077793/2026/03/02/virgil-van-dijk-liverpool-100-available-slot/
 
-**Trinity Rodman leaves SheBelieves Cup match after hard foul**\
-`Coach Emma Hayes said after the game she couldn't provide an immediate update on Rodman's status.`\
-https://nytimes.com/athletic/7080197/2026/03/01/trinity-rodman-back-injury-uswnt-argentina-shebelieves-cup/
+**Tottenham have forgotten how to win football matches**\
+`The longer it is since they last won, the more distant the memory, the bigger the mental block they will have.`\
+https://nytimes.com/athletic/7072299/2026/03/02/tottenham-forgotten-how-to-win/
 
-**U.S. Takes Casualties as Attacks on Iran Intensify**\
-`The U.S. and Israel attacked Iran for a second day, and Iran retaliated, striking Israel and Persian Gulf countries. One strike killed three American service members at a base in Kuwait.`\
-https://nytimes.com/video/world/middleeast/100000010745920/iran-us-israel-attack.html
+**Afghanistan Says Pakistan Tried to Strike Prized Air Base**\
+`The Afghan military said it had thwarted a Pakistani airstrike on the former U.S. base, Bagram airfield, amid an intensifying campaign that has targeted dozens of military sites across the country.`\
+https://nytimes.com/2026/03/02/world/asia/pakistan-afghanistan-bagram-attack.html
 
-**Fighting Between Israel and Hezbollah Reignites as Iran War Expands**\
-`Beirut residents fled in panic as Israeli jets struck Hezbollah strongholds in response to a midnight barrage, an expansion of the war between Israel, the U.S. and Iran.`\
-https://nytimes.com/2026/03/01/world/middleeast/israel-strikes-beirut-hezbollah.html
+**No Corrections: March 2, 2026**\
+`No corrections appeared in print on Monday, March 2, 2026.`\
+https://nytimes.com/2026/03/02/corrections/no-corrections-march-2-2026.html
 
-**UConn completes 11th unbeaten regular season with rout of St. John's**\
-`The win marked the Huskies’ 47th straight victory, the fifth-longest winning streak in NCAA women’s basketball history.`\
-https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
+**Quote of the Day: Nostalgic Young Audience Rediscovers the iPod**\
+`Quotation of the Day for Monday, March 2, 2026.`\
+https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-nostalgic-young-audience-rediscovers-the-ipod.html
 
-**Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
-`The last-in-the-division Blues surprised the Wild with two goals late in the third period to hand Minnesota a regulation loss.`\
-https://nytimes.com/athletic/7079688/2026/03/01/wild-quinn-hughes-kaprizov-gold-medal-blues/
+**In Alysa Liu and Eileen Gu, China and America See a Mirror Image**\
+`The Olympic athletes are the subject of uncomfortable public comparisons that present online narratives that overlap more than both sides may realize.`\
+https://nytimes.com/2026/03/02/business/alysa-liu-eileen-gu-china.html
 
-**Messi's double sparks Inter Miami's furious comeback vs. Orlando City**\
-`Inter Miami came from 2-0 down to avoid a disastrous start to the club's MLS Cup title defense and instead secure three points in Orlando`\
-https://nytimes.com/athletic/7080049/2026/03/01/inter-miami-orlando-city-messi-segovia-goals-video/
+**China’s Parents Are Outsourcing the Homework Grind to A.I.**\
+`Parents in China are turning to A.I. chatbots and other tools to help their children gain an edge and ease the fighting over homework.`\
+https://nytimes.com/2026/03/02/world/asia/china-education-ai.html
 
-**Hiller firing too little, too late for Kings team with delusions of contending**\
-`While a new voice can help the Kings move on from last season's playoff disaster against the Oilers, it's shocking it took this long.`\
-https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
+**China’s New Study Buddy: The A.I. Chatbot**\
+`Parents in China are using homegrown chatbots like DeepSeek and Doubao as well as Google’s Gemini to help their children with homework and give them an academic edge.`\
+https://nytimes.com/video/world/asia/100000010707197/china-ai-chatbot-homework.html
 
-**Darius Garland to make Clippers debut Monday at Warriors**\
-`Garland was held out Sunday with the Clippers hosting the Pelicans, the first of an 18-game March schedule for Los Angeles.`\
-https://nytimes.com/athletic/7079868/2026/03/01/darius-garland-clippers-debut-warriors/
+**Connections: Sports Edition Coach: Hints and answers for March 2, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7080267/2026/03/02/connections-sports-edition-hints-answers-march-2-2026/
 
