@@ -1,3 +1,11 @@
+**American Jets Shot Down by ‘Friendly Fire’ in Kuwait**\
+`The United States Central Command said that three American fighter jets were mistakenly shot down by Kuwaiti air defenses while they were taking part in the campaign against Iran. All six crew members were safely recovered.`\
+https://nytimes.com/video/world/middleeast/100000010746791/us-jets-friendly-fire-kuwait-iran.html
+
+**Take a Walk in Your Hometown. How Would You Change the Place Where You Live?**\
+`We invite you to explore a neighborhood in your community and imagine possibilities for transformation.`\
+https://nytimes.com/2026/03/02/learning/take-a-walk-in-your-hometown-how-would-you-change-the-place-where-you-live.html
+
 **3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**\
 `Separately, a drone attack hit the U.S. Embassy compound in the Persian Gulf state, as Iran continues to target American assets across the Middle East.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html
