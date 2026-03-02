@@ -1,3 +1,7 @@
+**USMNT midfielder McKennie agrees Juventus contract extension to 2030**\
+`The 27-year-old has featured in all but one of Juventus' matches this season and started all 10 Champions League fixtures.`\
+https://nytimes.com/athletic/6884631/2026/03/02/weston-mckennie-juventus-contract-extension/
+
 **What we learned about the 49ers at the NFL combine**\
 `Big topics last week were Fernando Mendoza, Maxx Crosby's next team and the annual game of quarterback musical chairs. `\
 https://nytimes.com/athletic/7075791/2026/03/02/49ers-nfl-combine-news-updates-mac-jones/
