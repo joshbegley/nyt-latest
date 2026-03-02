@@ -1,3 +1,11 @@
+**Spurs ban three fans for Nazi salutes, handed suspended UEFA ticket sanction**\
+`UEFA have handed Tottenham a suspended sanction from selling away tickets for one of the governing body's games alongside a €30,000 fine.`\
+https://nytimes.com/athletic/7081002/2026/03/02/tottenham-fans-nazi-salutes-ban/
+
+**Elias Pettersson's benching, the fragile Canucks and the rise of Landon DuPont**\
+`Vancouver has finally arrived at the bottom. There's a cost to that, of course, but hope sits at the extremes.`\
+https://nytimes.com/athletic/7078520/2026/03/02/elias-pettersson-canucks-benched-standings-trades/
+
 **What we learned about the 49ers at the NFL combine**\
 `Big topics last week were Fernando Mendoza, Maxx Crosby's next team and the annual game of quarterback musical chairs. `\
 https://nytimes.com/athletic/7075791/2026/03/02/49ers-nfl-combine-news-updates-mac-jones/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080930/2026/03/02/college-baseball-rankings-ucla-s
 **Bengals' combine winners and losers: Arrow pointing up for Jordan Battle, B.J. Hill**\
 `T.J. Slaton and Andrei Iosivas have some questions hanging over them after last week's combine in Indianapolis.`\
 https://nytimes.com/athletic/7080422/2026/03/02/bengals-combine-winners-losers-battle-hill/
-
-**Lowetide: What would happen if the Oilers actually missed the playoffs?**\
-`A non-playoff team in Edmonton would make for a miserable summer.`\
-https://nytimes.com/athletic/7079004/2026/03/02/edmonton-oilers-nhl-standings-division-2026/
-
-**USMNT Tracker: Musah breaks four-year duck, Wright and Balogun fighting to be No 9**\
-`Will Musah's goal put him back on track for the World Cup? Wright carries on his rich vein of form, Pulisic is back in action...`\
-https://nytimes.com/athletic/7080745/2026/03/02/musah-goal-wright-balogun-usmnt/
 

@@ -1,3 +1,11 @@
+**Spurs ban three fans for Nazi salutes, handed suspended UEFA ticket sanction**\
+`UEFA have handed Tottenham a suspended sanction from selling away tickets for one of the governing body's games alongside a €30,000 fine.`\
+https://nytimes.com/athletic/7081002/2026/03/02/tottenham-fans-nazi-salutes-ban/
+
+**Elias Pettersson's benching, the fragile Canucks and the rise of Landon DuPont**\
+`Vancouver has finally arrived at the bottom. There's a cost to that, of course, but hope sits at the extremes.`\
+https://nytimes.com/athletic/7078520/2026/03/02/elias-pettersson-canucks-benched-standings-trades/
+
 **USMNT midfielder McKennie agrees Juventus contract extension to 2030**\
 `The 27-year-old has featured in all but one of Juventus' matches this season and started all 10 Champions League fixtures.`\
 https://nytimes.com/athletic/6884631/2026/03/02/weston-mckennie-juventus-contract-extension/
