@@ -1,3 +1,15 @@
+**Chow down at Cardinals games: All-you-can-eat tickets for $29**\
+`How many hot dogs can one person eat at a baseball game? St. Louis Cardinals fans will have the opportunity to find out.`\
+https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-concessions/
+
+**Track the battle to reshape the congressional maps.**\
+`By David W. Chen`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/track-the-battle-to-reshape-the-congressional-maps
+
+**Trump Signals U.S. Is Prepared for Long War Against Iran**\
+`President Trump also declined to rule out sending ground troops into Iran as the conflict spread into the Gulf countries and Lebanon and Israel exchanged strikes.`\
+https://nytimes.com/2026/03/02/world/middleeast/iran-war-us-israel-trump.html
+
 **Trump Foresees an Extended War**\
 `Also, how the U.S. decided to strike Iran. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/02/briefing/trump-iran-long-war-primary-election-season.html
