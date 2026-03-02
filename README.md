@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Christina Goldbaum, Aaron Boxerman and Yan Zhuang`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/heres-the-latest
+
+**Live Updates: War With Iran Escalates as Israel Strikes Hezbollah in Lebanon**\
+`President Trump told The New York Times that the U.S. planned to keep up the assault on Iran for “four or five weeks.” Iran fired on Israel and Arab states, and a top official said the country would not negotiate with the United States.`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/02/crosswords/spelling-bee-forum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
 **‘Vladimir,’ Plus 7 Things to Watch on TV this Week**\
 `The new limited series starring Leo Woodall and Rachel Weisz premieres, and two true-crime documentaries air.`\
 https://nytimes.com/2026/03/02/arts/television/vladimir-plus-7-watch-on-tv-this-week.html
-
-**Raya and a stunning save that brought Mikel Arteta 'back to life'**\
-`The Spanish goalkeeper is securing his side precious points in an increasingly tense title race`\
-https://nytimes.com/athletic/7079503/2026/03/02/arsenal-david-raya-save/
-
-**Manchester United are revived under Carrick as last summer's spending pays dividends**\
-`Carrick's rejuvenated team are third in the Premier League table having come a very long way in a short space of time`\
-https://nytimes.com/athletic/7067550/2026/03/02/manchester-united-carrick-fernandes-third-sesko/
 
