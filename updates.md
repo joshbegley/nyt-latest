@@ -1,3 +1,23 @@
+**Tyler Reddick becomes first NASCAR driver to win first 3 races of a season**\
+`Michael Jordan-owned 23XI Racing is off to an unbeaten start in the 2026 NASCAR Cup Series.`\
+https://nytimes.com/athletic/7079857/2026/03/01/tyler-reddick-michael-jordan-nascar-austin/
+
+**Democrats Denounce Trump’s Iran Attack, but Subtle Divisions Emerge**\
+`While most Democrats have opposed his decision, their responses reveal differences over Middle East policy and national security that loom over the party’s future.`\
+https://nytimes.com/2026/03/01/us/politics/trump-iran-attack-democratic-divisions.html
+
+**Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
+`In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
+https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
+
+**Cubs' plan for Justin Steele as they anticipate long playoff run: 'Need your best guys at the end'**\
+`In a sense, the club and the player are working backward from October.`\
+https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
+
+**USC leading scorer Chad Baker-Mazara no longer on men's basketball team**\
+`Baker-Mazara had led the Trojans in scoring after Rodney Rice went down with a season-ending injury, averaging 18.5 points per game.`\
+https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
+
 **Where the Stars Are**\
 `Leslie Benson calls it the way she sees it.`\
 https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
