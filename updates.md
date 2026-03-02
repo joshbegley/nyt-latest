@@ -1,3 +1,15 @@
+**Prestianni's Benfica career 'over' if alleged racist abuse proven - Mourinho**\
+`On Sunday, Mourinho said "there were a lot of 'ifs'" regarding what Prestianni had allegedly said to Vinicius Jr.`\
+https://nytimes.com/athletic/7080549/2026/03/02/mourinho-benfica-prestianni-vinicius/
+
+**Already Weathering a Trade War, Asia Now Faces a New Energy Threat**\
+`China and its neighbors scrambled to soften the blow of a disorderly trade war. Conflict in the Middle East threatens now threatens to disrupt the oil imports that power their economies.`\
+https://nytimes.com/2026/03/02/business/us-iran-china-japan-energy.html
+
+**The Pulse: Bracket watch (and a history lesson)**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7079877/2026/03/02/ncaa-bracket-watch-rivalries-the-pulse/
+
 **What we heard about the Bears at the NFL combine: Questions about DJ Moore**\
 `Talking to league sources during combine week, it became clear that Ben Johnson and Caleb Williams have earned respect around of the NFL.`\
 https://nytimes.com/athletic/7077301/2026/03/02/bears-combine-caleb-williams-dj-moore/

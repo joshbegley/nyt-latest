@@ -1,3 +1,15 @@
+**Arsenal set-piece coach's contract contains bonus clause for dead-ball goals**\
+`Arsenal have scored 16 goals from corners this season, the joint-most by any side in a single campaign.`\
+https://nytimes.com/athletic/7080468/2026/03/02/arsenal-set-piece-goals-nicolas-jover-contract/
+
+**The Athletic's men's hoops Top 25: Duke steady at No. 1, but Florida surges into top 5**\
+`This week's rankings include a number of teams — including Michigan and Florida — playing lineups with a ton of height. `\
+https://nytimes.com/athletic/7079793/2026/03/02/mens-college-basketball-top-25-duke-michigan-florida/
+
+**Women's basketball power rankings: Vanderbilt, Texas will fight for No. 1 seed in SEC tourney**\
+`Sabreena Merchant breaks down the top 25 in women's hoops.`\
+https://nytimes.com/athletic/7080234/2026/03/02/womens-college-basketball-power-rankings-vanderbilt-texas/
+
 **Prestianni's Benfica career 'over' if alleged racist abuse proven - Mourinho**\
 `On Sunday, Mourinho said "there were a lot of 'ifs'" regarding what Prestianni had allegedly said to Vinicius Jr.`\
 https://nytimes.com/athletic/7080549/2026/03/02/mourinho-benfica-prestianni-vinicius/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/02/podcasts/the-daily/iran-us-israel-supreme-leader.
 **What I learned about the Cowboys at the NFL combine: Edge rusher's offseason surgery**\
 `Edge rusher Donovan Ezeiruaku had surgery to repair a hip labrum injury that he played through last season.`\
 https://nytimes.com/athletic/7079535/2026/03/02/cowboys-combine-george-pickens-donovan-ezeiruaku/
-
-**What I heard about the Seahawks at the NFL combine: Bidding war for Ken Walker?**\
-`John Schneider doesn’t like tagging players, but there is a salary-range comp that could be what it takes to attain Walker’s services.`\
-https://nytimes.com/athletic/7079305/2026/03/02/seahawks-combine-ken-walker-free-agency/
-
-**Phillies' Andrew Painter, with fastball command and greater intention, is back**\
-`There was a breeziness to Sunday's spring outing that simply wasn’t present last season as Painter labored during start after start.`\
-https://nytimes.com/athletic/7079650/2026/03/02/andrew-painter-phillies-spring-training/
-
-**How years of mental training prepared me for the biggest at-bat of my life**\
-`Former MLB player Brandon Guyer changed his mindset from "don't look back" to "bring it on." It paid off in the World Series.`\
-https://nytimes.com/athletic/7078855/2026/03/02/brandon-guyer-world-series-2016-mental-training/
 
