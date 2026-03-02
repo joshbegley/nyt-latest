@@ -1,3 +1,15 @@
+**Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
+`In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
+https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
+
+**Cubs' plan for Justin Steele as they anticipate long playoff run: 'Need your best guys at the end'**\
+`In a sense, the club and the player are working backward from October.`\
+https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
+
+**USWNT captain Lindsey Heaps leads team to SheBelieves Cup win, Trinity Rodman injured**\
+`Trinity Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
+https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
+
 **Chad Baker-Mazara no longer with USC basketball**\
 `Baker-Mazara appeared in 26 games this season, averaging 18.5 points, 4.2 rebounds and 2.8 assists per contest.`\
 https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/

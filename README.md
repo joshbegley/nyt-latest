@@ -1,11 +1,3 @@
-**Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
-`In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
-https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
-
-**Cubs' plan for Justin Steele as they anticipate long playoff run: 'Need your best guys at the end'**\
-`In a sense, the club and the player are working backward from October.`\
-https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
-
 **USWNT captain Lindsey Heaps leads team to SheBelieves Cup win, Trinity Rodman injured**\
 `Trinity Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
 https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
@@ -37,4 +29,12 @@ https://nytimes.com/2026/03/01/world/middleeast/gulf-states-strikes.html
 **Trump Says He Is the ‘Least Racist’ President. But His Term Echoes a Grim Past.**\
 `Woodrow Wilson’s presidency has taken on new resonance among historians and critics of President Trump, particularly when it comes to race.`\
 https://nytimes.com/2026/03/01/us/politics/trump-racism-woodrow-wilson.html
+
+**Where the Stars Are**\
+`Leslie Benson calls it the way she sees it.`\
+https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
+
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Teyana Taylor, Noah Wyle and Chase Infiniti are among the arrivals at the Shrine Auditorium in Los Angeles for the Screen Actor Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
 
