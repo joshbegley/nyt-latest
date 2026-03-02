@@ -1,3 +1,7 @@
+**Tyler Reddick becomes first NASCAR driver to win first 3 races of a season**\
+`Michael Jordan-owned 23XI Racing is off to an unbeaten start in the 2026 NASCAR Cup Series.`\
+https://nytimes.com/athletic/7079857/2026/03/01/tyler-reddick-michael-jordan-nascar-austin/
+
 **Democrats Denounce Trump’s Iran Attack, but Subtle Divisions Emerge**\
 `While most Democrats have opposed his decision, their responses reveal differences over Middle East policy and national security that loom over the party’s future.`\
 https://nytimes.com/2026/03/01/us/politics/trump-iran-attack-democratic-divisions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/world/middleeast/iran-attacks-reaction-new-york.h
 **Screen Actors Guild’s Actor Awards Winners List: Updating Live**\
 `“One Battle After Another” and “Sinners” are facing off in the last major awards before the Oscars.`\
 https://nytimes.com/2026/03/01/movies/sag-actor-awards-complete-winners-list.html
-
-**Iranian Strikes on Gulf States Reach the Hundreds**\
-`Iran has fired nearly 400 missiles and over 800 drones across the Persian Gulf in the past two days, according to government reports.`\
-https://nytimes.com/2026/03/01/world/middleeast/gulf-states-strikes.html
 
