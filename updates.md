@@ -1,3 +1,15 @@
+**Man Is Charged With Damaging Religious Property in Chabad Crash**\
+`The charges in federal court are the latest against Dan Sohail, who is accused of ramming his car into the Brooklyn headquarters of the Jewish movement.`\
+https://nytimes.com/2026/03/02/nyregion/chabad-brooklyn-charges-car.html
+
+**Fantasy football fallout: What David Montgomery trade means for Texans, Jahmyr Gibbs**\
+`David Montgomery is headed to Houston. Jake Ciely shares his 2026 fantasy football expectations for the former Lion.`\
+https://nytimes.com/athletic/7081411/2026/03/02/fantasy-football-trade-spin-david-montgomery/
+
+**Submit a question for Eric Koreen's Raptors mailbag**\
+`Call it the race to avoid the Play-In Tournament.`\
+https://nytimes.com/athletic/7081308/2026/03/02/toronto-raptors-mailbag-regular-season-finish/
+
 **Satellite Images Show Burning Iranian Naval Ships**\
 `Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
 https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html

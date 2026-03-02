@@ -1,3 +1,15 @@
+**Qatar Says Its Air Force Shot Down Two Iranian Bomber Jets**\
+`It was the first report in this conflict of Iran attempting to attack its Persian Gulf neighbors with warplanes. The incident indicates a sharp escalation in tensions between Iran and Qatar.`\
+https://nytimes.com/2026/03/02/world/middleeast/qatar-iran-bombers-shot-down.html
+
+**Miami (Ohio) coach fined $2,500 after pushing over DJ speaker in halftime outburst**\
+`Travis Steele went viral Friday as the RedHawks improved to 29-0 (16-0 MAC), the only remaining unbeaten men's team in Division I.`\
+https://nytimes.com/athletic/7081738/2026/03/02/miami-ohio-travis-steele-technical-fine/
+
+**Madrid's Mbappe not expecting surgery on left knee injury, camp says**\
+`The 27-year-old is in Paris to have further tests on the issue but is not planning surgical intervention at this time. `\
+https://nytimes.com/athletic/7081388/2026/03/02/kylian-mbappe-real-madrid-knee-injury-update/
+
 **Man Is Charged With Damaging Religious Property in Chabad Crash**\
 `The charges in federal court are the latest against Dan Sohail, who is accused of ramming his car into the Brooklyn headquarters of the Jewish movement.`\
 https://nytimes.com/2026/03/02/nyregion/chabad-brooklyn-charges-car.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7081660/2026/03/02/falcons-mailbag-nfl-combine-free
 **'Like to give them a bump': Bruins GM Don Sweeney is hunting, preferably for a right-shot defenseman**\
 `The Bruins have played their way into the playoff hunt and Sweeney wants to reward them for it — but is keeping his eye on the future.`\
 https://nytimes.com/athletic/7081531/2026/03/02/bruins-trade-deadline-plans-don-sweeney/
-
-**Texas Holds First Elections Since Starting the Gerrymandering War**\
-`The state’s congressional map looks much different, and so do those in other states across the country.`\
-https://nytimes.com/2026/03/02/us/elections/texas-redistricting-house-map.html
-
-**After the Attack on Iran, Fear and Support**\
-`Readers debate the justification for President Trump’s decision to take military action against Iran.`\
-https://nytimes.com/2026/03/02/opinion/trump-us-iran-attack.html
-
-**Commanders inform CB Marshon Lattimore he will be released: Source**\
-`The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
-https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/
 

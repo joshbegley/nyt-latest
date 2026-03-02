@@ -1,3 +1,15 @@
+**Man Is Charged With Damaging Religious Property in Chabad Crash**\
+`The charges in federal court are the latest against Dan Sohail, who is accused of ramming his car into the Brooklyn headquarters of the Jewish movement.`\
+https://nytimes.com/2026/03/02/nyregion/chabad-brooklyn-charges-car.html
+
+**Fantasy football fallout: What David Montgomery trade means for Texans, Jahmyr Gibbs**\
+`David Montgomery is headed to Houston. Jake Ciely shares his 2026 fantasy football expectations for the former Lion.`\
+https://nytimes.com/athletic/7081411/2026/03/02/fantasy-football-trade-spin-david-montgomery/
+
+**Submit a question for Eric Koreen's Raptors mailbag**\
+`Call it the race to avoid the Play-In Tournament.`\
+https://nytimes.com/athletic/7081308/2026/03/02/toronto-raptors-mailbag-regular-season-finish/
+
 **Satellite Images Show Burning Iranian Naval Ships**\
 `Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
 https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/02/opinion/trump-us-iran-attack.html
 **Commanders inform CB Marshon Lattimore he will be released: Source**\
 `The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
 https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/
-
-**Despite Its Weakness, Hezbollah Plunges Lebanon Back Into War**\
-`The militant group’s attacks, apparently at the behest of Iran, led to retaliation from Israel and were “practically a suicide mission” for Hezbollah, an analyst said.`\
-https://nytimes.com/2026/03/02/world/middleeast/lebanon-hezbollah-israel-strikes.html
-
-**AP men's hoops Top 25: Duke, Arizona remain 1-2, BYU falls out for first time this season**\
-`The biggest intrigue entering March is which team will be in fourth when Selection Sunday rolls around.`\
-https://nytimes.com/athletic/7081486/2026/03/02/ap-top-25-mens-basketball-poll-duke-arizona-michigan/
-
-**Giannis listed as questionable for Bucks, could play vs. Celtics**\
-`Antetokounmpo missed all of Milwaukee’s games in February with a right calf (soleus) strain.`\
-https://nytimes.com/athletic/7081554/2026/03/02/giannis-antetokounmpo-injury-bucks-return/
 
