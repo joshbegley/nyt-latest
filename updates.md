@@ -1,3 +1,7 @@
+**Iran War Expands to Lebanon’s Hezbollah**\
+`Israeli strikes hit a suburb of Beirut, Lebanon, on Monday in retaliation for attacks from Hezbollah, an Iran-backed militant group.`\
+https://nytimes.com/video/world/middleeast/100000010746291/israel-strikes-beirut-hezbollah.html
+
 **The New York Times in Print for Monday, March 2, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times

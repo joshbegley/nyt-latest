@@ -1,3 +1,7 @@
+**Iran War Expands to Lebanon’s Hezbollah**\
+`Israeli strikes hit a suburb of Beirut, Lebanon, on Monday in retaliation for attacks from Hezbollah, an Iran-backed militant group.`\
+https://nytimes.com/video/world/middleeast/100000010746291/israel-strikes-beirut-hezbollah.html
+
 **The New York Times in Print for Monday, March 2, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7074341/2026/03/02/crystal-palace-guehi-lacroix-ric
 **Prescient Pep? Guardiola told us exactly how the Leeds game would pan out**\
 `The Manchester City manager anticipated how, with Erling Haaland absent, his team would need to pass their way around an intense Leeds press`\
 https://nytimes.com/athletic/7077943/2026/03/02/pep-guardiola-manchester-city-leeds-analysis/
-
-**Morgan Gibbs-White embodies the spirit Nottingham Forest need to fight relegation**\
-`New manager Vitor Pereira is trying to foster the sense of unity that has served this group of players so well in the past`\
-https://nytimes.com/athletic/7079120/2026/03/02/nottingham-forest-brighton-gibbs-white-analysis/
 
