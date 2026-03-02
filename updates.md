@@ -1,3 +1,13 @@
+**San Diego Wave signs Brazil international Portilho from Gotham**\
+`The 30-year-old NWSL Championship winner has joined on a deal to the end of the 2026 league season, with an option for an extra year. `\
+https://nytimes.com/athletic/7081172/2026/03/02/gabi-portilho-san-diego-wave-gotham-transfer/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>As we await the much-anticipated Save College Sports Roundtable, send your most pressing college football questions.</p>
+<p>Leave them here. Please include your city,</p>
+`\
+https://nytimes.com/athletic/7080370/2026/03/02/submit-a-question-for-stewart-mandels-college-football-mailbag-336/
+
 **Can Mountains of Money Save Cornyn and Lift Talarico in Texas?**\
 `The primary race for Senate in Texas has become the most expensive on record, with John Cornyn and James Talarico heavily outspending their rivals. But Mr. Cornyn seems to be in trouble.`\
 https://nytimes.com/2026/03/02/us/elections/cornyn-talarico-texas-senate-money.html
