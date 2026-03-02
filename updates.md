@@ -1,3 +1,11 @@
+**Levshunov finds his balance as Blackhawks shut out Mammoth**\
+`The young defenseman has had a great stretch of games since the Blackhawks returned from the break, and it shows on the stat sheet.`\
+https://nytimes.com/athletic/7079817/2026/03/01/blackhawks-artyom-levshunov-defenseman-stats-blashill-mammoth/
+
+**USWNT captain Lindsey Heaps leads team to 2-0 SheBelieves Cup win, Trinity Rodman injured**\
+`Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
+https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
+
 **Warriors' Steph Curry making progress in return, to be re-evaluated in 10 days**\
 `The Golden State star has been dealing with runner's knee for over a month and has not participated in a game since Jan. 30.`\
 https://nytimes.com/athletic/7079888/2026/03/01/steph-curry-injury-update-return-timetable/
