@@ -1,3 +1,11 @@
+**Antonio says he is 'praying for peace' after Al Sailiya move confirmed**\
+`The former West Ham striker has joined the Qatari side after not playing a senior game since 2024, following a single-vehicle collision.`\
+https://nytimes.com/athletic/6884378/2026/03/02/michail-antonio-al-sailiya-qatar-transfer-peace/
+
+**U.S. Military Death Toll Rises to 6**\
+`The number of U.S. service members killed in the first three days of the war grew as officials said the remains of two more troops had been recovered.`\
+https://nytimes.com/2026/03/02/world/middleeast/us-military-death-toll-iran.html
+
 **Robert Thomas to the Mammoth? Breaking down what a trade could look like for the Blues**\
 `Utah is reportedly a possible destination if the Blues trade Robert Thomas. What would the Mammoth have to send back? Would it be worth it?`\
 https://nytimes.com/athletic/7081120/2026/03/02/blues-robert-thomas-trade-mammoth-projection/
