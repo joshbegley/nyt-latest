@@ -1,3 +1,7 @@
+**How to watch Red Wings vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7080830/2026/03/02/red-wings-vs-predators-stream-how-to-watch-march-2/
+
 **Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
 `Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
 https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080696/2026/03/02/f1-australian-grand-prix-iran-co
 **Which NHL top lines have been the best and worst of the 2025-26 season?**\
 `A team's stars can't carry the rest of the roster to the same degree as the NBA, but having a great top line makes NHL life a lot easier.`\
 https://nytimes.com/athletic/7069480/2026/03/02/nhl-best-worst-first-lines/
-
-**American Jets Shot Down by ‘Friendly Fire’ in Kuwait**\
-`The United States Central Command said that three American fighter jets were mistakenly shot down by Kuwaiti air defenses while they were taking part in the campaign against Iran. All six crew members were safely recovered.`\
-https://nytimes.com/video/world/middleeast/100000010746791/us-jets-friendly-fire-kuwait-iran.html
 
