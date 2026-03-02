@@ -1,3 +1,27 @@
+**Scientists Decry ‘Political Attack’ on Reference Manual for Judges**\
+`More than two dozen contributors to the manual criticized the deletion of a chapter on climate science by the Federal Judicial Center.`\
+https://nytimes.com/2026/03/02/climate/climate-science-judges-manual.html
+
+**Spain Denies U.S. Military Use of Its Bases for Iran Attack**\
+`The leftist government in Madrid said the war against Iran violated both international law and the agreement between Spain and the United States on the use of air bases.`\
+https://nytimes.com/2026/03/02/world/middleeast/spain-denies-us-air-base.html
+
+**Behind Trump’s Reversal On Regime Change**\
+`As a candidate, Donald J. Trump criticized regime change as “a proven, absolute failure.” Now he finds himself pursuing the exact kind of regime change he once criticized. Our chief White House correspondent, Peter Baker, tracks the president’s evolution on this issue.`\
+https://nytimes.com/video/world/middleeast/100000010745457/behind-trumps-reversal-on-regime-change.html
+
+**Carolyn Bessette Kennedy’s Wardrobe Finds a New Obsessive Audience**\
+`Items worn by Ms. Kennedy, which are now on sale in an online auction, showcase her penchant for a curated, minimalist look.`\
+https://nytimes.com/2026/03/02/style/carolyn-bessette-kennedy-auction-love-story.html
+
+**Melissa Wants a Cracker**\
+`Come for the quick fish chowder. Stay for the hot butter crackers.`\
+https://nytimes.com/2026/03/02/dining/melissa-wants-a-cracker.html
+
+**Do You Know Where in the World These Books Are Set?**\
+`Test your knowledge of literature and geography with this short quiz.`\
+https://nytimes.com/interactive/2026/03/02/books/review/magical-mystery-locations.html
+
 **Here’s the latest.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/heres-the-latest
@@ -13,29 +37,4 @@ https://nytimes.com/2026/03/02/nyregion/alexanders-trial-takeaways-sex-crime.htm
 **Map: Earthquake Shakes Central California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/02/us/quake-tracker-central-california.html
-
-**The Battle for Congress Is Kicking Off. Here’s What to Know.**\
-`Primary contests in Texas could help decide control of the House and Senate in November, and North Carolina and Arkansas are also holding elections on Tuesday.`\
-https://nytimes.com/2026/03/02/us/elections/2026-midterm-elections-tx-nc-ar.html
-
-**LeBrun: Why the NHL trade deadline carries extra intrigue this year**\
-`CBA changes have made trades harder, but with a putrid UFA class this summer, teams will be looking long-term ahead of Friday's deadline.`\
-https://nytimes.com/athletic/7081021/2026/03/02/nhl-trade-deadline-intrigue-lebrun/
-
-**NBA Power Rankings: OKC back at No. 1, plus the games to circle on your calendars**\
-`Welcome to March, where we can fully focus on basketball instead of whatever we were talking about in the middle of February.`\
-https://nytimes.com/athletic/7080790/2026/03/02/nba-power-rankings-thunder-spurs-knicks-warriors/
-
-**The Bounce: Look at Nikola Jokić's vengeful eyes. Plus, Unrivaled playoffs preview**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7081065/2026/03/02/nikola-jokic-lu-dort-nuggets-thunder-the-bounce/
-
-**More Lebanese Flee Their Homes as Israel Strikes Back at Hezbollah**\
-`The three-day U.S.-Israeli war with Iran and its allies brought a new wave of displacement to war-weary Lebanon, after Israel retaliated for Hezbollah rocket attacks.`\
-https://nytimes.com/2026/03/02/world/middleeast/israel-lebanon-strikes-hezbollah-iran.html
-
-**Iranian Attacks Target Gulf Energy Infrastructure, Upping the Ante**\
-`Strikes on sites in Qatar and Saudi Arabia forced the closure of key production facilities and added to growing worries about global oil and gas supplies.`\
-https://nytimes.com/2026/03/02/world/middleeast/iranian-attacks-target-gulf-energy-infrastructure-upping-the-ante.html
 
