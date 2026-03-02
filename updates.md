@@ -1,3 +1,15 @@
+**Trump Foresees an Extended War**\
+`Also, how the U.S. decided to strike Iran. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/02/briefing/trump-iran-long-war-primary-election-season.html
+
+**Limited Number of Flights Resume From Dubai Airports**\
+`A limited number of flights at Dubai International Airport resumed on Monday night after the airport shut down because of airstrikes in the region.`\
+https://nytimes.com/video/world/middleeast/100000010747587/dubai-airports-flights-resume.html
+
+**Latest Question on Trump’s Health: What Is That Neck Rash?**\
+`President Trump’s physician did not explain what the skin condition was or what medication he was using to treat it.`\
+https://nytimes.com/2026/03/02/us/politics/trump-rash-neck.html
+
 **Rubio Warns ‘Hardest Hits’ on Iran Lie Ahead and Offers Conflicting Rationales**\
 `The secretary of state signaled that an escalation in Iran was likely and said the attacks underway were both pre-emptive and defensive, describing a far more extensive mission than was initially laid out.`\
 https://nytimes.com/2026/03/02/world/middleeast/rubio-iran-war-strikes.html
