@@ -1,3 +1,7 @@
+**Hiller firing was too little too late for a Kings team with delusions of contending**\
+`While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
+https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
+
 **Bulls score 27 straight to snap 11-game losing streak, hand Bucks deflating loss**\
 `Seven different Bucks players missed 14 consecutive shots, which included nine missed 3-point attempts and five missed 2-point field goals. `\
 https://nytimes.com/athletic/7079733/2026/03/01/bulls-bucks-score-results-takeaways-nba/

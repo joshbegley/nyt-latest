@@ -1,3 +1,7 @@
+**Hiller firing was too little too late for a Kings team with delusions of contending**\
+`While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
+https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
+
 **Darius Garland to make Clippers debut Monday at Warriors**\
 `Garland was held out Sunday with the Clippers hosting the Pelicans, the first of an 18-game March schedule for Los Angeles.`\
 https://nytimes.com/athletic/7079868/2026/03/01/darius-garland-clippers-debut-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipa
 **USWNT captain Lindsey Heaps leads team to 2-0 SheBelieves Cup win, Trinity Rodman injured**\
 `Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
 https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
-
-**USC leading scorer Chad Baker-Mazara no longer on men's basketball team**\
-`Baker-Mazara had led the Trojans in scoring after Rodney Rice went down with a season-ending injury, averaging 18.5 points per game.`\
-https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
 
