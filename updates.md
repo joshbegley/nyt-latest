@@ -1,3 +1,7 @@
+**Macron Expands French Nuclear Arsenal and Vows Protection for Neighbors**\
+`The announcement was a significant step in forging a European deterrent as Russia grows more aggressive and the U.S. steps back.`\
+https://nytimes.com/2026/03/02/world/europe/macron-expands-french-nuclear-arsenal-and-vows-protection-for-neighbors.html
+
 **He Hatched a Plot to Kill Trump on a Napkin. The F.B.I. Was Listening.**\
 `Testimony and evidence in Asif Merchant’s trial has so far portrayed him as a zealous yet bumbling operative who never came close to his mission, which prosecutors say was backed by Iran.`\
 https://nytimes.com/2026/03/02/nyregion/merchant-iran-plot-assassination-trump.html
