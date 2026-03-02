@@ -1,3 +1,11 @@
+**U.S. Sending More Forces to Middle East as Iran War Widens**\
+`Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, said more troops and fighter jets were heading to the region. He acknowledged the possibility of an extended campaign.`\
+https://nytimes.com/2026/03/02/us/politics/trump-administration-troops-iran-war.html
+
+**Two Approaches to Musical Time, From the Vienna Philharmonic**\
+`The orchestra returned to Carnegie Hall for three concerts, led by Andris Nelsons, in which the playing was inconsistent but also moving.`\
+https://nytimes.com/2026/03/02/arts/music/vienna-philharmonic-carnegie-hall.html
+
 **Fantasy baseball Zero-SP draft strategy: Starters to target in mid-to-late rounds**\
 `Michael Salfino offers some prime mid-to-late round starting pitcher targets for managers employing a Zero-SP draft strategy.`\
 https://nytimes.com/athletic/7075783/2026/03/02/fantasy-baseball-zero-sp-draft-strategy-mid-late-round-starter-targets/

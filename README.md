@@ -1,3 +1,7 @@
+**Rangers' Trocheck talks trade, leverage, landing spot**\
+`Trocheck is carrying himself with the ease of a player who’s ready to embrace whatever comes next.`\
+https://nytimes.com/athletic/7081314/2026/03/02/rangers-vincent-trocheck-trade-rumors-nhl/
+
 **U.S. Sending More Forces to Middle East as Iran War Widens**\
 `Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, said more troops and fighter jets were heading to the region. He acknowledged the possibility of an extended campaign.`\
 https://nytimes.com/2026/03/02/us/politics/trump-administration-troops-iran-war.html
@@ -16,7 +20,7 @@ https://nytimes.com/2026/03/02/us/politics/democratic-turnout-early-voting-tx.ht
 
 **Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
 `Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
-https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/natural-gas-prices-qatar-europe-asia
 
 **Serie A briefing: In a weekend of late goals, Romelu Lukaku's was the most poignant**\
 `Another dramatic round of action saw Roma squander a chance to distance Juventus in the race for a top-four finish`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/style/armani-gere-gigolo.html
 **Tigers, Red Wings introduce Detroit SportsNet as new broadcast home**\
 `Tigers and Red Wings games will be broadcast via Detroit SportsNet starting in the 2026-27 season.`\
 https://nytimes.com/athletic/7080215/2026/03/02/tigers-red-wings-detroit-sportsnet-broadcast/
-
-**The Windup: Welcome to WBC week**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7081049/2026/03/02/world-baseball-classic-mlb-survey-results-the-windup/
 
