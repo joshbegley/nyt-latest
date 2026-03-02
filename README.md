@@ -1,5 +1,5 @@
 **UConn completes 11th unbeaten regular season with rout of St. John's**\
-`The win marked the Huskies’ 47th straight victory, the fifth-longest win streak in NCAA women’s basketball history.`\
+`The win marked the Huskies’ 47th straight victory, the fifth-longest winning streak in NCAA women’s basketball history.`\
 https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
 
 **Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
