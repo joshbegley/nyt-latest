@@ -1,3 +1,15 @@
+**How to watch Iowa State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081834/2026/03/02/iowa-state-vs-arizona-stream-how-to-watch-march-2/
+
+**How to watch Detroit Mercy vs. Milwaukee women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Detroit Mercy Titans play the Milwaukee Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081832/2026/03/02/detroit-mercy-vs-milwaukee-stream-how-to-watch-march-2/
+
+**Georgia Jurors to Decide If Father’s Inaction Before a Shooting Was a Crime**\
+`Colin Gray testified that he never considered his son capable of carrying out a mass shooting at his school. Prosecutors argued that he ignored warning signs.`\
+https://nytimes.com/2026/03/02/us/georgia-school-shooting-father-trial.html
+
 **Here Are the Texas Races Where Latino Voters May Play a Critical Role**\
 `As Hispanic voters in the state have moved toward Republicans, both parties are trying to figure out the best way to appeal to them.`\
 https://nytimes.com/2026/03/02/us/elections/texas-latino-voters.html
