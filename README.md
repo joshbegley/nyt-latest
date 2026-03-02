@@ -1,3 +1,7 @@
+**Here Are the Texas Races Where Latino Voters May Play a Critical Role**\
+`As Hispanic voters in the state have moved toward Republicans, both parties are trying to figure out the best way to appeal to them.`\
+https://nytimes.com/2026/03/02/us/elections/texas-latino-voters.html
+
 **Nothing to See Here, Folks**\
 `The American public has received too little information to effectively judge the goals and objectives of the largest U.S. military operation in the Middle East in a generation.`\
 https://nytimes.com/2026/03/02/opinion/international-world/iran-hegseth-war.html
@@ -10,7 +14,7 @@ https://nytimes.com/2026/03/02/world/middleeast/qatar-iran-bombers-shot-down.htm
 `Travis Steele went viral Friday as the RedHawks improved to 29-0 (16-0 MAC), the only remaining unbeaten men's team in Division I.`\
 https://nytimes.com/athletic/7081738/2026/03/02/miami-ohio-travis-steele-technical-fine/
 
-**Madrid's Mbappe not expecting surgery on left knee injury, camp says**\
+**Madrid's Mbappe not expecting surgery on left knee injury**\
 `The 27-year-old is in Paris to have further tests on the issue but is not planning surgical intervention at this time. `\
 https://nytimes.com/athletic/7081388/2026/03/02/kylian-mbappe-real-madrid-knee-injury-update/
 
