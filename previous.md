@@ -1,3 +1,23 @@
+**What we learned about the 49ers at the NFL combine**\
+`Big topics last week were Fernando Mendoza, Maxx Crosby's next team and the annual game of quarterback musical chairs. `\
+https://nytimes.com/athletic/7075791/2026/03/02/49ers-nfl-combine-news-updates-mac-jones/
+
+**States Move to Limit Access to H.I.V. Treatment**\
+`Citing shortfalls in federal support, about 20 states are toughening eligibility requirements for patients in drug assistance programs.`\
+https://nytimes.com/2026/03/02/health/hiv-drugs-ryan-white.html
+
+**Rosenior warns Chelsea players will be dropped for poor discipline**\
+`Pedro Neto became the ninth different member of Chelsea’s squad to be sent off this season in Sunday's defeat at Arsenal.`\
+https://nytimes.com/athletic/7080993/2026/03/02/chelsea-red-cards-rosenior-selection/
+
+**USMNT midfielder McKennie agrees Juventus contract extension until 2030**\
+`The 27-year-old has featured in all but one of Juventus' matches this season and started all 10 Champions League fixtures.`\
+https://nytimes.com/athletic/6884631/2026/03/02/weston-mckennie-juventus-contract-extension/
+
+**NBA Rewind: Why No. 3 is the place to be for Western Conference playoff hopefuls**\
+`Who's hot (Spurs, Hawks) and not (Bulls, Blazers) this week in the NBA. Plus, how widespread tanking affects contending teams.`\
+https://nytimes.com/athletic/7048281/2026/03/02/nba-rewind-western-conference-playoff-picture/
+
 **Sales of Heavy Equipment Fall Under Tariff Pressures**\
 `An industry report shows high interest rates, fewer infrastructure projects and tariffs pressures have slowed growth and decreased jobs in the sector.`\
 https://nytimes.com/2026/03/02/business/manufacturing-equipment-tariffs.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7079004/2026/03/02/edmonton-oilers-nhl-standings-di
 **USMNT Tracker: Musah breaks four-year duck, Wright and Balogun fighting to be No 9**\
 `Will Musah's goal put him back on track for the World Cup? Wright carries on his rich vein of form, Pulisic is back in action...`\
 https://nytimes.com/athletic/7080745/2026/03/02/musah-goal-wright-balogun-usmnt/
-
-**Airline Stocks Tumble as Iran War Expands Across Middle East**\
-`Higher fuel prices and lower demand for international flights are eating into airlines’ profits.`\
-https://nytimes.com/2026/03/02/business/airline-stocks-iran-attacks.html
-
-**How to Vote in the March 3 Primary in Texas**\
-`The primaries in the race for a U.S. Senate seat will be closely watched on Tuesday.`\
-https://nytimes.com/2026/03/02/us/elections/texas-how-to-vote.html
-
-**Bundesliga Briefing: Thioune lifts Bremen, patience a virtue at St. Pauli and Dortmund's identity crisis**\
-`Werder Bremen's 13-game winless run is over and St Pauli's faith in Alexander Blessin is being rewarded. Oh, Bayern are 11 points clear`\
-https://nytimes.com/athletic/7080512/2026/03/02/bundesliga-thioune-bremen-st-pauli-dortmund/
-
-**College baseball week in review: UCLA's Gasparino continues early-season tear**\
-`Clemson wins an eventful series against South Carolina. Florida beats Miami … again. Ranked teams struggled in midweek action.`\
-https://nytimes.com/athletic/7079936/2026/03/02/college-baseball-ucla-will-gasparino-clemson-south-carolina/
-
-**Bengals re-signing veteran guard Dalton Risner**\
-`Cincinnati keeps its offensive line intact by bringing back the right guard.`\
-https://nytimes.com/athletic/7080854/2026/03/02/bengals-dalton-risner-signing/
 

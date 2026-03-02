@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/02/health/hiv-drugs-ryan-white.html
 `Pedro Neto became the ninth different member of Chelsea’s squad to be sent off this season in Sunday's defeat at Arsenal.`\
 https://nytimes.com/athletic/7080993/2026/03/02/chelsea-red-cards-rosenior-selection/
 
-**USMNT midfielder McKennie agrees Juventus contract extension until 2030**\
+**USMNT midfielder McKennie agrees Juventus contract extension to 2030**\
 `The 27-year-old has featured in all but one of Juventus' matches this season and started all 10 Champions League fixtures.`\
 https://nytimes.com/athletic/6884631/2026/03/02/weston-mckennie-juventus-contract-extension/
 
