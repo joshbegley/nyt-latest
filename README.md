@@ -1,3 +1,7 @@
+**NHL trade grades: Connor Murphy worth the price to improve Oilers' blue line, penalty kill**\
+`The Blackhawks also did well to get a second-round pick for the 32-year-old defenseman.`\
+https://nytimes.com/athletic/7081953/2026/03/02/nhl-trade-grades-connor-murphy-oilers-blackhawks/
+
 **Judge: Exec can work at Spire while Joe Gibbs Racing lawsuit unfolds**\
 `The ongoing legal saga between JGR and its former competition director continued Monday in a North Carolina courtroom.`\
 https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports-joe-gibbs-racing/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/travel/dubai-travelers-stuck-iran-war.html
 **Meeting on U.S. Measles Status Is Delayed Until November**\
 `The decision to revoke the country’s elimination status would now likely come after the U.S. midterm elections, experts noted.`\
 https://nytimes.com/2026/03/02/well/measles-elimination-status-us.html
-
-**‘Bigfoot!’ Review: An Ogre Who Just Wants to Be Friends**\
-`The new musical from the comedian Amber Ruffin has a wholesome moral and silliness in spades.`\
-https://nytimes.com/2026/03/02/theater/bigfoot-review-amber-ruffin.html
 
