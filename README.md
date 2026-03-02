@@ -1,3 +1,7 @@
+**The Pulse: Bracket watch (and a history lesson)**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7079877/2026/03/02/ncaa-bracket-watch-rivalries-the-pulse/
+
 **What we heard about the Bears at the NFL combine: Questions about DJ Moore**\
 `Talking to league sources during combine week, it became clear that Ben Johnson and Caleb Williams have earned respect around of the NFL.`\
 https://nytimes.com/athletic/7077301/2026/03/02/bears-combine-caleb-williams-dj-moore/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080012/2026/03/02/freddy-peralta-new-york-mets-con
 **Inside a wild week for the U.S. men's hockey team: From Olympic gold to the White House to 'SNL'**\
 `The afterglow of the men’s gold quickly devolved into a political firestorm, one that stretched from Milan to the U.S. Capitol and beyond.`\
 https://nytimes.com/athletic/7079069/2026/03/02/usa-hockey-mens-olympics-trump-white-house-snl/
-
-**How good is each defenseman available on the 2026 trade board?**\
-`Plenty of playoff hopefuls are on the hunt for blue-line help at the deadline. Here's what different players on the market can offer.`\
-https://nytimes.com/athletic/7076274/2026/03/02/nhl-trade-board-2026-deadline-defensemen-analytics/
 
