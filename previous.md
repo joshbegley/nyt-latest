@@ -1,3 +1,7 @@
+**Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
+`Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
+https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
+
 **The truth about World Cup ticket demand – and why USMNT's opener still hasn't sold out**\
 `FIFA's unexpected sales window raised plenty of questions but also hinted at some realities about the ticketing situation this summer`\
 https://nytimes.com/athletic/7080325/2026/03/02/fifa-world-cup-ticket-surprise-window-demand-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7069480/2026/03/02/nhl-best-worst-first-lines/
 **American Jets Shot Down by ‘Friendly Fire’ in Kuwait**\
 `The United States Central Command said that three American fighter jets were mistakenly shot down by Kuwaiti air defenses while they were taking part in the campaign against Iran. All six crew members were safely recovered.`\
 https://nytimes.com/video/world/middleeast/100000010746791/us-jets-friendly-fire-kuwait-iran.html
-
-**Take a Walk in Your Hometown. How Would You Change the Place Where You Live?**\
-`We invite you to explore a neighborhood in your community and imagine possibilities for transformation.`\
-https://nytimes.com/2026/03/02/learning/take-a-walk-in-your-hometown-how-would-you-change-the-place-where-you-live.html
 

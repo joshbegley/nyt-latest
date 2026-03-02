@@ -1,3 +1,7 @@
+**Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
+`Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
+https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
+
 **The truth about World Cup ticket demand – and why USMNT's opener still hasn't sold out**\
 `FIFA's unexpected sales window raised plenty of questions but also hinted at some realities about the ticketing situation this summer`\
 https://nytimes.com/athletic/7080325/2026/03/02/fifa-world-cup-ticket-surprise-window-demand-usmnt/
