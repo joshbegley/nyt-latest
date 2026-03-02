@@ -1,3 +1,11 @@
+**More Lebanese Flee Their Homes as Israel Strikes Back at Hezbollah**\
+`The three-day U.S.-Israeli war with Iran and its allies brought a new wave of displacement to war-weary Lebanon, after Israel retaliated for Hezbollah rocket attacks.`\
+https://nytimes.com/2026/03/02/world/middleeast/israel-lebanon-strikes-hezbollah-iran.html
+
+**Iranian Attacks Target Gulf Energy Infrastructure, Upping the Ante**\
+`Strikes on sites in Qatar and Saudi Arabia forced the closure of key production facilities and added to growing worries about global oil and gas supplies.`\
+https://nytimes.com/2026/03/02/world/middleeast/iranian-attacks-target-gulf-energy-infrastructure-upping-the-ante.html
+
 **Spurs ban three fans for Nazi salutes, handed suspended UEFA ticket sanction**\
 `UEFA have handed Tottenham a suspended sanction from selling away tickets for one of the governing body's games alongside a €30,000 fine.`\
 https://nytimes.com/athletic/7081002/2026/03/02/tottenham-fans-nazi-salutes-ban/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7048281/2026/03/02/nba-rewind-western-conference-pl
 **Sales of Heavy Equipment Fall Under Tariff Pressures**\
 `An industry report shows high interest rates, fewer infrastructure projects and tariffs pressures have slowed growth and decreased jobs in the sector.`\
 https://nytimes.com/2026/03/02/business/manufacturing-equipment-tariffs.html
-
-**The Athletic college baseball Top 25: UCLA reclaims top spot, USC enters poll**\
-`Southern Miss jumps five spots after sweeping Louisiana Tech on the road. Vanderbilt drops out after losing three games in Las Vegas.`\
-https://nytimes.com/athletic/7080930/2026/03/02/college-baseball-rankings-ucla-southern-miss-lsu/
-
-**Bengals' combine winners and losers: Arrow pointing up for Jordan Battle, B.J. Hill**\
-`T.J. Slaton and Andrei Iosivas have some questions hanging over them after last week's combine in Indianapolis.`\
-https://nytimes.com/athletic/7080422/2026/03/02/bengals-combine-winners-losers-battle-hill/
 

@@ -1,3 +1,11 @@
+**More Lebanese Flee Their Homes as Israel Strikes Back at Hezbollah**\
+`The three-day U.S.-Israeli war with Iran and its allies brought a new wave of displacement to war-weary Lebanon, after Israel retaliated for Hezbollah rocket attacks.`\
+https://nytimes.com/2026/03/02/world/middleeast/israel-lebanon-strikes-hezbollah-iran.html
+
+**Iranian Attacks Target Gulf Energy Infrastructure, Upping the Ante**\
+`Strikes on sites in Qatar and Saudi Arabia forced the closure of key production facilities and added to growing worries about global oil and gas supplies.`\
+https://nytimes.com/2026/03/02/world/middleeast/iranian-attacks-target-gulf-energy-infrastructure-upping-the-ante.html
+
 **Spurs ban three fans for Nazi salutes, handed suspended UEFA ticket sanction**\
 `UEFA have handed Tottenham a suspended sanction from selling away tickets for one of the governing body's games alongside a €30,000 fine.`\
 https://nytimes.com/athletic/7081002/2026/03/02/tottenham-fans-nazi-salutes-ban/
