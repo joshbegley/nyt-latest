@@ -1,3 +1,15 @@
+**Submit a question for James Edwards' Knicks mailbag**\
+`The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
+https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
+
+**Defense Officials Give No Timeline for War in Iran as U.S. Boosts Forces**\
+`At a Pentagon news conference, top defense officials said that the U.S. military was sending more forces to the Middle East and expects to “take additional losses.” Earlier, President Trump said that the U.S. could continue striking Iran for the next four to five weeks.`\
+https://nytimes.com/video/us/politics/100000010747186/trump-administration-iran-war-troops-timeline.html
+
+**Austin Shooting Stokes Anti-Islam Speech Among Texas Conservatives**\
+`With primaries on Tuesday, politicians quickly cited the attack in their campaign messaging. Some Republicans called for stopping immigration, while Democrats called for gun control.`\
+https://nytimes.com/2026/03/02/us/austin-shooting-politics.html
+
 **Reporters Seek Comment. What Happens Next May Surprise You.**\
 `Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
 https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/02/health/kennedy-maha-vaccines.html
 **Attacks on Iran Heighten Fears in Cuba, Already Under U.S. Pressure**\
 `Many Cubans are wondering if the Trump administration plans to target their country’s Communist government next.`\
 https://nytimes.com/2026/03/02/world/americas/iran-attacks-cuba-trump.html
-
-**So Arsenal's set-piece coach gets a goal bonus? Welcome to the age of the set piece**\
-`The news Arsenal's set-piece coach is rewarded specifically for goals from dead-ball situations underlines their importance`\
-https://nytimes.com/athletic/7080619/2026/03/02/nicolas-jover-age-of-set-piece-arsenal/
-
-**Dubai Says ‘Limited’ Flights Will Resume From Its Airports**\
-`Emirates and FlyDubai said they would make a small number of flights to and from Dubai starting Monday night after shutting down because of airstrikes in the region.`\
-https://nytimes.com/2026/03/02/world/middleeast/dubai-flights.html
-
-**Latino Democrats Fight to Fend Off Upstart Challengers**\
-`The Congressional Hispanic Caucus is defending four key incumbents in primary races centered on how aggressively Democrats are combating ICE and President Trump.`\
-https://nytimes.com/2026/03/02/us/politics/latino-democrats-primary-elections.html
 

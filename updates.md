@@ -1,3 +1,11 @@
+**Reporters Seek Comment. What Happens Next May Surprise You.**\
+`Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
+https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html
+
+**One Victim of the Austin Bar Shooting Was a 19-Year-Old College Student**\
+`Ryder Harrington, a student at Texas Tech University who was from Austin, was confirmed dead by his father on Monday. The shooting is being investigated as a possible act of terrorism.`\
+https://nytimes.com/2026/03/02/us/austin-bar-shooting-victims.html
+
 **The attack on Iran prompted swift responses from candidates with primaries looming.**\
 `By Tim Balk`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-attack-on-iran-prompted-swift-responses-from-candidates-with-primaries-looming
