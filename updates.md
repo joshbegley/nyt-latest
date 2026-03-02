@@ -1,3 +1,7 @@
+**Germany’s Chancellor Is in Washington. It Gets Worse.**\
+`Friedrich Merz’s chancellorship is in choppy waters.`\
+https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
+
 **What happens if Iran do not play at the World Cup?**\
 `Explaining the possible fallout if Iran were not to take up their place at the tournament this summer - and who could replace them`\
 https://nytimes.com/athletic/7079584/2026/03/02/iran-world-cup-fifa-withdrawal/
