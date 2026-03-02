@@ -1,3 +1,11 @@
+**Darius Garland to make Clippers debut Monday at Warriors**\
+`Garland was held out Sunday with the Clippers hosting the Pelicans, the first of an 18-game March schedule for Los Angeles.`\
+https://nytimes.com/athletic/7079868/2026/03/01/darius-garland-clippers-debut-warriors/
+
+**Bulls score 27 straight to hand Bucks deflating road loss**\
+`Seven different Bucks players missed 14 consecutive shots, which included nine missed 3-point attempts and five missed 2-point field goals. `\
+https://nytimes.com/athletic/7079733/2026/03/01/bulls-bucks-score-results-takeaways-nba/
+
 **Levshunov finds his balance as Blackhawks shut out Mammoth**\
 `The young defenseman has had a great stretch of games since the Blackhawks returned from the break, and it shows on the stat sheet.`\
 https://nytimes.com/athletic/7079817/2026/03/01/blackhawks-artyom-levshunov-defenseman-stats-blashill-mammoth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-
 **USC leading scorer Chad Baker-Mazara no longer on men's basketball team**\
 `Baker-Mazara had led the Trojans in scoring after Rodney Rice went down with a season-ending injury, averaging 18.5 points per game.`\
 https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
-
-**Shane Lowry's late tailspin gives Nico Echavarria the Cognizant Classic win**\
-`Lowry double-bogeyed the 16th and 17th holes to lose a three-shot lead.`\
-https://nytimes.com/athletic/7079598/2026/03/01/shane-lowry-nico-echavarria-cognizant-classic/
-
-**10-Minute Challenge: Klimt’s Woman in Gold**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2026/03/01/upshot/ten-minute-challenge-klimt.html
 
