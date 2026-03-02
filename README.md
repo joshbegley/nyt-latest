@@ -1,3 +1,7 @@
+**For James Wiseman, FIBA World Cup qualifying is a chance to show resilience**\
+`Wiseman, taken second overall by the Warriors in the 2020 draft, had an injury-riddled NBA career after only playing three games in college.`\
+https://nytimes.com/athletic/7080306/2026/03/02/usa-basketball-james-wiseman-nba-return-hopes/
+
 **Less is more for Mookie Betts: Dodgers shortstop expects to return to MVP form**\
 `Forced to confront a slump, Betts figured out a better mental approach: "I was able to get in the right headspace and stay there."`\
 https://nytimes.com/athletic/7079643/2026/03/02/dodgers-mookie-betts-spring-training-2/
@@ -22,7 +26,7 @@ https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-ca
 `FIFA's unexpected sales window raised plenty of questions but also hinted at some realities about the ticketing situation this summer`\
 https://nytimes.com/athletic/7080325/2026/03/02/fifa-world-cup-ticket-surprise-window-demand-usmnt/
 
-**How Rosenior rotated Chelsea's midfield to cause Arsenal problems - and how Arteta adapted**\
+**How Rosenior rotated Chelsea's midfield to cause Arsenal problems – and how Arteta adapted**\
 `Cole Palmer and Enzo Fernandez initially had Martin Zubimendi chasing shadows but couldn't capitalise on Arsenal's confusion`\
 https://nytimes.com/athletic/7080597/2026/03/02/chelsea-rosenior-tactics-arsenal-arteta/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/arts/pokemon-pokopia-review.html
 **Inside Barcelona: Can Lamine Yamal and Pedri inspire another crazy comeback?**\
 `After Barcelona's resounding victory over Villarreal on Saturday, attention turned to Tuesday's visit of Atletico Madrid`\
 https://nytimes.com/athletic/7080667/2026/03/02/barcelona-atletico-yamal-pedri-laporta/
-
-**The Costs of the Strikes on Iran**\
-`Rising oil prices, volatile stocks and potentially higher inflation are all weighing on investors’ minds as the military campaign continues.`\
-https://nytimes.com/2026/03/02/business/dealbook/iran-strikes-oil-inflation.html
 

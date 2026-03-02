@@ -1,3 +1,19 @@
+**Less is more for Mookie Betts: Dodgers shortstop expects to return to MVP form**\
+`Forced to confront a slump, Betts figured out a better mental approach: "I was able to get in the right headspace and stay there."`\
+https://nytimes.com/athletic/7079643/2026/03/02/dodgers-mookie-betts-spring-training-2/
+
+**What I heard about Eagles at combine: A.J. Brown price, DeVonta Smith breakout, NFLPA grades**\
+`The Eagles should have left Indianapolis with a better sense of A.J. Brown's market.`\
+https://nytimes.com/athletic/7079737/2026/03/02/eagles-nfl-combine-aj-brown-devonta-smith-nflpa-grades/
+
+**Houston Texans trade Tytus Howard to Cleveland Browns: Sources**\
+`Cleveland will send a fifth-round pick in return for the 29-year-old, who has started 16 games in each of the past two seasons.`\
+https://nytimes.com/athletic/7080802/2026/03/02/texans-trade-tytus-howard-browns/
+
+**How to watch Red Wings vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7080830/2026/03/02/red-wings-vs-predators-stream-how-to-watch-march-2/
+
 **Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
 `Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
 https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7080667/2026/03/02/barcelona-atletico-yamal-pedri-l
 **The Costs of the Strikes on Iran**\
 `Rising oil prices, volatile stocks and potentially higher inflation are all weighing on investors’ minds as the military campaign continues.`\
 https://nytimes.com/2026/03/02/business/dealbook/iran-strikes-oil-inflation.html
-
-**The Verdict: Michael Bradley's Baby Bulls are stealing the early MLS spotlight**\
-`Teenage talent and a first-year head coach with plenty of pedigree has Red Bull New York turning heads after two weeks`\
-https://nytimes.com/athletic/7079450/2026/03/02/red-bull-new-york-hall-mehmeti-teenagers-michael-bradley-mls/
-
-**F1 chartering flights to ensure key staff arrive at Australian GP on time**\
-`The fallout from the U.S.-Israeli strikes on Iran on Saturday is disrupting travel in the Middle East, a major global transport hub.`\
-https://nytimes.com/athletic/7080696/2026/03/02/f1-australian-grand-prix-iran-conflict/
-
-**Which NHL top lines have been the best and worst of the 2025-26 season?**\
-`A team's stars can't carry the rest of the roster to the same degree as the NBA, but having a great top line makes NHL life a lot easier.`\
-https://nytimes.com/athletic/7069480/2026/03/02/nhl-best-worst-first-lines/
-
-**American Jets Shot Down by ‘Friendly Fire’ in Kuwait**\
-`The United States Central Command said that three American fighter jets were mistakenly shot down by Kuwaiti air defenses while they were taking part in the campaign against Iran. All six crew members were safely recovered.`\
-https://nytimes.com/video/world/middleeast/100000010746791/us-jets-friendly-fire-kuwait-iran.html
 

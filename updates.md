@@ -1,3 +1,19 @@
+**Less is more for Mookie Betts: Dodgers shortstop expects to return to MVP form**\
+`Forced to confront a slump, Betts figured out a better mental approach: "I was able to get in the right headspace and stay there."`\
+https://nytimes.com/athletic/7079643/2026/03/02/dodgers-mookie-betts-spring-training-2/
+
+**What I heard about Eagles at combine: A.J. Brown price, DeVonta Smith breakout, NFLPA grades**\
+`The Eagles should have left Indianapolis with a better sense of A.J. Brown's market.`\
+https://nytimes.com/athletic/7079737/2026/03/02/eagles-nfl-combine-aj-brown-devonta-smith-nflpa-grades/
+
+**Houston Texans trade Tytus Howard to Cleveland Browns: Sources**\
+`Cleveland will send a fifth-round pick in return for the 29-year-old, who has started 16 games in each of the past two seasons.`\
+https://nytimes.com/athletic/7080802/2026/03/02/texans-trade-tytus-howard-browns/
+
+**How to watch Red Wings vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7080830/2026/03/02/red-wings-vs-predators-stream-how-to-watch-march-2/
+
 **Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
 `Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
 https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
