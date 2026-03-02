@@ -1,3 +1,27 @@
+**Bengals re-signing veteran guard Dalton Risner**\
+`Cincinnati keeps its offensive line intact by bringing back the right guard.`\
+https://nytimes.com/athletic/7080854/2026/03/02/bengals-dalton-risner-signing/
+
+**The Pentagon’s Favorite Tech Guy Is This Hawaiian Shirt-Wearing Founder**\
+`Palmer Luckey, who founded the defense tech start-up Anduril, has become the It Guy as President Trump aims to modernize the U.S. military with autonomous weapons.`\
+https://nytimes.com/2026/03/02/technology/pentagon-anduril-palmer-luckey.html
+
+**Challenge accepted: Giants catcher Patrick Bailey plans to boost his value this season**\
+`Bailey is the two-time reigning NL Gold Glove winner. Now, he wants to raise the bar as a hitter.`\
+https://nytimes.com/athletic/7080194/2026/03/02/giants-catcher-patrick-bailey-spring-training/
+
+**Tottenham players facing wage cuts should club be relegated**\
+`Spurs are currently 16th in the Premier League, only four points above the relegation zone with 10 games left.`\
+https://nytimes.com/athletic/7080564/2026/03/02/tottenham-relegation-clauses-player-contracts/
+
+**Premier League deletes social media post mocking Spurs' Vicario**\
+`The League shared the clip of Vicario hoofing a free-kick from his own half straight out of play during Spurs' 2-1 defeat at Fulham.`\
+https://nytimes.com/athletic/7080577/2026/03/02/premier-league-delete-tweet-spurs-tottenham-vicario/
+
+**In This Novel, an Island Is a Petri Dish for Humanity**\
+`“Field Notes From an Extinction,” by Eoghan Walls, follows a naturalist who wants to study birds but ends up with a much harder task.`\
+https://nytimes.com/2026/03/02/books/review/eoghan-walls-field-notes-from-an-extinction.html
+
 **Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
 `Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-trump-war-goals.html
