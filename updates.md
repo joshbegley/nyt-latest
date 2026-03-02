@@ -1,3 +1,7 @@
+**Top Iranian Security Official Calls Trump War Aims ‘Delusional’**\
+`Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
+https://nytimes.com/2026/03/02/world/middleeast/iran-trump-war-goals.html
+
 **What to Know About the Widening Fallout From the Bombing of Iran**\
 `The Middle East is facing deaths and destruction as Iran retaliates against a huge American-Israeli military campaign.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-attacks-damage-what-to-know.html
