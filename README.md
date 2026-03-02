@@ -1,3 +1,11 @@
+**Sales of Heavy Equipment Fall Under Tariff Pressures**\
+`An industry report shows high interest rates, fewer infrastructure projects and tariffs pressures have slowed growth and decreased jobs in the sector.`\
+https://nytimes.com/2026/03/02/business/manufacturing-equipment-tariffs.html
+
+**The Athletic college baseball Top 25: UCLA reclaims top spot, USC enters poll**\
+`Southern Miss jumps five spots after sweeping Louisiana Tech on the road. Vanderbilt drops out after losing three games in Las Vegas.`\
+https://nytimes.com/athletic/7080930/2026/03/02/college-baseball-rankings-ucla-southern-miss-lsu/
+
 **Bengals' combine winners and losers: Arrow pointing up for Jordan Battle, B.J. Hill**\
 `T.J. Slaton and Andrei Iosivas have some questions hanging over them after last week's combine in Indianapolis.`\
 https://nytimes.com/athletic/7080422/2026/03/02/bengals-combine-winners-losers-battle-hill/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079936/2026/03/02/college-baseball-ucla-will-gaspa
 **Bengals re-signing veteran guard Dalton Risner**\
 `Cincinnati keeps its offensive line intact by bringing back the right guard.`\
 https://nytimes.com/athletic/7080854/2026/03/02/bengals-dalton-risner-signing/
-
-**The Pentagon’s Favorite Tech Guy Is This Hawaiian Shirt-Wearing Founder**\
-`Palmer Luckey, who founded the defense tech start-up Anduril, has become the It Guy as President Trump aims to modernize the U.S. military with autonomous weapons.`\
-https://nytimes.com/2026/03/02/technology/pentagon-anduril-palmer-luckey.html
-
-**Challenge accepted: Giants catcher Patrick Bailey plans to boost his value this season**\
-`Bailey is the two-time reigning NL Gold Glove winner. Now, he wants to raise the bar as a hitter.`\
-https://nytimes.com/athletic/7080194/2026/03/02/giants-catcher-patrick-bailey-spring-training/
 
