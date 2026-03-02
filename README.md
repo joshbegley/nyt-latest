@@ -1,3 +1,7 @@
+**'Like to give them a bump': Bruins GM Don Sweeney is hunting, preferably for a right-shot defenseman**\
+`The Bruins have played their way into the playoff hunt and Sweeney wants to reward them for it — but is keeping his eye on the future.`\
+https://nytimes.com/athletic/7081531/2026/03/02/bruins-trade-deadline-plans-don-sweeney/
+
 **Texas Holds First Elections Since Starting the Gerrymandering War**\
 `The state’s congressional map looks much different, and so do those in other states across the country.`\
 https://nytimes.com/2026/03/02/us/elections/texas-redistricting-house-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/europe/france-nuclear-arsenal-macron.html
 **He Hatched a Plot to Kill Trump on a Napkin. The F.B.I. Was Listening.**\
 `Testimony and evidence in Asif Merchant’s trial has so far portrayed him as a zealous yet bumbling operative who never came close to his mission, which prosecutors say was backed by Iran.`\
 https://nytimes.com/2026/03/02/nyregion/merchant-iran-plot-assassination-trump.html
-
-**How Trump Decided to Go to War**\
-`President Trump’s embrace of military action in Iran was spurred by an Israeli leader determined to end diplomatic negotiations. Few of the president’s advisers voiced opposition.`\
-https://nytimes.com/2026/03/02/us/politics/trump-war-iran-israel.html
 
