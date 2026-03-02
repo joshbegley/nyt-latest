@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Christina Goldbaum, Aaron Boxerman and Yan Zhuang`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/heres-the-latest
+
+**Live Updates: War With Iran Escalates as Israel Strikes Hezbollah in Lebanon**\
+`President Trump told The New York Times that the U.S. planned to keep up the assault on Iran for “four or five weeks.” Iran fired on Israel and Arab states, and a top official said the country would not negotiate with the United States.`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/02/crosswords/spelling-bee-forum.html
