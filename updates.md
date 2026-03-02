@@ -1,3 +1,8 @@
+**The Bounce: Look at Nikola Jokić's vengeful eyes. Plus, Unrivaled playoffs preview**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7081065/2026/03/02/nikola-jokic-lu-dort-nuggets-thunder-the-bounce/
+
 **Here’s the latest.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/heres-the-latest

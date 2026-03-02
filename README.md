@@ -1,3 +1,11 @@
+**The Unexpected Winners From Trump’s New Global Tariff**\
+`The president’s flat 10 percent tariff is most beneficial to nations that previously faced the highest rates. But it’s not clear how much that will prompt a new surge in imports.`\
+https://nytimes.com/2026/03/02/us/politics/trump-tariffs-winners-losers.html
+
+**Lions are trading running back David Montgomery to Texans: Sources**\
+`A diminished role for Montgomery signaled the end of his time in Detroit. Now he will team up with Woody Marks in Houston.`\
+https://nytimes.com/athletic/7077340/2026/03/02/lions-trade-david-montgomery-texans/
+
 **Scientists Decry ‘Political Attack’ on Reference Manual for Judges**\
 `More than two dozen contributors to the manual criticized the deletion of a chapter on climate science by the Federal Judicial Center.`\
 https://nytimes.com/2026/03/02/climate/climate-science-judges-manual.html
@@ -11,7 +19,7 @@ https://nytimes.com/2026/03/02/world/middleeast/spain-denies-us-air-base.html
 https://nytimes.com/video/world/middleeast/100000010745457/behind-trumps-reversal-on-regime-change.html
 
 **Carolyn Bessette Kennedy’s Wardrobe Finds a New Obsessive Audience**\
-`Items worn by Ms. Kennedy, which are now on sale in an online auction, showcase her penchant for a curated, minimalist look.`\
+`Several items worn by Ms. Kennedy, which are now on sale in an online auction, showcase her penchant for a curated, minimalist look.`\
 https://nytimes.com/2026/03/02/style/carolyn-bessette-kennedy-auction-love-story.html
 
 **Melissa Wants a Cracker**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/heres-the-late
 **Election Live Updates: Primary Candidates Sprint to Finish in First Midterm Tests**\
 `Texas, North Carolina and Arkansas hold the first primaries of the year on Tuesday, when the parties will pick nominees for November matchups that could help determine control of the House and Senate.`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar
-
-**Takeaways from the Fourth Week of the Alexander Brothers Trial**\
-`The prosecution said it plans to drop two charges against the three men. Defense attorneys are expected to start their case this week.`\
-https://nytimes.com/2026/03/02/nyregion/alexanders-trial-takeaways-sex-crime.html
-
-**Map: Earthquake Shakes Central California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/03/02/us/quake-tracker-central-california.html
 
