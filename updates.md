@@ -1,3 +1,11 @@
+**Lack of the little things add up to a Sixers loss to the Celtics**\
+`Philadelphia did a lot of things right on Sunday night in Boston. But they lost the game on the margins.`\
+https://nytimes.com/athletic/7080303/2026/03/02/sixers-rebounding-joel-embiid-loss-boston/
+
+**The War Expands**\
+`We have the latest news from multiple fronts in the Middle East.`\
+https://nytimes.com/2026/03/02/briefing/the-war-expands.html
+
 **Canada’s Leader Hails New Ties With India, Setting Aside Rift Over Killing**\
 `Prime Minister Mark Carney focused on business during a meeting with his Indian counterpart, Narendra Modi, with little mention of India’s alleged role in a deadly shooting in 2023.`\
 https://nytimes.com/2026/03/02/world/canada/carney-india-modi.html
