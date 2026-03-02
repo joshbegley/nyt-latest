@@ -1,3 +1,7 @@
+**Palestinian Brothers Killed as Settler Violence Surges in the West Bank**\
+`Israeli extremists appear to have escalated their campaign to take over more of the occupied lands as world attention shifts to the war with Iran.`\
+https://nytimes.com/2026/03/02/world/middleeast/palestinian-brothers-killed-as-settler-violence-surges-in-the-west-bank.html
+
 **The Government Wants to Punish Anthropic**\
 `This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about the government’s recent announcement that it will stop using Anthropic’s A.`\
 https://nytimes.com/video/podcasts/100000010748061/the-government-wants-to-punish-anthropic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081850/2026/03/02/stars-vs-canucks-stream-how-to-w
 **How to watch Avalanche vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7081845/2026/03/02/avalanche-vs-kings-stream-how-to-watch-march-2/
-
-**How to watch Flyers vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081846/2026/03/02/flyers-vs-maple-leafs-stream-how-to-watch-march-2/
 
