@@ -1,3 +1,11 @@
+**What we heard about the Bears at the NFL combine: Questions about DJ Moore**\
+`Talking to league sources during combine week, it became clear that Ben Johnson and Caleb Williams have earned respect around of the NFL.`\
+https://nytimes.com/athletic/7077301/2026/03/02/bears-combine-caleb-williams-dj-moore/
+
+**What I heard about the Chiefs at the NFL combine: Some buzz on the No. 9 pick**\
+`The Chiefs will approach their own free agents differently this year than in the past. Here's the change they'll be making.`\
+https://nytimes.com/athletic/7075887/2026/03/02/chiefs-nfl-combine-nfl-draft-priorities/
+
 **Celebration and Mourning: Inside an Iran at War**\
 `The ayatollah’s death, after nearly 40 years of authoritarian rule, represented a historic shift for Iran’s theocratic regime.`\
 https://nytimes.com/2026/03/02/podcasts/the-daily/iran-us-israel-supreme-leader.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079069/2026/03/02/usa-hockey-mens-olympics-trump-w
 **How good is each defenseman available on the 2026 trade board?**\
 `Plenty of playoff hopefuls are on the hunt for blue-line help at the deadline. Here's what different players on the market can offer.`\
 https://nytimes.com/athletic/7076274/2026/03/02/nhl-trade-board-2026-deadline-defensemen-analytics/
-
-**Welcome to F1's new era of 'speed chess,' where every pass comes with a price**\
-`DRS is out. Overtake Mode is in. Here's why drivers say passing just got a lot harder`\
-https://nytimes.com/athletic/7080185/2026/03/02/f1-overtake-mode-explained/
-
-**Blue Jackets Monday Gathering: Zach Werenski breaks down his 'golden assist,' moment by moment**\
-`"I've watched it a bunch of times," Werenski said of the gold-winning play. "It'll never get old. It's awesome."`\
-https://nytimes.com/athletic/7078650/2026/03/02/zach-werenski-usa-gold-olympics-blue-jackets/
 

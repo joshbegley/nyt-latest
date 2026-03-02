@@ -1,3 +1,11 @@
+**What we heard about the Bears at the NFL combine: Questions about DJ Moore**\
+`Talking to league sources during combine week, it became clear that Ben Johnson and Caleb Williams have earned respect around of the NFL.`\
+https://nytimes.com/athletic/7077301/2026/03/02/bears-combine-caleb-williams-dj-moore/
+
+**What I heard about the Chiefs at the NFL combine: Some buzz on the No. 9 pick**\
+`The Chiefs will approach their own free agents differently this year than in the past. Here's the change they'll be making.`\
+https://nytimes.com/athletic/7075887/2026/03/02/chiefs-nfl-combine-nfl-draft-priorities/
+
 **Celebration and Mourning: Inside an Iran at War**\
 `The ayatollah’s death, after nearly 40 years of authoritarian rule, represented a historic shift for Iran’s theocratic regime.`\
 https://nytimes.com/2026/03/02/podcasts/the-daily/iran-us-israel-supreme-leader.html
