@@ -1,3 +1,7 @@
+**Wild trade tracker: Top target Trocheck says if he's moved, he wants to have 'chance to win'**\
+`Stamkos has 29 goals in 58 games for the Predators this season and would look good on the Wild power play. But at what cost?`\
+https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-2026/
+
 **Rangers' Trocheck talks trade, leverage, landing spot**\
 `Trocheck is carrying himself with the ease of a player who’s ready to embrace whatever comes next.`\
 https://nytimes.com/athletic/7081314/2026/03/02/rangers-vincent-trocheck-trade-rumors-nhl/
@@ -20,7 +24,7 @@ https://nytimes.com/2026/03/02/us/politics/democratic-turnout-early-voting-tx.ht
 
 **Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
 `Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
-https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/natural-gas-prices-qatar-europe-asia
+https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
 
 **Serie A briefing: In a weekend of late goals, Romelu Lukaku's was the most poignant**\
 `Another dramatic round of action saw Roma squander a chance to distance Juventus in the race for a top-four finish`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081257/2026/03/02/nicolo-savona-injury-nottingham-
 **An ‘American Gigolo’ in Milan**\
 `At a Giorgio Armani exhibition, an ensemble worn by Richard Gere taught a lesson about what makes a great designer. Also, cutout beanies, more men’s Chanel and a very good pair of jeans.`\
 https://nytimes.com/2026/03/02/style/armani-gere-gigolo.html
-
-**Tigers, Red Wings introduce Detroit SportsNet as new broadcast home**\
-`Tigers and Red Wings games will be broadcast via Detroit SportsNet starting in the 2026-27 season.`\
-https://nytimes.com/athletic/7080215/2026/03/02/tigers-red-wings-detroit-sportsnet-broadcast/
 
