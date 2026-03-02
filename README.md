@@ -1,4 +1,4 @@
-**Hiller firing was too little too late for a Kings team with delusions of contending**\
+**Hiller firing too little too late for Kings team with delusions of contending**\
 `While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
 https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
 
