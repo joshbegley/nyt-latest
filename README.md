@@ -1,3 +1,7 @@
+**U.S. Takes Casualties as Attacks on Iran Intensify**\
+`The U.S. and Israel attacked Iran for a second day, and Iran retaliated, striking Israel and Persian Gulf countries. One strike killed three American service members at a base in Kuwait.`\
+https://nytimes.com/video/world/middleeast/100000010745920/iran-us-israel-attack.html
+
 **Fighting Between Israel and Hezbollah Reignites as Iran War Expands**\
 `Beirut residents fled in panic as Israeli jets struck Hezbollah strongholds in response to a midnight barrage, an expansion of the war between Israel, the U.S. and Iran.`\
 https://nytimes.com/2026/03/01/world/middleeast/israel-strikes-beirut-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079817/2026/03/01/blackhawks-artyom-levshunov-defe
 **Warriors' Steph Curry making progress in return, to be re-evaluated in 10 days**\
 `The Golden State star has been dealing with runner's knee for over a month and has not participated in a game since Jan. 30.`\
 https://nytimes.com/athletic/7079888/2026/03/01/steph-curry-injury-update-return-timetable/
-
-**Tyler Reddick becomes first NASCAR driver to win first 3 races of a season**\
-`Michael Jordan-owned 23XI Racing is off to an unbeaten start in the 2026 NASCAR Cup Series.`\
-https://nytimes.com/athletic/7079857/2026/03/01/tyler-reddick-michael-jordan-nascar-austin/
 
