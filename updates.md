@@ -1,3 +1,11 @@
+**Where the Stars Are**\
+`Leslie Benson calls it the way she sees it.`\
+https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
+
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Teyana Taylor, Noah Wyle and Chase Infiniti are among the arrivals at the Shrine Auditorium in Los Angeles for the Screen Actor Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
+
 **Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
 `In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
 https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
