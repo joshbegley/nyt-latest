@@ -1,3 +1,7 @@
+**Giannis listed as questionable for Bucks, could play vs. Celtics**\
+`Antetokounmpo missed all of Milwaukee’s games in February with a right calf (soleus) strain.`\
+https://nytimes.com/athletic/7081554/2026/03/02/giannis-antetokounmpo-injury-bucks-return/
+
 **Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
 `With Grapefruit League play underway, post your questions about the Astros as they prepare for the 2026 season.`\
 https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions-spring-training/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-202
 **Rangers' Trocheck talks trade, leverage, landing spot**\
 `Trocheck is carrying himself with the ease of a player who’s ready to embrace whatever comes next.`\
 https://nytimes.com/athletic/7081314/2026/03/02/rangers-vincent-trocheck-trade-rumors-nhl/
-
-**U.S. Sending More Forces to Middle East as Iran War Widens**\
-`Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, said more troops and fighter jets were heading to the region. He acknowledged the possibility of an extended campaign.`\
-https://nytimes.com/2026/03/02/us/politics/trump-administration-troops-iran-war.html
 

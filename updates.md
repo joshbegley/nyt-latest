@@ -1,3 +1,7 @@
+**Giannis listed as questionable for Bucks, could play vs. Celtics**\
+`Antetokounmpo missed all of Milwaukee’s games in February with a right calf (soleus) strain.`\
+https://nytimes.com/athletic/7081554/2026/03/02/giannis-antetokounmpo-injury-bucks-return/
+
 **Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
 `With Grapefruit League play underway, post your questions about the Astros as they prepare for the 2026 season.`\
 https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions-spring-training/
