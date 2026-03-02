@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
 https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
 
 **USWNT captain Lindsey Heaps leads team to 2-0 SheBelieves Cup win, Trinity Rodman injured**\
-`Trinity Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
+`Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
 https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
 
 **USC leading scorer Chad Baker-Mazara no longer on men's basketball team**\
