@@ -1,40 +1,40 @@
-**Arsenal set-piece coach's contract contains bonus clause for dead-ball goals**\
-`Arsenal have scored 16 goals from corners this season, the joint-most by any side in a single campaign.`\
-https://nytimes.com/athletic/7080468/2026/03/02/arsenal-set-piece-goals-nicolas-jover-contract/
+**Canada’s Leader Hails New Ties With India, Setting Aside Rift Over Killing**\
+`Prime Minister Mark Carney focused on business during a meeting with his Indian counterpart, Narendra Modi, with little mention of India’s alleged role in a deadly shooting in 2023.`\
+https://nytimes.com/2026/03/02/world/canada/carney-india-modi.html
 
-**The Athletic's men's hoops Top 25: Duke steady at No. 1, but Florida surges into top 5**\
-`This week's rankings include a number of teams — including Michigan and Florida — playing lineups with a ton of height. `\
-https://nytimes.com/athletic/7079793/2026/03/02/mens-college-basketball-top-25-duke-michigan-florida/
+**Red Sox roster projection 2.0: Exploring battles for the fifth starter, bench and bullpen**\
+`Manager Alex Cora says the roster is close to set for Opening Day, yet there are a few decisions left to make.`\
+https://nytimes.com/athletic/7076151/2026/03/02/red-sox-roster-projection-fifth-starter/
 
-**Women's basketball power rankings: Vanderbilt, Texas will fight for No. 1 seed in SEC tourney**\
-`Sabreena Merchant breaks down the top 25 in women's hoops.`\
-https://nytimes.com/athletic/7080234/2026/03/02/womens-college-basketball-power-rankings-vanderbilt-texas/
+**Xavier Neyens, the Astros' beacon of hope, is also a budding barber**\
+`The Athletic visited the first-round pick's apartment and watched him work on his hobby: cutting his teammates' hair for free.`\
+https://nytimes.com/athletic/7071776/2026/03/02/astros-prospect-xavier-neyens-barber/
 
-**Prestianni's Benfica career 'over' if alleged racist abuse proven - Mourinho**\
-`On Sunday, Mourinho said "there were a lot of 'ifs'" regarding what Prestianni had allegedly said to Vinicius Jr.`\
-https://nytimes.com/athletic/7080549/2026/03/02/mourinho-benfica-prestianni-vinicius/
+**Women's basketball conference championship guide: Schedule, TV for all 31 tournaments**\
+`Here's how to watch all the conference tournaments, where March Madness bids are automated and league titles are up for grabs.`\
+https://nytimes.com/athletic/7074690/2026/03/02/womens-basketball-conference-tournaments-2026-how-to-watch/
 
-**Already Weathering a Trade War, Asia Now Faces a New Energy Threat**\
-`China and its neighbors scrambled to soften the blow of a disorderly trade war. Conflict in the Middle East threatens now threatens to disrupt the oil imports that power their economies.`\
-https://nytimes.com/2026/03/02/business/us-iran-china-japan-energy.html
+**Winnipeg Jets 2026 trade deadline decisions: Who stays and who goes?**\
+`Let's sort through Winnipeg's roster from top to bottom, dividing them into tiers based on my read of the Jets' point of view.`\
+https://nytimes.com/athletic/7077700/2026/03/02/winnipeg-jets-trade-deadline-stays-goes/
 
-**The Pulse: Bracket watch (and a history lesson)**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7079877/2026/03/02/ncaa-bracket-watch-rivalries-the-pulse/
+**This period of darkness feels hauntingly familiar: Monday Morning Leafs Report**\
+`It's been a long time since the energy around the Leafs felt this hopeless. How does that stack up statistically?`\
+https://nytimes.com/athletic/7079214/2026/03/02/maple-leafs-carlyle-berube-cowan-scoring/
 
-**What we heard about the Bears at the NFL combine: Questions about DJ Moore**\
-`Talking to league sources during combine week, it became clear that Ben Johnson and Caleb Williams have earned respect around of the NFL.`\
-https://nytimes.com/athletic/7077301/2026/03/02/bears-combine-caleb-williams-dj-moore/
+**Examining the Mikheyev puzzle before the trade deadline: Trade or re-sign?**\
+`While the Blackhawks like Mikheyev a lot, the situation isn't as simple as simply extending his contract.`\
+https://nytimes.com/athletic/7079494/2026/03/02/blackhawks-ilya-mikheyev-trade-deadline-extension-penalty-kill/
 
-**What I heard about the Chiefs at the NFL combine: Some buzz on the No. 9 pick**\
-`The Chiefs will approach their own free agents differently this year than in the past. Here's the change they'll be making.`\
-https://nytimes.com/athletic/7075887/2026/03/02/chiefs-nfl-combine-nfl-draft-priorities/
+**Broncos big board: 25 prospects Denver could target early in the 2026 NFL Draft**\
+`With free agency still ahead, the Broncos should be wide open as to which position they will target with the 30th pick.`\
+https://nytimes.com/athletic/7075635/2026/03/02/broncos-big-board-2026-nfl-draft/
 
-**Celebration and Mourning: Inside an Iran at War**\
-`The ayatollah’s death, after nearly 40 years of authoritarian rule, represented a historic shift for Iran’s theocratic regime.`\
-https://nytimes.com/2026/03/02/podcasts/the-daily/iran-us-israel-supreme-leader.html
+**What are the best men's college basketball rivalries? Make your picks here**\
+`After we ranked the top 50 rivalries in men's college basketball, we want to hear your top picks and best memories.`\
+https://nytimes.com/athletic/7080612/2026/03/02/college-basketball-best-rivalries-survey/
 
-**What I learned about the Cowboys at the NFL combine: Edge rusher's offseason surgery**\
-`Edge rusher Donovan Ezeiruaku had surgery to repair a hip labrum injury that he played through last season.`\
-https://nytimes.com/athletic/7079535/2026/03/02/cowboys-combine-george-pickens-donovan-ezeiruaku/
+**What the ideal Red Wings trade deadline would look like**\
+`How much should Detroit add? Where? And in a suddenly more crowded market of viable sellers, who are the right fits?`\
+https://nytimes.com/athletic/7079154/2026/03/02/red-wings-ideal-trade-deadline-scenario/
 
