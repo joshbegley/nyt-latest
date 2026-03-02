@@ -1,3 +1,11 @@
+**Your Closest Forest Gets Lit Up by a Hidden Purple Glow**\
+`Research shows that a phenomenon called St. Elmo’s Fire, which occurs during thunderstorms, may be much more common than previously understood.`\
+https://nytimes.com/2026/03/02/science/trees-glowing-st-elmos-fire.html
+
+**U.S. University Campuses in Mideast Move Classes Online as War Spreads**\
+`A number of major universities with campuses in Qatar and other nations are operating remotely as the conflict expands throughout the region.`\
+https://nytimes.com/2026/03/02/world/middleeast/university-campuses-middle-east-cancel-classes.html
+
 **Rutgers fires basketball coach Coquese Washington**\
 `The Scarlet Knights finished in last place in the Big Ten this season and ended the year on an 11-game losing streak. `\
 https://nytimes.com/athletic/7081969/2026/03/02/rutgers-fire-basketball-coquese-washington/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports
 **Which teams might pursue Flyers' Rasmus Ristolainen, and what might they offer?**\
 `Do any teams that might be interested in Ristolainen have a first-round pick and young center available?`\
 https://nytimes.com/athletic/7081711/2026/03/02/rasmus-ristolainen-trade-flyers/
-
-**Antonio says he is 'praying for peace' after Qatar move confirmed**\
-`The former West Ham striker has joined the Qatari side after not playing a senior game since 2024, following a single-vehicle collision.`\
-https://nytimes.com/athletic/6884378/2026/03/02/michail-antonio-al-sailiya-qatar-transfer-peace/
-
-**U.S. Military Death Toll Rises to 6**\
-`The number of U.S. service members killed in the first three days of the war grew as officials said the remains of two more troops had been recovered.`\
-https://nytimes.com/2026/03/02/world/middleeast/us-military-death-toll-iran.html
 
