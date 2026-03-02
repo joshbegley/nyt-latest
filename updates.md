@@ -1,3 +1,7 @@
+**Investigators Examine Iran War as Possible Motive in Austin Shooting**\
+`The shooting happened about 26 hours after the United States and Israel attacked Iran. Officials identified the two who died in the shooting and said a third victim would be taken off life support.`\
+https://nytimes.com/2026/03/02/us/austin-shooting-investigation.html
+
 **How to watch Clippers vs. Warriors: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Golden State Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7081863/2026/03/02/clippers-vs-warriors-stream-how-to-watch-march-2/

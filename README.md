@@ -1,3 +1,11 @@
+**The Government Wants to Punish Anthropic**\
+`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about the government’s recent announcement that it will stop using Anthropic’s A.`\
+https://nytimes.com/video/podcasts/100000010748061/the-government-wants-to-punish-anthropic.html
+
+**Tensions Over the Iran War, Israel and A.I. Churn in a North Carolina Race**\
+`A new ad from a progressive challenger, Nida Allam, attacks Representative Valerie Foushee over financial backing she has received from defense contractors and the A.I. industry.`\
+https://nytimes.com/2026/03/02/us/politics/valerie-foushee-nida-allam-north-carolina-ai-israel-aipac.html
+
 **Investigators Examine Iran War as Possible Motive in Austin Shooting**\
 `The shooting happened about 26 hours after the United States and Israel attacked Iran. Officials identified the two who died in the shooting and said a third victim would be taken off life support.`\
 https://nytimes.com/2026/03/02/us/austin-shooting-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7081845/2026/03/02/avalanche-vs-kings-stream-how-to
 **How to watch Flyers vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7081846/2026/03/02/flyers-vs-maple-leafs-stream-how-to-watch-march-2/
-
-**Pakistan Strikes Bagram Air Base, Escalating ‘Open War’ With Taliban**\
-`Satellite imagery showed flattened warehouses at the base that served as the nerve center of America’s 20-year war in Afghanistan, a prized asset for the Taliban.`\
-https://nytimes.com/2026/03/02/world/asia/pakistan-bagram-airbase-afghanistan-war.html
-
-**How to watch Iowa State vs. Arizona men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081834/2026/03/02/iowa-state-vs-arizona-stream-how-to-watch-march-2/
 
