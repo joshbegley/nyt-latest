@@ -1,3 +1,7 @@
+**Can Mountains of Money Save Cornyn and Lift Talarico in Texas?**\
+`The primary race for Senate in Texas has become the most expensive on record, with John Cornyn and James Talarico heavily outspending their rivals. But Mr. Cornyn seems to be in trouble.`\
+https://nytimes.com/2026/03/02/us/elections/cornyn-talarico-texas-senate-money.html
+
 **Wild trade tracker: Top target Trocheck says if he's moved, he wants to have 'chance to win'**\
 `Stamkos has 29 goals in 58 games for the Predators this season and would look good on the Wild power play. But at what cost?`\
 https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080662/2026/03/02/serie-a-briefing-lukaku-napoli-i
 **Forest's Savona set for knee surgery, may not play again this season**\
 `The 22-year-old defender has not featured since January because of the problem.`\
 https://nytimes.com/athletic/7081257/2026/03/02/nicolo-savona-injury-nottingham-forest/
-
-**An ‘American Gigolo’ in Milan**\
-`At a Giorgio Armani exhibition, an ensemble worn by Richard Gere taught a lesson about what makes a great designer. Also, cutout beanies, more men’s Chanel and a very good pair of jeans.`\
-https://nytimes.com/2026/03/02/style/armani-gere-gigolo.html
 
