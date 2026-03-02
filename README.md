@@ -1,3 +1,37 @@
+**Manchester United are revived under Carrick as last summer's spending pays dividends**\
+`Carrick's rejuvenated team are third in the Premier League table having come a very long way in a short space of time`\
+https://nytimes.com/athletic/7067550/2026/03/02/manchester-united-carrick-fernandes-third-sesko/
+
+**Brighton offer Nottingham Forest a reminder that stability trumps chaos**\
+`Owner Tony Bloom flung his support behind Fabian Hurzeler through a mid-season dip in form where Forest might have chosen a different course`\
+https://nytimes.com/athletic/7072245/2026/03/02/brighton-hurzeler-bloom-stability-chaos-forest/
+
+**West Ham have serious issues at set pieces - they're undoing the good work further forward**\
+`Despite the scoreline, there were positives to the attacking play - but old problems from deadball situations returned to haunt West Ham`\
+https://nytimes.com/athletic/7077167/2026/03/02/west-ham-set-pieces-problems/
+
+**Crystal Palace are already regretting the failure to replace Marc Guehi**\
+`The dismissal of Maxence Lacroix at Old Trafford means Oliver Glasner will need to make another change to his back three against Tottenham`\
+https://nytimes.com/athletic/7074341/2026/03/02/crystal-palace-guehi-lacroix-richards-canvot-riad-glasner/
+
+**Prescient Pep? Guardiola told us exactly how the Leeds game would pan out**\
+`The Manchester City manager anticipated how, with Erling Haaland absent, his team would need to pass their way around an intense Leeds press`\
+https://nytimes.com/athletic/7077943/2026/03/02/pep-guardiola-manchester-city-leeds-analysis/
+
+**Morgan Gibbs-White embodies the spirit Nottingham Forest need to fight relegation**\
+`New manager Vitor Pereira is trying to foster the sense of unity that has served this group of players so well in the past`\
+https://nytimes.com/athletic/7079120/2026/03/02/nottingham-forest-brighton-gibbs-white-analysis/
+
+**Daniel Farke's full-time rage is a mark of how far Leeds' expectations have changed**\
+`The German has overseen a remarkable turnaround since the teams last met - his reaction at full-time to a defeat was testament to that`\
+https://nytimes.com/athletic/7078483/2026/03/02/leeds-man-city-daniel-farke/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>As we await the much-anticipated Save College Sports Roundtable, send your most pressing college football questions.</p>
+<p>Leave them here. Please include your city,</p>
+`\
+https://nytimes.com/athletic/7080370/2026/03/02/submit-a-question-for-stewart-mandels-college-football-mailbag-336/
+
 **Newcastle's solidity is no more. Slipshod defending has become the new normal**\
 `Eddie Howe saw his side 'self-implode' to hand Everton three goals at St James' Park, but such generosity has started to feel very familiar`\
 https://nytimes.com/athletic/7076996/2026/03/02/newcastle-defence-howe-everton-xga/
@@ -5,36 +39,4 @@ https://nytimes.com/athletic/7076996/2026/03/02/newcastle-defence-howe-everton-x
 **The Briefing: Are nervy Arsenal still title favourites? Are Spurs as bad as they look? Are Manchester United back?**\
 `Welcome to The Briefing, where The Athletic discusses three of the biggest questions posed by the weekend’s Premier League action`\
 https://nytimes.com/athletic/7078755/2026/03/02/arsenal-title-favourites-man-utd-back-briefing/
-
-**Colorado QB Dominiq Ponder dies in single-vehicle car crash**\
-`Ponder spent the last two seasons at Colorado after beginning his career at Bethune-Cookman.`\
-https://nytimes.com/athletic/7080317/2026/03/02/colorado-qb-dominiq-ponder-dies-car-crash/
-
-**The World Cup is supposed to inspire hope and unity. This one feels different**\
-`The military action taken against Iran is the latest serious political issue overshadowing a tournament that starts in 101 days`\
-https://nytimes.com/athletic/7075965/2026/03/02/world-cup-politics-iran-usa/
-
-**Breaking down Chelsea's 10 red cards: hopeless challenges, reckless elbows and last-man lunges**\
-`Pedro Neto became the ninth different Chelsea player to be sent off this season after incurring two quick bookings against Arsenal`\
-https://nytimes.com/athletic/7079410/2026/03/02/breaking-down-chelseas-10-red-cards-hopeless-challenges-reckless-elbows-and-last-man-lunges/
-
-**Virgil van Dijk has been available for Liverpool for 99 league games. This is how he does it**\
-`The Dutch veteran will complete the remarkable milestone if he is fit against Wolves in midweek with his professionalism setting a standard`\
-https://nytimes.com/athletic/7077793/2026/03/02/virgil-van-dijk-liverpool-100-available-slot/
-
-**Tottenham have forgotten how to win football matches**\
-`The longer it is since they last won, the more distant the memory, the bigger the mental block they will have.`\
-https://nytimes.com/athletic/7072299/2026/03/02/tottenham-forgotten-how-to-win/
-
-**Afghanistan Says Pakistan Tried to Strike Prized Air Base**\
-`The Afghan military said it had thwarted a Pakistani airstrike on the former U.S. base, Bagram airfield, amid an intensifying campaign that has targeted dozens of military sites across the country.`\
-https://nytimes.com/2026/03/02/world/asia/pakistan-afghanistan-bagram-attack.html
-
-**No Corrections: March 2, 2026**\
-`No corrections appeared in print on Monday, March 2, 2026.`\
-https://nytimes.com/2026/03/02/corrections/no-corrections-march-2-2026.html
-
-**Quote of the Day: Nostalgic Young Audience Rediscovers the iPod**\
-`Quotation of the Day for Monday, March 2, 2026.`\
-https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-nostalgic-young-audience-rediscovers-the-ipod.html
 

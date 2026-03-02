@@ -1,3 +1,19 @@
+**Newcastle's solidity is no more. Slipshod defending has become the new normal**\
+`Eddie Howe saw his side 'self-implode' to hand Everton three goals at St James' Park, but such generosity has started to feel very familiar`\
+https://nytimes.com/athletic/7076996/2026/03/02/newcastle-defence-howe-everton-xga/
+
+**The Briefing: Are nervy Arsenal still title favourites? Are Spurs as bad as they look? Are Manchester United back?**\
+`Welcome to The Briefing, where The Athletic discusses three of the biggest questions posed by the weekend’s Premier League action`\
+https://nytimes.com/athletic/7078755/2026/03/02/arsenal-title-favourites-man-utd-back-briefing/
+
+**Colorado QB Dominiq Ponder dies in single-vehicle car crash**\
+`Ponder spent the last two seasons at Colorado after beginning his career at Bethune-Cookman.`\
+https://nytimes.com/athletic/7080317/2026/03/02/colorado-qb-dominiq-ponder-dies-car-crash/
+
+**The World Cup is supposed to inspire hope and unity. This one feels different**\
+`The military action taken against Iran is the latest serious political issue overshadowing a tournament that starts in 101 days`\
+https://nytimes.com/athletic/7075965/2026/03/02/world-cup-politics-iran-usa/
+
 **Breaking down Chelsea's 10 red cards: hopeless challenges, reckless elbows and last-man lunges**\
 `Pedro Neto became the ninth different Chelsea player to be sent off this season after incurring two quick bookings against Arsenal`\
 https://nytimes.com/athletic/7079410/2026/03/02/breaking-down-chelseas-10-red-cards-hopeless-challenges-reckless-elbows-and-last-man-lunges/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/02/corrections/no-corrections-march-2-2026.html
 **Quote of the Day: Nostalgic Young Audience Rediscovers the iPod**\
 `Quotation of the Day for Monday, March 2, 2026.`\
 https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-nostalgic-young-audience-rediscovers-the-ipod.html
-
-**In Alysa Liu and Eileen Gu, China and America See a Mirror Image**\
-`The Olympic athletes are the subject of uncomfortable public comparisons that present online narratives that overlap more than both sides may realize.`\
-https://nytimes.com/2026/03/02/business/alysa-liu-eileen-gu-china.html
-
-**China’s Parents Are Outsourcing the Homework Grind to A.I.**\
-`Parents in China are turning to A.I. chatbots and other tools to help their children gain an edge and ease the fighting over homework.`\
-https://nytimes.com/2026/03/02/world/asia/china-education-ai.html
-
-**China’s New Study Buddy: The A.I. Chatbot**\
-`Parents in China are using homegrown chatbots like DeepSeek and Doubao as well as Google’s Gemini to help their children with homework and give them an academic edge.`\
-https://nytimes.com/video/world/asia/100000010707197/china-ai-chatbot-homework.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 2, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7080267/2026/03/02/connections-sports-edition-hints-answers-march-2-2026/
 
