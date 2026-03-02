@@ -1,3 +1,7 @@
+**Is A.I. Creating ‘Ghost GDP’?**\
+`On the “Hard Fork” podcast, Kevin Roose and Casey Newton asked the economics professor Anton Korinek about A.I.’s potential effects on the economy.`\
+https://nytimes.com/video/podcasts/100000010748131/is-ai-creating-ghost-gdp.html
+
 **As Maduro and Khamenei Learned, It’s Harder Than Ever for Leaders to Hide**\
 `A surge in sensors and cameras, combined with artificial intelligence, has transformed the U.S. intelligence’s ability to locate foreign heads of state. Add to that an American president willing to capture or kill.`\
 https://nytimes.com/2026/03/02/us/politics/maduro-khamenei-trump-surveillance.html
