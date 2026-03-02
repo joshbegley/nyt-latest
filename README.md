@@ -1,3 +1,7 @@
+**What Rising Oil Prices Could Mean for Drivers in the U.S.**\
+`A prolonged conflict in the Middle East could cause a spike at American gas pumps, as the busy driving season approaches.`\
+https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
+
 **NCAA advises schools to brace for March Madness travel disruptions**\
 `The NCAA cited the busy spring-break travel season and possible TSA-related delays due to a partial government shutdown as two reasons.`\
 https://nytimes.com/athletic/7082146/2026/03/02/march-madness-travel-disruptions-ncaa-charter-plane-shortage/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/africa/rwanda-sanctions-trump-peace-m23.htm
 **Chow down at Cardinals games: All-you-can-eat tickets for $29**\
 `How many hot dogs can one person eat at a baseball game? St. Louis Cardinals fans will have the opportunity to find out.`\
 https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-concessions/
-
-**Track the battle to reshape the congressional maps.**\
-`By David W. Chen`\
-https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/track-the-battle-to-reshape-the-congressional-maps
 
