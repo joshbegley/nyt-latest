@@ -1,3 +1,11 @@
+**Reporters Seek Comment. What Happens Next May Surprise You.**\
+`Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
+https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html
+
+**One Victim of the Austin Bar Shooting Was a 19-Year-Old College Student**\
+`Ryder Harrington, a student at Texas Tech University who was from Austin, was confirmed dead by his father on Monday. The shooting is being investigated as a possible act of terrorism.`\
+https://nytimes.com/2026/03/02/us/austin-bar-shooting-victims.html
+
 **The attack on Iran prompted swift responses from candidates with primaries looming.**\
 `By Tim Balk`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-attack-on-iran-prompted-swift-responses-from-candidates-with-primaries-looming
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/dubai-flights.html
 **Latino Democrats Fight to Fend Off Upstart Challengers**\
 `The Congressional Hispanic Caucus is defending four key incumbents in primary races centered on how aggressively Democrats are combating ICE and President Trump.`\
 https://nytimes.com/2026/03/02/us/politics/latino-democrats-primary-elections.html
-
-**How to watch Duke vs. NC State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Duke Blue Devils play the NC State Wolfpack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081192/2026/03/02/duke-vs-nc-state-stream-how-to-watch-march-2/
-
-**N.Y.P.D. Sergeant Charged With Doorman’s Death in Drunk-Driving Crash**\
-`Sgt. Tiffany Howell was charged with aggravated vehicular homicide and manslaughter for driving the wrong way on the Taconic State Parkway, killing Manuel Boitel.`\
-https://nytimes.com/2026/03/02/nyregion/nypd-sergeant-drunk-driving-doorman.html
 

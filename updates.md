@@ -1,3 +1,11 @@
+**The attack on Iran prompted swift responses from candidates with primaries looming.**\
+`By Tim Balk`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-attack-on-iran-prompted-swift-responses-from-candidates-with-primaries-looming
+
+**How to watch Blue Jackets vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081234/2026/03/02/blue-jackets-vs-rangers-stream-how-to-watch-march-2/
+
 **How to watch Rockets vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7081226/2026/03/02/rockets-vs-wizards-stream-how-to-watch-march-2/
