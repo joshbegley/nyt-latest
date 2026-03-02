@@ -1,3 +1,11 @@
+**Fantasy baseball Zero-SP draft strategy: Starters to target in mid-to-late rounds**\
+`Michael Salfino offers some prime mid-to-late round starting pitcher targets for managers employing a Zero-SP draft strategy.`\
+https://nytimes.com/athletic/7075783/2026/03/02/fantasy-baseball-zero-sp-draft-strategy-mid-late-round-starter-targets/
+
+**Democratic Turnout Was High During Early Voting in Texas**\
+`More than 1.3 million voters cast ballots in the Democratic primary during the early voting period that ended Friday. Many counties hadn’t yet reported their data.`\
+https://nytimes.com/2026/03/02/us/politics/democratic-turnout-early-voting-tx.html
+
 **Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
 `Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
 https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080962/2026/03/02/penguins-evgeni-malkin-contract-
 **Submit a question for James Edwards' Knicks mailbag**\
 `The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
 https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
-
-**Defense Officials Give No Timeline for War in Iran as U.S. Boosts Forces**\
-`At a Pentagon news conference, top defense officials said that the U.S. military was sending more forces to the Middle East and expects to “take additional losses.” Earlier, President Trump said that the U.S. could continue striking Iran for the next four to five weeks.`\
-https://nytimes.com/video/us/politics/100000010747186/trump-administration-iran-war-troops-timeline.html
-
-**Austin Shooting Stokes Anti-Islam Speech Among Texas Conservatives**\
-`With primaries on Tuesday, politicians quickly cited the attack in their campaign messaging. Some Republicans called for stopping immigration, while Democrats called for gun control.`\
-https://nytimes.com/2026/03/02/us/austin-shooting-politics.html
 
