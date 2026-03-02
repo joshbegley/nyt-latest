@@ -1,3 +1,7 @@
+**Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
+`With Grapefruit League play underway, post your questions about the Astros as they prepare for the 2026 season.`\
+https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions-spring-training/
+
 **Macron Expands French Nuclear Arsenal and Vows Protection for Neighbors**\
 `The announcement was a significant step in forging a European deterrent as Russia grows more aggressive and the U.S. steps back.`\
 https://nytimes.com/2026/03/02/world/europe/macron-expands-french-nuclear-arsenal-and-vows-protection-for-neighbors.html
