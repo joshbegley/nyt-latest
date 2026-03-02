@@ -1,3 +1,11 @@
+**American Jets Shot Down by ‘Friendly Fire’ in Kuwait**\
+`The United States Central Command said that three American fighter jets were mistakenly shot down by Kuwaiti air defenses while they were taking part in the campaign against Iran. All six crew members were safely recovered.`\
+https://nytimes.com/video/world/middleeast/100000010746791/us-jets-friendly-fire-kuwait-iran.html
+
+**Take a Walk in Your Hometown. How Would You Change the Place Where You Live?**\
+`We invite you to explore a neighborhood in your community and imagine possibilities for transformation.`\
+https://nytimes.com/2026/03/02/learning/take-a-walk-in-your-hometown-how-would-you-change-the-place-where-you-live.html
+
 **3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**\
 `Separately, a drone attack hit the U.S. Embassy compound in the Persian Gulf state, as Iran continues to target American assets across the Middle East.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/briefing/the-war-expands.html
 **Canada’s Leader Hails New Ties With India, Setting Aside Rift Over Killing**\
 `Prime Minister Mark Carney focused on business during a meeting with his Indian counterpart, Narendra Modi, with little mention of India’s alleged role in a deadly shooting in 2023.`\
 https://nytimes.com/2026/03/02/world/canada/carney-india-modi.html
-
-**Red Sox roster projection 2.0: Exploring battles for the fifth starter, bench and bullpen**\
-`Manager Alex Cora says the roster is close to set for Opening Day, yet there are a few decisions left to make.`\
-https://nytimes.com/athletic/7076151/2026/03/02/red-sox-roster-projection-fifth-starter/
-
-**Xavier Neyens, the Astros' beacon of hope, is also a budding barber**\
-`The Athletic visited the first-round pick's apartment and watched him work on his hobby: cutting his teammates' hair for free.`\
-https://nytimes.com/athletic/7071776/2026/03/02/astros-prospect-xavier-neyens-barber/
 

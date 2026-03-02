@@ -1,3 +1,23 @@
+**3 U.S. Planes Are Shot Down in ‘Friendly Fire’ in Kuwait, U.S. Military Says**\
+`Separately, a drone attack hit the U.S. Embassy compound in the Persian Gulf state, as Iran continues to target American assets across the Middle East.`\
+https://nytimes.com/2026/03/02/world/middleeast/iran-kuwait-us-attack-planes.html
+
+**10 things I learned about the Twins in 10 days at spring training, from buzz to buzzkills**\
+`Notes on the Twins' next wave of prospects, Tom Pohlad's presence, Twins TV numbers, Kendry Rojas and more.`\
+https://nytimes.com/athletic/7076530/2026/03/02/twins-camp-notes-pitching-defense-pohlad/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Post your questions to our Newcastle writer Chris Waugh, who will endeavour to answer as many as possible`\
+https://nytimes.com/athletic/7080547/2026/03/02/inside-newcastle-qa-chris-waugh-answers-your-questions-midtable-woltemade-gordon/
+
+**The defining FPL decisions before Gameweek 29**\
+`The final whistle has barely blown on Gameweek 28, but with the next deadline at 6pm GMT (1pm ET) tomorrow, there is no rest for the wicked`\
+https://nytimes.com/athletic/7079567/2026/03/02/fantasy-premier-league-gameweek-29-fpl-tips/
+
+**Word of the Day: capacious**\
+`This word has appeared in 82 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/02/learning/word-of-the-day-capacious.html
+
 **Lack of the little things add up to a Sixers loss to the Celtics**\
 `Philadelphia did a lot of things right on Sunday night in Boston. But they lost the game on the margins.`\
 https://nytimes.com/athletic/7080303/2026/03/02/sixers-rebounding-joel-embiid-loss-boston/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7076151/2026/03/02/red-sox-roster-projection-fifth-
 **Xavier Neyens, the Astros' beacon of hope, is also a budding barber**\
 `The Athletic visited the first-round pick's apartment and watched him work on his hobby: cutting his teammates' hair for free.`\
 https://nytimes.com/athletic/7071776/2026/03/02/astros-prospect-xavier-neyens-barber/
-
-**Women's basketball conference championship guide: Schedule, TV for all 31 tournaments**\
-`Here's how to watch all the conference tournaments, where March Madness bids are automated and league titles are up for grabs.`\
-https://nytimes.com/athletic/7074690/2026/03/02/womens-basketball-conference-tournaments-2026-how-to-watch/
-
-**Winnipeg Jets 2026 trade deadline decisions: Who stays and who goes?**\
-`Let's sort through Winnipeg's roster from top to bottom, dividing them into tiers based on my read of the Jets' point of view.`\
-https://nytimes.com/athletic/7077700/2026/03/02/winnipeg-jets-trade-deadline-stays-goes/
-
-**This period of darkness feels hauntingly familiar: Monday Morning Leafs Report**\
-`It's been a long time since the energy around the Leafs felt this hopeless. How does that stack up statistically?`\
-https://nytimes.com/athletic/7079214/2026/03/02/maple-leafs-carlyle-berube-cowan-scoring/
-
-**Examining the Mikheyev puzzle before the trade deadline: Trade or re-sign?**\
-`While the Blackhawks like Mikheyev a lot, the situation isn't as simple as simply extending his contract.`\
-https://nytimes.com/athletic/7079494/2026/03/02/blackhawks-ilya-mikheyev-trade-deadline-extension-penalty-kill/
-
-**Broncos big board: 25 prospects Denver could target early in the 2026 NFL Draft**\
-`With free agency still ahead, the Broncos should be wide open as to which position they will target with the 30th pick.`\
-https://nytimes.com/athletic/7075635/2026/03/02/broncos-big-board-2026-nfl-draft/
 
