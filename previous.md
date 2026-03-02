@@ -1,3 +1,15 @@
+**They’re Hiring at U.S.A.I.D. Just Not Anyone Who Worked There.**\
+`The Trump administration said in a memo it wanted to “avoid the risk of impaired objectivity” by hiring former staff members to wind down operations at the U.S. Agency for International Development.`\
+https://nytimes.com/2026/03/02/us/politics/usaid-hiring.html
+
+**President Trump Appears at Public Event With a Red Skin Rash**\
+`President Trump’s physician did not explain what the skin condition was or what medication he was using to treat it.`\
+https://nytimes.com/2026/03/02/us/politics/trump-rash-neck.html
+
+**Adama Traore banned from lifting weights at West Ham, says Nuno**\
+`"It's enough weight that he carries. He'll do prevention work, but he's not in there lifting weights," Nuno said on Monday.`\
+https://nytimes.com/athletic/7081420/2026/03/02/adama-traore-muscles-weights-west-ham/
+
 **N.Y. Attorney General Orders Hospital to Resume Youth Transgender Care**\
 `NYU Langone Health had stopped providing puberty-blocking medication and hormone treatments after the federal government threatened to pull its funding.`\
 https://nytimes.com/2026/03/02/nyregion/transgender-youth-nyu-langone-attorney-general.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/university-campuses-middle-east-
 **Rutgers fires basketball coach Coquese Washington**\
 `The Scarlet Knights finished in last place in the Big Ten this season and ended the year on an 11-game losing streak. `\
 https://nytimes.com/athletic/7081969/2026/03/02/rutgers-fire-basketball-coquese-washington/
-
-**Full Time: Trinity Rodman's concerning injury**\
-`Welcome to Full TIme, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7082079/2026/03/02/trinity-rodman-injury-uswnt-full-time/
-
-**F.B.I. Investigates Texas Bar Shooting as Possible Act of Terrorism**\
-`A suspect wearing a sweatshirt with the words “Property of Allah” opened fire outside of a bar in downtown Austin early Sunday morning, killing at least two and injuring 14 others. The F.B.I. is now investigating the incident as a potential act of terrorism.`\
-https://nytimes.com/video/us/100000010747598/austin-shooting-texas-terrorism.html
-
-**Fueling Bold Ambition**\
-`The University of Alabama has more than 185 years of engineering education experience.`\
-https://nytimes.com/paidpost/university-of-alabama/university-of-alabama-at-birmingham/fueling-bold-ambition.html
 
