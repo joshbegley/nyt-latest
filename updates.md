@@ -1,3 +1,11 @@
+**Fantasy baseball Zero-SP draft strategy: Starters to target in mid-to-late rounds**\
+`Michael Salfino offers some prime mid-to-late round starting pitcher targets for managers employing a Zero-SP draft strategy.`\
+https://nytimes.com/athletic/7075783/2026/03/02/fantasy-baseball-zero-sp-draft-strategy-mid-late-round-starter-targets/
+
+**Democratic Turnout Was High During Early Voting in Texas**\
+`More than 1.3 million voters cast ballots in the Democratic primary during the early voting period that ended Friday. Many counties hadn’t yet reported their data.`\
+https://nytimes.com/2026/03/02/us/politics/democratic-turnout-early-voting-tx.html
+
 **Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
 `Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
 https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html

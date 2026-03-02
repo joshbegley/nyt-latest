@@ -1,3 +1,7 @@
+**Two Approaches to Musical Time, From the Vienna Philharmonic**\
+`The orchestra returned to Carnegie Hall for three concerts, led by Andris Nelsons, in which the playing was inconsistent but also moving.`\
+https://nytimes.com/2026/03/02/arts/music/vienna-philharmonic-carnegie-hall.html
+
 **Fantasy baseball Zero-SP draft strategy: Starters to target in mid-to-late rounds**\
 `Michael Salfino offers some prime mid-to-late round starting pitcher targets for managers employing a Zero-SP draft strategy.`\
 https://nytimes.com/athletic/7075783/2026/03/02/fantasy-baseball-zero-sp-draft-strategy-mid-late-round-starter-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081049/2026/03/02/world-baseball-classic-mlb-surve
 **What I'm hearing on the Penguins: Malkin's future, Dubas' deadline options**\
 `Evgeni Malkin and Kyle Dubas will have a face-to-face meeting this week to discuss his future.`\
 https://nytimes.com/athletic/7080962/2026/03/02/penguins-evgeni-malkin-contract-talks-nhl/
-
-**Submit a question for James Edwards' Knicks mailbag**\
-`The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
-https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
 
