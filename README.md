@@ -1,3 +1,15 @@
+**How to watch Iowa State vs. Arizona men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081834/2026/03/02/iowa-state-vs-arizona-stream-how-to-watch-march-2/
+
+**How to watch Detroit Mercy vs. Milwaukee women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Detroit Mercy Titans play the Milwaukee Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081832/2026/03/02/detroit-mercy-vs-milwaukee-stream-how-to-watch-march-2/
+
+**Georgia Jurors to Decide If Father’s Inaction Before a Shooting Was a Crime**\
+`Colin Gray testified that he never considered his son capable of carrying out a mass shooting at his school. Prosecutors argued that he ignored warning signs.`\
+https://nytimes.com/2026/03/02/us/georgia-school-shooting-father-trial.html
+
 **Here Are the Texas Races Where Latino Voters May Play a Critical Role**\
 `As Hispanic voters in the state have moved toward Republicans, both parties are trying to figure out the best way to appeal to them.`\
 https://nytimes.com/2026/03/02/us/elections/texas-latino-voters.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7081388/2026/03/02/kylian-mbappe-real-madrid-knee-i
 **Man Is Charged With Damaging Religious Property in Chabad Crash**\
 `The charges in federal court are the latest against Dan Sohail, who is accused of ramming his car into the Brooklyn headquarters of the Jewish movement.`\
 https://nytimes.com/2026/03/02/nyregion/chabad-brooklyn-charges-car.html
-
-**Fantasy football fallout: What David Montgomery trade means for Texans, Jahmyr Gibbs**\
-`David Montgomery is headed to Houston. Jake Ciely shares his 2026 fantasy football expectations for the former Lion.`\
-https://nytimes.com/athletic/7081411/2026/03/02/fantasy-football-trade-spin-david-montgomery/
-
-**Submit a question for Eric Koreen's Raptors mailbag**\
-`Call it the race to avoid the Play-In Tournament.`\
-https://nytimes.com/athletic/7081308/2026/03/02/toronto-raptors-mailbag-regular-season-finish/
-
-**Satellite Images Show Burning Iranian Naval Ships**\
-`Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
-https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html
 
