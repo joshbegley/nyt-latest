@@ -1,3 +1,7 @@
+**Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
+`Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
+https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
+
 **Serie A briefing: In a weekend of late goals, Romelu Lukaku's was the most poignant**\
 `Another dramatic round of action saw Roma squander a chance to distance Juventus in the race for a top-four finish`\
 https://nytimes.com/athletic/7080662/2026/03/02/serie-a-briefing-lukaku-napoli-inter-roma/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010747186/trump-administration-iran-
 **Austin Shooting Stokes Anti-Islam Speech Among Texas Conservatives**\
 `With primaries on Tuesday, politicians quickly cited the attack in their campaign messaging. Some Republicans called for stopping immigration, while Democrats called for gun control.`\
 https://nytimes.com/2026/03/02/us/austin-shooting-politics.html
-
-**Reporters Seek Comment. What Happens Next May Surprise You.**\
-`Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
-https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html
 

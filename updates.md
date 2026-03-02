@@ -1,3 +1,7 @@
+**Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
+`Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
+https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
+
 **Serie A briefing: In a weekend of late goals, Romelu Lukaku's was the most poignant**\
 `Another dramatic round of action saw Roma squander a chance to distance Juventus in the race for a top-four finish`\
 https://nytimes.com/athletic/7080662/2026/03/02/serie-a-briefing-lukaku-napoli-inter-roma/
