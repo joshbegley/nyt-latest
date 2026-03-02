@@ -1,3 +1,15 @@
+**How to Vote in the March 3 Primary in Texas**\
+`The primaries in the race for a U.S. Senate seat will be closely watched on Tuesday.`\
+https://nytimes.com/2026/03/02/us/elections/texas-how-to-vote.html
+
+**Bundesliga Briefing: Thioune lifts Bremen, patience a virtue at St. Pauli and Dortmund's identity crisis**\
+`Werder Bremen's 13-game winless run is over and St Pauli's faith in Alexander Blessin is being rewarded. Oh, Bayern are 11 points clear`\
+https://nytimes.com/athletic/7080512/2026/03/02/bundesliga-thioune-bremen-st-pauli-dortmund/
+
+**College baseball week in review: UCLA's Gasparino continues early-season tear**\
+`Clemson wins an eventful series against South Carolina. Florida beats Miami … again. Ranked teams struggled in midweek action.`\
+https://nytimes.com/athletic/7079936/2026/03/02/college-baseball-ucla-will-gasparino-clemson-south-carolina/
+
 **Bengals re-signing veteran guard Dalton Risner**\
 `Cincinnati keeps its offensive line intact by bringing back the right guard.`\
 https://nytimes.com/athletic/7080854/2026/03/02/bengals-dalton-risner-signing/
