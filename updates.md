@@ -1,3 +1,7 @@
+**USWNT blanks Argentina in SheBelieves Cup opener, Trinity Rodman suffers injury**\
+`Rodman and Lilly Reale, who came off the bench Sunday, left the pitch with injuries in the second half of the SheBelieves Cup game.`\
+https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
+
 **Hiller firing too little too late for Kings team with delusions of contending**\
 `While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
 https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/

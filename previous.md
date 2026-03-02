@@ -34,7 +34,7 @@ https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
 `In a sense, the club and the player are working backward from October.`\
 https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
 
-**USWNT captain Lindsey Heaps leads team to 2-0 SheBelieves Cup win, Trinity Rodman injured**\
-`Rodman and Lilly Reale left the pitch with injuries in the second half of the SheBelieves Cup game. `\
+**USWNT blanks Argentina in SheBelieves Cup opener, Trinity Rodman suffers injury**\
+`Rodman and Lilly Reale, who came off the bench Sunday, left the pitch with injuries in the second half of the SheBelieves Cup game.`\
 https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
 

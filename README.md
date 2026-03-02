@@ -1,3 +1,11 @@
+**Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
+`The last-in-the-division Blues surprised the Wild with two goals late in the third period to hand Minnesota a regulation loss.`\
+https://nytimes.com/athletic/7079688/2026/03/01/wild-quinn-hughes-kaprizov-gold-medal-blues/
+
+**Messi's double sparks Inter Miami's furious comeback vs. Orlando City**\
+`Inter Miami came from 2-0 down to avoid a disastrous start to the club's MLS Cup title defense and instead secure three points in Orlando`\
+https://nytimes.com/athletic/7080049/2026/03/01/inter-miami-orlando-city-messi-segovia-goals-video/
+
 **Hiller firing too little too late for Kings team with delusions of contending**\
 `While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
 https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/01/us/politics/trump-iran-attack-democratic-division
 **Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
 `In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
 https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
-
-**Cubs' plan for Justin Steele as they anticipate long playoff run: 'Need your best guys at the end'**\
-`In a sense, the club and the player are working backward from October.`\
-https://nytimes.com/athletic/7079803/2026/03/01/cubs-plan-justin-steele-anticipate-long-playoff-run/
-
-**USWNT blanks Argentina in SheBelieves Cup opener, Trinity Rodman suffers injury**\
-`Rodman and Lilly Reale, who came off the bench Sunday, left the pitch with injuries in the second half of the SheBelieves Cup game.`\
-https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
 
