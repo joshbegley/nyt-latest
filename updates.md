@@ -1,3 +1,19 @@
+**Among the Elites, Who Decides What Exploitation Looks Like?**\
+`“Industry” finished up its fourth season on Sunday night, and there is much to discuss.`\
+https://nytimes.com/2026/03/02/style/industry-season-finale-chat-elites.html
+
+**Blackhawks agree to trade defenseman Connor Murphy to Oilers**\
+`The pending UFA right-shot defender has been among the NHL's top shot-blockers in recent seasons.`\
+https://nytimes.com/athletic/7018755/2026/03/02/blackhawks-oilers-connor-murphy-trade/
+
+**Are Zendaya and Tom Holland Married?**\
+`The subject was brought up during the Actor Awards, to which Zendaya’s longtime stylist replied, “It’s very true.”`\
+https://nytimes.com/2026/03/02/style/zendaya-tom-holland-married.html
+
+**Palestinian Brothers Killed as Settler Violence Surges in the West Bank**\
+`Israeli extremists appear to have escalated their campaign to take over more of the occupied lands as world attention shifts to the war with Iran.`\
+https://nytimes.com/2026/03/02/world/middleeast/west-bank-settler-violence.html
+
 **Is A.I. Creating ‘Ghost GDP’?**\
 `On the “Hard Fork” podcast, Kevin Roose and Casey Newton asked the economics professor Anton Korinek about A.I.’s potential effects on the economy.`\
 https://nytimes.com/video/podcasts/100000010748131/is-ai-creating-ghost-gdp.html

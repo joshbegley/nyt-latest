@@ -1,3 +1,15 @@
+**Meeting on U.S. Measles Status is Delayed Until November**\
+`The decision to revoke the country’s elimination status would now likely come after the U.S. midterm elections, experts noted.`\
+https://nytimes.com/2026/03/02/well/measles-elimination-status-us.html
+
+**‘Bigfoot!’ Review: An Ogre Who Just Wants to Be Friends**\
+`The new musical from the comedian Amber Ruffin has a wholesome moral and silliness in spades.`\
+https://nytimes.com/2026/03/02/theater/bigfoot-review-amber-ruffin.html
+
+**Attack on U.S.-Flagged Oil Tanker in Bahrain Kills Shipyard Worker**\
+`It is not clear who attacked the tanker, Stena Imperative. Its U.S. operator, Crowley, described “aerial impacts” and said that a fire on board was quickly extinguished.`\
+https://nytimes.com/2026/03/02/world/middleeast/us-flagged-oil-tanker-bahrain-attack.html
+
 **Among the Elites, Who Decides What Exploitation Looks Like?**\
 `“Industry” finished up its fourth season on Sunday night, and there is much to discuss.`\
 https://nytimes.com/2026/03/02/style/industry-season-finale-chat-elites.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7081425/2026/03/02/risers-fallers-nfl-combine-kenyo
 **I Did It**\
 `Unboxing our modern consumer obsessions.`\
 https://nytimes.com/column/i-did-it
-
-**Palestinian Brothers Killed as Settler Violence Surges in the West Bank**\
-`Israeli extremists appear to have escalated their campaign to take over more of the occupied lands as world attention shifts to the war with Iran.`\
-https://nytimes.com/2026/03/02/world/middleeast/west-bank-settler-violence.html
-
-**The Government Wants to Punish Anthropic**\
-`This week on “Hard Fork” from The New York Times, the hosts Casey Newton and Kevin Roose talk about the government’s recent announcement that it will stop using Anthropic’s A.`\
-https://nytimes.com/video/podcasts/100000010748061/the-government-wants-to-punish-anthropic.html
-
-**Tensions Over the Iran War, Israel and A.I. Churn in a North Carolina Race**\
-`A new ad from a progressive challenger, Nida Allam, attacks Representative Valerie Foushee over financial backing she has received from defense contractors and the A.I. industry.`\
-https://nytimes.com/2026/03/02/us/politics/valerie-foushee-nida-allam-north-carolina-ai-israel-aipac.html
 
