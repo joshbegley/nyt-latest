@@ -1,3 +1,7 @@
+**Shane Lowry's late tailspin gives Nico Echavarria the Cognizant Classic win**\
+`Lowry double-bogeyed the 16th and 17th holes to lose a three-shot lead.`\
+https://nytimes.com/athletic/7079598/2026/03/01/shane-lowry-nico-echavarria-cognizant-classic/
+
 **10-Minute Challenge: Klimt’s Woman in Gold**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/03/01/upshot/ten-minute-challenge-klimt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/03/01/world/middleeast/girls-school-strike-iran-video.h
 **Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
 `Johnson already has familiarity with some of the Eagles' staff.`\
 https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-johnson-texans/
-
-**Penguins bounce back with conviction: 'Kind of a statement win for us'**\
-`The Penguins shut out the Pacific-leading Vegas Golden Knights 5-0 after a rough outing in New York the day before.`\
-https://nytimes.com/athletic/7079541/2026/03/01/penguins-shutout-silovs-rust-karlsson-vegas/
 
