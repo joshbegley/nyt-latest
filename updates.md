@@ -1,3 +1,7 @@
+**UConn completes 11th unbeaten regular season with rout of St. John's**\
+`The win marked the Huskies’ 47th straight victory, the fifth-longest winning streak in NCAA women’s basketball history.`\
+https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
+
 **Hiller firing too little, too late for Kings team with delusions of contending**\
 `While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
 https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
