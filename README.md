@@ -1,3 +1,7 @@
+**Trinity Rodman leaves SheBelieves Cup match after hard foul**\
+`Coach Emma Hayes said after the game she couldn't provide an immediate update on Rodman's status.`\
+https://nytimes.com/athletic/7080197/2026/03/01/trinity-rodman-back-injury-uswnt-argentina-shebelieves-cup/
+
 **U.S. Takes Casualties as Attacks on Iran Intensify**\
 `The U.S. and Israel attacked Iran for a second day, and Iran retaliated, striking Israel and Persian Gulf countries. One strike killed three American service members at a base in Kuwait.`\
 https://nytimes.com/video/world/middleeast/100000010745920/iran-us-israel-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079733/2026/03/01/bulls-bucks-score-results-takeaw
 **Levshunov finds his balance as Blackhawks shut out Mammoth**\
 `The young defenseman has had a great stretch of games since the Blackhawks returned from the break, and it shows on the stat sheet.`\
 https://nytimes.com/athletic/7079817/2026/03/01/blackhawks-artyom-levshunov-defenseman-stats-blashill-mammoth/
-
-**Warriors' Steph Curry making progress in return, to be re-evaluated in 10 days**\
-`The Golden State star has been dealing with runner's knee for over a month and has not participated in a game since Jan. 30.`\
-https://nytimes.com/athletic/7079888/2026/03/01/steph-curry-injury-update-return-timetable/
 

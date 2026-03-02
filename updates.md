@@ -1,3 +1,11 @@
+**U.S. Takes Casualties as Attacks on Iran Intensify**\
+`The U.S. and Israel attacked Iran for a second day, and Iran retaliated, striking Israel and Persian Gulf countries. One strike killed three American service members at a base in Kuwait.`\
+https://nytimes.com/video/world/middleeast/100000010745920/iran-us-israel-attack.html
+
+**Hiller firing too little, too late for Kings team with delusions of contending**\
+`While a new voice can help the Kings move on from last season's playoff disaster against the Oilers, it's shocking it took this long.`\
+https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
+
 **Fighting Between Israel and Hezbollah Reignites as Iran War Expands**\
 `Beirut residents fled in panic as Israeli jets struck Hezbollah strongholds in response to a midnight barrage, an expansion of the war between Israel, the U.S. and Iran.`\
 https://nytimes.com/2026/03/01/world/middleeast/israel-strikes-beirut-hezbollah.html
