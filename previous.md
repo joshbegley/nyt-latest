@@ -1,3 +1,7 @@
+**Falcons mailbag: Submit your NFL combine and free agency questions for Josh Kendall**\
+`If you have lingering questions coming out of the NFL combine or are already thinking about free agency, drop them here.`\
+https://nytimes.com/athletic/7081660/2026/03/02/falcons-mailbag-nfl-combine-free-agency-josh-kendall/
+
 **'Like to give them a bump': Bruins GM Don Sweeney is hunting, preferably for a right-shot defenseman**\
 `The Bruins have played their way into the playoff hunt and Sweeney wants to reward them for it — but is keeping his eye on the future.`\
 https://nytimes.com/athletic/7081531/2026/03/02/bruins-trade-deadline-plans-don-sweeney/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions
 **Macron Expands French Nuclear Arsenal and Vows Protection for Neighbors**\
 `The announcement was a significant step in forging a European deterrent as Russia grows more aggressive and the U.S. steps back.`\
 https://nytimes.com/2026/03/02/world/europe/france-nuclear-arsenal-macron.html
-
-**He Hatched a Plot to Kill Trump on a Napkin. The F.B.I. Was Listening.**\
-`Testimony and evidence in Asif Merchant’s trial has so far portrayed him as a zealous yet bumbling operative who never came close to his mission, which prosecutors say was backed by Iran.`\
-https://nytimes.com/2026/03/02/nyregion/merchant-iran-plot-assassination-trump.html
 

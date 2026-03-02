@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/02/us/elections/texas-redistricting-house-map.html
 `Readers debate the justification for President Trump’s decision to take military action against Iran.`\
 https://nytimes.com/2026/03/02/opinion/trump-us-iran-attack.html
 
-**Commanders to release CB Marshon Lattimore, ending failed experiment**\
+**Commanders inform CB Marshon Lattimore he will be released: Source**\
 `The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
 https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/
 
