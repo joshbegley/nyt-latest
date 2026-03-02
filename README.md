@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/heres-the-latest
+
+**Election Live Updates: Primary Candidates Sprint to Finish in First Midterm Tests**\
+`Texas, North Carolina and Arkansas hold the first primaries of the year on Tuesday, when the parties will pick nominees for November matchups that could help determine control of the House and Senate.`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar
+
 **Takeaways from the Fourth Week of the Alexander Brothers Trial**\
 `The prosecution said it plans to drop two charges against the three men. Defense attorneys are expected to start their case this week.`\
 https://nytimes.com/2026/03/02/nyregion/alexanders-trial-takeaways-sex-crime.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/03/02/world/middleeast/israel-lebanon-strikes-hezbollah
 **Iranian Attacks Target Gulf Energy Infrastructure, Upping the Ante**\
 `Strikes on sites in Qatar and Saudi Arabia forced the closure of key production facilities and added to growing worries about global oil and gas supplies.`\
 https://nytimes.com/2026/03/02/world/middleeast/iranian-attacks-target-gulf-energy-infrastructure-upping-the-ante.html
-
-**Spurs ban three fans for Nazi salutes, handed suspended UEFA ticket sanction**\
-`UEFA have handed Tottenham a suspended sanction from selling away tickets for one of the governing body's games alongside a €30,000 fine.`\
-https://nytimes.com/athletic/7081002/2026/03/02/tottenham-fans-nazi-salutes-ban/
-
-**Elias Pettersson's benching, the fragile Canucks and the rise of Landon DuPont**\
-`Vancouver has finally arrived at the bottom. There's a cost to that, of course, but hope sits at the extremes.`\
-https://nytimes.com/athletic/7078520/2026/03/02/elias-pettersson-canucks-benched-standings-trades/
 

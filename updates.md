@@ -1,3 +1,8 @@
+**The Bounce: Look at Nikola Jokić's vengeful eyes. Plus, Unrivaled playoffs preview**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7081065/2026/03/02/nikola-jokic-lu-dort-nuggets-thunder-the-bounce/
+
 **Takeaways from the Fourth Week of the Alexander Brothers Trial**\
 `The prosecution said it plans to drop two charges against the three men. Defense attorneys are expected to start their case this week.`\
 https://nytimes.com/2026/03/02/nyregion/alexanders-trial-takeaways-sex-crime.html
