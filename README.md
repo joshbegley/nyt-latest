@@ -1,3 +1,11 @@
+**Lack of the little things add up to a Sixers loss to the Celtics**\
+`Philadelphia did a lot of things right on Sunday night in Boston. But they lost the game on the margins.`\
+https://nytimes.com/athletic/7080303/2026/03/02/sixers-rebounding-joel-embiid-loss-boston/
+
+**The War Expands**\
+`We have the latest news from multiple fronts in the Middle East.`\
+https://nytimes.com/2026/03/02/briefing/the-war-expands.html
+
 **Canada’s Leader Hails New Ties With India, Setting Aside Rift Over Killing**\
 `Prime Minister Mark Carney focused on business during a meeting with his Indian counterpart, Narendra Modi, with little mention of India’s alleged role in a deadly shooting in 2023.`\
 https://nytimes.com/2026/03/02/world/canada/carney-india-modi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079494/2026/03/02/blackhawks-ilya-mikheyev-trade-d
 **Broncos big board: 25 prospects Denver could target early in the 2026 NFL Draft**\
 `With free agency still ahead, the Broncos should be wide open as to which position they will target with the 30th pick.`\
 https://nytimes.com/athletic/7075635/2026/03/02/broncos-big-board-2026-nfl-draft/
-
-**What are the best men's college basketball rivalries? Make your picks here**\
-`After we ranked the top 50 rivalries in men's college basketball, we want to hear your top picks and best memories.`\
-https://nytimes.com/athletic/7080612/2026/03/02/college-basketball-best-rivalries-survey/
-
-**What the ideal Red Wings trade deadline would look like**\
-`How much should Detroit add? Where? And in a suddenly more crowded market of viable sellers, who are the right fits?`\
-https://nytimes.com/athletic/7079154/2026/03/02/red-wings-ideal-trade-deadline-scenario/
 
