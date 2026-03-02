@@ -1,3 +1,23 @@
+**The War in Iran: A Place for Student Questions and Reactions**\
+`How are you making sense of this news? Whether you already understand some of the context or whether it’s all new for you, we hope our free materials can help.`\
+https://nytimes.com/2026/03/02/learning/the-war-in-iran-a-place-for-student-questions-and-reactions.html
+
+**The Legality, or Illegality, of Killing a Foreign Leader, Explained**\
+`The United States and Israel started a war with Iran by killing its supreme leader, Ayatollah Ali Khamenei.`\
+https://nytimes.com/2026/03/02/us/politics/iran-khamenei-dead-trump-legal.html
+
+**David Montgomery traded, but his impact on the Lions' rise is undeniable**\
+`Montgomery and Jahmyr Gibbs formed one of the NFL's best RB tandems, but Montgomery saw his role diminished last season.`\
+https://nytimes.com/athletic/7082141/2026/03/02/lions-david-montgomery-legacy-traded/
+
+**NBA player says Hawks' 'Magic City' promotion 'would reflect poorly' on league**\
+`In response to the Hawks partnering with the Atlanta strip club, Luke Kornet wrote that "the NBA should desire to protect and esteem women."`\
+https://nytimes.com/athletic/7082061/2026/03/02/spurs-luke-kornet-hawks-magic-city-monday/
+
+**U.S. Imposes Sanctions on Rwanda, Saying It Sabotaged Trump Peace Deal**\
+`Rwanda’s government responded by claiming the sanctions unjustly targeted only one party to the conflict and misrepresented the facts.`\
+https://nytimes.com/2026/03/02/world/africa/rwanda-sanctions-trump-peace-m23.html
+
 **Chow down at Cardinals games: All-you-can-eat tickets for $29**\
 `How many hot dogs can one person eat at a baseball game? St. Louis Cardinals fans will have the opportunity to find out.`\
 https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-concessions/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/02/briefing/trump-iran-long-war-primary-election-sea
 **Limited Number of Flights Resume From Dubai Airports**\
 `A limited number of flights at Dubai International Airport resumed on Monday night after the airport shut down because of airstrikes in the region.`\
 https://nytimes.com/video/world/middleeast/100000010747587/dubai-airports-flights-resume.html
-
-**Rubio Warns ‘Hardest Hits’ on Iran Lie Ahead and Offers Conflicting Rationales**\
-`The secretary of state signaled that an escalation in Iran was likely and said the attacks underway were both pre-emptive and defensive, describing a far more extensive mission than was initially laid out.`\
-https://nytimes.com/2026/03/02/world/middleeast/rubio-iran-war-strikes.html
-
-**They’re Hiring at U.S.A.I.D. Just Not Anyone Who Worked There.**\
-`The Trump administration said in a memo it wanted to “avoid the risk of impaired objectivity” by hiring former staff members to wind down operations at the U.S. Agency for International Development.`\
-https://nytimes.com/2026/03/02/us/politics/usaid-hiring.html
-
-**Latest Question on Trump’s Health: What Is That Neck Rash?**\
-`President Trump’s physician did not explain what the skin condition was or what medication he was using to treat it.`\
-https://nytimes.com/2026/03/02/us/politics/trump-rash-neck.html
-
-**Adama Traore banned from lifting weights at West Ham, says Nuno**\
-`"It's enough weight that he carries. He'll do prevention work, but he's not in there lifting weights," Nuno said on Monday.`\
-https://nytimes.com/athletic/7081420/2026/03/02/adama-traore-muscles-weights-west-ham/
-
-**N.Y. Attorney General Orders Hospital to Resume Youth Transgender Care**\
-`NYU Langone Health had stopped providing puberty-blocking medication and hormone treatments after the federal government threatened to pull its funding.`\
-https://nytimes.com/2026/03/02/nyregion/transgender-youth-nyu-langone-attorney-general.html
 
