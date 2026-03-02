@@ -1,3 +1,7 @@
+**Maggie Gyllenhaal on Envy, Rage and Reaching Out to Her Brother**\
+`With a big budget and a lot to say, the filmmaker Maggie Gyllenhaal is unleashing her inner monster with “The Bride!”`\
+https://nytimes.com/video/podcasts/100000010746526/maggie-gyllenhaal-on-envy-rage-and-reaching-out-to-her-brother.html
+
 **Here’s the latest.**\
 `By Christina Goldbaum, Aaron Boxerman and Yan Zhuang`\
 https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times
 **Germany’s Chancellor Is in Washington. It Gets Worse.**\
 `Friedrich Merz’s chancellorship is in choppy waters.`\
 https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
-
-**‘Vladimir,’ Plus 7 Things to Watch on TV this Week**\
-`The new limited series starring Leo Woodall and Rachel Weisz premieres, and two true-crime documentaries air.`\
-https://nytimes.com/2026/03/02/arts/television/vladimir-plus-7-watch-on-tv-this-week.html
 
