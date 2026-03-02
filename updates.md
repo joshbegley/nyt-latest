@@ -1,3 +1,7 @@
+**Maggie Gyllenhaal on Envy, Rage and Reaching Out to Her Brother**\
+`With a big budget and a lot to say, the filmmaker Maggie Gyllenhaal is unleashing her inner monster with “The Bride!”`\
+https://nytimes.com/video/podcasts/100000010746526/maggie-gyllenhaal-on-envy-rage-and-reaching-out-to-her-brother.html
+
 **Live Updates: War With Iran Escalates as Israel Strikes Hezbollah in Lebanon**\
 `The Iran-backed militant group launched rockets into Israel as Iran fired on Israel and Arab states. President Trump told The New York Times that the U.S. planned to keep up the assault on Iran for “four or five weeks.”`\
 https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump

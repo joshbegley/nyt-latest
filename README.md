@@ -1,3 +1,7 @@
+**N.B.A. Tanking, March Madness and the Rise of Angel Reese**\
+`Has the N.B.A.’s tanking problem finally reached breaking point?`\
+https://nytimes.com/2026/03/02/podcasts/nba-tanking-march-madness-angela-reese.html
+
 **Maggie Gyllenhaal on Envy, Rage and Reaching Out to Her Brother**\
 `With a big budget and a lot to say, the filmmaker Maggie Gyllenhaal is unleashing her inner monster with “The Bride!”`\
 https://nytimes.com/video/podcasts/100000010746526/maggie-gyllenhaal-on-envy-rage-and-reaching-out-to-her-brother.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010746291/israel-strikes-beirut
 **The New York Times in Print for Monday, March 2, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times
-
-**Germany’s Chancellor Is in Washington. It Gets Worse.**\
-`Friedrich Merz’s chancellorship is in choppy waters.`\
-https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
 
