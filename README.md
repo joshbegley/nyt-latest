@@ -1,3 +1,7 @@
+**Rubio Warns ‘Hardest Hits’ on Iran Lie Ahead and Offers Conflicting Rationales**\
+`The secretary of state signaled that an escalation in Iran was likely and said the attacks underway were both pre-emptive and defensive, describing a far more extensive mission than was initially laid out.`\
+https://nytimes.com/2026/03/02/world/middleeast/rubio-iran-war-strikes.html
+
 **They’re Hiring at U.S.A.I.D. Just Not Anyone Who Worked There.**\
 `The Trump administration said in a memo it wanted to “avoid the risk of impaired objectivity” by hiring former staff members to wind down operations at the U.S. Agency for International Development.`\
 https://nytimes.com/2026/03/02/us/politics/usaid-hiring.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/science/trees-glowing-st-elmos-fire.html
 **U.S. University Campuses in Mideast Move Classes Online as War Spreads**\
 `A number of major universities with campuses in Qatar and other nations are operating remotely as the conflict expands throughout the region.`\
 https://nytimes.com/2026/03/02/world/middleeast/university-campuses-middle-east-cancel-classes.html
-
-**Rutgers fires basketball coach Coquese Washington**\
-`The Scarlet Knights finished in last place in the Big Ten this season and ended the year on an 11-game losing streak. `\
-https://nytimes.com/athletic/7081969/2026/03/02/rutgers-fire-basketball-coquese-washington/
 
