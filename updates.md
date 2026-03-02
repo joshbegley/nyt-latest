@@ -1,3 +1,7 @@
+**Fighting Between Israel and Hezbollah Reignites as Iran War Expands**\
+`Beirut residents fled in panic as Israeli jets struck Hezbollah strongholds in response to a midnight barrage, an expansion of the war between Israel, the U.S. and Iran.`\
+https://nytimes.com/2026/03/01/world/middleeast/israel-strikes-beirut-hezbollah.html
+
 **UConn completes 11th unbeaten regular season with rout of St. John's**\
 `The win marked the Huskies’ 47th straight victory, the fifth-longest winning streak in NCAA women’s basketball history.`\
 https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
