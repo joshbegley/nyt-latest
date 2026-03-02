@@ -1,3 +1,7 @@
+**Hiller firing too little, too late for Kings team with delusions of contending**\
+`While a new voice behind the bench can help the Kings move on from last season's playoffs disaster, it's shocking it took this long.`\
+https://nytimes.com/athletic/7079922/2026/03/01/kings-jim-hiller-fired-smith-holland-playoffs-chase/
+
 **Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
 `The last-in-the-division Blues surprised the Wild with two goals late in the third period to hand Minnesota a regulation loss.`\
 https://nytimes.com/athletic/7079688/2026/03/01/wild-quinn-hughes-kaprizov-gold-medal-blues/

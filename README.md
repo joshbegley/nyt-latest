@@ -1,3 +1,7 @@
+**UConn completes 11th unbeaten regular season with rout of St. John's**\
+`The win marked the Huskies’ 47th straight victory, the fifth-longest win streak in NCAA women’s basketball history.`\
+https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
+
 **Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
 `The last-in-the-division Blues surprised the Wild with two goals late in the third period to hand Minnesota a regulation loss.`\
 https://nytimes.com/athletic/7079688/2026/03/01/wild-quinn-hughes-kaprizov-gold-medal-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079857/2026/03/01/tyler-reddick-michael-jordan-nas
 **Democrats Denounce Trump’s Iran Attack, but Subtle Divisions Emerge**\
 `While most Democrats have opposed his decision, their responses reveal differences over Middle East policy and national security that loom over the party’s future.`\
 https://nytimes.com/2026/03/01/us/politics/trump-iran-attack-democratic-divisions.html
-
-**Trump Says War Could Last Weeks and Offers Contradictory Visions of New Regime**\
-`In a brief interview, he said the country’s hardened military should simply surrender their weapons to the Iranian public.`\
-https://nytimes.com/2026/03/01/us/politics/trump-iran-war-interview.html
 
