@@ -1,3 +1,7 @@
+**NHL trade grades: Connor Murphy worth the price to improve Oilers' blue line, penalty kill**\
+`The Blackhawks also did well to get a second-round pick for the 32-year-old defenseman.`\
+https://nytimes.com/athletic/7081953/2026/03/02/nhl-trade-grades-connor-murphy-oilers-blackhawks/
+
 **Judge: Exec can work at Spire while Joe Gibbs Racing lawsuit unfolds**\
 `The ongoing legal saga between JGR and its former competition director continued Monday in a North Carolina courtroom.`\
 https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports-joe-gibbs-racing/
