@@ -1,3 +1,7 @@
+**In Republican Win, Supreme Court Retains G.O.P. District in New York**\
+`A Republican congresswoman had asked the justices to preserve her New York City district, despite a lower-court ruling that it illegally diluted the power of minority voters.`\
+https://nytimes.com/2026/03/02/us/politics/supreme-court-malliotakis-new-york.html
+
 **The War in Iran: A Place for Student Questions and Reactions**\
 `How are you making sense of this news? Whether you already understand some of the context or whether it’s all new for you, we hope our free materials can help.`\
 https://nytimes.com/2026/03/02/learning/the-war-in-iran-a-place-for-student-questions-and-reactions.html

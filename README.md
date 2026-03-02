@@ -1,3 +1,11 @@
+**NCAA advises schools to brace for March Madness travel disruptions**\
+`The NCAA cited the busy spring-break travel season and possible TSA-related delays due to a partial government shutdown as two reasons.`\
+https://nytimes.com/athletic/7082146/2026/03/02/march-madness-travel-disruptions-ncaa-charter-plane-shortage/
+
+**See when your state holds its primary.**\
+`By Alex Lemonides and Lily Boyce`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/see-when-your-state-holds-its-primary
+
 **In Republican Win, Supreme Court Retains G.O.P. District in New York**\
 `A Republican congresswoman had asked the justices to preserve her New York City district, despite a lower-court ruling that it illegally diluted the power of minority voters.`\
 https://nytimes.com/2026/03/02/us/politics/supreme-court-malliotakis-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-conces
 **Track the battle to reshape the congressional maps.**\
 `By David W. Chen`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/track-the-battle-to-reshape-the-congressional-maps
-
-**Trump Signals U.S. Is Prepared for Long War Against Iran**\
-`President Trump also declined to rule out sending ground troops into Iran as the conflict spread into the Gulf countries and Lebanon and Israel exchanged strikes.`\
-https://nytimes.com/2026/03/02/world/middleeast/iran-war-us-israel-trump.html
-
-**Trump Foresees an Extended War**\
-`Also, how the U.S. decided to strike Iran. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/03/02/briefing/trump-iran-long-war-primary-election-season.html
 

@@ -1,3 +1,7 @@
+**In Republican Win, Supreme Court Retains G.O.P. District in New York**\
+`A Republican congresswoman had asked the justices to preserve her New York City district, despite a lower-court ruling that it illegally diluted the power of minority voters.`\
+https://nytimes.com/2026/03/02/us/politics/supreme-court-malliotakis-new-york.html
+
 **The War in Iran: A Place for Student Questions and Reactions**\
 `How are you making sense of this news? Whether you already understand some of the context or whether it’s all new for you, we hope our free materials can help.`\
 https://nytimes.com/2026/03/02/learning/the-war-in-iran-a-place-for-student-questions-and-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/iran-war-us-israel-trump.html
 **Trump Foresees an Extended War**\
 `Also, how the U.S. decided to strike Iran. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/02/briefing/trump-iran-long-war-primary-election-season.html
-
-**Limited Number of Flights Resume From Dubai Airports**\
-`A limited number of flights at Dubai International Airport resumed on Monday night after the airport shut down because of airstrikes in the region.`\
-https://nytimes.com/video/world/middleeast/100000010747587/dubai-airports-flights-resume.html
 
