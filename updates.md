@@ -1,3 +1,11 @@
+**Iran Strikes U.S. Military Facilities Across Gulf Region**\
+`A Times analysis of satellite imagery and verified videos shows Iran found vulnerabilities in U.S. locations in the region.`\
+https://nytimes.com/2026/03/01/world/middleeast/iran-strikes-us-military-facilities.html
+
+**Trinity Rodman leaves SheBelieves Cup match after hard foul**\
+`Coach Emma Hayes said after the game she couldn't provide an immediate update on Rodman's status.`\
+https://nytimes.com/athletic/7080197/2026/03/01/trinity-rodman-back-injury-uswnt-argentina-shebelieves-cup/
+
 **U.S. Takes Casualties as Attacks on Iran Intensify**\
 `The U.S. and Israel attacked Iran for a second day, and Iran retaliated, striking Israel and Persian Gulf countries. One strike killed three American service members at a base in Kuwait.`\
 https://nytimes.com/video/world/middleeast/100000010745920/iran-us-israel-attack.html
