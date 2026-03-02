@@ -1,4 +1,16 @@
-**Meeting on U.S. Measles Status is Delayed Until November**\
+**He Is Charged With Murder. He Could Become a Sheriff.**\
+`Aaron Spencer has been charged with fatally shooting a man accused of assaulting Mr. Spencer’s daughter. But ahead of his trial, he’s running for county sheriff in Arkansas.`\
+https://nytimes.com/2026/03/02/us/elections/arkansas-sheriff-election-murder-charge.html
+
+**Conflict Spreads Across the Gulf**\
+`Iran is expanding the conflict to put pressure on the U.S. and its allies.`\
+https://nytimes.com/2026/03/02/world/iran-conflict-gulf-lebanon-iraq-cyprus.html
+
+**For Travelers Stuck in Dubai, ‘Chaos and Confusion’ and a Nervous Wait**\
+`The Emirates’ reputation as a safe destination in a volatile area was put to a brutal test in recent days as Iran, retaliating against U.S.-Israeli attacks, targeted the region with missiles and drones.`\
+https://nytimes.com/2026/03/02/travel/dubai-travelers-stuck-iran-war.html
+
+**Meeting on U.S. Measles Status Is Delayed Until November**\
 `The decision to revoke the country’s elimination status would now likely come after the U.S. midterm elections, experts noted.`\
 https://nytimes.com/2026/03/02/well/measles-elimination-status-us.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/02/style/zendaya-tom-holland-married.html
 **Is A.I. Creating ‘Ghost GDP’?**\
 `On the “Hard Fork” podcast, Kevin Roose and Casey Newton asked the economics professor Anton Korinek about A.I.’s potential effects on the economy.`\
 https://nytimes.com/video/podcasts/100000010748131/is-ai-creating-ghost-gdp.html
-
-**As Maduro and Khamenei Learned, It’s Harder Than Ever for Leaders to Hide**\
-`A surge in sensors and cameras, combined with artificial intelligence, has transformed the U.S. intelligence’s ability to locate foreign heads of state. Add to that an American president willing to capture or kill.`\
-https://nytimes.com/2026/03/02/us/politics/maduro-khamenei-trump-surveillance.html
-
-**Scoop City: Kenyon Sadiq leads post-combine risers and fallers**\
-`Oregon's Kenyon Sadiq just did something comparable to Vernon Davis' legendary combine`\
-https://nytimes.com/athletic/7081425/2026/03/02/risers-fallers-nfl-combine-kenyon-sadiq/
-
-**I Did It**\
-`Unboxing our modern consumer obsessions.`\
-https://nytimes.com/column/i-did-it
 
