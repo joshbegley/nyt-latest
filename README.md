@@ -1,3 +1,11 @@
+**The Costs of the Strikes on Iran**\
+`Rising oil prices, volatile stocks and potentially higher inflation are all weighing on investors’ minds as the military campaign continues.`\
+https://nytimes.com/2026/03/02/business/dealbook/iran-strikes-oil-inflation.html
+
+**The Verdict: Michael Bradley's Baby Bulls are stealing the early MLS spotlight**\
+`Teenage talent and a first-year head coach with plenty of pedigree has Red Bull New York turning heads after two weeks`\
+https://nytimes.com/athletic/7079450/2026/03/02/red-bull-new-york-hall-mehmeti-teenagers-michael-bradley-mls/
+
 **F1 chartering flights to ensure key staff arrive at Australian GP on time**\
 `The fallout from the U.S.-Israeli strikes on Iran on Saturday is disrupting travel in the Middle East, a major global transport hub.`\
 https://nytimes.com/athletic/7080696/2026/03/02/f1-australian-grand-prix-iran-conflict/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080547/2026/03/02/inside-newcastle-qa-chris-waugh-
 **The defining FPL decisions before Gameweek 29**\
 `The final whistle has barely blown on Gameweek 28, but with the next deadline at 6pm GMT (1pm ET) tomorrow, there is no rest for the wicked`\
 https://nytimes.com/athletic/7079567/2026/03/02/fantasy-premier-league-gameweek-29-fpl-tips/
-
-**Word of the Day: capacious**\
-`This word has appeared in 82 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/02/learning/word-of-the-day-capacious.html
-
-**Lack of the little things add up to a Sixers loss to the Celtics**\
-`Philadelphia did a lot of things right on Sunday night in Boston. But they lost the game on the margins.`\
-https://nytimes.com/athletic/7080303/2026/03/02/sixers-rebounding-joel-embiid-loss-boston/
 
