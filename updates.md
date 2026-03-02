@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, March 2, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times
+
+**Germany’s Chancellor Has Bigger Problems Than Trump**\
+`Friedrich Merz’s chancellorship is in choppy waters.`\
+https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
+
+**‘Vladimir,’ Plus 7 Things to Watch on TV this Week**\
+`The new limited series starring Leo Woodall and Rachel Weisz premieres, and two true-crime documentaries air.`\
+https://nytimes.com/2026/03/02/arts/television/vladimir-plus-7-watch-on-tv-this-week.html
+
 **Raya and a stunning save that brought Mikel Arteta 'back to life'**\
 `The Spanish goalkeeper is securing his side precious points in an increasingly tense title race`\
 https://nytimes.com/athletic/7079503/2026/03/02/arsenal-david-raya-save/
