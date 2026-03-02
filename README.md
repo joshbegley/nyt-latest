@@ -1,3 +1,7 @@
+**U.S. Sending More Forces to Middle East as Iran War Widens**\
+`Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, said more troops and fighter jets were heading to the region. He acknowledged the possibility of an extended campaign.`\
+https://nytimes.com/2026/03/02/us/politics/trump-administration-troops-iran-war.html
+
 **Two Approaches to Musical Time, From the Vienna Philharmonic**\
 `The orchestra returned to Carnegie Hall for three concerts, led by Andris Nelsons, in which the playing was inconsistent but also moving.`\
 https://nytimes.com/2026/03/02/arts/music/vienna-philharmonic-carnegie-hall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080215/2026/03/02/tigers-red-wings-detroit-sportsn
 **The Windup: Welcome to WBC week**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7081049/2026/03/02/world-baseball-classic-mlb-survey-results-the-windup/
-
-**What I'm hearing on the Penguins: Malkin's future, Dubas' deadline options**\
-`Evgeni Malkin and Kyle Dubas will have a face-to-face meeting this week to discuss his future.`\
-https://nytimes.com/athletic/7080962/2026/03/02/penguins-evgeni-malkin-contract-talks-nhl/
 
