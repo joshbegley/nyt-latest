@@ -1,3 +1,15 @@
+**Can Mountains of Money Save Cornyn and Lift Talarico in Texas?**\
+`The primary race for Senate in Texas has become the most expensive on record, with John Cornyn and James Talarico heavily outspending their rivals. But Mr. Cornyn seems to be in trouble.`\
+https://nytimes.com/2026/03/02/us/elections/cornyn-talarico-texas-senate-money.html
+
+**Wild trade tracker: Top target Trocheck says if he's moved, he wants to have 'chance to win'**\
+`Stamkos has 29 goals in 58 games for the Predators this season and would look good on the Wild power play. But at what cost?`\
+https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-2026/
+
+**Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
+`Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
+https://nytimes.com/2026/03/02/business/natural-gas-prices-qatar-europe-asia.html
+
 **Rangers' Trocheck talks trade, leverage, landing spot**\
 `Trocheck is carrying himself with the ease of a player who’s ready to embrace whatever comes next.`\
 https://nytimes.com/athletic/7081314/2026/03/02/rangers-vincent-trocheck-trade-rumors-nhl/
