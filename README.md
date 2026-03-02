@@ -1,3 +1,7 @@
+**Robert Thomas to the Mammoth? Breaking down what a trade could look like for the Blues**\
+`Utah is reportedly a possible destination if the Blues trade Robert Thomas. What would the Mammoth have to send back? Would it be worth it?`\
+https://nytimes.com/athletic/7081120/2026/03/02/blues-robert-thomas-trade-mammoth-projection/
+
 **He Is Charged With Murder. He Could Become a Sheriff.**\
 `Aaron Spencer has been charged with fatally shooting a man accused of assaulting Mr. Spencer’s daughter. But ahead of his trial, he’s running for county sheriff in Arkansas.`\
 https://nytimes.com/2026/03/02/us/elections/arkansas-sheriff-election-murder-charge.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7018755/2026/03/02/blackhawks-oilers-connor-murphy-
 **Are Zendaya and Tom Holland Married?**\
 `The subject was brought up during the Actor Awards, to which Zendaya’s longtime stylist replied, “It’s very true.”`\
 https://nytimes.com/2026/03/02/style/zendaya-tom-holland-married.html
-
-**Is A.I. Creating ‘Ghost GDP’?**\
-`On the “Hard Fork” podcast, Kevin Roose and Casey Newton asked the economics professor Anton Korinek about A.I.’s potential effects on the economy.`\
-https://nytimes.com/video/podcasts/100000010748131/is-ai-creating-ghost-gdp.html
 
