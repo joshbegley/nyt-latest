@@ -1,3 +1,7 @@
+**10-Minute Challenge: Klimt’s Woman in Gold**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/03/01/upshot/ten-minute-challenge-klimt.html
+
 **In New York, Fury, Anxiety and Joy Over the Attacks on Iran**\
 `As Mayor Zohran Mamdani assailed what he called a “catastrophic escalation” in Iran, some Iranian Americans worried about what comes next, while others celebrated.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-attacks-reaction-new-york.html
@@ -19,7 +23,7 @@ https://nytimes.com/2026/03/01/us/politics/trump-racism-woodrow-wilson.html
 https://nytimes.com/2026/03/01/crosswords/daily-puzzle-2026-03-02.html
 
 **2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
-`Celebrities are walking the red carpet at the Shrine Auditorium in Los Angeles for the Screen Actors Guild’s Actor Awards.`\
+`Teyana Taylor, Noah Wyle and Chase Infiniti are among the arrivals at the Shrine Auditorium in Los Angeles for the Screen Actor Guild’s Actor Awards.`\
 https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
 
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-joh
 **Penguins bounce back with conviction: 'Kind of a statement win for us'**\
 `The Penguins shut out the Pacific-leading Vegas Golden Knights 5-0 after a rough outing in New York the day before.`\
 https://nytimes.com/athletic/7079541/2026/03/01/penguins-shutout-silovs-rust-karlsson-vegas/
-
-**Ready for WBC, Byron Buxton says Twins clubhouse is in good spot**\
-`Buxton's messages to Twins teammates before he left: "Come out and challenge yourself."`\
-https://nytimes.com/athletic/7079464/2026/03/01/byron-buxton-world-baseball-classic-twins/
 

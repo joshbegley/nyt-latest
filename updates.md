@@ -1,3 +1,11 @@
+**10-Minute Challenge: Klimt’s Woman in Gold**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2026/03/01/upshot/ten-minute-challenge-klimt.html
+
+**2026 SAG Actor Awards: Photos of the Stars’ Red Carpet Arrival Looks**\
+`Teyana Taylor, Noah Wyle and Chase Infiniti are among the arrivals at the Shrine Auditorium in Los Angeles for the Screen Actor Guild’s Actor Awards.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
+
 **In New York, Fury, Anxiety and Joy Over the Attacks on Iran**\
 `As Mayor Zohran Mamdani assailed what he called a “catastrophic escalation” in Iran, some Iranian Americans worried about what comes next, while others celebrated.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-attacks-reaction-new-york.html
