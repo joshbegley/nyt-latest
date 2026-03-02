@@ -1,3 +1,15 @@
+**Arsenal set-piece coach's contract contains bonus clause for dead-ball goals**\
+`Arsenal have scored 16 goals from corners this season, the joint-most by any side in a single campaign.`\
+https://nytimes.com/athletic/7080468/2026/03/02/arsenal-set-piece-goals-nicolas-jover-contract/
+
+**The Athletic's men's hoops Top 25: Duke steady at No. 1, but Florida surges into top 5**\
+`This week's rankings include a number of teams — including Michigan and Florida — playing lineups with a ton of height. `\
+https://nytimes.com/athletic/7079793/2026/03/02/mens-college-basketball-top-25-duke-michigan-florida/
+
+**Women's basketball power rankings: Vanderbilt, Texas will fight for No. 1 seed in SEC tourney**\
+`Sabreena Merchant breaks down the top 25 in women's hoops.`\
+https://nytimes.com/athletic/7080234/2026/03/02/womens-college-basketball-power-rankings-vanderbilt-texas/
+
 **Prestianni's Benfica career 'over' if alleged racist abuse proven - Mourinho**\
 `On Sunday, Mourinho said "there were a lot of 'ifs'" regarding what Prestianni had allegedly said to Vinicius Jr.`\
 https://nytimes.com/athletic/7080549/2026/03/02/mourinho-benfica-prestianni-vinicius/
