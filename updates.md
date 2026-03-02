@@ -1,3 +1,7 @@
+**Commanders inform CB Marshon Lattimore he will be released: Source**\
+`The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
+https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/
+
 **Falcons mailbag: Submit your NFL combine and free agency questions for Josh Kendall**\
 `If you have lingering questions coming out of the NFL combine or are already thinking about free agency, drop them here.`\
 https://nytimes.com/athletic/7081660/2026/03/02/falcons-mailbag-nfl-combine-free-agency-josh-kendall/
