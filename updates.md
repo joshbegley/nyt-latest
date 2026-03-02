@@ -1,3 +1,7 @@
+**Shane Lowry's late tailspin gives Nico Echavarria the Cognizant Classic win**\
+`Lowry double-bogeyed the 16th and 17th holes to lose a three-shot lead.`\
+https://nytimes.com/athletic/7079598/2026/03/01/shane-lowry-nico-echavarria-cognizant-classic/
+
 **10-Minute Challenge: Klimt’s Woman in Gold**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2026/03/01/upshot/ten-minute-challenge-klimt.html
