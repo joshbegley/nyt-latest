@@ -1,3 +1,7 @@
+**As Trump Bombs Iran, America’s Allies Watch Fitfully From Sidelines**\
+`Disregarded by President Trump over Iran, Europe’s leaders are adapting to a world in which they are little more than bystanders.`\
+https://nytimes.com/2026/03/02/world/europe/trump-iran-europe.html
+
 **How to Think About Trump’s War With Iran**\
 `Ending the Islamic Republic’s regime will be long and arduous, but perhaps a softer version will emerge.`\
 https://nytimes.com/2026/03/02/opinion/trump-iran-war-future.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/texas-senate-primaries-personal-attac
 **Why Do People Wear Shorts in Winter?**\
 `Even when snow blankets the streets, some still show bare thighs. Our critic explores some possible motivations.`\
 https://nytimes.com/2026/03/02/fashion/shorts-winter-cold-weather.html
-
-**On the Road for Women’s Rights, 110 Years Later**\
-`In 1916, two suffragists drove from New York to California and back to push for the right to vote. Now, the same type of car will make the same trip to promote the Equal Rights Amendment.`\
-https://nytimes.com/2026/03/02/nyregion/on-the-road-for-womens-rights-110-years-later.html
 
