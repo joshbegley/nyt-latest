@@ -10,7 +10,7 @@ https://nytimes.com/video/world/middleeast/100000010746291/israel-strikes-beirut
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/02/todays-new-york-times
 
-**Germany’s Chancellor Has Bigger Problems Than Trump**\
+**Germany’s Chancellor Is in Washington. It Gets Worse.**\
 `Friedrich Merz’s chancellorship is in choppy waters.`\
 https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html
 
