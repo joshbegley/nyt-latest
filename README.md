@@ -1,8 +1,12 @@
+**Nothing to See Here, Folks**\
+`The American public has received too little information to effectively judge the goals and objectives of the largest U.S. military operation in the Middle East in a generation.`\
+https://nytimes.com/2026/03/02/opinion/international-world/iran-hegseth-war.html
+
 **Qatar Says Its Air Force Shot Down Two Iranian Bomber Jets**\
 `It was the first report in this conflict of Iran attempting to attack its Persian Gulf neighbors with warplanes. The incident indicates a sharp escalation in tensions between Iran and Qatar.`\
 https://nytimes.com/2026/03/02/world/middleeast/qatar-iran-bombers-shot-down.html
 
-**Miami (Ohio) coach fined $2,500 after pushing over DJ speaker in halftime outburst**\
+**Miami (Ohio) coach fined $2,500 after pushing over speaker in halftime outburst**\
 `Travis Steele went viral Friday as the RedHawks improved to 29-0 (16-0 MAC), the only remaining unbeaten men's team in Division I.`\
 https://nytimes.com/athletic/7081738/2026/03/02/miami-ohio-travis-steele-technical-fine/
 
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/7081308/2026/03/02/toronto-raptors-mailbag-regular-
 **Satellite Images Show Burning Iranian Naval Ships**\
 `Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
 https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html
-
-**Falcons mailbag: Submit your NFL combine and free agency questions for Josh Kendall**\
-`If you have lingering questions coming out of the NFL combine or are already thinking about free agency, drop them here.`\
-https://nytimes.com/athletic/7081660/2026/03/02/falcons-mailbag-nfl-combine-free-agency-josh-kendall/
-
-**'Like to give them a bump': Bruins GM Don Sweeney is hunting, preferably for a right-shot defenseman**\
-`The Bruins have played their way into the playoff hunt and Sweeney wants to reward them for it — but is keeping his eye on the future.`\
-https://nytimes.com/athletic/7081531/2026/03/02/bruins-trade-deadline-plans-don-sweeney/
 
