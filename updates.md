@@ -1,3 +1,7 @@
+**Chad Baker-Mazara no longer with USC basketball**\
+`Baker-Mazara appeared in 26 games this season, averaging 18.5 points, 4.2 rebounds and 2.8 assists per contest.`\
+https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
+
 **Shane Lowry's late tailspin gives Nico Echavarria the Cognizant Classic win**\
 `Lowry double-bogeyed the 16th and 17th holes to lose a three-shot lead.`\
 https://nytimes.com/athletic/7079598/2026/03/01/shane-lowry-nico-echavarria-cognizant-classic/

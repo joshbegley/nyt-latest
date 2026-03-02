@@ -1,3 +1,7 @@
+**Chad Baker-Mazara no longer with USC basketball**\
+`Baker-Mazara appeared in 26 games this season, averaging 18.5 points, 4.2 rebounds and 2.8 assists per contest.`\
+https://nytimes.com/athletic/7079761/2026/03/01/usc-chad-baker-mazara-departs-program/
+
 **Shane Lowry's late tailspin gives Nico Echavarria the Cognizant Classic win**\
 `Lowry double-bogeyed the 16th and 17th holes to lose a three-shot lead.`\
 https://nytimes.com/athletic/7079598/2026/03/01/shane-lowry-nico-echavarria-cognizant-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/01/style/sag-actor-awards-red-carpet-photos.html
 **Strike on Girls’ School Kills 115, Iranian State Media Says**\
 `Videos and images verified by The New York Times showed that at least half of the school was destroyed. It was not immediately clear why the school was hit, or which country’s forces had fired at it.`\
 https://nytimes.com/2025/03/01/world/middleeast/girls-school-strike-iran-video.html
-
-**Former Texans QB coach Jerrod Johnson joining Eagles staff: Source**\
-`Johnson already has familiarity with some of the Eagles' staff.`\
-https://nytimes.com/athletic/7076837/2026/03/01/eagles-coaching-staff-jerrod-johnson-texans/
 
