@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/02/crosswords/spelling-bee-forum.html
+
+**The Night, and the Gun, That Changed Two Lives**\
+`An encounter between a troubled man and a crime-fearing man left one of them dead.`\
+https://nytimes.com/2026/03/02/nyregion/queens-shooting-gonzalez-foehner.html
+
+**U.S. Schools Are Betting Big on A.I. Will New York City Be Next?**\
+`This could be a pivotal year in shaping what role artificial intelligence plays in American schools. Some families want Mayor Mamdani to hit the brakes.`\
+https://nytimes.com/2026/03/02/nyregion/nyc-ai-schools-mamdani.html
+
 **Germany’s Chancellor Is in Washington. It Gets Worse.**\
 `Friedrich Merz’s chancellorship is in choppy waters.`\
 https://nytimes.com/2026/03/02/opinion/merz-trump-visit-germany.html

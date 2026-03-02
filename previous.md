@@ -1,3 +1,15 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/02/crosswords/spelling-bee-forum.html
+
+**The Night, and the Gun, That Changed Two Lives**\
+`An encounter between a troubled man and a crime-fearing man left one of them dead.`\
+https://nytimes.com/2026/03/02/nyregion/queens-shooting-gonzalez-foehner.html
+
+**U.S. Schools Are Betting Big on A.I. Will New York City Be Next?**\
+`This could be a pivotal year in shaping what role artificial intelligence plays in American schools. Some families want Mayor Mamdani to hit the brakes.`\
+https://nytimes.com/2026/03/02/nyregion/nyc-ai-schools-mamdani.html
+
 **What happens if Iran do not play at the World Cup?**\
 `Explaining the possible fallout if Iran were not to take up their place at the tournament this summer - and who could replace them`\
 https://nytimes.com/athletic/7079584/2026/03/02/iran-world-cup-fifa-withdrawal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7079503/2026/03/02/arsenal-david-raya-save/
 **Manchester United are revived under Carrick as last summer's spending pays dividends**\
 `Carrick's rejuvenated team are third in the Premier League table having come a very long way in a short space of time`\
 https://nytimes.com/athletic/7067550/2026/03/02/manchester-united-carrick-fernandes-third-sesko/
-
-**Brighton offer Nottingham Forest a reminder that stability trumps chaos**\
-`Owner Tony Bloom flung his support behind Fabian Hurzeler through a mid-season dip in form where Forest might have chosen a different course`\
-https://nytimes.com/athletic/7072245/2026/03/02/brighton-hurzeler-bloom-stability-chaos-forest/
-
-**West Ham have serious issues at set pieces - they're undoing the good work further forward**\
-`Despite the scoreline, there were positives to the attacking play - but old problems from deadball situations returned to haunt West Ham`\
-https://nytimes.com/athletic/7077167/2026/03/02/west-ham-set-pieces-problems/
-
-**Crystal Palace are already regretting the failure to replace Marc Guehi**\
-`The dismissal of Maxence Lacroix at Old Trafford means Oliver Glasner will need to make another change to his back three against Tottenham`\
-https://nytimes.com/athletic/7074341/2026/03/02/crystal-palace-guehi-lacroix-richards-canvot-riad-glasner/
 
