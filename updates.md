@@ -1,3 +1,7 @@
+**As Trump Bombs Iran, America’s Allies Watch Fitfully From Sidelines**\
+`Disregarded by President Trump over Iran, Europe’s leaders are adapting to a world in which they are little more than bystanders.`\
+https://nytimes.com/2026/03/02/world/europe/trump-iran-europe.html
+
 **How to Think About Trump’s War With Iran**\
 `Ending the Islamic Republic’s regime will be long and arduous, but perhaps a softer version will emerge.`\
 https://nytimes.com/2026/03/02/opinion/trump-iran-war-future.html
