@@ -1,3 +1,7 @@
+**Antonio says he is 'praying for peace' after Al Sailiya move confirmed**\
+`The former West Ham striker has joined the Qatari side after not playing a senior game since 2024, following a single-vehicle collision.`\
+https://nytimes.com/athletic/6884378/2026/03/02/michail-antonio-al-sailiya-qatar-transfer-peace/
+
 **U.S. Military Death Toll Rises to 6**\
 `The number of U.S. service members killed in the first three days of the war grew as officials said the remains of two more troops had been recovered.`\
 https://nytimes.com/2026/03/02/world/middleeast/us-military-death-toll-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/us-flagged-oil-tanker-bahrain-at
 **Among the Elites, Who Decides What Exploitation Looks Like?**\
 `“Industry” finished up its fourth season on Sunday night, and there is much to discuss.`\
 https://nytimes.com/2026/03/02/style/industry-season-finale-chat-elites.html
-
-**Blackhawks agree to trade defenseman Connor Murphy to Oilers**\
-`The pending UFA right-shot defender has been among the NHL's top shot-blockers in recent seasons.`\
-https://nytimes.com/athletic/7018755/2026/03/02/blackhawks-oilers-connor-murphy-trade/
 
