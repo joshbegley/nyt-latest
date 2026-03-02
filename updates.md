@@ -1,3 +1,7 @@
+**Satellite Images Show Burning Iranian Naval Ships**\
+`Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
+https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html
+
 **Commanders inform CB Marshon Lattimore he will be released: Source**\
 `The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
 https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/

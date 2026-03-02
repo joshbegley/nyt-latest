@@ -1,3 +1,7 @@
+**Satellite Images Show Burning Iranian Naval Ships**\
+`Smoke billows from at least four military ships that have burned for more than 24 hours, according to images released on Monday.`\
+https://nytimes.com/2026/03/02/world/middleeast/satellite-images-iran-navy.html
+
 **Falcons mailbag: Submit your NFL combine and free agency questions for Josh Kendall**\
 `If you have lingering questions coming out of the NFL combine or are already thinking about free agency, drop them here.`\
 https://nytimes.com/athletic/7081660/2026/03/02/falcons-mailbag-nfl-combine-free-agency-josh-kendall/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7081486/2026/03/02/ap-top-25-mens-basketball-poll-d
 **Giannis listed as questionable for Bucks, could play vs. Celtics**\
 `Antetokounmpo missed all of Milwaukee’s games in February with a right calf (soleus) strain.`\
 https://nytimes.com/athletic/7081554/2026/03/02/giannis-antetokounmpo-injury-bucks-return/
-
-**Submit your Astros questions for Chandler Rome’s upcoming mailbag**\
-`With Grapefruit League play underway, post your questions about the Astros as they prepare for the 2026 season.`\
-https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions-spring-training/
-
-**Macron Expands French Nuclear Arsenal and Vows Protection for Neighbors**\
-`The announcement was a significant step in forging a European deterrent as Russia grows more aggressive and the U.S. steps back.`\
-https://nytimes.com/2026/03/02/world/europe/france-nuclear-arsenal-macron.html
 
