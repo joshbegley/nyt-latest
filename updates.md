@@ -1,3 +1,11 @@
+**Home loss has Wild feeling the Blues, with TV star Hughes ready for rest: Takeaways**\
+`The last-in-the-division Blues surprised the Wild with two goals late in the third period to hand Minnesota a regulation loss.`\
+https://nytimes.com/athletic/7079688/2026/03/01/wild-quinn-hughes-kaprizov-gold-medal-blues/
+
+**Messi's double sparks Inter Miami's furious comeback vs. Orlando City**\
+`Inter Miami came from 2-0 down to avoid a disastrous start to the club's MLS Cup title defense and instead secure three points in Orlando`\
+https://nytimes.com/athletic/7080049/2026/03/01/inter-miami-orlando-city-messi-segovia-goals-video/
+
 **USWNT blanks Argentina in SheBelieves Cup opener, Trinity Rodman suffers injury**\
 `Rodman and Lilly Reale, who came off the bench Sunday, left the pitch with injuries in the second half of the SheBelieves Cup game.`\
 https://nytimes.com/athletic/7079752/2026/03/01/lindsey-heaps-uswnt-win-trinity-rodman-injured/
