@@ -1,3 +1,7 @@
+**Rubio Warns ‘Hardest Hits’ on Iran Lie Ahead and Offers Conflicting Rationales**\
+`The secretary of state signaled that an escalation in Iran was likely and said the attacks underway were both pre-emptive and defensive, describing a far more extensive mission than was initially laid out.`\
+https://nytimes.com/2026/03/02/world/middleeast/rubio-iran-war-strikes.html
+
 **They’re Hiring at U.S.A.I.D. Just Not Anyone Who Worked There.**\
 `The Trump administration said in a memo it wanted to “avoid the risk of impaired objectivity” by hiring former staff members to wind down operations at the U.S. Agency for International Development.`\
 https://nytimes.com/2026/03/02/us/politics/usaid-hiring.html

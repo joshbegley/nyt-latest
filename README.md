@@ -1,3 +1,7 @@
+**Limited Number of Flights Resume From Dubai Airports**\
+`A limited number of flights at Dubai International Airport resumed on Monday night after the airport shut down because of airstrikes in the region.`\
+https://nytimes.com/video/world/middleeast/100000010747587/dubai-airports-flights-resume.html
+
 **Rubio Warns ‘Hardest Hits’ on Iran Lie Ahead and Offers Conflicting Rationales**\
 `The secretary of state signaled that an escalation in Iran was likely and said the attacks underway were both pre-emptive and defensive, describing a far more extensive mission than was initially laid out.`\
 https://nytimes.com/2026/03/02/world/middleeast/rubio-iran-war-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/elections/religion-senate-democratic-primary-t
 **Your Closest Forest Gets Lit Up by a Hidden Purple Glow**\
 `Research shows that a phenomenon called St. Elmo’s Fire, which occurs during thunderstorms, may be much more common than previously understood.`\
 https://nytimes.com/2026/03/02/science/trees-glowing-st-elmos-fire.html
-
-**U.S. University Campuses in Mideast Move Classes Online as War Spreads**\
-`A number of major universities with campuses in Qatar and other nations are operating remotely as the conflict expands throughout the region.`\
-https://nytimes.com/2026/03/02/world/middleeast/university-campuses-middle-east-cancel-classes.html
 
