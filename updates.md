@@ -1,3 +1,7 @@
+**14 Unforgettable Looks at the SAG Actor Awards**\
+`Painted torsos, tulip skirts, Jazz Age style and more.`\
+https://nytimes.com/2026/03/01/style/sag-actor-awards-looks-fashion.html
+
 **Iran Strikes U.S. Military Facilities Across Gulf Region**\
 `A Times analysis of satellite imagery and verified videos shows Iran found vulnerabilities in U.S. locations in the region.`\
 https://nytimes.com/2026/03/01/world/middleeast/iran-strikes-us-military-facilities.html
