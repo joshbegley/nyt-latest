@@ -1,3 +1,7 @@
+**Dubai Says ‘Limited’ Flights Will Resume From Its Airports**\
+`Emirates and FlyDubai said they would make a small number of flights to and from Dubai starting Monday night after shutting down because of airstrikes in the region.`\
+https://nytimes.com/2026/03/02/world/middleeast/dubai-flights.html
+
 **Latino Democrats Fight to Fend Off Upstart Challengers**\
 `The Congressional Hispanic Caucus is defending four key incumbents in primary races centered on how aggressively Democrats are combating ICE and President Trump.`\
 https://nytimes.com/2026/03/02/us/politics/latino-democrats-primary-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/spain-denies-us-air-base.html
 **Behind Trump’s Reversal On Regime Change**\
 `As a candidate, Donald J. Trump criticized regime change as “a proven, absolute failure.” Now he finds himself pursuing the exact kind of regime change he once criticized. Our chief White House correspondent, Peter Baker, tracks the president’s evolution on this issue.`\
 https://nytimes.com/video/world/middleeast/100000010745457/behind-trumps-reversal-on-regime-change.html
-
-**Carolyn Bessette Kennedy’s Wardrobe Finds a New Obsessive Audience**\
-`Several items worn by Ms. Kennedy, which are now on sale in an online auction, showcase her penchant for a curated, minimalist look.`\
-https://nytimes.com/2026/03/02/style/carolyn-bessette-kennedy-auction-love-story.html
 
