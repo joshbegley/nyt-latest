@@ -1,3 +1,31 @@
+**Your Closest Forest Gets Lit Up by a Hidden Purple Glow**\
+`Research shows that a phenomenon called St. Elmo’s Fire, which occurs during thunderstorms, may be much more common than previously understood.`\
+https://nytimes.com/2026/03/02/science/trees-glowing-st-elmos-fire.html
+
+**U.S. University Campuses in Mideast Move Classes Online as War Spreads**\
+`A number of major universities with campuses in Qatar and other nations are operating remotely as the conflict expands throughout the region.`\
+https://nytimes.com/2026/03/02/world/middleeast/university-campuses-middle-east-cancel-classes.html
+
+**Rutgers fires basketball coach Coquese Washington**\
+`The Scarlet Knights finished in last place in the Big Ten this season and ended the year on an 11-game losing streak. `\
+https://nytimes.com/athletic/7081969/2026/03/02/rutgers-fire-basketball-coquese-washington/
+
+**Full Time: Trinity Rodman's concerning injury**\
+`Welcome to Full TIme, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7082079/2026/03/02/trinity-rodman-injury-uswnt-full-time/
+
+**F.B.I. Investigates Texas Bar Shooting as Possible Act of Terrorism**\
+`A suspect wearing a sweatshirt with the words “Property of Allah” opened fire outside of a bar in downtown Austin early Sunday morning, killing at least two and injuring 14 others. The F.B.I. is now investigating the incident as a potential act of terrorism.`\
+https://nytimes.com/video/us/100000010747598/austin-shooting-texas-terrorism.html
+
+**Fueling Bold Ambition**\
+`The University of Alabama has more than 185 years of engineering education experience.`\
+https://nytimes.com/paidpost/university-of-alabama/university-of-alabama-at-birmingham/fueling-bold-ambition.html
+
+**A top Iranian official pledges attacks on tankers looking to pass through Strait of Hormuz.**\
+`By Peter Eavis and Parin Behrooz`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/a-top-iranian-official-pledges-attacks-on-tankers-looking-to-pass-through-strait-of-hormuz
+
 **NHL trade grades: Connor Murphy worth the price to improve Oilers' blue line, penalty kill**\
 `The Blackhawks also did well to get a second-round pick for the 32-year-old defenseman.`\
 https://nytimes.com/athletic/7081953/2026/03/02/nhl-trade-grades-connor-murphy-oilers-blackhawks/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports
 **Which teams might pursue Flyers' Rasmus Ristolainen, and what might they offer?**\
 `Do any teams that might be interested in Ristolainen have a first-round pick and young center available?`\
 https://nytimes.com/athletic/7081711/2026/03/02/rasmus-ristolainen-trade-flyers/
-
-**Antonio says he is 'praying for peace' after Qatar move confirmed**\
-`The former West Ham striker has joined the Qatari side after not playing a senior game since 2024, following a single-vehicle collision.`\
-https://nytimes.com/athletic/6884378/2026/03/02/michail-antonio-al-sailiya-qatar-transfer-peace/
-
-**U.S. Military Death Toll Rises to 6**\
-`The number of U.S. service members killed in the first three days of the war grew as officials said the remains of two more troops had been recovered.`\
-https://nytimes.com/2026/03/02/world/middleeast/us-military-death-toll-iran.html
-
-**Robert Thomas to the Mammoth? Breaking down what a trade could look like for the Blues**\
-`Utah is reportedly a possible destination if the Blues trade Robert Thomas. What would the Mammoth have to send back? Would it be worth it?`\
-https://nytimes.com/athletic/7081120/2026/03/02/blues-robert-thomas-trade-mammoth-projection/
-
-**He Is Charged With Murder. He Could Become a Sheriff.**\
-`Aaron Spencer has been charged with fatally shooting a man accused of assaulting Mr. Spencer’s daughter. But ahead of his trial, he’s running for county sheriff in Arkansas.`\
-https://nytimes.com/2026/03/02/us/elections/arkansas-sheriff-election-murder-charge.html
-
-**Conflict Spreads Across the Gulf**\
-`Iran is expanding the conflict to put pressure on the U.S. and its allies.`\
-https://nytimes.com/2026/03/02/world/iran-conflict-gulf-lebanon-iraq-cyprus.html
-
-**For Travelers Stuck in Dubai, ‘Chaos and Confusion’ and a Nervous Wait**\
-`The Emirates’ reputation as a safe destination in a volatile area was put to a brutal test in recent days as Iran, retaliating against U.S.-Israeli attacks, targeted the region with missiles and drones.`\
-https://nytimes.com/2026/03/02/travel/dubai-travelers-stuck-iran-war.html
-
-**Meeting on U.S. Measles Status Is Delayed Until November**\
-`The decision to revoke the country’s elimination status would now likely come after the U.S. midterm elections, experts noted.`\
-https://nytimes.com/2026/03/02/well/measles-elimination-status-us.html
 
