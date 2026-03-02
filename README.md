@@ -1,3 +1,7 @@
+**U.S. Imposes Sanctions on Rwanda, Saying It Sabotaged Trump Peace Deal**\
+`Rwanda’s government responded by claiming the sanctions unjustly targeted only one party to the conflict and misrepresented the facts.`\
+https://nytimes.com/2026/03/02/world/africa/rwanda-sanctions-trump-peace-m23.html
+
 **Chow down at Cardinals games: All-you-can-eat tickets for $29**\
 `How many hot dogs can one person eat at a baseball game? St. Louis Cardinals fans will have the opportunity to find out.`\
 https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-concessions/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/trump-rash-neck.html
 **Adama Traore banned from lifting weights at West Ham, says Nuno**\
 `"It's enough weight that he carries. He'll do prevention work, but he's not in there lifting weights," Nuno said on Monday.`\
 https://nytimes.com/athletic/7081420/2026/03/02/adama-traore-muscles-weights-west-ham/
-
-**N.Y. Attorney General Orders Hospital to Resume Youth Transgender Care**\
-`NYU Langone Health had stopped providing puberty-blocking medication and hormone treatments after the federal government threatened to pull its funding.`\
-https://nytimes.com/2026/03/02/nyregion/transgender-youth-nyu-langone-attorney-general.html
 
