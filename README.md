@@ -1,3 +1,7 @@
+**Fighting Between Israel and Hezbollah Reignites as Iran War Expands**\
+`Beirut residents fled in panic as Israeli jets struck Hezbollah strongholds in response to a midnight barrage, an expansion of the war between Israel, the U.S. and Iran.`\
+https://nytimes.com/2026/03/01/world/middleeast/israel-strikes-beirut-hezbollah.html
+
 **UConn completes 11th unbeaten regular season with rout of St. John's**\
 `The win marked the Huskies’ 47th straight victory, the fifth-longest winning streak in NCAA women’s basketball history.`\
 https://nytimes.com/athletic/7080059/2026/03/01/uconn-unbeaten-regular-season-womens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079888/2026/03/01/steph-curry-injury-update-return
 **Tyler Reddick becomes first NASCAR driver to win first 3 races of a season**\
 `Michael Jordan-owned 23XI Racing is off to an unbeaten start in the 2026 NASCAR Cup Series.`\
 https://nytimes.com/athletic/7079857/2026/03/01/tyler-reddick-michael-jordan-nascar-austin/
-
-**Democrats Denounce Trump’s Iran Attack, but Subtle Divisions Emerge**\
-`While most Democrats have opposed his decision, their responses reveal differences over Middle East policy and national security that loom over the party’s future.`\
-https://nytimes.com/2026/03/01/us/politics/trump-iran-attack-democratic-divisions.html
 
