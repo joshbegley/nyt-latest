@@ -1,3 +1,19 @@
+**Texas Holds First Elections Since Starting the Gerrymandering War**\
+`The state’s congressional map looks much different, and so do those in other states across the country.`\
+https://nytimes.com/2026/03/02/us/elections/texas-redistricting-house-map.html
+
+**After the Attack on Iran, Fear and Support**\
+`Readers debate the justification for President Trump’s decision to take military action against Iran.`\
+https://nytimes.com/2026/03/02/opinion/trump-us-iran-attack.html
+
+**Commanders to release CB Marshon Lattimore, ending failed experiment**\
+`The move was expected because of the salary cap benefit and Lattimore’s struggles since arriving in Washington during the 2024 season.`\
+https://nytimes.com/athletic/7050478/2026/03/02/commanders-release-marshon-lattimore-nfl/
+
+**Despite Its Weakness, Hezbollah Plunges Lebanon Back Into War**\
+`The militant group’s attacks, apparently at the behest of Iran, led to retaliation from Israel and were “practically a suicide mission” for Hezbollah, an analyst said.`\
+https://nytimes.com/2026/03/02/world/middleeast/lebanon-hezbollah-israel-strikes.html
+
 **AP men's hoops Top 25: Duke, Arizona remain 1-2, BYU falls out for first time this season**\
 `The biggest intrigue entering March is which team will be in fourth when Selection Sunday rolls around.`\
 https://nytimes.com/athletic/7081486/2026/03/02/ap-top-25-mens-basketball-poll-duke-arizona-michigan/
@@ -12,7 +28,7 @@ https://nytimes.com/athletic/7081522/2026/03/02/houston-astros-mailbag-questions
 
 **Macron Expands French Nuclear Arsenal and Vows Protection for Neighbors**\
 `The announcement was a significant step in forging a European deterrent as Russia grows more aggressive and the U.S. steps back.`\
-https://nytimes.com/2026/03/02/world/europe/macron-expands-french-nuclear-arsenal-and-vows-protection-for-neighbors.html
+https://nytimes.com/2026/03/02/world/europe/france-nuclear-arsenal-macron.html
 
 **He Hatched a Plot to Kill Trump on a Napkin. The F.B.I. Was Listening.**\
 `Testimony and evidence in Asif Merchant’s trial has so far portrayed him as a zealous yet bumbling operative who never came close to his mission, which prosecutors say was backed by Iran.`\
@@ -21,22 +37,4 @@ https://nytimes.com/2026/03/02/nyregion/merchant-iran-plot-assassination-trump.h
 **How Trump Decided to Go to War**\
 `President Trump’s embrace of military action in Iran was spurred by an Israeli leader determined to end diplomatic negotiations. Few of the president’s advisers voiced opposition.`\
 https://nytimes.com/2026/03/02/us/politics/trump-war-iran-israel.html
-
-**San Diego Wave signs Brazil international Portilho from Gotham**\
-`The 30-year-old NWSL Championship winner has joined on a deal to the end of the 2026 league season, with an option for an extra year. `\
-https://nytimes.com/athletic/7081172/2026/03/02/gabi-portilho-san-diego-wave-gotham-transfer/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>As we await the much-anticipated Save College Sports Roundtable, send your most pressing college football questions.</p>
-<p>Leave them here. Please include your city,</p>
-`\
-https://nytimes.com/athletic/7080370/2026/03/02/submit-a-question-for-stewart-mandels-college-football-mailbag-336/
-
-**Can Mountains of Money Save Cornyn and Lift Talarico in Texas?**\
-`The primary race for Senate in Texas has become the most expensive on record, with John Cornyn and James Talarico heavily outspending their rivals. But Mr. Cornyn seems to be in trouble.`\
-https://nytimes.com/2026/03/02/us/elections/cornyn-talarico-texas-senate-money.html
-
-**Wild trade tracker: Top target Trocheck says if he's moved, he wants to have 'chance to win'**\
-`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
-https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-2026/
 
