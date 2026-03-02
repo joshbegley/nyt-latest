@@ -1,3 +1,11 @@
+**For James Wiseman, FIBA World Cup qualifying is a chance to show resilience**\
+`Wiseman, taken second overall by the Warriors in the 2020 draft, had an injury-riddled NBA career after only playing three games in college.`\
+https://nytimes.com/athletic/7080306/2026/03/02/usa-basketball-james-wiseman-nba-return-hopes/
+
+**How Rosenior rotated Chelsea's midfield to cause Arsenal problems – and how Arteta adapted**\
+`Cole Palmer and Enzo Fernandez initially had Martin Zubimendi chasing shadows but couldn't capitalise on Arsenal's confusion`\
+https://nytimes.com/athletic/7080597/2026/03/02/chelsea-rosenior-tactics-arsenal-arteta/
+
 **Less is more for Mookie Betts: Dodgers shortstop expects to return to MVP form**\
 `Forced to confront a slump, Betts figured out a better mental approach: "I was able to get in the right headspace and stay there."`\
 https://nytimes.com/athletic/7079643/2026/03/02/dodgers-mookie-betts-spring-training-2/
