@@ -1,3 +1,15 @@
+**N.Y. Attorney General Orders Hospital to Resume Youth Transgender Care**\
+`NYU Langone Health had stopped providing puberty-blocking medication and hormone treatments after the federal government threatened to pull its funding.`\
+https://nytimes.com/2026/03/02/nyregion/transgender-youth-nyu-langone-attorney-general.html
+
+**Soup, It’s What’s for Breakfast**\
+`Social media influencers have picked up on the age-old tradition of having soup in the morning. It’s one you can enjoy too.`\
+https://nytimes.com/2026/03/02/dining/healthy-breakfast-soup.html
+
+**Trae Young to make Wizards debut Thursday vs. Jazz**\
+`The Wizards acquired Trae Young in an early-January trade with the Atlanta Hawks.`\
+https://nytimes.com/athletic/7081984/2026/03/02/trae-young-wizards-debut-nba-jazz/
+
 **How Religion Is Playing in the Senate Democratic Primary in Texas**\
 `James Talarico is talking up his beliefs and his status as a seminary student. Jasmine Crockett, his opponent, is the daughter of a pastor and is steeped in the Black church.`\
 https://nytimes.com/2026/03/02/us/elections/religion-senate-democratic-primary-texas.html
