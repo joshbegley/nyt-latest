@@ -1,3 +1,7 @@
+**Robert Thomas to the Mammoth? Breaking down what a trade could look like for the Blues**\
+`Utah is reportedly a possible destination if the Blues trade Robert Thomas. What would the Mammoth have to send back? Would it be worth it?`\
+https://nytimes.com/athletic/7081120/2026/03/02/blues-robert-thomas-trade-mammoth-projection/
+
 **He Is Charged With Murder. He Could Become a Sheriff.**\
 `Aaron Spencer has been charged with fatally shooting a man accused of assaulting Mr. Spencer’s daughter. But ahead of his trial, he’s running for county sheriff in Arkansas.`\
 https://nytimes.com/2026/03/02/us/elections/arkansas-sheriff-election-murder-charge.html

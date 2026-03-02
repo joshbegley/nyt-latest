@@ -1,3 +1,7 @@
+**U.S. Military Death Toll Rises to 6**\
+`The number of U.S. service members killed in the first three days of the war grew as officials said the remains of two more troops had been recovered.`\
+https://nytimes.com/2026/03/02/world/middleeast/us-military-death-toll-iran.html
+
 **Robert Thomas to the Mammoth? Breaking down what a trade could look like for the Blues**\
 `Utah is reportedly a possible destination if the Blues trade Robert Thomas. What would the Mammoth have to send back? Would it be worth it?`\
 https://nytimes.com/athletic/7081120/2026/03/02/blues-robert-thomas-trade-mammoth-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/style/industry-season-finale-chat-elites.html
 **Blackhawks agree to trade defenseman Connor Murphy to Oilers**\
 `The pending UFA right-shot defender has been among the NHL's top shot-blockers in recent seasons.`\
 https://nytimes.com/athletic/7018755/2026/03/02/blackhawks-oilers-connor-murphy-trade/
-
-**Are Zendaya and Tom Holland Married?**\
-`The subject was brought up during the Actor Awards, to which Zendaya’s longtime stylist replied, “It’s very true.”`\
-https://nytimes.com/2026/03/02/style/zendaya-tom-holland-married.html
 
