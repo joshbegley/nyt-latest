@@ -2,7 +2,7 @@
 `Garland was held out Sunday with the Clippers hosting the Pelicans, the first of an 18-game March schedule for Los Angeles.`\
 https://nytimes.com/athletic/7079868/2026/03/01/darius-garland-clippers-debut-warriors/
 
-**Bulls score 27 straight to hand Bucks deflating road loss**\
+**Bulls score 27 straight to snap 11-game losing streak, hand Bucks deflating loss**\
 `Seven different Bucks players missed 14 consecutive shots, which included nine missed 3-point attempts and five missed 2-point field goals. `\
 https://nytimes.com/athletic/7079733/2026/03/01/bulls-bucks-score-results-takeaways-nba/
 
