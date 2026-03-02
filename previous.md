@@ -1,4 +1,12 @@
-**Antonio says he is 'praying for peace' after Al Sailiya move confirmed**\
+**Judge: Exec can work at Spire while Joe Gibbs Racing lawsuit unfolds**\
+`The ongoing legal saga between JGR and its former competition director continued Monday in a North Carolina courtroom.`\
+https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports-joe-gibbs-racing/
+
+**Which teams might pursue Flyers' Rasmus Ristolainen, and what might they offer?**\
+`Do any teams that might be interested in Ristolainen have a first-round pick and young center available?`\
+https://nytimes.com/athletic/7081711/2026/03/02/rasmus-ristolainen-trade-flyers/
+
+**Antonio says he is 'praying for peace' after Qatar move confirmed**\
 `The former West Ham striker has joined the Qatari side after not playing a senior game since 2024, following a single-vehicle collision.`\
 https://nytimes.com/athletic/6884378/2026/03/02/michail-antonio-al-sailiya-qatar-transfer-peace/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/well/measles-elimination-status-us.html
 **‘Bigfoot!’ Review: An Ogre Who Just Wants to Be Friends**\
 `The new musical from the comedian Amber Ruffin has a wholesome moral and silliness in spades.`\
 https://nytimes.com/2026/03/02/theater/bigfoot-review-amber-ruffin.html
-
-**Attack on U.S.-Flagged Oil Tanker in Bahrain Kills Shipyard Worker**\
-`It is not clear who attacked the tanker, Stena Imperative. Its U.S. operator, Crowley, described “aerial impacts” and said that a fire on board was quickly extinguished.`\
-https://nytimes.com/2026/03/02/world/middleeast/us-flagged-oil-tanker-bahrain-attack.html
-
-**Among the Elites, Who Decides What Exploitation Looks Like?**\
-`“Industry” finished up its fourth season on Sunday night, and there is much to discuss.`\
-https://nytimes.com/2026/03/02/style/industry-season-finale-chat-elites.html
 
