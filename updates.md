@@ -1,3 +1,11 @@
+**2026 NBA mock draft: Absurdly deep class is why so many teams are tanking**\
+`AJ Dybantsa, Darryn Peterson and Cameron Boozer are still the top three, but other prospects are exciting teams too.`\
+https://nytimes.com/athletic/7043867/2026/03/02/nba-mock-draft-players-dybantsa-peterson-boozer/
+
+**How an unusual groin led to a 'unique' Premier League goal**\
+`Alex Iwobi's goal for Fulham against Spurs on Sunday was that most unusual of events - a new kind of goal`\
+https://nytimes.com/athletic/7080527/2026/03/02/alex-iwobi-goal-fulham-tottenham-groin/
+
 **Sandy Alcantara's future in Miami: Can he rediscover his Cy Young form?**\
 `Alcantara ranks among the top trade candidates, but his goal is to help the Marlins return to the playoffs with a bounce-back season.`\
 https://nytimes.com/athletic/7079951/2026/03/02/sandy-alcantara-marlins-trade-candidate-sweeper/

@@ -1,3 +1,11 @@
+**2026 NBA mock draft: Absurdly deep class is why so many teams are tanking**\
+`AJ Dybantsa, Darryn Peterson and Cameron Boozer are still the top three, but other prospects are exciting teams too.`\
+https://nytimes.com/athletic/7043867/2026/03/02/nba-mock-draft-players-dybantsa-peterson-boozer/
+
+**How an unusual groin led to a 'unique' Premier League goal**\
+`Alex Iwobi's goal for Fulham against Spurs on Sunday was that most unusual of events - a new kind of goal`\
+https://nytimes.com/athletic/7080527/2026/03/02/alex-iwobi-goal-fulham-tottenham-groin/
+
 **Sandy Alcantara's future in Miami: Can he rediscover his Cy Young form?**\
 `Alcantara ranks among the top trade candidates, but his goal is to help the Marlins return to the playoffs with a bounce-back season.`\
 https://nytimes.com/athletic/7079951/2026/03/02/sandy-alcantara-marlins-trade-candidate-sweeper/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7079865/2026/03/02/colts-daniel-jones-alec-pierce-f
 **Is MLB headed in the right direction? Fans chime in on Manfred, gambling, Dodgers**\
 `Is Major League Baseball in a good or bad place? It depends on the day.`\
 https://nytimes.com/athletic/7073556/2026/03/02/mlb-state-of-game-fan-survey-2026/
-
-**Ranking the top 50 rivalries in men's college basketball**\
-`From feuding neighbors to powerhouses who annually stand in each other's way of championships, college hoops has a rich rivalry landscape.`\
-https://nytimes.com/athletic/7076337/2026/03/02/college-basketball-rivalry-rankings-duke-unc/
-
-**The New York Times International Edition in Print for Tuesday, March 3, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/02/todays-new-york-times-international-edition
 
