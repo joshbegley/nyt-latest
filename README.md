@@ -1,3 +1,15 @@
+**N.Y. Attorney General Orders Hospital to Resume Youth Transgender Care**\
+`NYU Langone Health had stopped providing puberty-blocking medication and hormone treatments after the federal government threatened to pull its funding.`\
+https://nytimes.com/2026/03/02/nyregion/transgender-youth-nyu-langone-attorney-general.html
+
+**Soup, It’s What’s for Breakfast**\
+`Social media influencers have picked up on the age-old tradition of having soup in the morning. It’s one you can enjoy too.`\
+https://nytimes.com/2026/03/02/dining/healthy-breakfast-soup.html
+
+**Trae Young to make Wizards debut Thursday vs. Jazz**\
+`The Wizards acquired Trae Young in an early-January trade with the Atlanta Hawks.`\
+https://nytimes.com/athletic/7081984/2026/03/02/trae-young-wizards-debut-nba-jazz/
+
 **How Religion Is Playing in the Senate Democratic Primary in Texas**\
 `James Talarico is talking up his beliefs and his status as a seminary student. Jasmine Crockett, his opponent, is the daughter of a pastor and is steeped in the Black church.`\
 https://nytimes.com/2026/03/02/us/elections/religion-senate-democratic-primary-texas.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010747598/austin-shooting-texas-terrorism.htm
 **Fueling Bold Ambition**\
 `The University of Alabama has more than 185 years of engineering education experience.`\
 https://nytimes.com/paidpost/university-of-alabama/university-of-alabama-at-birmingham/fueling-bold-ambition.html
-
-**A top Iranian official pledges attacks on tankers looking to pass through Strait of Hormuz.**\
-`By Peter Eavis and Parin Behrooz`\
-https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/a-top-iranian-official-pledges-attacks-on-tankers-looking-to-pass-through-strait-of-hormuz
-
-**NHL trade grades: Connor Murphy worth the price to improve Oilers' blue line, penalty kill**\
-`The Blackhawks also did well to get a second-round pick for the 32-year-old defenseman.`\
-https://nytimes.com/athletic/7081953/2026/03/02/nhl-trade-grades-connor-murphy-oilers-blackhawks/
-
-**Judge: Exec can work at Spire while Joe Gibbs Racing lawsuit unfolds**\
-`The ongoing legal saga between JGR and its former competition director continued Monday in a North Carolina courtroom.`\
-https://nytimes.com/athletic/7081926/2026/03/02/chris-gabehart-spire-motorsports-joe-gibbs-racing/
 
