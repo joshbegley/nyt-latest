@@ -1,3 +1,19 @@
+**How to watch Rockets vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7081226/2026/03/02/rockets-vs-wizards-stream-how-to-watch-march-2/
+
+**As Kennedy Turns From Vaccines, MAHA Allies See a ‘Betrayal’**\
+`As the midterm elections approach, the health secretary is focusing on “real food.” Anger is rising among some of his supporters.`\
+https://nytimes.com/2026/03/02/health/kennedy-maha-vaccines.html
+
+**Attacks on Iran Heighten Fears in Cuba, Already Under U.S. Pressure**\
+`Many Cubans are wondering if the Trump administration plans to target their country’s Communist government next.`\
+https://nytimes.com/2026/03/02/world/americas/iran-attacks-cuba-trump.html
+
+**So Arsenal's set-piece coach gets a goal bonus? Welcome to the age of the set piece**\
+`The news Arsenal's set-piece coach is rewarded specifically for goals from dead-ball situations underlines their importance`\
+https://nytimes.com/athletic/7080619/2026/03/02/nicolas-jover-age-of-set-piece-arsenal/
+
 **Dubai Says ‘Limited’ Flights Will Resume From Its Airports**\
 `Emirates and FlyDubai said they would make a small number of flights to and from Dubai starting Monday night after shutting down because of airstrikes in the region.`\
 https://nytimes.com/2026/03/02/world/middleeast/dubai-flights.html
