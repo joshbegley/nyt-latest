@@ -1,40 +1,40 @@
-**Arne Slot: Games 'no longer a joy to watch' because of set pieces**\
-`Slot's side scored three first-half goals from set pieces in Saturday's 5-2 win over West Ham.`\
-https://nytimes.com/athletic/7080519/2026/03/02/liverpool-set-pieces-arne-slot/
+**Sandy Alcantara's future in Miami: Can he rediscover his Cy Young form?**\
+`Alcantara ranks among the top trade candidates, but his goal is to help the Marlins return to the playoffs with a bounce-back season.`\
+https://nytimes.com/athletic/7079951/2026/03/02/sandy-alcantara-marlins-trade-candidate-sweeper/
 
-**As Trump Bombs Iran, America’s Allies Watch Fitfully From Sidelines**\
-`Disregarded by President Trump over Iran, Europe’s leaders are adapting to a world in which they are little more than bystanders.`\
-https://nytimes.com/2026/03/02/world/europe/trump-iran-europe.html
+**What do MLB fans think about salary caps, payroll gaps and 2027 lockout risk?**\
+`In Major League Baseball, the financial divide between clubs has shifted from perennial complaint to a potential existential crisis.`\
+https://nytimes.com/athletic/7073638/2026/03/02/mlb-salary-cap-fan-survey-2026/
 
-**How to Think About Trump’s War With Iran**\
-`Ending the Islamic Republic’s regime will be long and arduous, but perhaps a softer version will emerge.`\
-https://nytimes.com/2026/03/02/opinion/trump-iran-war-future.html
+**How MLB ticket prices and TV blackouts are impacting the fan experience**\
+`We asked readers about their viewing habits, how they follow the action, and how often they actually get down to the stadium for a ballgame.`\
+https://nytimes.com/athletic/7073691/2026/03/02/mlb-streaming-blackouts-fan-survey-2026/
 
-**Trump Wants You to Get Used to This. Don’t.**\
-`The old U.S.-led order is dead; the new one feels unstable and ominous, as if a storm could descend at any moment.`\
-https://nytimes.com/2026/03/02/opinion/trump-iran.html
+**Two new veterans and a rookie for the Jets QB room?: What I heard at the NFL combine**\
+`Plus, the latest on Breece Hall, the new offense, the Jermaine Johnson trade aftermath, and more.`\
+https://nytimes.com/athletic/7079540/2026/03/02/new-york-jets-combine-free-agency-news/
 
-**6 Voters React to Attacks on Iran Ahead of the Texas Primaries**\
-`President Trump has said the attacks were necessary for the security of the United States and to free the Iranian people from oppression. Do voters agree?`\
-https://nytimes.com/2026/03/02/us/americans-react-iran-attacks.html
+**MLB fans look ahead to 2026 World Series winners, potential expansion cities and more**\
+`We wrap up our MLB fan survey by looking at 2026 and beyond.`\
+https://nytimes.com/athletic/7073840/2026/03/02/mlb-world-series-predictions-fan-survey-2026/
 
-**Honored Nationwide, Jesse Jackson Is Less Celebrated in His Hometown**\
-`As Mr. Jackson’s body lies in state in South Carolina on Monday, the city of Greenville, where he fought civil rights battles, is wrestling with how to pay its respects.`\
-https://nytimes.com/2026/03/02/us/greenville-jesse-jackson.html
+**Rodgers timeline, Freiermuth trade market: What I heard about the Steelers at the NFL combine**\
+`Plus, Broderick Jones' uncertain status, and the latest on the situations at cornerback and quarterback.`\
+https://nytimes.com/athletic/7079348/2026/03/02/pittsburgh-steelers-nfl-combine-free-agency-offseason-plans/
 
-**Paramount Won Over Warner Bros. Now for the Regulators.**\
-`Global officials are expected to closely examine the $111 billion deal, which ties together two entertainment powerhouses, over potential competition issues.`\
-https://nytimes.com/2026/03/02/technology/paramount-deal-approval.html
+**Colts to consider transition tag for Daniel Jones, per sources; but what does that mean?**\
+`The deadline to use the franchise or transition tag is Tuesday at 4 p.m. ET, and the Colts haven't struck deals with Jones or Alec Pierce.`\
+https://nytimes.com/athletic/7079865/2026/03/02/colts-daniel-jones-alec-pierce-franchise-tag-transition-tag-deadline/
 
-**Will a Peacock Like Gavin Newsom Fly?**\
-`California’s governor challenges the usual criteria for a presidential nominee.`\
-https://nytimes.com/2026/03/02/opinion/election-2028-democrats.html
+**Is MLB headed in the right direction? Fans chime in on Manfred, gambling, Dodgers**\
+`Is Major League Baseball in a good or bad place? It depends on the day.`\
+https://nytimes.com/athletic/7073556/2026/03/02/mlb-state-of-game-fan-survey-2026/
 
-**5 Takeaways on America’s Boom in Billionaires**\
-`The number of billionaires in the United States has soared, with nowhere feeling the effects quite like Jackson, Wyo. Here’s where all that money came from.`\
-https://nytimes.com/2026/03/02/us/billionaire-boom-takeaways.html
+**Ranking the top 50 rivalries in men's college basketball**\
+`From feuding neighbors to powerhouses who annually stand in each other's way of championships, college hoops has a rich rivalry landscape.`\
+https://nytimes.com/athletic/7076337/2026/03/02/college-basketball-rivalry-rankings-duke-unc/
 
-**Five Testy Moments From the Acrimonious Texas Senate Primaries**\
-`Ahead of Tuesday’s vote, the Democratic and Republican races have become increasingly personal and contentious.`\
-https://nytimes.com/2026/03/02/us/politics/texas-senate-primaries-personal-attacks.html
+**The New York Times International Edition in Print for Tuesday, March 3, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/02/todays-new-york-times-international-edition
 
