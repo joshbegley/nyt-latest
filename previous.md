@@ -1,3 +1,11 @@
+**USMNT Tracker: Musah breaks four-year duck, Wright and Balogun fighting to be No 9**\
+`Will Musah's goal put him back on track for the World Cup? Wright carries on his rich vein of form, Pulisic is back in action...`\
+https://nytimes.com/athletic/7080745/2026/03/02/musah-goal-wright-balogun-usmnt/
+
+**Airline Stocks Tumble as Iran War Expands Across Middle East**\
+`Higher fuel prices and lower demand for international flights are eating into airlines’ profits.`\
+https://nytimes.com/2026/03/02/business/airline-stocks-iran-attacks.html
+
 **How to Vote in the March 3 Primary in Texas**\
 `The primaries in the race for a U.S. Senate seat will be closely watched on Tuesday.`\
 https://nytimes.com/2026/03/02/us/elections/texas-how-to-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080564/2026/03/02/tottenham-relegation-clauses-pla
 **Premier League deletes social media post mocking Spurs' Vicario**\
 `The League shared the clip of Vicario hoofing a free-kick from his own half straight out of play during Spurs' 2-1 defeat at Fulham.`\
 https://nytimes.com/athletic/7080577/2026/03/02/premier-league-delete-tweet-spurs-tottenham-vicario/
-
-**In This Novel, an Island Is a Petri Dish for Humanity**\
-`“Field Notes From an Extinction,” by Eoghan Walls, follows a naturalist who wants to study birds but ends up with a much harder task.`\
-https://nytimes.com/2026/03/02/books/review/eoghan-walls-field-notes-from-an-extinction.html
-
-**What to Know About the Widening Fallout From the Bombing of Iran**\
-`The Middle East is facing deaths and destruction as Iran retaliates against a huge American-Israeli military campaign.`\
-https://nytimes.com/2026/03/02/world/middleeast/iran-attacks-damage-what-to-know.html
 

@@ -1,3 +1,11 @@
+**USMNT Tracker: Musah breaks four-year duck, Wright and Balogun fighting to be No 9**\
+`Will Musah's goal put him back on track for the World Cup? Wright carries on his rich vein of form, Pulisic is back in action...`\
+https://nytimes.com/athletic/7080745/2026/03/02/musah-goal-wright-balogun-usmnt/
+
+**Airline Stocks Tumble as Iran War Expands Across Middle East**\
+`Higher fuel prices and lower demand for international flights are eating into airlines’ profits.`\
+https://nytimes.com/2026/03/02/business/airline-stocks-iran-attacks.html
+
 **How to Vote in the March 3 Primary in Texas**\
 `The primaries in the race for a U.S. Senate seat will be closely watched on Tuesday.`\
 https://nytimes.com/2026/03/02/us/elections/texas-how-to-vote.html
