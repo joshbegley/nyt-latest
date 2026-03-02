@@ -1,3 +1,11 @@
+**Breaking down Chelsea's 10 red cards: hopeless challenges, reckless elbows and last-man lunges**\
+`Pedro Neto became the ninth different Chelsea player to be sent off this season after incurring two quick bookings against Arsenal`\
+https://nytimes.com/athletic/7079410/2026/03/02/breaking-down-chelseas-10-red-cards-hopeless-challenges-reckless-elbows-and-last-man-lunges/
+
+**Virgil van Dijk has been available for Liverpool for 99 league games. This is how he does it**\
+`The Dutch veteran will complete the remarkable milestone if he is fit against Wolves in midweek with his professionalism setting a standard`\
+https://nytimes.com/athletic/7077793/2026/03/02/virgil-van-dijk-liverpool-100-available-slot/
+
 **Tottenham have forgotten how to win football matches**\
 `The longer it is since they last won, the more distant the memory, the bigger the mental block they will have.`\
 https://nytimes.com/athletic/7072299/2026/03/02/tottenham-forgotten-how-to-win/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/asia/100000010707197/china-ai-chatbot-homework.h
 **Connections: Sports Edition Coach: Hints and answers for March 2, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7080267/2026/03/02/connections-sports-edition-hints-answers-march-2-2026/
-
-**14 Unforgettable Looks at the SAG Actor Awards**\
-`Painted torsos, tulip skirts, Jazz Age style and more.`\
-https://nytimes.com/2026/03/01/style/sag-actor-awards-looks-fashion.html
-
-**Iran Strikes U.S. Military Facilities Across Gulf Region**\
-`A Times analysis of satellite imagery and verified videos shows Iran found vulnerabilities in U.S. locations in the region.`\
-https://nytimes.com/2026/03/01/world/middleeast/iran-strikes-us-military-facilities.html
 
