@@ -1,3 +1,15 @@
+**He Hatched a Plot to Kill Trump on a Napkin. The F.B.I. Was Listening.**\
+`Testimony and evidence in Asif Merchant’s trial has so far portrayed him as a zealous yet bumbling operative who never came close to his mission, which prosecutors say was backed by Iran.`\
+https://nytimes.com/2026/03/02/nyregion/merchant-iran-plot-assassination-trump.html
+
+**How Trump Decided to Go to War**\
+`President Trump’s embrace of military action in Iran was spurred by an Israeli leader determined to end diplomatic negotiations. Few of the president’s advisers voiced opposition.`\
+https://nytimes.com/2026/03/02/us/politics/trump-war-iran-israel.html
+
+**Wild trade tracker: Top target Trocheck says if he's moved, he wants to have 'chance to win'**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/02/minnesota-wild-trade-tracker-2026/
+
 **San Diego Wave signs Brazil international Portilho from Gotham**\
 `The 30-year-old NWSL Championship winner has joined on a deal to the end of the 2026 league season, with an option for an extra year. `\
 https://nytimes.com/athletic/7081172/2026/03/02/gabi-portilho-san-diego-wave-gotham-transfer/
