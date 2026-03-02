@@ -1,3 +1,19 @@
+**Serie A briefing: In a weekend of late goals, Romelu Lukaku's was the most poignant**\
+`Another dramatic round of action saw Roma squander a chance to distance Juventus in the race for a top-four finish`\
+https://nytimes.com/athletic/7080662/2026/03/02/serie-a-briefing-lukaku-napoli-inter-roma/
+
+**Forest's Savona set for knee surgery, may not play again this season**\
+`The 22-year-old defender has not featured since January because of the problem.`\
+https://nytimes.com/athletic/7081257/2026/03/02/nicolo-savona-injury-nottingham-forest/
+
+**An ‘American Gigolo’ in Milan**\
+`At a Giorgio Armani exhibition, an ensemble worn by Richard Gere taught a lesson about what makes a great designer. Also, cutout beanies, more men’s Chanel and a very good pair of jeans.`\
+https://nytimes.com/2026/03/02/style/armani-gere-gigolo.html
+
+**Tigers, Red Wings introduce Detroit SportsNet as new broadcast home**\
+`Tigers and Red Wings games will be broadcast via Detroit SportsNet starting in the 2026-27 season.`\
+https://nytimes.com/athletic/7080215/2026/03/02/tigers-red-wings-detroit-sportsnet-broadcast/
+
 **The Windup: Welcome to WBC week**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7081049/2026/03/02/world-baseball-classic-mlb-survey-results-the-windup/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/02/us/austin-shooting-politics.html
 **Reporters Seek Comment. What Happens Next May Surprise You.**\
 `Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
 https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html
-
-**One Victim of the Austin Bar Shooting Was a 19-Year-Old College Student**\
-`Ryder Harrington, a student at Texas Tech University who was from Austin, was confirmed dead by his father on Monday. The shooting is being investigated as a possible act of terrorism.`\
-https://nytimes.com/2026/03/02/us/austin-bar-shooting-victims.html
-
-**The attack on Iran prompted swift responses from candidates with primaries looming.**\
-`By Tim Balk`\
-https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-attack-on-iran-prompted-swift-responses-from-candidates-with-primaries-looming
-
-**How to watch Blue Jackets vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081234/2026/03/02/blue-jackets-vs-rangers-stream-how-to-watch-march-2/
-
-**How to watch Rockets vs. Wizards: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the Washington Wizards, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081226/2026/03/02/rockets-vs-wizards-stream-how-to-watch-march-2/
 

@@ -1,3 +1,11 @@
+**The Windup: Welcome to WBC week**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7081049/2026/03/02/world-baseball-classic-mlb-survey-results-the-windup/
+
+**What I'm hearing on the Penguins: Malkin's future, Dubas' deadline options**\
+`Evgeni Malkin and Kyle Dubas will have a face-to-face meeting this week to discuss his future.`\
+https://nytimes.com/athletic/7080962/2026/03/02/penguins-evgeni-malkin-contract-talks-nhl/
+
 **Submit a question for James Edwards' Knicks mailbag**\
 `The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
 https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
