@@ -1,3 +1,15 @@
+**Submit a question for James Edwards' Knicks mailbag**\
+`The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
+https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
+
+**Defense Officials Give No Timeline for War in Iran as U.S. Boosts Forces**\
+`At a Pentagon news conference, top defense officials said that the U.S. military was sending more forces to the Middle East and expects to “take additional losses.” Earlier, President Trump said that the U.S. could continue striking Iran for the next four to five weeks.`\
+https://nytimes.com/video/us/politics/100000010747186/trump-administration-iran-war-troops-timeline.html
+
+**Austin Shooting Stokes Anti-Islam Speech Among Texas Conservatives**\
+`With primaries on Tuesday, politicians quickly cited the attack in their campaign messaging. Some Republicans called for stopping immigration, while Democrats called for gun control.`\
+https://nytimes.com/2026/03/02/us/austin-shooting-politics.html
+
 **Reporters Seek Comment. What Happens Next May Surprise You.**\
 `Accurate journalism requires full and fair reporting. It means pushing hard to hear from those you’re writing about.`\
 https://nytimes.com/2026/03/02/insider/journalism-reporting-seeking-comment.html

@@ -1,3 +1,7 @@
+**What I'm hearing on the Penguins: Malkin's future, Dubas' deadline options**\
+`Evgeni Malkin and Kyle Dubas will have a face-to-face meeting this week to discuss his future.`\
+https://nytimes.com/athletic/7080962/2026/03/02/penguins-evgeni-malkin-contract-talks-nhl/
+
 **Submit a question for James Edwards' Knicks mailbag**\
 `The playoffs are in sight, and the New York Knicks are trying to tie up loose ends as they approach the do-or-die stage for the franchise.`\
 https://nytimes.com/athletic/7081217/2026/03/02/knicks-mailbag-regular-season-run-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081226/2026/03/02/rockets-vs-wizards-stream-how-to
 **As Kennedy Turns From Vaccines, MAHA Allies See a ‘Betrayal’**\
 `As the midterm elections approach, the health secretary is focusing on “real food.” Anger is rising among some of his supporters.`\
 https://nytimes.com/2026/03/02/health/kennedy-maha-vaccines.html
-
-**Attacks on Iran Heighten Fears in Cuba, Already Under U.S. Pressure**\
-`Many Cubans are wondering if the Trump administration plans to target their country’s Communist government next.`\
-https://nytimes.com/2026/03/02/world/americas/iran-attacks-cuba-trump.html
 
