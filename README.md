@@ -1,3 +1,15 @@
+**As Maduro and Khamenei Learned, It’s Harder Than Ever for Leaders to Hide**\
+`A surge in sensors and cameras, combined with artificial intelligence, has transformed the U.S. intelligence’s ability to locate foreign heads of state. Add to that an American president willing to capture or kill.`\
+https://nytimes.com/2026/03/02/us/politics/maduro-khamenei-trump-surveillance.html
+
+**Scoop City: Kenyon Sadiq leads post-combine risers and fallers**\
+`Oregon's Kenyon Sadiq just did something comparable to Vernon Davis' legendary combine`\
+https://nytimes.com/athletic/7081425/2026/03/02/risers-fallers-nfl-combine-kenyon-sadiq/
+
+**I Did It**\
+`Unboxing our modern consumer obsessions.`\
+https://nytimes.com/column/i-did-it
+
 **Palestinian Brothers Killed as Settler Violence Surges in the West Bank**\
 `Israeli extremists appear to have escalated their campaign to take over more of the occupied lands as world attention shifts to the war with Iran.`\
 https://nytimes.com/2026/03/02/world/middleeast/palestinian-brothers-killed-as-settler-violence-surges-in-the-west-bank.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7081861/2026/03/02/celtics-vs-bucks-stream-how-to-w
 **How to watch Nuggets vs. Jazz: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Utah Jazz, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7081859/2026/03/02/nuggets-vs-jazz-stream-how-to-watch-march-2/
-
-**How to watch Hurricanes vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081853/2026/03/02/hurricanes-vs-kraken-stream-how-to-watch-march-2/
-
-**How to watch Stars vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081850/2026/03/02/stars-vs-canucks-stream-how-to-watch-march-2/
-
-**How to watch Avalanche vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7081845/2026/03/02/avalanche-vs-kings-stream-how-to-watch-march-2/
 
