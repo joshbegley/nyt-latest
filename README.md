@@ -1,3 +1,7 @@
+**Starmer Faces Dilemma as British Base in Cyprus Hit by Drone**\
+`Prime Minister Keir Starmer risks being dragged deeper into the conflict, after allowing the U.S. military to use British bases for “defensive” purposes.`\
+https://nytimes.com/2026/03/02/world/middleeast/starmer-faces-dilemma-as-british-base-in-cyprus-hit-by-drone.html
+
 **Arsenal set-piece coach's contract contains bonus clause for dead-ball goals**\
 `Arsenal have scored 16 goals from corners this season, the joint-most by any side in a single campaign.`\
 https://nytimes.com/athletic/7080468/2026/03/02/arsenal-set-piece-goals-nicolas-jover-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075887/2026/03/02/chiefs-nfl-combine-nfl-draft-pri
 **Celebration and Mourning: Inside an Iran at War**\
 `The ayatollah’s death, after nearly 40 years of authoritarian rule, represented a historic shift for Iran’s theocratic regime.`\
 https://nytimes.com/2026/03/02/podcasts/the-daily/iran-us-israel-supreme-leader.html
-
-**What I learned about the Cowboys at the NFL combine: Edge rusher's offseason surgery**\
-`Edge rusher Donovan Ezeiruaku had surgery to repair a hip labrum injury that he played through last season.`\
-https://nytimes.com/athletic/7079535/2026/03/02/cowboys-combine-george-pickens-donovan-ezeiruaku/
 
