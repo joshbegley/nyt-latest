@@ -1,3 +1,7 @@
+**Arne Slot: Games 'no longer a joy to watch' because of set pieces**\
+`Slot's side scored three first-half goals from set pieces in Saturday's 5-2 win over West Ham.`\
+https://nytimes.com/athletic/7080519/2026/03/02/liverpool-set-pieces-arne-slot/
+
 **As Trump Bombs Iran, America’s Allies Watch Fitfully From Sidelines**\
 `Disregarded by President Trump over Iran, Europe’s leaders are adapting to a world in which they are little more than bystanders.`\
 https://nytimes.com/2026/03/02/world/europe/trump-iran-europe.html
