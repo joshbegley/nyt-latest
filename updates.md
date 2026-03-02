@@ -1,3 +1,11 @@
+**Rangers' Trocheck talks trade, leverage, landing spot**\
+`Trocheck is carrying himself with the ease of a player who’s ready to embrace whatever comes next.`\
+https://nytimes.com/athletic/7081314/2026/03/02/rangers-vincent-trocheck-trade-rumors-nhl/
+
+**Natural Gas Prices Surge After Attacks Hit Facilities in Qatar**\
+`Qatar said it had halted production of liquefied natural gas, forcing buyers to compete for supplies elsewhere.`\
+https://nytimes.com/live/2026/03/02/world/iran-us-israel-attack-trump/natural-gas-prices-qatar-europe-asia
+
 **U.S. Sending More Forces to Middle East as Iran War Widens**\
 `Gen. Dan Caine, the chairman of the Joint Chiefs of Staff, said more troops and fighter jets were heading to the region. He acknowledged the possibility of an extended campaign.`\
 https://nytimes.com/2026/03/02/us/politics/trump-administration-troops-iran-war.html
