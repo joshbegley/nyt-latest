@@ -1,3 +1,7 @@
+**What to Know About the Widening Fallout From the Bombing of Iran**\
+`The Middle East is facing deaths and destruction as Iran retaliates against a huge American-Israeli military campaign.`\
+https://nytimes.com/2026/03/02/world/middleeast/iran-attacks-damage-what-to-know.html
+
 **For James Wiseman, FIBA World Cup qualifying is a chance to show resilience**\
 `Wiseman, taken second overall by the Warriors in the 2020 draft, had an injury-riddled NBA career after only playing three games in college.`\
 https://nytimes.com/athletic/7080306/2026/03/02/usa-basketball-james-wiseman-nba-return-hopes/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7080830/2026/03/02/red-wings-vs-predators-stream-ho
 `Ali Larijani, seen as a pragmatist who could negotiate with Washington, struck a defiant tone and vowed to fight on.`\
 https://nytimes.com/2026/03/02/world/middleeast/top-iranian-security-official-calls-trump-war-aims-delusional.html
 
-**The truth about World Cup ticket demand – and why USMNT's opener still hasn't sold out**\
+**The truth about World Cup ticket demand and why USA opener has struggled to sell out**\
 `FIFA's unexpected sales window raised plenty of questions but also hinted at some realities about the ticketing situation this summer`\
 https://nytimes.com/athletic/7080325/2026/03/02/fifa-world-cup-ticket-surprise-window-demand-usmnt/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080597/2026/03/02/chelsea-rosenior-tactics-arsenal
 **Pokémon Pokopia Swaps Conflict With Creature Comforts**\
 `You’ll rebuild a community in a spinoff that emulates cozy games like Stardew Valley and Animal Crossing: New Horizons.`\
 https://nytimes.com/2026/03/02/arts/pokemon-pokopia-review.html
-
-**Inside Barcelona: Can Lamine Yamal and Pedri inspire another crazy comeback?**\
-`After Barcelona's resounding victory over Villarreal on Saturday, attention turned to Tuesday's visit of Atletico Madrid`\
-https://nytimes.com/athletic/7080667/2026/03/02/barcelona-atletico-yamal-pedri-laporta/
 
