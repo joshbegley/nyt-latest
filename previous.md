@@ -1,3 +1,7 @@
+**U.S. Attacks on Iran Test Fragile Truce With China**\
+`Beijing has condemned the U.S.-backed strikes on Iran, a close partner. Yet with trade talks looming, it is unlikely to risk a rupture with Washington.`\
+https://nytimes.com/2026/03/03/world/asia/us-iran-china-trump-xi.html
+
 **The New York Times in Print for Tuesday, March 3, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/03/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081342/2026/03/03/leeds-xg-analysis-shots-premier-
 **Inside Newcastle Q&A: Cup focus over league? Can replacements be found for top stars?**\
 `We have pulled together some of the questions and our answers from Monday’s edition of our Inside Newcastle live Q&A`\
 https://nytimes.com/athletic/7080486/2026/03/03/newcastle-inside-cup-premier-league-transfer-latest/
-
-**World Cup 2026, 100 days to go: 100 staff choose the players they're most excited to watch**\
-`With 100 days to go until the World Cup, we asked 100 people at The Athletic which players they're most excited to watch this summer... `\
-https://nytimes.com/athletic/7081070/2026/03/03/world-cup-staff-players-tournament-fan-loved/
 
