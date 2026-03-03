@@ -1,3 +1,11 @@
+**Harrowing Rescue at 900 Feet After Hot Air Balloon Strikes Tower**\
+`Two people were left dangling from a communications tower near Longview, Texas, on Saturday until more than a dozen firefighters could scale the equivalent of a skyscraper to reach them.`\
+https://nytimes.com/2026/03/03/us/hot-air-balloon-rescue-texas-cell-tower.html
+
+**Two Rescued From Hot Air Balloon Crash Hundreds of Feet in the Air**\
+`Firefighters in Gregg County, Texas, pulled two people to safety from the wreckage of a hot air balloon as it dangled from a cell phone tower more than 900 feet above ground.`\
+https://nytimes.com/video/us/100000010747579/hot-air-balloon-crash-texas-rescue.html
+
 **Resurfaced Affair Allegations Intensify Gonzales’s Primary Challenge**\
 `Representative Tony Gonzales, a Republican, is fighting to hold onto his job as he faces a primary challenge from the right and fresh allegations of personal indiscretions that have rocked his campaign.`\
 https://nytimes.com/2026/03/03/us/elections/tony-gonzales-texas.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/03/03/us/elections/tony-gonzales-texas.html
 https://nytimes.com/2026/03/03/world/middleeast/iranian-leaders-trum.html
 
 **Ayatollah Ali Khamenei’s Son Emerges as Leading Choice to Be His Successor**\
-`If Mojtaba Khamenei is chosen by Iran’s senior clinics, it may signal a victory for hard-liners, an analyst said.`\
+`If Mojtaba Khamenei is chosen by Iran’s senior clerics, it may signal a victory for hard-liners, an analyst said.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-mojtaba-khamenei-successor.html
 
 **Travelers, How Has the Iran Conflict Affected You? Tell Us Your Story.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/world/middleeast/iran-war-death-toll-mideast.html
 **Mets to renew top prospect Jonah Tong's 2026 contract at league minimum**\
 `Tong is a pre-arbitration player, meaning clubs can set the salary of a player if the two sides don't come to an agreement.`\
 https://nytimes.com/athletic/7084536/2026/03/03/mets-jonah-tong-2026-contract-renew/
-
-**Columbia Is Investigated for Handling of Sex-Abuse Claims Against Doctor**\
-`Attorney General Letitia James is investigating the university for its actions after the 2012 arrest of Robert Hadden, a former Columbia gynecologist convicted of sex crimes.`\
-https://nytimes.com/2026/03/03/nyregion/columbia-hadden-sexual-assault-investigation.html
-
-**Trump Suggests He’s Uncertain About Iran’s Future**\
-`Also, the midterms begin with high-stakes showdowns in Texas. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
 
