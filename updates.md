@@ -1,3 +1,7 @@
+**In Dimes Square, a Party Where Toothpicks Were Crucial**\
+`The Basque-inspired Eel Bar hosted a pintxos-forward reunion for friends and fellow business owners.`\
+https://nytimes.com/2026/03/02/t-magazine/eel-bar-party-pintxos.html
+
 **Trae Young endears himself to teammates, fans by getting ejected from Wizards' bench**\
 `Young was ejected for stepping onto the court while arguing with a game official. `\
 https://nytimes.com/athletic/7082660/2026/03/02/trae-young-ejected-wizards-rockets-game/
