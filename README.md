@@ -1,3 +1,7 @@
+**Review: Romeo and Juliet Search for Love, With a Cameraman**\
+`Benjamin Millepied’s “Romeo and Juliet Suite,” with its unusual approach to dance coupling and live performance, comes to the Park Avenue Armory.`\
+https://nytimes.com/2026/03/03/arts/dance/romeo-and-juliet-suite-armory-review.html
+
 **How to watch Tennessee vs. South Carolina men's basketball: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083630/2026/03/03/tennessee-vs-south-carolina-stream-how-to-watch-march-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083612/2026/03/03/alabama-vs-georgia-stream-how-to
 **How to watch TCU vs. Texas Tech men's basketball: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083610/2026/03/03/tcu-vs-texas-tech-stream-how-to-watch-march-3/
-
-**How to watch Toledo vs. Miami (OH) men's basketball: Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083607/2026/03/03/toledo-vs-miami-oh-stream-how-to-watch-march-3/
 

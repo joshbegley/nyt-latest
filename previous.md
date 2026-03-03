@@ -1,3 +1,19 @@
+**How to watch Tennessee vs. South Carolina men's basketball: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083630/2026/03/03/tennessee-vs-south-carolina-stream-how-to-watch-march-3/
+
+**YouTuber KSI agrees deal to join ownership group of sixth-tier soccer club**\
+`Dagenham & Redbridge have seen their ownership group overhauled in recent months, the world-famous content creator is their newest addition.`\
+https://nytimes.com/athletic/7082990/2026/03/03/ksi-dagenham-redbridge-owner-carroll/
+
+**How to watch North Florida vs. West Georgia women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the West Georgia Wolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083622/2026/03/03/north-florida-vs-west-georgia-stream-how-to-watch-march-3/
+
+**How to watch Holy Cross vs. Lafayette men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the Holy Cross Crusaders play the Lafayette Leopards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083620/2026/03/03/holy-cross-vs-lafayette-stream-how-to-watch-march-3/
+
 **How to watch Army vs. Bucknell men's basketball: Patriot League Tournament Time, TV, streaming**\
 `Find out how to watch the Army Black Knights play the Bucknell Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083617/2026/03/03/army-vs-bucknell-stream-how-to-watch-march-3/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7083610/2026/03/03/tcu-vs-texas-tech-stream-how-to-
 **How to watch Toledo vs. Miami (OH) men's basketball: Time, TV, streaming**\
 `Find out how to watch the Toledo Rockets play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083607/2026/03/03/toledo-vs-miami-oh-stream-how-to-watch-march-3/
-
-**How to watch Georgia State vs. Louisiana men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia State Panthers play the Louisiana Ragin' Cajuns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083604/2026/03/03/georgia-state-vs-louisiana-stream-how-to-watch-march-3/
-
-**How to watch Georgetown vs. St. John's men's basketball: Time, TV, streaming**\
-`Find out how to watch the Georgetown Hoyas play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083601/2026/03/03/georgetown-vs-st-john-s-stream-how-to-watch-march-3/
-
-**How to watch Clemson vs. North Carolina men's basketball: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083599/2026/03/03/clemson-vs-north-carolina-stream-how-to-watch-march-3/
-
-**In Texas, there are plenty of polls, but little consensus.**\
-`Competitive races in both Senate primaries have led to numerous surveys, but primaries can be remarkably difficult to measure.`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/in-texas-there-are-plenty-of-polls-but-little-consensus
 
