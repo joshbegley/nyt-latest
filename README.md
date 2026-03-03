@@ -1,3 +1,35 @@
+**As Europe Seeks Voice in Iran War, German Leader Will Meet Trump**\
+`Chancellor Friedrich Merz’s visit to Washington, long planned, is now likely to be dominated by discussions of the attack, which Europeans did not take part in.`\
+https://nytimes.com/2026/03/03/world/europe/merz-germany-trump-iran-meeting.html
+
+**The Deadly Cost of the Nigerian Military’s Inaction**\
+`The country has one of the most feared armed forces in Africa, yet within its own borders, it has repeatedly failed to stop abductions and attacks.`\
+https://nytimes.com/2026/03/03/world/africa/nigeria-security-forces-us-intervention.html
+
+**A Junta Chief Eyes the Title of President**\
+`The military ruler of Myanmar, Senior Gen. Min Aung Hlaing, is expected to seek a civilian post to add a veneer of legitimacy after sham elections.`\
+https://nytimes.com/2026/03/03/world/asia/myanmar-junta-president-min-aung-hlaing.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 3, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7082673/2026/03/03/connections-sports-edition-hints-answers-march-3-2026/
+
+**Olympic dorm setups and stressful proposals: Hughes brothers join Hilary Knight on 'Tonight Show'**\
+`The three Team USA Olympic gold medalists shared tales of daily life — and some exceptional memories — at the Milan Cortina Games.`\
+https://nytimes.com/athletic/7082533/2026/03/03/jack-quinn-hughes-hilary-knight-usa-hockey-tonight-show/
+
+**Global Economy Is Facing the Prospect of Another Profound Shock**\
+`A protracted conflict in the Middle East risks a spike in energy prices and broader inflation.`\
+https://nytimes.com/2026/03/03/business/us-iran-israel-economic-fallout.html
+
+**Corrections: March 3, 2026**\
+`Corrections that appeared in print on Tuesday, March 3, 2026.`\
+https://nytimes.com/2026/03/03/pageoneplus/corrections-march-3-2026.html
+
+**Is a Pet Dog the Secret to Living Longer?**\
+`Research suggests dogs and other pets keep you healthier. Dana G. Smith, a reporter for Well, walks us through what exactly the science says about the connection between dogs and longevity.`\
+https://nytimes.com/video/well/live/100000010703479/is-a-pet-dog-the-secret-to-living-longer.html
+
 **Quote of the Day: India Built the World’s Back Office. A.I. Is Starting to Shrink It.**\
 `Quotation of the Day for Tuesday, March 3, 2026.`\
 https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-india-built-the-worlds-back-office-ai-is-starting-to-shrink-it.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-india-built-the-worl
 **‘Pray We Make It Through the Night’: Iran’s Capital Under Siege**\
 `Many residents of Tehran managed to get out of town when the U.S. and Israel attack began, but others who could not described living under bombardment.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-tehran-strikes.html
-
-**Whew! Blue Jackets cough up 4-0 lead, but rally to win on Marchenko's OT goal**\
-`"This is the first time I've seen this," said new coach Rick Bowness. "But I learned a lot, and that's a good thing."`\
-https://nytimes.com/athletic/7082560/2026/03/02/blue-jackets-third-period-bowness-marchenko-rangers/
-
-**In Dimes Square, a Party Where Toothpicks Were Crucial**\
-`The Basque-inspired Eel Bar hosted a pintxos-forward reunion for friends and fellow business owners.`\
-https://nytimes.com/2026/03/02/t-magazine/eel-bar-party-pintxos.html
-
-**Trae Young endears himself to teammates, fans by getting ejected from Wizards' bench**\
-`Young was ejected for stepping onto the court while arguing with a game official. `\
-https://nytimes.com/athletic/7082660/2026/03/02/trae-young-ejected-wizards-rockets-game/
-
-**OpenAI Amends A.I. Deal With the Pentagon**\
-`The new pact includes additional protections to prevent the use of the company’s technology for mass surveillance of Americans.`\
-https://nytimes.com/2026/03/02/technology/openai-pentagon-deal-amended-surveillance.html
-
-**Under Pressure from Trump, Cuban Leader Calls for ‘Urgent’ Economic Change**\
-`President Miguel Díaz-Canel said the private sector needed more autonomy, as the island confronts a U.S. oil blockade that has deepened a humanitarian crisis.`\
-https://nytimes.com/2026/03/02/world/americas/cuba-economy-change-communism.html
-
-**Seven Takeaways From the Clintons’ Epstein Depositions**\
-`Former Secretary of State Hillary Clinton was defiant. Former President Bill Clinton spoke of President Trump’s ties to Epstein. A Republican raised a conspiracy theory.`\
-https://nytimes.com/2026/03/02/us/politics/clinton-bill-hillary-epstein-deposition-video.html
-
-**Absolutely Steaming**\
-`Drew Schmenner gets a head start.`\
-https://nytimes.com/2026/03/02/crosswords/daily-puzzle-2026-03-03.html
-
-**Trump’s Head-on-a-Pike Foreign Policy**\
-`The Trump administration has deposed two sitting heads of state in two months, signaling a perilous new approach to the United States’ foreign affairs, argues the Times Opinion columnist Ezra Klein. “This is head on-a-pike foreign policy.”`\
-https://nytimes.com/video/opinion/100000010746931/trumps-head-on-a-pike-foreign-policy.html
 
