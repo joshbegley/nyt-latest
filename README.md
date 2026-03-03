@@ -1,3 +1,15 @@
+**Seahawks not planning to tag Super Bowl MVP Kenneth Walker III: Sources**\
+`If the Seahawks decided to use the franchise tag on Kenneth Walker III, it would have put him on the books for $14.5 million in 2026.`\
+https://nytimes.com/athletic/7083834/2026/03/03/seahawks-franchise-transition-tag-kenneth-walker/
+
+**I.M.F. Warns Iran War Could Hurt Global Economy**\
+`Inflation fears over higher energy prices could force central banks to take action, a top fund official said.`\
+https://nytimes.com/2026/03/03/us/politics/imf-warns-iran-war-could-hurt-global-economy.html
+
+**Is This Man the Last Living Number Painter in Naples?**\
+`The numeraio Pasquale De Stefano’s handmade market signs are a dying breed of everyday beauty in a baroque city.`\
+https://nytimes.com/2026/03/03/arts/design/naples-italy-painter.html
+
 **6 Design Products That May Be the Last of Their Kind**\
 `Many artisanal practices are hanging by a thread, but there is still a chance to enjoy them.`\
 https://nytimes.com/2026/03/03/style/design-traditional-crafts.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/us/elections/james-talarico-texas-senate-primary.
 **You Break It, You Own It? Not for Trump When It Comes to Iran**\
 `“We’ll see what happens with the people,” President Trump said as he appeared to be distancing himself from the longer-term consequences of the war in Iran.`\
 https://nytimes.com/2026/03/03/us/politics/trump-iran-ownership.html
-
-**Hamnet, Hamlet and Oscar Wao: Three Lost Boys Across Time**\
-`In the stage versions of two beloved books, the most impressive moments emerge when the productions stray from the source material.`\
-https://nytimes.com/2026/03/03/theater/hamnet-oscar-wao-chicago-shakespeare-goodman.html
-
-**Potomac River Reopens to Some Recreation After Sewer Collapse**\
-`Contamination levels in the waterway have declined, but health advisories remain in place for boaters downstream.`\
-https://nytimes.com/2026/03/03/climate/potomac-river-reopens-sewer-collapse.html
-
-**Should You Order That Fish? Menus Have a New Way to Help.**\
-`Seafood Watch, long a source of advice on sustainable choices, is working to get restaurants to adopt its color-coded recommendations.`\
-https://nytimes.com/2026/03/03/dining/monterey-bay-aquarium-seafood-watch.html
 

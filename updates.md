@@ -1,3 +1,15 @@
+**6 Design Products That May Be the Last of Their Kind**\
+`Many artisanal practices are hanging by a thread, but there is still a chance to enjoy them.`\
+https://nytimes.com/2026/03/03/style/design-traditional-crafts.html
+
+**The Piano Man’s Long Goodbye to Long Island**\
+`Why Billy Joel’s dream home finally sold for $14 million under the asking price.`\
+https://nytimes.com/2026/03/03/realestate/billy-joel-house-sale-long-island.html
+
+**The Best Movies and TV Shows Coming to Netflix in March**\
+`Several promising titles are coming this month, including a new series starring Rachel Weisz and the feature-length sequel to “Peaky Blinders.”`\
+https://nytimes.com/2026/03/03/arts/television/netflix-peaky-blinders-rachel-weisz.html
+
 **An Iranian Nuclear Site Avoids New Airstrikes, for Now**\
 `The Isfahan facility, suspected of storing a cache of enriched uranium, was smashed during the 12-day campaign last June.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-nuclear-site-isfahan-airstrikes-spared.html
