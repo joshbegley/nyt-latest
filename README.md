@@ -1,5 +1,9 @@
+**A Costly, Bitter Senate Primary Splits Texas Republicans**\
+`The bruising contest between Senator John Cornyn and Attorney General Ken Paxton reflects a broader struggle between establishment Republicans and the party’s ascendant right flank.`\
+https://nytimes.com/2026/03/03/us/elections/texas-republican-senate-race-cornyn-paxton.html
+
 **Cardinals inform Kyler Murray they plan to release him: Sources**\
-`Barring a trade, Arizona quarterback will become a free agent next week.`\
+`The decision is the first step in Arizona’s quest to find its next franchise quarterback.`\
 https://nytimes.com/athletic/7084465/2026/03/03/kyler-murray-released-cardinals-nfl-free-agency/
 
 **Men's tennis tour cancels two Dubai tournaments, withdraws $5,800 charter flight proposal for players**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7084405/2026/03/03/f1-season-opener-2026-doubts-bel
 **U.S. and Allies Encounter Iran’s Arsenal of Drones**\
 `The Pentagon and Middle Eastern countries say that most of the drones have been intercepted. But some have slipped through and caused damage.`\
 https://nytimes.com/2026/03/03/us/politics/us-iran-drones.html
-
-**Bears Pro Bowl center Drew Dalman retiring at age 27: Source**\
-`Dalman joined the Bears on a three-year, $42 million contract with $28 million guaranteed less than a year ago.`\
-https://nytimes.com/athletic/7084209/2026/03/03/bears-drew-dalman-retires/
 

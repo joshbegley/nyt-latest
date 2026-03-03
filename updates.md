@@ -1,3 +1,11 @@
+**Cardinals inform Kyler Murray they plan to release him: Sources**\
+`Barring a trade, Arizona quarterback will become a free agent next week.`\
+https://nytimes.com/athletic/7084465/2026/03/03/kyler-murray-released-cardinals-nfl-free-agency/
+
+**Men's tennis tour cancels two Dubai tournaments, withdraws $5,800 charter flight proposal for players**\
+`The ATP Tour said it was organizing transport for players at the Fujairah Challenger, before clarifying it was not doing so directly.`\
+https://nytimes.com/athletic/7084208/2026/03/03/tennis-atp-fujairah-canceled-charter-flight-cost/
+
 **British Columbia Will Change Clocks on Sunday for the Last Time**\
 `The Canadian province is moving permanently to daylight saving time, officials announced.`\
 https://nytimes.com/2026/03/03/world/canada/daylight-savings-bc-time.html

@@ -1,3 +1,11 @@
+**Cardinals inform Kyler Murray they plan to release him: Sources**\
+`Barring a trade, Arizona quarterback will become a free agent next week.`\
+https://nytimes.com/athletic/7084465/2026/03/03/kyler-murray-released-cardinals-nfl-free-agency/
+
+**Men's tennis tour cancels two Dubai tournaments, withdraws $5,800 charter flight proposal for players**\
+`The ATP Tour said it was organizing transport for players at the Fujairah Challenger, before clarifying it was not doing so directly.`\
+https://nytimes.com/athletic/7084208/2026/03/03/tennis-atp-fujairah-canceled-charter-flight-cost/
+
 **British Columbia Will Change Clocks on Sunday for the Last Time**\
 `The Canadian province is moving permanently to daylight saving time, officials announced.`\
 https://nytimes.com/2026/03/03/world/canada/daylight-savings-bc-time.html
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/03/us/politics/us-iran-drones.html
 **Bears Pro Bowl center Drew Dalman retiring at age 27: Source**\
 `Dalman joined the Bears on a three-year, $42 million contract with $28 million guaranteed less than a year ago.`\
 https://nytimes.com/athletic/7084209/2026/03/03/bears-drew-dalman-retires/
-
-**Thousands in Iran Attend Burial of Children Killed in Bombing of School**\
-`There were students attending classes at the time that the school was destroyed. Some 175 people were killed by the attack on the girls’ elementary school.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-school-bombing-children.html
-
-**Trapped Between U.S. and Iran, Gulf Countries Face Nightmare Scenario**\
-`The energy-rich nations that sought to avert the American-Israeli war on Iran have been sucked into the spiraling conflict.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-us-israel-war-persian-gulf.html
 
