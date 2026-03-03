@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Helene Cooper and Yan Zhuang`\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/heres-the-latest
+
+****\
+``\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump
+
 **U.S. Attacks on Iran Test Fragile Truce With China**\
 `Beijing has condemned the U.S.-backed strikes on Iran, a close partner. Yet with trade talks looming, it is unlikely to risk a rupture with Washington.`\
 https://nytimes.com/2026/03/03/world/asia/us-iran-china-trump-xi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080979/2026/03/03/rokas-pukstas-interview-usmnt/
 **Can Aston Villa really rely on Ollie Watkins coming good to haul them from their mid-season dip?**\
 `Unai Emery is convinced 'the goals will come' for the striker, but Champions League qualification may hinge upon perking up an ailing attack`\
 https://nytimes.com/athletic/7080540/2026/03/03/aston-villa-emery-watkins-abraham-dip/
-
-**Leeds are playing well - but their xG suggests they could be doing even better**\
-`Leeds missed a number of opportunities against Manchester City — and that follows a trend`\
-https://nytimes.com/athletic/7081342/2026/03/03/leeds-xg-analysis-shots-premier-league/
-
-**Inside Newcastle Q&A: Cup focus over league? Can replacements be found for top stars?**\
-`We have pulled together some of the questions and our answers from Monday’s edition of our Inside Newcastle live Q&A`\
-https://nytimes.com/athletic/7080486/2026/03/03/newcastle-inside-cup-premier-league-transfer-latest/
 

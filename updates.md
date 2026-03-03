@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Aaron Boxerman, Helene Cooper and Yan Zhuang`\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/heres-the-latest
+
+****\
+``\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump
+
 **U.S. Attacks on Iran Test Fragile Truce With China**\
 `Beijing has condemned the U.S.-backed strikes on Iran, a close partner. Yet with trade talks looming, it is unlikely to risk a rupture with Washington.`\
 https://nytimes.com/2026/03/03/world/asia/us-iran-china-trump-xi.html
