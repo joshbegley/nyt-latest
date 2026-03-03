@@ -1,3 +1,7 @@
+**Resurfaced Affair Allegations Intensify Gonzales’s Primary Challenge**\
+`Representative Tony Gonzales, a Republican, is fighting to hold onto his job as he faces a primary challenge from the right and fresh allegations of personal indiscretions that have rocked his campaign.`\
+https://nytimes.com/2026/03/03/us/elections/tony-gonzales-texas.html
+
 **Iranians Viewed by U.S. as Potential Leaders Died in Strikes, Trump Says**\
 `With the future of Iran deeply uncertain, President Trump acknowledged that it could end up with a ruler “as bad” as Ayatollah Ali Khamenei.`\
 https://nytimes.com/2026/03/03/world/middleeast/iranian-leaders-trum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/nyregion/columbia-hadden-sexual-assault-investiga
 **Trump Suggests He’s Uncertain About Iran’s Future**\
 `Also, the midterms begin with high-stakes showdowns in Texas. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
-
-**Trinity Rodman back training with USWNT after injury in SheBelieves Cup opener**\
-`Coach Emma Hayes said Rodman remained with the team ahead of a crucial match against Canada, while Defender Lilly Reale returned to Gotham.`\
-https://nytimes.com/athletic/7084675/2026/03/03/trinity-rodman-uswnt-shebelieves-cup-back-injury/
 
