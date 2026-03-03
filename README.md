@@ -1,3 +1,7 @@
+**Texas Republican Incumbent Faces Pardoned Jan. 6 Defendant**\
+`A conservative member of the Texas Legislature is facing a tough challenge from an Air Force veteran who went to prison for breaching the U.S. Capitol on Jan. 6.`\
+https://nytimes.com/2026/03/03/us/texas-republican-incumbent-jan-6-defendant.html
+
 **Are You a Gen Z Skier? Vail Just Cut the Price of Your Next Epic Pass.**\
 `Seeming to acknowledge critics’ complaints about the high cost of snow sports, the company is cutting the price of its 2026-2027 Epic Passes for younger skiers and snowboarders.`\
 https://nytimes.com/2026/03/03/travel/skiing-gen-z-epic-pass.html
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/03/arts/music/live-nation-antitrust-trial.html
 `One-fifth of the global oil supply and substantial amounts of natural gas travel through the Strait of Hormuz, which has become a no-go zone for many tankers as fighting continues.`\
 https://nytimes.com/interactive/2026/03/03/business/iran-war-oil-gas-strait-of-hormuz.html
 
-**President Trump says he ‘doesn’t care’ if Iran play at World Cup in North America**\
+**President Trump says he ‘doesn’t care’ if Iran plays at World Cup in North America**\
 `Iran has qualified, and is scheduled to play matches in Los Angeles and Seattle.`\
 https://nytimes.com/athletic/7084588/2026/03/03/trump-iran-world-cup-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
 **Five-star LB Cooper Witten, son of former NFL star Jason Witten, commits to Oklahoma**\
 `Witten is ranked No. 25 overall and the No. 2 linebacker in the Class of 2027 in the 247Sports Composite. `\
 https://nytimes.com/athletic/7084484/2026/03/03/cooper-witten-5-star-linebacker-jason-witten-oklahoma/
-
-**The Briefing: Leeds 0 Sunderland 1 - Costly Ampadu handball and more late subs, but should Struijk have won a penalty?**\
-`Leeds were beaten at home by an injury-ravaged Sunderland, which leaves Farke's side 15th in the league, six points above the drop zone`\
-https://nytimes.com/athletic/7083477/2026/03/03/leeds-sunderland-ampadu-penalty/
 
