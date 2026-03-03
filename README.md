@@ -1,3 +1,7 @@
+**The departure of Arsenal's technical director was unexpected. What does it mean for the club?**\
+`James Ellis had developed a reputation as respected leader but his departure perhaps signals a power shift at Arsenal`\
+https://nytimes.com/athletic/7075876/2026/03/03/the-departure-of-arsenals-technical-director-was-unexpected-what-does-it-mean-for-the-club/
+
 **Meet the U.S. talent who left home at 16, battled with Gattuso and is inspired by his Olympian father**\
 `Rokas Pukstas is hoping that by helping Hajduk Split to a first Croatian title in 21 years he can force his way into USMNT contention`\
 https://nytimes.com/athletic/7080979/2026/03/03/rokas-pukstas-interview-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7068782/2026/03/03/row-z-var-club-shop-snoop-dogg/
 **Welcome to Wolves, home of Gomes, Gomes, Gomes and Gomes**\
 `The Premier League club made history by fielding four players with the same surname on Friday, but what about keeping up with the Joneses?`\
 https://nytimes.com/athletic/7081150/2026/03/03/gomes-wolves-names-kim-burgess/
-
-**The Manchester City tactical tweak that shows Pep Guardiola is still a unique thinker**\
-`Faced with Leeds' aggressive man-marking the City boss deployed Rodri and Bernardo Silva at goal kicks – why?`\
-https://nytimes.com/athletic/7081000/2026/03/03/manchester-city-goal-kicks-rodri-bernardo-silva/
 
