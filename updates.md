@@ -1,3 +1,7 @@
+**Warriors' Kristaps Porziņģis to miss fifth straight game, uncertain to travel with team**\
+`After playing 17 minutes against the Boston Celtics on Feb. 19, Porziņģis has not been able to play since.`\
+https://nytimes.com/athletic/7082520/2026/03/02/kristaps-porzingis-injury-update-warriors-pots/
+
 **In Rallies Across Texas, Senate Candidates Make Final Arguments**\
 `The Republicans John Cornyn and Ken Paxton — and the Democrats Jasmine Crockett and James Talarico — are battling in bitter and expensive races.`\
 https://nytimes.com/2026/03/02/us/elections/texas-primary-senate-midterms-argument.html
