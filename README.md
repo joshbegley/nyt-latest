@@ -1,3 +1,15 @@
+**Hamnet, Hamlet and Oscar Wao: Three Lost Boys Across Time**\
+`In the stage versions of two beloved books, the most impressive moments emerge when the productions stray from the source material.`\
+https://nytimes.com/2026/03/03/theater/hamnet-oscar-wao-chicago-shakespeare-goodman.html
+
+**Potomac River Reopens to Some Recreation After Sewer Collapse**\
+`Contamination levels in the waterway have declined, but health advisories remain in place for boaters downstream.`\
+https://nytimes.com/2026/03/03/climate/potomac-river-reopens-sewer-collapse.html
+
+**Should You Order That Fish? Menus Have a New Way to Help.**\
+`Seafood Watch, long a source of advice on sustainable choices, is working to get restaurants to adopt its color-coded recommendations.`\
+https://nytimes.com/2026/03/03/dining/monterey-bay-aquarium-seafood-watch.html
+
 **Iowa State discontinues women’s gymnastics but will add another women's sport**\
 `Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
 https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-womens-gymnastics/
@@ -11,7 +23,7 @@ https://nytimes.com/2026/03/03/nyregion/justin-timberlake-arrest-lawsuit-body-ca
 https://nytimes.com/athletic/7083764/2026/03/03/blue-jays-pitcher-max-scherzer-contract-daughter-letter/
 
 **Braves' Profar facing 162-game suspension for second PED violation: Source**\
-`Profar missed the first 80 games of the 2025 season due to a positive test for performance enhancing drugs. `\
+`Profar missed the first 80 games of the 2025 season due to a positive test for performance-enhancing drugs. `\
 https://nytimes.com/athletic/7083768/2026/03/03/atlanta-braves-jurickson-profar-suspension/
 
 **Trump, Iran and a Host of Questions**\
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/03/opinion/trump-iran-war.html
 **Jon Rahm explains why he rejected DP World Tour deal over 'extortion' claims**\
 `Rahm said that he would have agreed had the DP World Tour not required him to play additional events above the minimum of four.`\
 https://nytimes.com/athletic/7083516/2026/03/03/jon-rahm-rejects-dp-word-tour-extortion/
-
-**Congestion Pricing Wins in Court After Lengthy Battle With Trump**\
-`The victory removes a major threat to the New York City tolling program, which still faces other lawsuits.`\
-https://nytimes.com/2026/03/03/nyregion/nyc-congestion-pricing-ruling.html
-
-**Gabriel Kreuther Fires Up Alsatian Cooking at Saverne**\
-`Eddie Huang’s Baohaus makes a return, Da Toscano moves into the Iroquois Hotel and more restaurant news.`\
-https://nytimes.com/2026/03/03/dining/nyc-restaurant-news.html
-
-**Are You ‘Biohacking’ Your Diet? We Want to Hear From You.**\
-`Your responses may be used in an article that examines the growing popularity of biohacking.`\
-https://nytimes.com/2026/03/03/dining/are-you-biohacking-your-diet-we-want-to-hear-from-you.html
 
