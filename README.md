@@ -1,3 +1,7 @@
+**Quote of the Day: India Built the World’s Back Office. A.I. Is Starting to Shrink It.**\
+`Quotation of the Day for Tuesday, March 3, 2026.`\
+https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-india-built-the-worlds-back-office-ai-is-starting-to-shrink-it.html
+
 **‘Pray We Make It Through the Night’: Iran’s Capital Under Siege**\
 `Many residents of Tehran managed to get out of town when the U.S. and Israel attack began, but others who could not described living under bombardment.`\
 https://nytimes.com/2026/03/02/world/middleeast/iran-tehran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/crosswords/daily-puzzle-2026-03-03.html
 **Trump’s Head-on-a-Pike Foreign Policy**\
 `The Trump administration has deposed two sitting heads of state in two months, signaling a perilous new approach to the United States’ foreign affairs, argues the Times Opinion columnist Ezra Klein. “This is head on-a-pike foreign policy.”`\
 https://nytimes.com/video/opinion/100000010746931/trumps-head-on-a-pike-foreign-policy.html
-
-**Melania Trump Promotes ‘Peace Through Education’ at U.N. as War With Iran Expands**\
-`The first lady advocated an increased focus on education and empathy, as her husband has waged war in the Middle East and sought to cut education funding at home.`\
-https://nytimes.com/2026/03/02/us/politics/melania-trump-un-peace-education.html
 
