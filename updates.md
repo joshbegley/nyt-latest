@@ -1,3 +1,11 @@
+**Security alert stops play at ATP Challenger event in UAE**\
+`Three matches were taking place in the event, which sits the tier below the main Tour, when play was stopped at around 1pm local time.`\
+https://nytimes.com/athletic/7083007/2026/03/03/tennis-fujairah-challenger-play-stopped/
+
+**Inside Real Madrid: Is Alvaro Arbeloa's job at risk? Would Florentino Perez really resign?**\
+`Monday night's shock defeat at home by Getafe raises several key questions for Real Madrid. Here's what our reporters are hearing`\
+https://nytimes.com/athletic/7082968/2026/03/03/real-madrid-arbeloa-perez-getafe/
+
 **How does The Times track what share of the vote has been counted over the course of the night?**\
 `(No description)`\
 https://nytimes.com/live/2026/us/times-election-results-explained/how-does-the-times-track-what-share-of-the-vote-has-been-counted-over-the-course-of-the-night
