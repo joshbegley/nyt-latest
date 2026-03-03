@@ -1,3 +1,15 @@
+**A Neon Skirt and a Psychedelic Bag**\
+`A writer’s bold attire reflected a taste for wearing color.`\
+https://nytimes.com/2026/03/03/style/street-style-look-issey-miyake-gucci.html
+
+**Falcons to play in Madrid game this fall**\
+`The Falcons are headed to Spain this fall to play a regular-season game at Real Madrid's Santiago Bernabéu Stadium.`\
+https://nytimes.com/athletic/7083222/2026/03/03/atlanta-falcons-madrid-nfl-game-bernabeu/
+
+**'You have to adapt' - Guardiola likens set-piece trend to NBA 3-pointers**\
+`Guardiola likened the use of long throw-ins and holding in the penalty area in the league to the rise of three-pointers in the NBA.`\
+https://nytimes.com/athletic/7083244/2026/03/03/guardiola-man-city-set-pieces-increase/
+
 **Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
 `Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
 https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/business/dealbook/iran-markets-trump.html
 **How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
-
-**How to watch Louisiana vs. Georgia State women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Louisiana Ragin' Cajuns play the Georgia State Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083187/2026/03/03/louisiana-vs-georgia-state-stream-how-to-watch-march-3/
-
-**NBA contenders tiers: The top 10 candidates as we head into the stretch run**\
-`We’re getting into a serious moment for the league’s contending hopefuls, of which we could count eight teams as truly serious.`\
-https://nytimes.com/athletic/7082186/2026/03/03/nba-title-contenders-ranked-tiers-playoffs/
-
-**A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
-`In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
-https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html
 

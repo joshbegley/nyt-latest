@@ -1,3 +1,15 @@
+**A Neon Skirt and a Psychedelic Bag**\
+`A writer’s bold attire reflected a taste for wearing color.`\
+https://nytimes.com/2026/03/03/style/street-style-look-issey-miyake-gucci.html
+
+**Falcons to play in Madrid game this fall**\
+`The Falcons are headed to Spain this fall to play a regular-season game at Real Madrid's Santiago Bernabéu Stadium.`\
+https://nytimes.com/athletic/7083222/2026/03/03/atlanta-falcons-madrid-nfl-game-bernabeu/
+
+**'You have to adapt' - Guardiola likens set-piece trend to NBA 3-pointers**\
+`Guardiola likened the use of long throw-ins and holding in the penalty area in the league to the rise of three-pointers in the NBA.`\
+https://nytimes.com/athletic/7083244/2026/03/03/guardiola-man-city-set-pieces-increase/
+
 **Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
 `Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
 https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
