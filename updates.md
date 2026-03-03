@@ -1,3 +1,19 @@
+**Harrowing Rescue at 900 Feet After Hot Air Balloon Strikes Tower**\
+`Two people were left dangling from a communications tower near Longview, Texas, on Saturday until more than a dozen firefighters could scale the equivalent of a skyscraper to reach them.`\
+https://nytimes.com/2026/03/03/us/hot-air-balloon-rescue-texas-cell-tower.html
+
+**Two Rescued From Hot Air Balloon Crash Hundreds of Feet in the Air**\
+`Firefighters in Gregg County, Texas, pulled two people to safety from the wreckage of a hot air balloon as it dangled from a cell phone tower more than 900 feet above ground.`\
+https://nytimes.com/video/us/100000010747579/hot-air-balloon-crash-texas-rescue.html
+
+**Resurfaced Affair Allegations Intensify Gonzales’s Primary Challenge**\
+`Representative Tony Gonzales, a Republican, is fighting to hold onto his job as he faces a primary challenge from the right and fresh allegations of personal indiscretions that have rocked his campaign.`\
+https://nytimes.com/2026/03/03/us/elections/tony-gonzales-texas.html
+
+**Ayatollah Ali Khamenei’s Son Emerges as Leading Choice to Be His Successor**\
+`If Mojtaba Khamenei is chosen by Iran’s senior clerics, it may signal a victory for hard-liners, an analyst said.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-mojtaba-khamenei-successor.html
+
 **Iranians Viewed by U.S. as Potential Leaders Died in Strikes, Trump Says**\
 `With the future of Iran deeply uncertain, President Trump acknowledged that it could end up with a ruler “as bad” as Ayatollah Ali Khamenei.`\
 https://nytimes.com/2026/03/03/world/middleeast/iranian-leaders-trum.html
