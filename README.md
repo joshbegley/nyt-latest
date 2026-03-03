@@ -1,3 +1,11 @@
+**Here’s where Israel warned people to evacuate in southern Lebanon.**\
+`By Elena Shao`\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/lebanon-evacuation-map
+
+**Western Governments Rush to Evacuate Travelers in the Middle East**\
+`Hundreds of thousands have been stranded since the conflict started. The United States urged Americans to leave and said on Tuesday it was “actively working on plans” to help them do so.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-war-middle-east-traveler-evacuations.html
+
 **Colts place transition tag on Daniel Jones: Sources; Alec Pierce set to become free agent**\
 `Jones will make a fully guaranteed $37.8 million in 2026 if he plays on the transition tag rather than signing a long-term deal.`\
 https://nytimes.com/athletic/7082001/2026/03/03/colts-daniel-jones-transition-tag/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/7082001/2026/03/03/colts-daniel-jones-transition-ta
 https://nytimes.com/2026/03/03/business/target-stores-investment-payrolls.html
 
 **Vikings open to trading Pro Bowl edge rusher Jonathan Greenard: Sources**\
-`The Vikings are reportedly open to trading former Pro Bowl edge rusher Jonathan Greenard after he asked for more money.`\
+`The Vikings are reportedly open to trading former Pro Bowl edge rusher after he asked for more money.`\
 https://nytimes.com/athletic/7083858/2026/03/03/vikings-jonathan-greenard-trade-contract/
 
 **Who Could Profit From an Energy Crisis?**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/state-senate-r
 **How Anonymous Bettors Cashed In on the Iran Strike, Just Hours Before It Happened**\
 `Polymarket users placed hundreds of bets of at least $1,000 predicting an imminent American strike, raising concerns about insider trading.`\
 https://nytimes.com/2026/03/03/upshot/prediction-markets-iran-strikes.html
-
-**Inside the Underground Safe Houses Sheltering Immigrants From ICE**\
-`In Springfield, Ohio, some Americans have converted their basements and spare bedrooms into shelters for immigrant families who could be targeted in raids.`\
-https://nytimes.com/2026/03/03/us/trump-immigration-ice-raids-safe-houses.html
-
-**The 3.1.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/03/03/the-3126-issue
 
