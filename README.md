@@ -1,40 +1,40 @@
-**A three-tiered approach to building a bullpen in fantasy baseball Roto leagues**\
-`Al Melchior discusses when and where to draft relievers, and the pros and cons of many RPs in the top three tiers. `\
-https://nytimes.com/athletic/7081206/2026/03/03/fantasy-baseball-bullpen-strategy-roto-league/
+**What I heard about the Vikings' plans for free agency and interim GM Rob Brzezinski**\
+`The Vikings would love to re-sign receiver Jalen Nailor and linebacker Eric Wilson, but the team's lack of cap space will make it tough.`\
+https://nytimes.com/athletic/7082103/2026/03/03/minnesota-vikings-free-agency-rob-brzezinski/
 
-**Germany Is Pumping Up Its Military Spending. That Worries Its Neighbors.**\
-`Soon the country’s armed forces budget could exceed those of Britain and France combined. In Paris, there are concerns that European “strategic autonomy” will have a German accent.`\
-https://nytimes.com/2026/03/03/world/europe/germany-military-defense-spending-europe-nato.html
+**Panthers' free-agent predictions: Who will be back, who will be gone in 2026?**\
+`Carolina wants some of its unrestricted free agents back, but GM Dan Morgan is OK with them testing the market.`\
+https://nytimes.com/athletic/7082018/2026/03/03/panthers-free-agent-predictions-cade-mays-rico-dowdle/
 
-**Here’s the latest.**\
-`By Lisa Lerer`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/heres-the-latest
+**Cheryl Miller optimistic amid WNBA labor strife, talks up female coaches in NBA**\
+`Miller and Golden State Valkyries coach Natalie Nakase were part of Monday's Warriors broadcast team as part of Women's Empowerment Month.`\
+https://nytimes.com/athletic/7082916/2026/03/03/cheryl-miller-wnba-labor-strife/
 
-**Election Live Updates: Texas Senate Fights Kick Off High-Stakes Midterm Primaries**\
-`The race to November begins with contests in North Carolina, Arkansas and Texas, where Senator John Cornyn faces primary challengers including state Attorney General Ken Paxton and a pair of Democrats who hope to flip his seat.`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar
+**Ferrari's stunning starts will be a key advantage in F1 2026. And its rivals can't copy**\
+`The F1 pecking order remains shrouded in mystery ahead of the 2026 season. But the Ferrari team seems to have an edge its rivals can't copy`\
+https://nytimes.com/athletic/7072886/2026/03/03/ferrari-f1-engines-new-starts/
 
-**Guadalajara, Boston and New York: The key storylines around the World Cup's 16 host cities**\
-`With 100 days to go until the World Cup kicks off in Mexico City, we look at what's dominating conversation in the cities hosting the event`\
-https://nytimes.com/athletic/7081689/2026/03/03/world-cup-cities-guadalajara-boston-new-york/
+**Donovan McNabb: These are the 3 best leaders I played with in the NFL**\
+`Former quarterback Donovan McNabb played for three teams over 13 years in the NFL.`\
+https://nytimes.com/athletic/7081582/2026/03/03/donovan-mcnabb-nfl-best-leaders-eagles/
 
-**Early spring training observations: ABS system a hit, young players standing out and more**\
-`From the ABS system to young players opening eyes to teams exploring contract extensions, it's already been an exciting spring.`\
-https://nytimes.com/athletic/7078266/2026/03/03/mlb-spring-training-observations-abs-system/
+**How good is each NHL forward available on the 2026 trade board?**\
+`Plenty of playoff hopefuls are on the hunt for forward-line help at the deadline. Here's what different players on the market can offer.`\
+https://nytimes.com/athletic/7079148/2026/03/03/nhl-trade-board-2026-deadline-forwards-analytics/
 
-**100 2026 World Cup questions answered with 100 days to go**\
-`From tickets to the trophy, presidents to prize money and everything in between, this is your one-stop shop for everything you need to know`\
-https://nytimes.com/athletic/7059445/2026/03/03/world-cup-questions-soccer-beginner-explained/
+**Mirtle: The only thing left in Toronto? Embracing the Maple Leafs tank**\
+`As a slog of a season continues, the Leafs' best bet, for themselves and the fans, is to lean into losing more ground in the standings.`\
+https://nytimes.com/athletic/7082779/2026/03/03/toronto-embracing-maple-leafs-tank/
 
-**The joys and perils of a 67 jersey number: When a viral craze reaches spring training**\
-`Kids scream at them on back fields. They can't go anywhere without someone going palms-up. Life with a 67 jersey is complicated.`\
-https://nytimes.com/athletic/7082014/2026/03/03/six-seven-jersey-mlb-spring-training/
+**In college football, $270 million in coach buyouts is more complex than it seems**\
+`The 15 FBS head coaches fired without cause last season were owed a record total in buyout money, but that total is already dropping.`\
+https://nytimes.com/athletic/7080378/2026/03/03/college-football-coach-firings-buyouts-total/
 
-**Execs mock the NFL Draft's top 10: Jets go boom-bust at 2, Chiefs nab a running back**\
-`Execs expect the Raiders to take Francisco Mendoza but do not view it as a slam dunk. Otherwise, pass rushers and O-line ruled the top 10.`\
-https://nytimes.com/athletic/7082310/2026/03/03/nfl-mock-draft-execs-raiders-jets-chiefs/
+**NFL Scouting Combine winners: Sonny Styles, Jacob Rodriguez, others who stood out**\
+`Which 2026 NFL Draft prospects may have moved up boards with their performances at the combine in Indianapolis?`\
+https://nytimes.com/athletic/7081290/2026/03/03/nfl-combine-winners-draft-styles-rodriguez-2026/
 
-**LeBron's future has never been more uncertain. It makes every game more meaningful**\
-`As Luka Dončić becomes the Lakers’ present and future, LeBron James enters unfamiliar territory.`\
-https://nytimes.com/athletic/7080335/2026/03/03/lebron-james-nba-future/
+**For these women's college basketball players, netball was their 'first love'**\
+`Netball was more popular in New Zealand, but players like UCLA's Charlisse Leger-Walker still found her way to a DI basketball court.`\
+https://nytimes.com/athletic/7081851/2026/03/03/netball-womens-college-basketball-ucla-kentucky-north-texas/
 
