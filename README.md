@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, March 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/03/todays-new-york-times
+
+**As Trump Scrambles the World Order, Can Germany Learn the Language of Hard Power?**\
+`In the wake of the U.S. bombing of Iran and its dismissal of European allies, an anxious continent’s best chance at security runs through its largest economy.`\
+https://nytimes.com/2026/03/03/magazine/germany-europe-iran-merz-trump-defense.html
+
+**It’s Time for the Real Iranian Revolution**\
+`Ayatollah Khomeini’s bait-and-switch game in the early years of the Islamic regime turned many of the people against it. They’ve been fighting the revolution since.`\
+https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
+
 **Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
 `Liverpool have 10 games left in this season's Premier League - how will they do?`\
 https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7080486/2026/03/03/newcastle-inside-cup-premier-lea
 **World Cup 2026, 100 days to go: 100 staff choose the players they're most excited to watch**\
 `With 100 days to go until the World Cup, we asked 100 people at The Athletic which players they're most excited to watch this summer... `\
 https://nytimes.com/athletic/7081070/2026/03/03/world-cup-staff-players-tournament-fan-loved/
-
-**Newcastle United to Manchester United and back: Re-reading Michael Carrick**\
-`Carrick's playing career was forged in London and Manchester, but he is a Geordie and, this week, returns to St James' Park`\
-https://nytimes.com/athletic/7035640/2026/03/03/michael-carrick-manchester-united-newcastle-tottenham-west-ham-biography/
-
-**Premier League predictions: Newcastle vs Man Utd, Brighton vs Arsenal and rest of Matchday 29**\
-`Who's leading after MD28? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 29?`\
-https://nytimes.com/athletic/7080661/2026/03/03/premier-league-predictions-md29/
-
-**Row Z: VAR's end game, club-shop gems and a strange tunnel smell**\
-`Tim Spiers takes a look at some of the more unusual stories from the past week in football`\
-https://nytimes.com/athletic/7068782/2026/03/03/row-z-var-club-shop-snoop-dogg/
 
