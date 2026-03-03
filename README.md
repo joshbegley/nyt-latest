@@ -1,3 +1,15 @@
+**6 Design Products That May Be the Last of Their Kind**\
+`Many artisanal practices are hanging by a thread, but there is still a chance to enjoy them.`\
+https://nytimes.com/2026/03/03/style/design-traditional-crafts.html
+
+**The Piano Man’s Long Goodbye to Long Island**\
+`Why Billy Joel’s dream home finally sold for $14 million under the asking price.`\
+https://nytimes.com/2026/03/03/realestate/billy-joel-house-sale-long-island.html
+
+**The Best Movies and TV Shows Coming to Netflix in March**\
+`Several promising titles are coming this month, including a new series starring Rachel Weisz and the feature-length sequel to “Peaky Blinders.”`\
+https://nytimes.com/2026/03/03/arts/television/netflix-peaky-blinders-rachel-weisz.html
+
 **An Iranian Nuclear Site Avoids New Airstrikes, for Now**\
 `The Isfahan facility, suspected of storing a cache of enriched uranium, was smashed during the 12-day campaign last June.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-nuclear-site-isfahan-airstrikes-spared.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/climate/potomac-river-reopens-sewer-collapse.html
 **Should You Order That Fish? Menus Have a New Way to Help.**\
 `Seafood Watch, long a source of advice on sustainable choices, is working to get restaurants to adopt its color-coded recommendations.`\
 https://nytimes.com/2026/03/03/dining/monterey-bay-aquarium-seafood-watch.html
-
-**Iowa State discontinues women’s gymnastics but will add another women's sport**\
-`Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
-https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-womens-gymnastics/
-
-**Justin Timberlake Sues to Block Release of Drunk-Driving Arrest Footage**\
-`The authorities in Sag Harbor, N.Y., said they would not yet release footage of the singer’s 2024 arrest while they work out a resolution with his lawyers.`\
-https://nytimes.com/2026/03/03/nyregion/justin-timberlake-arrest-lawsuit-body-camera.html
-
-**'That's a bad negotiating tactic': Max Scherzer on daughter's letter to Blue Jays**\
-`Scherzer is back with the Blue Jays, but the big story in camp Tuesday was still his daughter's letter to the team that went viral. `\
-https://nytimes.com/athletic/7083764/2026/03/03/blue-jays-pitcher-max-scherzer-contract-daughter-letter/
 
