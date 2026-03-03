@@ -1,3 +1,11 @@
+**The messy primary fight for North Carolina’s brightest blue bubble.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-messy-primary-fight-for-north-carolinas-brightest-blue-bubble
+
+**Trump Embraces U.S. Military Power After Years of Caution**\
+`The wars in Afghanistan and Iraq offered a stark lesson in the limits of military force. The Iran attacks suggest an era of postwar wariness is over.`\
+https://nytimes.com/2026/03/02/us/politics/trump-military-power.html
+
 **In Plunging Into a Mideast Conflict, Trump Gambles His Presidency**\
 `The risks for President Trump from the assault on Iran are escalating as casualties mount, oil prices rise and the war expands across the region.`\
 https://nytimes.com/2026/03/02/us/politics/iran-trump-polls-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-studen
 **In First Appearance Since Taking the Country to War, Trump Is Business as Usual**\
 `President Trump gave a “brief update” on the Iran operation. And then he stayed true to form.`\
 https://nytimes.com/2026/03/02/us/politics/trump-war-remarks.html
-
-**The Idea That Trump Was Antiwar Was Always Delusional**\
-`Trump’s foreign policy has often been less a repudiation of neoconservatism than a mutation of it.`\
-https://nytimes.com/2026/03/02/opinion/trump-iran-antiwar.html
-
-**What Rising Oil Prices Could Mean for Drivers in the U.S.**\
-`A prolonged conflict in the Middle East could cause a spike at American gas pumps, as the busy driving season approaches.`\
-https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
 
