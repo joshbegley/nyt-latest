@@ -1,3 +1,7 @@
+**Trump, Iran and a Host of Questions**\
+`Questions about the future of the attack on Iran, and other reader perspectives. Also: Drug ads as a resource for patients.`\
+https://nytimes.com/2026/03/03/opinion/trump-iran-war.html
+
 **Jon Rahm explains why he rejected DP World Tour deal over 'extortion' claims**\
 `Rahm said that he would have agreed had the DP World Tour not required him to play additional events above the minimum of four.`\
 https://nytimes.com/athletic/7083516/2026/03/03/jon-rahm-rejects-dp-word-tour-extortion/
@@ -23,18 +27,10 @@ https://nytimes.com/2026/03/03/dining/what-are-your-prom-dinner-plans-we-want-to
 https://nytimes.com/video/world/middleeast/100000010749321/israel-lebanon-iran-war-hezbollah.html
 
 **Epstein, ‘Lolita’ and a Culture of Disembodiment**\
-`Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies, exemplify a world where women and girls are treated as objects for consumption.`\
+`Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies exemplify a world where women and girls are treated as objects for consumption.`\
 https://nytimes.com/2026/03/03/style/epstein-files-lolita-photographs.html
 
 **An Epstein Associate Steps Down From Japanese Government Tech Project**\
 `Joichi Ito’s involvement in a publicly funded Japanese initiative had come under scrutiny after new details revealed his close relationship with Jeffrey Epstein.`\
 https://nytimes.com/2026/03/03/business/epstein-japan-ito-resigns.html
-
-**Carney: What it's like to prepare for the World Cup 100 days out**\
-`As a player, you’ll have a good idea of where you are in the pecking order of your national team`\
-https://nytimes.com/athletic/7083168/2026/03/03/karen-carney-100-days-world-cup-preparation/
-
-**Wall Street Faces Its Biggest Crisis of Confidence in Years**\
-`Lending troubles at Blue Owl Capital and other so-called private credit behemoths are setting off fears of a “bank run,” as one hedge fund put it.`\
-https://nytimes.com/2026/03/03/business/private-credit-crisis-blue-owl-capital.html
 
