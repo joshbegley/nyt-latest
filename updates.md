@@ -1,3 +1,11 @@
+**Alex Bregman's presence as the right player at the right time sets the tone**\
+`Midway through the spring, the Cubs have a different outlook, a higher level of expectations and a noticeable lack of drama.`\
+https://nytimes.com/athletic/7082564/2026/03/03/chicago-cubs-alex-bregman-tone-setter/
+
+**Aston Martin's 2026 F1 season is set to start badly - what has gone so wrong?**\
+`Aston Martin was supposed to be an F1 title contender in 2026. Instead, it may barely race in Australia. Here's what has gone so wrong`\
+https://nytimes.com/athletic/7083067/2026/03/03/aston-martin-honda-f1-engine-problem/
+
 **Weekly Student News Quiz: Blizzard, War, Monkey**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
