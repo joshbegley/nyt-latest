@@ -1,3 +1,7 @@
+**Rubio Walks Back Suggestion That Israel Forced U.S. Hand in Iran Strikes**\
+`A day earlier, the secretary of state had said that the decision to attack Iran was based on knowledge that Israel was going to strike, and an assumption that Iran would target U.S. forces as a result.`\
+https://nytimes.com/2026/03/03/world/middleeast/israel-iran-strikes-rubio.html
+
 **Trump Says U.S. Navy Might Escort Tankers in Persian Gulf**\
 `Shipping companies are not sending oil and gas through the Strait of Hormuz because they fear their ships might be attacked.`\
 https://nytimes.com/2026/03/03/world/middleeast/trump-tankers-hormuz.html
