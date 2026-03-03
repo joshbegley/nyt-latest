@@ -1,3 +1,7 @@
+**Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
+`The injury is expected to see him sidelined for up to a year and rule him out of the World Cup this summer.`\
+https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodyrgo-acl-injury/
+
 **Man United hire ex-Spurs scout to talent spot in under-21 market**\
 `Ian Broomfield, 75, was most recently employed by Tottenham Hotspur as head of scouting.`\
 https://nytimes.com/athletic/7083361/2026/03/03/manchester-united-ian-broomfield-scout/
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010747336/which-myster
 **The surprising Pittsburgh Penguins are hockey's most interesting team**\
 `The Penguins are a historically interesting franchise, and they've never had a season quite like this one.`\
 https://nytimes.com/athletic/7082803/2026/03/03/pittsburgh-penguins-nhl-trade-deadline-playoffs/
-
-**A Neon Skirt and a Psychedelic Bag**\
-`A writer’s bold attire reflected a taste for wearing color.`\
-https://nytimes.com/2026/03/03/style/street-style-look-issey-miyake-gucci.html
 
