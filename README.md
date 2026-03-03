@@ -1,3 +1,7 @@
+**Braves' Profar facing 162-game suspension for second PED violation: Source**\
+`Profar missed the first 80 games of the 2025 season due to a positive test for performance enhancing drugs. `\
+https://nytimes.com/athletic/7083768/2026/03/03/atlanta-braves-jurickson-profar-suspension/
+
 **Trump, Iran and a Host of Questions**\
 `Questions about the future of the attack on Iran, and other reader perspectives. Also: Drug ads as a resource for patients.`\
 https://nytimes.com/2026/03/03/opinion/trump-iran-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010749321/israel-lebanon-iran-w
 **Epstein, ‘Lolita’ and a Culture of Disembodiment**\
 `Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies exemplify a world where women and girls are treated as objects for consumption.`\
 https://nytimes.com/2026/03/03/style/epstein-files-lolita-photographs.html
-
-**An Epstein Associate Steps Down From Japanese Government Tech Project**\
-`Joichi Ito’s involvement in a publicly funded Japanese initiative had come under scrutiny after new details revealed his close relationship with Jeffrey Epstein.`\
-https://nytimes.com/2026/03/03/business/epstein-japan-ito-resigns.html
 
