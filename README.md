@@ -1,3 +1,7 @@
+**Whew! Blue Jackets cough up 4-0 lead, but rally to win on Marchenko's OT goal**\
+`"This is the first time I've seen this," said new coach Rick Bowness. "But I learned a lot, and that's a good thing."`\
+https://nytimes.com/athletic/7082560/2026/03/02/blue-jackets-third-period-bowness-marchenko-rangers/
+
 **In Dimes Square, a Party Where Toothpicks Were Crucial**\
 `The Basque-inspired Eel Bar hosted a pintxos-forward reunion for friends and fellow business owners.`\
 https://nytimes.com/2026/03/02/t-magazine/eel-bar-party-pintxos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/melania-trump-un-peace-education.html
 **U.S. Embassy in Saudi Capital Hit by 2 Drones on Tuesday, Kingdom Says**\
 `Americans in Riyadh and other cities were advised to shelter in place immediately.`\
 https://nytimes.com/2026/03/02/world/middleeast/us-embassy-riyadh-saudi-iran-drone.html
-
-**Warriors' Kristaps Porziņģis to miss fifth straight game, uncertain to travel with team**\
-`After playing 17 minutes against the Boston Celtics on Feb. 19, Porziņģis has not been able to play since.`\
-https://nytimes.com/athletic/7082520/2026/03/02/kristaps-porzingis-injury-update-warriors-pots/
 
