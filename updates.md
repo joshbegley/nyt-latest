@@ -1,3 +1,7 @@
+**First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
+`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced where first wave of seats would become available for 2-year-olds.`\
+https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
+
 **Israel Widens Attacks on Lebanon**\
 `Israel said its military had seized areas of southern Lebanon as fighting with the Iran-backed Hezbollah militia continued for a second day.`\
 https://nytimes.com/video/world/middleeast/100000010749321/israel-lebanon-iran-war-hezbollah.html
