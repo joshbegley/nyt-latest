@@ -1,3 +1,15 @@
+**Red Wings find 5-on-5 scoring in big win to open crucial March: 5 thoughts**\
+`After a major lineup shakeup, the Red Wings opened March with a 4-2 win that saw some key five-on-five offense come through.`\
+https://nytimes.com/athletic/7082145/2026/03/02/detroit-red-wings-five-on-five-gibson-march-predators/
+
+**Eliminating Iran’s Ballistic Missiles Could Be Difficult**\
+`Much of Tehran’s arsenal of missiles may be hidden underground, making it harder to destroy.`\
+https://nytimes.com/2026/03/02/us/politics/iran-ballistic-missiles.html
+
+**Trump Administration Abandons Efforts to Impose Orders on Law Firms**\
+`The move amounts to a surrender in a clash that has led many law firms to submit to the president rather than face the threat of his executive orders.`\
+https://nytimes.com/2026/03/02/us/politics/trump-executive-orders-law-firms.html
+
 **Supreme Court Sides With Religious Parents, Blocking California’s Trans Student Policy**\
 `Christian teachers and parents challenged the state’s policies, which they say require schools to hide students’ transgender status from their parents.`\
 https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-students.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/see-when-your-
 **In Republican Win, Supreme Court Retains G.O.P. District in New York**\
 `A Republican congresswoman had asked the justices to preserve her New York City district, despite a lower-court ruling that it illegally diluted the power of minority voters.`\
 https://nytimes.com/2026/03/02/us/politics/supreme-court-malliotakis-new-york.html
-
-**The War in Iran: A Place for Student Questions and Reactions**\
-`How are you making sense of this news? Whether you already understand some of the context or whether it’s all new for you, we hope our free materials can help.`\
-https://nytimes.com/2026/03/02/learning/the-war-in-iran-a-place-for-student-questions-and-reactions.html
-
-**The Legality, or Illegality, of Killing a Foreign Leader, Explained**\
-`The United States and Israel started a war with Iran by killing its supreme leader, Ayatollah Ali Khamenei.`\
-https://nytimes.com/2026/03/02/us/politics/iran-khamenei-dead-trump-legal.html
-
-**David Montgomery traded, but his impact on the Lions' rise is undeniable**\
-`Montgomery and Jahmyr Gibbs formed one of the NFL's best RB tandems, but Montgomery saw his role diminished last season.`\
-https://nytimes.com/athletic/7082141/2026/03/02/lions-david-montgomery-legacy-traded/
 

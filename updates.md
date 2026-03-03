@@ -1,3 +1,15 @@
+**Red Wings find 5-on-5 scoring in big win to open crucial March: 5 thoughts**\
+`After a major lineup shakeup, the Red Wings opened March with a 4-2 win that saw some key five-on-five offense come through.`\
+https://nytimes.com/athletic/7082145/2026/03/02/detroit-red-wings-five-on-five-gibson-march-predators/
+
+**Eliminating Iran’s Ballistic Missiles Could Be Difficult**\
+`Much of Tehran’s arsenal of missiles may be hidden underground, making it harder to destroy.`\
+https://nytimes.com/2026/03/02/us/politics/iran-ballistic-missiles.html
+
+**Trump Administration Abandons Efforts to Impose Orders on Law Firms**\
+`The move amounts to a surrender in a clash that has led many law firms to submit to the president rather than face the threat of his executive orders.`\
+https://nytimes.com/2026/03/02/us/politics/trump-executive-orders-law-firms.html
+
 **Supreme Court Sides With Religious Parents, Blocking California’s Trans Student Policy**\
 `Christian teachers and parents challenged the state’s policies, which they say require schools to hide students’ transgender status from their parents.`\
 https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-students.html
