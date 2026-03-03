@@ -1,3 +1,19 @@
+**MrBeast Is Getting Into Financial Services. Parents Should Pay Attention.**\
+`Beast Industries has acquired a banklike app for young people and could eventually offer a variety of financial services, including crypto.`\
+https://nytimes.com/2026/03/03/business/mrbeast-step-banking-crypto.html
+
+**Champions League qualification: How the race for the top five is shaping up**\
+`The Athletic assesses the Champions League qualification chances of those fighting for the top five`\
+https://nytimes.com/athletic/7083466/2026/03/03/champions-league-qualification-premier-league/
+
+**Arteta 'upset' Arsenal haven't scored more set-piece goals**\
+`Arsenal have scored 21 goals from set-pieces this season — the most in the Premier League.`\
+https://nytimes.com/athletic/7083427/2026/03/03/arsenal-premier-league-set-pieces-arsenal/
+
+**Chasing the Northern Lights, With Snowmobiles and Frozen Cameras**\
+`A Times reporter and a photojournalist traveled above the Arctic Circle to retrace the footsteps of scientists who studied auroras over a century ago.`\
+https://nytimes.com/2026/03/03/insider/northern-lights-aurora-borealis.html
+
 **Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
 `The injury is expected to see the 25-year-old sidelined for up to a year.`\
 https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
