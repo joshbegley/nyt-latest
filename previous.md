@@ -1,3 +1,7 @@
+**Trump Letter to Congress Justifying Iran Strikes Outlines No Imminent Threat**\
+`The president told lawmakers that the objective of the assault was to “neutralize Iran’s malign activities,” but did not present evidence of immediate plans by Tehran to attack the United States.`\
+https://nytimes.com/2026/03/03/world/middleeast/trump-congress-letter-iran-strikes.html
+
 **Texas Republican Incumbent Faces Pardoned Jan. 6 Defendant**\
 `A conservative member of the Texas Legislature is facing a tough challenge from an Air Force veteran who went to prison for breaching the U.S. Capitol on Jan. 6.`\
 https://nytimes.com/2026/03/03/us/texas-republican-incumbent-jan-6-defendant.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/world/middleeast/trump-tankers-hormuz.html
 **Texas Primary Election Results**\
 `Get live results and maps from the 2026 Texas primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
-
-**Five-star LB Cooper Witten, son of former NFL star Jason Witten, commits to Oklahoma**\
-`Witten is ranked No. 25 overall and the No. 2 linebacker in the Class of 2027 in the 247Sports Composite. `\
-https://nytimes.com/athletic/7084484/2026/03/03/cooper-witten-5-star-linebacker-jason-witten-oklahoma/
 
