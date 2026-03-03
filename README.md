@@ -18,13 +18,13 @@ https://nytimes.com/athletic/7082014/2026/03/03/six-seven-jersey-mlb-spring-trai
 `Execs expect the Raiders to take Francisco Mendoza but do not view it as a slam dunk. Otherwise, pass rushers and O-line ruled the top 10.`\
 https://nytimes.com/athletic/7082310/2026/03/03/nfl-mock-draft-execs-raiders-jets-chiefs/
 
-**LeBron's future has never been more uncertain. It makes every game more meaningful**\
-`As Luka Dončić becomes the Lakers’ present and future, LeBron James enters unfamiliar territory.`\
-https://nytimes.com/athletic/7080335/2026/03/03/lebron-james-nba-future/
-
 **Joe Schoen is still the Giants' general manager — some around the league wonder for how long**\
 `There’s curiosity from outsiders about how Schoen fits in the new John Harbaugh-centric operation.`\
 https://nytimes.com/athletic/7081904/2026/03/03/joe-schoen-new-york-giants-contract-extension/
+
+**LeBron's future has never been more uncertain. It makes every game more meaningful**\
+`As Luka Dončić becomes the Lakers’ present and future, LeBron James enters unfamiliar territory.`\
+https://nytimes.com/athletic/7080335/2026/03/03/lebron-james-nba-future/
 
 **Browns QB tracker: Could a trade for Colts QB Anthony Richardson make sense?**\
 `This week in our Browns QB tracker, we explore the possibility of Cleveland's making a move for the soon-to-be 24-year-old passer.`\
