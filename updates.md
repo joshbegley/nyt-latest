@@ -1,3 +1,7 @@
+**How Trump Decided to Go to War**\
+`President Trump’s embrace of military action in Iran was set off by the determination of Prime Minister Benjamin Netanyahu of Israel to end diplomatic negotiations. Our investigative reporter Mark Mazzetti describes how few of Mr. Trump’s advisers voiced opposition.`\
+https://nytimes.com/video/world/middleeast/100000010747206/how-trump-decided-to-go-to-war.html
+
 **Harrowing Rescue at 900 Feet After Hot Air Balloon Strikes Tower**\
 `Two people were left dangling from a communications tower near Longview, Texas, on Saturday until more than a dozen firefighters could scale the equivalent of a skyscraper to reach them.`\
 https://nytimes.com/2026/03/03/us/hot-air-balloon-rescue-texas-cell-tower.html
