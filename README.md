@@ -1,6 +1,6 @@
 **‘Pray We Make It Through the Night’: Iran’s Capital Under Siege**\
 `Many residents of Tehran managed to get out of town when the U.S. and Israel attack began, but others who could not described living under bombardment.`\
-https://nytimes.com/2026/03/02/world/middleeast/iran-terhran-strikes.html
+https://nytimes.com/2026/03/02/world/middleeast/iran-tehran-strikes.html
 
 **Whew! Blue Jackets cough up 4-0 lead, but rally to win on Marchenko's OT goal**\
 `"This is the first time I've seen this," said new coach Rick Bowness. "But I learned a lot, and that's a good thing."`\
