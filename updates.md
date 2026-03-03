@@ -1,3 +1,15 @@
+**Homeland Security Investigates Remarks of Border Patrol Leader Gregory Bovino**\
+`Mr. Bovino, who was the face of the Trump administration’s immigration crackdowns in American cities, was reported to have made disparaging comments in reference to the U.S. attorney in Minnesota, who is an Orthodox Jew.`\
+https://nytimes.com/2026/03/03/us/greg-bovino-investigation-dhs.html
+
+**Submit questions for Aaron Gleeman's Twins mailbag**\
+`Aaron Gleeman is back home after two weeks at Twins spring training and ready to answer your questions. Submit them here. `\
+https://nytimes.com/athletic/7082653/2026/03/03/minnesota-twins-questions-gleeman/
+
+**First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
+`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he will announce the first steps toward creating a program for 2-year-olds.`\
+https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
+
 **How to watch Pistons vs. Cavaliers: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083677/2026/03/03/pistons-vs-cavaliers-stream-how-to-watch-march-3/
