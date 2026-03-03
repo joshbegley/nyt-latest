@@ -1,3 +1,15 @@
+**Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
+`The injury is expected to see him sidelined for up to a year and rule him out of the World Cup this summer.`\
+https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodyrgo-acl-injury/
+
+**Man United hire ex-Spurs scout to talent spot in under-21 market**\
+`Ian Broomfield, 75, was most recently employed by Tottenham Hotspur as head of scouting.`\
+https://nytimes.com/athletic/7083361/2026/03/03/manchester-united-ian-broomfield-scout/
+
+**Coach K on March Madness expansion: Don't ‘mess with something that’s gold’**\
+`“There are less teams capable right now than ever before, and there’s many have-nots, and it’s not their fault,” Krzyzewski said.`\
+https://nytimes.com/athletic/7083268/2026/03/03/coach-k-ncaa-tournament-expansion/
+
 **Iran’s Strategy: Expand the War, Increase the Cost, Outlast Trump**\
 `The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would force President Trump to risk more casualties and more political capital.`\
 https://nytimes.com/2026/03/03/world/europe/iran-war-strategy-trump-israel.html

@@ -1,3 +1,15 @@
+**Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
+`The injury is expected to see him sidelined for up to a year and rule him out of the World Cup this summer.`\
+https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodyrgo-acl-injury/
+
+**Man United hire ex-Spurs scout to talent spot in under-21 market**\
+`Ian Broomfield, 75, was most recently employed by Tottenham Hotspur as head of scouting.`\
+https://nytimes.com/athletic/7083361/2026/03/03/manchester-united-ian-broomfield-scout/
+
+**Coach K on March Madness expansion: Don't ‘mess with something that’s gold’**\
+`“There are less teams capable right now than ever before, and there’s many have-nots, and it’s not their fault,” Krzyzewski said.`\
+https://nytimes.com/athletic/7083268/2026/03/03/coach-k-ncaa-tournament-expansion/
+
 **Iran’s Strategy: Expand the War, Increase the Cost, Outlast Trump**\
 `The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would force President Trump to risk more casualties and more political capital.`\
 https://nytimes.com/2026/03/03/world/europe/iran-war-strategy-trump-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010747336/which-myster
 **The surprising Pittsburgh Penguins are hockey's most interesting team**\
 `The Penguins are a historically interesting franchise, and they've never had a season quite like this one.`\
 https://nytimes.com/athletic/7082803/2026/03/03/pittsburgh-penguins-nhl-trade-deadline-playoffs/
-
-**A Neon Skirt and a Psychedelic Bag**\
-`A writer’s bold attire reflected a taste for wearing color.`\
-https://nytimes.com/2026/03/03/style/street-style-look-issey-miyake-gucci.html
-
-**Falcons to play in Madrid game this fall**\
-`The Falcons are headed to Spain this fall to play a regular-season game at Real Madrid's Santiago Bernabéu Stadium.`\
-https://nytimes.com/athletic/7083222/2026/03/03/atlanta-falcons-madrid-nfl-game-bernabeu/
-
-**'You have to adapt' - Guardiola likens set-piece trend to NBA 3-pointers**\
-`Guardiola likened the use of long throw-ins and holding in the penalty area in the league to the rise of three-pointers in the NBA.`\
-https://nytimes.com/athletic/7083244/2026/03/03/guardiola-man-city-set-pieces-increase/
 

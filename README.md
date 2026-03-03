@@ -1,6 +1,18 @@
+**It's deadline week. So, where are all the trades?**\
+`We could be on the verge of an all-timer of a deadline — or we could also already be in the middle of a historic bust.`\
+https://nytimes.com/athletic/7083388/2026/03/03/nhl-trade-deadline-primer-red-light/
+
+**Labor Secretary’s Top Aides Forced Out**\
+`The two aides to Labor Secretary Lori Chavez-DeRemer had been on leave during an investigation of misconduct at the department.`\
+https://nytimes.com/2026/03/03/us/politics/labor-secretarys-top-aides-forced-out.html
+
+**The Bounce: 10 takeaways from NBA mock draft. Plus, Giannis returns for Bucks**\
+`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
+https://nytimes.com/athletic/7083343/2026/03/03/aj-dybantsa-nba-mock-draft-giannis-the-bounce/
+
 **Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
 `The injury is expected to see him sidelined for up to a year and rule him out of the World Cup this summer.`\
-https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodyrgo-acl-injury/
+https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
 
 **Man United hire ex-Spurs scout to talent spot in under-21 market**\
 `Ian Broomfield, 75, was most recently employed by Tottenham Hotspur as head of scouting.`\
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010747728/does-snow-wa
 **Classic Instant Noodles Showdown**\
 `Wirecutter slurped through a whole tournament bracket of instant noodles with special guest Eric Kim. To find out which brand came out on top, watch the full episode on YouTube.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010747392/classic-instant-noodles-showdown.html
-
-**How Ramen Is Made**\
-`How are ramen noodles made? Peek into the Sun Noodle factory, where we learned all about how those squiggly strands get mixed, squished, and cut.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010747365/how-ramen-is-made.html
-
-**Which Mystery Instant Noodle Is Best?**\
-`With the help of NYT Cooking’s Eric Kim, Wirecutter tasted bowls and bowls of instant ramen to crown one winner. To find out which brand came out on top, watch the full episode on YouTube.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010747336/which-mystery-instant-noodle-is-best.html
-
-**The surprising Pittsburgh Penguins are hockey's most interesting team**\
-`The Penguins are a historically interesting franchise, and they've never had a season quite like this one.`\
-https://nytimes.com/athletic/7082803/2026/03/03/pittsburgh-penguins-nhl-trade-deadline-playoffs/
 
