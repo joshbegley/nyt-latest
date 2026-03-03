@@ -1,10 +1,14 @@
+**Commanders agree to pay D.C. $1 million to settle lawsuit from Daniel Snyder era**\
+`The settlement follows a 2022 lawsuit that accused the team of violating D.C.'s consumer protections law during Daniel Snyder’s ownership.`\
+https://nytimes.com/athletic/7083753/2026/03/03/commanders-settle-lawsuit-washington-d-c/
+
 **Seahawks not planning to tag Super Bowl MVP Kenneth Walker III: Sources**\
 `If the Seahawks decided to use the franchise tag on Kenneth Walker III, it would have put him on the books for $14.5 million in 2026.`\
 https://nytimes.com/athletic/7083834/2026/03/03/seahawks-franchise-transition-tag-kenneth-walker/
 
 **I.M.F. Warns Iran War Could Hurt Global Economy**\
 `Inflation fears over higher energy prices could force central banks to take action, a top fund official said.`\
-https://nytimes.com/2026/03/03/us/politics/imf-warns-iran-war-could-hurt-global-economy.html
+https://nytimes.com/2026/03/03/us/politics/iran-war-global-economy-warning.html
 
 **Is This Man the Last Living Number Painter in Naples?**\
 `The numeraio Pasquale De Stefano’s handmade market signs are a dying breed of everyday beauty in a baroque city.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083765/2026/03/03/qa-tigers-owner-chris-ilitch-tar
 **In Texas, Talarico Tries a Message of Love**\
 `James Talarico, a Democratic candidate for the U.S. Senate, is embracing a compassionate campaign approach in a bare-knuckled political environment.`\
 https://nytimes.com/2026/03/03/us/elections/james-talarico-texas-senate-primary.html
-
-**You Break It, You Own It? Not for Trump When It Comes to Iran**\
-`“We’ll see what happens with the people,” President Trump said as he appeared to be distancing himself from the longer-term consequences of the war in Iran.`\
-https://nytimes.com/2026/03/03/us/politics/trump-iran-ownership.html
 
