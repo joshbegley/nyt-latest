@@ -1,3 +1,7 @@
+**'You have to adapt' - Guardiola likens set-piece trend to NBA 3-pointers**\
+`Guardiola likened the use of long throw-ins and holding in the penalty area in the league to the rise of three-pointers in the NBA.`\
+https://nytimes.com/athletic/7083244/2026/03/03/guardiola-man-city-set-pieces-increase/
+
 **Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
 `Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
 https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083187/2026/03/03/louisiana-vs-georgia-state-strea
 **NBA contenders tiers: The top 10 candidates as we head into the stretch run**\
 `We’re getting into a serious moment for the league’s contending hopefuls, of which we could count eight teams as truly serious.`\
 https://nytimes.com/athletic/7082186/2026/03/03/nba-title-contenders-ranked-tiers-playoffs/
-
-**A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
-`In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
-https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html
 
