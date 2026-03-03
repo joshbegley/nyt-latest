@@ -1,3 +1,15 @@
+**World Cup 2026, 100 days to go: 100 staff choose the players they're most excited to watch**\
+`With 100 days to go until the World Cup, we asked 100 people at The Athletic which players they're most excited to watch this summer... `\
+https://nytimes.com/athletic/7081070/2026/03/03/world-cup-staff-players-tournament-fan-loved/
+
+**Newcastle United to Manchester United and back: Re-reading Michael Carrick**\
+`Carrick's playing career was forged in London and Manchester, but he is a Geordie and, this week, returns to St James' Park`\
+https://nytimes.com/athletic/7035640/2026/03/03/michael-carrick-manchester-united-newcastle-tottenham-west-ham-biography/
+
+**Premier League predictions: Newcastle vs Man Utd, Brighton vs Arsenal and rest of Matchday 29**\
+`Who's leading after MD28? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 29?`\
+https://nytimes.com/athletic/7080661/2026/03/03/premier-league-predictions-md29/
+
 **Row Z: VAR's end game, club-shop gems and a strange tunnel smell**\
 `Tim Spiers takes a look at some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7068782/2026/03/03/row-z-var-club-shop-snoop-dogg/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/world/asia/myanmar-junta-president-min-aung-hlain
 **Connections: Sports Edition Coach: Hints and answers for March 3, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7082673/2026/03/03/connections-sports-edition-hints-answers-march-3-2026/
-
-**Olympic dorm setups and stressful proposals: Hughes brothers join Hilary Knight on 'Tonight Show'**\
-`The three Team USA Olympic gold medalists shared tales of daily life — and some exceptional memories — at the Milan Cortina Games.`\
-https://nytimes.com/athletic/7082533/2026/03/03/jack-quinn-hughes-hilary-knight-usa-hockey-tonight-show/
-
-**Global Economy Is Facing the Prospect of Another Profound Shock**\
-`A protracted conflict in the Middle East risks a spike in energy prices and broader inflation.`\
-https://nytimes.com/2026/03/03/business/us-iran-israel-economic-fallout.html
-
-**Corrections: March 3, 2026**\
-`Corrections that appeared in print on Tuesday, March 3, 2026.`\
-https://nytimes.com/2026/03/03/pageoneplus/corrections-march-3-2026.html
 

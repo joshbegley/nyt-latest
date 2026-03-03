@@ -1,3 +1,19 @@
+**Meet the U.S. talent who left home at 16, battled with Gattuso and is inspired by his Olympian father**\
+`Rokas Pukstas is hoping that by helping Hajduk Split to a first Croatian title in 21 years he can force his way into USMNT contention`\
+https://nytimes.com/athletic/7080979/2026/03/03/rokas-pukstas-interview-usmnt/
+
+**Can Aston Villa really rely on Ollie Watkins coming good to haul them from their mid-season dip?**\
+`Unai Emery is convinced 'the goals will come' for the striker, but Champions League qualification may hinge upon perking up an ailing attack`\
+https://nytimes.com/athletic/7080540/2026/03/03/aston-villa-emery-watkins-abraham-dip/
+
+**Leeds are playing well - but their xG suggests they could be doing even better**\
+`Leeds missed a number of opportunities against Manchester City — and that follows a trend`\
+https://nytimes.com/athletic/7081342/2026/03/03/leeds-xg-analysis-shots-premier-league/
+
+**Inside Newcastle Q&A: Cup focus over league? Can replacements be found for top stars?**\
+`We have pulled together some of the questions and our answers from Monday’s edition of our Inside Newcastle live Q&A`\
+https://nytimes.com/athletic/7080486/2026/03/03/newcastle-inside-cup-premier-league-transfer-latest/
+
 **World Cup 2026, 100 days to go: 100 staff choose the players they're most excited to watch**\
 `With 100 days to go until the World Cup, we asked 100 people at The Athletic which players they're most excited to watch this summer... `\
 https://nytimes.com/athletic/7081070/2026/03/03/world-cup-staff-players-tournament-fan-loved/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7081150/2026/03/03/gomes-wolves-names-kim-burgess/
 **The Manchester City tactical tweak that shows Pep Guardiola is still a unique thinker**\
 `Faced with Leeds' aggressive man-marking the City boss deployed Rodri and Bernardo Silva at goal kicks – why?`\
 https://nytimes.com/athletic/7081000/2026/03/03/manchester-city-goal-kicks-rodri-bernardo-silva/
-
-**As Europe Seeks Voice in Iran War, German Leader Will Meet Trump**\
-`Chancellor Friedrich Merz’s visit to Washington, long planned, is now likely to be dominated by discussions of the attack, which Europeans did not take part in.`\
-https://nytimes.com/2026/03/03/world/europe/merz-germany-trump-iran-meeting.html
-
-**The Deadly Cost of the Nigerian Military’s Inaction**\
-`The country has one of the most feared armed forces in Africa, yet within its own borders, it has repeatedly failed to stop abductions and attacks.`\
-https://nytimes.com/2026/03/03/world/africa/nigeria-security-forces-us-intervention.html
-
-**A Junta Chief Eyes the Title of President**\
-`The military ruler of Myanmar, Senior Gen. Min Aung Hlaing, is expected to seek a civilian post to add a veneer of legitimacy after sham elections.`\
-https://nytimes.com/2026/03/03/world/asia/myanmar-junta-president-min-aung-hlaing.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 3, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7082673/2026/03/03/connections-sports-edition-hints-answers-march-3-2026/
 
