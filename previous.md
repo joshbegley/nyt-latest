@@ -1,3 +1,7 @@
+**Fantasy Premier League live Q&A: Gameweek 29 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you `\
+https://nytimes.com/athletic/7082207/2026/03/03/fantasy-premier-league-live-qa-gameweek-29-advice-from-ben-dinnery/
+
 **Welbeck agrees one-year Brighton contract extension**\
 `Welbeck has scored in successive league wins at Brentford and at home to Nottingham Forest to reach ten goals in consecutive seasons.`\
 https://nytimes.com/athletic/7082881/2026/03/03/danny-welbeck-brighton-contract-new/
@@ -30,11 +34,7 @@ https://nytimes.com/issue/todayspaper/2026/03/03/todays-new-york-times
 `In the wake of the U.S. bombing of Iran and its dismissal of European allies, an anxious continent’s best chance at security runs through its largest economy.`\
 https://nytimes.com/2026/03/03/magazine/germany-europe-iran-merz-trump-defense.html
 
-**It’s Time for the Real Iranian Revolution**\
+**The Coming Iranian Revolution**\
 `Ayatollah Khomeini’s bait-and-switch game in the early years of the Islamic regime turned many of the people against it. They’ve been fighting the revolution since.`\
 https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
-
-**Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
-`Liverpool have 10 games left in this season's Premier League - how will they do?`\
-https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
 

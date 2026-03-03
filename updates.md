@@ -1,3 +1,11 @@
+**Fantasy Premier League live Q&A: Gameweek 29 advice from Ben Dinnery**\
+`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you `\
+https://nytimes.com/athletic/7082207/2026/03/03/fantasy-premier-league-live-qa-gameweek-29-advice-from-ben-dinnery/
+
+**The Coming Iranian Revolution**\
+`Ayatollah Khomeini’s bait-and-switch game in the early years of the Islamic regime turned many of the people against it. They’ve been fighting the revolution since.`\
+https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
+
 **Welbeck agrees one-year Brighton contract extension**\
 `Welbeck has scored in successive league wins at Brentford and at home to Nottingham Forest to reach ten goals in consecutive seasons.`\
 https://nytimes.com/athletic/7082881/2026/03/03/danny-welbeck-brighton-contract-new/
