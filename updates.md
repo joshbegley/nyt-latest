@@ -1,3 +1,11 @@
+**Texas Voters Head to Polls in Highly Anticipated Primaries**\
+`Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning states.`\
+https://nytimes.com/video/us/elections/100000010750904/texas-primary-election-midterms.html
+
+**Villa's Konsa avoids club fine for angry exchange with supporters**\
+`Konsa had to be restrained from approaching Villa's away section by security staff after the 2-0 defeat to Wolves.`\
+https://nytimes.com/athletic/7083452/2026/03/03/ezri-konsa-villa-fans-wolves-fine/
+
 **Phillies' Johan Rojas facing an 80-game suspension for PED violation**\
 `Rojas tested positive for a PED in the offseason and is appealing the results of the test. He is no longer on the D.R. roster for the WBC.`\
 https://nytimes.com/athletic/7081294/2026/03/03/johan-rojas-mlb-ped-suspension-appeal-phillies/
