@@ -1,3 +1,15 @@
+**Welbeck agrees one-year Brighton contract extension**\
+`Welbeck has scored in successive league wins at Brentford and at home to Nottingham Forest to reach ten goals in consecutive seasons.`\
+https://nytimes.com/athletic/7082881/2026/03/03/danny-welbeck-brighton-contract-new/
+
+**Late Night Tunes In to Operation Epic Fury: Live from Mar-a-Lago**\
+`The military operation’s name “is different from its original title, which was ‘Operation Epstein-o Distract-o,’” Jimmy Kimmel said.`\
+https://nytimes.com/2026/03/03/arts/television/late-night-epic-fury-trump.html
+
+**Word of the Day: veracity**\
+`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/03/learning/word-of-the-day-veracity.html
+
 **Here’s the latest.**\
 `By Aaron Boxerman, Helene Cooper and Yan Zhuang`\
 https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/heres-the-latest

@@ -1,3 +1,15 @@
+**Welbeck agrees one-year Brighton contract extension**\
+`Welbeck has scored in successive league wins at Brentford and at home to Nottingham Forest to reach ten goals in consecutive seasons.`\
+https://nytimes.com/athletic/7082881/2026/03/03/danny-welbeck-brighton-contract-new/
+
+**Late Night Tunes In to Operation Epic Fury: Live from Mar-a-Lago**\
+`The military operation’s name “is different from its original title, which was ‘Operation Epstein-o Distract-o,’” Jimmy Kimmel said.`\
+https://nytimes.com/2026/03/03/arts/television/late-night-epic-fury-trump.html
+
+**Word of the Day: veracity**\
+`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/03/learning/word-of-the-day-veracity.html
+
 **Here’s the latest.**\
 `By Aaron Boxerman, Helene Cooper and Yan Zhuang`\
 https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/heres-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
 **Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
 `Liverpool have 10 games left in this season's Premier League - how will they do?`\
 https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
-
-**The departure of Arsenal's technical director was unexpected. What does it mean for the club?**\
-`James Ellis had developed a reputation as respected leader but his departure perhaps signals a power shift at Arsenal`\
-https://nytimes.com/athletic/7075876/2026/03/03/the-departure-of-arsenals-technical-director-was-unexpected-what-does-it-mean-for-the-club/
-
-**Meet the U.S. talent who left home at 16, battled with Gattuso and is inspired by his Olympian father**\
-`Rokas Pukstas is hoping that by helping Hajduk Split to a first Croatian title in 21 years he can force his way into USMNT contention`\
-https://nytimes.com/athletic/7080979/2026/03/03/rokas-pukstas-interview-usmnt/
-
-**Can Aston Villa really rely on Ollie Watkins coming good to haul them from their mid-season dip?**\
-`Unai Emery is convinced 'the goals will come' for the striker, but Champions League qualification may hinge upon perking up an ailing attack`\
-https://nytimes.com/athletic/7080540/2026/03/03/aston-villa-emery-watkins-abraham-dip/
 
