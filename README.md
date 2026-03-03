@@ -1,3 +1,15 @@
+**Can These Democrats Make Combative Centrism Happen?**\
+`Third Way, the moderate Democratic advocacy group and think tank, has an expansive and expensive plan to shape the 2028 presidential campaign.`\
+https://nytimes.com/2026/03/02/us/politics/democrats-centrism-2028-election.html
+
+**Trump Says He Will End Boycott of White House Correspondents’ Dinner**\
+`The mentalist Oz Pearlman is this year’s speaker. “Hopefully, it will be something very Special,” the president wrote on Truth Social.`\
+https://nytimes.com/2026/03/02/us/politics/trump-white-house-correspondents-dinner.html
+
+**All the President’s Portraits**\
+`President Trump’s image — in paint and pixels, on posters and sculptures — is ubiquitous inside the White House, and beyond.`\
+https://nytimes.com/interactive/2026/03/02/us/politics/president-trump-white-house-portraits.html
+
 **The messy primary fight for North Carolina’s brightest blue bubble.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-messy-primary-fight-for-north-carolinas-brightest-blue-bubble
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7082145/2026/03/02/detroit-red-wings-five-on-five-g
 **Eliminating Iran’s Ballistic Missiles Could Be Difficult**\
 `Much of Tehran’s arsenal of missiles may be hidden underground, making it harder to destroy.`\
 https://nytimes.com/2026/03/02/us/politics/iran-ballistic-missiles.html
-
-**Trump Administration Abandons Efforts to Impose Orders on Law Firms**\
-`The move amounts to a surrender in a clash that has led many law firms to submit to the president rather than face the threat of his executive orders.`\
-https://nytimes.com/2026/03/02/us/politics/trump-executive-orders-law-firms.html
-
-**Supreme Court Sides With Religious Parents, Blocking California’s Trans Student Policy**\
-`Christian teachers and parents challenged the state’s policies, which they say require schools to hide students’ transgender status from their parents.`\
-https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-students.html
-
-**In First Appearance Since Taking the Country to War, Trump Is Business as Usual**\
-`President Trump gave a “brief update” on the Iran operation. And then he stayed true to form.`\
-https://nytimes.com/2026/03/02/us/politics/trump-war-remarks.html
 
