@@ -1,3 +1,15 @@
+**Israel Widens Attacks on Lebanon**\
+`Israel said its military had seized areas of southern Lebanon as fighting with the Iran-backed Hezbollah militia continued for a second day.`\
+https://nytimes.com/video/world/middleeast/100000010749321/israel-lebanon-iran-war-hezbollah.html
+
+**Epstein, ‘Lolita’ and a Culture of Disembodiment**\
+`Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies, exemplify a world where women and girls are treated as objects for consumption.`\
+https://nytimes.com/2026/03/03/style/epstein-files-lolita-photographs.html
+
+**An Epstein Associate Steps Down From Japanese Government Tech Project**\
+`Joichi Ito’s involvement in a publicly funded Japanese initiative had come under scrutiny after new details revealed his close relationship with Jeffrey Epstein.`\
+https://nytimes.com/2026/03/03/business/epstein-japan-ito-resigns.html
+
 **Carney: What it's like to prepare for the World Cup 100 days out**\
 `As a player, you’ll have a good idea of where you are in the pecking order of your national team`\
 https://nytimes.com/athletic/7083168/2026/03/03/karen-carney-100-days-world-cup-preparation/
@@ -15,7 +27,7 @@ https://nytimes.com/2026/03/03/us/greg-bovino-investigation-dhs.html
 https://nytimes.com/athletic/7082653/2026/03/03/minnesota-twins-questions-gleeman/
 
 **First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
-`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he will announce the first steps toward creating a program for 2-year-olds.`\
+`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced the first steps toward creating a program for 2-year-olds.`\
 https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
 
 **How to watch Pistons vs. Cavaliers: Time, TV, streaming**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7083677/2026/03/03/pistons-vs-cavaliers-stream-how-
 **Ceramics, Once the Lifeblood of Mexican Artisans, Are Under Pressure**\
 `In the state of Michoacán, industrial agriculture and organized crime threaten a cottage industry.`\
 https://nytimes.com/2026/03/03/arts/design/ceramics-mexico-threats.html
-
-**How to watch Golden Knights vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083671/2026/03/03/golden-knights-vs-sabres-stream-how-to-watch-march-3/
-
-**How to watch Predators vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083665/2026/03/03/predators-vs-blue-jackets-stream-how-to-watch-march-3/
-
-**How to watch Mavericks vs. Hornets: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Charlotte Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7083663/2026/03/03/mavericks-vs-hornets-stream-how-to-watch-march-3/
 

@@ -1,3 +1,19 @@
+**Israel Widens Attacks on Lebanon**\
+`Israel said its military had seized areas of southern Lebanon as fighting with the Iran-backed Hezbollah militia continued for a second day.`\
+https://nytimes.com/video/world/middleeast/100000010749321/israel-lebanon-iran-war-hezbollah.html
+
+**Epstein, ‘Lolita’ and a Culture of Disembodiment**\
+`Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies, exemplify a world where women and girls are treated as objects for consumption.`\
+https://nytimes.com/2026/03/03/style/epstein-files-lolita-photographs.html
+
+**An Epstein Associate Steps Down From Japanese Government Tech Project**\
+`Joichi Ito’s involvement in a publicly funded Japanese initiative had come under scrutiny after new details revealed his close relationship with Jeffrey Epstein.`\
+https://nytimes.com/2026/03/03/business/epstein-japan-ito-resigns.html
+
+**First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
+`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced the first steps toward creating a program for 2-year-olds.`\
+https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
+
 **Carney: What it's like to prepare for the World Cup 100 days out**\
 `As a player, you’ll have a good idea of where you are in the pecking order of your national team`\
 https://nytimes.com/athletic/7083168/2026/03/03/karen-carney-100-days-world-cup-preparation/

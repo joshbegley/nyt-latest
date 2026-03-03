@@ -27,7 +27,7 @@ https://nytimes.com/2026/03/03/us/greg-bovino-investigation-dhs.html
 https://nytimes.com/athletic/7082653/2026/03/03/minnesota-twins-questions-gleeman/
 
 **First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
-`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced the first steps toward creating a program for 2-year-olds.`\
+`Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced where first wave of seats would become available for 2-year-olds.`\
 https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
 
 **How to watch Pistons vs. Cavaliers: Time, TV, streaming**\
