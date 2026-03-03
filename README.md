@@ -1,3 +1,7 @@
+**Absolutely Steaming**\
+`Drew Schmenner gets a head start.`\
+https://nytimes.com/2026/03/02/crosswords/daily-puzzle-2026-03-03.html
+
 **Trump’s Head-on-a-Pike Foreign Policy**\
 `The Trump administration has deposed two sitting heads of state in two months, signaling a perilous new approach to the United States’ foreign affairs, argues the Times Opinion columnist Ezra Klein. “This is head on-a-pike foreign policy.”`\
 https://nytimes.com/video/opinion/100000010746931/trumps-head-on-a-pike-foreign-policy.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/02/us/politics/president-trump-white-hou
 **The messy primary fight for North Carolina’s brightest blue bubble.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-messy-primary-fight-for-north-carolinas-brightest-blue-bubble
-
-**Trump Embraces U.S. Military Power After Years of Caution**\
-`The wars in Afghanistan and Iraq offered a stark lesson in the limits of military force. The Iran attacks suggest an era of postwar wariness is over.`\
-https://nytimes.com/2026/03/02/us/politics/trump-military-power.html
 
