@@ -1,3 +1,7 @@
+**Oil and Natural Gas Prices Extend Rally as Iran Attacks Escalates**\
+`Energy prices continued to rise on Tuesday as attacks by the United States and Israel on Iran intensified, along with the country’s response.`\
+https://nytimes.com/2026/03/03/business/energy-environment/oil-natural-gas-iran-israel-united-states.html
+
 **Does Snow Washing Woolens Really Work?**\
 `Snow washing is a Nordic tradition for a reason — it’s a fun, outdoorsy way to keep wool fresh in between more laborious hand-washes or dry-cleans. But before you toss any old sweater into a pile of snow, know that there’s a certain way to do it.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010747728/does-snow-washing-woolens-really-work.html
