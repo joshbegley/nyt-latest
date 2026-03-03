@@ -1,3 +1,31 @@
+**A Burst of Memories Takes Her Back to an Impossible Age: 16**\
+`In Vigdis Hjorth’s novel “Repetition,” a writer recalls a pivotal period of transformation, sex and family crises.`\
+https://nytimes.com/2026/03/03/books/review/vigdis-hjorth-repetition.html
+
+**Estêvão proving popular among collectors heading into World Cup**\
+`Card collectors in London are predicting success for the young Brazilian at the World Cup and beyond. `\
+https://nytimes.com/athletic/7081130/2026/03/03/estevao-rookie-cards-chelsea-brazil/
+
+**A Woman’s Dream House Turns Into a Nightmare**\
+`In “The Valley of Vengeful Ghosts,” a therapist’s home turns into a nightmare manifestation of her sadness and grief.`\
+https://nytimes.com/2026/03/03/books/review/the-valley-of-vengeful-ghosts-kim-fu.html
+
+**NBA MVP odds: 1 stat could determine the winner**\
+`The NBA MVP race is a muddled mess because of the league's 65-game minimum for players to be considered for awards.`\
+https://nytimes.com/athletic/7081712/2026/03/03/nba-mvp-odds-sga-jokic-wemby/
+
+**Rochester, N.Y.: A New Lens on the City of Kodak**\
+`The Finger Lakes region city is diversifying beyond its industrial roots.`\
+https://nytimes.com/2026/03/03/realestate/rochester-ny-real-estate-guide.html
+
+**Should I Get Into Vinyl Records?**\
+`There are plenty of reasons to consider collecting and playing LPs of your favorite music. Saving money isn’t one of them.`\
+https://nytimes.com/2026/03/03/arts/music/vinyl-records-collecting.html
+
+**Get a Dog, Live Longer?**\
+`Research suggests pets keep you healthier. But there are some caveats.`\
+https://nytimes.com/2026/03/03/well/pet-longevity-health-benefits.html
+
 **Israeli Forces Advance in Lebanon and Seize Land, as Hezbollah’s Fight Escalates**\
 `The Israeli military said troops advanced to protect border towns from Hezbollah attacks, spurring fears that the government is weighing a wider ground war.`\
 https://nytimes.com/2026/03/03/world/middleeast/israeli-forces-in-lebanon.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7082910/2026/03/03/filipe-luis-flamengo-sacked/
 **Vancouver Whitecaps and MLS to pay out $347k settlement after Lionel Messi absence**\
 `Messi did not play in a game against the Vancouver Whitecaps in May 2024`\
 https://nytimes.com/athletic/7082743/2026/03/03/vancouver-mls-lionel-messi-2024/
-
-**Clinton Deposition Videos Released in Epstein Investigation**\
-`The House Oversight Committee released testimonies from former President Bill Clinton and former Secretary of State Hillary Clinton in the investigation into Jeffrey Epstein, the convicted sex offender.`\
-https://nytimes.com/video/us/politics/100000010748884/clinton-deposition-epstein-oversight.html
-
-**Offering Warmth and Care to the Homeless, and Building a Case for Trust**\
-`New outreach teams from New York City’s public hospital system include a clinical professional to evaluate the needs of homeless New Yorkers.`\
-https://nytimes.com/2026/03/03/nyregion/nyc-homeless-cold-medical-services.html
-
-**Parenting Advice**\
-`What is one tip you would give to parents?`\
-https://nytimes.com/2026/03/03/learning/parenting-advice.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/03/crosswords/spelling-bee-forum.html
-
-**A Danish Program Takes On the Stigma of Mental Illness**\
-`One of Us, run by Denmark’s health ministry, works with people with mental health conditions to share their stories in schools, hospitals and police stations, helping turn fear into understanding.`\
-https://nytimes.com/2026/03/03/health/mental-illness-denmark-schizophrenia.html
-
-**Mamdani’s Parks Dept. Aims to Offer More Recreation With Smaller Budget**\
-`Mayor Zohran Mamdani’s Parks Department plans to become New York City’s “agency of affordability,” though the mayor has not increased the agency’s funding.`\
-https://nytimes.com/2026/03/03/nyregion/affordable-gyms-new-york.html
-
-**Fantasy Premier League live Q&A: Gameweek 29 advice from Ben Dinnery**\
-`Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you `\
-https://nytimes.com/athletic/7082207/2026/03/03/fantasy-premier-league-live-qa-gameweek-29-advice-from-ben-dinnery/
 
