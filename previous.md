@@ -1,3 +1,15 @@
+**Thousands in Iran Attend Burial of Children Killed in Bombing of School**\
+`There were students attending classes at the time that the school was destroyed. Some 175 people were killed by the attack on the girls’ elementary school.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-school-bombing-children.html
+
+**Trapped Between U.S. and Iran, Gulf Countries Face Nightmare Scenario**\
+`The energy-rich nations that sought to avert the American-Israeli war on Iran have been sucked into the spiraling conflict.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-us-israel-war-persian-gulf.html
+
+**Emirati Leaders, Seeking to Project Calm, Go to the Mall**\
+`A video released by Dubai’s government of the Emirati president visiting a mall underscored the authoritarian country’s efforts to maintain its placid reputation amid spiraling violence.`\
+https://nytimes.com/2026/03/03/world/middleeast/dubai-president-mall-video-iran.html
+
 **Photographer in Dispute Over ‘Napalm Girl’ Image Sues Netflix**\
 `Nick Ut, the freelancer long credited for the award-winning photo from the Vietnam War, says a Netflix documentary questioning his work has defamed him.`\
 https://nytimes.com/2026/03/03/movies/netflix-defamation-stringer-napalm-girl.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7084336/2026/03/03/canadiens-vs-sharks-stream-how-t
 **How to watch Grizzlies vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7084332/2026/03/03/grizzlies-vs-timberwolves-stream-how-to-watch-march-3/
-
-**‘Night Side Songs’ Review: Feel Free to Sing Along**\
-`The Lazours’ intimate new musical about illness and mortality is also about finding solace in other people, and in art.`\
-https://nytimes.com/2026/03/03/theater/night-side-songs-review.html
-
-**How to watch Blackhawks vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7084328/2026/03/03/blackhawks-vs-jets-stream-how-to-watch-march-3/
-
-**How to watch Nets vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7084322/2026/03/03/nets-vs-heat-stream-how-to-watch-march-3/
 
