@@ -1,3 +1,11 @@
+**Should the Bears trade for Maxx Crosby? The need is there, but at what cost?**\
+`Would the Bears entertain a Crosby trade, even if it puts future resources in jeopardy? It's a major question ahead of free agency.`\
+https://nytimes.com/athletic/7081373/2026/03/03/bears-maxx-crosby-trade-debate/
+
+**An Emboldened Israel Is Seizing Opportunities to Remake Region**\
+`With the war against Iran underway, and the U.S. military as a powerful ally, the Israeli government is seizing its chance to move against other adversaries.`\
+https://nytimes.com/2026/03/03/world/middleeast/israel-iran-hezbollah.html
+
 **What I heard about the Vikings' plans for free agency and interim GM Rob Brzezinski**\
 `The Vikings would love to re-sign receiver Jalen Nailor and linebacker Eric Wilson, but the team's lack of cap space will make it tough.`\
 https://nytimes.com/athletic/7082103/2026/03/03/minnesota-vikings-free-agency-rob-brzezinski/
