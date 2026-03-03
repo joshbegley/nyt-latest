@@ -1,3 +1,15 @@
+**How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
+
+**How to watch Louisiana vs. Georgia State women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Louisiana Ragin' Cajuns play the Georgia State Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083187/2026/03/03/louisiana-vs-georgia-state-stream-how-to-watch-march-3/
+
+**NBA contenders tiers: The top 10 candidates as we head into the stretch run**\
+`We’re getting into a serious moment for the league’s contending hopefuls, of which we could count eight teams as truly serious.`\
+https://nytimes.com/athletic/7082186/2026/03/03/nba-title-contenders-ranked-tiers-playoffs/
+
 **A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
 `In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
 https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html

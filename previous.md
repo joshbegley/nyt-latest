@@ -1,3 +1,15 @@
+**How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
+
+**How to watch Louisiana vs. Georgia State women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Louisiana Ragin' Cajuns play the Georgia State Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7083187/2026/03/03/louisiana-vs-georgia-state-stream-how-to-watch-march-3/
+
+**NBA contenders tiers: The top 10 candidates as we head into the stretch run**\
+`We’re getting into a serious moment for the league’s contending hopefuls, of which we could count eight teams as truly serious.`\
+https://nytimes.com/athletic/7082186/2026/03/03/nba-title-contenders-ranked-tiers-playoffs/
+
 **A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
 `In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
 https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7083035/2026/03/03/jeremy-jacquet-injury-surgery-li
 **The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
 `Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
 https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
-
-**Alex Bregman's presence as the right player at the right time sets the tone**\
-`Midway through the spring, the Cubs have a different outlook, a higher level of expectations and a noticeable lack of drama.`\
-https://nytimes.com/athletic/7082564/2026/03/03/chicago-cubs-alex-bregman-tone-setter/
-
-**Aston Martin's 2026 F1 season is set to start badly - what has gone so wrong?**\
-`Aston Martin was supposed to be an F1 title contender in 2026. Instead, it may barely race in Australia. Here's what has gone so wrong`\
-https://nytimes.com/athletic/7083067/2026/03/03/aston-martin-honda-f1-engine-problem/
-
-**Weekly Student News Quiz: Blizzard, War, Monkey**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
 
