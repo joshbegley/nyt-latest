@@ -1,3 +1,11 @@
+**Columbia Is Investigated for Handling of Sex-Abuse Claims Against Doctor**\
+`Attorney General Letitia James is investigating the university for its actions after the 2012 arrest of Robert Hadden, a former Columbia gynecologist convicted of sex crimes.`\
+https://nytimes.com/2026/03/03/nyregion/columbia-hadden-sexual-assault-investigation.html
+
+**Texas Voters Head to Polls in Highly Anticipated Primaries**\
+`Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning seats.`\
+https://nytimes.com/video/us/elections/100000010750904/texas-primary-election-midterms.html
+
 **Trump Suggests He’s Uncertain About Iran’s Future**\
 `Also, the midterms begin with high-stakes showdowns in Texas. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
