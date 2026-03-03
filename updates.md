@@ -1,3 +1,7 @@
+**TAFC: World Cup: 100 days to go — Off-pitch tensions, breakout stars and USMNT's chances analysed**\
+`The countdown has begun for the game's most prestigious tournament. TAFC tells you everything you need to know`\
+https://nytimes.com/athletic/7083024/2026/03/03/tafc-world-cup-100-days-usmnt/
+
 **Security alert stops play at ATP Challenger event in UAE**\
 `Three matches were taking place in the event, which sits the tier below the main Tour, when play was stopped at around 1pm local time.`\
 https://nytimes.com/athletic/7083007/2026/03/03/tennis-fujairah-challenger-play-stopped/

@@ -1,40 +1,40 @@
-**TAFC: World Cup: 100 days to go — Off-pitch tensions, breakout stars and USMNT's chances analysed**\
-`The countdown has begun for the game's most prestigious tournament. TAFC tells you everything you need to know`\
-https://nytimes.com/athletic/7083024/2026/03/03/tafc-world-cup-100-days-usmnt/
+**North Carolina Democrats Hope an Ex-Governor Can Beat Trump’s Senate Pick**\
+`The heavy favorites in the Senate primary are former Gov. Roy Cooper, a moderate Democrat, and Michael Whatley, a former chairman of the Republican National Committee.`\
+https://nytimes.com/2026/03/03/us/elections/north-carolina-democrats-hope-an-ex-governor-can-beat-trumps-senate-pick.html
 
-**Security alert stops play at ATP Challenger event in UAE**\
-`Three matches were taking place in the event, which sits the tier below the main Tour, when play was stopped at around 1pm local time.`\
-https://nytimes.com/athletic/7083007/2026/03/03/tennis-fujairah-challenger-play-stopped/
+**Yankees' Spencer Jones is swinging like Shohei Ohtani. Yes, it's intentional**\
+`"Who else is tall, left-handed and uses a toe-down approach?" After analyzing his struggles, Jones and his coaches opted to emulate Ohtani. `\
+https://nytimes.com/athletic/7082270/2026/03/03/spencer-jones-yankees-ohtani-swing/
 
-**Inside Real Madrid: Is Alvaro Arbeloa's job at risk? Would Florentino Perez really resign?**\
-`Monday night's shock defeat at home by Getafe raises several key questions for Real Madrid. Here's what our reporters are hearing`\
-https://nytimes.com/athletic/7082968/2026/03/03/real-madrid-arbeloa-perez-getafe/
+**NCAA Tournament Bracket Watch: The fight for a No. 3 seed is intense, and worthwhile**\
+`The predictive metrics still love Illinois and Purdue, though they’ve combined to lose five of six games.`\
+https://nytimes.com/athletic/7081795/2026/03/03/ncaa-tournament-bracket-projections-purdue-michigan-state-nebraska/
 
-**What You Need to Know About The Times’s 2026 Election Results**\
-`Here’s how we bring you the latest vote totals and estimates of the outcome on political races around the country.`\
-https://nytimes.com/live/2026/us/times-election-results-explained
+**Arizona secures Big 12 championship in what felt like a dress rehearsal**\
+`It's not January or February anymore. It’s March, the time for teams to accelerate and round into championship form. Arizona is there. `\
+https://nytimes.com/athletic/7082852/2026/03/03/arizona-big-12-championship-dress-rehearsal/
 
-**How does The Times track what share of the vote has been counted over the course of the night?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/how-does-the-times-track-what-share-of-the-vote-has-been-counted-over-the-course-of-the-night
+**World Cup 2026 stadium guides: Welcome to Dallas Stadium, home of the Cowboys**\
+`One of America’s most famous stadiums will be a key part of the World Cup, with a semi-final there and two of Argentina's group games`\
+https://nytimes.com/athletic/7072209/2026/03/03/world-cup-texas-stadium-guide-dallas-cowboys-jerry-jones/
 
-**Here’s what to expect as the first votes of the election season are counted in Texas and two other states.**\
-`By Nick Corasaniti`\
-https://nytimes.com/live/2026/us/times-election-results-explained/heres-what-to-expect-as-the-first-votes-of-the-election-season-are-counted-in-texas-and-two-other-states
+**Blackhawks player poll results: Best chirper? Most obnoxious? Worst dressed?**\
+`We polled 20 Blackhawks on a variety of topics and had them dish on — and dig at — their teammates. Here are the results.`\
+https://nytimes.com/athletic/7080926/2026/03/03/blackhawks-player-poll-results-nhl-connor-bedard/
 
-**What kind of contact do we have with election officials?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/what-kind-of-contact-do-we-have-with-election-officials
+**Why trading OEL is too good of an opportunity for the Maple Leafs to pass up**\
+`What the Leafs decide to do with the veteran defenceman could say a lot about Toronto's front office.`\
+https://nytimes.com/athletic/7081557/2026/03/03/maple-leafs-oliver-ekman-larsson-trade-future-treliving-rebuild/
 
-**Why does my state’s election map look as if it’s dominated by a candidate even though that person is behind in the vote totals?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/why-does-my-states-election-map-look-as-if-its-dominated-by-a-candidate-even-though-that-person-is-behind-in-the-vote-totals
+**Transfer portal confidential: Best classes, underwhelming teams, favorite QBs and more**\
+`Several staffers were not impressed with Florida's work. Almost everyone praised Texas Tech. QB Sam Leavitt received mixed reviews.`\
+https://nytimes.com/athletic/7072981/2026/03/03/college-football-transfer-portal-best-class-quarterbacks/
 
-**How does The Times call winners?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/how-does-the-times-call-winners
+**College softball power rankings: Who’s rising, who’s slipping and 4 key takeaways**\
+`Oklahoma State and Nebraska played a thrilling two-game series. OSU won the first game on a walk-off homer. The Huskers won Game 2.`\
+https://nytimes.com/athletic/7081947/2026/03/03/college-softball-power-rankings-2/
 
-**Why do I see different vote counts on different websites?**\
-`(No description)`\
-https://nytimes.com/live/2026/us/times-election-results-explained/why-do-i-see-different-vote-counts-on-different-websites
+**Chauncey Billups, Terry Rozier set to appear in federal court this week**\
+`There is no trial date set yet for either case, though Judge Ramon E. Reyes Jr. has said he hoped one would start this fall.`\
+https://nytimes.com/athletic/7081885/2026/03/03/nba-illegal-gambling-cases-billups-rozier/
 
