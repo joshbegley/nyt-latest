@@ -1,3 +1,11 @@
+**Jon Rahm explains why he rejected DP World Tour deal over 'extortion' claims**\
+`Rahm said that he would have agreed had the DP World Tour not required him to play additional events above the minimum of four.`\
+https://nytimes.com/athletic/7083516/2026/03/03/jon-rahm-rejects-dp-word-tour-extortion/
+
+**Congestion Pricing Wins in Court After Lengthy Battle With Trump**\
+`The victory removes a major threat to the New York City tolling program, which still faces other lawsuits.`\
+https://nytimes.com/2026/03/03/nyregion/nyc-congestion-pricing-ruling.html
+
 **Gabriel Kreuther Fires Up Alsatian Cooking at Saverne**\
 `Eddie Huang’s Baohaus makes a return, Da Toscano moves into the Iroquois Hotel and more restaurant news.`\
 https://nytimes.com/2026/03/03/dining/nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083168/2026/03/03/karen-carney-100-days-world-cup-
 **Wall Street Faces Its Biggest Crisis of Confidence in Years**\
 `Lending troubles at Blue Owl Capital and other so-called private credit behemoths are setting off fears of a “bank run,” as one hedge fund put it.`\
 https://nytimes.com/2026/03/03/business/private-credit-crisis-blue-owl-capital.html
-
-**Homeland Security Investigates Remarks of Border Patrol Leader Gregory Bovino**\
-`Mr. Bovino, who was the face of the Trump administration’s immigration crackdowns in American cities, was reported to have made disparaging comments in reference to the U.S. attorney in Minnesota, who is an Orthodox Jew.`\
-https://nytimes.com/2026/03/03/us/greg-bovino-investigation-dhs.html
-
-**Submit questions for Aaron Gleeman's Twins mailbag**\
-`Aaron Gleeman is back home after two weeks at Twins spring training and ready to answer your questions. Submit them here. `\
-https://nytimes.com/athletic/7082653/2026/03/03/minnesota-twins-questions-gleeman/
 
