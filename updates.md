@@ -1,3 +1,7 @@
+**Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
+`The injury is expected to see the 25-year-old sidelined for up to a year.`\
+https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
+
 **It's deadline week. So, where are all the trades?**\
 `We could be on the verge of an all-timer of a deadline — or we could also already be in the middle of a historic bust.`\
 https://nytimes.com/athletic/7083388/2026/03/03/nhl-trade-deadline-primer-red-light/
