@@ -1,3 +1,15 @@
+**New York City Public Housing Vacancies Double to 6,700, Watchdog Says**\
+`A report by the Department of Investigation said that people routinely squatted in the vacant units, posing safety risks to residents.`\
+https://nytimes.com/2026/03/03/nyregion/nycha-squatters-nyc-public-housing.html
+
+**Texas 10th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-10-primary.html
+
+**Texas 18th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-primary.html
+
 **North Carolina Primary Election Results**\
 `Get live results and maps from the 2026 North Carolina primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-north-carolina-primary.html
