@@ -1,3 +1,19 @@
+**Commanders agree to pay D.C. $1 million to settle lawsuit from Daniel Snyder era**\
+`The settlement follows a 2022 lawsuit that accused the team of violating D.C.'s consumer protections law during Daniel Snyder’s ownership.`\
+https://nytimes.com/athletic/7083753/2026/03/03/commanders-settle-lawsuit-washington-d-c/
+
+**Seahawks not planning to tag Super Bowl MVP Kenneth Walker III: Sources**\
+`If the Seahawks decided to use the franchise tag on Kenneth Walker III, it would have put him on the books for $14.5 million in 2026.`\
+https://nytimes.com/athletic/7083834/2026/03/03/seahawks-franchise-transition-tag-kenneth-walker/
+
+**I.M.F. Warns Iran War Could Hurt Global Economy**\
+`Inflation fears over higher energy prices could force central banks to take action, a top fund official said.`\
+https://nytimes.com/2026/03/03/us/politics/iran-war-global-economy-warning.html
+
+**Is This Man the Last Living Number Painter in Naples?**\
+`The numeraio Pasquale De Stefano’s handmade market signs are a dying breed of everyday beauty in a baroque city.`\
+https://nytimes.com/2026/03/03/arts/design/naples-italy-painter.html
+
 **6 Design Products That May Be the Last of Their Kind**\
 `Many artisanal practices are hanging by a thread, but there is still a chance to enjoy them.`\
 https://nytimes.com/2026/03/03/style/design-traditional-crafts.html
