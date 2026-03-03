@@ -1,3 +1,7 @@
+**Clinton Deposition Videos Released in Epstein Investigation**\
+`The House Oversight Committee released testimonies from former President Bill Clinton and former Secretary of State Hillary Clinton in the investigation into Jeffrey Epstein, the convicted sex offender.`\
+https://nytimes.com/video/us/politics/100000010748884/clinton-deposition-epstein-oversight.html
+
 **Offering Warmth and Care to the Homeless, and Building a Case for Trust**\
 `New outreach teams from New York City’s public hospital system include a clinical professional to evaluate the needs of homeless New Yorkers.`\
 https://nytimes.com/2026/03/03/nyregion/nyc-homeless-cold-medical-services.html
