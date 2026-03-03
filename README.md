@@ -1,3 +1,7 @@
+**Seven Takeaways From the Clintons’ Epstein Depositions**\
+`Former Secretary of State Hillary Clinton was defiant. Former President Bill Clinton spoke of President Trump’s ties to Epstein. A Republican raised a conspiracy theory.`\
+https://nytimes.com/2026/03/02/us/politics/clinton-bill-hillary-epstein-deposition-video.html
+
 **Absolutely Steaming**\
 `Drew Schmenner gets a head start.`\
 https://nytimes.com/2026/03/02/crosswords/daily-puzzle-2026-03-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/trump-white-house-correspondents-dinn
 **All the President’s Portraits**\
 `President Trump’s image — in paint and pixels, on posters and sculptures — is ubiquitous inside the White House, and beyond.`\
 https://nytimes.com/interactive/2026/03/02/us/politics/president-trump-white-house-portraits.html
-
-**The messy primary fight for North Carolina’s brightest blue bubble.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-messy-primary-fight-for-north-carolinas-brightest-blue-bubble
 
