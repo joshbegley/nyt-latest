@@ -1,3 +1,11 @@
+**In First Appearance Since Taking the Country to War, Trump Is Business as Usual**\
+`President Trump gave a “brief update” on the Iran operation. And then he stayed true to form.`\
+https://nytimes.com/2026/03/02/us/politics/trump-war-remarks.html
+
+**NBA player says Hawks' 'Magic City' promotion 'would reflect poorly' on league**\
+`In response to the Hawks partnering with the Atlanta strip club, Luke Kornet wrote that "the NBA should desire to protect and esteem women."`\
+https://nytimes.com/athletic/7082061/2026/03/02/magic-city-luke-kornet/
+
 **The Idea That Trump Was Antiwar Was Always Delusional**\
 `Trump’s foreign policy has often been less a repudiation of neoconservatism than a mutation of it.`\
 https://nytimes.com/2026/03/02/opinion/trump-iran-antiwar.html
