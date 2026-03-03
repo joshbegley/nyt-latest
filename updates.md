@@ -1,3 +1,27 @@
+**Texas Republican Incumbent Faces Pardoned Jan. 6 Defendant**\
+`A conservative member of the Texas Legislature is facing a tough challenge from an Air Force veteran who went to prison for breaching the U.S. Capitol on Jan. 6.`\
+https://nytimes.com/2026/03/03/us/texas-republican-incumbent-jan-6-defendant.html
+
+**Are You a Gen Z Skier? Vail Just Cut the Price of Your Next Epic Pass.**\
+`Seeming to acknowledge critics’ complaints about the high cost of snow sports, the company is cutting the price of its 2026-2027 Epic Passes for younger skiers and snowboarders.`\
+https://nytimes.com/2026/03/03/travel/skiing-gen-z-epic-pass.html
+
+**ICE Officials Must Acknowledge Court Orders in Writing, Judge Says**\
+`Judge Michael E. Farbiarz warned in an order on Monday that he may have to hold the Immigration and Customs Enforcement agency in criminal contempt.`\
+https://nytimes.com/2026/03/03/nyregion/ice-nj-judge-order-immigration.html
+
+**Live Nation Accused of Hurting Music Fans as Antitrust Trial Begins**\
+`The Justice Department lawsuit says the concert giant acts as a monopoly in the music industry, a charge the company denies.`\
+https://nytimes.com/2026/03/03/arts/music/live-nation-antitrust-trial.html
+
+**How the Iran War Is Choking Off the World’s Oil and Gas**\
+`One-fifth of the global oil supply and substantial amounts of natural gas travel through the Strait of Hormuz, which has become a no-go zone for many tankers as fighting continues.`\
+https://nytimes.com/interactive/2026/03/03/business/iran-war-oil-gas-strait-of-hormuz.html
+
+**President Trump says he ‘doesn’t care’ if Iran plays at World Cup in North America**\
+`Iran has qualified, and is scheduled to play matches in Los Angeles and Seattle.`\
+https://nytimes.com/athletic/7084588/2026/03/03/trump-iran-world-cup-2026/
+
 **President Trump says he ‘doesn’t care’ if Iran play at World Cup in North America**\
 `Iran has qualified, and is scheduled to play matches in Los Angeles and Seattle.`\
 https://nytimes.com/athletic/7084588/2026/03/03/trump-iran-world-cup-2026/
