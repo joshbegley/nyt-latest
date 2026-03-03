@@ -1,5 +1,9 @@
+**Judge Vacates Punishments of Columbia Students Who Occupied a Building**\
+`Pro-Palestinian demonstrators who had taken over Hamilton Hall in 2024 faced expulsions, suspensions and the revocation of their degrees.`\
+https://nytimes.com/2026/03/03/nyregion/columbia-protesters-discipline.html
+
 **Isaiah Zagar, Who Festooned Philadelphia With Mosaics, Dies at 86**\
-`He covered the city with more than over 50,000 square feet of murals, and showcased his work at the Magic Gardens Museum.`\
+`He covered the city with more than 50,000 square feet of murals, and showcased his work at the Magic Gardens Museum.`\
 https://nytimes.com/2026/03/03/arts/isaiah-zagar-dead.html
 
 **Commanders agree to pay D.C. $1 million to settle lawsuit from Daniel Snyder era**\
@@ -29,12 +33,4 @@ https://nytimes.com/2026/03/03/realestate/billy-joel-house-sale-long-island.html
 **The Best Movies and TV Shows Coming to Netflix in March**\
 `Several promising titles are coming this month, including a new series starring Rachel Weisz and the feature-length sequel to “Peaky Blinders.”`\
 https://nytimes.com/2026/03/03/arts/television/netflix-peaky-blinders-rachel-weisz.html
-
-**An Iranian Nuclear Site Avoids New Airstrikes, for Now**\
-`The Isfahan facility, suspected of storing a cache of enriched uranium, was smashed during the 12-day campaign last June.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-nuclear-site-isfahan-airstrikes-spared.html
-
-**Tigers owner Chris Ilitch talks Tarik Skubal, paying CBT tax and more: Q&A**\
-`Ilitch gave a rare interview Tuesday during the Tigers' trip to the Dominican Republic.`\
-https://nytimes.com/athletic/7083765/2026/03/03/qa-tigers-owner-chris-ilitch-tarik-skubal/
 

@@ -1,3 +1,7 @@
+**Isaiah Zagar, Who Festooned Philadelphia With Mosaics, Dies at 86**\
+`He covered the city with more than over 50,000 square feet of murals, and showcased his work at the Magic Gardens Museum.`\
+https://nytimes.com/2026/03/03/arts/isaiah-zagar-dead.html
+
 **Commanders agree to pay D.C. $1 million to settle lawsuit from Daniel Snyder era**\
 `The settlement follows a 2022 lawsuit that accused the team of violating D.C.'s consumer protections law during Daniel Snyder’s ownership.`\
 https://nytimes.com/athletic/7083753/2026/03/03/commanders-settle-lawsuit-washington-d-c/
