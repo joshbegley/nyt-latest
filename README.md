@@ -1,3 +1,7 @@
+**The Idea That Trump Was Antiwar Was Always Delusional**\
+`Trump’s foreign policy has often been less a repudiation of neoconservatism than a mutation of it.`\
+https://nytimes.com/2026/03/02/opinion/trump-iran-antiwar.html
+
 **What Rising Oil Prices Could Mean for Drivers in the U.S.**\
 `A prolonged conflict in the Middle East could cause a spike at American gas pumps, as the busy driving season approaches.`\
 https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7082061/2026/03/02/spurs-luke-kornet-hawks-magic-ci
 **U.S. Imposes Sanctions on Rwanda, Saying It Sabotaged Trump Peace Deal**\
 `Rwanda’s government responded by claiming the sanctions unjustly targeted only one party to the conflict and misrepresented the facts.`\
 https://nytimes.com/2026/03/02/world/africa/rwanda-sanctions-trump-peace-m23.html
-
-**Chow down at Cardinals games: All-you-can-eat tickets for $29**\
-`How many hot dogs can one person eat at a baseball game? St. Louis Cardinals fans will have the opportunity to find out.`\
-https://nytimes.com/athletic/7081577/2026/03/02/cardinals-all-you-can-eat-concessions/
 
