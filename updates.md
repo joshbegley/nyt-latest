@@ -1,3 +1,15 @@
+**Germany Is Pumping Up Its Military Spending. That Worries Its Neighbors.**\
+`Soon the country’s armed forces budget could exceed those of Britain and France combined. In Paris, there are concerns that European “strategic autonomy” will have a German accent.`\
+https://nytimes.com/2026/03/03/world/europe/germany-military-defense-spending-europe-nato.html
+
+**Here’s the latest.**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/heres-the-latest
+
+**Election Live Updates: Texas Senate Fights Kick Off High-Stakes Midterm Primaries**\
+`The race to November begins with contests in North Carolina, Arkansas and Texas, where Senator John Cornyn faces primary challengers including state Attorney General Ken Paxton and a pair of Democrats who hope to flip his seat.`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar
+
 **Guadalajara, Boston and New York — the key storylines around the World Cup's 16 host cities**\
 `With 100 days to go until the World Cup kicks off in Mexico City, we look at what's dominating conversation in the cities hosting the event`\
 https://nytimes.com/athletic/7081689/2026/03/03/world-cup-cities-guadalajara-boston-new-york/

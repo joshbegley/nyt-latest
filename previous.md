@@ -1,3 +1,15 @@
+**Germany Is Pumping Up Its Military Spending. That Worries Its Neighbors.**\
+`Soon the country’s armed forces budget could exceed those of Britain and France combined. In Paris, there are concerns that European “strategic autonomy” will have a German accent.`\
+https://nytimes.com/2026/03/03/world/europe/germany-military-defense-spending-europe-nato.html
+
+**Here’s the latest.**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/heres-the-latest
+
+**Election Live Updates: Texas Senate Fights Kick Off High-Stakes Midterm Primaries**\
+`The race to November begins with contests in North Carolina, Arkansas and Texas, where Senator John Cornyn faces primary challengers including state Attorney General Ken Paxton and a pair of Democrats who hope to flip his seat.`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar
+
 **Guadalajara, Boston and New York — the key storylines around the World Cup's 16 host cities**\
 `With 100 days to go until the World Cup kicks off in Mexico City, we look at what's dominating conversation in the cities hosting the event`\
 https://nytimes.com/athletic/7081689/2026/03/03/world-cup-cities-guadalajara-boston-new-york/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7081904/2026/03/03/joe-schoen-new-york-giants-contr
 **LeBron's future has never been more uncertain. It makes every game more meaningful**\
 `As Luka Dončić becomes the Lakers’ present and future, LeBron James enters unfamiliar territory.`\
 https://nytimes.com/athletic/7080335/2026/03/03/lebron-james-nba-future/
-
-**Browns QB tracker: Could a trade for Colts QB Anthony Richardson make sense?**\
-`This week in our Browns QB tracker, we explore the possibility of Cleveland's making a move for the soon-to-be 24-year-old passer.`\
-https://nytimes.com/athletic/7082273/2026/03/03/browns-anthony-richardson-colts-trade/
-
-**Who will stay, who will go? Making the case for Ravens' 19 unrestricted free agents**\
-`Baltimore has about $19 million of salary-cap space and plenty of roster holes to fill. Which free agents can the team afford to re-sign?`\
-https://nytimes.com/athletic/7081376/2026/03/03/ravens-unrestricted-2026-free-agents/
-
-**Big winner of Paramount-Warner Bros.-Netflix deal frenzy? The NFL**\
-`Paramount became a live-sports juggernaut. Netflix got an extra $2.8B to spend. And the NFL sees a wide-open green field.`\
-https://nytimes.com/athletic/7082280/2026/03/03/paramount-warner-bros-netflix-nfl/
 
