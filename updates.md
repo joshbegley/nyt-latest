@@ -1,3 +1,11 @@
+**Darius Garland eases into Clippers debut, then helps lead comeback win**\
+`Garland had 12 points against the Warriors in his first game since being traded from the Cavaliers for James Harden last month.`\
+https://nytimes.com/athletic/7082987/2026/03/03/nba-clippers-darius-garland-debut/
+
+**Liverpool-bound Jacquet needs surgery, expected to be fit for pre-season**\
+`Jacquet is set to miss the remainder of the current season but the operation is not expected to impact his start at Anfield.`\
+https://nytimes.com/athletic/7083035/2026/03/03/jeremy-jacquet-injury-surgery-liverpool/
+
 **The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
 `Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
 https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
