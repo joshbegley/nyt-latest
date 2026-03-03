@@ -1,3 +1,15 @@
+**Target to Spend Billions to Refresh Stores, Hire Staff and Raise Pay**\
+`The new C.E.O. said the company would focus on home décor, apparel and pop culture trends in an effort to reverse years of sales declines.`\
+https://nytimes.com/2026/03/03/business/target-stores-investment-payrolls.html
+
+**Vikings open to trading Pro Bowl edge rusher Jonathan Greenard: Sources**\
+`The Vikings are reportedly open to trading former Pro Bowl edge rusher Jonathan Greenard after he asked for more money.`\
+https://nytimes.com/athletic/7083858/2026/03/03/vikings-jonathan-greenard-trade-contract/
+
+**Who Could Profit From an Energy Crisis?**\
+`A protracted conflict in the Middle East could seriously disrupt energy markets.`\
+https://nytimes.com/2026/03/03/climate/iran-energy-crisis-climate.html
+
 **Why the Bengals didn't attempt a tag-trade for Trey Hendrickson**\
 `The star edge rusher hits the open market after a tumultuous few years of contract haggling.`\
 https://nytimes.com/athletic/7081874/2026/03/03/bengals-trey-hendrickson-tag-deadline/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/magazine/2026/03/03/the-3126-issue
 **As Trump Bashes Spain, the German Chancellor Piles On**\
 `Friedrich Merz has called for greater European unity, but he did not object to the president rebuking Spain and Britain in an Oval Office meeting.`\
 https://nytimes.com/2026/03/03/us/politics/trump-spain-germany-trade-military.html
-
-**Choosin’ 9 Songs About Texas**\
-`Listen to Ella Langley’s Hot 100 hit and more songs about a place that’s long been a source of musical inspiration.`\
-https://nytimes.com/2026/03/03/arts/music/amplifier-newsletter-texas-songs.html
-
-**Squatters Fill Empty New York City Public Housing Units, Report Says**\
-`Public housing vacancies in the city doubled to over 6,700 between January 2022 and May 2025, according to the Department of Investigation, posing safety risks to residents.`\
-https://nytimes.com/2026/03/03/nyregion/nycha-squatters-nyc-public-housing.html
-
-**Texas Primary Election Results**\
-`Get live results and maps from the 2026 Texas primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
 
