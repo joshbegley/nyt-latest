@@ -1,40 +1,40 @@
-**U.S. Closes Embassies in Saudi Arabia and Kuwait**\
-`The State Department also ordered nonessential staff in the United Arab Emirates, Qatar, Bahrain, Jordan and Iraq to to leave amid further retaliation from Iran.`\
-https://nytimes.com/2026/03/03/world/middleeast/us-closes-embassies-in-saudi-arabia-and-kuwait.html
+**Guadalajara, Boston and New York — the key storylines around the World Cup's 16 host cities**\
+`With 100 days to go until the World Cup kicks off in Mexico City, we look at what's dominating conversation in the cities hosting the event`\
+https://nytimes.com/athletic/7081689/2026/03/03/world-cup-cities-guadalajara-boston-new-york/
 
-**2026 MLB Draft ranking 1.0: Roch Cholowsky leads the top 30 prospects**\
-`This year's MLB Draft class has a clearcut favorite for the No. 1 pick, UCLA's Roch Cholowsky. It's also deep in high school pitching.`\
-https://nytimes.com/athletic/7078205/2026/03/03/2026-mlb-draft-ranking-roch-cholowsky/
+**Early spring training observations: ABS system a hit, young players standing out and more**\
+`From the ABS system to young players opening eyes to teams exploring contract extensions, it's already been an exciting spring.`\
+https://nytimes.com/athletic/7078266/2026/03/03/mlb-spring-training-observations-abs-system/
 
-**How to watch Appalachian State vs. South Alabama women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Appalachian State Mountaineers play the South Alabama Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7082985/2026/03/03/appalachian-state-vs-south-alabama-stream-how-to-watch-march-3/
+**100 2026 World Cup questions answered with 100 days to go**\
+`From tickets to the trophy, presidents to prize money and everything in between, this is your one-stop shop for everything you need to know`\
+https://nytimes.com/athletic/7059445/2026/03/03/world-cup-questions-soccer-beginner-explained/
 
-**How to watch Lipscomb vs. Austin Peay women's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the Lipscomb Bisons play the Austin Peay Governors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7082983/2026/03/03/lipscomb-vs-austin-peay-stream-how-to-watch-march-3/
+**The joys and perils of a 67 jersey number: When a viral craze reaches spring training**\
+`Kids scream at them on back fields. They can't go anywhere without someone going palms-up. Life with a 67 jersey is complicated.`\
+https://nytimes.com/athletic/7082014/2026/03/03/six-seven-jersey-mlb-spring-training/
 
-**Brighton's Hurzeler says Arsenal take too long over corners**\
-`The head coach called for a "clear rule" to be made for "how much time you can waste" from a dead ball situation.`\
-https://nytimes.com/athletic/7082974/2026/03/03/brighton-arsenal-corners-hurzeler/
+**Execs mock the NFL Draft's top 10: Jets go boom-bust at 2, Chiefs nab a running back**\
+`Execs expect the Raiders to take Francisco Mendoza but do not view it as a slam dunk. Otherwise, pass rushers and O-line ruled the top 10.`\
+https://nytimes.com/athletic/7082310/2026/03/03/nfl-mock-draft-execs-raiders-jets-chiefs/
 
-**No Empire. No Kings.**\
-`Donald Trump’s foreign policy vision is imperialism`\
-https://nytimes.com/2026/03/03/opinion/trump-imperialism-america.html
+**LeBron's future has never been more uncertain. It makes every game more meaningful**\
+`As Luka Dončić becomes the Lakers’ present and future, LeBron James enters unfamiliar territory.`\
+https://nytimes.com/athletic/7080335/2026/03/03/lebron-james-nba-future/
 
-**Democratic Primary Challengers Begin Their Push for Generational Change**\
-`Starting in North Carolina on Tuesday, older House Democrats face a test of their staying power and the appetite of voters to replace them.`\
-https://nytimes.com/2026/03/03/us/politics/texas-north-carolina-older-democrats.html
+**Joe Schoen is still the Giants' general manager — some around the league wonder for how long**\
+`There’s curiosity from outsiders about how Schoen fits in the new John Harbaugh-centric operation.`\
+https://nytimes.com/athletic/7081904/2026/03/03/joe-schoen-new-york-giants-contract-extension/
 
-**Picasso? How About Pippen Instead?**\
-`Sotheby’s, now in the former Whitney Museum on the Upper East Side, is auctioning off Scottie Pippen’s basketball memorabilia.`\
-https://nytimes.com/2026/03/03/nyregion/sothebys-scottie-pippen-auction.html
+**Browns QB tracker: Could a trade for Colts QB Anthony Richardson make sense?**\
+`This week in our Browns QB tracker, we explore the possibility of Cleveland's making a move for the soon-to-be 24-year-old passer.`\
+https://nytimes.com/athletic/7082273/2026/03/03/browns-anthony-richardson-colts-trade/
 
-**Despite Promises, Veterans Affairs Department Cut Thousands of Roles for Doctors and Nurses**\
-`The Trump administration has eliminated health care positions left vacant after a wave of resignations and retirements at the V.A. last year.`\
-https://nytimes.com/2026/03/03/us/politics/veterans-affairs-nurses-doctors-cut.html
+**Who will stay, who will go? Making the case for Ravens' 19 unrestricted free agents**\
+`Baltimore has about $19 million of salary-cap space and plenty of roster holes to fill. Which free agents can the team afford to re-sign?`\
+https://nytimes.com/athletic/7081376/2026/03/03/ravens-unrestricted-2026-free-agents/
 
-**The Reason Gen Z Isn’t Dating**\
-`Clavicular is a symptom of a larger disease.`\
-https://nytimes.com/2026/03/03/opinion/gen-z-dating-clavicular.html
+**Big winner of Paramount-Warner Bros.-Netflix deal frenzy? The NFL**\
+`Paramount became a live-sports juggernaut. Netflix got an extra $2.8B to spend. And the NFL sees a wide-open green field.`\
+https://nytimes.com/athletic/7082280/2026/03/03/paramount-warner-bros-netflix-nfl/
 
