@@ -1,3 +1,7 @@
+**‘Whatever It Takes’ Rattles Global Markets**\
+`President Trump has signaled that he is open to the idea of a prolonged military conflict with Iran. Investors are spooked by that scenario.`\
+https://nytimes.com/2026/03/03/business/dealbook/iran-markets-trump.html
+
 **How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7082987/2026/03/03/nba-clippers-darius-garland-debu
 **Liverpool-bound Jacquet needs surgery, expected to be fit for pre-season**\
 `Jacquet is set to miss the remainder of the current season but the operation is not expected to impact his start at Anfield.`\
 https://nytimes.com/athletic/7083035/2026/03/03/jeremy-jacquet-injury-surgery-liverpool/
-
-**The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
-`Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
-https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
 
