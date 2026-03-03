@@ -1,3 +1,23 @@
+**Offering Warmth and Care to the Homeless, and Building a Case for Trust**\
+`New outreach teams from New York City’s public hospital system include a clinical professional to evaluate the needs of homeless New Yorkers.`\
+https://nytimes.com/2026/03/03/nyregion/nyc-homeless-cold-medical-services.html
+
+**Parenting Advice**\
+`What is one tip you would give to parents?`\
+https://nytimes.com/2026/03/03/learning/parenting-advice.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/03/crosswords/spelling-bee-forum.html
+
+**A Danish Program Takes On the Stigma of Mental Illness**\
+`One of Us, run by Denmark’s health ministry, works with people with mental health conditions to share their stories in schools, hospitals and police stations, helping turn fear into understanding.`\
+https://nytimes.com/2026/03/03/health/mental-illness-denmark-schizophrenia.html
+
+**Mamdani’s Parks Dept. Aims to Offer More Recreation With Smaller Budget**\
+`Mayor Zohran Mamdani’s Parks Department plans to become New York City’s “agency of affordability,” though the mayor has not increased the agency’s funding.`\
+https://nytimes.com/2026/03/03/nyregion/affordable-gyms-new-york.html
+
 **Fantasy Premier League live Q&A: Gameweek 29 advice from Ben Dinnery**\
 `Ben Dinnery of premierinjuries.com is on hand to offer his expert advice on the players to target, who to avoid, and the fitness doubts you `\
 https://nytimes.com/athletic/7082207/2026/03/03/fantasy-premier-league-live-qa-gameweek-29-advice-from-ben-dinnery/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/03/learning/word-of-the-day-veracity.html
 **Here’s the latest.**\
 `By Aaron Boxerman, Helene Cooper and Yan Zhuang`\
 https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/heres-the-latest
-
-****\
-``\
-https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump
-
-**U.S. Attacks on Iran Test Fragile Truce With China**\
-`Beijing has condemned the U.S.-backed strikes on Iran, a close partner. Yet with trade talks looming, it is unlikely to risk a rupture with Washington.`\
-https://nytimes.com/2026/03/03/world/asia/us-iran-china-trump-xi.html
-
-**The New York Times in Print for Tuesday, March 3, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/03/todays-new-york-times
-
-**As Trump Scrambles the World Order, Can Germany Learn the Language of Hard Power?**\
-`In the wake of the U.S. bombing of Iran and its dismissal of European allies, an anxious continent’s best chance at security runs through its largest economy.`\
-https://nytimes.com/2026/03/03/magazine/germany-europe-iran-merz-trump-defense.html
-
-**The Coming Iranian Revolution**\
-`Ayatollah Khomeini’s bait-and-switch game in the early years of the Islamic regime turned many of the people against it. They’ve been fighting the revolution since.`\
-https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
 
