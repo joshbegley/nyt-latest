@@ -1,3 +1,7 @@
+**In Rallies Across Texas, Senate Candidates Make Final Arguments**\
+`The Republicans John Cornyn and Ken Paxton — and the Democrats Jasmine Crockett and James Talarico — are battling in bitter and expensive races.`\
+https://nytimes.com/2026/03/02/us/elections/texas-primary-senate-midterms-argument.html
+
 **Can These Democrats Make Combative Centrism Happen?**\
 `Third Way, the moderate Democratic advocacy group and think tank, has an expansive and expensive plan to shape the 2028 presidential campaign.`\
 https://nytimes.com/2026/03/02/us/politics/democrats-centrism-2028-election.html
