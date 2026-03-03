@@ -1,3 +1,19 @@
+**Inside the Underground Safe Houses Sheltering Immigrants From ICE**\
+`In Springfield, Ohio, some Americans have converted their basements and spare bedrooms into shelters for immigrant families who could be targeted in raids.`\
+https://nytimes.com/2026/03/03/us/trump-immigration-ice-raids-safe-houses.html
+
+**The 3.1.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/03/the-3126-issue
+
+**As Trump Bashes Spain, the German Chancellor Piles On**\
+`Friedrich Merz has called for greater European unity, but he did not object to the president bashing Spain and Britain in an Oval Office meeting.`\
+https://nytimes.com/2026/03/03/us/politics/trump-spain-germany-trade-military.html
+
+**Choosin’ 9 Songs About Texas**\
+`Listen to Ella Langley’s Hot 100 hit and more songs about a place that’s long been a source of musical inspiration.`\
+https://nytimes.com/2026/03/03/arts/music/amplifier-newsletter-texas-songs.html
+
 **New York City Public Housing Vacancies Double to 6,700, Watchdog Says**\
 `A report by the Department of Investigation said that people routinely squatted in the vacant units, posing safety risks to residents.`\
 https://nytimes.com/2026/03/03/nyregion/nycha-squatters-nyc-public-housing.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-north-carolina-primary
 **Texas U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 Texas primary election.`\
 https://nytimes.com/interactive/2026/us/elections/results-texas-us-senate-primary.html
-
-**A Guide to Tonight’s Election Results**\
-`Follow the latest results in the key primary elections from Texas, North Carolina and Arkansas.`\
-https://nytimes.com/interactive/2026/us/elections/results-key-races-march-3.html
-
-**Global Stock Markets Fall Sharply as the Iran War Intensifies**\
-`Stocks and bonds around the world on Tuesday slipped at the open while oil and gas prices surged. Iran’s threats to close the Strait of Hormuz, and the United States’ warning that the war could last weeks, have intensified a global market sell-off.`\
-https://nytimes.com/video/world/middleeast/100000010750207/stock-markets-iran-us-inflation-fall.html
-
-**Texas 10th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Texas primary election.`\
-https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-10-primary.html
-
-**Texas 18th Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Texas primary election.`\
-https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-18-primary.html
 

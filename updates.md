@@ -1,3 +1,19 @@
+**Inside the Underground Safe Houses Sheltering Immigrants From ICE**\
+`In Springfield, Ohio, some Americans have converted their basements and spare bedrooms into shelters for immigrant families who could be targeted in raids.`\
+https://nytimes.com/2026/03/03/us/trump-immigration-ice-raids-safe-houses.html
+
+**The 3.1.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/03/the-3126-issue
+
+**As Trump Bashes Spain, the German Chancellor Piles On**\
+`Friedrich Merz has called for greater European unity, but he did not object to the president bashing Spain and Britain in an Oval Office meeting.`\
+https://nytimes.com/2026/03/03/us/politics/trump-spain-germany-trade-military.html
+
+**Choosin’ 9 Songs About Texas**\
+`Listen to Ella Langley’s Hot 100 hit and more songs about a place that’s long been a source of musical inspiration.`\
+https://nytimes.com/2026/03/03/arts/music/amplifier-newsletter-texas-songs.html
+
 **New York City Public Housing Vacancies Double to 6,700, Watchdog Says**\
 `A report by the Department of Investigation said that people routinely squatted in the vacant units, posing safety risks to residents.`\
 https://nytimes.com/2026/03/03/nyregion/nycha-squatters-nyc-public-housing.html
