@@ -1,3 +1,19 @@
+**Trump Says U.S. Navy Might Escort Tankers in Persian Gulf**\
+`Shipping companies are not sending oil and gas through the Strait of Hormuz because they fear their ships might be attacked.`\
+https://nytimes.com/2026/03/03/world/middleeast/trump-tankers-hormuz.html
+
+**Texas Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
+
+**Five-star LB Cooper Witten, son of former NFL star Jason Witten, commits to Oklahoma**\
+`Witten is ranked No. 25 overall and the No. 2 linebacker in the Class of 2027 in the 247Sports Composite. `\
+https://nytimes.com/athletic/7084484/2026/03/03/cooper-witten-5-star-linebacker-jason-witten-oklahoma/
+
+**The Briefing: Leeds 0 Sunderland 1 - Costly Ampadu handball and more late subs, but should Struijk have won a penalty?**\
+`Leeds were beaten at home by an injury-ravaged Sunderland, which leaves Farke's side 15th in the league, six points above the drop zone`\
+https://nytimes.com/athletic/7083477/2026/03/03/leeds-sunderland-ampadu-penalty/
+
 **Lutnick Agrees to Testify in House Epstein Investigation**\
 `The Commerce Secretary, who misrepresented his relationship with the convicted sex offender, has volunteered to appear, the House Oversight Committee’s leader said.`\
 https://nytimes.com/2026/03/03/us/politics/lutnick-epstein-investigation.html
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/7084465/2026/03/03/kyler-murray-released-cardinals-
 **Men's tennis tour cancels two UAE tournaments, withdraws $5,800 charter flight proposal for players**\
 `The ATP Tour said it was organizing transport for players at the Fujairah Challenger, before clarifying it was not doing so directly.`\
 https://nytimes.com/athletic/7084208/2026/03/03/tennis-atp-fujairah-canceled-charter-flight-cost/
-
-**British Columbia Will Change Clocks on Sunday for the Last Time**\
-`The Canadian province is moving permanently to daylight saving time, officials announced.`\
-https://nytimes.com/2026/03/03/world/canada/daylight-savings-bc-time.html
-
-**Who Will Lead Iran? Trump’s Answer Suggests His End Game Is Still Hazy.**\
-`“Most of the people we had in mind are dead,” President Trump says.`\
-https://nytimes.com/2026/03/03/us/politics/trump-iran-leaders.html
-
-**Trump Threatens to End Trade With Spain**\
-`His anger stems from the country’s denial of the use of its military bases to U.S. forces involved in the attack against Iran. Spain didn’t seem fazed.`\
-https://nytimes.com/2026/03/03/world/middleeast/trump-spain-trade.html
 
