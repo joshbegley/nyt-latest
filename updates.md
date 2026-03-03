@@ -1,3 +1,7 @@
+**The Idea That Trump Was Antiwar Was Always Delusional**\
+`Trump’s foreign policy has often been less a repudiation of neoconservatism than a mutation of it.`\
+https://nytimes.com/2026/03/02/opinion/trump-iran-antiwar.html
+
 **What Rising Oil Prices Could Mean for Drivers in the U.S.**\
 `A prolonged conflict in the Middle East could cause a spike at American gas pumps, as the busy driving season approaches.`\
 https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
