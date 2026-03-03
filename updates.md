@@ -1,3 +1,15 @@
+**U.S. Closes Embassies in Saudi Arabia and Kuwait**\
+`The State Department also ordered nonessential staff in the United Arab Emirates, Qatar, Bahrain, Jordan and Iraq to to leave amid further retaliation from Iran.`\
+https://nytimes.com/2026/03/03/world/middleeast/us-closes-embassies-in-saudi-arabia-and-kuwait.html
+
+**2026 MLB Draft ranking 1.0: Roch Cholowsky leads the top 30 prospects**\
+`This year's MLB Draft class has a clearcut favorite for the No. 1 pick, UCLA's Roch Cholowsky. It's also deep in high school pitching.`\
+https://nytimes.com/athletic/7078205/2026/03/03/2026-mlb-draft-ranking-roch-cholowsky/
+
+**How to watch Appalachian State vs. South Alabama women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Appalachian State Mountaineers play the South Alabama Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7082985/2026/03/03/appalachian-state-vs-south-alabama-stream-how-to-watch-march-3/
+
 **How to watch Lipscomb vs. Austin Peay women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Lipscomb Bisons play the Austin Peay Governors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7082983/2026/03/03/lipscomb-vs-austin-peay-stream-how-to-watch-march-3/
