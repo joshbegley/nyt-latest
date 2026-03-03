@@ -1,3 +1,15 @@
+**The New York Times in Print for Tuesday, March 3, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/03/todays-new-york-times
+
+**As Trump Scrambles the World Order, Can Germany Learn the Language of Hard Power?**\
+`In the wake of the U.S. bombing of Iran and its dismissal of European allies, an anxious continent’s best chance at security runs through its largest economy.`\
+https://nytimes.com/2026/03/03/magazine/germany-europe-iran-merz-trump-defense.html
+
+**It’s Time for the Real Iranian Revolution**\
+`Ayatollah Khomeini’s bait-and-switch game in the early years of the Islamic regime turned many of the people against it. They’ve been fighting the revolution since.`\
+https://nytimes.com/2026/03/03/opinion/iran-revolution-khomeini-shah.html
+
 **Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
 `Liverpool have 10 games left in this season's Premier League - how will they do?`\
 https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
