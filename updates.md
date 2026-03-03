@@ -1,3 +1,7 @@
+**Israeli Forces Advance in Lebanon and Seize Land, as Hezbollah’s Fight Escalates**\
+`The Israeli military said troops advanced to protect border towns from Hezbollah attacks, spurring fears that the government is weighing a wider ground war.`\
+https://nytimes.com/2026/03/03/world/middleeast/israeli-forces-in-lebanon.html
+
 **Flamengo sack Filipe Luis three months after Copa Libertadores and league double**\
 `The 40-year-old signed a contract extension in December through to late 2027 but has been sacked just three months later.`\
 https://nytimes.com/athletic/7082910/2026/03/03/filipe-luis-flamengo-sacked/
