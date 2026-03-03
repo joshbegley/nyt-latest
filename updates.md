@@ -1,3 +1,23 @@
+**Can These Democrats Make Combative Centrism Happen?**\
+`Third Way, the moderate Democratic advocacy group and think tank, has an expansive and expensive plan to shape the 2028 presidential campaign.`\
+https://nytimes.com/2026/03/02/us/politics/democrats-centrism-2028-election.html
+
+**Trump Says He Will End Boycott of White House Correspondents’ Dinner**\
+`The mentalist Oz Pearlman is this year’s speaker. “Hopefully, it will be something very Special,” the president wrote on Truth Social.`\
+https://nytimes.com/2026/03/02/us/politics/trump-white-house-correspondents-dinner.html
+
+**All the President’s Portraits**\
+`President Trump’s image — in paint and pixels, on posters and sculptures — is ubiquitous inside the White House, and beyond.`\
+https://nytimes.com/interactive/2026/03/02/us/politics/president-trump-white-house-portraits.html
+
+**The messy primary fight for North Carolina’s brightest blue bubble.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/the-messy-primary-fight-for-north-carolinas-brightest-blue-bubble
+
+**Trump Embraces U.S. Military Power After Years of Caution**\
+`The wars in Afghanistan and Iraq offered a stark lesson in the limits of military force. The Iran attacks suggest an era of postwar wariness is over.`\
+https://nytimes.com/2026/03/02/us/politics/trump-military-power.html
+
 **In Plunging Into a Mideast Conflict, Trump Gambles His Presidency**\
 `The risks for President Trump from the assault on Iran are escalating as casualties mount, oil prices rise and the war expands across the region.`\
 https://nytimes.com/2026/03/02/us/politics/iran-trump-polls-republicans.html
