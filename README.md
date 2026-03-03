@@ -1,3 +1,11 @@
+**Should the Bears trade for Maxx Crosby? The need is there, but at what cost?**\
+`Would the Bears entertain a Crosby trade, even if it puts future resources in jeopardy? It's a major question ahead of free agency.`\
+https://nytimes.com/athletic/7081373/2026/03/03/bears-maxx-crosby-trade-debate/
+
+**An Emboldened Israel Is Seizing Opportunities to Remake Region**\
+`With the war against Iran underway, and the U.S. military as a powerful ally, the Israeli government is seizing its chance to move against other adversaries.`\
+https://nytimes.com/2026/03/03/world/middleeast/israel-iran-hezbollah.html
+
 **What I heard about the Vikings' plans for free agency and interim GM Rob Brzezinski**\
 `The Vikings would love to re-sign receiver Jalen Nailor and linebacker Eric Wilson, but the team's lack of cap space will make it tough.`\
 https://nytimes.com/athletic/7082103/2026/03/03/minnesota-vikings-free-agency-rob-brzezinski/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082779/2026/03/03/toronto-embracing-maple-leafs-ta
 **In college football, $270 million in coach buyouts is more complex than it seems**\
 `The 15 FBS head coaches fired without cause last season were owed a record total in buyout money, but that total is already dropping.`\
 https://nytimes.com/athletic/7080378/2026/03/03/college-football-coach-firings-buyouts-total/
-
-**NFL Scouting Combine winners: Sonny Styles, Jacob Rodriguez, others who stood out**\
-`Which 2026 NFL Draft prospects may have moved up boards with their performances at the combine in Indianapolis?`\
-https://nytimes.com/athletic/7081290/2026/03/03/nfl-combine-winners-draft-styles-rodriguez-2026/
-
-**For these women's college basketball players, netball was their 'first love'**\
-`Netball was more popular in New Zealand, but players like UCLA's Charlisse Leger-Walker still found her way to a DI basketball court.`\
-https://nytimes.com/athletic/7081851/2026/03/03/netball-womens-college-basketball-ucla-kentucky-north-texas/
 
