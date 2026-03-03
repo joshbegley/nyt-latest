@@ -1,3 +1,11 @@
+**Alex Bregman's presence as the right player at the right time sets the tone**\
+`Midway through the spring, the Cubs have a different outlook, a higher level of expectations and a noticeable lack of drama.`\
+https://nytimes.com/athletic/7082564/2026/03/03/chicago-cubs-alex-bregman-tone-setter/
+
+**Aston Martin's 2026 F1 season is set to start badly - what has gone so wrong?**\
+`Aston Martin was supposed to be an F1 title contender in 2026. Instead, it may barely race in Australia. Here's what has gone so wrong`\
+https://nytimes.com/athletic/7083067/2026/03/03/aston-martin-honda-f1-engine-problem/
+
 **Weekly Student News Quiz: Blizzard, War, Monkey**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082852/2026/03/03/arizona-big-12-championship-dres
 **World Cup 2026 stadium guides: Welcome to Dallas Stadium, home of the Cowboys**\
 `One of America’s most famous stadiums will be a key part of the World Cup, with a semi-final there and two of Argentina's group games`\
 https://nytimes.com/athletic/7072209/2026/03/03/world-cup-texas-stadium-guide-dallas-cowboys-jerry-jones/
-
-**Blackhawks player poll results: Best chirper? Most obnoxious? Worst dressed?**\
-`We polled 20 Blackhawks on a variety of topics and had them dish on — and dig at — their teammates. Here are the results.`\
-https://nytimes.com/athletic/7080926/2026/03/03/blackhawks-player-poll-results-nhl-connor-bedard/
-
-**Why trading OEL is too good of an opportunity for the Maple Leafs to pass up**\
-`What the Leafs decide to do with the veteran defenceman could say a lot about Toronto's front office.`\
-https://nytimes.com/athletic/7081557/2026/03/03/maple-leafs-oliver-ekman-larsson-trade-future-treliving-rebuild/
 
