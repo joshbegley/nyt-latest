@@ -1,3 +1,7 @@
+**In Dimes Square, a Party Where Toothpicks Were Crucial**\
+`The Basque-inspired Eel Bar hosted a pintxos-forward reunion for friends and fellow business owners.`\
+https://nytimes.com/2026/03/02/t-magazine/eel-bar-party-pintxos.html
+
 **Trae Young endears himself to teammates, fans by getting ejected from Wizards' bench**\
 `Young was ejected for stepping onto the court while arguing with a game official. `\
 https://nytimes.com/athletic/7082660/2026/03/02/trae-young-ejected-wizards-rockets-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/world/middleeast/us-embassy-riyadh-saudi-iran-dro
 **Warriors' Kristaps Porziņģis to miss fifth straight game, uncertain to travel with team**\
 `After playing 17 minutes against the Boston Celtics on Feb. 19, Porziņģis has not been able to play since.`\
 https://nytimes.com/athletic/7082520/2026/03/02/kristaps-porzingis-injury-update-warriors-pots/
-
-**In Rallies Across Texas, Senate Candidates Make Final Arguments**\
-`The Republicans John Cornyn and Ken Paxton — and the Democrats Jasmine Crockett and James Talarico — are battling in bitter and expensive races.`\
-https://nytimes.com/2026/03/02/us/elections/texas-primary-senate-midterms-argument.html
 
