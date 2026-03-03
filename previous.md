@@ -1,40 +1,40 @@
-**Isaiah Zagar, Who Festooned Philadelphia With Mosaics, Dies at 86**\
-`He covered the city with more than over 50,000 square feet of murals, and showcased his work at the Magic Gardens Museum.`\
-https://nytimes.com/2026/03/03/arts/isaiah-zagar-dead.html
+**North Carolina Primary Election Results**\
+`Get live results and maps from the 2026 North Carolina primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-north-carolina-primary.html
 
-**Commanders agree to pay D.C. $1 million to settle lawsuit from Daniel Snyder era**\
-`The settlement follows a 2022 lawsuit that accused the team of violating D.C.'s consumer protections law during Daniel Snyder’s ownership.`\
-https://nytimes.com/athletic/7083753/2026/03/03/commanders-settle-lawsuit-washington-d-c/
+**Texas U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-us-senate-primary.html
 
-**Seahawks not planning to tag Super Bowl MVP Kenneth Walker III: Sources**\
-`If the Seahawks decided to use the franchise tag on Kenneth Walker III, it would have put him on the books for $14.5 million in 2026.`\
-https://nytimes.com/athletic/7083834/2026/03/03/seahawks-franchise-transition-tag-kenneth-walker/
+**A Guide to Tonight’s Election Results**\
+`Follow the latest results in the key primary elections from Texas, North Carolina and Arkansas.`\
+https://nytimes.com/interactive/2026/us/elections/results-key-races-march-3.html
 
-**I.M.F. Warns Iran War Could Hurt Global Economy**\
-`Inflation fears over higher energy prices could force central banks to take action, a top fund official said.`\
-https://nytimes.com/2026/03/03/us/politics/iran-war-global-economy-warning.html
+**Texas Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
 
-**Is This Man the Last Living Number Painter in Naples?**\
-`The numeraio Pasquale De Stefano’s handmade market signs are a dying breed of everyday beauty in a baroque city.`\
-https://nytimes.com/2026/03/03/arts/design/naples-italy-painter.html
+**Global Stock Markets Fall Sharply as the Iran War Intensifies**\
+`Stocks and bonds around the world on Tuesday slipped at the open while oil and gas prices surged. Iran’s threats to close the Strait of Hormuz, and the United States’ warning that the war could last weeks, have intensified a global market sell-off.`\
+https://nytimes.com/video/world/middleeast/100000010750207/stock-markets-iran-us-inflation-fall.html
 
-**6 Design Products That May Be the Last of Their Kind**\
-`Many artisanal practices are hanging by a thread, but there is still a chance to enjoy them.`\
-https://nytimes.com/2026/03/03/style/design-traditional-crafts.html
+**Massachusetts State Legislature Special Election Results**\
+`Get live results and maps from the 2026 Massachusetts state legislature special elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-massachusetts-state-legislature-special.html
 
-**The Piano Man’s Long Goodbye to Long Island**\
-`Why Billy Joel’s dream home finally sold for $14 million under the asking price.`\
-https://nytimes.com/2026/03/03/realestate/billy-joel-house-sale-long-island.html
+**Arkansas Primary Election Results**\
+`Get live results and maps from the 2026 Arkansas primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-arkansas-primary.html
 
-**The Best Movies and TV Shows Coming to Netflix in March**\
-`Several promising titles are coming this month, including a new series starring Rachel Weisz and the feature-length sequel to “Peaky Blinders.”`\
-https://nytimes.com/2026/03/03/arts/television/netflix-peaky-blinders-rachel-weisz.html
+**Arkansas Supreme Court Election Results**\
+`Get live results and maps from the 2026 Arkansas election.`\
+https://nytimes.com/interactive/2026/us/elections/results-arkansas-supreme-court.html
 
-**An Iranian Nuclear Site Avoids New Airstrikes, for Now**\
-`The Isfahan facility, suspected of storing a cache of enriched uranium, was smashed during the 12-day campaign last June.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-nuclear-site-isfahan-airstrikes-spared.html
+**Texas 27th Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-27-primary.html
 
-**Tigers owner Chris Ilitch talks Tarik Skubal, paying CBT tax and more: Q&A**\
-`Ilitch gave a rare interview Tuesday during the Tigers' trip to the Dominican Republic.`\
-https://nytimes.com/athletic/7083765/2026/03/03/qa-tigers-owner-chris-ilitch-tarik-skubal/
+**Texas Sixth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Texas primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-texas-us-house-6-primary.html
 
