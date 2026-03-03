@@ -1,6 +1,6 @@
 **Iowa State discontinues women’s gymnastics but will add another women's sport**\
 `Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
-https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-discontinues-womens-gymnastics-but-will-add-another-womens-sport/
+https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-womens-gymnastics/
 
 **Justin Timberlake Sues to Block Release of Drunk-Driving Arrest Footage**\
 `The authorities in Sag Harbor, N.Y., said they would not yet release footage of the singer’s 2024 arrest while they work out a resolution with his lawyers.`\

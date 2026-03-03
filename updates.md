@@ -1,5 +1,9 @@
 **Iowa State discontinues women’s gymnastics but will add another women's sport**\
 `Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
+https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-womens-gymnastics/
+
+**Iowa State discontinues women’s gymnastics but will add another women's sport**\
+`Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
 https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-discontinues-womens-gymnastics-but-will-add-another-womens-sport/
 
 **Justin Timberlake Sues to Block Release of Drunk-Driving Arrest Footage**\
