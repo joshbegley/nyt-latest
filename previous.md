@@ -1,5 +1,5 @@
 **Iran’s Strategy: Expand the War, Increase the Cost, Outlast Trump**\
-`The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would drive up the jeopardy for President Trump in terms of casualties and political capital.`\
+`The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would force President Trump to risk more casualties and more political capital.`\
 https://nytimes.com/2026/03/03/world/europe/iran-war-strategy-trump-israel.html
 
 **Oil and Natural Gas Prices Extend Rally as Iran Attacks Escalates**\
