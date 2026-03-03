@@ -1,3 +1,7 @@
+**Columbia Is Investigated for Handling of Sex-Abuse Claims Against Doctor**\
+`Attorney General Letitia James is investigating the university for its actions after the 2012 arrest of Robert Hadden, a former Columbia gynecologist convicted of sex crimes.`\
+https://nytimes.com/2026/03/03/nyregion/columbia-hadden-sexual-assault-investigation.html
+
 **Trump Suggests He’s Uncertain About Iran’s Future**\
 `Also, the midterms begin with high-stakes showdowns in Texas. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/7084675/2026/03/03/trinity-rodman-uswnt-shebelieves
 https://nytimes.com/athletic/7084725/2026/03/03/barcelona-atletico-madrid-copa-del-rey/
 
 **Texas Voters Head to Polls in Highly Anticipated Primaries**\
-`Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning states.`\
+`Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning seats.`\
 https://nytimes.com/video/us/elections/100000010750904/texas-primary-election-midterms.html
 
 **Villa's Konsa avoids club fine for angry exchange with supporters**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7084712/2026/03/03/college-sports-dynasties-until-s
 **‘Cheap’ and ‘Appalling’: Trump’s Ballroom Plans Receive a Flood of Negative Comments**\
 `The National Capital Planning Commission received about 32,000 messages during its public comment period. Suffice it to say: Many people are not happy with the president’s ballroom plans.`\
 https://nytimes.com/2026/03/03/us/politics/trump-ballroom-comments.html
-
-**Trump Letter to Congress Justifying Iran Strikes Outlines No Imminent Threat**\
-`The president told lawmakers that the objective of the assault was to “neutralize Iran’s malign activities,” but did not present evidence of immediate plans by Tehran to attack the United States.`\
-https://nytimes.com/2026/03/03/world/middleeast/trump-congress-letter-iran-strikes.html
 
