@@ -1,3 +1,15 @@
+**Prime Tire: My doubts ahead of the season opener**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7084405/2026/03/03/f1-season-opener-2026-doubts-beliefs-prime-tire/
+
+**U.S. and Allies Encounter Iran’s Arsenal of Drones**\
+`The Pentagon and Middle Eastern countries say that most of the drones have been intercepted. But some have slipped through and caused damage.`\
+https://nytimes.com/2026/03/03/us/politics/us-iran-drones.html
+
+**Bears Pro Bowl center Drew Dalman retiring at age 27: Source**\
+`Dalman joined the Bears on a three-year, $42 million contract with $28 million guaranteed less than a year ago.`\
+https://nytimes.com/athletic/7084209/2026/03/03/bears-drew-dalman-retires/
+
 **Thousands in Iran Attend Burial of Children Killed in Bombing of School**\
 `There were students attending classes at the time that the school was destroyed. Some 175 people were killed by the attack on the girls’ elementary school.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-school-bombing-children.html
