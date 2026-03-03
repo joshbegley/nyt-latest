@@ -11,7 +11,7 @@ https://nytimes.com/2026/03/03/us/politics/labor-secretarys-top-aides-forced-out
 https://nytimes.com/athletic/7083343/2026/03/03/aj-dybantsa-nba-mock-draft-giannis-the-bounce/
 
 **Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
-`The injury is expected to see him sidelined for up to a year and rule him out of the World Cup this summer.`\
+`The injury is expected to see the 25-year-old sidelined for up to a year.`\
 https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
 
 **Man United hire ex-Spurs scout to talent spot in under-21 market**\
