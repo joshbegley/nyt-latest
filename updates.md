@@ -1,3 +1,7 @@
+**Trump Says He Doesn’t Know Who Will Be Iran’s Next Leader**\
+`During a bilateral meeting with Chancellor Friedrich Merz of Germany, President Trump said that the likely candidates to lead Iran were killed in the U.S.-Israeli bombing campaign.`\
+https://nytimes.com/video/us/100000010750252/trump-iran-leader-war.html
+
 **Prime Tire: My doubts ahead of the season opener**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7084405/2026/03/03/f1-season-opener-2026-doubts-beliefs-prime-tire/
