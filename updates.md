@@ -1,3 +1,7 @@
+**Trae Young endears himself to teammates, fans by getting ejected from Wizards' bench**\
+`Young was ejected for stepping onto the court while arguing with a game official. `\
+https://nytimes.com/athletic/7082660/2026/03/02/trae-young-ejected-wizards-rockets-game/
+
 **OpenAI Amends A.I. Deal With the Pentagon**\
 `The new pact includes additional protections to prevent the use of the company’s technology for mass surveillance of Americans.`\
 https://nytimes.com/2026/03/02/technology/openai-pentagon-deal-amended-surveillance.html
