@@ -1,3 +1,31 @@
+**Iranians Viewed by U.S. as Potential Leaders Died in Strikes, Trump Says**\
+`With the future of Iran deeply uncertain, President Trump acknowledged that it could end up with a ruler “as bad” as Ayatollah Ali Khamenei.`\
+https://nytimes.com/2026/03/03/world/middleeast/iranian-leaders-trum.html
+
+**Ayatollah Ali Khamenei’s Son Emerges as Leading Choice to Be His Successor**\
+`If Mojtaba Khamenei is chosen by Iran’s senior clinics, it may signal a victory for hard-liners, an analyst said.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-mojtaba-khamenei-successor.html
+
+**Travelers, How Has the Iran Conflict Affected You? Tell Us Your Story.**\
+`Drones and missiles have closed airports and caused chaos across the Middle East since the U.S. and Israel attacked Iran on Saturday. We want to hear from affected travelers.`\
+https://nytimes.com/2026/03/03/travel/iran-conflict-travel-impact-callout.html
+
+**Trump Struck Iran Because He Sensed Weakness**\
+`Has his unerring instinct for vulnerability finally failed him?`\
+https://nytimes.com/2026/03/03/opinion/iran-trump.html
+
+**How The Times Reports Live Election Results and Calls Races**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/how-the-times-reports-live-election-results-and-calls-races
+
+**Nearly 900 People Have Been Killed in Fighting in the Middle East**\
+`The vast majority of deaths reported so far have been in Iran, but the human toll is being felt around the world.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-war-death-toll-mideast.html
+
+**Mets to renew top prospect Jonah Tong's 2026 contract at league minimum**\
+`Tong is a pre-arbitration player, meaning clubs can set the salary of a player if the two sides don't come to an agreement.`\
+https://nytimes.com/athletic/7084536/2026/03/03/mets-jonah-tong-2026-contract-renew/
+
 **Columbia Is Investigated for Handling of Sex-Abuse Claims Against Doctor**\
 `Attorney General Letitia James is investigating the university for its actions after the 2012 arrest of Robert Hadden, a former Columbia gynecologist convicted of sex crimes.`\
 https://nytimes.com/2026/03/03/nyregion/columbia-hadden-sexual-assault-investigation.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
 **Trinity Rodman back training with USWNT after injury in SheBelieves Cup opener**\
 `Coach Emma Hayes said Rodman remained with the team ahead of a crucial match against Canada, while Defender Lilly Reale returned to Gotham.`\
 https://nytimes.com/athletic/7084675/2026/03/03/trinity-rodman-uswnt-shebelieves-cup-back-injury/
-
-**Barcelona knocked out of Copa del Rey by Atletico despite 3-0 second leg win**\
-`Barcelona entered the second leg trailing 4-0 on aggregate, before a double from Marc Bernal and a Raphinha penalty gave the Camp Nou hope.`\
-https://nytimes.com/athletic/7084725/2026/03/03/barcelona-atletico-madrid-copa-del-rey/
-
-**Texas Voters Head to Polls in Highly Anticipated Primaries**\
-`Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning seats.`\
-https://nytimes.com/video/us/elections/100000010750904/texas-primary-election-midterms.html
-
-**Villa's Konsa avoids club fine for angry exchange with supporters**\
-`Konsa had to be restrained from approaching Villa's away section by security staff after the 2-0 defeat to Wolves.`\
-https://nytimes.com/athletic/7083452/2026/03/03/ezri-konsa-villa-fans-wolves-fine/
-
-**Phillies' Johan Rojas facing an 80-game suspension for PED violation**\
-`Rojas tested positive for a PED in the offseason and is appealing the results of the test. He is no longer on the D.R. roster for the WBC.`\
-https://nytimes.com/athletic/7081294/2026/03/03/johan-rojas-mlb-ped-suspension-appeal-phillies/
-
-**The Briefing: Wolves 2 Liverpool 1 – Sluggish start and painful finish dent Champions League hopes**\
-`Andre's deflected strike in the 94th minute won the game, but Arne Slot's side looked sluggish throughout`\
-https://nytimes.com/athletic/7083478/2026/03/03/wolves-2-liverpool-1/
-
-**Until Saturday: College sports' best current dynasty?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7084712/2026/03/03/college-sports-dynasties-until-saturday/
-
-**‘Cheap’ and ‘Appalling’: Trump’s Ballroom Plans Receive a Flood of Negative Comments**\
-`The National Capital Planning Commission received about 32,000 messages during its public comment period. Suffice it to say: Many people are not happy with the president’s ballroom plans.`\
-https://nytimes.com/2026/03/03/us/politics/trump-ballroom-comments.html
 
