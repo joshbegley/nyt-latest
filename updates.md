@@ -1,3 +1,15 @@
+**Braves' Profar facing 162-game suspension for second PED violation: Source**\
+`Profar missed the first 80 games of the 2025 season due to a positive test for performance enhancing drugs. `\
+https://nytimes.com/athletic/7083768/2026/03/03/atlanta-braves-jurickson-profar-suspension/
+
+**Trump, Iran and a Host of Questions**\
+`Questions about the future of the attack on Iran, and other reader perspectives. Also: Drug ads as a resource for patients.`\
+https://nytimes.com/2026/03/03/opinion/trump-iran-war.html
+
+**Epstein, ‘Lolita’ and a Culture of Disembodiment**\
+`Disturbing images released in the Epstein files showing passages from Nabokov’s infamous novel written on bodies exemplify a world where women and girls are treated as objects for consumption.`\
+https://nytimes.com/2026/03/03/style/epstein-files-lolita-photographs.html
+
 **Jon Rahm explains why he rejected DP World Tour deal over 'extortion' claims**\
 `Rahm said that he would have agreed had the DP World Tour not required him to play additional events above the minimum of four.`\
 https://nytimes.com/athletic/7083516/2026/03/03/jon-rahm-rejects-dp-word-tour-extortion/
