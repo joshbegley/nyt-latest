@@ -1,3 +1,7 @@
+**Flamengo sack Filipe Luis three months after Copa Libertadores and league double**\
+`The 40-year-old signed a contract extension in December through to late 2027 but has been sacked just three months later.`\
+https://nytimes.com/athletic/7082910/2026/03/03/filipe-luis-flamengo-sacked/
+
 **Vancouver Whitecaps and MLS to pay out $347k settlement after Lionel Messi absence**\
 `Messi did not play in a game against the Vancouver Whitecaps in May 2024`\
 https://nytimes.com/athletic/7082743/2026/03/03/vancouver-mls-lionel-messi-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7082207/2026/03/03/fantasy-premier-league-live-qa-g
 **Welbeck agrees one-year Brighton contract extension**\
 `Welbeck has scored in successive league wins at Brentford and at home to Nottingham Forest to reach ten goals in consecutive seasons.`\
 https://nytimes.com/athletic/7082881/2026/03/03/danny-welbeck-brighton-contract-new/
-
-**Late Night Tunes In to Operation Epic Fury: Live from Mar-a-Lago**\
-`The military operation’s name “is different from its original title, which was ‘Operation Epstein-o Distract-o,’” Jimmy Kimmel said.`\
-https://nytimes.com/2026/03/03/arts/television/late-night-epic-fury-trump.html
 
