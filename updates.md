@@ -1,3 +1,19 @@
+**An Iranian Nuclear Site Avoids New Airstrikes, for Now**\
+`The Isfahan facility, suspected of storing a cache of enriched uranium, was smashed during the 12-day campaign last June.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-nuclear-site-isfahan-airstrikes-spared.html
+
+**Tigers owner Chris Ilitch talks Tarik Skubal, paying CBT tax and more: Q&A**\
+`Ilitch gave a rare interview Tuesday during the Tigers' trip to the Dominican Republic.`\
+https://nytimes.com/athletic/7083765/2026/03/03/qa-tigers-owner-chris-ilitch-tarik-skubal/
+
+**In Texas, Talarico Tries a Message of Love**\
+`James Talarico, a Democratic candidate for the U.S. Senate, is embracing a compassionate campaign approach in a bare-knuckled political environment.`\
+https://nytimes.com/2026/03/03/us/elections/james-talarico-texas-senate-primary.html
+
+**You Break It, You Own It? Not for Trump When It Comes to Iran**\
+`“We’ll see what happens with the people,” President Trump said as he appeared to be distancing himself from the longer-term consequences of the war in Iran.`\
+https://nytimes.com/2026/03/03/us/politics/trump-iran-ownership.html
+
 **Hamnet, Hamlet and Oscar Wao: Three Lost Boys Across Time**\
 `In the stage versions of two beloved books, the most impressive moments emerge when the productions stray from the source material.`\
 https://nytimes.com/2026/03/03/theater/hamnet-oscar-wao-chicago-shakespeare-goodman.html
