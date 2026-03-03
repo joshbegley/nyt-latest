@@ -1,3 +1,19 @@
+**Phillies' Johan Rojas facing an 80-game suspension for PED violation**\
+`Rojas tested positive for a PED in the offseason and is appealing the results of the test. He is no longer on the D.R. roster for the WBC.`\
+https://nytimes.com/athletic/7081294/2026/03/03/johan-rojas-mlb-ped-suspension-appeal-phillies/
+
+**The Briefing: Wolves 2 Liverpool 1 - Sluggish start and painful finish dent Champions League hopes**\
+`Liverpool fell to a late defeat after conceding in added to lose 2-1 to Wolverhampton Wanderers`\
+https://nytimes.com/athletic/7083478/2026/03/03/wolves-2-liverpool-1/
+
+**Until Saturday: College sports' best current dynasty?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7084712/2026/03/03/college-sports-dynasties-until-saturday/
+
+**‘Cheap’ and ‘Appalling’: Trump’s Ballroom Plans Receive a Flood of Negative Comments**\
+`The National Capital Planning Commission received about 32,000 messages during its public comment period. Suffice it to say: Many people are not happy with the president’s ballroom plans.`\
+https://nytimes.com/2026/03/03/us/politics/trump-ballroom-comments.html
+
 **Trump Letter to Congress Justifying Iran Strikes Outlines No Imminent Threat**\
 `The president told lawmakers that the objective of the assault was to “neutralize Iran’s malign activities,” but did not present evidence of immediate plans by Tehran to attack the United States.`\
 https://nytimes.com/2026/03/03/world/middleeast/trump-congress-letter-iran-strikes.html

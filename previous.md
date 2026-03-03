@@ -1,3 +1,19 @@
+**Phillies' Johan Rojas facing an 80-game suspension for PED violation**\
+`Rojas tested positive for a PED in the offseason and is appealing the results of the test. He is no longer on the D.R. roster for the WBC.`\
+https://nytimes.com/athletic/7081294/2026/03/03/johan-rojas-mlb-ped-suspension-appeal-phillies/
+
+**The Briefing: Wolves 2 Liverpool 1 - Sluggish start and painful finish dent Champions League hopes**\
+`Liverpool fell to a late defeat after conceding in added to lose 2-1 to Wolverhampton Wanderers`\
+https://nytimes.com/athletic/7083478/2026/03/03/wolves-2-liverpool-1/
+
+**Until Saturday: College sports' best current dynasty?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7084712/2026/03/03/college-sports-dynasties-until-saturday/
+
+**‘Cheap’ and ‘Appalling’: Trump’s Ballroom Plans Receive a Flood of Negative Comments**\
+`The National Capital Planning Commission received about 32,000 messages during its public comment period. Suffice it to say: Many people are not happy with the president’s ballroom plans.`\
+https://nytimes.com/2026/03/03/us/politics/trump-ballroom-comments.html
+
 **Trump Letter to Congress Justifying Iran Strikes Outlines No Imminent Threat**\
 `The president told lawmakers that the objective of the assault was to “neutralize Iran’s malign activities,” but did not present evidence of immediate plans by Tehran to attack the United States.`\
 https://nytimes.com/2026/03/03/world/middleeast/trump-congress-letter-iran-strikes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/03/arts/music/live-nation-antitrust-trial.html
 **How the Iran War Is Choking Off the World’s Oil and Gas**\
 `One-fifth of the global oil supply and substantial amounts of natural gas travel through the Strait of Hormuz, which has become a no-go zone for many tankers as fighting continues.`\
 https://nytimes.com/interactive/2026/03/03/business/iran-war-oil-gas-strait-of-hormuz.html
-
-**President Trump says he ‘doesn’t care’ if Iran plays at World Cup in North America**\
-`Iran has qualified, and is scheduled to play matches in Los Angeles and Seattle.`\
-https://nytimes.com/athletic/7084588/2026/03/03/trump-iran-world-cup-2026/
-
-**Rubio Walks Back Suggestion That Israel Forced U.S. Hand in Iran Strikes**\
-`A day earlier, the secretary of state had said that the decision to attack Iran was based on knowledge that Israel was going to strike, and an assumption that Iran would target U.S. forces as a result.`\
-https://nytimes.com/2026/03/03/world/middleeast/israel-iran-strikes-rubio.html
-
-**Trump Says U.S. Navy Might Escort Tankers in Persian Gulf**\
-`Shipping companies are not sending oil and gas through the Strait of Hormuz because they fear their ships might be attacked.`\
-https://nytimes.com/2026/03/03/world/middleeast/trump-tankers-hormuz.html
-
-**Texas Primary Election Results**\
-`Get live results and maps from the 2026 Texas primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-texas-primary.html
 
