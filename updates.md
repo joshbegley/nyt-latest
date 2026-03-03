@@ -1,3 +1,11 @@
+**Leicester announce new senior management structure**\
+`Finance director Kevin Davies and director of football Jon Rudkin have assumed new roles. James McCarron is the new sporting director.`\
+https://nytimes.com/athletic/7083127/2026/03/03/leicester-senior-management-structure/
+
+**U.S. and Israel Striking Iran Security Agencies That Helped Crush Protests**\
+`Their attacks have targeted police stations and intelligence bases in what may be part of a plan to encourage Iranians to rise up against the government, experts say.`\
+https://nytimes.com/2026/03/03/world/middleeast/us-israel-strikes-iran-state-security-police.html
+
 **Experiment Shows Possibility of Martian Microbes Hitching a Ride to Earth**\
 `Hearty bacteria in a lab survived pressures comparable to an asteroid strike on the red planet, suggesting a hypothetical scenario in which our planet was seeded with life.`\
 https://nytimes.com/2026/03/03/science/microbes-mars-life-asteroid.html
