@@ -1,3 +1,7 @@
+**The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
+`Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
+https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
+
 **Alex Bregman's presence as the right player at the right time sets the tone**\
 `Midway through the spring, the Cubs have a different outlook, a higher level of expectations and a noticeable lack of drama.`\
 https://nytimes.com/athletic/7082564/2026/03/03/chicago-cubs-alex-bregman-tone-setter/
