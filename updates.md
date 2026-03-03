@@ -1,3 +1,7 @@
+**Whew! Blue Jackets cough up 4-0 lead, but rally to win on Marchenko's OT goal**\
+`"This is the first time I've seen this," said new coach Rick Bowness. "But I learned a lot, and that's a good thing."`\
+https://nytimes.com/athletic/7082560/2026/03/02/blue-jackets-third-period-bowness-marchenko-rangers/
+
 **In Dimes Square, a Party Where Toothpicks Were Crucial**\
 `The Basque-inspired Eel Bar hosted a pintxos-forward reunion for friends and fellow business owners.`\
 https://nytimes.com/2026/03/02/t-magazine/eel-bar-party-pintxos.html
