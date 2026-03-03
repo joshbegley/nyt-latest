@@ -1,3 +1,23 @@
+**The Third Victim in the Austin Shooting Had Just Moved From Minnesota**\
+`Family and friends on Tuesday paid tribute to Jorge Pederson, 30, and the two others who were killed in the attack outside a bar in Texas.`\
+https://nytimes.com/2026/03/03/us/jorge-pederson-austin-bar-shooting.html
+
+**How to watch Vanderbilt vs. Ole Miss men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084232/2026/03/03/vanderbilt-vs-ole-miss-stream-how-to-watch-march-3/
+
+**How to watch Purdue Fort Wayne vs. Green Bay men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Fort Wayne Mastodons play the Green Bay Phoenix, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084227/2026/03/03/purdue-fort-wayne-vs-green-bay-stream-how-to-watch-march-3/
+
+**How to watch Kansas vs. Arizona State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084223/2026/03/03/kansas-vs-arizona-state-stream-how-to-watch-march-3/
+
+**How to watch UL Monroe vs. Old Dominion men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the UL Monroe Warhawks play the Old Dominion Monarchs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084216/2026/03/03/ul-monroe-vs-old-dominion-stream-how-to-watch-march-3/
+
 **Here’s where Israel warned people to evacuate in southern Lebanon.**\
 `By Elena Shao`\
 https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/lebanon-evacuation-map
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/03/business/target-stores-investment-payrolls.html
 **Vikings open to trading Pro Bowl edge rusher Jonathan Greenard: Sources**\
 `The Vikings are reportedly open to trading former Pro Bowl edge rusher after he asked for more money.`\
 https://nytimes.com/athletic/7083858/2026/03/03/vikings-jonathan-greenard-trade-contract/
-
-**Who Could Profit From an Energy Crisis?**\
-`A protracted conflict in the Middle East could seriously disrupt energy markets.`\
-https://nytimes.com/2026/03/03/climate/iran-energy-crisis-climate.html
-
-**Why the Bengals didn't attempt a tag-trade for Trey Hendrickson**\
-`The star edge rusher hits the open market after a tumultuous few years of contract haggling.`\
-https://nytimes.com/athletic/7081874/2026/03/03/bengals-trey-hendrickson-tag-deadline/
-
-**The Great Lie of War**\
-`Ben Rhodes, a contributing Times Opinion writer, discusses why Trump waged war on Iran — and why his predecessors didn’t dare to.`\
-https://nytimes.com/video/opinion/100000010746926/trumps-head-on-a-pike-foreign-policy.html
-
-**‘Beyond the pale’: More than $10 million has been spent in one N.C. primary.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/state-senate-republican-primary-spending
-
-**How Anonymous Bettors Cashed In on the Iran Strike, Just Hours Before It Happened**\
-`Polymarket users placed hundreds of bets of at least $1,000 predicting an imminent American strike, raising concerns about insider trading.`\
-https://nytimes.com/2026/03/03/upshot/prediction-markets-iran-strikes.html
 

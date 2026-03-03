@@ -1,3 +1,23 @@
+**The Third Victim in the Austin Shooting Had Just Moved From Minnesota**\
+`Family and friends on Tuesday paid tribute to Jorge Pederson, 30, and the two others who were killed in the attack outside a bar in Texas.`\
+https://nytimes.com/2026/03/03/us/jorge-pederson-austin-bar-shooting.html
+
+**How to watch Vanderbilt vs. Ole Miss men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084232/2026/03/03/vanderbilt-vs-ole-miss-stream-how-to-watch-march-3/
+
+**How to watch Purdue Fort Wayne vs. Green Bay men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Fort Wayne Mastodons play the Green Bay Phoenix, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084227/2026/03/03/purdue-fort-wayne-vs-green-bay-stream-how-to-watch-march-3/
+
+**How to watch Kansas vs. Arizona State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084223/2026/03/03/kansas-vs-arizona-state-stream-how-to-watch-march-3/
+
+**How to watch UL Monroe vs. Old Dominion men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the UL Monroe Warhawks play the Old Dominion Monarchs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7084216/2026/03/03/ul-monroe-vs-old-dominion-stream-how-to-watch-march-3/
+
 **Here’s where Israel warned people to evacuate in southern Lebanon.**\
 `By Elena Shao`\
 https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/lebanon-evacuation-map
