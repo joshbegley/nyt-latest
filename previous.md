@@ -1,40 +1,40 @@
-**A Burst of Memories Takes Her Back to an Impossible Age: 16**\
-`In Vigdis Hjorth’s novel “Repetition,” a writer recalls a pivotal period of transformation, sex and family crises.`\
-https://nytimes.com/2026/03/03/books/review/vigdis-hjorth-repetition.html
+**How to watch Lipscomb vs. Austin Peay women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Lipscomb Bisons play the Austin Peay Governors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7082983/2026/03/03/lipscomb-vs-austin-peay-stream-how-to-watch-march-3/
 
-**Estêvão proving popular among collectors heading into World Cup**\
-`Card collectors in London are predicting success for the young Brazilian at the World Cup and beyond. `\
-https://nytimes.com/athletic/7081130/2026/03/03/estevao-rookie-cards-chelsea-brazil/
+**Brighton's Hurzeler says Arsenal take too long over corners**\
+`The head coach called for a "clear rule" to be made for "how much time you can waste" from a dead ball situation.`\
+https://nytimes.com/athletic/7082974/2026/03/03/brighton-arsenal-corners-hurzeler/
 
-**A Woman’s Dream House Turns Into a Nightmare**\
-`In “The Valley of Vengeful Ghosts,” a therapist’s home turns into a nightmare manifestation of her sadness and grief.`\
-https://nytimes.com/2026/03/03/books/review/the-valley-of-vengeful-ghosts-kim-fu.html
+**No Empire. No Kings.**\
+`Donald Trump’s foreign policy vision is imperialism`\
+https://nytimes.com/2026/03/03/opinion/trump-imperialism-america.html
 
-**NBA MVP odds: 1 stat could determine the winner**\
-`The NBA MVP race is a muddled mess because of the league's 65-game minimum for players to be considered for awards.`\
-https://nytimes.com/athletic/7081712/2026/03/03/nba-mvp-odds-sga-jokic-wemby/
+**Democratic Primary Challengers Begin Their Push for Generational Change**\
+`Starting in North Carolina on Tuesday, older House Democrats face a test of their staying power and the appetite of voters to replace them.`\
+https://nytimes.com/2026/03/03/us/politics/texas-north-carolina-older-democrats.html
 
-**Rochester, N.Y.: A New Lens on the City of Kodak**\
-`The Finger Lakes region city is diversifying beyond its industrial roots.`\
-https://nytimes.com/2026/03/03/realestate/rochester-ny-real-estate-guide.html
+**Picasso? How About Pippen Instead?**\
+`Sotheby’s, now in the former Whitney Museum on the Upper East Side, is auctioning off Scottie Pippen’s basketball memorabilia.`\
+https://nytimes.com/2026/03/03/nyregion/sothebys-scottie-pippen-auction.html
 
-**Should I Get Into Vinyl Records?**\
-`There are plenty of reasons to consider collecting and playing LPs of your favorite music. Saving money isn’t one of them.`\
-https://nytimes.com/2026/03/03/arts/music/vinyl-records-collecting.html
+**Despite Promises, Veterans Affairs Department Cut Thousands of Roles for Doctors and Nurses**\
+`The Trump administration has eliminated health care positions left vacant after a wave of resignations and retirements at the V.A. last year.`\
+https://nytimes.com/2026/03/03/us/politics/veterans-affairs-nurses-doctors-cut.html
 
-**Get a Dog, Live Longer?**\
-`Research suggests pets keep you healthier. But there are some caveats.`\
-https://nytimes.com/2026/03/03/well/pet-longevity-health-benefits.html
+**The Reason Gen Z Isn’t Dating**\
+`Clavicular is a symptom of a larger disease.`\
+https://nytimes.com/2026/03/03/opinion/gen-z-dating-clavicular.html
 
-**Israeli Forces Advance in Lebanon and Seize Land, as Hezbollah’s Fight Escalates**\
-`The Israeli military said troops advanced to protect border towns from Hezbollah attacks, spurring fears that the government is weighing a wider ground war.`\
-https://nytimes.com/2026/03/03/world/middleeast/israeli-forces-in-lebanon.html
+**Tariffs Confound Small Businesses Again**\
+`Chocolate makers and fig-paste importers are facing a tangle of unknowns, including whether to seek refunds for tariffs invalidated by the Supreme Court.`\
+https://nytimes.com/2026/03/03/business/economy/tariffs-small-business-confusion-refunds.html
 
-**Flamengo sack Filipe Luis three months after Copa Libertadores and league double**\
-`The 40-year-old signed a contract extension in December through to late 2027 but has been sacked just three months later.`\
-https://nytimes.com/athletic/7082910/2026/03/03/filipe-luis-flamengo-sacked/
+**The Met Opera Gambles on a Visionary Director for Its New ‘Tristan’**\
+`Yuval Sharon, known for his bold approach to opera, is making his Met debut with what he has called “the single hardest work” to stage.`\
+https://nytimes.com/2026/03/03/arts/music/met-opera-tristan-und-isolde.html
 
-**Vancouver Whitecaps and MLS to pay out $347k settlement after Lionel Messi absence**\
-`Messi did not play in a game against the Vancouver Whitecaps in May 2024`\
-https://nytimes.com/athletic/7082743/2026/03/03/vancouver-mls-lionel-messi-2024/
+**These Men Want to Know Their ‘Sexual Market Value’**\
+`The idea of putting a dollar figure on attractiveness has bubbled up from obscure corners of the internet.`\
+https://nytimes.com/2026/03/03/style/these-men-want-to-know-their-sexual-market-value.html
 

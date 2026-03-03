@@ -1,3 +1,15 @@
+**U.S. Closes Embassies in Saudi Arabia and Kuwait**\
+`The State Department also ordered nonessential staff in the United Arab Emirates, Qatar, Bahrain, Jordan and Iraq to to leave amid further retaliation from Iran.`\
+https://nytimes.com/2026/03/03/world/middleeast/us-closes-embassies-in-saudi-arabia-and-kuwait.html
+
+**2026 MLB Draft ranking 1.0: Roch Cholowsky leads the top 30 prospects**\
+`This year's MLB Draft class has a clearcut favorite for the No. 1 pick, UCLA's Roch Cholowsky. It's also deep in high school pitching.`\
+https://nytimes.com/athletic/7078205/2026/03/03/2026-mlb-draft-ranking-roch-cholowsky/
+
+**How to watch Appalachian State vs. South Alabama women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Appalachian State Mountaineers play the South Alabama Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7082985/2026/03/03/appalachian-state-vs-south-alabama-stream-how-to-watch-march-3/
+
 **How to watch Lipscomb vs. Austin Peay women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Lipscomb Bisons play the Austin Peay Governors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7082983/2026/03/03/lipscomb-vs-austin-peay-stream-how-to-watch-march-3/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/veterans-affairs-nurses-doctors-cut.h
 **The Reason Gen Z Isn’t Dating**\
 `Clavicular is a symptom of a larger disease.`\
 https://nytimes.com/2026/03/03/opinion/gen-z-dating-clavicular.html
-
-**Tariffs Confound Small Businesses Again**\
-`Chocolate makers and fig-paste importers are facing a tangle of unknowns, including whether to seek refunds for tariffs invalidated by the Supreme Court.`\
-https://nytimes.com/2026/03/03/business/economy/tariffs-small-business-confusion-refunds.html
-
-**The Met Opera Gambles on a Visionary Director for Its New ‘Tristan’**\
-`Yuval Sharon, known for his bold approach to opera, is making his Met debut with what he has called “the single hardest work” to stage.`\
-https://nytimes.com/2026/03/03/arts/music/met-opera-tristan-und-isolde.html
-
-**These Men Want to Know Their ‘Sexual Market Value’**\
-`The idea of putting a dollar figure on attractiveness has bubbled up from obscure corners of the internet.`\
-https://nytimes.com/2026/03/03/style/these-men-want-to-know-their-sexual-market-value.html
 
