@@ -1,3 +1,7 @@
+**The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
+`Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
+https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
+
 **Alex Bregman's presence as the right player at the right time sets the tone**\
 `Midway through the spring, the Cubs have a different outlook, a higher level of expectations and a noticeable lack of drama.`\
 https://nytimes.com/athletic/7082564/2026/03/03/chicago-cubs-alex-bregman-tone-setter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7081795/2026/03/03/ncaa-tournament-bracket-projecti
 **Arizona secures Big 12 championship in what felt like a dress rehearsal**\
 `It's not January or February anymore. It’s March, the time for teams to accelerate and round into championship form. Arizona is there. `\
 https://nytimes.com/athletic/7082852/2026/03/03/arizona-big-12-championship-dress-rehearsal/
-
-**World Cup 2026 stadium guides: Welcome to Dallas Stadium, home of the Cowboys**\
-`One of America’s most famous stadiums will be a key part of the World Cup, with a semi-final there and two of Argentina's group games`\
-https://nytimes.com/athletic/7072209/2026/03/03/world-cup-texas-stadium-guide-dallas-cowboys-jerry-jones/
 
