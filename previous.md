@@ -1,3 +1,19 @@
+**A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
+`In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
+https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html
+
+**Trump Administration Live Updates: Senate Panel Expected to Grill Noem Over Homeland Security Shutdown and Iran**\
+``\
+https://nytimes.com/live/2026/03/03/us/trump-news-updates
+
+**Chargers first-round NFL draft options: 14 prospects among 5 positions of need**\
+`Free agency could change the Chargers' approach, but edge rusher and interior offensive line stand as two positions to watch.`\
+https://nytimes.com/athletic/7082245/2026/03/03/chargers-2026-nfl-draft-first-round-big-board/
+
+**New coach D.J. Smith looking to inject energy, 'swagger' into the Kings**\
+`Smith's first game after replacing Jim Hiller was a loss to the Avalanche, but his Kings mustered plenty of heart and passion.`\
+https://nytimes.com/athletic/7082967/2026/03/03/dj-smith-kings-interim-coach-avalanche/
+
 **Darius Garland eases into Clippers debut, then helps lead comeback win**\
 `Garland had 12 points against the Warriors in his first game since being traded from the Cavaliers for James Harden last month.`\
 https://nytimes.com/athletic/7082987/2026/03/03/nba-clippers-darius-garland-debut/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7083067/2026/03/03/aston-martin-honda-f1-engine-pro
 **Weekly Student News Quiz: Blizzard, War, Monkey**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
-
-**Premier League relegation analysis: Another big week at the bottom**\
-`Analysis of the latest dropzone drama ahead of a crucial midweek round of games`\
-https://nytimes.com/athletic/7069901/2026/03/03/premier-league-relegation-analysis-spurs-leeds-west-ham-forest/
-
-**The Midterms Begin During War**\
-`We’re following the first primaries of the midterm elections.`\
-https://nytimes.com/2026/03/03/briefing/the-midterms-begin-during-war.html
-
-**North Carolina Democrats Hope an Ex-Governor Can Beat Trump’s Senate Pick**\
-`The heavy favorites in the Senate primary are former Gov. Roy Cooper, a moderate Democrat, and Michael Whatley, a former chairman of the Republican National Committee.`\
-https://nytimes.com/2026/03/03/us/elections/north-carolina-democrats-hope-an-ex-governor-can-beat-trumps-senate-pick.html
-
-**Yankees' Spencer Jones is swinging like Shohei Ohtani. Yes, it's intentional**\
-`"Who else is tall, left-handed and uses a toe-down approach?" After analyzing his struggles, Jones and his coaches opted to emulate Ohtani. `\
-https://nytimes.com/athletic/7082270/2026/03/03/spencer-jones-yankees-ohtani-swing/
 
