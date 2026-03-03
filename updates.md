@@ -1,3 +1,11 @@
+**Minnesota Sues Federal Government Over Withheld Medicaid Funds**\
+`The Trump administration cited widespread fraud in state social service programs. Minnesota officials said they were victims of “political punishment.”`\
+https://nytimes.com/2026/03/03/us/minnesota-medicaid-trump-lawsuit-fraud.html
+
+**A Starry Young Conductor’s Tour Reveals His Talents and Faults**\
+`The Chicago Symphony Orchestra has placed a huge bet on Klaus Mäkelä for its future. It’s still too soon to tell whether that will pay off.`\
+https://nytimes.com/2026/03/03/arts/music/klaus-makela-chicago-symphony.html
+
 **MrBeast Is Getting Into Financial Services. Parents Should Pay Attention.**\
 `Beast Industries has acquired a banklike app for young people and could eventually offer a variety of financial services, including crypto.`\
 https://nytimes.com/2026/03/03/business/mrbeast-step-banking-crypto.html

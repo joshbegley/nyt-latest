@@ -1,3 +1,11 @@
+**Minnesota Sues Federal Government Over Withheld Medicaid Funds**\
+`The Trump administration cited widespread fraud in state social service programs. Minnesota officials said they were victims of “political punishment.”`\
+https://nytimes.com/2026/03/03/us/minnesota-medicaid-trump-lawsuit-fraud.html
+
+**A Starry Young Conductor’s Tour Reveals His Talents and Faults**\
+`The Chicago Symphony Orchestra has placed a huge bet on Klaus Mäkelä for its future. It’s still too soon to tell whether that will pay off.`\
+https://nytimes.com/2026/03/03/arts/music/klaus-makela-chicago-symphony.html
+
 **MrBeast Is Getting Into Financial Services. Parents Should Pay Attention.**\
 `Beast Industries has acquired a banklike app for young people and could eventually offer a variety of financial services, including crypto.`\
 https://nytimes.com/2026/03/03/business/mrbeast-step-banking-crypto.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083343/2026/03/03/aj-dybantsa-nba-mock-draft-giann
 **Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
 `The injury is expected to see the 25-year-old sidelined for up to a year.`\
 https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
-
-**Man United hire ex-Spurs scout to talent spot in under-21 market**\
-`Ian Broomfield, 75, was most recently employed by Tottenham Hotspur as head of scouting.`\
-https://nytimes.com/athletic/7083361/2026/03/03/manchester-united-ian-broomfield-scout/
-
-**Coach K on March Madness expansion: Don't ‘mess with something that’s gold’**\
-`“There are less teams capable right now than ever before, and there’s many have-nots, and it’s not their fault,” Krzyzewski said.`\
-https://nytimes.com/athletic/7083268/2026/03/03/coach-k-ncaa-tournament-expansion/
 
