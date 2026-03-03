@@ -1,3 +1,15 @@
+**Row Z: VAR's end game, club-shop gems and a strange tunnel smell**\
+`Tim Spiers takes a look at some of the more unusual stories from the past week in football`\
+https://nytimes.com/athletic/7068782/2026/03/03/row-z-var-club-shop-snoop-dogg/
+
+**Welcome to Wolves, home of Gomes, Gomes, Gomes and Gomes**\
+`The Premier League club made history by fielding four players with the same surname on Friday, but what about keeping up with the Joneses?`\
+https://nytimes.com/athletic/7081150/2026/03/03/gomes-wolves-names-kim-burgess/
+
+**The Manchester City tactical tweak that shows Pep Guardiola is still a unique thinker**\
+`Faced with Leeds' aggressive man-marking the City boss deployed Rodri and Bernardo Silva at goal kicks – why?`\
+https://nytimes.com/athletic/7081000/2026/03/03/manchester-city-goal-kicks-rodri-bernardo-silva/
+
 **As Europe Seeks Voice in Iran War, German Leader Will Meet Trump**\
 `Chancellor Friedrich Merz’s visit to Washington, long planned, is now likely to be dominated by discussions of the attack, which Europeans did not take part in.`\
 https://nytimes.com/2026/03/03/world/europe/merz-germany-trump-iran-meeting.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/03/business/us-iran-israel-economic-fallout.html
 **Corrections: March 3, 2026**\
 `Corrections that appeared in print on Tuesday, March 3, 2026.`\
 https://nytimes.com/2026/03/03/pageoneplus/corrections-march-3-2026.html
-
-**Is a Pet Dog the Secret to Living Longer?**\
-`Research suggests dogs and other pets keep you healthier. Dana G. Smith, a reporter for Well, walks us through what exactly the science says about the connection between dogs and longevity.`\
-https://nytimes.com/video/well/live/100000010703479/is-a-pet-dog-the-secret-to-living-longer.html
-
-**Quote of the Day: India Built the World’s Back Office. A.I. Is Starting to Shrink It.**\
-`Quotation of the Day for Tuesday, March 3, 2026.`\
-https://nytimes.com/2026/03/02/pageoneplus/quote-of-the-day-india-built-the-worlds-back-office-ai-is-starting-to-shrink-it.html
-
-**‘Pray We Make It Through the Night’: Iran’s Capital Under Siege**\
-`Many residents of Tehran managed to get out of town when the U.S. and Israel attack began, but others who could not described living under bombardment.`\
-https://nytimes.com/2026/03/02/world/middleeast/iran-tehran-strikes.html
 
