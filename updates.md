@@ -1,3 +1,7 @@
+**Lutnick Agrees to Testify in House Epstein Investigation**\
+`The Commerce Secretary, who misrepresented his relationship with the convicted sex offender, has volunteered to appear, the House Oversight Committee’s leader said.`\
+https://nytimes.com/2026/03/03/us/politics/lutnick-epstein-investigation.html
+
 **A Fight About the Future of War**\
 `A.I. is already reshaping warfare, but there are big disagreements over what guardrails are needed.`\
 https://nytimes.com/2026/03/03/world/anthropic-pentagon-lebanon-miami.html
