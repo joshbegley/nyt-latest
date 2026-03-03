@@ -1,3 +1,7 @@
+**Warriors' Kristaps Porziņģis to miss fifth straight game, uncertain to travel with team**\
+`After playing 17 minutes against the Boston Celtics on Feb. 19, Porziņģis has not been able to play since.`\
+https://nytimes.com/athletic/7082520/2026/03/02/kristaps-porzingis-injury-update-warriors-pots/
+
 **In Rallies Across Texas, Senate Candidates Make Final Arguments**\
 `The Republicans John Cornyn and Ken Paxton — and the Democrats Jasmine Crockett and James Talarico — are battling in bitter and expensive races.`\
 https://nytimes.com/2026/03/02/us/elections/texas-primary-senate-midterms-argument.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7082410/2026/03/02/world-baseball-classic-team-usa-
 **Telemundo unveils its 'most ambitious' 2026 World Cup TV plans**\
 `The vast majority of matches will be on over-the-air TV, while there will be an unprecedented 700 hours of coverage overall this summer`\
 https://nytimes.com/athletic/7081909/2026/03/02/telemundo-2026-world-cup-plans-tv-games/
-
-**Red Wings find 5-on-5 scoring in big win to open crucial March: 5 thoughts**\
-`After a major lineup shakeup, the Red Wings opened March with a 4-2 win that saw some key five-on-five offense come through.`\
-https://nytimes.com/athletic/7082145/2026/03/02/detroit-red-wings-five-on-five-gibson-march-predators/
 
