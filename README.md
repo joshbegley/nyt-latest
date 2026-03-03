@@ -1,3 +1,7 @@
+**Colts place transition tag on Daniel Jones: Sources; Alec Pierce set to become free agent**\
+`Jones will make a fully guaranteed $37.8 million in 2026 if he plays on the transition tag rather than signing a long-term deal.`\
+https://nytimes.com/athletic/7082001/2026/03/03/colts-daniel-jones-transition-tag/
+
 **Target to Spend Billions to Refresh Stores, Hire Staff and Raise Pay**\
 `The new C.E.O. said the company would focus on home décor, apparel and pop culture trends in an effort to reverse years of sales declines.`\
 https://nytimes.com/2026/03/03/business/target-stores-investment-payrolls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/trump-immigration-ice-raids-safe-houses.html
 **The 3.1.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/03/the-3126-issue
-
-**As Trump Bashes Spain, the German Chancellor Piles On**\
-`Friedrich Merz has called for greater European unity, but he did not object to the president rebuking Spain and Britain in an Oval Office meeting.`\
-https://nytimes.com/2026/03/03/us/politics/trump-spain-germany-trade-military.html
 
