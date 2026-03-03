@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/03/climate/iran-energy-crisis-climate.html
 `The star edge rusher hits the open market after a tumultuous few years of contract haggling.`\
 https://nytimes.com/athletic/7081874/2026/03/03/bengals-trey-hendrickson-tag-deadline/
 
-**Trump’s Head-on-a-Pike Foreign Policy**\
+**The Great Lie of War**\
 `Ben Rhodes, a contributing Times Opinion writer, discusses why Trump waged war on Iran — and why his predecessors didn’t dare to.`\
 https://nytimes.com/video/opinion/100000010746926/trumps-head-on-a-pike-foreign-policy.html
 
