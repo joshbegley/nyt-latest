@@ -1,3 +1,7 @@
+**Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
+`Liverpool have 10 games left in this season's Premier League - how will they do?`\
+https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
+
 **The departure of Arsenal's technical director was unexpected. What does it mean for the club?**\
 `James Ellis had developed a reputation as respected leader but his departure perhaps signals a power shift at Arsenal`\
 https://nytimes.com/athletic/7075876/2026/03/03/the-departure-of-arsenals-technical-director-was-unexpected-what-does-it-mean-for-the-club/

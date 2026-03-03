@@ -1,3 +1,7 @@
+**Analysing Liverpool's run-in: Predictions, pitfalls, Champions League pointers**\
+`Liverpool have 10 games left in this season's Premier League - how will they do?`\
+https://nytimes.com/athletic/7080498/2026/03/03/liverpool-premier-league-fixtures-predictions/
+
 **The departure of Arsenal's technical director was unexpected. What does it mean for the club?**\
 `James Ellis had developed a reputation as respected leader but his departure perhaps signals a power shift at Arsenal`\
 https://nytimes.com/athletic/7075876/2026/03/03/the-departure-of-arsenals-technical-director-was-unexpected-what-does-it-mean-for-the-club/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080661/2026/03/03/premier-league-predictions-md29/
 **Row Z: VAR's end game, club-shop gems and a strange tunnel smell**\
 `Tim Spiers takes a look at some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7068782/2026/03/03/row-z-var-club-shop-snoop-dogg/
-
-**Welcome to Wolves, home of Gomes, Gomes, Gomes and Gomes**\
-`The Premier League club made history by fielding four players with the same surname on Friday, but what about keeping up with the Joneses?`\
-https://nytimes.com/athletic/7081150/2026/03/03/gomes-wolves-names-kim-burgess/
 
