@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Blizzard, War, Monkey**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
+
+**Premier League relegation analysis: Another big week at the bottom**\
+`Analysis of the latest dropzone drama ahead of a crucial midweek round of games`\
+https://nytimes.com/athletic/7069901/2026/03/03/premier-league-relegation-analysis-spurs-leeds-west-ham-forest/
+
+**The Midterms Begin During War**\
+`We’re following the first primaries of the midterm elections.`\
+https://nytimes.com/2026/03/03/briefing/the-midterms-begin-during-war.html
+
 **North Carolina Democrats Hope an Ex-Governor Can Beat Trump’s Senate Pick**\
 `The heavy favorites in the Senate primary are former Gov. Roy Cooper, a moderate Democrat, and Michael Whatley, a former chairman of the Republican National Committee.`\
 https://nytimes.com/2026/03/03/us/elections/north-carolina-democrats-hope-an-ex-governor-can-beat-trumps-senate-pick.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7080926/2026/03/03/blackhawks-player-poll-results-n
 **Why trading OEL is too good of an opportunity for the Maple Leafs to pass up**\
 `What the Leafs decide to do with the veteran defenceman could say a lot about Toronto's front office.`\
 https://nytimes.com/athletic/7081557/2026/03/03/maple-leafs-oliver-ekman-larsson-trade-future-treliving-rebuild/
-
-**Transfer portal confidential: Best classes, underwhelming teams, favorite QBs and more**\
-`Several staffers were not impressed with Florida's work. Almost everyone praised Texas Tech. QB Sam Leavitt received mixed reviews.`\
-https://nytimes.com/athletic/7072981/2026/03/03/college-football-transfer-portal-best-class-quarterbacks/
-
-**College softball power rankings: Who’s rising, who’s slipping and 4 key takeaways**\
-`Oklahoma State and Nebraska played a thrilling two-game series. OSU won the first game on a walk-off homer. The Huskers won Game 2.`\
-https://nytimes.com/athletic/7081947/2026/03/03/college-softball-power-rankings-2/
-
-**Chauncey Billups, Terry Rozier set to appear in federal court this week**\
-`There is no trial date set yet for either case, though Judge Ramon E. Reyes Jr. has said he hoped one would start this fall.`\
-https://nytimes.com/athletic/7081885/2026/03/03/nba-illegal-gambling-cases-billups-rozier/
 

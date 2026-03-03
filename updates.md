@@ -1,3 +1,15 @@
+**Weekly Student News Quiz: Blizzard, War, Monkey**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
+
+**Premier League relegation analysis: Another big week at the bottom**\
+`Analysis of the latest dropzone drama ahead of a crucial midweek round of games`\
+https://nytimes.com/athletic/7069901/2026/03/03/premier-league-relegation-analysis-spurs-leeds-west-ham-forest/
+
+**The Midterms Begin During War**\
+`We’re following the first primaries of the midterm elections.`\
+https://nytimes.com/2026/03/03/briefing/the-midterms-begin-during-war.html
+
 **North Carolina Democrats Hope an Ex-Governor Can Beat Trump’s Senate Pick**\
 `The heavy favorites in the Senate primary are former Gov. Roy Cooper, a moderate Democrat, and Michael Whatley, a former chairman of the Republican National Committee.`\
 https://nytimes.com/2026/03/03/us/elections/north-carolina-democrats-hope-an-ex-governor-can-beat-trumps-senate-pick.html
