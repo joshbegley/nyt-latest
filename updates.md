@@ -1,3 +1,7 @@
+**U.S. Releases Names of Soldiers Killed in War With Iran**\
+`Six U.S. troops were killed by an Iranian drone that exploded at a military base in Kuwait.`\
+https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
+
 **NFL franchise tag winners and losers: Cowboys' decision promises offseason drama ahead**\
 `George Pickens, Kyle Pitts and Breece Hall received the franchise tag, while the Colts used the transition tag on Daniel Jones.`\
 https://nytimes.com/athletic/7084841/2026/03/03/nfl-franchise-tag-winners-losers-2026/

@@ -6,7 +6,7 @@ https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
 `George Pickens, Kyle Pitts and Breece Hall received the franchise tag, while the Colts used the transition tag on Daniel Jones.`\
 https://nytimes.com/athletic/7084841/2026/03/03/nfl-franchise-tag-winners-losers-2026/
 
-**Here’s Who Trump Has Endorsed in the Texas Primaries**\
+**Here Are the Candidates Trump Has Endorsed in Texas**\
 `President Trump is backing numerous candidates running for re-election but has stayed quiet on a few key races.`\
 https://nytimes.com/2026/03/03/us/elections/trump-endorsements-texas-primary-elections-midterms.html
 
