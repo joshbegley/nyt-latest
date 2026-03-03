@@ -1,3 +1,7 @@
+**Iran’s Strategy: Expand the War, Increase the Cost, Outlast Trump**\
+`The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would drive up the jeopardy for President Trump in terms of casualties and political capital.`\
+https://nytimes.com/2026/03/03/world/europe/iran-war-strategy-trump-israel.html
+
 **Oil and Natural Gas Prices Extend Rally as Iran Attacks Escalates**\
 `Energy prices continued to rise on Tuesday as attacks by the United States and Israel on Iran intensified, along with the country’s response.`\
 https://nytimes.com/2026/03/03/business/energy-environment/oil-natural-gas-iran-israel-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083222/2026/03/03/atlanta-falcons-madrid-nfl-game-
 **'You have to adapt' - Guardiola likens set-piece trend to NBA 3-pointers**\
 `Guardiola likened the use of long throw-ins and holding in the penalty area in the league to the rise of three-pointers in the NBA.`\
 https://nytimes.com/athletic/7083244/2026/03/03/guardiola-man-city-set-pieces-increase/
-
-**Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
-`Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
-https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
 
