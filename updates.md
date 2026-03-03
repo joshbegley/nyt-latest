@@ -1,3 +1,23 @@
+**Jon Rahm explains why he rejected DP World Tour deal over 'extortion' claims**\
+`Rahm said that he would have agreed had the DP World Tour not required him to play additional events above the minimum of four.`\
+https://nytimes.com/athletic/7083516/2026/03/03/jon-rahm-rejects-dp-word-tour-extortion/
+
+**Congestion Pricing Wins in Court After Lengthy Battle With Trump**\
+`The victory removes a major threat to the New York City tolling program, which still faces other lawsuits.`\
+https://nytimes.com/2026/03/03/nyregion/nyc-congestion-pricing-ruling.html
+
+**Gabriel Kreuther Fires Up Alsatian Cooking at Saverne**\
+`Eddie Huang’s Baohaus makes a return, Da Toscano moves into the Iroquois Hotel and more restaurant news.`\
+https://nytimes.com/2026/03/03/dining/nyc-restaurant-news.html
+
+**Are You ‘Biohacking’ Your Diet? We Want to Hear From You.**\
+`Your responses may be used in an article that examines the growing popularity of biohacking.`\
+https://nytimes.com/2026/03/03/dining/are-you-biohacking-your-diet-we-want-to-hear-from-you.html
+
+**What Are Your Prom Dinner Plans? We Want to Hear From You.**\
+`We may want to cover your big night for a story about high school’s most important event.`\
+https://nytimes.com/2026/03/03/dining/what-are-your-prom-dinner-plans-we-want-to-hear-from-you.html
+
 **First 2-K Seats in Mamdani’s Signature Program Will Be in Diverse Areas**\
 `Mayor Zohran Mamdani has pledged to create a free, universal child care system during his tenure. On Tuesday, he announced where first wave of seats would become available for 2-year-olds.`\
 https://nytimes.com/2026/03/03/nyregion/mamdani-2k-nyc-child-care.html
