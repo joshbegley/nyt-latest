@@ -1,3 +1,7 @@
+**Absolutely Steaming**\
+`Drew Schmenner gets a head start.`\
+https://nytimes.com/2026/03/02/crosswords/daily-puzzle-2026-03-03.html
+
 **Trump’s Head-on-a-Pike Foreign Policy**\
 `The Trump administration has deposed two sitting heads of state in two months, signaling a perilous new approach to the United States’ foreign affairs, argues the Times Opinion columnist Ezra Klein. “This is head on-a-pike foreign policy.”`\
 https://nytimes.com/video/opinion/100000010746931/trumps-head-on-a-pike-foreign-policy.html
