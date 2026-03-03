@@ -1,3 +1,11 @@
+**MrBeast Is Getting Into Financial Services. Parents Should Pay Attention.**\
+`Beast Industries has acquired a banklike app for young people and could eventually offer a variety of financial services, including crypto.`\
+https://nytimes.com/2026/03/03/business/mrbeast-step-banking-crypto.html
+
+**Champions League qualification: How the race for the top five is shaping up**\
+`The Athletic assesses the Champions League qualification chances of those fighting for the top five`\
+https://nytimes.com/athletic/7083466/2026/03/03/champions-league-qualification-premier-league/
+
 **Arteta 'upset' Arsenal haven't scored more set-piece goals**\
 `Arsenal have scored 21 goals from set-pieces this season — the most in the Premier League.`\
 https://nytimes.com/athletic/7083427/2026/03/03/arsenal-premier-league-set-pieces-arsenal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083361/2026/03/03/manchester-united-ian-broomfield
 **Coach K on March Madness expansion: Don't ‘mess with something that’s gold’**\
 `“There are less teams capable right now than ever before, and there’s many have-nots, and it’s not their fault,” Krzyzewski said.`\
 https://nytimes.com/athletic/7083268/2026/03/03/coach-k-ncaa-tournament-expansion/
-
-**Iran’s Strategy: Expand the War, Increase the Cost, Outlast Trump**\
-`The Islamic Republic is aiming to draw out the conflict and broaden the fighting. That would force President Trump to risk more casualties and more political capital.`\
-https://nytimes.com/2026/03/03/world/europe/iran-war-strategy-trump-israel.html
-
-**Oil and Natural Gas Prices Extend Rally as Iran Attacks Escalates**\
-`Energy prices continued to rise on Tuesday as attacks by the United States and Israel on Iran intensified, along with the country’s response.`\
-https://nytimes.com/2026/03/03/business/energy-environment/oil-natural-gas-iran-israel-united-states.html
 
