@@ -1,3 +1,11 @@
+**OpenAI Amends A.I. Deal With the Pentagon**\
+`The new pact includes additional protections to prevent the use of the company’s technology for mass surveillance of Americans.`\
+https://nytimes.com/2026/03/02/technology/openai-pentagon-deal-amended-surveillance.html
+
+**Under Pressure from Trump, Cuban Leader Calls for ‘Urgent’ Economic Change**\
+`President Miguel Díaz-Canel said the private sector needed more autonomy, as the island confronts a U.S. oil blockade that has deepened a humanitarian crisis.`\
+https://nytimes.com/2026/03/02/world/americas/cuba-economy-change-communism.html
+
 **Seven Takeaways From the Clintons’ Epstein Depositions**\
 `Former Secretary of State Hillary Clinton was defiant. Former President Bill Clinton spoke of President Trump’s ties to Epstein. A Republican raised a conspiracy theory.`\
 https://nytimes.com/2026/03/02/us/politics/clinton-bill-hillary-epstein-deposition-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/us/elections/texas-primary-senate-midterms-argume
 **Can These Democrats Make Combative Centrism Happen?**\
 `Third Way, the moderate Democratic advocacy group and think tank, has an expansive and expensive plan to shape the 2028 presidential campaign.`\
 https://nytimes.com/2026/03/02/us/politics/democrats-centrism-2028-election.html
-
-**Trump Says He Will End Boycott of White House Correspondents’ Dinner**\
-`The mentalist Oz Pearlman is this year’s speaker. “Hopefully, it will be something very Special,” the president wrote on Truth Social.`\
-https://nytimes.com/2026/03/02/us/politics/trump-white-house-correspondents-dinner.html
-
-**All the President’s Portraits**\
-`President Trump’s image — in paint and pixels, on posters and sculptures — is ubiquitous inside the White House, and beyond.`\
-https://nytimes.com/interactive/2026/03/02/us/politics/president-trump-white-house-portraits.html
 

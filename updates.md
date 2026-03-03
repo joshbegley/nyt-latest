@@ -1,3 +1,11 @@
+**OpenAI Amends A.I. Deal With the Pentagon**\
+`The new pact includes additional protections to prevent the use of the company’s technology for mass surveillance of Americans.`\
+https://nytimes.com/2026/03/02/technology/openai-pentagon-deal-amended-surveillance.html
+
+**Under Pressure from Trump, Cuban Leader Calls for ‘Urgent’ Economic Change**\
+`President Miguel Díaz-Canel said the private sector needed more autonomy, as the island confronts a U.S. oil blockade that has deepened a humanitarian crisis.`\
+https://nytimes.com/2026/03/02/world/americas/cuba-economy-change-communism.html
+
 **Seven Takeaways From the Clintons’ Epstein Depositions**\
 `Former Secretary of State Hillary Clinton was defiant. Former President Bill Clinton spoke of President Trump’s ties to Epstein. A Republican raised a conspiracy theory.`\
 https://nytimes.com/2026/03/02/us/politics/clinton-bill-hillary-epstein-deposition-video.html
