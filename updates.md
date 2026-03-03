@@ -1,3 +1,11 @@
+**Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
+`Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
+https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
+
+**Has Your Business Been Affected by Immigration Policies? We Want to Hear From You.**\
+`The New York Times is looking to talk to business owners whose work forces are changing because of immigration policies.`\
+https://nytimes.com/2026/03/03/us/politics/immigration-business-questions.html
+
 **Leicester announce new senior management structure**\
 `Finance director Kevin Davies and director of football Jon Rudkin have assumed new roles. James McCarron is the new sporting director.`\
 https://nytimes.com/athletic/7083127/2026/03/03/leicester-senior-management-structure/

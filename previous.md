@@ -1,3 +1,11 @@
+**Macclesfield's stadium set on fire in 'suspected arson attempt', club says**\
+`Cheshire Police were informed on Tuesday of a "deliberate fire" in two portable toilets at Moss Rose and are continuing to look into it.`\
+https://nytimes.com/athletic/7083174/2026/03/03/macclesfield-stadium-fire-investigation/
+
+**Has Your Business Been Affected by Immigration Policies? We Want to Hear From You.**\
+`The New York Times is looking to talk to business owners whose work forces are changing because of immigration policies.`\
+https://nytimes.com/2026/03/03/us/politics/immigration-business-questions.html
+
 **Leicester announce new senior management structure**\
 `Finance director Kevin Davies and director of football Jon Rudkin have assumed new roles. James McCarron is the new sporting director.`\
 https://nytimes.com/athletic/7083127/2026/03/03/leicester-senior-management-structure/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082186/2026/03/03/nba-title-contenders-ranked-tier
 **A Democratic Primary in South Texas Reflects a Party at a Crossroads**\
 `In a closely watched primary in Texas’ 15th District, Democrats are divided between a progressive challenger and a more moderate contender as they seek to reclaim ground with Latino voters in a redrawn district.`\
 https://nytimes.com/2026/03/03/us/elections/texas-district-15-primary-election.html
-
-**Trump Administration Live Updates: Senate Panel Expected to Grill Noem Over Homeland Security Shutdown and Iran**\
-``\
-https://nytimes.com/live/2026/03/03/us/trump-news-updates
-
-**Chargers first-round NFL draft options: 14 prospects among 5 positions of need**\
-`Free agency could change the Chargers' approach, but edge rusher and interior offensive line stand as two positions to watch.`\
-https://nytimes.com/athletic/7082245/2026/03/03/chargers-2026-nfl-draft-first-round-big-board/
 
