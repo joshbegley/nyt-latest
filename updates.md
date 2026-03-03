@@ -1,3 +1,7 @@
+**Vancouver Whitecaps and MLS to pay out $347k settlement after Lionel Messi absence**\
+`Messi did not play in a game against the Vancouver Whitecaps in May 2024`\
+https://nytimes.com/athletic/7082743/2026/03/03/vancouver-mls-lionel-messi-2024/
+
 **Clinton Deposition Videos Released in Epstein Investigation**\
 `The House Oversight Committee released testimonies from former President Bill Clinton and former Secretary of State Hillary Clinton in the investigation into Jeffrey Epstein, the convicted sex offender.`\
 https://nytimes.com/video/us/politics/100000010748884/clinton-deposition-epstein-oversight.html
