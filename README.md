@@ -1,3 +1,7 @@
+**Lutnick Agrees to Testify in House Epstein Investigation**\
+`The Commerce Secretary, who misrepresented his relationship with the convicted sex offender, has volunteered to appear, the House Oversight Committee’s leader said.`\
+https://nytimes.com/2026/03/03/us/politics/lutnick-epstein-investigation.html
+
 **A Fight About the Future of War**\
 `A.I. is already reshaping warfare, but there are big disagreements over what guardrails are needed.`\
 https://nytimes.com/2026/03/03/world/anthropic-pentagon-lebanon-miami.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/03/us/politics/trump-iran-leaders.html
 **Trump Threatens to End Trade With Spain**\
 `His anger stems from the country’s denial of the use of its military bases to U.S. forces involved in the attack against Iran. Spain didn’t seem fazed.`\
 https://nytimes.com/2026/03/03/world/middleeast/trump-spain-trade.html
-
-**Trump Says He Doesn’t Know Who Will Be Iran’s Next Leader**\
-`During a bilateral meeting with Chancellor Friedrich Merz of Germany, President Trump said that the likely candidates to lead Iran were killed in the U.S.-Israeli bombing campaign.`\
-https://nytimes.com/video/us/100000010750252/trump-iran-leader-war.html
 
