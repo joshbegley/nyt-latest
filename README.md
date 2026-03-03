@@ -1,3 +1,15 @@
+**Prime Tire: My doubts ahead of the season opener**\
+`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
+https://nytimes.com/athletic/7084405/2026/03/03/f1-season-opener-2026-doubts-beliefs-prime-tire/
+
+**U.S. and Allies Encounter Iran’s Arsenal of Drones**\
+`The Pentagon and Middle Eastern countries say that most of the drones have been intercepted. But some have slipped through and caused damage.`\
+https://nytimes.com/2026/03/03/us/politics/us-iran-drones.html
+
+**Bears Pro Bowl center Drew Dalman retiring at age 27: Source**\
+`Dalman joined the Bears on a three-year, $42 million contract with $28 million guaranteed less than a year ago.`\
+https://nytimes.com/athletic/7084209/2026/03/03/bears-drew-dalman-retires/
+
 **Thousands in Iran Attend Burial of Children Killed in Bombing of School**\
 `There were students attending classes at the time that the school was destroyed. Some 175 people were killed by the attack on the girls’ elementary school.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-school-bombing-children.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7084368/2026/03/03/suns-vs-kings-stream-how-to-watc
 **How to watch Lightning vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7084360/2026/03/03/lightning-vs-wild-stream-how-to-watch-march-3/
-
-**How to watch Thunder vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7084341/2026/03/03/thunder-vs-bulls-stream-how-to-watch-march-3/
-
-**How to watch Canadiens vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7084336/2026/03/03/canadiens-vs-sharks-stream-how-to-watch-march-3/
-
-**How to watch Grizzlies vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7084332/2026/03/03/grizzlies-vs-timberwolves-stream-how-to-watch-march-3/
 
