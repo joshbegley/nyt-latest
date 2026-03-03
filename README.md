@@ -1,3 +1,11 @@
+**How to watch Lipscomb vs. Austin Peay women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Lipscomb Bisons play the Austin Peay Governors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7082983/2026/03/03/lipscomb-vs-austin-peay-stream-how-to-watch-march-3/
+
+**Brighton's Hurzeler says Arsenal take too long over corners**\
+`The head coach called for a "clear rule" to be made for "how much time you can waste" from a dead ball situation.`\
+https://nytimes.com/athletic/7082974/2026/03/03/brighton-arsenal-corners-hurzeler/
+
 **No Empire. No Kings.**\
 `Donald Trump’s foreign policy vision is imperialism`\
 https://nytimes.com/2026/03/03/opinion/trump-imperialism-america.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/arts/music/met-opera-tristan-und-isolde.html
 **These Men Want to Know Their ‘Sexual Market Value’**\
 `The idea of putting a dollar figure on attractiveness has bubbled up from obscure corners of the internet.`\
 https://nytimes.com/2026/03/03/style/these-men-want-to-know-their-sexual-market-value.html
-
-**What to Watch in Tuesday’s Primaries in Texas and Beyond**\
-`Midterm season is kicking off with hard-fought Senate and House primary contests that include battles over political style and ideology, age and scandal.`\
-https://nytimes.com/2026/03/03/us/politics/primaries-texas-nc-ark-what-to-watch.html
-
-**JD Vance Has His Reasons**\
-`The vice president’s political transformation from Trump skeptic to MAGA superstar has many roots.`\
-https://nytimes.com/2026/03/03/opinion/jd-vance-has-his-reasons.html
 
