@@ -1,3 +1,11 @@
+**War-Induced Inflation Spike Looms Over Europe’s Economic Recovery**\
+`For months, the region has been encouraged by low inflation and better-than-expected economic growth. A disruption to energy supplies from the Middle East could knock it off course.`\
+https://nytimes.com/2026/03/03/business/iran-oil-gas-europe-inflation-economy.html
+
+**The Windup: Greatest in the world vs. Great Britain??**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7083498/2026/03/03/tarik-skubal-world-baseball-classic-the-windup/
+
 **Minnesota Sues Federal Government Over Withheld Medicaid Funds**\
 `The Trump administration cited widespread fraud in state social service programs. Minnesota officials said they were victims of “political punishment.”`\
 https://nytimes.com/2026/03/03/us/minnesota-medicaid-trump-lawsuit-fraud.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083388/2026/03/03/nhl-trade-deadline-primer-red-li
 **Labor Secretary’s Top Aides Forced Out**\
 `The two aides to Labor Secretary Lori Chavez-DeRemer had been on leave during an investigation of misconduct at the department.`\
 https://nytimes.com/2026/03/03/us/politics/labor-secretarys-top-aides-forced-out.html
-
-**The Bounce: 10 takeaways from NBA mock draft. Plus, Giannis returns for Bucks**\
-`The Bounce Newsletter  | This is The Athletic’s daily NBA newsletter.`\
-https://nytimes.com/athletic/7083343/2026/03/03/aj-dybantsa-nba-mock-draft-giannis-the-bounce/
-
-**Madrid's Rodrygo suffers torn ACL and meniscus, set to miss World Cup with Brazil**\
-`The injury is expected to see the 25-year-old sidelined for up to a year.`\
-https://nytimes.com/athletic/7083207/2026/03/03/real-madrid-news-rodrygo-acl-injury/
 

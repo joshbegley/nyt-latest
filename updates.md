@@ -1,3 +1,11 @@
+**War-Induced Inflation Spike Looms Over Europe’s Economic Recovery**\
+`For months, the region has been encouraged by low inflation and better-than-expected economic growth. A disruption to energy supplies from the Middle East could knock it off course.`\
+https://nytimes.com/2026/03/03/business/iran-oil-gas-europe-inflation-economy.html
+
+**The Windup: Greatest in the world vs. Great Britain??**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7083498/2026/03/03/tarik-skubal-world-baseball-classic-the-windup/
+
 **Minnesota Sues Federal Government Over Withheld Medicaid Funds**\
 `The Trump administration cited widespread fraud in state social service programs. Minnesota officials said they were victims of “political punishment.”`\
 https://nytimes.com/2026/03/03/us/minnesota-medicaid-trump-lawsuit-fraud.html
