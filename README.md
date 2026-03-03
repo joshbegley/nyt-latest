@@ -1,3 +1,7 @@
+**President Trump says he ‘doesn’t care’ if Iran play at World Cup in North America**\
+`Iran has qualified, and is scheduled to play matches in Los Angeles and Seattle.`\
+https://nytimes.com/athletic/7084588/2026/03/03/trump-iran-world-cup-2026/
+
 **Rubio Walks Back Suggestion That Israel Forced U.S. Hand in Iran Strikes**\
 `A day earlier, the secretary of state had said that the decision to attack Iran was based on knowledge that Israel was going to strike, and an assumption that Iran would target U.S. forces as a result.`\
 https://nytimes.com/2026/03/03/world/middleeast/israel-iran-strikes-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7084053/2026/03/03/ny-rangers-nhl-trade-deadline-ru
 **A Costly, Bitter Senate Primary Splits Texas Republicans**\
 `The bruising contest between Senator John Cornyn and Attorney General Ken Paxton reflects a broader struggle between establishment Republicans and the party’s ascendant right flank.`\
 https://nytimes.com/2026/03/03/us/elections/texas-republican-senate-race-cornyn-paxton.html
-
-**Cardinals inform Kyler Murray they plan to release him: Sources**\
-`The decision is the first step in Arizona’s quest to find its next franchise quarterback.`\
-https://nytimes.com/athletic/7084465/2026/03/03/kyler-murray-released-cardinals-nfl-free-agency/
 
