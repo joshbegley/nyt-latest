@@ -1,3 +1,7 @@
+**Supreme Court Sides With Religious Parents, Blocking California’s Trans Student Policy**\
+`Christian teachers and parents challenged the state’s policies, which they say require schools to hide students’ transgender status from their parents.`\
+https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-students.html
+
 **In First Appearance Since Taking the Country to War, Trump Is Business as Usual**\
 `President Trump gave a “brief update” on the Iran operation. And then he stayed true to form.`\
 https://nytimes.com/2026/03/02/us/politics/trump-war-remarks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/us/politics/iran-khamenei-dead-trump-legal.html
 **David Montgomery traded, but his impact on the Lions' rise is undeniable**\
 `Montgomery and Jahmyr Gibbs formed one of the NFL's best RB tandems, but Montgomery saw his role diminished last season.`\
 https://nytimes.com/athletic/7082141/2026/03/02/lions-david-montgomery-legacy-traded/
-
-**NBA player says Hawks' 'Magic City' promotion 'would reflect poorly' on league**\
-`In response to the Hawks partnering with the Atlanta strip club, Luke Kornet wrote that "the NBA should desire to protect and esteem women."`\
-https://nytimes.com/athletic/7082061/2026/03/02/magic-city-luke-kornet/
 

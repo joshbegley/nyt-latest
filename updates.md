@@ -1,3 +1,7 @@
+**Supreme Court Sides With Religious Parents, Blocking California’s Trans Student Policy**\
+`Christian teachers and parents challenged the state’s policies, which they say require schools to hide students’ transgender status from their parents.`\
+https://nytimes.com/2026/03/02/us/politics/supreme-court-california-trans-students.html
+
 **In First Appearance Since Taking the Country to War, Trump Is Business as Usual**\
 `President Trump gave a “brief update” on the Iran operation. And then he stayed true to form.`\
 https://nytimes.com/2026/03/02/us/politics/trump-war-remarks.html
