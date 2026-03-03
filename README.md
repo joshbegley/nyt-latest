@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Blizzard, War, Monkey**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/03/learning/03StudentNewsQuiz.html
+
 **Premier League relegation analysis: Another big week at the bottom**\
 `Analysis of the latest dropzone drama ahead of a crucial midweek round of games`\
 https://nytimes.com/athletic/7069901/2026/03/03/premier-league-relegation-analysis-spurs-leeds-west-ham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7080926/2026/03/03/blackhawks-player-poll-results-n
 **Why trading OEL is too good of an opportunity for the Maple Leafs to pass up**\
 `What the Leafs decide to do with the veteran defenceman could say a lot about Toronto's front office.`\
 https://nytimes.com/athletic/7081557/2026/03/03/maple-leafs-oliver-ekman-larsson-trade-future-treliving-rebuild/
-
-**Transfer portal confidential: Best classes, underwhelming teams, favorite QBs and more**\
-`Several staffers were not impressed with Florida's work. Almost everyone praised Texas Tech. QB Sam Leavitt received mixed reviews.`\
-https://nytimes.com/athletic/7072981/2026/03/03/college-football-transfer-portal-best-class-quarterbacks/
 
