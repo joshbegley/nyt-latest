@@ -1,3 +1,7 @@
+**‘Beyond the pale’: More than $10 million has been spent in one N.C. primary.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/state-senate-republican-primary-spending
+
 **How Anonymous Bettors Cashed In on the Iran Strike, Just Hours Before It Happened**\
 `Polymarket users placed hundreds of bets of at least $1,000 predicting an imminent American strike, raising concerns about insider trading.`\
 https://nytimes.com/2026/03/03/upshot/prediction-markets-iran-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-massachusetts-state-le
 **Arkansas Primary Election Results**\
 `Get live results and maps from the 2026 Arkansas primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-arkansas-primary.html
-
-**North Carolina Primary Election Results**\
-`Get live results and maps from the 2026 North Carolina primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-north-carolina-primary.html
 

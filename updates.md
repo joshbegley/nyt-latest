@@ -1,3 +1,7 @@
+**How Anonymous Bettors Cashed In on the Iran Strike, Just Hours Before It Happened**\
+`Polymarket users placed hundreds of bets of at least $1,000 predicting an imminent American strike, raising concerns about insider trading.`\
+https://nytimes.com/2026/03/03/upshot/prediction-markets-iran-strikes.html
+
 **Inside the Underground Safe Houses Sheltering Immigrants From ICE**\
 `In Springfield, Ohio, some Americans have converted their basements and spare bedrooms into shelters for immigrant families who could be targeted in raids.`\
 https://nytimes.com/2026/03/03/us/trump-immigration-ice-raids-safe-houses.html
