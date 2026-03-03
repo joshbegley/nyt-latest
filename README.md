@@ -1,3 +1,11 @@
+**Team USA manager Mark DeRosa reveals rotation for WBC pool play**\
+`The league's foremost workhorse will take the mound in Team USA's WBC pool play opener followed by a pair of Cy Young winning aces. `\
+https://nytimes.com/athletic/7082410/2026/03/02/world-baseball-classic-team-usa-rotation-pool-play/
+
+**Telemundo unveils its 'most ambitious' 2026 World Cup TV plans**\
+`The vast majority of matches will be on over-the-air TV, while there will be an unprecedented 700 hours of coverage overall this summer`\
+https://nytimes.com/athletic/7081909/2026/03/02/telemundo-2026-world-cup-plans-tv-games/
+
 **Red Wings find 5-on-5 scoring in big win to open crucial March: 5 thoughts**\
 `After a major lineup shakeup, the Red Wings opened March with a 4-2 win that saw some key five-on-five offense come through.`\
 https://nytimes.com/athletic/7082145/2026/03/02/detroit-red-wings-five-on-five-gibson-march-predators/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
 **NCAA advises schools to brace for March Madness travel disruptions**\
 `The NCAA cited the busy spring-break travel season and possible TSA-related delays due to a partial government shutdown as two reasons.`\
 https://nytimes.com/athletic/7082146/2026/03/02/march-madness-travel-disruptions-ncaa-charter-plane-shortage/
-
-**See when your state holds its primary.**\
-`By Alex Lemonides and Lily Boyce`\
-https://nytimes.com/live/2026/03/02/us/election-midterms-tx-nc-ar/see-when-your-state-holds-its-primary
-
-**In Republican Win, Supreme Court Retains G.O.P. District in New York**\
-`A Republican congresswoman had asked the justices to preserve her New York City district, despite a lower-court ruling that it illegally diluted the power of minority voters.`\
-https://nytimes.com/2026/03/02/us/politics/supreme-court-malliotakis-new-york.html
 
