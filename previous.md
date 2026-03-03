@@ -1,5 +1,9 @@
+**In Plunging Into a Mideast Conflict, Trump Gambles His Presidency**\
+`The risks for President Trump from the assault on Iran are escalating as casualties mount, oil prices rise and the war expands across the region.`\
+https://nytimes.com/2026/03/02/us/politics/iran-trump-polls-republicans.html
+
 **Team USA manager Mark DeRosa reveals rotation for WBC pool play**\
-`The league's foremost workhorse will take the mound in Team USA's WBC pool play opener followed by a pair of Cy Young winning aces. `\
+`The league's foremost workhorse will take the mound in Team USA's WBC pool play opener followed by a pair of Cy Young-winning aces.`\
 https://nytimes.com/athletic/7082410/2026/03/02/world-baseball-classic-team-usa-rotation-pool-play/
 
 **Telemundo unveils its 'most ambitious' 2026 World Cup TV plans**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/02/opinion/trump-iran-antiwar.html
 **What Rising Oil Prices Could Mean for Drivers in the U.S.**\
 `A prolonged conflict in the Middle East could cause a spike at American gas pumps, as the busy driving season approaches.`\
 https://nytimes.com/2026/03/02/business/gas-prices-drivers-oil-iran.html
-
-**NCAA advises schools to brace for March Madness travel disruptions**\
-`The NCAA cited the busy spring-break travel season and possible TSA-related delays due to a partial government shutdown as two reasons.`\
-https://nytimes.com/athletic/7082146/2026/03/02/march-madness-travel-disruptions-ncaa-charter-plane-shortage/
 

@@ -1,3 +1,11 @@
+**In Plunging Into a Mideast Conflict, Trump Gambles His Presidency**\
+`The risks for President Trump from the assault on Iran are escalating as casualties mount, oil prices rise and the war expands across the region.`\
+https://nytimes.com/2026/03/02/us/politics/iran-trump-polls-republicans.html
+
+**Team USA manager Mark DeRosa reveals rotation for WBC pool play**\
+`The league's foremost workhorse will take the mound in Team USA's WBC pool play opener followed by a pair of Cy Young-winning aces.`\
+https://nytimes.com/athletic/7082410/2026/03/02/world-baseball-classic-team-usa-rotation-pool-play/
+
 **Team USA manager Mark DeRosa reveals rotation for WBC pool play**\
 `The league's foremost workhorse will take the mound in Team USA's WBC pool play opener followed by a pair of Cy Young winning aces. `\
 https://nytimes.com/athletic/7082410/2026/03/02/world-baseball-classic-team-usa-rotation-pool-play/
