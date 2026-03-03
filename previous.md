@@ -1,3 +1,11 @@
+**Experiment Shows Possibility of Martian Microbes Hitching a Ride to Earth**\
+`Hearty bacteria in a lab survived pressures comparable to an asteroid strike on the red planet, suggesting a hypothetical scenario in which our planet was seeded with life.`\
+https://nytimes.com/2026/03/03/science/microbes-mars-life-asteroid.html
+
+**‘Whatever It Takes’ Rattles Global Markets**\
+`President Trump has signaled that he is open to the idea of a prolonged military conflict with Iran. Investors are spooked by that scenario.`\
+https://nytimes.com/2026/03/03/business/dealbook/iran-markets-trump.html
+
 **How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082967/2026/03/03/dj-smith-kings-interim-coach-ava
 **Darius Garland eases into Clippers debut, then helps lead comeback win**\
 `Garland had 12 points against the Warriors in his first game since being traded from the Cavaliers for James Harden last month.`\
 https://nytimes.com/athletic/7082987/2026/03/03/nba-clippers-darius-garland-debut/
-
-**Liverpool-bound Jacquet needs surgery, expected to be fit for pre-season**\
-`Jacquet is set to miss the remainder of the current season but the operation is not expected to impact his start at Anfield.`\
-https://nytimes.com/athletic/7083035/2026/03/03/jeremy-jacquet-injury-surgery-liverpool/
-
-**The latest from Team USA: Judge and Harper's bond, plus more WBC notes**\
-`Team USA met for its first workout for the World Baseball Classic on Monday in Arizona.`\
-https://nytimes.com/athletic/7082426/2026/03/03/team-usa-wbc-workout-bryce-harper-aaron-judge/
 

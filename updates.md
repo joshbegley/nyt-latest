@@ -1,3 +1,11 @@
+**Experiment Shows Possibility of Martian Microbes Hitching a Ride to Earth**\
+`Hearty bacteria in a lab survived pressures comparable to an asteroid strike on the red planet, suggesting a hypothetical scenario in which our planet was seeded with life.`\
+https://nytimes.com/2026/03/03/science/microbes-mars-life-asteroid.html
+
+**‘Whatever It Takes’ Rattles Global Markets**\
+`President Trump has signaled that he is open to the idea of a prolonged military conflict with Iran. Investors are spooked by that scenario.`\
+https://nytimes.com/2026/03/03/business/dealbook/iran-markets-trump.html
+
 **How to watch Bellarmine vs. FGCU women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Bellarmine Knights play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7083190/2026/03/03/bellarmine-vs-fgcu-stream-how-to-watch-march-3/
