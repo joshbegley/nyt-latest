@@ -1,3 +1,19 @@
+**Trump Suggests He’s Uncertain About Iran’s Future**\
+`Also, the midterms begin with high-stakes showdowns in Texas. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/03/briefing/trump-iran-texas-primary-elections.html
+
+**Trinity Rodman back training with USWNT after injury in SheBelieves Cup opener**\
+`Coach Emma Hayes said Rodman remained with the team ahead of a crucial match against Canada, while Defender Lilly Reale returned to Gotham.`\
+https://nytimes.com/athletic/7084675/2026/03/03/trinity-rodman-uswnt-shebelieves-cup-back-injury/
+
+**Barcelona knocked out of Copa del Rey by Atletico despite 3-0 second leg win**\
+`Barcelona entered the second leg trailing 4-0 on aggregate, before a double from Marc Bernal and a Raphinha penalty gave the Camp Nou hope.`\
+https://nytimes.com/athletic/7084725/2026/03/03/barcelona-atletico-madrid-copa-del-rey/
+
+**The Briefing: Wolves 2 Liverpool 1 – Sluggish start and painful finish dent Champions League hopes**\
+`Andre's deflected strike in the 94th minute won the game, but Arne Slot's side looked sluggish throughout`\
+https://nytimes.com/athletic/7083478/2026/03/03/wolves-2-liverpool-1/
+
 **Texas Voters Head to Polls in Highly Anticipated Primaries**\
 `Texas voters flocked to polling sites on Tuesday during the state’s first primaries of the 2026 midterms. This is the first election since Texas Republicans redrew congressional maps to add five more Republican-leaning states.`\
 https://nytimes.com/video/us/elections/100000010750904/texas-primary-election-midterms.html
