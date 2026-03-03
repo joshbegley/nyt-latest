@@ -1,3 +1,19 @@
+**Hamnet, Hamlet and Oscar Wao: Three Lost Boys Across Time**\
+`In the stage versions of two beloved books, the most impressive moments emerge when the productions stray from the source material.`\
+https://nytimes.com/2026/03/03/theater/hamnet-oscar-wao-chicago-shakespeare-goodman.html
+
+**Potomac River Reopens to Some Recreation After Sewer Collapse**\
+`Contamination levels in the waterway have declined, but health advisories remain in place for boaters downstream.`\
+https://nytimes.com/2026/03/03/climate/potomac-river-reopens-sewer-collapse.html
+
+**Should You Order That Fish? Menus Have a New Way to Help.**\
+`Seafood Watch, long a source of advice on sustainable choices, is working to get restaurants to adopt its color-coded recommendations.`\
+https://nytimes.com/2026/03/03/dining/monterey-bay-aquarium-seafood-watch.html
+
+**Braves' Profar facing 162-game suspension for second PED violation: Source**\
+`Profar missed the first 80 games of the 2025 season due to a positive test for performance-enhancing drugs. `\
+https://nytimes.com/athletic/7083768/2026/03/03/atlanta-braves-jurickson-profar-suspension/
+
 **Iowa State discontinues women’s gymnastics but will add another women's sport**\
 `Women's wrestling and women's flag football are two possible replacements for gymnastics at Iowa State. `\
 https://nytimes.com/athletic/7083692/2026/03/03/iowa-state-womens-gymnastics/
