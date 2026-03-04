@@ -1,3 +1,7 @@
+**Liverpool are losing control late in games. Arne Slot needs to fix it**\
+`The defeat by Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
+https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
+
 **Markets in Asia Plummet as Energy Fears Offset A.I. Optimism**\
 `Stocks in Asia sank on Wednesday, led by sharp declines in South Korea, as the war in Iran raised concerns about spiraling energy costs.`\
 https://nytimes.com/2026/03/04/business/iran-stocks-natural-gas-oil.html
