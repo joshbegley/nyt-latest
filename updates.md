@@ -1,3 +1,19 @@
+**Iran soccer player 'concerned and sad' for country, loved ones**\
+`Iran's women's soccer team is competing in the Asian Cup and appeared not to sing during the national anthem in its first game.`\
+https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
+
+**U.S. Widens Recall of Diplomatic Staff to Include Pakistan, Cyprus, Oman and Saudi Arabia**\
+`On Tuesday, nonemergency staff and their family members were told to leave several posts as Iran continued to retaliate after U.S. and Israeli strikes.`\
+https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakistan-cyprus-oman-saudi-arabia.html
+
+**Crockett Concedes in Texas Senate Primary**\
+`State Representative James Talarico will face the winner of a Republican runoff between the incumbent, John Cornyn, and Attorney General Ken Paxton.`\
+https://nytimes.com/2026/03/04/us/elections/crockett-concedes-texas-senate-primary-talarico.html
+
+**Is Kon Knueppel now the Rookie of the Year favorite? 'I don't even think it's close'**\
+`If Knueppel has regained the upper hand in the Rookie of the Year race, there is still time for Flagg to get it back.`\
+https://nytimes.com/athletic/7085656/2026/03/04/nba-rookie-of-the-year-favorite-kon-knueppel-cooper-flagg/
+
 **Chip Roy and Mayes Middleton Advance to Runoff for Texas Attorney General**\
 `No Republican reached a majority on Tuesday, but Mr. Middleton funneled millions of his own cash to secure a spot with Representative Roy,in the May 26 runoff.`\
 https://nytimes.com/2026/03/04/us/elections/texas-attorney-general.html
