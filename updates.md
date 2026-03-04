@@ -1,3 +1,7 @@
+**As Israel Pounds Lebanon, Thousands of Syrians There Flee Back Home**\
+`“I felt great fear and I ran,” says one of thousands of Syrians who are leaving what had been a relatively safe refuge during the war in Syria.`\
+https://nytimes.com/2026/03/04/world/middleeast/as-israel-pounds-lebanon-thousands-of-syrians-there-flee-back-home.html
+
 **NHL rumblings: Panthers ready to sell, potential Bobrovsky suitors, latest on Thomas, Parayko, more**\
 `Also two days ahead of the deadline: The Devils are listening on Nemec, Habs are looking at Kadri and Canucks are getting calls on Garland.`\
 https://nytimes.com/athletic/7086967/2026/03/04/bobrovsky-thomas-parayko-kadri-nhl-trade-deadline/
