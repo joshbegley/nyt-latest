@@ -1,3 +1,11 @@
+**Tony Gonzales’s Scandal Forces Him Into Runoff Election in South Texas**\
+`Representative Gonzales did not get 50 percent or more from voters in the Republican primary race in Texas’ 23rd Congressional District, as required by law to win the nomination. He has battled allegations that he had an inappropriate relationship with a former staff member.`\
+https://nytimes.com/2026/03/04/us/elections/tony-gonzales-runoff-election-texas-23.html
+
+**Iran Live Updates: Funeral Proceedings Begin for Slain Supreme Leader**\
+`Ayatollah Ali Khamenei, who led Iran for more than three decades, was killed in the U.S.-Israeli attacks. His replacement could be named as early as Wednesday as conflict grips the Middle East.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
+
 **Here is the latest.**\
 `By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
