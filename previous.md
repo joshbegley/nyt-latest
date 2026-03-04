@@ -1,3 +1,7 @@
+**Spring Dressing, Italian Style**\
+`At Milan Fashion Week, the streets and runways featured breezy attire and bright pastels that evoked springtime.`\
+https://nytimes.com/2026/03/04/style/spring-fashion-italy-milan-fashion-week.html
+
 **Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
 `The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
 https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086865/2026/03/04/presbyterian-vs-south-carolina-u
 **How to watch Wagner vs. Cent. Conn. St. men's basketball: NEC Tournament Time, TV, streaming**\
 `Find out how to watch the Wagner Seahawks play the Central Connecticut State Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086860/2026/03/04/wagner-vs-cent-conn-st-stream-how-to-watch-march-4/
-
-**How to watch Wright State vs. Youngstown State women's basketball: Horizon Tournament Time, TV, streaming**\
-`Find out how to watch the Wright State Raiders play the Youngstown State Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086857/2026/03/04/wright-state-vs-youngstown-state-stream-how-to-watch-march-4/
 

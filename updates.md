@@ -1,3 +1,7 @@
+**Spring Dressing, Italian Style**\
+`At Milan Fashion Week, the streets and runways featured breezy attire and bright pastels that evoked springtime.`\
+https://nytimes.com/2026/03/04/style/spring-fashion-italy-milan-fashion-week.html
+
 **Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
 `The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
 https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
