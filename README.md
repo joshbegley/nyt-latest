@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Homeland Security Secretary to Testify for 2nd Day**\
+``\
+https://nytimes.com/live/2026/03/04/us/trump-news-updates
+
 **Spanish soccer club pens open letter to Madonna in search for 1990 jersey**\
 `The 67-year-old singer wore the light blue home jersey in a concert at Celta's Balaidos Stadium as part of her Blonde Ambition tour.`\
 https://nytimes.com/athletic/7086234/2026/03/04/celta-vigo-jersey-madonna-letter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7085433/2026/03/04/world-baseball-classic-sf-giants
 **Aaron Gordon could return this week. The Nuggets' season depends on him**\
 `Gordon is perhaps the most important role player in the NBA, and Denver needs him to be healthy to have any shot at the title.`\
 https://nytimes.com/athletic/7085944/2026/03/04/denver-nuggets-aaron-gordon-injury-season-prospects/
-
-**Spain’s Leader, Rejecting Iran War, Escalates Long Feud With Trump**\
-`Prime Minister Pedro Sánchez has lashed out at the American-Israeli strikes, underlining his refusal to participate even after President Trump threatened Madrid with economic retaliation.`\
-https://nytimes.com/2026/03/04/world/europe/trump-spain-iran-sanchez.html
 

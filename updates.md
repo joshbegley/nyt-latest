@@ -1,3 +1,7 @@
+**Spanish soccer club pens open letter to Madonna in search for 1990 jersey**\
+`The 67-year-old singer wore the light blue home jersey in a concert at Celta's Balaidos Stadium as part of her Blonde Ambition tour.`\
+https://nytimes.com/athletic/7086234/2026/03/04/celta-vigo-jersey-madonna-letter/
+
 **'I went over the limit': Lu Dort regrets flagrant foul on Nikola Jokić**\
 `The Oklahoma City wing called his flagrant foul in Friday's win over Denver unnecessary, but stressed he's not a dirty player.`\
 https://nytimes.com/athletic/7086081/2026/03/04/thunder-nuggets-lu-dort-nikola-jokic-flagrant-foul/
