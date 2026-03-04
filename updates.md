@@ -1,3 +1,7 @@
+**Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
+`But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
+https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
+
 **North Carolina State Senate District 26 Primary Election Results**\
 `Get live results from the 2026 North Carolina primary election.`\
 https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html

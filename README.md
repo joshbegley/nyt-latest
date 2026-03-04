@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, March 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
+
+**There Is Nothing Inevitable About a Russian Victory in Ukraine**\
+`If Russia has all the cards, why has it achieved so little?`\
+https://nytimes.com/2026/03/04/opinion/ukraine-russia-negotiations.html
+
+**We Are Finally Free From Khamenei’s Suffocating Gaze**\
+`Now that Ayatollah Khamenei is dead, will another face replace his and carry on a version of the same story?`\
+https://nytimes.com/2026/03/04/opinion/iran-khamenei-dead.html
+
 **Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
 `But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
 https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7083734/2026/03/04/kylian-mbappe-real-madrid-knee-i
 **Diego Gomez was a unique signing for Brighton and he could hurt Arsenal on his 50th appearance**\
 `Diego Gomez is in excellent form ahead of Wednesday night's game against Arsenal`\
 https://nytimes.com/athletic/7080484/2026/03/04/diego-gomez-brighton-arsenal-analysis/
-
-**England 2026 World Cup watch: Nico O'Reilly and the benefits of versatility**\
-`Thomas Tuchel will delight in having a number of players comfortable operating in various positions, including the Manchester City youngster`\
-https://nytimes.com/athletic/7080728/2026/03/04/england-tuchel-nico-oreilly-manchester-city/
-
-**'Like watching Usain Bolt': How Manchester United are getting the best out of Benjamin Sesko**\
-`The 22-year-old striker's obsessive commitment to self-improvement is paying off, with him scoring seven goals in his last eight games`\
-https://nytimes.com/athletic/7083788/2026/03/04/benjamin-sesko-man-united-improvement/
-
-**Spurs, West Ham and Forest are shock relegation candidates – and it is self-inflicted damage**\
-`The “champions of Europe” ensemble, we could call them, bearing in mind the supporters of all three clubs can sing that song, and often do`\
-https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relegation-column/
 

@@ -1,3 +1,7 @@
+**Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
+`But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
+https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
+
 **North Carolina State Senate District 26 Primary Election Results**\
 `Get live results from the 2026 North Carolina primary election.`\
 https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083788/2026/03/04/benjamin-sesko-man-united-improv
 **Spurs, West Ham and Forest are shock relegation candidates – and it is self-inflicted damage**\
 `The “champions of Europe” ensemble, we could call them, bearing in mind the supporters of all three clubs can sing that song, and often do`\
 https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relegation-column/
-
-**Why Viktor Gyokeres is a useful 'small-game' player - and why that is important**\
-`Gyokeres has struggled against top-half teams but his role can be to ensure Arsenal pick up points against the division's lower-placed sides`\
-https://nytimes.com/athletic/7083117/2026/03/04/viktor-gyokeres-arsenal-brighton/
 
