@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/04/business/media/iran-state-tv-social-media-war-ai.
 https://nytimes.com/athletic/7083546/2026/03/04/newcastle-man-utd-ramsey-fernandes/
 
 **How Every Senator Voted on the Iran War Powers Resolution**\
-`The Senate is voting on a measure to rein in the use of military force in Iran.`\
+`The Senate rejected on a measure to rein in the use of military force in Iran.`\
 https://nytimes.com/interactive/2026/03/04/us/iran-war-powers.html
 
 **Newsom Compares Israel to ‘Apartheid State,’ Questions Military Support**\
