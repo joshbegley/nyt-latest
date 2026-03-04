@@ -1,3 +1,15 @@
+**Nolan McLean set to join Team USA after experiencing 'vertigo-like symptoms'**\
+`Mets pitcher said Wednesday that his body is where it should be after he lost about five pounds in the last week.`\
+https://nytimes.com/athletic/7087026/2026/03/04/nolan-mclean-team-usa-wbc-vertigo/
+
+**Justice Dept., Under Pressure From Trump, Fails to Build Autopen Case Against Biden**\
+`Prosecutors in the U.S. attorney’s office in Washington were unable to build a case, underscoring the department’s increasing inability to follow through on the president’s desire to indict his rivals.`\
+https://nytimes.com/2026/03/04/us/politics/trump-biden-autopen.html
+
+**Projecting the first week of men's college basketball conference tournaments**\
+`Austin Mock's model forecasts the chances for every team in the 16 men's college basketball conference tournaments starting this week.`\
+https://nytimes.com/athletic/7087399/2026/03/04/mens-college-basketball-projections-best-bets-conference-tournaments-first-week/
+
 **Christian Astuguevieille, 79, Dies; Created Strange Scents and Enigmatic Objects**\
 `For Commes des Garçons, he designed improbable perfumes that conjured burning rubber and cars leaking oil. His uncanny art pieces were equally contrarian.`\
 https://nytimes.com/2026/03/04/arts/design/christian-astuguevieille-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7086418/2026/03/04/penguins-nhl-trade-deadline-targ
 **Trump Says Endorsement in Texas G.O.P. Senate Fight Is Imminent**\
 `The president said on Truth Social that he will call for the candidate who does not receive his endorsement to drop out of the race, which is heading to a runoff.`\
 https://nytimes.com/2026/03/04/us/elections/trump-cornyn-paxton-endorsement-texas-senate-primary.html
-
-**Raspberry Almond Toasts**\
-`Inspired by bostock, the French pastry of syrup-soaked brioche baked with almond cream (frangipane), and buttery British bakewell tart filled with raspberry jam and frangipane, this easy breakfast treat takes the best of both.`\
-https://nytimes.com/video/dining/100000010749741/raspberry-almond-toasts.html
-
-**Chile Crisp Cheese Crackers**\
-`Chile crisp’s umami richness complements the buttery dough and sharp cheese, and adds an appealing crunch to these crackers. Serve with drinks and watch them disappear.`\
-https://nytimes.com/video/dining/100000010749731/chile-crisp-cheese-crackers.html
-
-**College football set to play games at London's Wembley Stadium for next 3 years**\
-`Arizona State and Kansas will play in London's Wembley Stadium on Sept. 19.`\
-https://nytimes.com/athletic/7086815/2026/03/04/college-football-wembley-stadium-union-jack-classic/
 

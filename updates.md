@@ -1,3 +1,19 @@
+**Christian Astuguevieille, 79, Dies; Created Strange Scents and Enigmatic Objects**\
+`For Commes des Garçons, he designed improbable perfumes that conjured burning rubber and cars leaking oil. His uncanny art pieces were equally contrarian.`\
+https://nytimes.com/2026/03/04/arts/design/christian-astuguevieille-dead.html
+
+**Tiny Love Stories: ‘I Brought Only Sex and Chaos’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/04/style/tiny-modern-love-stories-i-only-brought-sex-and-chaos.html
+
+**Trump Wants the Iranians to Rise Up. But Will He Have Their Backs?**\
+`Hungary. Cuba. Afghanistan. Iraq. Now Iran?`\
+https://nytimes.com/2026/03/04/opinion/trump-iran-liberation.html
+
+**Colorado Governor Signals He’ll Commute Sentence of Election Denier**\
+`Pressured by President Trump, Gov. Jared Polis said he is considering the release of Tina Peters, the last high-profile 2020 election meddler still imprisoned. His fellow Democrats are outraged.`\
+https://nytimes.com/2026/03/04/us/politics/jared-polis-tina-peters.html
+
 **Golfer who fell down elevator shaft discharged from hospital**\
 `Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
 https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
