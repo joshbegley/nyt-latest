@@ -1,3 +1,19 @@
+**Spring Systems Threaten Days of Storms Across Much of the U.S.**\
+`Some kind of severe weather is expected every day into early next week, forecasters warned. Friday is expected to be among the riskiest.`\
+https://nytimes.com/2026/03/04/weather/severe-storm-forecast-tornado.html
+
+**What I'm hearing, seeing from Blackhawks as trade deadline nears**\
+`Here's the latest I'm hearing about Jason Dickinson, Ilya Mikheyev, Anton Frondell, Roman Kantserov and more.`\
+https://nytimes.com/athletic/7087066/2026/03/04/blackhawks-nhl-trade-deadline-rumors/
+
+**Trent McDuffie trade grades: A secondary star for the Rams, a big haul for the Chiefs**\
+`The Rams addressed their biggest weakness, while the Chiefs recouped draft picks for a player they might not have signed beyond 2026.`\
+https://nytimes.com/athletic/7087205/2026/03/04/trent-mcduffie-rams-chiefs-trade-grades/
+
+**The conflict is choking off the world’s oil and gas.**\
+`By Blacki Migliozzi, Christiaan Triebert, Peter Eavis, Keith Collins, Jacqueline Gu and Rebecca Elliott`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-conflict-is-choking-off-the-worlds-oil-and-gas
+
 **Maple Leafs' Chris Tanev out for remainder of season after core muscle surgery**\
 `A healthy Chris Tanev is the Leafs' best defenceman. Can he be that player again at this point in his career?`\
 https://nytimes.com/athletic/7087044/2026/03/04/chris-tanev-maple-leafs-surgery/
