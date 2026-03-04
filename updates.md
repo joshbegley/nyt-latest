@@ -1,3 +1,7 @@
+**Why Democrats Are Encouraged by the U.S. Senate Primaries in Texas**\
+`Our national political correspondent Shane Goldmacher describes how James Talarico won the Democratic nomination for Senate in Texas. The Republican incumbent, Senator John Cornyn, was forced into a runoff with the state’s attorney general, Ken Paxton.`\
+https://nytimes.com/video/us/politics/100000010747214/why-democrats-are-encouraged-by-the-us-senate-primaries-in-texas.html
+
 **Talarico Can Win. But He Will Not Turn Texas Blue.**\
 `A Texas writer assesses the Senate race.`\
 https://nytimes.com/2026/03/04/opinion/talarico-texas-paxton-cornyn.html

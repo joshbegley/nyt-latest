@@ -1,3 +1,11 @@
+**59% of Americans Oppose the Military Action in Iran**\
+`Three high-quality polls taken after the United States and Israel launched their attack Iran on Saturday show that a majority of Americans are not on board with the military action.`\
+https://nytimes.com/2026/03/04/us/iran-us-war-military-polls.html
+
+**Hurzeler calls Arsenal tactics 'not football': 'I will never try to win that way'**\
+`The Brighton head coach accused Arsenal of time-wasting and singled out David Raya for criticism.`\
+https://nytimes.com/athletic/7088013/2026/03/04/fabian-hurzeler-arsenal-tactics/
+
 **Why Democrats Are Encouraged by the U.S. Senate Primaries in Texas**\
 `Our national political correspondent Shane Goldmacher describes how James Talarico won the Democratic nomination for Senate in Texas. The Republican incumbent, Senator John Cornyn, was forced into a runoff with the state’s attorney general, Ken Paxton.`\
 https://nytimes.com/video/us/politics/100000010747214/why-democrats-are-encouraged-by-the-us-senate-primaries-in-texas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083546/2026/03/04/newcastle-man-utd-ramsey-fernand
 **How Every Senator Voted on the Iran War Powers Resolution**\
 `The Senate rejected on a measure to rein in the use of military force in Iran.`\
 https://nytimes.com/interactive/2026/03/04/us/iran-war-powers.html
-
-**Newsom Compares Israel to ‘Apartheid State,’ Questions Military Support**\
-`The California governor, seen as a likely presidential candidate, made comments that reflect a shift in the Democratic Party.`\
-https://nytimes.com/2026/03/04/us/politics/gavin-newsom-israel.html
-
-**Charlotte’s Culinary Coming of Age**\
-`In a rapidly growing population known more for banking than dining, a new generation of chefs and restaurateurs is putting the Queen City on the food map.`\
-https://nytimes.com/paidpost/charlotte-regional-visitors-authority/charlottes-culinary-coming-of-age.html
 
