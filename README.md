@@ -1,3 +1,7 @@
+**Maple Leafs' Chris Tanev out for remainder of season after core muscle surgery**\
+`A healthy Chris Tanev is the Leafs' best defenceman. Can he be that player again at this point in his career?`\
+https://nytimes.com/athletic/7087044/2026/03/04/chris-tanev-maple-leafs-surgery/
+
 **Lawmakers Question Intel’s Use of Tools From Blacklisted Chinese Firm**\
 `A bipartisan group of senators raised national security concerns about the chipmaker, which is now partly owned by taxpayers.`\
 https://nytimes.com/2026/03/04/technology/intel-senators-china-tools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/sports/baseball/bruce-froemming-dead.html
 **Cowboys restructure 3 contracts, including Dak Prescott's, to create cap space**\
 `The moves created a little more than $66 million in immediate salary-cap space as Dallas prepares for free agency.`\
 https://nytimes.com/athletic/7086977/2026/03/04/dak-prescott-contract-ceedee-lamb-cowboys/
-
-**How Trump’s Election Changed Maggie Gyllenhaal**\
-`Maggie Gyllenhaal talks about women in Hollywood and says that Donald Trump’s victory in 2016 influenced her decision to become a movie director. She spoke with “The Interview” host Lulu Garcia-Navarro about her career, her new film, “The Bride!,” her family and more.`\
-https://nytimes.com/video/podcasts/100000010749481/how-trumps-election-changed-maggie-gyllenhaal.html
 
