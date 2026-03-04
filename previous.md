@@ -1,3 +1,35 @@
+**‘What Has Been Won Can Be Lost’: A Look at the Past and Future of Feminism**\
+`Feminist scholars and activists, including Gloria Steinem and Leymah Gbowee, reflected on a movement that they said remains unfinished.`\
+https://nytimes.com/2026/03/04/world/americas/feminism-past-future-scholars.html
+
+**In Sierra Leone, a New Maternal Care Center Aims to be a Blueprint**\
+`The country has one of the highest maternal mortality rates in the world. Isata Dumbuya, a nurse and midwife, has made it her mission to change that.`\
+https://nytimes.com/2026/03/04/world/africa/women-maternal-health-sierra-leone.html
+
+**The Best Movies and TV Shows Coming to Disney+, Hulu, Apple TV and More in March**\
+`A new Bill Lawrence comedy starring Steve Carell and a new mystery starring Nicole Kidman are among this month’s highlights.`\
+https://nytimes.com/2026/03/04/arts/television/movies-tv-shows-march-2026-streaming.html
+
+**Wrexham warn fans over homophobic chanting before Chelsea FA Cup tie**\
+`Wrexham said fans will face "serious consequences", including being ejected, receiving a football banning order and facing criminal charges.`\
+https://nytimes.com/athletic/7087921/2026/03/04/wrexham-chelsea-homophobic-chanting-warning/
+
+**Blues agree to trade Colton Parayko to Sabres, pending Parayko's approval: Sources**\
+`Colton Parayko's contract goes through 2030 with a $6.5 million cap hit.`\
+https://nytimes.com/athletic/7086906/2026/03/04/blues-trade-colton-parayko-sabres/
+
+**Brawl breaks out between Coastal Carolina, South Alabama**\
+`The altercation left one referee lying flat on the floor after being injured in the melee and eight players ejected.`\
+https://nytimes.com/athletic/7087874/2026/03/04/sun-belt-basketball-tournament-fight-coastal-carolina-south-alabama/
+
+**In trading for Trent McDuffie, Rams show they're all in for a Super Bowl run**\
+`With Matthew Stafford now 38 and entering his 18th season, the Rams are in win-now mode. Making a swing for McDuffie only confirms that.`\
+https://nytimes.com/athletic/7087310/2026/03/04/rams-trent-mcduffie-trade-chiefs/
+
+**Man Charged With Murder Appears to Win Primary for County Sheriff**\
+`Aaron Spencer faces a second-degree murder charge for shooting a man accused of sexually assaulting his daughter. Preliminary results showed him appearing to win the Republican primary.`\
+https://nytimes.com/2026/03/04/us/elections/arkansas-primary-county-sheriff.html
+
 **Trump’s High-Profile Oil and Gas Lease Sale in Alaska Has No Takers**\
 `No companies bid for the chance to drill in more than 1 million acres of water off Alaska’s Cook Inlet, the Interior Department said Wednesday.`\
 https://nytimes.com/2026/03/04/climate/cook-inlet-alaska-lease-sale-bids.html
@@ -5,36 +37,4 @@ https://nytimes.com/2026/03/04/climate/cook-inlet-alaska-lease-sale-bids.html
 **How Latino Voters Helped Talarico Win in Texas**\
 `The state legislator’s apparent strength with Latino voters in the Democratic primary for Senate suggested that he might be able to make inroads with a crucial demographic that has shifted away from his party.`\
 https://nytimes.com/interactive/2026/03/04/us/elections/texas-primary-talarico-crockett-results-votes.html
-
-**Lou Holtz, Who Coached Unbeaten Notre Dame to a Title, Dies at 89**\
-`Known for reviving football programs, he led six major colleges to bowl games, winning a national championship in 1989 after restoring the Irish to greatness.`\
-https://nytimes.com/2026/03/04/sports/football/lou-holtz-dead.html
-
-**Nepal Election to Test the Political Power of Gen Z**\
-`Nepalis expressed hope for their country as people head to the polls on Thursday for the first election since a youth-led uprising against corruption toppled the government last September.`\
-https://nytimes.com/video/world/asia/100000010753113/nepal-election-gen-z-shah-kathmandu.html
-
-**Lou Holtz, ubiquitous college football coaching voice and Notre Dame's last champion, dies at 89**\
-`For all Holtz accomplished in 34 seasons as a head coach, he will be remembered as the man who returned the Irish to college football glory.`\
-https://nytimes.com/athletic/6814719/2026/03/04/lou-holtz-death-obituary-coaching-career/
-
-**Trump’s Lopsided Vision for the White House**\
-`See how much his East Wing ballroom design will upend the White House symmetry.`\
-https://nytimes.com/interactive/2026/03/04/us/politics/trump-white-house-east-wing-ballroom-design-plan.html
-
-**Bob Power, Hip-Hop Engineer and A Tribe Called Quest Collaborator, Dies at 73**\
-`A producer, recording engineer and sound mixer, he helped pioneer the early use of sampling in rap music, including on the influential album “The Low End Theory” by A Tribe Called Quest.`\
-https://nytimes.com/2026/03/04/arts/music/bob-power-dead.html
-
-**The Briefing: Aston Villa 1 Chelsea 4 - unstoppable Joao Pedro, Villa's flawed setup, big week ahead for Rosenior**\
-`Analysing Chelsea's much-needed win after coming from behind at Villa Park to boost their Champions League hopes `\
-https://nytimes.com/athletic/7083529/2026/03/04/aston-villa-1-chelsea-4-joao-pedro-rosenior-emery/
-
-**House Panel Votes to Subpoena Pam Bondi Over Epstein Files**\
-`The Oversight Committee took the action over the objections of its Republican chairman, after several G.O.P. members sided with Democrats to insist on it.`\
-https://nytimes.com/2026/03/04/us/politics/house-panel-votes-to-subpoena-pam-bondi-over-epstein-files.html
-
-**Manchester City 2 Nottingham Forest 2 - Have City blown their momentum? How did Gibbs-White do that?**\
-`Pep Guardiola's side twice lost the lead to remarkable goals from a spirited Forest side `\
-https://nytimes.com/athletic/7083545/2026/03/04/manchester-city-2-nottingham-forest-2-briefing/
 
