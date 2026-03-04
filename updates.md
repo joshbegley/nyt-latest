@@ -1,3 +1,15 @@
+**Nolan McLean set to join Team USA after experiencing 'vertigo-like symptoms'**\
+`Mets pitcher said Wednesday that his body is where it should be after he lost about five pounds in the last week.`\
+https://nytimes.com/athletic/7087026/2026/03/04/nolan-mclean-team-usa-wbc-vertigo/
+
+**Justice Dept., Under Pressure From Trump, Fails to Build Autopen Case Against Biden**\
+`Prosecutors in the U.S. attorney’s office in Washington were unable to build a case, underscoring the department’s increasing inability to follow through on the president’s desire to indict his rivals.`\
+https://nytimes.com/2026/03/04/us/politics/trump-biden-autopen.html
+
+**Projecting the first week of men's college basketball conference tournaments**\
+`Austin Mock's model forecasts the chances for every team in the 16 men's college basketball conference tournaments starting this week.`\
+https://nytimes.com/athletic/7087399/2026/03/04/mens-college-basketball-projections-best-bets-conference-tournaments-first-week/
+
 **Christian Astuguevieille, 79, Dies; Created Strange Scents and Enigmatic Objects**\
 `For Commes des Garçons, he designed improbable perfumes that conjured burning rubber and cars leaking oil. His uncanny art pieces were equally contrarian.`\
 https://nytimes.com/2026/03/04/arts/design/christian-astuguevieille-dead.html
