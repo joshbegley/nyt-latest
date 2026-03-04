@@ -1,3 +1,15 @@
+**U.S. Widens Recall of Diplomatic Staff to Include Pakistan, Cyprus, Oman and Saudi Arabia**\
+`On Tuesday, nonemergency staff and their family members were told to leave several posts as Iran continued to retaliate after U.S. and Israeli strikes.`\
+https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakistan-cyprus-oman-saudi-arabia.html
+
+**Crockett Concedes in Texas Senate Primary**\
+`State Representative James Talarico will face the winner of a Republican runoff between the incumbent, John Cornyn, and Attorney General Ken Paxton.`\
+https://nytimes.com/2026/03/04/us/elections/crockett-concedes-texas-senate-primary-talarico.html
+
+**Is Kon Knueppel now the Rookie of the Year favorite? 'I don't even think it's close'**\
+`If Knueppel has regained the upper hand in the Rookie of the Year race, there is still time for Flagg to get it back.`\
+https://nytimes.com/athletic/7085656/2026/03/04/nba-rookie-of-the-year-favorite-kon-knueppel-cooper-flagg/
+
 **Chip Roy and Mayes Middleton Advance to Runoff for Texas Attorney General**\
 `No Republican reached a majority on Tuesday, but Mr. Middleton funneled millions of his own cash to secure a spot with Representative Roy,in the May 26 runoff.`\
 https://nytimes.com/2026/03/04/us/elections/texas-attorney-general.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7086337/2026/03/04/mississippi-state-vs-florida-str
 **How to watch Southeast Missouri State vs. Little Rock women's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Southeast Missouri State Redhawks play the Little Rock Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086331/2026/03/04/southeast-missouri-state-vs-little-rock-stream-how-to-watch-march-4/
-
-**How to watch Florida State vs. Georgia Tech women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Florida State Seminoles play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086328/2026/03/04/florida-state-vs-georgia-tech-stream-how-to-watch-march-4/
-
-**How to watch Fordham vs. Saint Louis women's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Fordham Rams play the Saint Louis Billikens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086326/2026/03/04/fordham-vs-saint-louis-stream-how-to-watch-march-4/
-
-**How to watch SIU-Edwardsville vs. UT Martin women's basketball: OVC Tournament Time, TV, streaming**\
-`Find out how to watch the SIU-Edwardsville Cougars play the UT Martin Skyhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086323/2026/03/04/siu-edwardsville-vs-ut-martin-stream-how-to-watch-march-4/
 
