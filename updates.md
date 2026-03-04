@@ -1,3 +1,5 @@
+
+
 **Hegseth Says a U.S. Strike Killed an Iranian Who Plotted to Assassinate Trump**\
 `The Pentagon provided few details, but the Trump administration has said that Iran’s efforts to kill U.S. officials is one reason the United States launched its bombing campaign.`\
 https://nytimes.com/2026/03/04/world/middleeast/trump-assassination-iran-hegseth.html
