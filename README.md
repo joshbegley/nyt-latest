@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/04/us/elections/tony-gonzales-runoff-election-texas-
 https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
 
 **Liverpool are losing control late in games. Arne Slot needs to fix it**\
-`The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
+`The defeat by Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
 https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
 
 **Iran Live Updates: Funeral Proceedings Begin for Slain Supreme Leader**\
