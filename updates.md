@@ -1,3 +1,15 @@
+**North Carolina State Senate District 26 Primary Election Results**\
+`Get live results from the 2026 North Carolina primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html
+
+**Progressives sweep 3 conservative Democrats from N.C. statehouse.**\
+`Tired of Democrats who were siding with Republicans in the legislature, liberal groups took aim at three in the primaries and beat each of them.`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/progressives-sweep-3-conservative-democrats-from-nc-statehouse
+
+**Victor Wembanyama's missing friend found safe after star's call for help**\
+`The Spurs star had posted a call for help in locating his friend on Instagram.`\
+https://nytimes.com/athletic/7085775/2026/03/04/victor-wembanyama-missing-friend-found-2/
+
 **Richarlison knows his way around a relegation scrap - could he save Spurs?**\
 `Igor Tudor has demanded Spurs show “more personality” - that's certainly not a problem for their Brazilian forward...`\
 https://nytimes.com/athletic/7083119/2026/03/04/richarlison-tottenham-relegation/

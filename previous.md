@@ -1,3 +1,15 @@
+**North Carolina State Senate District 26 Primary Election Results**\
+`Get live results from the 2026 North Carolina primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html
+
+**Progressives sweep 3 conservative Democrats from N.C. statehouse.**\
+`Tired of Democrats who were siding with Republicans in the legislature, liberal groups took aim at three in the primaries and beat each of them.`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/progressives-sweep-3-conservative-democrats-from-nc-statehouse
+
+**Victor Wembanyama's missing friend found safe after star's call for help**\
+`The Spurs star had posted a call for help in locating his friend on Instagram.`\
+https://nytimes.com/athletic/7085775/2026/03/04/victor-wembanyama-missing-friend-found-2/
+
 **Richarlison knows his way around a relegation scrap - could he save Spurs?**\
 `Igor Tudor has demanded Spurs show “more personality” - that's certainly not a problem for their Brazilian forward...`\
 https://nytimes.com/athletic/7083119/2026/03/04/richarlison-tottenham-relegation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relega
 **Why Viktor Gyokeres is a useful 'small-game' player - and why that is important**\
 `Gyokeres has struggled against top-half teams but his role can be to ensure Arsenal pick up points against the division's lower-placed sides`\
 https://nytimes.com/athletic/7083117/2026/03/04/viktor-gyokeres-arsenal-brighton/
-
-**The Premier League and set pieces: A 34-year relationship that shows no sign of slowing down**\
-`Setups at corners may have become more chaotic recently, but successful Premier League teams have always used them`\
-https://nytimes.com/athletic/7083092/2026/03/04/premier-league-set-pieces-arsenal-liverpool-man-utd/
-
-**'Set plays and discipline' are letting Chelsea down. How can these be fixed - and are they linked?**\
-`Liam Rosenior said dead-ball situations and cards were the key issues facing his team after the weekend's loss to Arsenal`\
-https://nytimes.com/athletic/7083403/2026/03/04/chelsea-set-pieces-discipline-fix-analysis/
-
-**Gen Z Voters in Nepal Pin Their Hopes on a Millennial Rapper**\
-`Nepal is holding its first election since a youth-led uprising against corruption toppled the government last year. Here is what to know.`\
-https://nytimes.com/2026/03/04/world/asia/nepal-election-gen-z-what-to-know.html
 
