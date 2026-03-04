@@ -1,3 +1,7 @@
+**Real Madrid's Rodrygo played with partial ACL tear since 2023**\
+`Rodrygo sustained a torn ACL and meniscus in his right knee during Monday's defeat against Getafe and will now miss the World Cup.`\
+https://nytimes.com/athletic/7084095/2026/03/04/rodrygo-acl-injury-real-madrid/
+
 **The Pulse: The year’s best baseball might happen in March**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7084615/2026/03/04/world-baseball-classic-the-pulse/
