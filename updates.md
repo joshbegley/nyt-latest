@@ -1,3 +1,11 @@
+**Penguins trade deadline primer: Best fits and most valuable assets**\
+`Before Friday's NHL trade deadline, let's break down a handful of players and positions the Penguins could be looking to improve.`\
+https://nytimes.com/athletic/7086418/2026/03/04/penguins-nhl-trade-deadline-targets-fits-assets/
+
+**Trump Says Endorsement in Texas G.O.P. Senate Fight Is Imminent**\
+`The president said on Truth Social that he will call for the candidate who does not receive his endorsement to drop out of the race, which is heading to a runoff.`\
+https://nytimes.com/2026/03/04/us/elections/trump-cornyn-paxton-endorsement-texas-senate-primary.html
+
 **Raspberry Almond Toasts**\
 `Inspired by bostock, the French pastry of syrup-soaked brioche baked with almond cream (frangipane), and buttery British bakewell tart filled with raspberry jam and frangipane, this easy breakfast treat takes the best of both.`\
 https://nytimes.com/video/dining/100000010749741/raspberry-almond-toasts.html

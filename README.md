@@ -1,3 +1,7 @@
+**Golfer who fell down elevator shaft discharged from hospital**\
+`Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
+https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
+
 **Penguins trade deadline primer: Best fits and most valuable assets**\
 `Before Friday's NHL trade deadline, let's break down a handful of players and positions the Penguins could be looking to improve.`\
 https://nytimes.com/athletic/7086418/2026/03/04/penguins-nhl-trade-deadline-targets-fits-assets/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/world/middleeast/iran-us-israel-strikes-videos-du
 **A U.N. panel condemns the U.S.-Israeli attacks on Iran.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/a-un-panel-condemns-the-us-israeli-attacks-on-iran
-
-**100 runs, 33 balls: How Finn Allen made T20 World Cup history**\
-`The Kiwi opener scored the quickest ever century in a T20 World Cup match to propel his side to a final against England or India`\
-https://nytimes.com/athletic/7086086/2026/03/04/finn-allen-100-south-africa-history-t20/
 
