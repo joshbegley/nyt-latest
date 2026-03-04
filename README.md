@@ -1,3 +1,11 @@
+**Spain insists it is not cooperating with U.S. on Iran war despite a White House claim.**\
+`It was part of a back`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/spain-white-house
+
+**Jurickson Profar's suspension left Team Netherlands scrambling mere minutes before game**\
+`“I heard of it 10 minutes before we started the game,” Netherlands manager Andruw Jones said.`\
+https://nytimes.com/athletic/7087578/2026/03/04/jurickson-profar-suspension-netherlands-braves/
+
 **Leafs to scratch Ekman-Larsson, Laughton, McMann ahead of trade deadline**\
 `The apparent change in plans suggests an uptick in interest around the three players being held out.`\
 https://nytimes.com/athletic/7087732/2026/03/04/leafs-scratching-oliver-ekman-larsson-scott-laughton-bobby-mcmann-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/submarine-torpedo-iran-ship.html
 **Iran’s Drones Cost a Fraction of the U.S. Weapons Shooting Them Down**\
 `What to know about Iran’s cheap, noisy Shahed drones and the expensive defense systems trying to stop them.`\
 https://nytimes.com/2026/03/04/business/iran-shahed-drones-missiles-us-war.html
-
-**Most Patients Keep Weight Off With Fewer GLP-1 Shots, Study Finds**\
-`In a recent review, a small group of patients received the injections less frequently but still maintained weight loss and health benefits.`\
-https://nytimes.com/2026/03/04/health/glp1-weight-loss-dosing.html
-
-**Graffiti-Covered Los Angeles Skyscrapers Find a Buyer**\
-`The windows of the unfinished Oceanwide Plaza complex in downtown Los Angeles became a canvas for street artists in 2024. A new buyer is promising to complete the project.`\
-https://nytimes.com/2026/03/04/us/los-angeles-graffiti-skyscrapers-buyer.html
 

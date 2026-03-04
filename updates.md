@@ -1,3 +1,7 @@
+**Leafs to scratch Ekman-Larsson, Laughton, McMann ahead of trade deadline**\
+`The apparent change in plans suggests an uptick in interest around the three players being held out.`\
+https://nytimes.com/athletic/7087732/2026/03/04/leafs-scratching-oliver-ekman-larsson-scott-laughton-bobby-mcmann-trade-deadline/
+
 **T in Milan**\
 ``\
 https://nytimes.com/spotlight/t-in-milan

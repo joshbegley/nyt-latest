@@ -1,3 +1,7 @@
+**Leafs to scratch Ekman-Larsson, Laughton, McMann ahead of trade deadline**\
+`The apparent change in plans suggests an uptick in interest around the three players being held out.`\
+https://nytimes.com/athletic/7087732/2026/03/04/leafs-scratching-oliver-ekman-larsson-scott-laughton-bobby-mcmann-trade-deadline/
+
 **T in Milan**\
 ``\
 https://nytimes.com/spotlight/t-in-milan
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/health/glp1-weight-loss-dosing.html
 **Graffiti-Covered Los Angeles Skyscrapers Find a Buyer**\
 `The windows of the unfinished Oceanwide Plaza complex in downtown Los Angeles became a canvas for street artists in 2024. A new buyer is promising to complete the project.`\
 https://nytimes.com/2026/03/04/us/los-angeles-graffiti-skyscrapers-buyer.html
-
-**WNBPA emphasizes unity as fissures exposed in CBA negotiations**\
-`The statement comes amid a looming deadline in negotiations next week. `\
-https://nytimes.com/athletic/7087583/2026/03/04/wnbpa-unity-cba-labor/
 
