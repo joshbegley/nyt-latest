@@ -1,3 +1,7 @@
+**Dwight McNeil's return: Tough love from Moyes, a standing ovation and a 'step up in level'**\
+`After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
+https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
+
 **Liverpool are losing control late in games. Arne Slot needs to fix it**\
 `The defeat by Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
 https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/

@@ -1,3 +1,7 @@
+**Dwight McNeil's return: Tough love from Moyes, a standing ovation and a 'step up in level'**\
+`After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
+https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
+
 **Markets in Asia Plummet as Energy Fears Offset A.I. Optimism**\
 `Stocks in Asia sank on Wednesday, led by sharp declines in South Korea, as the war in Iran raised concerns about spiraling energy costs.`\
 https://nytimes.com/2026/03/04/business/iran-stocks-natural-gas-oil.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
 **The New York Times in Print for Wednesday, March 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
-
-**There Is Nothing Inevitable About a Russian Victory in Ukraine**\
-`If Russia has all the cards, why has it achieved so little?`\
-https://nytimes.com/2026/03/04/opinion/ukraine-russia-negotiations.html
 
