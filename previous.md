@@ -1,3 +1,7 @@
+**Wild acquire Michael McCarron, sending 2nd-rounder to Predators for 6-foot-6 center with edge**\
+`McCarron was leading the Predators this season with 165 hits and has averaged over 52.8 percent on draws in all of his five NHL seasons.`\
+https://nytimes.com/athletic/7084913/2026/03/03/wild-michael-mccarron-predators-trade/
+
 **U.S. Releases Names of Soldiers Killed in War With Iran**\
 `Six U.S. troops were killed by an Iranian drone that exploded at a military base in Kuwait.`\
 https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
 `George Pickens, Kyle Pitts and Breece Hall received the franchise tag, while the Colts used the transition tag on Daniel Jones.`\
 https://nytimes.com/athletic/7084841/2026/03/03/nfl-franchise-tag-winners-losers-2026/
 
-**Here’s Who Trump Has Endorsed in the Texas Primaries**\
+**Here Are the Candidates Trump Has Endorsed in Texas**\
 `President Trump is backing numerous candidates running for re-election but has stayed quiet on a few key races.`\
 https://nytimes.com/2026/03/03/us/elections/trump-endorsements-texas-primary-elections-midterms.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/hot-air-balloon-rescue-texas-cell-tower.html
 **Two Rescued From Hot Air Balloon Crash Hundreds of Feet in the Air**\
 `Firefighters in Gregg County, Texas, pulled two people to safety from the wreckage of a hot air balloon as it dangled from a cell phone tower more than 900 feet above ground.`\
 https://nytimes.com/video/us/100000010747579/hot-air-balloon-crash-texas-rescue.html
-
-**Resurfaced Affair Allegations Intensify Gonzales’s Primary Challenge**\
-`Representative Tony Gonzales, a Republican, is fighting to hold onto his job as he faces a primary challenge from the right and fresh allegations of personal indiscretions that have rocked his campaign.`\
-https://nytimes.com/2026/03/03/us/elections/tony-gonzales-texas.html
 

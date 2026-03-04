@@ -1,3 +1,11 @@
+**Wild acquire Michael McCarron, sending 2nd-rounder to Predators for 6-foot-6 center with edge**\
+`McCarron was leading the Predators this season with 165 hits and has averaged over 52.8 percent on draws in all of his five NHL seasons.`\
+https://nytimes.com/athletic/7084913/2026/03/03/wild-michael-mccarron-predators-trade/
+
+**Here Are the Candidates Trump Has Endorsed in Texas**\
+`President Trump is backing numerous candidates running for re-election but has stayed quiet on a few key races.`\
+https://nytimes.com/2026/03/03/us/elections/trump-endorsements-texas-primary-elections-midterms.html
+
 **U.S. Releases Names of Soldiers Killed in War With Iran**\
 `Six U.S. troops were killed by an Iranian drone that exploded at a military base in Kuwait.`\
 https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
