@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Farnaz Fassihi and Yan Zhuang`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
+
+**Representative Dan Crenshaw Loses G.O.P. Primary in Texas**\
+`The victory by Steve Toth, a hard-line Texas state representative, underscored how even a conservative House member could lose Republican voters by breaking with President Trump.`\
+https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
+
 **Farke's safety-first approach comes with risks in Leeds' fight against relegation**\
 `Farke defended his in-game management but the crowd inside Elland Road made their feelings clear`\
 https://nytimes.com/athletic/7085098/2026/03/04/farkes-safety-first-leeds/
