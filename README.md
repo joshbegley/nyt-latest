@@ -1,3 +1,7 @@
+**James Talarico Wins Texas Democratic Senate Primary**\
+`State Representative James Talarico won the Democratic nomination for the closely-watched Senate race in Texas, beating Representative Jasmine Crockett. Two Republicans will head to a run-off in May.`\
+https://nytimes.com/video/us/politics/100000010751865/texas-senate-primary-talarico.html
+
 **Talarico Triumphs as G.O.P. Heads to Runoff: 6 Takeaways from Texas**\
 `James Talarico won the state’s Democratic primary for Senate, while Senator John Cornyn faces a runoff against Ken Paxton, his right-wing challenger.`\
 https://nytimes.com/2026/03/04/us/politics/primary-election-takeaways-tx-nc-ar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/business/iran-stocks-natural-gas-oil.html
 **Word of the Day: immutable**\
 `This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
-
-**Here is the latest.**\
-`By Farnaz Fassihi and Yan Zhuang`\
-https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
 
