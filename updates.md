@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, March 4, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
+
+**There Is Nothing Inevitable About a Russian Victory in Ukraine**\
+`If Russia has all the cards, why has it achieved so little?`\
+https://nytimes.com/2026/03/04/opinion/ukraine-russia-negotiations.html
+
+**We Are Finally Free From Khamenei’s Suffocating Gaze**\
+`Now that Ayatollah Khamenei is dead, will another face replace his and carry on a version of the same story?`\
+https://nytimes.com/2026/03/04/opinion/iran-khamenei-dead.html
+
 **Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
 `But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
 https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
