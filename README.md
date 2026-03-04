@@ -1,3 +1,15 @@
+**Talarico Can Win. But He Will Not Turn Texas Blue.**\
+`A Texas writer assesses the Senate race.`\
+https://nytimes.com/2026/03/04/opinion/talarico-texas-paxton-cornyn.html
+
+**Trump Announces A.I. Industry Pledge to Pay for Power**\
+`Companies including Google, Microsoft and OpenAI committed to pay for the power plants and grid upgrades needed to run their data centers.`\
+https://nytimes.com/2026/03/04/technology/ai-energy-pledge-white-house-trump.html
+
+**Senate Thwarts Bid to Curb Trump’s War Powers on Iran**\
+`Nearly every Republican voted to block a measure that would require that President Trump win authorization from Congress to continue the offensive in the Middle East.`\
+https://nytimes.com/2026/03/04/us/politics/senate-trump-war-powers-iran.html
+
 **Long-Suffering Texas Democrats Wonder: Is James Talarico the One?**\
 `After the state representative won the Senate primary, he joined a list of other promising progressives who have captured the left’s fancy.`\
 https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-senate.html
@@ -7,7 +19,7 @@ https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-senate.html
 https://nytimes.com/2026/03/04/business/media/iran-state-tv-social-media-war-ai.html
 
 **The Briefing: Newcastle 2 Man Utd 1 - How big is this for Howe? Why did Carrick side's struggle against 10 men?**\
-`Our writers break down the talking points from a dramatic Premier League game at St James' Park.`\
+`Our writers break down the talking points from a dramatic Premier League game at St James' Park`\
 https://nytimes.com/athletic/7083546/2026/03/04/newcastle-man-utd-ramsey-fernandes/
 
 **How Every Senator Voted on the Iran War Powers Resolution**\
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/charlotte-regional-visitors-authority/charlottes-cu
 **No Help and Few Options for Travelers Stranded by Mideast Conflict**\
 `Even far from hubs like Dubai and Abu Dhabi, the disruptions from the growing violence have left people jumping “from one cancellation to the next.”`\
 https://nytimes.com/2026/03/04/travel/iran-middle-east-stranded-travelers-flight-cancellations.html
-
-**9 Women Discuss Their Approach to Leadership**\
-`A chef, a disability advocate, a tech executive, a ballerina. They and five other women share what drives and challenges them as leaders.`\
-https://nytimes.com/2026/03/04/world/women-leaders-advice.html
-
-**‘What Has Been Won Can Be Lost’: A Look at the Past and Future of Feminism**\
-`Feminist scholars and activists, including Gloria Steinem and Leymah Gbowee, reflected on a movement that they said remains unfinished.`\
-https://nytimes.com/2026/03/04/world/americas/feminism-past-future-scholars.html
-
-**In Sierra Leone, a New Maternal Care Center Aims to be a Blueprint**\
-`The country has one of the highest maternal mortality rates in the world. Isata Dumbuya, a nurse and midwife, has made it her mission to change that.`\
-https://nytimes.com/2026/03/04/world/africa/women-maternal-health-sierra-leone.html
 
