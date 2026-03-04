@@ -1,3 +1,15 @@
+**Sharks sign Kiefer Sherwood to 5-year extension amid career year, playoff push**\
+`The 30-year-old is in the midst of a career-best season, with 18 goals and the second-most hits in the league (238).`\
+https://nytimes.com/athletic/7086724/2026/03/04/sharks-kiefer-sherwood-extension/
+
+**Reds' Hunter Greene to see doctors about right elbow discomfort, team says**\
+`Greene's status will remain unknown until he meets with team medical director Dr. Timothy Kremchek on Friday and then Dr. Neal ElAttrache.`\
+https://nytimes.com/athletic/7086937/2026/03/04/hunter-greene-reds-elbow-injury/
+
+**Western Gas Exporters Could Profit From War in Persian Gulf**\
+`Prices for liquefied natural gas have shot up in recent days, which could bring bigger paydays for European and U.S. energy companies.`\
+https://nytimes.com/2026/03/04/business/energy-environment/natural-gas-prices-lng-shell-exxon-war-iran.html
+
 **MLB Draft scouting notes: Roch Cholowsky, Justin Lebron highlight star-studded Amegy Classic**\
 `The Dallas area was the place to be for MLB draft scouts last weekend, with top prospects competing at several venues in the area.`\
 https://nytimes.com/athletic/7086867/2026/03/04/mlb-draft-scouting-roch-cholowsky-justin-lebron/
