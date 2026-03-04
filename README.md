@@ -1,3 +1,11 @@
+**Here’s where ships and energy facilities have been damaged.**\
+`By Blacki Migliozzi and Christiaan Triebert`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-where-ships-and-energy-facilities-have-been-damaged
+
+**What happened to Stanford? ACC tournament loss hurts Cardinal's bubble chances**\
+`Stanford could miss the NCAA Tournament for a second straight season.`\
+https://nytimes.com/athletic/7087362/2026/03/04/womens-conference-tournaments-acc-stanford/
+
 **NHL trade grades: Tyler Myers fills an obvious need for Stars at a reasonable price**\
 `The Stars now have a few options when it comes to using Myers in the lineup.`\
 https://nytimes.com/athletic/7087190/2026/03/04/nhl-trade-grades-tyler-myers-canucks-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7087219/2026/03/04/saudi-pro-league-iran-conflict/
 **Sharks sign Kiefer Sherwood to 5-year extension amid career year, playoff push**\
 `The 30-year-old is in the midst of a career-best season, with 18 goals and the second-most hits in the league (238).`\
 https://nytimes.com/athletic/7086724/2026/03/04/sharks-kiefer-sherwood-extension/
-
-**Reds' Hunter Greene to see doctors about right elbow discomfort, team says**\
-`Greene's status will remain unknown until he meets with team medical director Dr. Timothy Kremchek on Friday and then Dr. Neal ElAttrache.`\
-https://nytimes.com/athletic/7086937/2026/03/04/hunter-greene-reds-elbow-injury/
-
-**Western Gas Exporters Could Profit From War in Persian Gulf**\
-`Prices for liquefied natural gas have shot up in recent days, which could bring bigger paydays for European and U.S. energy companies.`\
-https://nytimes.com/2026/03/04/business/energy-environment/natural-gas-prices-lng-shell-exxon-war-iran.html
 
