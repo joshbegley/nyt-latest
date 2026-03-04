@@ -1,3 +1,11 @@
+**Lawmakers Question Intel’s Use of Tools From Blacklisted Chinese Firm**\
+`A bipartisan group of senators raised national security concerns about the chipmaker, which is now partly owned by taxpayers.`\
+https://nytimes.com/2026/03/04/technology/intel-senators-china-tools.html
+
+**Pitt fires women's basketball coach Tory Verdi**\
+`In three seasons under Verdi, the Panthers went 29-66 overall and 8-46 in the ACC.`\
+https://nytimes.com/athletic/7086915/2026/03/04/womens-college-basketball-pitt-fires-coach-tory-verdi/
+
 **A Nuclear Reactor Backed by Bill Gates Gets Federal Approval to Start Building**\
 `TerraPower’s project in Wyoming, which uses novel technology, is the first new commercial reactor to receive federal approval in nearly a decade.`\
 https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-permit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7086977/2026/03/04/dak-prescott-contract-ceedee-lam
 **How Trump’s Election Changed Maggie Gyllenhaal**\
 `Maggie Gyllenhaal talks about women in Hollywood and says that Donald Trump’s victory in 2016 influenced her decision to become a movie director. She spoke with “The Interview” host Lulu Garcia-Navarro about her career, her new film, “The Bride!,” her family and more.`\
 https://nytimes.com/video/podcasts/100000010749481/how-trumps-election-changed-maggie-gyllenhaal.html
-
-**Canucks agree to trade Tyler Myers to Stars for 2 draft picks: Sources**\
-`The Canucks will receive a second-round pick in 2027 and a fourth-round pick in 2029 for Myers.`\
-https://nytimes.com/athletic/7083707/2026/03/04/canucks-trade-tyler-myers-stars/
-
-**Maggie Gyllenhaal on Envy and Her Brother Jake**\
-`Maggie Gyllenhaal cast her brother, Jake, in her new movie, “The Bride!” She talked about their relationship and how to handle envy during her conversation with “The Interview” host Lulu Garcia-Navarro.`\
-https://nytimes.com/video/podcasts/100000010749477/maggie-gyllenhaal-on-envy-and-her-brother-jake.html
 

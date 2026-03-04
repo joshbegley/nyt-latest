@@ -1,3 +1,7 @@
+**A Nuclear Reactor Backed by Bill Gates Gets Federal Approval to Start Building**\
+`TerraPower’s project in Wyoming, which uses novel technology, is the first new commercial reactor to receive federal approval in nearly a decade.`\
+https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-permit.html
+
 **Interior Secretary Visits Venezuela as Part of Oil and Mining Expansion**\
 `The trip is part of the Trump administration’s push to build production in the South American nation.`\
 https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
