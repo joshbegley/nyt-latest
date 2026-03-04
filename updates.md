@@ -1,3 +1,7 @@
+**Congress Splits Over Iran War as Senate Faces a Vote**\
+`The administration’s shifting justifications for the military operation alarmed Democrats, who said no clear rationale had been given. Republicans struggled to echo the evolving explanations.`\
+https://nytimes.com/2026/03/03/us/politics/congress-iran-war-powers.html
+
 **Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
 `Mets rookie Nolan McLean is currently scheduled to start the WBC championship game on March 17 if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
