@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7085098/2026/03/04/farkes-safety-first-leeds/
 
 **Tony Gonzales’s Scandal Forces Him Into Runoff Election in South Texas**\
 `Representative Gonzales did not get 50 percent or more from voters in the Republican primary race in Texas’ 23rd Congressional District, as required by law to win the nomination. He has battled allegations that he had an inappropriate relationship with a former staff member.`\
-https://nytimes.com/2026/03/04/us/tony-gonzales-runoff-election-texas-23.html
+https://nytimes.com/2026/03/04/us/elections/tony-gonzales-runoff-election-texas-23.html
 
 **Representative Dan Crenshaw Loses G.O.P. Primary in Texas**\
 `The victory by Steve Toth, a hard-line Texas state representative, underscored how even a conservative House member could lose Republican voters by breaking with President Trump.`\
@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
 `The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
 https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
 
-**Iran Live Updates: Clerics Press Ahead in Search for New Supreme Leader**\
+**Iran Live Updates: Funeral Proceedings Begin for Slain Supreme Leader**\
 `Ayatollah Ali Khamenei, who led Iran for more than three decades, was killed in the U.S.-Israeli attacks. His replacement could be named as early as Wednesday as conflict grips the Middle East.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
 
