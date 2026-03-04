@@ -19,7 +19,7 @@ https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.
 https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-who.html
 
 **Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
-`Mets rookie Nolan McLean is currently scheduled to start the championship game if Team USA makes it that far.`\
+`Mets rookie Nolan McLean is currently scheduled to start the WBC championship game on March 17 if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
 
 **A Look at 4 Americans Who Have Died in the Iran Conflict**\
