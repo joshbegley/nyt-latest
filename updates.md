@@ -1,3 +1,7 @@
+**WNBPA emphasizes unity as fissures exposed in CBA negotiations**\
+`The statement comes amid a looming deadline in negotiations next week. `\
+https://nytimes.com/athletic/7087583/2026/03/04/wnbpa-unity-cba-labor/
+
 **Fellow Republican Moves to Censure Gonzales Amid Affair Allegations**\
 `The bid came as Representative Tony Gonzales of Texas has been forced into a runoff amid resurfaced allegations of having an extramarital affair with an aide who later took her own life.`\
 https://nytimes.com/2026/03/04/us/politics/luna-censure-gonzales.html
