@@ -1,3 +1,7 @@
+**Talarico Triumphs as G.O.P. Heads to Runoff: 6 Takeaways from Texas**\
+`James Talarico won the state’s Democratic primary for Senate, while Senator John Cornyn faces a runoff against Ken Paxton, his right-wing challenger.`\
+https://nytimes.com/2026/03/04/us/politics/primary-election-takeaways-tx-nc-ar.html
+
 **The iPod Resurgence**\
 `More young people are listening to music on iPods. What old technology do you think is cool?`\
 https://nytimes.com/2026/03/04/learning/the-ipod-resurgence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
 **Here is the latest.**\
 `By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
-
-**Farke's safety-first approach comes with risks in Leeds' fight against relegation**\
-`Farke defended his in-game management but the crowd inside Elland Road made their feelings clear`\
-https://nytimes.com/athletic/7085098/2026/03/04/farkes-safety-first-leeds/
 
