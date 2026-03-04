@@ -1,3 +1,7 @@
+**‘Hamnet’ | Anatomy of a Scene**\
+`The director Chloé Zhao narrates a sequence from her Oscar-nominated film, featuring Jessie Buckley and Paul Mescal.`\
+https://nytimes.com/video/movies/100000010747181/hamnet-scene.html
+
 **Guide to the 2026 Winter Paralympics: How it works for each sport in Milan Cortina**\
 `The Paralympics begin Wednesday, with the opening ceremony set for Friday. Here's what to expect from each sport in Milan Cortina.`\
 https://nytimes.com/athletic/7083137/2026/03/04/2026-winter-paralympics-sports-guide/
