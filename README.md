@@ -1,3 +1,7 @@
+**Galatasaray banned from selling away tickets for UCL tie at Liverpool**\
+`In a statement, the Turkish club said it would appeal against UEFA's decision.`\
+https://nytimes.com/athletic/7086116/2026/03/04/galatasaray-fans-anfield-liverpool/
+
 **Maxx Crosby is ready to leave Las Vegas. The sooner the Raiders accept that, the better**\
 `The Raiders are starting over — and they should start by trading their star edge rusher, no matter how much that might hurt.`\
 https://nytimes.com/athletic/7085512/2026/03/04/maxx-crosby-raiders-trade-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7084806/2026/03/04/world-baseball-classic-2026-expe
 **What's on the line in the women's ACC, SEC, Big Ten, Big 12 conference tournaments?**\
 `Will Texas or Vandy earn a No. 1 NCAA Tournament seed? Will Ohio State earn a hosting bid? `\
 https://nytimes.com/athletic/7084020/2026/03/04/womens-basketball-conference-tournaments-acc-sec-big-ten-12/
-
-**World Baseball Classic Pool C: Japan, Australia, Korea, Czechia, Chinese Taipei**\
-`Pool C kicks off play in Tokyo with Chinese Taipei vs. Australia on March 4. `\
-https://nytimes.com/athletic/7074441/2026/03/04/world-baseball-classic-pool-c-japan-korea-australia/
 
