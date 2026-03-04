@@ -1,3 +1,7 @@
+**Noem and D.H.S. Inspector General Spar Over Obstruction Claim**\
+`Homeland Security Secretary Kristi Noem pushed back against her department’s inspector general, who told Congress in a letter that she had “systematically obstructed” his office’s work.`\
+https://nytimes.com/2026/03/04/us/politics/noem-dhs-inspector-general.html
+
 **If You Liked the Texas Primaries, You’ll Love the Sequel**\
 `Texas voters will revisit the Republican Senate primary — and some House races where no candidate captured more than 50 percent of the vote — in runoffs on May 26.`\
 https://nytimes.com/2026/03/04/us/politics/texas-primaries-runoffs-may.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/technology/elon-musk-testifies-twitter-lawsuit.ht
 **The U.S. Is Accelerating Its Attacks on Iran**\
 `Also, sea levels may be higher than we thought. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/04/briefing/the-us-accelerating-its-attacks-on-iran.html
-
-**As Attacks Spread, War With Iran Reaches Far Beyond Mideast**\
-`NATO downed a missile fired by Iran at Turkey, and a U.S. sub sank an Iranian Navy ship off Sri Lanka, thousands of miles from the war zone.`\
-https://nytimes.com/2026/03/04/world/middleeast/iran-war-turkey.html
 

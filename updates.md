@@ -1,3 +1,11 @@
+**If You Liked the Texas Primaries, You’ll Love the Sequel**\
+`Texas voters will revisit the Republican Senate primary — and some House races where no candidate captured more than 50 percent of the vote — in runoffs on May 26.`\
+https://nytimes.com/2026/03/04/us/politics/texas-primaries-runoffs-may.html
+
+**Israelis Celebrate Purim Amid Iranian Missile Attacks**\
+`The war did not stop ultra-Orthodox parts of Jerusalem from drinking and dancing for the Jewish holiday.`\
+https://nytimes.com/2026/03/04/world/middleeast/israelis-celebrate-purim-amid-iranian-missile-attacks.html
+
 **Four Questions About What’s Next in Texas**\
 `The biggest immediate one: What will Trump do?`\
 https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
