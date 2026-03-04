@@ -1,3 +1,11 @@
+**To Many, These Buildings in Japan Are Magnificent. They’re Doomed Anyway.**\
+`Why the country is quick to tear down its modern architectural masterpieces.`\
+https://nytimes.com/2026/03/04/arts/design/japan-architecture-buildings-demolition.html
+
+**Fusing the Personal and the Political, With Monumental Results**\
+`Doron Langberg used to think their Israeli heritage was incidental to their art. Then the Gaza war brought questions of identity and history to the surface.`\
+https://nytimes.com/2026/03/04/arts/design/doron-landberg-deitch-projects-landscapes.html
+
 **Top 75 relievers for fantasy baseball 2026 SOLDS leagues, starting with Cade Smith**\
 `Greg Jewett ranks his Top 75 relievers for SOLDS leagues, a format that brings all high-leverage relievers into the spotlight.`\
 https://nytimes.com/athletic/7084000/2026/03/04/solds-rankings-relievers-fantasy-baseball-2026/
