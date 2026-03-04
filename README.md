@@ -1,3 +1,11 @@
+**Trump Wants the Iranians to Rise Up. But Will He Have Their Backs?**\
+`Hungary. Cuba. Afghanistan. Iraq. Now Iran?`\
+https://nytimes.com/2026/03/04/opinion/trump-iran-liberation.html
+
+**Colorado Governor Signals He’ll Commute Sentence of Election Denier**\
+`Pressured by President Trump, Gov. Jared Polis said he is considering the release of Tina Peters, the last high-profile 2020 election meddler still imprisoned. His fellow Democrats are outraged.`\
+https://nytimes.com/2026/03/04/us/politics/jared-polis-tina-peters.html
+
 **Golfer who fell down elevator shaft discharged from hospital**\
 `Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
 https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010749733/sheet-pan-doner-kebab.html
 **Trader Joe’s Recalls 4 Frozen Food Products That May Contain Glass**\
 `No injuries had been confirmed, but consumers reported finding glass in their products. The announcement was part of a larger recall of nearly 37 million pounds of food products.`\
 https://nytimes.com/2026/03/04/us/trader-joes-recall-frozen-asian-food.html
-
-**Videos Show Homes and Businesses Across Mideast Caught Up by War**\
-`As the conflict widens, residents across the Middle East are feeling the consequences of the U.S. and Israeli attacks on Iran.`\
-https://nytimes.com/2026/03/04/world/middleeast/iran-us-israel-strikes-videos-dubai-kuwait.html
-
-**A U.N. panel condemns the U.S.-Israeli attacks on Iran.**\
-`By Nick Cumming-Bruce`\
-https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/a-un-panel-condemns-the-us-israeli-attacks-on-iran
 
