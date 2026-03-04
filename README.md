@@ -1,3 +1,31 @@
+**Luke Donald will return as Europe's Ryder Cup captain**\
+`Donald will be the first three-time captain since Bernard Gallacher three decades ago.`\
+https://nytimes.com/athletic/7086372/2026/03/04/ryder-cup-europe-luke-donald-captain-2027/
+
+**Gen X, It’s Time to Worry About Retirement**\
+`On the sorry state of retirement savings in the United States, and a policy that could help.`\
+https://nytimes.com/2026/03/04/opinion/gen-x-retirement.html
+
+**My Boss Didn’t Care That My Mother Was Dying. Help!**\
+`A reader can hardly stand to look at a superior after finding her recent anguish met with talk of “contractual obligations.”`\
+https://nytimes.com/2026/03/04/style/bereavement-grief-boss-unsympathetic.html
+
+**Democrat Nominated in Redrawn Texas House District While Counting Continues for G.O.P.**\
+`In Texas’ newly redrawn 32nd Congressional District, Democrats settled on a nominee. Republicans, facing a crowded field in a district reshaped to favor their party, awaited a final count.`\
+https://nytimes.com/2026/03/04/us/elections/texas-congressional-district-32.html
+
+**Who drafted better? Dueling 49ers mocks start with same speedy guy at pick 27**\
+`There was a common thread between 49ers beatwriters: a heavy helping of edge rush and receiver with a generous side of offensive lineman.`\
+https://nytimes.com/athletic/7084557/2026/03/04/dueling-49ers-mock-drafts-cashius-howell/
+
+**Should Packers select O-line with their first pick? Dane Brugler mock draft reaction**\
+`Brugler slotted Oregon offensive guard Emmanuel Pregnon to the Packers at No. 52 in his latest mock draft.`\
+https://nytimes.com/athletic/7084065/2026/03/04/packers-brugler-mock-draft-pregnon/
+
+**Tree Rings Reveal Origins of Some of the World’s Best Violins**\
+`A study of over 275 violins suggests that Antonio Stradivari used wood from high-altitude forests in northern Italy to craft some of his most renowned instruments.`\
+https://nytimes.com/2026/03/04/science/stradaviri-violin-forest-tree-rings.html
+
 **Iran soccer player 'concerned and sad' for country, loved ones**\
 `Iran's women's soccer team is competing in the Asian Cup and appeared not to sing during the national anthem in its first game.`\
 https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakis
 **Crockett Concedes in Texas Senate Primary**\
 `State Representative James Talarico will face the winner of a Republican runoff between the incumbent, John Cornyn, and Attorney General Ken Paxton.`\
 https://nytimes.com/2026/03/04/us/elections/crockett-concedes-texas-senate-primary-talarico.html
-
-**Is Kon Knueppel now the Rookie of the Year favorite? 'I don't even think it's close'**\
-`If Knueppel has regained the upper hand in the Rookie of the Year race, there is still time for Flagg to get it back.`\
-https://nytimes.com/athletic/7085656/2026/03/04/nba-rookie-of-the-year-favorite-kon-knueppel-cooper-flagg/
-
-**Chip Roy and Mayes Middleton Advance to Runoff for Texas Attorney General**\
-`No Republican reached a majority on Tuesday, but Mr. Middleton funneled millions of his own cash to secure a spot with Representative Roy,in the May 26 runoff.`\
-https://nytimes.com/2026/03/04/us/elections/texas-attorney-general.html
-
-**Inter Miami's new stadium to have Nubank as naming rights partner**\
-`Nubank, a digital bank that operates in Brazil, Mexico and Colombia, reached a long-term naming rights agreement with the club.`\
-https://nytimes.com/athletic/7086310/2026/03/04/inter-miami-stadium-sponsor-nubank/
-
-**Lakers' Big 3 of LeBron, Luka and Reaves has been too small this season**\
-`There's been enough of a sample size now to show that the star trio is producing a sum less than its parts.`\
-https://nytimes.com/athletic/7086053/2026/03/04/lebron-james-luka-doncic-austin-reaves-lakers-stats/
-
-**How to watch Indiana vs. Nebraska women's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086341/2026/03/04/indiana-vs-nebraska-stream-how-to-watch-march-4/
-
-**How to watch Louisiana vs. UL Monroe women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Louisiana Ragin' Cajuns play the UL Monroe Warhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086339/2026/03/04/louisiana-vs-ul-monroe-stream-how-to-watch-march-4/
-
-**How to watch Mississippi State vs. Florida women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086337/2026/03/04/mississippi-state-vs-florida-stream-how-to-watch-march-4/
 
