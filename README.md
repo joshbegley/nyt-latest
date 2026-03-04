@@ -1,5 +1,13 @@
+**Court Rulings Throw Dallas County Vote Tally Into Uncertainty**\
+`Hours after a district judge ordered the county to keep its polling places open, the Texas Supreme Court temporarily blocked the decision.`\
+https://nytimes.com/2026/03/03/us/elections/dallas-county-vote-tally-court-ruling.html
+
+**Blue Jackets get greasy to pull off third-period comeback win over Nashville**\
+`The Blue Jackets scored a goal off a sublime passing play and then scrounged two greasy goals to earn a comeback win.`\
+https://nytimes.com/athletic/7085495/2026/03/03/blue-jackets-greasy-goal-fantilli-coyle-predators/
+
 **Aaron Judge meets his 6-foot-7 equal, predicts Giants' Bryce Eldridge will be 'cornerstone player'**\
-`Every major league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
+`Every major-league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
 https://nytimes.com/athletic/7085521/2026/03/03/san-francisco-giants-bryce-eldridge-aaron-judge/
 
 **As usual, Penguins fail to generate enough offense to get victory in Boston**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085220/2026/03/03/texas-rangers-statue-dallas-airp
 **There are a few key counties to watch in Texas.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
-
-**Kyler Murray’s time in Arizona wasn't great, but problems went well beyond the quarterback**\
-`For both parties, it was time to move on. But one has much more to prove than the other. And it's not the quarterback. `\
-https://nytimes.com/athletic/7085290/2026/03/03/kyler-murray-time-in-arizona/
-
-**Wild trade tracker: Why they added Fabbri, and Trocheck says he wants a 'chance to win'**\
-`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
-https://nytimes.com/athletic/7075630/2026/03/03/minnesota-wild-trade-tracker-2026/
 

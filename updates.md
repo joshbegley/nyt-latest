@@ -1,3 +1,7 @@
+**Aaron Judge meets his 6-foot-7 equal, predicts Giants' Bryce Eldridge will be 'cornerstone player'**\
+`Every major league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
+https://nytimes.com/athletic/7085521/2026/03/03/san-francisco-giants-bryce-eldridge-aaron-judge/
+
 **Aaron Judge meets his 6-foot-7 equal, predicts Giants' Bryce Eldridge will be 'a cornerstone player'**\
 `Every major league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
 https://nytimes.com/athletic/7085521/2026/03/03/san-francisco-giants-bryce-eldridge-aaron-judge/
