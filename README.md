@@ -1,3 +1,11 @@
+**TAFC: Mbappe, Rodrygo and World Cup injury drama. Plus: What do Nancy, Ramsay sackings tell us?**\
+`Today in TAFC: Real Madrid hit by injury problems, Trump speaks out on Iran's World Cup participation.`\
+https://nytimes.com/athletic/7086011/2026/03/04/mbappe-rodrygo-world-cup-injuries/
+
+**In final game before trade deadline, Canadiens defensive deficiencies provide food for thought**\
+`How will allowing seven goals in a loss to San Jose impact Canadiens management as they head toward the trade deadline? `\
+https://nytimes.com/athletic/7086003/2026/03/04/montreal-canadiens-sharks-defense-trade-deadline/
+
 **Real Madrid's Rodrygo played with partial ACL tear since 2023**\
 `Rodrygo sustained a torn ACL and meniscus in his right knee during Monday's defeat against Getafe and will now miss the World Cup.`\
 https://nytimes.com/athletic/7084095/2026/03/04/rodrygo-acl-injury-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7009946/2026/03/04/nba-aba-financial-benefits/
 **Attending a World Cup game launched my career. Now, many kids won't have that chance**\
 `Ex-U.S. forward Charlie Davies fears World Cup prices will exclude youngsters and families, depriving them of the opportunity he once had`\
 https://nytimes.com/athletic/7076179/2026/03/04/charlie-davies-usa-world-cup-1994-ticket-prices/
-
-**Trump’s ‘Worst Case’ Scenario in Iran, and the Most Expensive Primary in U.S. History**\
-`Plus, the fight over daylight saving time.`\
-https://nytimes.com/2026/03/04/podcasts/the-headlines/trump-iran-texas-primary.html
-
-**Why these 7 NHL teams won’t — but should — make a trade deadline blockbuster**\
-`There are logical reasons for some teams to be on the fence about swinging a big trade. There are also good reasons why it's now or never.`\
-https://nytimes.com/athletic/7084819/2026/03/04/nhl-trade-deadline-2026-teams-blockbuster/
 
