@@ -1,3 +1,7 @@
+**Spurs, West Ham and Forest are shock relegation candidates – and it is self-inflicted damage**\
+`The “champions of Europe” ensemble, we could call them, bearing in mind the supporters of all three clubs can sing that song, and often do`\
+https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relegation-column/
+
 **Why Viktor Gyokeres is a useful 'small-game' player - and why that is important**\
 `Gyokeres has struggled against top-half teams but his role can be to ensure Arsenal pick up points against the division's lower-placed sides`\
 https://nytimes.com/athletic/7083117/2026/03/04/viktor-gyokeres-arsenal-brighton/

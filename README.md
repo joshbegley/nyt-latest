@@ -1,3 +1,23 @@
+**Richarlison knows his way around a relegation scrap - could he save Spurs?**\
+`Igor Tudor has demanded Spurs show “more personality” - that's certainly not a problem for their Brazilian forward...`\
+https://nytimes.com/athletic/7083119/2026/03/04/richarlison-tottenham-relegation/
+
+**What's going on with Kylian Mbappe's knee injury at Real Madrid?**\
+`The Spanish club's star striker is out with a knee injury and it's not certain exactly when he will be back. Could it affect his World Cup?`\
+https://nytimes.com/athletic/7083734/2026/03/04/kylian-mbappe-real-madrid-knee-injury-news/
+
+**Diego Gomez was a unique signing for Brighton and he could hurt Arsenal on his 50th appearance**\
+`Diego Gomez is in excellent form ahead of Wednesday night's game against Arsenal`\
+https://nytimes.com/athletic/7080484/2026/03/04/diego-gomez-brighton-arsenal-analysis/
+
+**England 2026 World Cup watch: Nico O'Reilly and the benefits of versatility**\
+`Thomas Tuchel will delight in having a number of players comfortable operating in various positions, including the Manchester City youngster`\
+https://nytimes.com/athletic/7080728/2026/03/04/england-tuchel-nico-oreilly-manchester-city/
+
+**'Like watching Usain Bolt': How Manchester United are getting the best out of Benjamin Sesko**\
+`The 22-year-old striker's obsessive commitment to self-improvement is paying off, with him scoring seven goals in his last eight games`\
+https://nytimes.com/athletic/7083788/2026/03/04/benjamin-sesko-man-united-improvement/
+
 **Spurs, West Ham and Forest are shock relegation candidates – and it is self-inflicted damage**\
 `The “champions of Europe” ensemble, we could call them, bearing in mind the supporters of all three clubs can sing that song, and often do`\
 https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relegation-column/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7083403/2026/03/04/chelsea-set-pieces-discipline-fi
 **Gen Z Voters in Nepal Pin Their Hopes on a Millennial Rapper**\
 `Nepal is holding its first election since a youth-led uprising against corruption toppled the government last year. Here is what to know.`\
 https://nytimes.com/2026/03/04/world/asia/nepal-election-gen-z-what-to-know.html
-
-**Chimpanzees Are Really Into Crystals**\
-`In an attempt to understand our own fascination with the shiny minerals, researchers gave some to chimps.`\
-https://nytimes.com/2026/03/04/science/chimpanzees-crystals.html
-
-**Corrections: March 4, 2026**\
-`Corrections that appeared in print on Wednesday, March 4, 2026.`\
-https://nytimes.com/2026/03/04/pageoneplus/corrections-march-4-2026.html
-
-**Where are China’s A.I. Doomers?**\
-`Chinese policymakers and the public have expressed high levels of optimism about A.I., even as many in the West worry about the technology’s effects on employment or humanity in general.`\
-https://nytimes.com/2026/03/04/world/asia/china-ai-enthusiasm.html
-
-**'Our relationship is strong': JJ Redick downplays viral sideline interaction with Luka Dončić**\
-`"I didn't think much of it at the time, to be honest with you," Redick said. "I don't think Luka did either."`\
-https://nytimes.com/athletic/7085684/2026/03/04/jj-redick-luka-doncic-viral-moment-overblown/
-
-**Connections: Sports Edition Coach: Hints and answers for March 4, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7085727/2026/03/04/connections-sports-edition-hints-answers-march-4-2026/
 
