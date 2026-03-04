@@ -1,3 +1,15 @@
+**Maguire found guilty of non-serious assault, has suspended sentence reduced**\
+`The 32-year-old had originally been given a 21-month suspended sentence after an altercation on a 2020 family holiday in Mykonos.`\
+https://nytimes.com/athletic/7086538/2026/03/04/harry-maguire-manchester-united-greece-assault-charge/
+
+**Dele back at Tottenham, training individually while a free agent**\
+`Spurs have confirmed that Dele has been permitted to train on an academy pitch at Hotspur Way for a few weeks.`\
+https://nytimes.com/athletic/7086659/2026/03/04/dele-alli-tottenham-training-return/
+
+**Canucks trade deadline primer: What can Vancouver still sell?**\
+`The Canucks had better get busy before the clock strikes noon PT on the March 6 NHL trade deadline.`\
+https://nytimes.com/athletic/7086025/2026/03/04/vancouver-canucks-trade-deadline-nhl-2026-primer/
+
 **This Big, Juicy Drama Gives ‘Blended Family’ a New Meaning**\
 `Cynthia D’Aprix Sweeney’s new novel, “Lake Effect,” is the latest in a specific contemporary subgenre: “Four Adult Siblings Reconvene to Rehash Their Privileged but Fraught Adolescence.”`\
 https://nytimes.com/2026/03/04/books/review/cynthia-daprix-sweeney-lake-effect.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/theater/off-broadway-jackman-shalhoub-antigone.ht
 **2 Big Production Houses to Merge, Chaired by Jeff Zucker**\
 `The deal between All3Media and Banijay will bring together the companies behind the “Peaky Blinders” and the “Traitors” franchises.`\
 https://nytimes.com/2026/03/04/business/dealbook/all3media-banijay-merger-media.html
-
-**Talarico’s Win in Texas Shows That Nice Guys Can Finish First**\
-`At a moment when many Democrats are campaigning on rage and resistance, James Talarico took a different tack in his campaign in the Texas Senate primary.`\
-https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-elections.html
-
-**Loss to Knicks is latest proof that Raptors aren't ready for playoffs**\
-`The Raptors' late-game offence is letting them down game after game. `\
-https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
-
-**U.K. Arrests Lawmaker’s Partner on Allegation of Spying for China, BBC Reports**\
-`The Metropolitan Police of London said that it had arrested three people under the National Security Act.`\
-https://nytimes.com/2026/03/04/world/europe/uk-spying-china-arrests.html
 

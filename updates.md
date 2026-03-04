@@ -1,3 +1,15 @@
+**Maguire found guilty of non-serious assault, has suspended sentence reduced**\
+`The 32-year-old had originally been given a 21-month suspended sentence after an altercation on a 2020 family holiday in Mykonos.`\
+https://nytimes.com/athletic/7086538/2026/03/04/harry-maguire-manchester-united-greece-assault-charge/
+
+**Dele back at Tottenham, training individually while a free agent**\
+`Spurs have confirmed that Dele has been permitted to train on an academy pitch at Hotspur Way for a few weeks.`\
+https://nytimes.com/athletic/7086659/2026/03/04/dele-alli-tottenham-training-return/
+
+**Canucks trade deadline primer: What can Vancouver still sell?**\
+`The Canucks had better get busy before the clock strikes noon PT on the March 6 NHL trade deadline.`\
+https://nytimes.com/athletic/7086025/2026/03/04/vancouver-canucks-trade-deadline-nhl-2026-primer/
+
 **This Big, Juicy Drama Gives ‘Blended Family’ a New Meaning**\
 `Cynthia D’Aprix Sweeney’s new novel, “Lake Effect,” is the latest in a specific contemporary subgenre: “Four Adult Siblings Reconvene to Rehash Their Privileged but Fraught Adolescence.”`\
 https://nytimes.com/2026/03/04/books/review/cynthia-daprix-sweeney-lake-effect.html
