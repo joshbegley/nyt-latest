@@ -1,3 +1,7 @@
+**Iranian Navy Ship Sinks Near Coast of Sri Lanka, With Dozens Feared Dead**\
+`It was not clear what caused the navy destroyer to sink. The Sri Lankan authorities said they had rescued 32 sailors, all critically injured, from the crew of 180.`\
+https://nytimes.com/2026/03/04/world/middleeast/iran-navy-ship-sri-lanka.html
+
 **Man United's Jack Fletcher given six-match ban for using homophobic language towards opponent**\
 `The 18-year-old, son of Darren Fletcher, has apologised after the incident during an EFL Trophy game against Barnsley in October.`\
 https://nytimes.com/athletic/7086173/2026/03/04/jack-fletcher-manchester-united-fa-ban/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083173/2026/03/04/brad-keselowski-nascar-ryan-holi
 **Thompson's big night, Eichel's reception and a 'playoff atmosphere' in Buffalo**\
 `The Sabres honored Thompson and fellow Team USA gold medalists Jack Eichel and Noah Hanifin before Tuesday's game, which Buffalo won 3-2.`\
 https://nytimes.com/athletic/7085733/2026/03/04/buffalo-thompson-olympics-eichel-reception-playoff-atmosphere/
-
-**No. 1 pick Travis Bazzana enters WBC with the weight of Australia's hopes on his shoulders**\
-`Bazzana, simply by his status as a No. 1 pick, represents the face of baseball on the continent.`\
-https://nytimes.com/athletic/7085657/2026/03/04/travis-bazzana-enters-world-baseball-classic-australia/
 
