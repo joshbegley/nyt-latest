@@ -1,3 +1,7 @@
+**Markets in Asia Plummet as Energy Fears Offset A.I. Optimism**\
+`Stocks in Asia sank on Wednesday, led by sharp declines in South Korea, as the war in Iran raised concerns about spiraling energy costs.`\
+https://nytimes.com/2026/03/04/business/iran-stocks-natural-gas-oil.html
+
 **Word of the Day: immutable**\
 `This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
 **There Is Nothing Inevitable About a Russian Victory in Ukraine**\
 `If Russia has all the cards, why has it achieved so little?`\
 https://nytimes.com/2026/03/04/opinion/ukraine-russia-negotiations.html
-
-**We Are Finally Free From Khamenei’s Suffocating Gaze**\
-`Now that Ayatollah Khamenei is dead, will another face replace his and carry on a version of the same story?`\
-https://nytimes.com/2026/03/04/opinion/iran-khamenei-dead.html
 
