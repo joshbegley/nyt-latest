@@ -1,40 +1,40 @@
-**To Many, These Buildings in Japan Are Magnificent. They’re Doomed Anyway.**\
-`Why the country is quick to tear down its modern architectural masterpieces.`\
-https://nytimes.com/2026/03/04/arts/design/japan-architecture-buildings-demolition.html
+**How to watch Cleveland State vs. Wright State men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Cleveland State Vikings play the Wright State Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086837/2026/03/04/cleveland-state-vs-wright-state-stream-how-to-watch-march-4/
 
-**Fusing the Personal and the Political, With Monumental Results**\
-`Doron Langberg used to think their Israeli heritage was incidental to their art. Then the Gaza war brought questions of identity and history to the surface.`\
-https://nytimes.com/2026/03/04/arts/design/doron-landberg-deitch-projects-landscapes.html
+**How to watch Louisiana vs. James Madison men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Louisiana Ragin' Cajuns play the James Madison Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086834/2026/03/04/louisiana-vs-james-madison-stream-how-to-watch-march-4/
 
-**Top 75 relievers for fantasy baseball 2026 SOLDS leagues, starting with Cade Smith**\
-`Greg Jewett ranks his Top 75 relievers for SOLDS leagues, a format that brings all high-leverage relievers into the spotlight.`\
-https://nytimes.com/athletic/7084000/2026/03/04/solds-rankings-relievers-fantasy-baseball-2026/
+**How to watch Auburn vs. Texas A&M women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086832/2026/03/04/auburn-vs-texas-a-m-stream-how-to-watch-march-4/
 
-**Evaluating five potential defensive trade targets for the Senators**\
-`If the Senators are looking to upgrade at right-shot defence, there are a handful of players to consider. But are they all good fits?`\
-https://nytimes.com/athletic/7077867/2026/03/04/ottawa-senators-trade-deadline-targets/
+**How to watch Northern Kentucky vs. Oakland men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Oakland Golden Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086827/2026/03/04/northern-kentucky-vs-oakland-stream-how-to-watch-march-4/
 
-**Paddington Would Love This Chicken**\
-`Spicy marmalade chicken with sweet potatoes is tangy, bright and unexpected in the best way.`\
-https://nytimes.com/2026/03/04/dining/paddington-would-love-this-chicken.html
+**How to watch Youngstown State vs. Robert Morris men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Youngstown State Penguins play the Robert Morris Colonials, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086818/2026/03/04/youngstown-state-vs-robert-morris-stream-how-to-watch-march-4/
 
-**Sea Levels Are Higher Than Many Scientists Think, New Study Shows**\
-`Researchers found that a majority of studies on coastal sea levels underestimated how high water levels are, and hundreds of millions of people are closer to peril than previously thought.`\
-https://nytimes.com/2026/03/04/climate/sea-level-underestimated.html
+**How to watch Milwaukee vs. Detroit Mercy men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Milwaukee Panthers play the Detroit Mercy Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086813/2026/03/04/milwaukee-vs-detroit-mercy-stream-how-to-watch-march-4/
 
-**U.S. Gas Prices Continue to Rise**\
-`The price for a gallon of regular gasoline has jumped more than 20 cents this week. Diesel prices rose to their highest level since April 2024.`\
-https://nytimes.com/2026/03/04/business/gas-prices-iran-conflict.html
+**How to watch Eastern Illinois vs. SIU-Edwardsville men's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Eastern Illinois Panthers play the SIU-Edwardsville Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086811/2026/03/04/eastern-illinois-vs-siu-edwardsville-stream-how-to-watch-march-4/
 
-**Hegseth Says a U.S. Strike Killed an Iranian Who Plotted to Assassinate Trump**\
-`The Pentagon provided few details, but the Trump administration has said that Iran’s efforts to kill U.S. officials is one reason the United States launched its bombing campaign.`\
-https://nytimes.com/2026/03/04/world/middleeast/trump-assassination-iran-hegseth.html
+**How to watch Fairleigh Dickinson vs. Mercyhurst men's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Fairleigh Dickinson Knights play the Mercyhurst Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086804/2026/03/04/fairleigh-dickinson-vs-mercyhurst-stream-how-to-watch-march-4/
 
-**Here’s what satellite images show on efforts to destroy Iran’s ballistic missiles.**\
-`By Samuel Granados, Daniel Wood and John Ismay`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-what-satellite-images-show-on-efforts-to-destroy-irans-ballistic-missiles
+**How to watch Robert Morris vs. Purdue Fort Wayne women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Robert Morris Colonials play the Purdue Fort Wayne Mastodons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086802/2026/03/04/robert-morris-vs-purdue-fort-wayne-stream-how-to-watch-march-4/
 
-**Grading every NBA team at the quarter pole: Which 4 squads earned an F on our report card?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7086547/2026/03/04/nba-grades-spurs-thunder-the-bounce/
+**How to watch Stetson vs. Eastern Kentucky men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Stetson Hatters play the Eastern Kentucky Colonels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086800/2026/03/04/stetson-vs-eastern-kentucky-stream-how-to-watch-march-4/
 
