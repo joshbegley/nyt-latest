@@ -1,3 +1,11 @@
+**Richard Hell**\
+`The punk-rock icon and writer has spent more than 50 years in his East Village tenement apartment.`\
+https://nytimes.com/interactive/2026/03/04/realestate/richard-hell-east-village-apartment-tour.html
+
+**Patriots mock draft: New England nabs WR with 31st pick after an impressive combine**\
+`In our latest mock draft, the Patriots go after a wide receiver and edge rusher in Rounds 1 and 2, then fill holes elsewhere on the roster.`\
+https://nytimes.com/athletic/7083757/2026/03/04/patriots-mock-draft-nfl-chris-brazzell/
+
 **Andy Carroll pleads not guilty to breaching non-molestation order**\
 `The 37-year-old, who plays for Dagenham & Redbridge, was arrested in April last year in relation to an alleged offence in the previous month`\
 https://nytimes.com/athletic/7086015/2026/03/04/andy-carroll-court-plea-not-guilty/
