@@ -14,8 +14,8 @@ https://nytimes.com/2026/03/04/crosswords/spelling-bee-forum.html
 `“Please, give the people what they want for once,” the talk show host appealed to President Trump. “This is our destiny together, you and me. Think about it.”`\
 https://nytimes.com/2026/03/04/arts/television/kimmel-white-house-correspondents-dinner.html
 
-**'Same bulls***' - FIFA's $7.8m row with Foxboro putting World Cup games at risk as town stands firm**\
-`"Same bulls***" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
+**'Same bulls---' - FIFA's $7.8m row with Foxboro putting World Cup games at risk as town stands firm**\
+`"Same bulls---" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
 https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
 
 **Dwight McNeil's return: Tough love from Moyes, an ovation and a 'step up in level'**\
