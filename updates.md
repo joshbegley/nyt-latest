@@ -1,3 +1,7 @@
+**Golfer who fell down elevator shaft discharged from hospital**\
+`Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
+https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
+
 **Penguins trade deadline primer: Best fits and most valuable assets**\
 `Before Friday's NHL trade deadline, let's break down a handful of players and positions the Penguins could be looking to improve.`\
 https://nytimes.com/athletic/7086418/2026/03/04/penguins-nhl-trade-deadline-targets-fits-assets/
