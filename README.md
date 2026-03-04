@@ -1,3 +1,7 @@
+**This Big, Juicy Drama Gives ‘Blended Family’ a New Meaning**\
+`Cynthia D’Aprix Sweeney’s new novel, “Lake Effect,” is the latest in a specific contemporary subgenre: “Four Adult Siblings Reconvene to Rehash Their Privileged but Fraught Adolescence.”`\
+https://nytimes.com/2026/03/04/books/review/cynthia-daprix-sweeney-lake-effect.html
+
 **Submit a question for Chris Vannini's Group of 6 college football mailbag**\
 `For the American, MAC, Mountain West, Pac-12, Sun Belt and Conference USA, it has already been an offseason of intrigue and change.`\
 https://nytimes.com/athletic/7086434/2026/03/04/submit-a-question-for-chris-vanninis-group-of-6-college-football-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
 **U.K. Arrests Lawmaker’s Partner on Allegation of Spying for China, BBC Reports**\
 `The Metropolitan Police of London said that it had arrested three people under the National Security Act.`\
 https://nytimes.com/2026/03/04/world/europe/uk-spying-china-arrests.html
-
-**Portland Thorns hire ex-Tottenham manager Robert Vilahamn to usher in 'new era'**\
-`Vilahamn takes over as head coach less than two weeks before the start of the 2026 NWSL season.`\
-https://nytimes.com/athletic/7085128/2026/03/04/portland-thorns-hire-robert-vilahamn-head-coach/
 
