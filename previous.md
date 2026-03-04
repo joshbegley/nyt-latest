@@ -27,7 +27,7 @@ https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
 https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
 
 **U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
-`The U.S. Southern Command said that the joint activity with Ecuador was an effort to “combat the scourge of narco-terrorism,” but did not provide other details about the operation.`\
+`U.S. Special Forces soldiers are advising and supporting Ecuadorian commandos on raids across the country against suspected drug shipment facilities and other drug-related sites.`\
 https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
 
 **Congress Splits Over Iran War as Senate Faces a Vote**\

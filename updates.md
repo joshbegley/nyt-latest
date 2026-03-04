@@ -1,3 +1,7 @@
+**U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
+`U.S. Special Forces soldiers are advising and supporting Ecuadorian commandos on raids across the country against suspected drug shipment facilities and other drug-related sites.`\
+https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
+
 **There are a few key counties to watch in Texas.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
