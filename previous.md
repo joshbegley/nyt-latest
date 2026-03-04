@@ -1,3 +1,19 @@
+**There are a few key counties to watch in Texas.**\
+`By Christine Zhang`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
+
+**Kyler Murray’s time in Arizona wasn't great, but problems went well beyond the quarterback**\
+`For both parties, it was time to move on. But one has much more to prove than the other. And it's not the quarterback. `\
+https://nytimes.com/athletic/7085290/2026/03/03/kyler-murray-time-in-arizona/
+
+**Wild trade tracker: Why they added Fabbri, and Trocheck says he wants a 'chance to win'**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/03/minnesota-wild-trade-tracker-2026/
+
+**Reach an End**\
+`Wayne Bergman’s first solo puzzle for The New York Times leaves nothing to be desired.`\
+https://nytimes.com/2026/03/03/crosswords/daily-puzzle-2026-03-04.html
+
 **The Texas Senate primaries set a record for ad spending.**\
 `By Matt Zdun`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-senate-primaries-set-a-record-for-ad-spending
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/congress-iran-war-powers.html
 **Roy Cooper and Michael Whatley Advance in North Carolina Senate Race**\
 `North Carolina has broken national Democrats’ hearts for nearly two decades, but this time they hope that Roy Cooper, the former governor, can once again find a path to victory.`\
 https://nytimes.com/2026/03/03/us/elections/north-carolina-senate-primary-whatley-cooper.html
-
-**Iran Strikes U.S. Military Communication Infrastructure in Mideast**\
-`Satellite images show damage near vital equipment on sites in at least five countries.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-strikes-us-military-communication-infrastructure-in-mideast.html
-
-**Carney Says That Canada’s Support for Airstrikes Came ‘With Regret’**\
-`The prime minister criticized Israel and the U.S. for not consulting other nations or the U.N. before their attack on Iran.`\
-https://nytimes.com/2026/03/03/world/middleeast/iran-attacks-carney-canada.html
-
-**What Satellite Images Show on Efforts to Destroy Iran’s Ballistic Missiles**\
-`A New York Times analysis finds evidence of strikes on Iran’s underground ballistic missile sites and facilities targeted last June.`\
-https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.html
-
-**Who Is Mojtaba Khamenei, the Son and Possible Successor of Iran’s Supreme Leader?**\
-`The selection of the son of Ayatollah Ali Khamenei, who was killed in a strike on his compound on Saturday, could anger Iranians seeking change.`\
-https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-who.html
 

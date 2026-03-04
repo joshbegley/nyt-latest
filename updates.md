@@ -1,3 +1,19 @@
+**There are a few key counties to watch in Texas.**\
+`By Christine Zhang`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
+
+**Kyler Murray’s time in Arizona wasn't great, but problems went well beyond the quarterback**\
+`For both parties, it was time to move on. But one has much more to prove than the other. And it's not the quarterback. `\
+https://nytimes.com/athletic/7085290/2026/03/03/kyler-murray-time-in-arizona/
+
+**Wild trade tracker: Why they added Fabbri, and Trocheck says he wants a 'chance to win'**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/03/minnesota-wild-trade-tracker-2026/
+
+**Reach an End**\
+`Wayne Bergman’s first solo puzzle for The New York Times leaves nothing to be desired.`\
+https://nytimes.com/2026/03/03/crosswords/daily-puzzle-2026-03-04.html
+
 **The Texas Senate primaries set a record for ad spending.**\
 `By Matt Zdun`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-senate-primaries-set-a-record-for-ad-spending
