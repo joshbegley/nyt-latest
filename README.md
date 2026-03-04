@@ -1,3 +1,7 @@
+**Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
+`The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
+https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html
+
 **Bessent Says Global Tariffs Will Rise to 15 Percent This Week**\
 `Treasury Secretary Scott Bessent predicted that overall tariff rates, which fell after a Supreme Court ruling last month, would be back to previous levels within five months.`\
 https://nytimes.com/2026/03/04/business/economy/bessent-trump-tariffs-15-percent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/science/stradaviri-violin-forest-tree-rings.html
 **Iran soccer player 'concerned and sad' for country, loved ones**\
 `Iran's women's soccer team is competing in the Asian Cup and appeared not to sing during the national anthem in its first game.`\
 https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
-
-**U.S. Widens Recall of Diplomatic Staff to Include Pakistan, Cyprus, Oman and Saudi Arabia**\
-`On Tuesday, nonemergency staff and their family members were told to leave several posts as Iran continued to retaliate after U.S. and Israeli strikes.`\
-https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakistan-cyprus-oman-saudi-arabia.html
 
