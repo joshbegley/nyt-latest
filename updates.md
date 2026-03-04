@@ -1,3 +1,7 @@
+**Word of the Day: immutable**\
+`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
+
 **Tony Gonzales’s Scandal Forces Him Into Runoff Election in South Texas**\
 `Representative Gonzales did not get 50 percent or more from voters in the Republican primary race in Texas’ 23rd Congressional District, as required by law to win the nomination. He has battled allegations that he had an inappropriate relationship with a former staff member.`\
 https://nytimes.com/2026/03/04/us/elections/tony-gonzales-runoff-election-texas-23.html

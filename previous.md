@@ -1,3 +1,7 @@
+**Word of the Day: immutable**\
+`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
+
 **Here is the latest.**\
 `By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/opinion/ukraine-russia-negotiations.html
 **We Are Finally Free From Khamenei’s Suffocating Gaze**\
 `Now that Ayatollah Khamenei is dead, will another face replace his and carry on a version of the same story?`\
 https://nytimes.com/2026/03/04/opinion/iran-khamenei-dead.html
-
-**Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
-`But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
-https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
 
