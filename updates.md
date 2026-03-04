@@ -1,3 +1,19 @@
+**Hegseth Says a U.S. Strike Killed an Iranian Who Plotted to Assassinate Trump**\
+`The Pentagon provided few details, but the Trump administration has said that Iran’s efforts to kill U.S. officials is one reason the United States launched its bombing campaign.`\
+https://nytimes.com/2026/03/04/world/middleeast/trump-assassination-iran-hegseth.html
+
+**Here’s what satellite images show on efforts to destroy Iran’s ballistic missiles.**\
+`By Samuel Granados, Daniel Wood and John Ismay`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-what-satellite-images-show-on-efforts-to-destroy-irans-ballistic-missiles
+
+**The Bounce: Grading every NBA team at the quarter pole. Plus, a tank-tastic night**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7086547/2026/03/04/nba-grades-spurs-thunder-the-bounce/
+
+**The Windup: OK, I'm bought-in on the WBC**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7086629/2026/03/04/world-baseball-classic-what-to-know-the-windup/
+
 **Maguire found guilty of non-serious assault, has suspended sentence reduced**\
 `The 32-year-old had originally been given a 21-month suspended sentence after an altercation on a 2020 family holiday in Mykonos.`\
 https://nytimes.com/athletic/7086538/2026/03/04/harry-maguire-manchester-united-greece-assault-charge/

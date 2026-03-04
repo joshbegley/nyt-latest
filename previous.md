@@ -1,3 +1,19 @@
+**Hegseth Says a U.S. Strike Killed an Iranian Who Plotted to Assassinate Trump**\
+`The Pentagon provided few details, but the Trump administration has said that Iran’s efforts to kill U.S. officials is one reason the United States launched its bombing campaign.`\
+https://nytimes.com/2026/03/04/world/middleeast/trump-assassination-iran-hegseth.html
+
+**Here’s what satellite images show on efforts to destroy Iran’s ballistic missiles.**\
+`By Samuel Granados, Daniel Wood and John Ismay`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-what-satellite-images-show-on-efforts-to-destroy-irans-ballistic-missiles
+
+**The Bounce: Grading every NBA team at the quarter pole. Plus, a tank-tastic night**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7086547/2026/03/04/nba-grades-spurs-thunder-the-bounce/
+
+**The Windup: OK, I'm bought-in on the WBC**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7086629/2026/03/04/world-baseball-classic-what-to-know-the-windup/
+
 **Maguire found guilty of non-serious assault, has suspended sentence reduced**\
 `The 32-year-old had originally been given a 21-month suspended sentence after an altercation on a 2020 family holiday in Mykonos.`\
 https://nytimes.com/athletic/7086538/2026/03/04/harry-maguire-manchester-united-greece-assault-charge/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7086434/2026/03/04/submit-a-question-for-chris-vann
 **At UNC, the fight for the Dean Dome pits college basketball tradition against modern-day realities**\
 `An online petition organized by the Committee for a South Campus Arena has over 37,000 signatures to keep the Dean Dome on campus.`\
 https://nytimes.com/athletic/7084857/2026/03/04/unc-basketball-dean-dome-arena-future/
-
-**Liverpool to play Wrexham at Yankee Stadium on U.S. pre-season tour**\
-`Liverpool will play three matches in the U.S. after the World Cup, with Leeds, Sunderland and Wrexham joining them.`\
-https://nytimes.com/athletic/7080452/2026/03/04/liverpool-pre-season-us-wrexham-fixtures/
-
-**USL, players remain locked in CBA negotiations as strike threat lingers**\
-`As a new season nears, the USL and its players' association remain at odds.`\
-https://nytimes.com/athletic/7085601/2026/03/04/usl-championship-strike-cba-talks-promotion-relegation/
-
-**24 Off Broadway Shows to Catch in March**\
-`Hugh Jackman returns in “Sexual Misconduct of the Middle Classes,” Jesse Tyler Ferguson plays Truman Capote, and Celia Keenan-Bolger and Tony Shalhoub star in an “Antigone” riff.`\
-https://nytimes.com/2026/03/04/theater/off-broadway-jackman-shalhoub-antigone.html
-
-**2 Big Production Houses to Merge, Chaired by Jeff Zucker**\
-`The deal between All3Media and Banijay will bring together the companies behind the “Peaky Blinders” and the “Traitors” franchises.`\
-https://nytimes.com/2026/03/04/business/dealbook/all3media-banijay-merger-media.html
 
