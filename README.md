@@ -1,3 +1,7 @@
+**WNBPA emphasizes unity as fissures exposed in CBA negotiations**\
+`The statement comes amid a looming deadline in negotiations next week. `\
+https://nytimes.com/athletic/7087583/2026/03/04/wnbpa-unity-cba-labor/
+
 **Fellow Republican Moves to Censure Gonzales Amid Affair Allegations**\
 `The bid came as Representative Tony Gonzales of Texas has been forced into a runoff amid resurfaced allegations of having an extramarital affair with an aide who later took her own life.`\
 https://nytimes.com/2026/03/04/us/politics/luna-censure-gonzales.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087672/2026/03/04/purdue-vs-northwestern-stream-ho
 **How to watch Purdue vs. Oregon women's basketball: Big Ten Tournament Time, TV, streaming**\
 `Find out how to watch the Purdue Boilermakers play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7087670/2026/03/04/purdue-vs-oregon-stream-how-to-watch-march-4/
-
-**How to watch Old Dominion vs. Georgia Southern men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Old Dominion Monarchs play the Georgia Southern Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7087668/2026/03/04/old-dominion-vs-georgia-southern-stream-how-to-watch-march-4/
 
