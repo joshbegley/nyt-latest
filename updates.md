@@ -1,3 +1,11 @@
+**59% of Americans Oppose the Military Action in Iran**\
+`Three high-quality polls taken after the United States and Israel launched their attack Iran on Saturday show that a majority of Americans are not on board with the military action.`\
+https://nytimes.com/2026/03/04/us/iran-us-war-military-polls.html
+
+**Hurzeler calls Arsenal tactics 'not football': 'I will never try to win that way'**\
+`The Brighton head coach accused Arsenal of time-wasting and singled out David Raya for criticism.`\
+https://nytimes.com/athletic/7088013/2026/03/04/fabian-hurzeler-arsenal-tactics/
+
 **Why Democrats Are Encouraged by the U.S. Senate Primaries in Texas**\
 `Our national political correspondent Shane Goldmacher describes how James Talarico won the Democratic nomination for Senate in Texas. The Republican incumbent, Senator John Cornyn, was forced into a runoff with the state’s attorney general, Ken Paxton.`\
 https://nytimes.com/video/us/politics/100000010747214/why-democrats-are-encouraged-by-the-us-senate-primaries-in-texas.html
