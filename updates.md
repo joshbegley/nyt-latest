@@ -1,3 +1,15 @@
+**Iranian Navy Ship Sinks Near Coast of Sri Lanka, With Dozens Feared Dead**\
+`It was not clear what caused the navy destroyer to sink. The Sri Lankan authorities said they had rescued 32 sailors, all critically injured, from the crew of 180.`\
+https://nytimes.com/2026/03/04/world/middleeast/iran-navy-ship-sri-lanka.html
+
+**Man United's Jack Fletcher given six-match ban for using homophobic language towards opponent**\
+`The 18-year-old, son of Darren Fletcher, has apologised after the incident during an EFL Trophy game against Barnsley in October.`\
+https://nytimes.com/athletic/7086173/2026/03/04/jack-fletcher-manchester-united-fa-ban/
+
+**College hoops thoughts: Miami (Ohio) gets to 30-0, and Tuesday's men's NCAA Tournament bubble impact**\
+`TCU, Texas A&M and Cincinnati emerged from Tuesday as the biggest bubble winners.`\
+https://nytimes.com/athletic/7085823/2026/03/04/mens-college-basketball-miami-ohio-tcu-ncaa-tournament-bubble/
+
 **TAFC: Mbappe, Rodrygo and World Cup injury drama. Plus: What do Nancy, Ramsay sackings tell us?**\
 `Today in TAFC: Real Madrid hit by injury problems, Trump speaks out on Iran's World Cup participation.`\
 https://nytimes.com/athletic/7086011/2026/03/04/mbappe-rodrygo-world-cup-injuries/
