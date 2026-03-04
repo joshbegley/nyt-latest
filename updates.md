@@ -1,3 +1,15 @@
+**Man United next manager odds: Has Carrick’s impact transcended a new manager bounce?**\
+`With Carrick proving he has the answers to many of the issues at Old Trafford, his candidacy for the full-time job should be taken seriously`\
+https://nytimes.com/athletic/7086089/2026/03/04/manchester-united-next-manager-odds-carrick/
+
+**Here’s the latest.**\
+`By Tim Balk`\
+https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar/heres-the-latest
+
+**Election Live Updates: Talarico Wins Democratic Primary in Texas; Republicans Head to Runoff**\
+`James Talarico’s race against Jasmine Crockett was called early Wednesday after confusion over legal challenges. Senator John Cornyn, a four-term Republican, was forced into a runoff with Ken Paxton.`\
+https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar
+
 **How to watch Arkansas vs. Kentucky women's basketball: SEC Tournament Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086136/2026/03/04/arkansas-vs-kentucky-stream-how-to-watch-march-4/
