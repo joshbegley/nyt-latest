@@ -1,3 +1,11 @@
+**Four Questions About What’s Next in Texas**\
+`The biggest immediate one: What will Trump do?`\
+https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
+
+**Yakuza Leader Sentenced to 20 Years for Trafficking Nuclear Material**\
+`Prosecutors said Takeshi Ebisawa tried to sell uranium and plutonium from Myanmar in a plot tied to Iran’s nuclear program.`\
+https://nytimes.com/2026/03/04/us/japan-yakuza-nuclear-trafficking-sentencing.html
+
 **Aaron Rodgers praises, defends Mike McCarthy — but doesn't say whether he'll play in 2026**\
 `On Wednesday, Rodgers made his first public comments since McCarthy's hiring as the Steelers' new head coach.`\
 https://nytimes.com/athletic/7088092/2026/03/04/aaron-rodgers-mike-mccarthy-steelers-plans/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/us/iran-us-war-military-polls.html
 **Hurzeler calls Arsenal tactics 'not football': 'I will never try to win that way'**\
 `The Brighton head coach accused Arsenal of time-wasting and singled out goalkeeper David Raya for criticism.`\
 https://nytimes.com/athletic/7088013/2026/03/04/fabian-hurzeler-arsenal-tactics/
-
-**Why Democrats Are Encouraged by the U.S. Senate Primaries in Texas**\
-`Our national political correspondent Shane Goldmacher describes how James Talarico won the Democratic nomination for Senate in Texas. The Republican incumbent, Senator John Cornyn, was forced into a runoff with the state’s attorney general, Ken Paxton.`\
-https://nytimes.com/video/us/politics/100000010747214/why-democrats-are-encouraged-by-the-us-senate-primaries-in-texas.html
-
-**Talarico Can Win. But He Will Not Turn Texas Blue.**\
-`A Texas writer assesses the Senate race.`\
-https://nytimes.com/2026/03/04/opinion/talarico-texas-paxton-cornyn.html
 

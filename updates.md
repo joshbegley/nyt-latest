@@ -1,3 +1,11 @@
+**Aaron Rodgers praises, defends Mike McCarthy — but doesn't say whether he'll play in 2026**\
+`On Wednesday, Rodgers made his first public comments since McCarthy's hiring as the Steelers' new head coach.`\
+https://nytimes.com/athletic/7088092/2026/03/04/aaron-rodgers-mike-mccarthy-steelers-plans/
+
+**Union head responds to poll showing fans want a salary cap in MLB**\
+`A fan survey in The Athletic showed growing support in recent years for a salary cap. `\
+https://nytimes.com/athletic/7087967/2026/03/04/mlb-poll-bruce-meyer-union-response/
+
 **Former Barclays Center Executive Says Live Nation Threatened to Pull Tours**\
 `The Justice Department had John Abbamondi testify at an antitrust trial to support its case that Live Nation has acted as a monopoly, an accusation the company denies.`\
 https://nytimes.com/2026/03/04/arts/music/live-nation-trial-barclays-center.html
