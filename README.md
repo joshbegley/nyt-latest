@@ -1,5 +1,9 @@
-**Democrats Question Credentials of Trump Ally’s Squad of Armed Citizens**\
-`Bruce Blakeman, the Republican candidate for governor of New York, created a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
+**Toronto Synagogue Is Damaged by Gunfire on Night of Jewish Holiday**\
+`The temple said 20 shots were fired at the building but no one was hurt.`\
+https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
+
+**Democrats Question Credentials of Armed Squad Created by Trump Ally**\
+`Bruce Blakeman, the Republican candidate for governor of New York, formed a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
 https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
 
 **U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-
 **Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
 `Mets rookie Nolan McLean is currently scheduled to start the WBC championship game on March 17 if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
-
-**A Look at 4 Americans Who Have Died in the Iran Conflict**\
-`They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
-https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
 
