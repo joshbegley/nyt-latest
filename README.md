@@ -1,4 +1,4 @@
-**The U.S. Accelerating Its Attacks on Iran**\
+**The U.S. Is Accelerating Its Attacks on Iran**\
 `Also, sea levels may be higher than we thought. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/04/briefing/the-us-accelerating-its-attacks-on-iran.html
 
