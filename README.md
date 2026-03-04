@@ -1,3 +1,7 @@
+**PE firm gathers board members tied to 15 schools for CFB restructure pitch: Sources**\
+`Big Ten and SEC leaders have had no interest in outside efforts to transform college football, so Smash is pitching other school voices.`\
+https://nytimes.com/athletic/7083402/2026/03/03/smash-sports-college-football-big-ten-sec/
+
 **Dallas Police Detain Man Outside Ken Paxton Watch Party**\
 `Officers appeared to find magazines for a rifle when searching his car, but details about why he was taken into custody were not immediately available.`\
 https://nytimes.com/2026/03/03/us/elections/arrest-dallas-ken-paxton.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/wesley-hunt-republican-texas.html
 **Wild acquire Michael McCarron, sending 2nd-rounder to Predators for 6-foot-6 center: Sources**\
 `McCarron was leading the Predators this season with 165 hits and has averaged over 52.8 percent on draws in all of his five NHL seasons.`\
 https://nytimes.com/athletic/7084913/2026/03/03/wild-michael-mccarron-predators-trade/
-
-**U.S. Releases Names of Soldiers Killed in War With Iran**\
-`Six U.S. troops were killed by an Iranian drone that exploded at a military base in Kuwait.`\
-https://nytimes.com/2026/03/03/us/politics/us-soldiers-killed-iran.html
 
