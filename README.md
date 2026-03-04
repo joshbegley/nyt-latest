@@ -1,3 +1,7 @@
+**Trump’s Lopsided Vision for the White House**\
+`See how much his East Wing ballroom design will upend the White House symmetry.`\
+https://nytimes.com/interactive/2026/03/04/us/politics/trump-white-house-east-wing-ballroom-design-plan.html
+
 **Bob Power, Engineer and A Tribe Called Quest Collaborator, Dies at 73**\
 `A producer, recording engineer and sound mixer, he helped pioneer the use of sampling in rap music, including on the influential album “The Low End Theory” by A Tribe Called Quest.`\
 https://nytimes.com/2026/03/04/arts/music/bob-power-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/nyregion/muslim-mamdani-hate-speech.html
 **Two curling stones apparently stolen from Paralympic venue on eve of competition**\
 `Authorities are investigating the disappearance of two curling stones from the Paralympic venue. Replacements have been brought in.`\
 https://nytimes.com/athletic/7087749/2026/03/04/paralympics-2026-curling-stones-stolen/
-
-**As New York Energy Costs Surge, Attention Turns to Landmark Climate Law**\
-`The battle to lower costs has reached the State Capitol, where concerns have emerged about the fate of a 2019 climate law and its ambitious goals to reduce greenhouse gas emissions.`\
-https://nytimes.com/2026/03/04/nyregion/energy-bills-climate.html
 
