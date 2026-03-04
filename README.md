@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Farnaz Fassihi and Yan Zhuang`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/here-is-the-latest
+
 **Farke's safety-first approach comes with risks in Leeds' fight against relegation**\
 `Farke defended his in-game management but the crowd inside Elland Road made their feelings clear`\
 https://nytimes.com/athletic/7085098/2026/03/04/farkes-safety-first-leeds/
@@ -8,7 +12,7 @@ https://nytimes.com/2026/03/04/us/tony-gonzales-runoff-election-texas-23.html
 
 **Representative Dan Crenshaw Loses G.O.P. Primary in Texas**\
 `The victory by Steve Toth, a hard-line Texas state representative, underscored how even a conservative House member could lose Republican voters by breaking with President Trump.`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/texas-district-2-primary
+https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
 
 **Liverpool are losing control late in games. Arne Slot needs to fix it**\
 `The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/opinion/iran-khamenei-dead.html
 **Republican Primary for N.C. State Senate Seat Remains Too Close to Call**\
 `But that did not stop Sam Page, a small-town sheriff steeped in President Trump’s political movement, from declaring victory in the race.`\
 https://nytimes.com/2026/03/04/us/north-carolina-state-senate-berger-page.html
-
-**North Carolina State Senate District 26 Primary Election Results**\
-`Get live results from the 2026 North Carolina primary election.`\
-https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html
 
