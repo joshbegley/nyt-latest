@@ -1,3 +1,7 @@
+**Talarico’s Win in Texas Shows That Nice Guys Can Finish First**\
+`At a moment when many Democrats are campaigning on rage and resistance, James Talarico took a different tack in his campaign in the Texas Senate primary.`\
+https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-elections.html
+
 **Loss to Knicks is latest proof that Raptors aren't ready for playoffs**\
 `The Raptors' late-game offence is letting them down game after game. `\
 https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/style/bereavement-grief-boss-unsympathetic.html
 **Democrat Nominated in Redrawn Texas House District While Counting Continues for G.O.P.**\
 `In Texas’ newly redrawn 32nd Congressional District, Democrats settled on a nominee. Republicans, facing a crowded field in a district reshaped to favor their party, awaited a final count.`\
 https://nytimes.com/2026/03/04/us/elections/texas-congressional-district-32.html
-
-**Who drafted better? Dueling 49ers mocks start with same speedy guy at pick 27**\
-`There was a common thread between 49ers beat writers: a heavy helping of edge rush and receiver with a generous side of offensive lineman.`\
-https://nytimes.com/athletic/7084557/2026/03/04/dueling-49ers-mock-drafts-cashius-howell/
 

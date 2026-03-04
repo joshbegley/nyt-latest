@@ -1,3 +1,7 @@
+**Talarico’s Win in Texas Shows That Nice Guys Can Finish First**\
+`At a moment when many Democrats are campaigning on rage and resistance, James Talarico took a different tack in his campaign in the Texas Senate primary.`\
+https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-elections.html
+
 **Loss to Knicks is latest proof that Raptors aren't ready for playoffs**\
 `The Raptors' late-game offence is letting them down game after game. `\
 https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
