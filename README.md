@@ -1,3 +1,7 @@
+**2 Big Production Houses to Merge, Chaired by Jeff Zucker**\
+`The deal between All3Media and Banijay will bring together the companies behind the “Peaky Blinders” and the “Traitors” franchises.`\
+https://nytimes.com/2026/03/04/business/dealbook/all3media-banijay-merger-media.html
+
 **Talarico’s Win in Texas Shows That Nice Guys Can Finish First**\
 `At a moment when many Democrats are campaigning on rage and resistance, James Talarico took a different tack in his campaign in the Texas Senate primary.`\
 https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-elections.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/opinion/gen-x-retirement.html
 **My Boss Didn’t Care That My Mother Was Dying. Help!**\
 `A reader can hardly stand to look at a superior after finding her recent anguish met with talk of “contractual obligations.”`\
 https://nytimes.com/2026/03/04/style/bereavement-grief-boss-unsympathetic.html
-
-**Democrat Nominated in Redrawn Texas House District While Counting Continues for G.O.P.**\
-`In Texas’ newly redrawn 32nd Congressional District, Democrats settled on a nominee. Republicans, facing a crowded field in a district reshaped to favor their party, awaited a final count.`\
-https://nytimes.com/2026/03/04/us/elections/texas-congressional-district-32.html
 
