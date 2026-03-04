@@ -1,3 +1,19 @@
+**Finn Allen, 100 runs, 33 balls: How T20 World Cup cricket history was made**\
+`The Kiwi opener scored the quickest ever century in a T20 World Cup match to propel his side to a final against England or India`\
+https://nytimes.com/athletic/7086086/2026/03/04/finn-allen-100-south-africa-history-t20/
+
+**Who’s Feeding the Kids?**\
+`Plus, what SNAP cuts bring to the cafeteria table.`\
+https://nytimes.com/2026/03/04/headway/school-lunch-snap-newsletter.html
+
+**Here’s where ships and energy facilities have been damaged.**\
+`By Blacki Migliozzi and Christiaan Triebert`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-where-ships-and-energy-facilities-have-been-damaged
+
+**What happened to Stanford? ACC tournament loss hurts Cardinal's bubble chances**\
+`Stanford could miss the NCAA Tournament for a second straight season.`\
+https://nytimes.com/athletic/7087362/2026/03/04/womens-conference-tournaments-acc-stanford/
+
 **NHL trade grades: Tyler Myers fills an obvious need for Stars at a reasonable price**\
 `The Stars now have a few options when it comes to using Myers in the lineup.`\
 https://nytimes.com/athletic/7087190/2026/03/04/nhl-trade-grades-tyler-myers-canucks-stars/

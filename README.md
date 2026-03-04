@@ -1,4 +1,8 @@
-**Finn Allen, 100 runs, 33 balls: How T20 World Cup cricket history was made**\
+**A U.N. panel condemns the U.S.-Israeli attacks on Iran.**\
+`By Nick Cumming-Bruce`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/a-un-panel-condemns-the-us-israeli-attacks-on-iran
+
+**100 runs, 33 balls: How Finn Allen made T20 World Cup history**\
 `The Kiwi opener scored the quickest ever century in a T20 World Cup match to propel his side to a final against England or India`\
 https://nytimes.com/athletic/7086086/2026/03/04/finn-allen-100-south-africa-history-t20/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086352/2026/03/04/giannis-antetokounmpo-bucks-inju
 **Rhode Island Priests Abused Hundreds of Children Over Decades, Report Finds**\
 `The report from the state’s attorney general, covering 75 years, faulted the Diocese of Providence for not removing accused priests and not contacting the police enough.`\
 https://nytimes.com/2026/03/04/us/rhode-island-priests-abuse-report.html
-
-**Why Tech Firms Are Working With Trump on Data Centers and Energy Costs**\
-`The White House has floated a new plan to try to ease voter concerns over the A.I. boom’s effect on electric bills. But it won’t be easy to put into practice.`\
-https://nytimes.com/2026/03/04/climate/data-centers-electricity-trump.html
 
