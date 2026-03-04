@@ -1,3 +1,15 @@
+**T in Milan**\
+``\
+https://nytimes.com/spotlight/t-in-milan
+
+**Exclusive: Adam Fox on Rangers' retool, future in New York**\
+`"All I can really do is take it day by day right now and focus on helping this team win," Fox said Wednesday.`\
+https://nytimes.com/athletic/7087475/2026/03/04/rangers-adam-fox-nhl-trade-deadline-rebuild/
+
+**Data Centers Are a Distraction. The Real Fight Is Elsewhere.**\
+`We are trying to decide what role A.I. will have in our lives.`\
+https://nytimes.com/2026/03/04/opinion/data-centers-ai-regulation.html
+
 **What’s in Our Queue? ‘The Art of Loving’ and More**\
 `Text by Nicole Sperling`\
 https://nytimes.com/card/2026/03/04/arts/editors-recommendations-artofloving
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/us/los-angeles-graffiti-skyscrapers-buyer.html
 **WNBPA emphasizes unity as fissures exposed in CBA negotiations**\
 `The statement comes amid a looming deadline in negotiations next week. `\
 https://nytimes.com/athletic/7087583/2026/03/04/wnbpa-unity-cba-labor/
-
-**Fellow Republican Moves to Censure Gonzales Amid Affair Allegations**\
-`The bid came as Representative Tony Gonzales of Texas has been forced into a runoff amid resurfaced allegations of having an extramarital affair with an aide who later took her own life.`\
-https://nytimes.com/2026/03/04/us/politics/luna-censure-gonzales.html
-
-**How to watch Jazz vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7087705/2026/03/04/jazz-vs-76ers-stream-how-to-watch-march-4/
-
-**How to watch Trail Blazers vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7087703/2026/03/04/trail-blazers-vs-grizzlies-stream-how-to-watch-march-4/
 
