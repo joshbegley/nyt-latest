@@ -1,3 +1,11 @@
+**Four Questions About What’s Next in Texas**\
+`The biggest immediate one: What will Trump do?`\
+https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
+
+**Yakuza Leader Sentenced to 20 Years for Trafficking Nuclear Material**\
+`Prosecutors said Takeshi Ebisawa tried to sell uranium and plutonium from Myanmar in a plot tied to Iran’s nuclear program.`\
+https://nytimes.com/2026/03/04/us/japan-yakuza-nuclear-trafficking-sentencing.html
+
 **Aaron Rodgers praises, defends Mike McCarthy — but doesn't say whether he'll play in 2026**\
 `On Wednesday, Rodgers made his first public comments since McCarthy's hiring as the Steelers' new head coach.`\
 https://nytimes.com/athletic/7088092/2026/03/04/aaron-rodgers-mike-mccarthy-steelers-plans/
