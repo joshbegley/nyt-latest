@@ -1,3 +1,11 @@
+**Sharks sign Kiefer Sherwood to 5-year extension amid career year, playoff push**\
+`The 30-year-old is in the midst of a career-best season, with 18 goals and the second-most hits in the league (238).`\
+https://nytimes.com/athletic/7086724/2026/03/04/sharks-kiefer-sherwood-extension/
+
+**Reds' Hunter Greene to see doctors about right elbow discomfort, team says**\
+`Greene's status will remain unknown until he meets with team medical director Dr. Timothy Kremchek on Friday and then Dr. Neal ElAttrache.`\
+https://nytimes.com/athletic/7086937/2026/03/04/hunter-greene-reds-elbow-injury/
+
 **Western Gas Exporters Could Profit From War in Persian Gulf**\
 `Prices for liquefied natural gas have shot up in recent days, which could bring bigger paydays for European and U.S. energy companies.`\
 https://nytimes.com/2026/03/04/business/energy-environment/natural-gas-prices-lng-shell-exxon-war-iran.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7087044/2026/03/04/chris-tanev-maple-leafs-surgery/
 **Lawmakers Question Intel’s Use of Tools From Blacklisted Chinese Firm**\
 `A bipartisan group of senators raised national security concerns about the chipmaker, which is now partly owned by taxpayers.`\
 https://nytimes.com/2026/03/04/technology/intel-senators-china-tools.html
-
-**Pitt fires women's basketball coach Tory Verdi**\
-`In three seasons under Verdi, the Panthers went 29-66 overall and 8-46 in the ACC.`\
-https://nytimes.com/athletic/7086915/2026/03/04/womens-college-basketball-pitt-fires-coach-tory-verdi/
-
-**A Nuclear Reactor Backed by Bill Gates Gets Federal Approval to Start Building**\
-`TerraPower’s project in Wyoming, which uses novel technology, is the first new commercial reactor to receive federal approval in nearly a decade.`\
-https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-permit.html
 
