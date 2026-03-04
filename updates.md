@@ -1,3 +1,15 @@
+**Court Rulings Throw Dallas County Vote Tally Into Uncertainty**\
+`Hours after a district judge ordered the county to keep its polling places open, the Texas Supreme Court temporarily blocked the decision.`\
+https://nytimes.com/2026/03/03/us/elections/dallas-county-vote-tally-court-ruling.html
+
+**Blue Jackets get greasy to pull off third-period comeback win over Nashville**\
+`The Blue Jackets scored a goal off a sublime passing play and then scrounged two greasy goals to earn a comeback win.`\
+https://nytimes.com/athletic/7085495/2026/03/03/blue-jackets-greasy-goal-fantilli-coyle-predators/
+
+**Aaron Judge meets his 6-foot-7 equal, predicts Giants' Bryce Eldridge will be 'cornerstone player'**\
+`Every major-league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
+https://nytimes.com/athletic/7085521/2026/03/03/san-francisco-giants-bryce-eldridge-aaron-judge/
+
 **Aaron Judge meets his 6-foot-7 equal, predicts Giants' Bryce Eldridge will be 'cornerstone player'**\
 `Every major league player looks up to Judge in one sense or another, but Eldridge is the only one who doesn't do it literally.`\
 https://nytimes.com/athletic/7085521/2026/03/03/san-francisco-giants-bryce-eldridge-aaron-judge/
