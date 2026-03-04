@@ -1,3 +1,11 @@
+**Twenty years in, Sloan Sports Analytics Conference co-founder looks ahead**\
+`Co-founder Jessica Gelman previews some highlights of the 2026 conference and reflects on its 20-year anniversary.`\
+https://nytimes.com/athletic/7081209/2026/03/04/sloan-sports-analytics-conference-jessica-gelman-daryl-morey-2026/
+
+**Brad Keselowski broke his leg 10 weeks ago. Then he delivered one of NASCAR's gutsiest races**\
+`Ten weeks ago, Brad Keselowski broke his femur and faced agonizing rehab. Last weekend, he raced in Austin.`\
+https://nytimes.com/athletic/7083173/2026/03/04/brad-keselowski-nascar-ryan-holiday/
+
 **Thompson's big night, Eichel's reception and a 'playoff atmosphere' in Buffalo**\
 `The Sabres honored Thompson and fellow Team USA gold medalists Jack Eichel and Noah Hanifin before Tuesday's game, which Buffalo won 3-2.`\
 https://nytimes.com/athletic/7085733/2026/03/04/buffalo-thompson-olympics-eichel-reception-playoff-atmosphere/

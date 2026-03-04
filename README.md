@@ -1,3 +1,7 @@
+**The Pulse: The year’s best baseball might happen in March**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7084615/2026/03/04/world-baseball-classic-the-pulse/
+
 **Twenty years in, Sloan Sports Analytics Conference co-founder looks ahead**\
 `Co-founder Jessica Gelman previews some highlights of the 2026 conference and reflects on its 20-year anniversary.`\
 https://nytimes.com/athletic/7081209/2026/03/04/sloan-sports-analytics-conference-jessica-gelman-daryl-morey-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7084819/2026/03/04/nhl-trade-deadline-2026-teams-bl
 **Who might coach the L.A. Kings next? Here are 10 options, including DeBoer, Tortorella**\
 `Who might the Kings hire to ultimately replace Jim Hiller?`\
 https://nytimes.com/athletic/7085574/2026/03/04/la-kings-coach-deboer-tortorella-greene/
-
-**Megan Keller on Olympic women's hockey gold, Trump's joke, and her race to NYC for 'SNL'**\
-`Author of Team USA's golden goal, Keller is relishing the spotlight shining on women's hockey and the PWHL.`\
-https://nytimes.com/athletic/7085340/2026/03/04/megan-keller-olympics-usa-womens-hockey-trump-snl/
 
