@@ -1,3 +1,7 @@
+**Why Democrats Are Encouraged by the U.S. Senate Primaries in Texas**\
+`Our national political correspondent Shane Goldmacher describes how James Talarico won the Democratic nomination for Senate in Texas. The Republican incumbent, Senator John Cornyn, was forced into a runoff with the state’s attorney general, Ken Paxton.`\
+https://nytimes.com/video/us/politics/100000010747214/why-democrats-are-encouraged-by-the-us-senate-primaries-in-texas.html
+
 **Talarico Can Win. But He Will Not Turn Texas Blue.**\
 `A Texas writer assesses the Senate race.`\
 https://nytimes.com/2026/03/04/opinion/talarico-texas-paxton-cornyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/gavin-newsom-israel.html
 **Charlotte’s Culinary Coming of Age**\
 `In a rapidly growing population known more for banking than dining, a new generation of chefs and restaurateurs is putting the Queen City on the food map.`\
 https://nytimes.com/paidpost/charlotte-regional-visitors-authority/charlottes-culinary-coming-of-age.html
-
-**No Help and Few Options for Travelers Stranded by Mideast Conflict**\
-`Even far from hubs like Dubai and Abu Dhabi, the disruptions from the growing violence have left people jumping “from one cancellation to the next.”`\
-https://nytimes.com/2026/03/04/travel/iran-middle-east-stranded-travelers-flight-cancellations.html
 
