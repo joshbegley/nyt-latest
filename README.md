@@ -1,3 +1,7 @@
+**How Every Senator Voted on the Iran War Powers Resolution**\
+`The Senate is voting on a measure to rein in the use of military force in Iran.`\
+https://nytimes.com/interactive/2026/03/04/us/iran-war-powers.html
+
 **Newsom Compares Israel to ‘Apartheid State,’ Questions Military Support**\
 `The California governor, seen as a likely presidential candidate, made comments that reflect a shift in the Democratic Party.`\
 https://nytimes.com/2026/03/04/us/politics/gavin-newsom-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087921/2026/03/04/wrexham-chelsea-homophobic-chant
 **Blues agree to trade Colton Parayko to Sabres, pending Parayko's approval: Sources**\
 `Parayko, whose contract goes through 2030 with a $6.5 million cap hit, is the Blues' No. 1 defenseman but has struggled this season.`\
 https://nytimes.com/athletic/7086906/2026/03/04/blues-trade-colton-parayko-sabres/
-
-**Brawl breaks out between Coastal Carolina, South Alabama**\
-`The altercation left one referee lying flat on the floor after being injured in the melee and eight players ejected.`\
-https://nytimes.com/athletic/7087874/2026/03/04/sun-belt-basketball-tournament-fight-coastal-carolina-south-alabama/
 
