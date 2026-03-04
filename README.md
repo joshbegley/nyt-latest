@@ -1,3 +1,7 @@
+**Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
+`Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
+https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
+
 **Trump Has Been Sued 198 Times for Withholding Funding. It Hasn’t Stopped Him.**\
 `Immigration demands for highway dollars, D.E.I. rules for homeless grants: how Trump has tried to wield spending to get his way.`\
 https://nytimes.com/interactive/2026/03/03/upshot/trump-funding-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/james-talarico-democrat-senate-candid
 **When to Expect Primary Election Results**\
 `Voters in Texas, North Carolina and Arkansas kicked off the midterm contests on Tuesday.`\
 https://nytimes.com/2026/03/03/us/elections/primary-election-results-timing-when.html
-
-**Trump Tries to Quiet Claims Among Supporters That Israel Dragged Him Into War**\
-`Many of President Trump’s allies have urged him and his Make America Great Again movement to shift away from their close ties to Israel and military entanglements in the Middle East.`\
-https://nytimes.com/2026/03/03/us/politics/trump-israel-iran.html
 
