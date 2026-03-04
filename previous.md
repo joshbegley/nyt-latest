@@ -1,3 +1,7 @@
+**Israel and U.S. Trumpet Their Collaboration in War Against Iran**\
+`U.S. and Israeli military officials are talking as often as 4,000 to 5,000 times a day, divvying up targets across Iran.`\
+https://nytimes.com/2026/03/04/world/middleeast/israel-and-us-trumpet-their-collaboration-in-war-against-iran.html
+
 **U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
 `Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
 https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/magazine/child-neglected-ethics.html
 **Spring Dressing, Italian Style**\
 `At Milan Fashion Week, the streets and runways featured breezy attire and bright pastels that evoked springtime.`\
 https://nytimes.com/2026/03/04/style/spring-fashion-italy-milan-fashion-week.html
-
-**Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
-`The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
-https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
 
