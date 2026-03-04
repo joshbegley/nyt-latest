@@ -1,3 +1,11 @@
+**Twins pitcher Bailey Ober hopes mid-camp pause leads to better results this season**\
+`Ober came into camp with revamped mechanics, then hit a roadblock. He's back on track and excited for the season to come.`\
+https://nytimes.com/athletic/7084071/2026/03/04/twins-bailey-ober-mechanics-spring-training/
+
+**7 reasons to watch the Arnold Palmer Invitational: Scheffler, Furyk, 'Arnie's Army'**\
+`The greens look a bit greener. The red cardigan takes on a golden glow. The quadricolor umbrellas are out, even in sunshine.`\
+https://nytimes.com/athletic/7084702/2026/03/04/arnold-palmer-invitational-scheffler-furyk-umbrellas/
+
 **Slot furious in dressing room after Liverpool's loss to Wolves, Van Dijk says**\
 `The captain said Slot had "every right to be angry" as they "played poorly" after a loss against the league's bottom club.`\
 https://nytimes.com/athletic/7086122/2026/03/04/arne-slot-furious-liverpool-wolves-van-dijk/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/briefing/the-goals-of-the-iran-war.html
 **Yankees stars support Dodgers' spending: 'I wish a lot of teams found a way to do that' **\
 `Yankees players have made it known how they feel about the Dodgers outspending every team in the sport by a good margin: They love it. `\
 https://nytimes.com/athletic/7082022/2026/03/04/yankees-dodgers-spending-mlb-payroll/
-
-**March Madness is a welcome follow-up to the February orneriness of coaches**\
-`As February ended, some of the things coming out of the mouths of coaches felt more like despair than disparagement.`\
-https://nytimes.com/athletic/7084748/2026/03/04/march-madness-college-basketball-coaches/
-
-**It's Bulls' time to tank, and like all NBA teams, they want to be the next Thunder**\
-`The Thunder, the defending NBA champs and in first place again, have earned their luck. The Bulls have not, but they could sure use some.`\
-https://nytimes.com/athletic/7085633/2026/03/04/nba-tanking-ethics-bulls-thunder-column/
 
