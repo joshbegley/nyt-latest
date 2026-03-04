@@ -1,3 +1,15 @@
+**Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
+`The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
+https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
+
+**Gov. Sarah Huckabee Sanders suffered a string of primary defeats in Arkansas.**\
+`By David W. Chen`\
+https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar/anti-prison-incumbents-arkansas-sanders
+
+**Thousands Leave Middle East by Land and Air**\
+`Airlines began operating repatriation flights on Tuesday for hundreds of passengers stranded by the escalating conflict in the Middle East. Thousands more have left Iran through border crossing with neighboring countries.`\
+https://nytimes.com/video/world/middleeast/100000010752563/thousands-evecuate-middle-east-iran-war.html
+
 **Democratic Primary Heads to Runoff in Houston**\
 `The primary fight between the newly elected Representative Christian Menefee and the 11-term Representative Al Green was engineered by Republican redistricting that collapsed Houston districts.`\
 https://nytimes.com/2026/03/04/us/elections/texas-district-18-house-primary.html
