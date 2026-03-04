@@ -1,40 +1,40 @@
-**‘Hamnet’ | Anatomy of a Scene**\
-`The director Chloé Zhao narrates a sequence from her Oscar-nominated film, featuring Jessie Buckley and Paul Mescal.`\
-https://nytimes.com/video/movies/100000010747181/hamnet-scene.html
+**Andy Carroll pleads not guilty to breaching non-molestation order**\
+`The 37-year-old, who plays for Dagenham & Redbridge, was arrested in April last year in relation to an alleged offence in the previous month`\
+https://nytimes.com/athletic/7086015/2026/03/04/andy-carroll-court-plea-not-guilty/
 
-**Guide to the 2026 Winter Paralympics: How it works for each sport in Milan Cortina**\
-`The Paralympics begin Wednesday, with the opening ceremony set for Friday. Here's what to expect from each sport in Milan Cortina.`\
-https://nytimes.com/athletic/7083137/2026/03/04/2026-winter-paralympics-sports-guide/
+**Noem Review Delayed Disaster Aid by Weeks, Senate Report Finds**\
+`A report by Senate Democrats found that scrutiny of large FEMA expenditures slowed housing and employment assistance for victims of fires and storms.`\
+https://nytimes.com/2026/03/04/climate/noem-dhs-fema-delays.html
 
-**Finally, Clothes that Make Light of Luxury**\
-`It was a tale of two jackets from Jonathan Anderson at Dior and Anthony Vaccarello at Saint Laurent.`\
-https://nytimes.com/2026/03/04/style/dior-saint-laurent-fall-2026.html
+**I Worked for Block. Its A.I. Job Cuts Aren’t What They Seem.**\
+`Is Block’s announcement just a convenient and flashy new cover for typical corporate downsizing?`\
+https://nytimes.com/2026/03/04/opinion/block-jack-dorsey-layoffs-ai.html
 
-**James Talarico Wins Texas Democratic Senate Primary**\
-`State Representative James Talarico won the Democratic nomination for the closely-watched Senate race in Texas, beating Representative Jasmine Crockett. Two Republicans will head to a run-off in May.`\
-https://nytimes.com/video/us/politics/100000010751865/texas-senate-primary-talarico.html
+**Iran’s Secret Outreach Highlights Trump’s Challenge**\
+`President Trump is beginning to consider what sort of Iranian government might come next, as the U.S.-Israeli assault continues.`\
+https://nytimes.com/2026/03/04/us/politics/trump-iran-intelligence-leaders.html
 
-**Talarico Triumphs as G.O.P. Heads to Runoff: 6 Takeaways from Texas**\
-`James Talarico won the state’s Democratic primary for Senate, while Senator John Cornyn faces a runoff against Ken Paxton, his right-wing challenger.`\
-https://nytimes.com/2026/03/04/us/politics/primary-election-takeaways-tx-nc-ar.html
+**On Iran, Vance Balances Between Trump and the Anti-Intervention Right**\
+`JD Vance long championed opposition to conflicts abroad. With President Trump all-in on war with Iran, the vice president is staying loyal even as allies make his qualms known.`\
+https://nytimes.com/2026/03/04/us/politics/vance-trump-iran.html
 
-**The iPod Resurgence**\
-`More young people are listening to music on iPods. What old technology do you think is cool?`\
-https://nytimes.com/2026/03/04/learning/the-ipod-resurgence.html
+**Top Fed Official, Wary of Inflation, Calls for Extended Rate Pause**\
+`Beth M. Hammack, head of the Federal Reserve Bank of Cleveland, says it is too early to gauge the economic impact of the Iran war and backs holding interest rates steady for “quite some time.”`\
+https://nytimes.com/2026/03/04/business/fed-harrack-inflation-interest-rates.html
 
-**Congressman Faces Questions About Wife’s Social Media Stances on Israel**\
-`Representative Dan Goldman of New York distanced himself from the social media activity of his wife and campaign treasurer, saying she does “not speak for me.”`\
-https://nytimes.com/2026/03/04/nyregion/dan-goldman-wife-social-media.html
+**Watch a Haunting Theatrical Scene From ‘Hamnet’**\
+`The director Chloé Zhao narrates a sequence from her film featuring Jessie Buckley and Paul Mescal. The movie is nominated for eight Oscars, including best picture.`\
+https://nytimes.com/2026/03/04/movies/hamnet-clip.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/04/crosswords/spelling-bee-forum.html
+**U.S. Attack on Iran Tests FIFA Ahead of the World Cup**\
+`Soccer’s global governing body is grappling with a World Cup first: A tournament host going to war with a participating nation.`\
+https://nytimes.com/2026/03/04/world/middleeast/iran-war-us-fifa-world-cup-soccer.html
 
-**Jimmy Kimmel Wants to Host the White House Correspondents’ Dinner**\
-`“Please, give the people what they want for once,” the talk show host appealed to President Trump. “This is our destiny together, you and me. Think about it.”`\
-https://nytimes.com/2026/03/04/arts/television/kimmel-white-house-correspondents-dinner.html
+**Paramount-Warner Deal Promises to Shake Up Streaming**\
+`The deal would put the combined company in the same league as Disney and Amazon. But Netflix and YouTube will still easily outrank everyone.`\
+https://nytimes.com/2026/03/04/business/media/paramount-warner-streaming-wars.html
 
-**'Same bulls---' - FIFA's $7.8m row with Foxboro putting World Cup games at risk as town stands firm**\
-`"Same bulls---" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
-https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
+**Did You Know These Oscar-Nominated Actresses Started in Reality TV?**\
+`Hollywood careers don’t always begin where you expect them to, as Jessie Buckley, Teyana Taylor and Emma Stone could tell you.`\
+https://nytimes.com/2026/03/04/movies/oscar-actresses-reality-tv-emma-stone-teyana-taylor.html
 
