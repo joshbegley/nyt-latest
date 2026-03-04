@@ -1,3 +1,15 @@
+**Man United next manager odds: Has Carrick’s impact transcended a new manager bounce?**\
+`With Carrick proving he has the answers to many of the issues at Old Trafford, his candidacy for the full-time job should be taken seriously`\
+https://nytimes.com/athletic/7086089/2026/03/04/manchester-united-next-manager-odds-carrick/
+
+**Here’s the latest.**\
+`By Tim Balk`\
+https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar/heres-the-latest
+
+**Election Live Updates: Talarico Wins Democratic Primary in Texas; Republicans Head to Runoff**\
+`James Talarico’s race against Jasmine Crockett was called early Wednesday after confusion over legal challenges. Senator John Cornyn, a four-term Republican, was forced into a runoff with Ken Paxton.`\
+https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar
+
 **How to watch Arkansas vs. Kentucky women's basketball: SEC Tournament Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086136/2026/03/04/arkansas-vs-kentucky-stream-how-to-watch-march-4/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7086126/2026/03/04/vcu-vs-duquesne-stream-how-to-wa
 **How to watch Cincinnati vs. Kansas State women's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bearcats play the Kansas State Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086124/2026/03/04/cincinnati-vs-kansas-state-stream-how-to-watch-march-4/
-
-**Richard Hell**\
-`The punk-rock icon and writer has spent more than 50 years in his East Village tenement apartment.`\
-https://nytimes.com/interactive/2026/03/04/realestate/richard-hell-east-village-apartment-tour.html
-
-**Patriots mock draft: New England nabs WR with 31st pick after an impressive combine**\
-`In our latest mock draft, the Patriots go after a wide receiver and edge rusher in Rounds 1 and 2, then fill holes elsewhere on the roster.`\
-https://nytimes.com/athletic/7083757/2026/03/04/patriots-mock-draft-nfl-chris-brazzell/
-
-**Andy Carroll pleads not guilty to breaching non-molestation order**\
-`The 37-year-old, who plays for Dagenham & Redbridge, was arrested in April last year in relation to an alleged offence in the previous month`\
-https://nytimes.com/athletic/7086015/2026/03/04/andy-carroll-court-plea-not-guilty/
 
