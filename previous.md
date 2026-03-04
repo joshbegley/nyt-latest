@@ -1,3 +1,7 @@
+**'Same bulls***' - FIFA's $7.8m row with Foxboro putting World Cup games at risk as town stands firm**\
+`"Same bulls***" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
+https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
+
 **Dwight McNeil's return: Tough love from Moyes, a standing ovation and a 'step up in level'**\
 `After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
 https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
 **Iran Live Updates: Funeral Proceedings Begin for Slain Supreme Leader**\
 `Ayatollah Ali Khamenei, who led Iran for more than three decades, was killed in the U.S.-Israeli attacks. His replacement could be named as early as Wednesday as conflict grips the Middle East.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
-
-**The New York Times in Print for Wednesday, March 4, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
 
