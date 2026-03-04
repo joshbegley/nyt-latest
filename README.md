@@ -1,3 +1,7 @@
+**Western Gas Exporters Could Profit From War in Persian Gulf**\
+`Prices for liquefied natural gas have shot up in recent days, which could bring bigger paydays for European and U.S. energy companies.`\
+https://nytimes.com/2026/03/04/business/energy-environment/natural-gas-prices-lng-shell-exxon-war-iran.html
+
 **MLB Draft scouting notes: Roch Cholowsky, Justin Lebron highlight star-studded Amegy Classic**\
 `The Dallas area was the place to be for MLB draft scouts last weekend, with top prospects competing at several venues in the area.`\
 https://nytimes.com/athletic/7086867/2026/03/04/mlb-draft-scouting-roch-cholowsky-justin-lebron/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086915/2026/03/04/womens-college-basketball-pitt-f
 **A Nuclear Reactor Backed by Bill Gates Gets Federal Approval to Start Building**\
 `TerraPower’s project in Wyoming, which uses novel technology, is the first new commercial reactor to receive federal approval in nearly a decade.`\
 https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-permit.html
-
-**Interior Secretary Visits Venezuela as Part of Oil and Mining Expansion**\
-`The trip is part of the Trump administration’s push to build production in the South American nation.`\
-https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
 

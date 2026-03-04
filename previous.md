@@ -1,3 +1,7 @@
+**MLB Draft scouting notes: Roch Cholowsky, Justin Lebron highlight star-studded Amegy Classic**\
+`The Dallas area was the place to be for MLB draft scouts last weekend, with top prospects competing at several venues in the area.`\
+https://nytimes.com/athletic/7086867/2026/03/04/mlb-draft-scouting-roch-cholowsky-justin-lebron/
+
 **Spring Systems Threaten Days of Storms Across Much of the U.S.**\
 `Some kind of severe weather is expected every day into early next week, forecasters warned. Friday is expected to be among the riskiest.`\
 https://nytimes.com/2026/03/04/weather/severe-storm-forecast-tornado.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-per
 **Interior Secretary Visits Venezuela as Part of Oil and Mining Expansion**\
 `The trip is part of the Trump administration’s push to build production in the South American nation.`\
 https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
-
-**99 days out, the big World Cup business questions, asked and answered: MoneyCall**\
-`The Athletic's free weekly sports-business cheat sheet, including Paramount's big buy, the Hawks' "Magic City Monday" promo and more.`\
-https://nytimes.com/athletic/7087019/2026/03/04/world-cup-fifa-soccer-moneycall/
 

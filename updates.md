@@ -1,3 +1,7 @@
+**MLB Draft scouting notes: Roch Cholowsky, Justin Lebron highlight star-studded Amegy Classic**\
+`The Dallas area was the place to be for MLB draft scouts last weekend, with top prospects competing at several venues in the area.`\
+https://nytimes.com/athletic/7086867/2026/03/04/mlb-draft-scouting-roch-cholowsky-justin-lebron/
+
 **Spring Systems Threaten Days of Storms Across Much of the U.S.**\
 `Some kind of severe weather is expected every day into early next week, forecasters warned. Friday is expected to be among the riskiest.`\
 https://nytimes.com/2026/03/04/weather/severe-storm-forecast-tornado.html
