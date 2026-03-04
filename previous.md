@@ -1,3 +1,31 @@
+**NATO Air Defenses Shoot Down Iranian Missile Headed Toward Turkey**\
+`The Incirlik air base in southern Turkey hosts American forces but Turkey has said that it will not allow its airspace to be used for attacks on Iran.`\
+https://nytimes.com/2026/03/04/world/middleeast/nato-iranian-missile-turkey.html
+
+**Mandel's Mailbag: How much CFP turnover will there be? What does another thin NFL QB class mean?**\
+`Answering your college football questions about CFP turnover, replacing Heisman candidates, realistic expectations for Alabama and more.`\
+https://nytimes.com/athletic/7084551/2026/03/04/college-football-playoff-predictions-nfl-draft-qbs/
+
+**Lowetide: How Connor Murphy's size, grit and mean streak could impact the Oilers**\
+`Murphy could be vital to the Oilers making the playoffs and going deep in the postseason for the third straight year.`\
+https://nytimes.com/athletic/7082753/2026/03/04/edmonton-oilers-connor-murphy-stats-roster/
+
+**How to watch MLB games in 2026: New broadcasters, channels, streaming options**\
+`The MLB telecast rotation is as crowded and complicated as ever. Here's what to know for the 2026 season.`\
+https://nytimes.com/athletic/7053592/2026/03/04/how-to-watch-mlb-games-espn-nbc-netflix/
+
+**Daniel Ricciardo's mailbag: Ex-F1 driver answers your questions**\
+`Ex-F1 driver and Australian racer Daniel Ricciardo exclusively answers fan questions on the eve of the 2026 Australian GP`\
+https://nytimes.com/athletic/7086265/2026/03/04/daniel-ricciardo-2026-f1/
+
+**Astros mailbag: Solving the infield surplus and keeping veterans happy**\
+`Plus, why it's not hyperbole to suggest this will be Houston's biggest draft since 2015, when it selected Alex Bregman and Kyle Tucker.`\
+https://nytimes.com/athletic/7084922/2026/03/04/houston-astros-mailbag-infield-surplus-veteran-mood/
+
+**Trump Administration Live Updates: Homeland Security Secretary to Testify for 2nd Day**\
+``\
+https://nytimes.com/live/2026/03/04/us/trump-news-updates
+
 **Spanish soccer club pens open letter to Madonna in search for 1990 jersey**\
 `The 67-year-old singer wore the light blue home jersey in a concert at Celta's Balaidos Stadium as part of her Blonde Ambition tour.`\
 https://nytimes.com/athletic/7086234/2026/03/04/celta-vigo-jersey-madonna-letter/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7086081/2026/03/04/thunder-nuggets-lu-dort-nikola-j
 **The High Stakes of Keeping the Strait of Hormuz Open**\
 `The U.S.-Israeli war with Iran has paralyzed the strait, a vital shipping lane for energy and commerce, putting global investors on edge.`\
 https://nytimes.com/2026/03/04/business/dealbook/iran-hormuz-oil-trump.html
-
-**Twins pitcher Bailey Ober hopes mid-camp pause leads to better results this season**\
-`Ober came into camp with revamped mechanics, then hit a roadblock. He's back on track and excited for the season to come.`\
-https://nytimes.com/athletic/7084071/2026/03/04/twins-bailey-ober-mechanics-spring-training/
-
-**7 reasons to watch the Arnold Palmer Invitational: Scheffler, Furyk, 'Arnie's Army'**\
-`The greens look a bit greener. The red cardigan takes on a golden glow. The quadricolor umbrellas are out, even in sunshine.`\
-https://nytimes.com/athletic/7084702/2026/03/04/arnold-palmer-invitational-scheffler-furyk-umbrellas/
-
-**Slot furious in dressing room after Liverpool's loss to Wolves, Van Dijk says**\
-`The captain said Slot had "every right to be angry" as they "played poorly" after a loss against the league's bottom club.`\
-https://nytimes.com/athletic/7086122/2026/03/04/arne-slot-furious-liverpool-wolves-van-dijk/
-
-**U.S. Half Marathon Champs organisers offer $39k to diverted runners**\
-`The credited victor on the day said she did not feel like a winner and would not accept a spot on the U.S. team for the world championships.`\
-https://nytimes.com/athletic/7086196/2026/03/04/jess-mclain-usa-track-field-half-marathon-diversion/
-
-**The World Baseball Classic is actually arriving at a good time for the Giants**\
-`The WBC is taking several big names from Giants' camp, but that leaves plenty of opportunities for the team to grow in their absence.`\
-https://nytimes.com/athletic/7085433/2026/03/04/world-baseball-classic-sf-giants/
-
-**Aaron Gordon could return this week. The Nuggets' season depends on him**\
-`Gordon is perhaps the most important role player in the NBA, and Denver needs him to be healthy to have any shot at the title.`\
-https://nytimes.com/athletic/7085944/2026/03/04/denver-nuggets-aaron-gordon-injury-season-prospects/
-
-**Spain’s Leader, Rejecting Iran War, Escalates Long Feud With Trump**\
-`Prime Minister Pedro Sánchez has lashed out at the American-Israeli strikes, underlining his refusal to participate even after President Trump threatened Madrid with economic retaliation.`\
-https://nytimes.com/2026/03/04/world/europe/trump-spain-iran-sanchez.html
 
