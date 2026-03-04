@@ -1,3 +1,11 @@
+**Chip Roy and Mayes Middleton Advance to Runoff for Texas Attorney General**\
+`No Republican reached a majority on Tuesday, but Mr. Middleton funneled millions of his own cash to secure a spot with Representative Roy,in the May 26 runoff.`\
+https://nytimes.com/2026/03/04/us/elections/texas-attorney-general.html
+
+**Inter Miami's new stadium to have Nubank as naming rights partner**\
+`Nubank, a digital bank that operates in Brazil, Mexico and Colombia, reached a long-term naming rights agreement with the club.`\
+https://nytimes.com/athletic/7086310/2026/03/04/inter-miami-stadium-sponsor-nubank/
+
 **Lakers' Big 3 of LeBron, Luka and Reaves has been too small this season**\
 `There's been enough of a sample size now to show that the star trio is producing a sum less than its parts.`\
 https://nytimes.com/athletic/7086053/2026/03/04/lebron-james-luka-doncic-austin-reaves-lakers-stats/
