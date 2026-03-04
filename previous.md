@@ -1,3 +1,7 @@
+**Democrats Question Credentials of Trump Ally’s Squad of Armed Citizens**\
+`Bruce Blakeman, the Republican candidate for governor of New York, created a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
+https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
+
 **U.S. Conducts Military Operations in Ecuador**\
 `The U.S. Southern Command said that the joint activity with Ecuador was an effort to “combat the scourge of narco-terrorism,” but did not provide other details about the operation.`\
 https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-class
 **A Look at 4 Americans Who Have Died in the Iran Conflict**\
 `They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
 https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
-
-**Senators Question Kristi Noem on ICE Immigration Tactics**\
-`Homeland Security Secretary Kristi Noem repeatedly refused to apologize for suggesting that Alex Pretti and Renee Good, two U.S. citizens shot and killed by agents, were domestic terrorists.`\
-https://nytimes.com/video/us/politics/100000010749399/kristi-noem-dhs-hearing.html
 
