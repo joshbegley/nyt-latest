@@ -1,3 +1,11 @@
+**Former Barclays Center Executive Says Live Nation Threatened to Pull Tours**\
+`The Justice Department had John Abbamondi testify at an antitrust trial to support its case that Live Nation has acted as a monopoly, an accusation the company denies.`\
+https://nytimes.com/2026/03/04/arts/music/live-nation-trial-barclays-center.html
+
+**Elon Musk Defends Social Media Posts in Twitter Shareholder Lawsuit**\
+`Mr. Musk said he did not expect his posts in the lead-up to his 2022 acquisition of the social media site, now X, to affect the company’s share price.`\
+https://nytimes.com/2026/03/04/technology/elon-musk-testifies-twitter-lawsuit.html
+
 **The U.S. Is Accelerating Its Attacks on Iran**\
 `Also, sea levels may be higher than we thought. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/04/briefing/the-us-accelerating-its-attacks-on-iran.html
