@@ -1,3 +1,7 @@
+**Inter Miami's new stadium to have Nubank as naming rights partner**\
+`Nubank, a digital bank that operates in Brazil, Mexico and Colombia, reached a long-term naming rights agreement with the club.`\
+https://nytimes.com/athletic/7086310/2026/03/04/inter-miami-stadium-sponsor-nubank/
+
 **Lakers' Big 3 of LeBron, Luka and Reaves has been too small this season**\
 `There's been enough of a sample size now to show that the star trio is producing a sum less than its parts.`\
 https://nytimes.com/athletic/7086053/2026/03/04/lebron-james-luka-doncic-austin-reaves-lakers-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086323/2026/03/04/siu-edwardsville-vs-ut-martin-st
 **How to watch Houston vs. BYU women's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086321/2026/03/04/houston-vs-byu-stream-how-to-watch-march-4/
-
-**How to watch Wake Forest vs. Cal women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Wake Forest Demon Deacons play the California Golden Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086319/2026/03/04/wake-forest-vs-cal-stream-how-to-watch-march-4/
 
