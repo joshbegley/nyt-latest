@@ -1,3 +1,11 @@
+**NHL trade grades: Wild pay big for size and grit of Michael McCarron**\
+`McCarron is more valuable than his numbers would indicate but the price paid feels like an overpayment for Minnesota.`\
+https://nytimes.com/athletic/7085033/2026/03/03/wild-michael-mccarron-trade-grades-nhl-predators/
+
+**The Perennial Question in Texas: Is This the Year It Goes Blue?**\
+`The signs are familiar: an unpopular Republican president, well-funded Democrats and anecdotes of disaffected G.O.P. and independent voters.`\
+https://nytimes.com/2026/03/03/us/elections/texas-democrats-statewide-election.html
+
 **Poker game ring case involving Chauncey Billups may see two dozen plea deals**\
 `Billups and former NBA player Damon Jones were alleged to have acted as lures as part of the scheme.`\
 https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-plea-deal-agreements/

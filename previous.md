@@ -1,3 +1,11 @@
+**NHL trade grades: Wild pay big for size and grit of Michael McCarron**\
+`McCarron is more valuable than his numbers would indicate but the price paid feels like an overpayment for Minnesota.`\
+https://nytimes.com/athletic/7085033/2026/03/03/wild-michael-mccarron-trade-grades-nhl-predators/
+
+**The Perennial Question in Texas: Is This the Year It Goes Blue?**\
+`The signs are familiar: an unpopular Republican president, well-funded Democrats and anecdotes of disaffected G.O.P. and independent voters.`\
+https://nytimes.com/2026/03/03/us/elections/texas-democrats-statewide-election.html
+
 **Poker game ring case involving Chauncey Billups may see two dozen plea deals**\
 `Billups and former NBA player Damon Jones were alleged to have acted as lures as part of the scheme.`\
 https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-plea-deal-agreements/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/us/elections/house-races-primary-midterm-election
 **Judge Extends Voting in Dallas County After Complaints About Confusion**\
 `The judge extended voting until 9 p.m. Democrats had argued that a rule change spurred by Republicans confused voters who went to the wrong polling places.`\
 https://nytimes.com/2026/03/03/us/elections/dallas-voting-democrats-republicans.html
-
-**Iran War Maps: Tracking The Mideast Conflict**\
-`Maps show where U.S. and Israel have struck Iran, and where Iran has retaliated.`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps
-
-**PE firm gathers board members tied to 15 schools for CFB restructure pitch: Sources**\
-`Big Ten and SEC leaders have had no interest in outside efforts to transform college football, so Smash is pitching other school voices.`\
-https://nytimes.com/athletic/7083402/2026/03/03/smash-sports-college-football-big-ten-sec/
 

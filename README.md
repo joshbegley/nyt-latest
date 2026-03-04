@@ -1,3 +1,11 @@
+**Senators Question Kristi Noem on ICE Immigration Tactics**\
+`Homeland Security Secretary Kristi Noem repeatedly refused to apologize for suggesting that Alex Pretti and Renee Good, two U.S. citizens shot and killed by agents, were domestic terrorists.`\
+https://nytimes.com/video/us/politics/100000010749399/kristi-noem-dhs-hearing.html
+
+**Robert Thomas to Sabres? Breaking down what a trade could look like with Blues**\
+`The Blues and Sabres might have the pieces to make a trade involving St. Louis' star center Robert Thomas. What would it take? `\
+https://nytimes.com/athletic/7084938/2026/03/03/robert-thomas-sabres-blues-trade-prospects/
+
 **NHL trade grades: Wild pay big for size and grit of Michael McCarron**\
 `McCarron is more valuable than his numbers would indicate but the price paid feels like an overpayment for Minnesota.`\
 https://nytimes.com/athletic/7085033/2026/03/03/wild-michael-mccarron-trade-grades-nhl-predators/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-con
 **Trump Has Been Sued 198 Times for Withholding Funding. It Hasn’t Stopped Him.**\
 `Immigration demands for highway dollars, D.E.I. rules for homeless grants: how Trump has tried to wield spending to get his way.`\
 https://nytimes.com/interactive/2026/03/03/upshot/trump-funding-lawsuits.html
-
-**The House Races to Watch in Tuesday’s Primary Elections**\
-`Democrats are playing defense on a redrawn House map in Texas, while incumbents in both parties face fierce primary challenges in Texas and North Carolina.`\
-https://nytimes.com/2026/03/03/us/elections/house-races-primary-midterm-elections-tx-nc.html
-
-**Judge Extends Voting in Dallas County After Complaints About Confusion**\
-`The judge extended voting until 9 p.m. Democrats had argued that a rule change spurred by Republicans confused voters who went to the wrong polling places.`\
-https://nytimes.com/2026/03/03/us/elections/dallas-voting-democrats-republicans.html
 
