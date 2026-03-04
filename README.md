@@ -1,3 +1,7 @@
+**Real Madrid's Rodrygo played with partial ACL tear since 2023**\
+`Rodrygo sustained a torn ACL and meniscus in his right knee during Monday's defeat against Getafe and will now miss the World Cup.`\
+https://nytimes.com/athletic/7084095/2026/03/04/rodrygo-acl-injury-real-madrid/
+
 **The Pulse: The year’s best baseball might happen in March**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7084615/2026/03/04/world-baseball-classic-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/podcasts/the-headlines/trump-iran-texas-primary.h
 **Why these 7 NHL teams won’t — but should — make a trade deadline blockbuster**\
 `There are logical reasons for some teams to be on the fence about swinging a big trade. There are also good reasons why it's now or never.`\
 https://nytimes.com/athletic/7084819/2026/03/04/nhl-trade-deadline-2026-teams-blockbuster/
-
-**Who might coach the L.A. Kings next? Here are 10 options, including DeBoer, Tortorella**\
-`Who might the Kings hire to ultimately replace Jim Hiller?`\
-https://nytimes.com/athletic/7085574/2026/03/04/la-kings-coach-deboer-tortorella-greene/
 

@@ -1,3 +1,7 @@
+**The Pulse: The year’s best baseball might happen in March**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7084615/2026/03/04/world-baseball-classic-the-pulse/
+
 **Twenty years in, Sloan Sports Analytics Conference co-founder looks ahead**\
 `Co-founder Jessica Gelman previews some highlights of the 2026 conference and reflects on its 20-year anniversary.`\
 https://nytimes.com/athletic/7081209/2026/03/04/sloan-sports-analytics-conference-jessica-gelman-daryl-morey-2026/
