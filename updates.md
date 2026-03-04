@@ -1,3 +1,7 @@
+**Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
+`Mets rookie Nolan McLean is currently scheduled to start the WBC championship game on March 17 if Team USA makes it that far.`\
+https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
+
 **Roy Cooper and Michael Whatley Advance in North Carolina Senate Race**\
 `North Carolina has broken national Democrats’ hearts for nearly two decades, but this time they hope that Roy Cooper, the former governor, can once again find a path to victory.`\
 https://nytimes.com/2026/03/03/us/elections/north-carolina-senate-primary-whatley-cooper.html
