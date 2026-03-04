@@ -1,3 +1,7 @@
+**U.S. Conducts Military Operations in Ecuador**\
+`The U.S. Southern Command said that the joint activity with Ecuador was an effort to “combat the scourge of narco-terrorism,” but did not provide other details about the operation.`\
+https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
+
 **Congress Splits Over Iran War as Senate Faces a Vote**\
 `The administration’s shifting justifications for the military operation alarmed Democrats, who said no clear rationale had been given. Republicans struggled to echo the evolving explanations.`\
 https://nytimes.com/2026/03/03/us/politics/congress-iran-war-powers.html
