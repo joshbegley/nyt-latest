@@ -1,3 +1,7 @@
+**U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
+`Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
+https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
+
 **How to Invest During a Persian Gulf War**\
 `The best playbook for recent U.S. conflicts has been to forget that they are even happening. Will this time be different?`\
 https://nytimes.com/2026/03/04/business/iran-us-israel-war-investing-stocks-bonds.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/style/spring-fashion-italy-milan-fashion-week.htm
 **Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
 `The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
 https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
-
-**Gov. Sarah Huckabee Sanders suffered a string of primary defeats in Arkansas.**\
-`By David W. Chen`\
-https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar/anti-prison-incumbents-arkansas-sanders
 
