@@ -1,3 +1,11 @@
+**Richard Hell**\
+`The punk-rock icon and writer has spent more than 50 years in his East Village tenement apartment.`\
+https://nytimes.com/interactive/2026/03/04/realestate/richard-hell-east-village-apartment-tour.html
+
+**Patriots mock draft: New England nabs WR with 31st pick after an impressive combine**\
+`In our latest mock draft, the Patriots go after a wide receiver and edge rusher in Rounds 1 and 2, then fill holes elsewhere on the roster.`\
+https://nytimes.com/athletic/7083757/2026/03/04/patriots-mock-draft-nfl-chris-brazzell/
+
 **Andy Carroll pleads not guilty to breaching non-molestation order**\
 `The 37-year-old, who plays for Dagenham & Redbridge, was arrested in April last year in relation to an alleged offence in the previous month`\
 https://nytimes.com/athletic/7086015/2026/03/04/andy-carroll-court-plea-not-guilty/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/movies/hamnet-clip.html
 **U.S. Attack on Iran Tests FIFA Ahead of the World Cup**\
 `Soccer’s global governing body is grappling with a World Cup first: A tournament host going to war with a participating nation.`\
 https://nytimes.com/2026/03/04/world/middleeast/iran-war-us-fifa-world-cup-soccer.html
-
-**Paramount-Warner Deal Promises to Shake Up Streaming**\
-`The deal would put the combined company in the same league as Disney and Amazon. But Netflix and YouTube will still easily outrank everyone.`\
-https://nytimes.com/2026/03/04/business/media/paramount-warner-streaming-wars.html
-
-**Did You Know These Oscar-Nominated Actresses Started in Reality TV?**\
-`Hollywood careers don’t always begin where you expect them to, as Jessie Buckley, Teyana Taylor and Emma Stone could tell you.`\
-https://nytimes.com/2026/03/04/movies/oscar-actresses-reality-tv-emma-stone-teyana-taylor.html
 
