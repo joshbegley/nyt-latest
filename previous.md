@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/04/arts/television/kimmel-white-house-correspondents
 `"Same bulls***" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
 https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
 
-**Dwight McNeil's return: Tough love from Moyes, a standing ovation and a 'step up in level'**\
+**Dwight McNeil's return: Tough love from Moyes, an ovation and a 'step up in level'**\
 `After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
 https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
 

@@ -1,3 +1,7 @@
+**Dwight McNeil's return: Tough love from Moyes, an ovation and a 'step up in level'**\
+`After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
+https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
+
 **The iPod Resurgence**\
 `More young people are listening to music on iPods. What old technology do you think is cool?`\
 https://nytimes.com/2026/03/04/learning/the-ipod-resurgence.html
