@@ -1,3 +1,7 @@
+**How to watch North Alabama vs. FGCU men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Alabama Lions play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086312/2026/03/04/north-alabama-vs-fgcu-stream-how-to-watch-march-4/
+
 **NATO Air Defenses Shoot Down Iranian Missile Headed Toward Turkey**\
 `The Incirlik air base in southern Turkey hosts American forces but Turkey has said that it will not allow its airspace to be used for attacks on Iran.`\
 https://nytimes.com/2026/03/04/world/middleeast/nato-iranian-missile-turkey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086234/2026/03/04/celta-vigo-jersey-madonna-letter
 **'I went over the limit': Lu Dort regrets flagrant foul on Nikola Jokić**\
 `The Oklahoma City wing called his flagrant foul in Friday's win over Denver unnecessary, but stressed he's not a dirty player.`\
 https://nytimes.com/athletic/7086081/2026/03/04/thunder-nuggets-lu-dort-nikola-jokic-flagrant-foul/
-
-**The High Stakes of Keeping the Strait of Hormuz Open**\
-`The U.S.-Israeli war with Iran has paralyzed the strait, a vital shipping lane for energy and commerce, putting global investors on edge.`\
-https://nytimes.com/2026/03/04/business/dealbook/iran-hormuz-oil-trump.html
 

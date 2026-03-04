@@ -1,3 +1,7 @@
+**How to watch North Alabama vs. FGCU men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Alabama Lions play the Florida Gulf Coast Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7086312/2026/03/04/north-alabama-vs-fgcu-stream-how-to-watch-march-4/
+
 **NATO Air Defenses Shoot Down Iranian Missile Headed Toward Turkey**\
 `The Incirlik air base in southern Turkey hosts American forces but Turkey has said that it will not allow its airspace to be used for attacks on Iran.`\
 https://nytimes.com/2026/03/04/world/middleeast/nato-iranian-missile-turkey.html
