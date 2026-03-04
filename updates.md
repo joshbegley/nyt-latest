@@ -1,3 +1,11 @@
+**'I went over the limit': Lu Dort regrets flagrant foul on Nikola Jokić**\
+`The Oklahoma City wing called his flagrant foul in Friday's win over Denver unnecessary, but stressed he's not a dirty player.`\
+https://nytimes.com/athletic/7086081/2026/03/04/thunder-nuggets-lu-dort-nikola-jokic-flagrant-foul/
+
+**The High Stakes of Keeping the Strait of Hormuz Open**\
+`The U.S.-Israeli war with Iran has paralyzed the strait, a vital shipping lane for energy and commerce, putting global investors on edge.`\
+https://nytimes.com/2026/03/04/business/dealbook/iran-hormuz-oil-trump.html
+
 **Twins pitcher Bailey Ober hopes mid-camp pause leads to better results this season**\
 `Ober came into camp with revamped mechanics, then hit a roadblock. He's back on track and excited for the season to come.`\
 https://nytimes.com/athletic/7084071/2026/03/04/twins-bailey-ober-mechanics-spring-training/

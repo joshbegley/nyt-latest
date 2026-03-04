@@ -1,3 +1,11 @@
+**'I went over the limit': Lu Dort regrets flagrant foul on Nikola Jokić**\
+`The Oklahoma City wing called his flagrant foul in Friday's win over Denver unnecessary, but stressed he's not a dirty player.`\
+https://nytimes.com/athletic/7086081/2026/03/04/thunder-nuggets-lu-dort-nikola-jokic-flagrant-foul/
+
+**The High Stakes of Keeping the Strait of Hormuz Open**\
+`The U.S.-Israeli war with Iran has paralyzed the strait, a vital shipping lane for energy and commerce, putting global investors on edge.`\
+https://nytimes.com/2026/03/04/business/dealbook/iran-hormuz-oil-trump.html
+
 **Twins pitcher Bailey Ober hopes mid-camp pause leads to better results this season**\
 `Ober came into camp with revamped mechanics, then hit a roadblock. He's back on track and excited for the season to come.`\
 https://nytimes.com/athletic/7084071/2026/03/04/twins-bailey-ober-mechanics-spring-training/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/world/europe/trump-spain-iran-sanchez.html
 **Reflecting on the meaning of Mad Max as Scherzer returns to the Blue Jays**\
 `As much as anything else, the magic of Mad Max explains why the 41-year-old legend finds himself in a Toronto uniform again this spring. `\
 https://nytimes.com/athletic/7085407/2026/03/04/max-scherzer-stories-toronto-blue-jays/
-
-**The Goals of the War**\
-`We explore what the sides hope to achieve in this conflict.`\
-https://nytimes.com/2026/03/04/briefing/the-goals-of-the-iran-war.html
-
-**Yankees stars support Dodgers' spending: 'I wish a lot of teams found a way to do that' **\
-`Yankees players have made it known how they feel about the Dodgers outspending every team in the sport by a good margin: They love it. `\
-https://nytimes.com/athletic/7082022/2026/03/04/yankees-dodgers-spending-mlb-payroll/
 
