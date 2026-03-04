@@ -1,3 +1,15 @@
+**Spain’s Leader, Rejecting Iran War, Escalates Long Feud With Trump**\
+`Prime Minister Pedro Sánchez has lashed out at the American-Israeli strikes, underlining his refusal to participate even after President Trump threatened Madrid with economic retaliation.`\
+https://nytimes.com/2026/03/04/world/europe/trump-spain-iran-sanchez.html
+
+**Reflecting on the meaning of Mad Max as Scherzer returns to the Blue Jays**\
+`As much as anything else, the magic of Mad Max explains why the 41-year-old legend finds himself in a Toronto uniform again this spring. `\
+https://nytimes.com/athletic/7085407/2026/03/04/max-scherzer-stories-toronto-blue-jays/
+
+**The Goals of the War**\
+`We explore what the sides hope to achieve in this conflict.`\
+https://nytimes.com/2026/03/04/briefing/the-goals-of-the-iran-war.html
+
 **Yankees stars support Dodgers' spending: 'I wish a lot of teams found a way to do that' **\
 `Yankees players have made it known how they feel about the Dodgers outspending every team in the sport by a good margin: They love it. `\
 https://nytimes.com/athletic/7082022/2026/03/04/yankees-dodgers-spending-mlb-payroll/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7083888/2026/03/04/nhl-trade-deadline-what-im-heari
 **How 'the book' has come to influence the decisions of 100+ college football coaches**\
 `Mike McRoberts grew tired of the “clear logic errors” he saw football coaches constantly making. So he created a company to help them.`\
 https://nytimes.com/athletic/7084991/2026/03/04/college-football-coaches-analytics-fourth-down-the-book/
-
-**Transfer portal confidential: Tampering, roster budgets, January window and more**\
-`What surprised staffers the most about how the portal window played out? Is it possible to sign a good class without tampering? `\
-https://nytimes.com/athletic/7072980/2026/03/04/college-football-transfer-portal-tampering-nil-window/
-
-**Roman Anthony already fits in with the stars. He's ready to prove himself over a full season**\
-`Anthony is the youngest member of the Team USA roster by two years, but his talent has him fitting right in with the stars of the game.`\
-https://nytimes.com/athletic/7084378/2026/03/04/roman-anthony-red-sox-world-baseball-classic/
-
-**'You can really empty the tank': Improving Flyers buoyed by more aggressive defense**\
-`The Flyers' game is trending in the right direction again but their odds of making the playoffs are still stacked against them.`\
-https://nytimes.com/athletic/7084659/2026/03/04/flyers-defense-nhl-playoff-chances-deadline/
 
