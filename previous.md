@@ -1,8 +1,20 @@
+**U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
+`Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
+https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
+
+**How to Invest During a Persian Gulf War**\
+`The best playbook for recent U.S. conflicts has been to forget that they are even happening. Will this time be different?`\
+https://nytimes.com/2026/03/04/business/iran-us-israel-war-investing-stocks-bonds.html
+
+**What Our Industrial Food System Can’t Do**\
+`Readers respond to a guest essay, “Stop Worrying, and Learn to Love Industrial Food.”`\
+https://nytimes.com/2026/03/04/opinion/letters/industrial-food-system.html
+
 **Panthers, Cardinals to kick off 2026 NFL preseason with Hall of Fame Game**\
 `The game in Canton, Ohio, will feature the defending NFC South champion Panthers against a Cardinals team in transition led by a new coach.`\
 https://nytimes.com/athletic/7086440/2026/03/04/nfl-hall-of-fame-game-cardinals-panthers/
 
-**Chiefs trade CB Trent McDuffie to Rams for package of draft picks: Source**\
+**Chiefs trade CB Trent McDuffie to Rams for 4 picks, including first-rounder: Source**\
 `McDuffie, a 2022 first-round pick, was a two-time All-Pro during his four-year tenure in Kansas City. `\
 https://nytimes.com/athletic/7086935/2026/03/04/chiefs-rams-trent-mcduffie-trade/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/style/spring-fashion-italy-milan-fashion-week.htm
 **Trump Justice Dept. Seeks to Stall State Bar Discipline of Its Lawyers**\
 `The administration has no control over the disciplinary authorities of state bar associations, but a new proposal would let the attorney general ask them to suspend proceedings involving department lawyers.`\
 https://nytimes.com/2026/03/04/us/politics/justice-department-state-bar-associations-lawyers.html
-
-**Gov. Sarah Huckabee Sanders suffered a string of primary defeats in Arkansas.**\
-`By David W. Chen`\
-https://nytimes.com/live/2026/03/04/us/primary-elections-midterms-tx-nc-ar/anti-prison-incumbents-arkansas-sanders
-
-**Thousands Leave Middle East by Land and Air**\
-`Airlines began operating repatriation flights on Tuesday for hundreds of passengers stranded by the escalating conflict in the Middle East. Thousands more have left Iran through border crossing with neighboring countries.`\
-https://nytimes.com/video/world/middleeast/100000010752563/thousands-evecuate-middle-east-iran-war.html
-
-**Democratic Primary Heads to Runoff in Houston**\
-`The primary fight between the newly elected Representative Christian Menefee and the 11-term Representative Al Green was engineered by Republican redistricting that collapsed Houston districts.`\
-https://nytimes.com/2026/03/04/us/elections/texas-district-18-house-primary.html
 

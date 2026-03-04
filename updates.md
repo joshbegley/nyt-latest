@@ -1,3 +1,19 @@
+**U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
+`Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
+https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
+
+**How to Invest During a Persian Gulf War**\
+`The best playbook for recent U.S. conflicts has been to forget that they are even happening. Will this time be different?`\
+https://nytimes.com/2026/03/04/business/iran-us-israel-war-investing-stocks-bonds.html
+
+**What Our Industrial Food System Can’t Do**\
+`Readers respond to a guest essay, “Stop Worrying, and Learn to Love Industrial Food.”`\
+https://nytimes.com/2026/03/04/opinion/letters/industrial-food-system.html
+
+**Chiefs trade CB Trent McDuffie to Rams for 4 picks, including first-rounder: Source**\
+`McDuffie, a 2022 first-round pick, was a two-time All-Pro during his four-year tenure in Kansas City. `\
+https://nytimes.com/athletic/7086935/2026/03/04/chiefs-rams-trent-mcduffie-trade/
+
 **Panthers, Cardinals to kick off 2026 NFL preseason with Hall of Fame Game**\
 `The game in Canton, Ohio, will feature the defending NFC South champion Panthers against a Cardinals team in transition led by a new coach.`\
 https://nytimes.com/athletic/7086440/2026/03/04/nfl-hall-of-fame-game-cardinals-panthers/
