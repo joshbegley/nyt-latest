@@ -1,3 +1,7 @@
+**Iran soccer player 'concerned and sad' for country, loved ones**\
+`Iran's women's soccer team is competing in the Asian Cup and appeared not to sing during the national anthem in its first game.`\
+https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
+
 **U.S. Widens Recall of Diplomatic Staff to Include Pakistan, Cyprus, Oman and Saudi Arabia**\
 `On Tuesday, nonemergency staff and their family members were told to leave several posts as Iran continued to retaliate after U.S. and Israeli strikes.`\
 https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakistan-cyprus-oman-saudi-arabia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086339/2026/03/04/louisiana-vs-ul-monroe-stream-ho
 **How to watch Mississippi State vs. Florida women's basketball: SEC Tournament Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7086337/2026/03/04/mississippi-state-vs-florida-stream-how-to-watch-march-4/
-
-**How to watch Southeast Missouri State vs. Little Rock women's basketball: OVC Tournament Time, TV, streaming**\
-`Find out how to watch the Southeast Missouri State Redhawks play the Little Rock Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7086331/2026/03/04/southeast-missouri-state-vs-little-rock-stream-how-to-watch-march-4/
 
