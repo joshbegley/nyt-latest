@@ -1,3 +1,7 @@
+**Rangers install controversial statue honoring Texas Rangers law-enforcement body**\
+`The "One Riot, One Ranger" statue was removed from the Dallas airport after George Floyd died in police custody.`\
+https://nytimes.com/athletic/7085220/2026/03/03/texas-rangers-statue-dallas-airport/
+
 **U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
 `U.S. Special Forces soldiers are advising and supporting Ecuadorian commandos on raids across the country against suspected drug shipment facilities and other drug-related sites.`\
 https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html

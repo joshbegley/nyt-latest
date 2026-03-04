@@ -1,3 +1,7 @@
+**Rangers install controversial statue honoring Texas Rangers law-enforcement body**\
+`The "One Riot, One Ranger" statue was removed from the Dallas airport after George Floyd died in police custody.`\
+https://nytimes.com/athletic/7085220/2026/03/03/texas-rangers-statue-dallas-airport/
+
 **There are a few key counties to watch in Texas.**\
 `By Christine Zhang`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.
 **Congress Splits Over Iran War as Senate Faces a Vote**\
 `The administration’s shifting justifications for the military operation alarmed Democrats, who said no clear rationale had been given. Republicans struggled to echo the evolving explanations.`\
 https://nytimes.com/2026/03/03/us/politics/congress-iran-war-powers.html
-
-**Roy Cooper and Michael Whatley Advance in North Carolina Senate Race**\
-`North Carolina has broken national Democrats’ hearts for nearly two decades, but this time they hope that Roy Cooper, the former governor, can once again find a path to victory.`\
-https://nytimes.com/2026/03/03/us/elections/north-carolina-senate-primary-whatley-cooper.html
 
