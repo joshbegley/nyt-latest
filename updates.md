@@ -1,3 +1,11 @@
+**Toronto Synagogue Is Damaged by Gunfire on Night of Jewish Holiday**\
+`The temple said 20 shots were fired at the building but no one was hurt.`\
+https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
+
+**Democrats Question Credentials of Armed Squad Created by Trump Ally**\
+`Bruce Blakeman, the Republican candidate for governor of New York, formed a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
+https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
+
 **U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
 `The U.S. Southern Command said that the joint activity with Ecuador was an effort to “combat the scourge of narco-terrorism,” but did not provide other details about the operation.`\
 https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
