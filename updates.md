@@ -1,3 +1,7 @@
+**Roy Cooper and Michael Whatley Advance in North Carolina Senate Race**\
+`North Carolina has broken national Democrats’ hearts for nearly two decades, but this time they hope that Roy Cooper, the former governor, can once again find a path to victory.`\
+https://nytimes.com/2026/03/03/us/elections/north-carolina-senate-primary-whatley-cooper.html
+
 **Iran Strikes U.S. Military Communication Infrastructure in Mideast**\
 `Satellite images show damage near vital equipment on sites in at least five countries.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-strikes-us-military-communication-infrastructure-in-mideast.html
