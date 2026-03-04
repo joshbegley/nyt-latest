@@ -1,40 +1,40 @@
-**Iranian Navy Ship Sinks Near Coast of Sri Lanka, With Dozens Feared Dead**\
-`It was not clear what caused the navy destroyer to sink. The Sri Lankan authorities said they had rescued 32 sailors, all critically injured, from the crew of 180.`\
-https://nytimes.com/2026/03/04/world/middleeast/iran-navy-ship-sri-lanka.html
+**Yankees stars support Dodgers' spending: 'I wish a lot of teams found a way to do that' **\
+`Yankees players have made it known how they feel about the Dodgers outspending every team in the sport by a good margin: They love it. `\
+https://nytimes.com/athletic/7082022/2026/03/04/yankees-dodgers-spending-mlb-payroll/
 
-**Man United's Jack Fletcher given six-match ban for using homophobic language towards opponent**\
-`The 18-year-old, son of Darren Fletcher, has apologised after the incident during an EFL Trophy game against Barnsley in October.`\
-https://nytimes.com/athletic/7086173/2026/03/04/jack-fletcher-manchester-united-fa-ban/
+**March Madness is a welcome follow-up to the February orneriness of coaches**\
+`As February ended, some of the things coming out of the mouths of coaches felt more like despair than disparagement.`\
+https://nytimes.com/athletic/7084748/2026/03/04/march-madness-college-basketball-coaches/
 
-**College hoops thoughts: Miami (Ohio) gets to 30-0, and Tuesday's men's NCAA Tournament bubble impact**\
-`TCU, Texas A&M and Cincinnati emerged from Tuesday as the biggest bubble winners.`\
-https://nytimes.com/athletic/7085823/2026/03/04/mens-college-basketball-miami-ohio-tcu-ncaa-tournament-bubble/
+**It's Bulls' time to tank, and like all NBA teams, they want to be the next Thunder**\
+`The Thunder, the defending NBA champs and in first place again, have earned their luck. The Bulls have not, but they could sure use some.`\
+https://nytimes.com/athletic/7085633/2026/03/04/nba-tanking-ethics-bulls-thunder-column/
 
-**TAFC: Mbappe, Rodrygo and World Cup injury drama. Plus: What do Nancy, Ramsay sackings tell us?**\
-`Today in TAFC: Real Madrid hit by injury problems, Trump speaks out on Iran's World Cup participation.`\
-https://nytimes.com/athletic/7086011/2026/03/04/mbappe-rodrygo-world-cup-injuries/
+**Can Michael Busch continue ascent, announce himself as one of the best first basemen?**\
+`In each MLB season he's played, Busch has improved. That goal doesn't stop.`\
+https://nytimes.com/athletic/7084582/2026/03/04/cubs-michael-busch-best-first-basemen/
 
-**In final game before trade deadline, Canadiens defensive deficiencies provide food for thought**\
-`How will allowing seven goals in a loss to San Jose impact Canadiens management as they head toward the trade deadline? `\
-https://nytimes.com/athletic/7086003/2026/03/04/montreal-canadiens-sharks-defense-trade-deadline/
+**Big Ten women's basketball tournament: Schedule, streaming and scores**\
+`This year's bracket is spread across four broadcasters, from the traditional CBS to subscription streamer Peacock.`\
+https://nytimes.com/athletic/7081869/2026/03/04/big-ten-womens-basketball-tournament-how-to-watch-2026/
 
-**Real Madrid's Rodrygo played with partial ACL tear since 2023**\
-`Rodrygo sustained a torn ACL and meniscus in his right knee during Monday's defeat against Getafe and will now miss the World Cup.`\
-https://nytimes.com/athletic/7084095/2026/03/04/rodrygo-acl-injury-real-madrid/
+**What I’m hearing about the Jets at the deadline: Stanley negotiations, Toews and more**\
+`What will the Jets actually do at the trade deadline (and in the offseason) to push back towards playoff contention?`\
+https://nytimes.com/athletic/7083888/2026/03/04/nhl-trade-deadline-what-im-hearing-jets/
 
-**The Pulse: The year’s best baseball might happen in March**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7084615/2026/03/04/world-baseball-classic-the-pulse/
+**How 'the book' has come to influence the decisions of 100+ college football coaches**\
+`Mike McRoberts grew tired of the “clear logic errors” he saw football coaches constantly making. So he created a company to help them.`\
+https://nytimes.com/athletic/7084991/2026/03/04/college-football-coaches-analytics-fourth-down-the-book/
 
-**Twenty years in, Sloan Sports Analytics Conference co-founder looks ahead**\
-`Co-founder Jessica Gelman previews some highlights of the 2026 conference and reflects on its 20-year anniversary.`\
-https://nytimes.com/athletic/7081209/2026/03/04/sloan-sports-analytics-conference-jessica-gelman-daryl-morey-2026/
+**Transfer portal confidential: Tampering, roster budgets, January window and more**\
+`What surprised staffers the most about how the portal window played out? Is it possible to sign a good class without tampering? `\
+https://nytimes.com/athletic/7072980/2026/03/04/college-football-transfer-portal-tampering-nil-window/
 
-**Brad Keselowski broke his leg 10 weeks ago. Then he delivered one of NASCAR's gutsiest races**\
-`Ten weeks ago, Brad Keselowski broke his femur and faced agonizing rehab. Last weekend, he raced in Austin.`\
-https://nytimes.com/athletic/7083173/2026/03/04/brad-keselowski-nascar-ryan-holiday/
+**Roman Anthony already fits in with the stars. He's ready to prove himself over a full season**\
+`Anthony is the youngest member of the Team USA roster by two years, but his talent has him fitting right in with the stars of the game.`\
+https://nytimes.com/athletic/7084378/2026/03/04/roman-anthony-red-sox-world-baseball-classic/
 
-**Thompson's big night, Eichel's reception and a 'playoff atmosphere' in Buffalo**\
-`The Sabres honored Thompson and fellow Team USA gold medalists Jack Eichel and Noah Hanifin before Tuesday's game, which Buffalo won 3-2.`\
-https://nytimes.com/athletic/7085733/2026/03/04/buffalo-thompson-olympics-eichel-reception-playoff-atmosphere/
+**'You can really empty the tank': Improving Flyers buoyed by more aggressive defense**\
+`The Flyers' game is trending in the right direction again but their odds of making the playoffs are still stacked against them.`\
+https://nytimes.com/athletic/7084659/2026/03/04/flyers-defense-nhl-playoff-chances-deadline/
 
