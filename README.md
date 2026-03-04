@@ -1,3 +1,19 @@
+**Spring Systems Threaten Days of Storms Across Much of the U.S.**\
+`Some kind of severe weather is expected every day into early next week, forecasters warned. Friday is expected to be among the riskiest.`\
+https://nytimes.com/2026/03/04/weather/severe-storm-forecast-tornado.html
+
+**What I'm hearing, seeing from Blackhawks as trade deadline nears**\
+`Here's the latest I'm hearing about Jason Dickinson, Ilya Mikheyev, Anton Frondell, Roman Kantserov and more.`\
+https://nytimes.com/athletic/7087066/2026/03/04/blackhawks-nhl-trade-deadline-rumors/
+
+**Trent McDuffie trade grades: A secondary star for the Rams, a big haul for the Chiefs**\
+`The Rams addressed their biggest weakness, while the Chiefs recouped draft picks for a player they might not have signed beyond 2026.`\
+https://nytimes.com/athletic/7087205/2026/03/04/trent-mcduffie-rams-chiefs-trade-grades/
+
+**The conflict is choking off the world’s oil and gas.**\
+`By Blacki Migliozzi, Christiaan Triebert, Peter Eavis, Keith Collins, Jacqueline Gu and Rebecca Elliott`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-conflict-is-choking-off-the-worlds-oil-and-gas
+
 **Maple Leafs' Chris Tanev out for remainder of season after core muscle surgery**\
 `A healthy Chris Tanev is the Leafs' best defenceman. Can he be that player again at this point in his career?`\
 https://nytimes.com/athletic/7087044/2026/03/04/chris-tanev-maple-leafs-surgery/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
 **99 days out, the big World Cup business questions, asked and answered: MoneyCall**\
 `The Athletic's free weekly sports-business cheat sheet, including Paramount's big buy, the Hawks' "Magic City Monday" promo and more.`\
 https://nytimes.com/athletic/7087019/2026/03/04/world-cup-fifa-soccer-moneycall/
-
-**As Israel Pounds Lebanon, Thousands of Syrians There Flee Back Home**\
-`“I felt great fear and I ran,” says one of thousands of Syrians who are leaving what had been a relatively safe refuge during the war in Syria.`\
-https://nytimes.com/2026/03/04/world/middleeast/as-israel-pounds-lebanon-thousands-of-syrians-there-flee-back-home.html
-
-**NHL rumblings: Panthers ready to sell, potential Bobrovsky suitors, latest on Thomas, Parayko, more**\
-`Also two days ahead of the deadline: The Devils are listening on Nemec, Habs are looking at Kadri and Canucks are getting calls on Garland.`\
-https://nytimes.com/athletic/7086967/2026/03/04/bobrovsky-thomas-parayko-kadri-nhl-trade-deadline/
-
-**Bruce Froemming, Baseball’s Iron Man Behind the Plate, Dies at 86**\
-`Umpiring since he was 14, he called 5,163 regular season major league games over a record 37 consecutive seasons. And he wouldn’t hesitate to give a player or a manager the boot.`\
-https://nytimes.com/2026/03/04/sports/baseball/bruce-froemming-dead.html
-
-**Cowboys restructure 3 contracts, including Dak Prescott's, to create cap space**\
-`The moves created a little more than $66 million in immediate salary-cap space as Dallas prepares for free agency.`\
-https://nytimes.com/athletic/7086977/2026/03/04/dak-prescott-contract-ceedee-lamb-cowboys/
 
