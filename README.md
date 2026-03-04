@@ -1,3 +1,7 @@
+**Submit a question for Chris Vannini's Group of 6 college football mailbag**\
+`For the American, MAC, Mountain West, Pac-12, Sun Belt and Conference USA, it has already been an offseason of intrigue and change.`\
+https://nytimes.com/athletic/7086434/2026/03/04/submit-a-question-for-chris-vanninis-group-of-6-college-football-mailbag/
+
 **At UNC, the fight for the Dean Dome pits college basketball tradition against modern-day realities**\
 `An online petition organized by the Committee for a South Campus Arena has over 37,000 signatures to keep the Dean Dome on campus.`\
 https://nytimes.com/athletic/7084857/2026/03/04/unc-basketball-dean-dome-arena-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/world/europe/uk-spying-china-arrests.html
 **Portland Thorns hire ex-Tottenham manager Robert Vilahamn to usher in 'new era'**\
 `Vilahamn takes over as head coach less than two weeks before the start of the 2026 NWSL season.`\
 https://nytimes.com/athletic/7085128/2026/03/04/portland-thorns-hire-robert-vilahamn-head-coach/
-
-**Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
-`The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
-https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html
 

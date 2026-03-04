@@ -1,3 +1,11 @@
+**At UNC, the fight for the Dean Dome pits college basketball tradition against modern-day realities**\
+`An online petition organized by the Committee for a South Campus Arena has over 37,000 signatures to keep the Dean Dome on campus.`\
+https://nytimes.com/athletic/7084857/2026/03/04/unc-basketball-dean-dome-arena-future/
+
+**Liverpool to play Wrexham at Yankee Stadium on U.S. pre-season tour**\
+`Liverpool will play three matches in the U.S. after the World Cup, with Leeds, Sunderland and Wrexham joining them.`\
+https://nytimes.com/athletic/7080452/2026/03/04/liverpool-pre-season-us-wrexham-fixtures/
+
 **USL, players remain locked in CBA negotiations as strike threat lingers**\
 `As a new season nears, the USL and its players' association remain at odds.`\
 https://nytimes.com/athletic/7085601/2026/03/04/usl-championship-strike-cba-talks-promotion-relegation/

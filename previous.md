@@ -1,3 +1,11 @@
+**At UNC, the fight for the Dean Dome pits college basketball tradition against modern-day realities**\
+`An online petition organized by the Committee for a South Campus Arena has over 37,000 signatures to keep the Dean Dome on campus.`\
+https://nytimes.com/athletic/7084857/2026/03/04/unc-basketball-dean-dome-arena-future/
+
+**Liverpool to play Wrexham at Yankee Stadium on U.S. pre-season tour**\
+`Liverpool will play three matches in the U.S. after the World Cup, with Leeds, Sunderland and Wrexham joining them.`\
+https://nytimes.com/athletic/7080452/2026/03/04/liverpool-pre-season-us-wrexham-fixtures/
+
 **USL, players remain locked in CBA negotiations as strike threat lingers**\
 `As a new season nears, the USL and its players' association remain at odds.`\
 https://nytimes.com/athletic/7085601/2026/03/04/usl-championship-strike-cba-talks-promotion-relegation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085128/2026/03/04/portland-thorns-hire-robert-vila
 **Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
 `The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
 https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html
-
-**Bessent Says Global Tariffs Will Rise to 15 Percent This Week**\
-`Treasury Secretary Scott Bessent predicted that overall tariff rates, which fell after a Supreme Court ruling last month, would be back to previous levels within five months.`\
-https://nytimes.com/2026/03/04/business/economy/bessent-trump-tariffs-15-percent.html
-
-**Luke Donald will return as Europe's Ryder Cup captain**\
-`Donald will be the first three-time captain since Bernard Gallacher three decades ago.`\
-https://nytimes.com/athletic/7086372/2026/03/04/ryder-cup-europe-luke-donald-captain-2027/
 
