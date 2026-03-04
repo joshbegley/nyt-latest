@@ -1,3 +1,15 @@
+**Loss to Knicks is latest proof that Raptors aren't ready for playoffs**\
+`The Raptors' late-game offence is letting them down game after game. `\
+https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
+
+**U.K. Arrests Lawmaker’s Partner on Allegation of Spying for China, BBC Reports**\
+`The Metropolitan Police of London said that it had arrested three people under the National Security Act.`\
+https://nytimes.com/2026/03/04/world/europe/uk-spying-china-arrests.html
+
+**Portland Thorns hire ex-Tottenham manager Robert Vilahamn to usher in 'new era'**\
+`Vilahamn takes over as head coach less than two weeks before the start of the 2026 NWSL season.`\
+https://nytimes.com/athletic/7085128/2026/03/04/portland-thorns-hire-robert-vilahamn-head-coach/
+
 **Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
 `The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
 https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html

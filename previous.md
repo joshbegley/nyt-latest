@@ -1,3 +1,15 @@
+**Loss to Knicks is latest proof that Raptors aren't ready for playoffs**\
+`The Raptors' late-game offence is letting them down game after game. `\
+https://nytimes.com/athletic/7085620/2026/03/04/toronto-raptors-knicks-loss/
+
+**U.K. Arrests Lawmaker’s Partner on Allegation of Spying for China, BBC Reports**\
+`The Metropolitan Police of London said that it had arrested three people under the National Security Act.`\
+https://nytimes.com/2026/03/04/world/europe/uk-spying-china-arrests.html
+
+**Portland Thorns hire ex-Tottenham manager Robert Vilahamn to usher in 'new era'**\
+`Vilahamn takes over as head coach less than two weeks before the start of the 2026 NWSL season.`\
+https://nytimes.com/athletic/7085128/2026/03/04/portland-thorns-hire-robert-vilahamn-head-coach/
+
 **Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
 `The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
 https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/us/elections/texas-congressional-district-32.html
 **Who drafted better? Dueling 49ers mocks start with same speedy guy at pick 27**\
 `There was a common thread between 49ers beat writers: a heavy helping of edge rush and receiver with a generous side of offensive lineman.`\
 https://nytimes.com/athletic/7084557/2026/03/04/dueling-49ers-mock-drafts-cashius-howell/
-
-**Should Packers select O-line with their first pick? Dane Brugler mock draft reaction**\
-`Brugler slotted Oregon offensive guard Emmanuel Pregnon to the Packers at No. 52 in his latest mock draft.`\
-https://nytimes.com/athletic/7084065/2026/03/04/packers-brugler-mock-draft-pregnon/
-
-**Tree Rings Reveal Origins of Some of the World’s Best Violins**\
-`A study of over 275 violins suggests that Antonio Stradivari used wood from high-altitude forests in northern Italy to craft some of his most renowned instruments.`\
-https://nytimes.com/2026/03/04/science/stradaviri-violin-forest-tree-rings.html
-
-**Iran soccer player 'concerned and sad' for country, loved ones**\
-`Iran's women's soccer team is competing in the Asian Cup and appeared not to sing during the national anthem in its first game.`\
-https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
 
