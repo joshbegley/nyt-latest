@@ -1,40 +1,40 @@
-**Galatasaray banned from selling away tickets for UCL tie at Liverpool**\
-`In a statement, the Turkish club said it would appeal against UEFA's decision.`\
-https://nytimes.com/athletic/7086116/2026/03/04/galatasaray-fans-anfield-liverpool/
+**Thompson's big night, Eichel's reception and a 'playoff atmosphere' in Buffalo**\
+`The Sabres honored Thompson and fellow Team USA gold medalists Jack Eichel and Noah Hanifin before Tuesday's game, which Buffalo won 3-2.`\
+https://nytimes.com/athletic/7085733/2026/03/04/buffalo-thompson-olympics-eichel-reception-playoff-atmosphere/
 
-**Maxx Crosby is ready to leave Las Vegas. The sooner the Raiders accept that, the better**\
-`The Raiders are starting over — and they should start by trading their star edge rusher, no matter how much that might hurt.`\
-https://nytimes.com/athletic/7085512/2026/03/04/maxx-crosby-raiders-trade-nfl/
+**No. 1 pick Travis Bazzana enters WBC with the weight of Australia's hopes on his shoulders**\
+`Bazzana, simply by his status as a No. 1 pick, represents the face of baseball on the continent.`\
+https://nytimes.com/athletic/7085657/2026/03/04/travis-bazzana-enters-world-baseball-classic-australia/
 
-**World Baseball Classic Pool D: Venezuela, Dominican Republic, Netherlands, Israel, Nicaragua**\
-`Pool D kicks off play in Miami with Netherlands vs. Venezuela and Nicaragua vs. Dominican Republic on March 6.`\
-https://nytimes.com/athletic/7074442/2026/03/04/world-baseball-classic-pool-d-dominican-republic-venezuela/
+**A handful of ex-ABA players hope for a last-second financial long shot from the NBA**\
+`More than 20 surviving former ABA players are seeking to receive financial compensation in the form of "recognition benefits" from the NBA.`\
+https://nytimes.com/athletic/7009946/2026/03/04/nba-aba-financial-benefits/
 
-**Edwin Díaz eager for WBC return three years after his infamous injury**\
-`Díaz suffered a major injury during his last stint with Puerto Rico, but he's put the memory behind him and is playing without fear. `\
-https://nytimes.com/athletic/7084084/2026/03/04/edwin-diaz-wbc-puerto-rico-injury/
+**Attending a World Cup game launched my career. Now, many kids won't have that chance**\
+`Ex-U.S. forward Charlie Davies fears World Cup prices will exclude youngsters and families, depriving them of the opportunity he once had`\
+https://nytimes.com/athletic/7076179/2026/03/04/charlie-davies-usa-world-cup-1994-ticket-prices/
 
-**World Baseball Classic Pool A: Puerto Rico, Cuba, Canada, Panama, Colombia**\
-`Pool A kicks off play in San Juan, Puerto Rico with Cuba vs. Panama and Puerto Rico vs. Colombia on March 6.`\
-https://nytimes.com/athletic/7071924/2026/03/04/world-baseball-classic-pool-a-puerto-rico-colombia/
+**Trump’s ‘Worst Case’ Scenario in Iran, and the Most Expensive Primary in U.S. History**\
+`Plus, the fight over daylight saving time.`\
+https://nytimes.com/2026/03/04/podcasts/the-headlines/trump-iran-texas-primary.html
 
-**With Tony Clark gone, how will change at baseball's union impact MLB amid a looming lockout?**\
-`The changes in leadership at baseball's players union are highly impactful so close to an expected labor battle. `\
-https://nytimes.com/athletic/7085336/2026/03/04/mlb-union-tony-clark-labor-lockout/
+**Why these 7 NHL teams won’t — but should — make a trade deadline blockbuster**\
+`There are logical reasons for some teams to be on the fence about swinging a big trade. There are also good reasons why it's now or never.`\
+https://nytimes.com/athletic/7084819/2026/03/04/nhl-trade-deadline-2026-teams-blockbuster/
 
-**World Baseball Classic Pool B: Italy, Mexico, Brazil, Great Britain, United States**\
-`Pool B kicks off play in Houston with Mexico facing off against Great Britain and Team USA hosting Brazil on March 6.`\
-https://nytimes.com/athletic/7074439/2026/03/04/world-baseball-classic-pool-b-usa-mexico-italy/
+**Who might coach the L.A. Kings next? Here are 10 options, including DeBoer, Tortorella**\
+`Who might the Kings hire to ultimately replace Jim Hiller?`\
+https://nytimes.com/athletic/7085574/2026/03/04/la-kings-coach-deboer-tortorella-greene/
 
-**World Baseball Classic explainer: Everything you need to know about the 2026 tournament**\
-`Here’s everything you need to know (and more) about this year's tournament.`\
-https://nytimes.com/athletic/7078165/2026/03/04/world-baseball-classic-tournament-pool-teams-explained/
+**Megan Keller on Olympic women's hockey gold, Trump's joke, and her race to NYC for 'SNL'**\
+`Author of Team USA's golden goal, Keller is relishing the spotlight shining on women's hockey and the PWHL.`\
+https://nytimes.com/athletic/7085340/2026/03/04/megan-keller-olympics-usa-womens-hockey-trump-snl/
 
-**WBC predictions: Our experts pick the tournament winner, dark horse teams, breakout stars**\
-`Will Team Japan take home another trophy, or does our staff see a different winner this year? And who are some players to watch?`\
-https://nytimes.com/athletic/7084806/2026/03/04/world-baseball-classic-2026-expert-predictions/
+**With no call from Brandon Beane, UFA center Connor McGovern feels time with Bills 'over and done'**\
+`True to his former position coach's word, McGovern might have priced himself off the team.`\
+https://nytimes.com/athletic/7085403/2026/03/04/bills-connor-mcgovern-ufa-brandon-beane/
 
-**What's on the line in the women's ACC, SEC, Big Ten, Big 12 conference tournaments?**\
-`Will Texas or Vandy earn a No. 1 NCAA Tournament seed? Will Ohio State earn a hosting bid? `\
-https://nytimes.com/athletic/7084020/2026/03/04/womens-basketball-conference-tournaments-acc-sec-big-ten-12/
+**Five questions sparked by the NFLPA's trio of executive director finalists**\
+`The NFLPA promised to cast a wide net in this search for a new executive director. Did it accomplish that? `\
+https://nytimes.com/athletic/7082332/2026/03/04/nflpa-executive-director-finalists-questions-jc-tretter/
 
