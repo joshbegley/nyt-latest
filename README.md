@@ -1,3 +1,11 @@
+**The World Baseball Classic is actually arriving at a good time for the Giants**\
+`The WBC is taking several big names from Giants' camp, but that leaves plenty of opportunities for the team to grow in their absence.`\
+https://nytimes.com/athletic/7085433/2026/03/04/world-baseball-classic-sf-giants/
+
+**Aaron Gordon could return this week. The Nuggets' season depends on him**\
+`Gordon is perhaps the most important role player in the NBA, and Denver needs him to be healthy to have any shot at the title.`\
+https://nytimes.com/athletic/7085944/2026/03/04/denver-nuggets-aaron-gordon-injury-season-prospects/
+
 **Spain’s Leader, Rejecting Iran War, Escalates Long Feud With Trump**\
 `Prime Minister Pedro Sánchez has lashed out at the American-Israeli strikes, underlining his refusal to participate even after President Trump threatened Madrid with economic retaliation.`\
 https://nytimes.com/2026/03/04/world/europe/trump-spain-iran-sanchez.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7084582/2026/03/04/cubs-michael-busch-best-first-ba
 **Big Ten women's basketball tournament: Schedule, streaming and scores**\
 `This year's bracket is spread across four broadcasters, from the traditional CBS to subscription streamer Peacock.`\
 https://nytimes.com/athletic/7081869/2026/03/04/big-ten-womens-basketball-tournament-how-to-watch-2026/
-
-**What I’m hearing about the Jets at the deadline: Stanley negotiations, Toews and more**\
-`What will the Jets actually do at the trade deadline (and in the offseason) to push back towards playoff contention?`\
-https://nytimes.com/athletic/7083888/2026/03/04/nhl-trade-deadline-what-im-hearing-jets/
-
-**How 'the book' has come to influence the decisions of 100+ college football coaches**\
-`Mike McRoberts grew tired of the “clear logic errors” he saw football coaches constantly making. So he created a company to help them.`\
-https://nytimes.com/athletic/7084991/2026/03/04/college-football-coaches-analytics-fourth-down-the-book/
 
