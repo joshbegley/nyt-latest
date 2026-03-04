@@ -1,3 +1,11 @@
+**Senators Question Kristi Noem on ICE Immigration Tactics**\
+`Homeland Security Secretary Kristi Noem repeatedly refused to apologize for suggesting that Alex Pretti and Renee Good, two U.S. citizens shot and killed by agents, were domestic terrorists.`\
+https://nytimes.com/video/us/politics/100000010749399/kristi-noem-dhs-hearing.html
+
+**Robert Thomas to Sabres? Breaking down what a trade could look like with Blues**\
+`The Blues and Sabres might have the pieces to make a trade involving St. Louis' star center Robert Thomas. What would it take? `\
+https://nytimes.com/athletic/7084938/2026/03/03/robert-thomas-sabres-blues-trade-prospects/
+
 **NHL trade grades: Wild pay big for size and grit of Michael McCarron**\
 `McCarron is more valuable than his numbers would indicate but the price paid feels like an overpayment for Minnesota.`\
 https://nytimes.com/athletic/7085033/2026/03/03/wild-michael-mccarron-trade-grades-nhl-predators/

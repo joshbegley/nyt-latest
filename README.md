@@ -1,3 +1,11 @@
+**Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
+`Mets rookie Nolan McLean is currently scheduled to start the championship game if Team USA makes it that far.`\
+https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
+
+**The 4 Americans Killed in the Iran War Who Have Been Identified**\
+`They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
+https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/the-4-americans-killed-in-the-iran-war-who-have-been-identified
+
 **Senators Question Kristi Noem on ICE Immigration Tactics**\
 `Homeland Security Secretary Kristi Noem repeatedly refused to apologize for suggesting that Alex Pretti and Renee Good, two U.S. citizens shot and killed by agents, were domestic terrorists.`\
 https://nytimes.com/video/us/politics/100000010749399/kristi-noem-dhs-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/business/india-workers-iran-persian-gulf.html
 **First-Time Primary Voters Add Uncertainty to Texas Democratic Races**\
 `A surge of voters who had previously participated only in general elections turned out in the Democratic primary, a shift that could make key Texas races harder to predict.`\
 https://nytimes.com/2026/03/03/us/elections/texas-primary-democrats-turnout.html
-
-**Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
-`Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
-https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
-
-**Trump Has Been Sued 198 Times for Withholding Funding. It Hasn’t Stopped Him.**\
-`Immigration demands for highway dollars, D.E.I. rules for homeless grants: how Trump has tried to wield spending to get his way.`\
-https://nytimes.com/interactive/2026/03/03/upshot/trump-funding-lawsuits.html
 
