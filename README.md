@@ -1,3 +1,11 @@
+**Slot furious in dressing room after Liverpool's loss to Wolves, Van Dijk says**\
+`The captain said Slot had "every right to be angry" as they "played poorly" after a loss against the league's bottom club.`\
+https://nytimes.com/athletic/7086122/2026/03/04/arne-slot-furious-liverpool-wolves-van-dijk/
+
+**U.S. Half Marathon Champs organisers offer $39k to diverted runners**\
+`The credited victor on the day said she did not feel like a winner and would not accept a spot on the U.S. team for the world championships.`\
+https://nytimes.com/athletic/7086196/2026/03/04/jess-mclain-usa-track-field-half-marathon-diversion/
+
 **The World Baseball Classic is actually arriving at a good time for the Giants**\
 `The WBC is taking several big names from Giants' camp, but that leaves plenty of opportunities for the team to grow in their absence.`\
 https://nytimes.com/athletic/7085433/2026/03/04/world-baseball-classic-sf-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7084748/2026/03/04/march-madness-college-basketball
 **It's Bulls' time to tank, and like all NBA teams, they want to be the next Thunder**\
 `The Thunder, the defending NBA champs and in first place again, have earned their luck. The Bulls have not, but they could sure use some.`\
 https://nytimes.com/athletic/7085633/2026/03/04/nba-tanking-ethics-bulls-thunder-column/
-
-**Can Michael Busch continue ascent, announce himself as one of the best first basemen?**\
-`In each MLB season he's played, Busch has improved. That goal doesn't stop.`\
-https://nytimes.com/athletic/7084582/2026/03/04/cubs-michael-busch-best-first-basemen/
-
-**Big Ten women's basketball tournament: Schedule, streaming and scores**\
-`This year's bracket is spread across four broadcasters, from the traditional CBS to subscription streamer Peacock.`\
-https://nytimes.com/athletic/7081869/2026/03/04/big-ten-womens-basketball-tournament-how-to-watch-2026/
 
