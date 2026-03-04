@@ -1,3 +1,11 @@
+**If You Liked the Texas Primaries, You’ll Love the Sequel**\
+`Texas voters will revisit the Republican Senate primary — and some House races where no candidate captured more than 50 percent of the vote — in runoffs on May 26.`\
+https://nytimes.com/2026/03/04/us/politics/texas-primaries-runoffs-may.html
+
+**Israelis Celebrate Purim Amid Iranian Missile Attacks**\
+`The war did not stop ultra-Orthodox parts of Jerusalem from drinking and dancing for the Jewish holiday.`\
+https://nytimes.com/2026/03/04/world/middleeast/israelis-celebrate-purim-amid-iranian-missile-attacks.html
+
 **Four Questions About What’s Next in Texas**\
 `The biggest immediate one: What will Trump do?`\
 https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/briefing/the-us-accelerating-its-attacks-on-iran.
 **As Attacks Spread, War With Iran Reaches Far Beyond Mideast**\
 `NATO downed a missile fired by Iran at Turkey, and a U.S. sub sank an Iranian Navy ship off Sri Lanka, thousands of miles from the war zone.`\
 https://nytimes.com/2026/03/04/world/middleeast/iran-war-turkey.html
-
-**59% of Americans Oppose the Military Action in Iran**\
-`Three high-quality polls taken after the United States and Israel launched their attack Iran on Saturday show that a majority of Americans are not on board with the military action.`\
-https://nytimes.com/2026/03/04/us/iran-us-war-military-polls.html
-
-**Hurzeler calls Arsenal tactics 'not football': 'I will never try to win that way'**\
-`The Brighton head coach accused Arsenal of time-wasting and singled out goalkeeper David Raya for criticism.`\
-https://nytimes.com/athletic/7088013/2026/03/04/fabian-hurzeler-arsenal-tactics/
 
