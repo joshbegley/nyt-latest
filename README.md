@@ -1,3 +1,7 @@
+**Representative Dan Crenshaw Loses G.O.P. Primary in Texas**\
+`The victory by Steve Toth, a hard-line Texas state representative, underscored how even a conservative House member could lose Republican voters by breaking with President Trump.`\
+https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
+
 **Liverpool are losing control late in games. Arne Slot needs to fix it**\
 `The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
 https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/progressives-s
 **Victor Wembanyama's missing friend found safe after star's call for help**\
 `The Spurs star had posted a call for help in locating his friend on Instagram.`\
 https://nytimes.com/athletic/7085775/2026/03/04/victor-wembanyama-missing-friend-found-2/
-
-**Richarlison knows his way around a relegation scrap - could he save Spurs?**\
-`Igor Tudor has demanded Spurs show “more personality” - that's certainly not a problem for their Brazilian forward...`\
-https://nytimes.com/athletic/7083119/2026/03/04/richarlison-tottenham-relegation/
 

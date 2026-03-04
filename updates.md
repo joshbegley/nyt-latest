@@ -1,3 +1,11 @@
+**Liverpool are losing control late in games. Arne Slot needs to fix it**\
+`The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
+https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
+
+**Iran Live Updates: Clerics Press Ahead in Search for New Supreme Leader**\
+`Ayatollah Ali Khamenei, who led Iran for more than three decades, was killed in the U.S.-Israeli attacks. His replacement could be named as early as Wednesday as conflict grips the Middle East.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
+
 **The New York Times in Print for Wednesday, March 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times

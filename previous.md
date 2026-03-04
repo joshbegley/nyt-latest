@@ -1,3 +1,11 @@
+**Liverpool are losing control late in games. Arne Slot needs to fix it**\
+`The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
+https://nytimes.com/athletic/7085421/2026/03/04/liverpool-late-goals-arne-slot/
+
+**Iran Live Updates: Clerics Press Ahead in Search for New Supreme Leader**\
+`Ayatollah Ali Khamenei, who led Iran for more than three decades, was killed in the U.S.-Israeli attacks. His replacement could be named as early as Wednesday as conflict grips the Middle East.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump
+
 **The New York Times in Print for Wednesday, March 4, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/04/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085775/2026/03/04/victor-wembanyama-missing-friend
 **Richarlison knows his way around a relegation scrap - could he save Spurs?**\
 `Igor Tudor has demanded Spurs show “more personality” - that's certainly not a problem for their Brazilian forward...`\
 https://nytimes.com/athletic/7083119/2026/03/04/richarlison-tottenham-relegation/
-
-**What's going on with Kylian Mbappe's knee injury at Real Madrid?**\
-`The Spanish club's star striker is out with a knee injury and it's not certain exactly when he will be back. Could it affect his World Cup?`\
-https://nytimes.com/athletic/7083734/2026/03/04/kylian-mbappe-real-madrid-knee-injury-news/
-
-**Diego Gomez was a unique signing for Brighton and he could hurt Arsenal on his 50th appearance**\
-`Diego Gomez is in excellent form ahead of Wednesday night's game against Arsenal`\
-https://nytimes.com/athletic/7080484/2026/03/04/diego-gomez-brighton-arsenal-analysis/
 
