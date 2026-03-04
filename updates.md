@@ -1,3 +1,7 @@
+**Talarico Triumphs as G.O.P. Heads to Runoff: 6 Takeaways from Texas**\
+`James Talarico won the state’s Democratic primary for Senate, while Senator John Cornyn faces a runoff against Ken Paxton, his right-wing challenger.`\
+https://nytimes.com/2026/03/04/us/politics/primary-election-takeaways-tx-nc-ar.html
+
 **'Same bulls---' - FIFA's $7.8m row with Foxboro putting World Cup games at risk as town stands firm**\
 `"Same bulls---" - A March 17 deadline has been set over a security-funding row that has put Boston's World Cup matches at risk`\
 https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
