@@ -1,3 +1,7 @@
+**The Texas Senate primaries set a record for ad spending.**\
+`By Matt Zdun`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-senate-primaries-set-a-record-for-ad-spending
+
 **Toronto Synagogue Is Damaged by Gunfire on Night of Jewish Holiday**\
 `The temple said 20 shots were fired at the building but no one was hurt.`\
 https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html

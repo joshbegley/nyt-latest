@@ -1,3 +1,7 @@
+**The Texas Senate primaries set a record for ad spending.**\
+`By Matt Zdun`\
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-senate-primaries-set-a-record-for-ad-spending
+
 **Toronto Synagogue Is Damaged by Gunfire on Night of Jewish Holiday**\
 `The temple said 20 shots were fired at the building but no one was hurt.`\
 https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.
 **Who Is Mojtaba Khamenei, the Son and Possible Successor of Iran’s Supreme Leader?**\
 `The selection of the son of Ayatollah Ali Khamenei, who was killed in a strike on his compound on Saturday, could anger Iranians seeking change.`\
 https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-who.html
-
-**Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
-`Mets rookie Nolan McLean is currently scheduled to start the WBC championship game on March 17 if Team USA makes it that far.`\
-https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
 

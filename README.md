@@ -1,3 +1,11 @@
+**Wild trade tracker: Why they added Fabbri, and Trocheck says he wants a 'chance to win'**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/03/minnesota-wild-trade-tracker-2026/
+
+**Reach an End**\
+`Wayne Bergman’s first solo puzzle for The New York Times leaves nothing to be desired.`\
+https://nytimes.com/2026/03/03/crosswords/daily-puzzle-2026-03-04.html
+
 **The Texas Senate primaries set a record for ad spending.**\
 `By Matt Zdun`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-senate-primaries-set-a-record-for-ad-spending
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/world/middleeast/iran-strikes-us-military-communi
 **Carney Says That Canada’s Support for Airstrikes Came ‘With Regret’**\
 `The prime minister criticized Israel and the U.S. for not consulting other nations or the U.N. before their attack on Iran.`\
 https://nytimes.com/2026/03/03/world/middleeast/iran-attacks-carney-canada.html
-
-**What Satellite Images Show on Efforts to Destroy Iran’s Ballistic Missiles**\
-`A New York Times analysis finds evidence of strikes on Iran’s underground ballistic missile sites and facilities targeted last June.`\
-https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.html
-
-**Who Is Mojtaba Khamenei, the Son and Possible Successor of Iran’s Supreme Leader?**\
-`The selection of the son of Ayatollah Ali Khamenei, who was killed in a strike on his compound on Saturday, could anger Iranians seeking change.`\
-https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-who.html
 
