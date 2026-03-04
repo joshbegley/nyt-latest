@@ -1,3 +1,7 @@
+**Despite Misgivings, U.K. and France Deploy Ships and Planes to the Middle East**\
+`The two nations announced operations to defend their interests in the region. The Netherlands was weighing a request to join them.`\
+https://nytimes.com/2026/03/04/world/middleeast/european-nations-armed-forces-mideast-iran.html
+
 **Bessent Says Global Tariffs Will Rise to 15 Percent This Week**\
 `Treasury Secretary Scott Bessent predicted that overall tariff rates, which fell after a Supreme Court ruling last month, would be back to previous levels within five months.`\
 https://nytimes.com/2026/03/04/business/economy/bessent-trump-tariffs-15-percent.html
