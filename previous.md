@@ -1,3 +1,19 @@
+**Poker game ring case involving Chauncey Billups may see two dozen plea deals**\
+`Billups and former NBA player Damon Jones were alleged to have acted as lures as part of the scheme.`\
+https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-plea-deal-agreements/
+
+**Tracking Trump’s Endorsements in Tonight’s Primary Results**\
+`President Trump has endorsed hundreds of Republicans ahead of the midterm primary elections. See who is winning and losing.`\
+https://nytimes.com/interactive/2026/us/elections/results-trump-endorsements-texas-nc-arkansas.html
+
+**9 Million Indians Live in the Persian Gulf. The Money They Send Home Is a Lifeline.**\
+`A huge number of Indians split their lives across the Arabian Sea — remitting $125 billion a year, supporting their families and the Indian economy.`\
+https://nytimes.com/2026/03/03/business/india-workers-iran-persian-gulf.html
+
+**First-Time Primary Voters Add Uncertainty to Texas Democratic Races**\
+`A surge of voters who had previously participated only in general elections turned out in the Democratic primary, a shift that could make key Texas races harder to predict.`\
+https://nytimes.com/2026/03/03/us/elections/texas-primary-democrats-turnout.html
+
 **Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
 `Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
 https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps
 **PE firm gathers board members tied to 15 schools for CFB restructure pitch: Sources**\
 `Big Ten and SEC leaders have had no interest in outside efforts to transform college football, so Smash is pitching other school voices.`\
 https://nytimes.com/athletic/7083402/2026/03/03/smash-sports-college-football-big-ten-sec/
-
-**Dallas Police Detain Man Outside Ken Paxton Watch Party**\
-`Officers appeared to find magazines for a rifle when searching his car, but details about why he was taken into custody were not immediately available.`\
-https://nytimes.com/2026/03/03/us/elections/arrest-dallas-ken-paxton.html
-
-**5 Things to Know About Jasmine Crockett**\
-`The congresswoman, who has established herself as a firebrand among fellow Democratic leaders, is looking to get on the ballot for Senate in November.`\
-https://nytimes.com/2026/03/03/us/politics/jasmine-crockett-texas-senate-primary.html
-
-**5 Things to Know About James Talarico**\
-`A Presbyterian seminarian, the Democrat has put his faith at the forefront of his political pitch.`\
-https://nytimes.com/2026/03/03/us/politics/james-talarico-democrat-senate-candidate.html
-
-**When to Expect Primary Election Results**\
-`Voters in Texas, North Carolina and Arkansas kicked off the midterm contests on Tuesday.`\
-https://nytimes.com/2026/03/03/us/elections/primary-election-results-timing-when.html
 

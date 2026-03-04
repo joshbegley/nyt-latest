@@ -1,3 +1,19 @@
+**Poker game ring case involving Chauncey Billups may see two dozen plea deals**\
+`Billups and former NBA player Damon Jones were alleged to have acted as lures as part of the scheme.`\
+https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-plea-deal-agreements/
+
+**Tracking Trump’s Endorsements in Tonight’s Primary Results**\
+`President Trump has endorsed hundreds of Republicans ahead of the midterm primary elections. See who is winning and losing.`\
+https://nytimes.com/interactive/2026/us/elections/results-trump-endorsements-texas-nc-arkansas.html
+
+**9 Million Indians Live in the Persian Gulf. The Money They Send Home Is a Lifeline.**\
+`A huge number of Indians split their lives across the Arabian Sea — remitting $125 billion a year, supporting their families and the Indian economy.`\
+https://nytimes.com/2026/03/03/business/india-workers-iran-persian-gulf.html
+
+**First-Time Primary Voters Add Uncertainty to Texas Democratic Races**\
+`A surge of voters who had previously participated only in general elections turned out in the Democratic primary, a shift that could make key Texas races harder to predict.`\
+https://nytimes.com/2026/03/03/us/elections/texas-primary-democrats-turnout.html
+
 **Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
 `Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
 https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
