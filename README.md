@@ -1,4 +1,8 @@
-**Progressives Sweep 3 Conservative Democrats from N.C. Statehouse**\
+**North Carolina State Senate District 26 Primary Election Results**\
+`Get live results from the 2026 North Carolina primary election.`\
+https://nytimes.com/interactive/2026/us/elections/results-north-carolina-state-senate-district-26-primary.html
+
+**Progressives sweep 3 conservative Democrats from N.C. statehouse.**\
 `Tired of Democrats who were siding with Republicans in the legislature, liberal groups took aim at three in the primaries and beat each of them.`\
 https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/progressives-sweep-3-conservative-democrats-from-nc-statehouse
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7070556/2026/03/04/tottenham-west-ham-forest-relega
 **Why Viktor Gyokeres is a useful 'small-game' player - and why that is important**\
 `Gyokeres has struggled against top-half teams but his role can be to ensure Arsenal pick up points against the division's lower-placed sides`\
 https://nytimes.com/athletic/7083117/2026/03/04/viktor-gyokeres-arsenal-brighton/
-
-**The Premier League and set pieces: A 34-year relationship that shows no sign of slowing down**\
-`Setups at corners may have become more chaotic recently, but successful Premier League teams have always used them`\
-https://nytimes.com/athletic/7083092/2026/03/04/premier-league-set-pieces-arsenal-liverpool-man-utd/
 
