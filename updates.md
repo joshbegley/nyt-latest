@@ -1,3 +1,11 @@
+**NHL trade grades: Tyler Myers fills an obvious need for Stars at a reasonable price**\
+`The Stars now have a few options when it comes to using Myers in the lineup.`\
+https://nytimes.com/athletic/7087190/2026/03/04/nhl-trade-grades-tyler-myers-canucks-stars/
+
+**High Turnout, Unusual Coalitions: Lessons From the Texas Primary**\
+`Talarico’s victory got a lot of attention, but Cornyn’s showing may be the most consequential result.`\
+https://nytimes.com/2026/03/04/upshot/texas-primary-talarico-cornyn-senate.html
+
 **John P. Hammond, Pioneer in 1960s Blues Renaissance, Dies at 83**\
 `With his acclaimed interpretations of Delta Blues standards, he was a fixture on the Greenwich Village music scene for decades.`\
 https://nytimes.com/2026/03/04/arts/music/john-p-hammond-dead.html

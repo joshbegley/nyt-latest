@@ -1,3 +1,11 @@
+**NHL trade grades: Tyler Myers fills an obvious need for Stars at a reasonable price**\
+`The Stars now have a few options when it comes to using Myers in the lineup.`\
+https://nytimes.com/athletic/7087190/2026/03/04/nhl-trade-grades-tyler-myers-canucks-stars/
+
+**High Turnout, Unusual Coalitions: Lessons From the Texas Primary**\
+`Talarico’s victory got a lot of attention, but Cornyn’s showing may be the most consequential result.`\
+https://nytimes.com/2026/03/04/upshot/texas-primary-talarico-cornyn-senate.html
+
 **John P. Hammond, Pioneer in 1960s Blues Renaissance, Dies at 83**\
 `With his acclaimed interpretations of Delta Blues standards, he was a fixture on the Greenwich Village music scene for decades.`\
 https://nytimes.com/2026/03/04/arts/music/john-p-hammond-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7086937/2026/03/04/hunter-greene-reds-elbow-injury/
 **Western Gas Exporters Could Profit From War in Persian Gulf**\
 `Prices for liquefied natural gas have shot up in recent days, which could bring bigger paydays for European and U.S. energy companies.`\
 https://nytimes.com/2026/03/04/business/energy-environment/natural-gas-prices-lng-shell-exxon-war-iran.html
-
-**MLB Draft scouting notes: Roch Cholowsky, Justin Lebron highlight star-studded Amegy Classic**\
-`The Dallas area was the place to be for MLB draft scouts last weekend, with top prospects competing at several venues in the area.`\
-https://nytimes.com/athletic/7086867/2026/03/04/mlb-draft-scouting-roch-cholowsky-justin-lebron/
-
-**Spring Systems Threaten Days of Storms Across Much of the U.S.**\
-`Some kind of severe weather is expected every day into early next week, forecasters warned. Friday is expected to be among the riskiest.`\
-https://nytimes.com/2026/03/04/weather/severe-storm-forecast-tornado.html
 
