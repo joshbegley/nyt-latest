@@ -1,3 +1,15 @@
+**Maggie Gyllenhaal on Envy and Her Brother Jake**\
+`Maggie Gyllenhaal cast her brother, Jake, in her new movie, “The Bride!” She talked about their relationship and how to handle envy during her conversation with “The Interview” host Lulu Garcia-Navarro.`\
+https://nytimes.com/video/podcasts/100000010749477/maggie-gyllenhaal-on-envy-and-her-brother-jake.html
+
+**Maggie Gyllenhaal on Directing Her Husband in Sex Scenes**\
+`Maggie Gyllenhaal directed the 2021 film “The Lost Daughter,” in which a character played by her husband, Peter Sarsgaard, has a steamy love affair. She talked about what it was like to film those scenes during her conversation with “The Interview” co-host Lulu Garcia-Navarro.`\
+https://nytimes.com/video/podcasts/100000010749479/maggie-gyllenhaal-on-directing-her-husband-in-sex-scenes.html
+
+**Three Reasons John Cornyn Is Fighting for His Political Life**\
+`The veteran Texas senator faces what promises to be a bruising runoff with the state attorney general challenging him from the right. But he had a stronger showing than expected.`\
+https://nytimes.com/2026/03/04/us/texas-john-cornyn-ken-paxton-senate-runoff.html
+
 **Israel and U.S. Trumpet Their Collaboration in War Against Iran**\
 `U.S. and Israeli military officials are talking as often as 4,000 to 5,000 times a day, divvying up targets across Iran.`\
 https://nytimes.com/2026/03/04/world/middleeast/israel-and-us-trumpet-their-collaboration-in-war-against-iran.html

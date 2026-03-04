@@ -1,3 +1,23 @@
+**NHL rumblings: Panthers ready to sell, potential Bobrovsky suitors, latest on Thomas, Parayko, more**\
+`Also two days ahead of the deadline: The Devils are listening on Nemec, Habs are looking at Kadri and Canucks are getting calls on Garland.`\
+https://nytimes.com/athletic/7086967/2026/03/04/bobrovsky-thomas-parayko-kadri-nhl-trade-deadline/
+
+**Bruce Froemming, Baseball’s Iron Man Behind the Plate, Dies at 86**\
+`Umpiring since he was 14, he called 5,163 regular season major league games over a record 37 consecutive seasons. And he wouldn’t hesitate to give a player or a manager the boot.`\
+https://nytimes.com/2026/03/04/sports/baseball/bruce-froemming-dead.html
+
+**Cowboys restructure 3 contracts, including Dak Prescott's, to create cap space**\
+`The moves created a little more than $66 million in immediate salary-cap space as Dallas prepares for free agency.`\
+https://nytimes.com/athletic/7086977/2026/03/04/dak-prescott-contract-ceedee-lamb-cowboys/
+
+**How Trump’s Election Changed Maggie Gyllenhaal**\
+`Maggie Gyllenhaal talks about women in Hollywood and says that Donald Trump’s victory in 2016 influenced her decision to become a movie director. She spoke with “The Interview” host Lulu Garcia-Navarro about her career, her new film, “The Bride!,” her family and more.`\
+https://nytimes.com/video/podcasts/100000010749481/how-trumps-election-changed-maggie-gyllenhaal.html
+
+**Canucks agree to trade Tyler Myers to Stars for 2 draft picks: Sources**\
+`The Canucks will receive a second-round pick in 2027 and a fourth-round pick in 2029 for Myers.`\
+https://nytimes.com/athletic/7083707/2026/03/04/canucks-trade-tyler-myers-stars/
+
 **Maggie Gyllenhaal on Envy and Her Brother Jake**\
 `Maggie Gyllenhaal cast her brother, Jake, in her new movie, “The Bride!” She talked about their relationship and how to handle envy during her conversation with “The Interview” host Lulu Garcia-Navarro.`\
 https://nytimes.com/video/podcasts/100000010749477/maggie-gyllenhaal-on-envy-and-her-brother-jake.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/04/world/middleeast/israel-and-us-trumpet-their-coll
 **U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
 `Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
 https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
-
-**How to Invest During a Persian Gulf War**\
-`The best playbook for recent U.S. conflicts has been to forget that they are even happening. Will this time be different?`\
-https://nytimes.com/2026/03/04/business/iran-us-israel-war-investing-stocks-bonds.html
-
-**What Our Industrial Food System Can’t Do**\
-`Readers respond to a guest essay, “Stop Worrying, and Learn to Love Industrial Food.”`\
-https://nytimes.com/2026/03/04/opinion/letters/industrial-food-system.html
-
-**Panthers, Cardinals to kick off 2026 NFL preseason with Hall of Fame Game**\
-`The game in Canton, Ohio, will feature the defending NFC South champion Panthers against a Cardinals team in transition led by a new coach.`\
-https://nytimes.com/athletic/7086440/2026/03/04/nfl-hall-of-fame-game-cardinals-panthers/
-
-**Chiefs trade CB Trent McDuffie to Rams for 4 picks, including first-rounder: Source**\
-`McDuffie, a 2022 first-round pick, was a two-time All-Pro during his four-year tenure in Kansas City. `\
-https://nytimes.com/athletic/7086935/2026/03/04/chiefs-rams-trent-mcduffie-trade/
-
-**Family Mourns Iowa Soldier Killed in Kuwait**\
-`The family of Declan J. Coady grieved the loss of their son and brother. The 20-year-old was one of the four American service members that federal officers identified as having been killed by an Iranian drone attack in the Shuaiba port in Kuwait.`\
-https://nytimes.com/video/world/middleeast/100000010752935/declan-coady-soldier-killed-iran-war.html
 
