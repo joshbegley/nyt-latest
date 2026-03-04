@@ -1,3 +1,7 @@
+**Bobby Pulido Wins Democratic Primary in Texas’ 15th District**\
+`Mr. Pulido, a centrist and Latin Grammy Award-winning Tejano singer, defeated Ada Cuellar, an emergency room doctor who challenged his center-left views on abortion and connections to the Democratic establishment.`\
+https://nytimes.com/2026/03/03/us/elections/texas-district-15-democratic-primary-pulido.html
+
 **Cornyn and Paxton Head to Runoff in Bitter Texas Senate Primary**\
 `Neither Senator John Cornyn nor Attorney General Ken Paxton secured a majority on Tuesday, setting up a May runoff after a bitter and costly Republican primary.`\
 https://nytimes.com/2026/03/03/us/elections/texas-senate-republican-primary-cornyn-paxton-runoff.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/the-texas-sena
 **Toronto Synagogue Is Damaged by Gunfire on Night of Jewish Holiday**\
 `The temple said 20 shots were fired at the building but no one was hurt.`\
 https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
-
-**Democrats Question Credentials of Armed Squad Created by Trump Ally**\
-`Bruce Blakeman, the Republican candidate for governor of New York, formed a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
-https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
 
