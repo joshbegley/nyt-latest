@@ -1,3 +1,15 @@
+**Maple Leafs' Chris Tanev out for remainder of season after core muscle surgery**\
+`A healthy Chris Tanev is the Leafs' best defenceman. Can he be that player again at this point in his career?`\
+https://nytimes.com/athletic/7087044/2026/03/04/chris-tanev-maple-leafs-surgery/
+
+**Lawmakers Question Intel’s Use of Tools From Blacklisted Chinese Firm**\
+`A bipartisan group of senators raised national security concerns about the chipmaker, which is now partly owned by taxpayers.`\
+https://nytimes.com/2026/03/04/technology/intel-senators-china-tools.html
+
+**Pitt fires women's basketball coach Tory Verdi**\
+`In three seasons under Verdi, the Panthers went 29-66 overall and 8-46 in the ACC.`\
+https://nytimes.com/athletic/7086915/2026/03/04/womens-college-basketball-pitt-fires-coach-tory-verdi/
+
 **A Nuclear Reactor Backed by Bill Gates Gets Federal Approval to Start Building**\
 `TerraPower’s project in Wyoming, which uses novel technology, is the first new commercial reactor to receive federal approval in nearly a decade.`\
 https://nytimes.com/2026/03/04/climate/nuclear-power-terrapower-construction-permit.html
