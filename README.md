@@ -1,3 +1,7 @@
+**Bessent Says Global Tariffs Will Rise to 15 Percent This Week**\
+`Treasury Secretary Scott Bessent predicted that overall tariff rates, which fell after a Supreme Court ruling last month, would be back to previous levels within five months.`\
+https://nytimes.com/2026/03/04/business/economy/bessent-trump-tariffs-15-percent.html
+
 **Luke Donald will return as Europe's Ryder Cup captain**\
 `Donald will be the first three-time captain since Bernard Gallacher three decades ago.`\
 https://nytimes.com/athletic/7086372/2026/03/04/ryder-cup-europe-luke-donald-captain-2027/
@@ -15,7 +19,7 @@ https://nytimes.com/2026/03/04/style/bereavement-grief-boss-unsympathetic.html
 https://nytimes.com/2026/03/04/us/elections/texas-congressional-district-32.html
 
 **Who drafted better? Dueling 49ers mocks start with same speedy guy at pick 27**\
-`There was a common thread between 49ers beatwriters: a heavy helping of edge rush and receiver with a generous side of offensive lineman.`\
+`There was a common thread between 49ers beat writers: a heavy helping of edge rush and receiver with a generous side of offensive lineman.`\
 https://nytimes.com/athletic/7084557/2026/03/04/dueling-49ers-mock-drafts-cashius-howell/
 
 **Should Packers select O-line with their first pick? Dane Brugler mock draft reaction**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086299/2026/03/04/iran-sara-didar-asian-cup-war/
 **U.S. Widens Recall of Diplomatic Staff to Include Pakistan, Cyprus, Oman and Saudi Arabia**\
 `On Tuesday, nonemergency staff and their family members were told to leave several posts as Iran continued to retaliate after U.S. and Israeli strikes.`\
 https://nytimes.com/2026/03/04/world/middleeast/us-embassy-consulate-staff-pakistan-cyprus-oman-saudi-arabia.html
-
-**Crockett Concedes in Texas Senate Primary**\
-`State Representative James Talarico will face the winner of a Republican runoff between the incumbent, John Cornyn, and Attorney General Ken Paxton.`\
-https://nytimes.com/2026/03/04/us/elections/crockett-concedes-texas-senate-primary-talarico.html
 
