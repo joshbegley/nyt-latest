@@ -1,3 +1,23 @@
+**Talarico Can Win. But He Will Not Turn Texas Blue.**\
+`A Texas writer assesses the Senate race.`\
+https://nytimes.com/2026/03/04/opinion/talarico-texas-paxton-cornyn.html
+
+**Trump Announces A.I. Industry Pledge to Pay for Power**\
+`Companies including Google, Microsoft and OpenAI committed to pay for the power plants and grid upgrades needed to run their data centers.`\
+https://nytimes.com/2026/03/04/technology/ai-energy-pledge-white-house-trump.html
+
+**Senate Thwarts Bid to Curb Trump’s War Powers on Iran**\
+`Nearly every Republican voted to block a measure that would require that President Trump win authorization from Congress to continue the offensive in the Middle East.`\
+https://nytimes.com/2026/03/04/us/politics/senate-trump-war-powers-iran.html
+
+**The Briefing: Newcastle 2 Man Utd 1 - How big is this for Howe? Why did Carrick side's struggle against 10 men?**\
+`Our writers break down the talking points from a dramatic Premier League game at St James' Park`\
+https://nytimes.com/athletic/7083546/2026/03/04/newcastle-man-utd-ramsey-fernandes/
+
+**How Every Senator Voted on the Iran War Powers Resolution**\
+`The Senate rejected on a measure to rein in the use of military force in Iran.`\
+https://nytimes.com/interactive/2026/03/04/us/iran-war-powers.html
+
 **Long-Suffering Texas Democrats Wonder: Is James Talarico the One?**\
 `After the state representative won the Senate primary, he joined a list of other promising progressives who have captured the left’s fancy.`\
 https://nytimes.com/2026/03/04/us/politics/james-talarico-texas-senate.html
