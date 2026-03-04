@@ -1,3 +1,11 @@
+**Guide to the 2026 Winter Paralympics: How it works for each sport in Milan Cortina**\
+`The Paralympics begin Wednesday, with the opening ceremony set for Friday. Here's what to expect from each sport in Milan Cortina.`\
+https://nytimes.com/athletic/7083137/2026/03/04/2026-winter-paralympics-sports-guide/
+
+**Finally, Clothes that Make Light of Luxury**\
+`It was a tale of two jackets from Jonathan Anderson at Dior and Anthony Vaccarello at Saint Laurent.`\
+https://nytimes.com/2026/03/04/style/dior-saint-laurent-fall-2026.html
+
 **James Talarico Wins Texas Democratic Senate Primary**\
 `State Representative James Talarico won the Democratic nomination for the closely-watched Senate race in Texas, beating Representative Jasmine Crockett. Two Republicans will head to a run-off in May.`\
 https://nytimes.com/video/us/politics/100000010751865/texas-senate-primary-talarico.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7084751/2026/03/04/foxboro-fifa-world-cup-row/
 **Dwight McNeil's return: Tough love from Moyes, an ovation and a 'step up in level'**\
 `After his deadline-day move to Crystal Palace collapsed, McNeil was back to his best against his old side Burnley`\
 https://nytimes.com/athletic/7085163/2026/03/04/dwight-mcneil-everton-burnley-analysis/
-
-**Markets in Asia Plummet as Energy Fears Offset A.I. Optimism**\
-`Stocks in Asia sank on Wednesday, led by sharp declines in South Korea, as the war in Iran raised concerns about spiraling energy costs.`\
-https://nytimes.com/2026/03/04/business/iran-stocks-natural-gas-oil.html
-
-**Word of the Day: immutable**\
-`This word has appeared in 133 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/04/learning/word-of-the-day-immutable.html
 
