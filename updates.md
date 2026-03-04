@@ -1,3 +1,7 @@
+**Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
+`Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
+https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
+
 **Trump Has Been Sued 198 Times for Withholding Funding. It Hasn’t Stopped Him.**\
 `Immigration demands for highway dollars, D.E.I. rules for homeless grants: how Trump has tried to wield spending to get his way.`\
 https://nytimes.com/interactive/2026/03/03/upshot/trump-funding-lawsuits.html

@@ -1,3 +1,7 @@
+**First-Time Primary Voters Add Uncertainty to Texas Democratic Races**\
+`A surge of voters who had previously participated only in general elections turned out in the Democratic primary, a shift that could make key Texas races harder to predict.`\
+https://nytimes.com/2026/03/03/us/elections/texas-primary-democrats-turnout.html
+
 **Dodgers downplay concerns about Roki Sasaki, who continues to struggle this spring**\
 `Sasaki remains one of the most tantalizing young talents, but he can’t seem to figure himself out again, though Dave Roberts is unconcerned.`\
 https://nytimes.com/athletic/7084921/2026/03/03/dodgers-roki-sasaki-pitching-concerns-spring-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/03/us/politics/jasmine-crockett-texas-senate-primary
 **5 Things to Know About James Talarico**\
 `A Presbyterian seminarian, the Democrat has put his faith at the forefront of his political pitch.`\
 https://nytimes.com/2026/03/03/us/politics/james-talarico-democrat-senate-candidate.html
-
-**When to Expect Primary Election Results**\
-`Voters in Texas, North Carolina and Arkansas kicked off the midterm contests on Tuesday.`\
-https://nytimes.com/2026/03/03/us/elections/primary-election-results-timing-when.html
 
