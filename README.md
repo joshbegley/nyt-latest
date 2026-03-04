@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-
 `Mets rookie Nolan McLean is currently scheduled to start the championship game if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
 
-**The 4 Americans Killed in the Iran War Who Have Been Identified**\
+**A Look at 4 Americans Who Have Died in the Iran Conflict**\
 `They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
 https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
 
