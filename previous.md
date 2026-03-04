@@ -1,3 +1,15 @@
+**How to watch North Florida vs. West Georgia men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the West Georgia Wolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7087589/2026/03/04/north-florida-vs-west-georgia-stream-how-to-watch-march-4/
+
+**Hegseth to Join Campaign Rally in Home District of Soldier Killed in Iran War**\
+`The defense secretary planned to appear at a “Top Gun”-themed event for Representative Zach Nunn, Republican of Iowa, in the district where all four fallen soldiers had been stationed.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/hegseth-to-join-campaign-rally-in-home-district-of-soldier-killed-in-iran-war
+
+**Juan Jose Valdez, Last Marine Out of Saigon, Dies at 88**\
+`During the 1975 fall of the South Vietnamese capital, he helped evacuate thousands, and was nearly left behind.`\
+https://nytimes.com/2026/03/04/us/politics/juan-jose-valdez-dead.html
+
 **Nolan McLean set to join Team USA after experiencing 'vertigo-like symptoms'**\
 `Mets pitcher said Wednesday that his body is where it should be after he lost about five pounds in the last week.`\
 https://nytimes.com/athletic/7087026/2026/03/04/nolan-mclean-team-usa-wbc-vertigo/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/opinion/trump-iran-liberation.html
 **Colorado Governor Signals He’ll Commute Sentence of Election Denier**\
 `Pressured by President Trump, Gov. Jared Polis said he is considering the release of Tina Peters, the last high-profile 2020 election meddler still imprisoned. His fellow Democrats are outraged.`\
 https://nytimes.com/2026/03/04/us/politics/jared-polis-tina-peters.html
-
-**Golfer who fell down elevator shaft discharged from hospital**\
-`Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
-https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
-
-**Penguins trade deadline primer: Best fits and most valuable assets**\
-`Before Friday's NHL trade deadline, let's break down a handful of players and positions the Penguins could be looking to improve.`\
-https://nytimes.com/athletic/7086418/2026/03/04/penguins-nhl-trade-deadline-targets-fits-assets/
-
-**Trump Says Endorsement in Texas G.O.P. Senate Fight Is Imminent**\
-`The president said on Truth Social that he will call for the candidate who does not receive his endorsement to drop out of the race, which is heading to a runoff.`\
-https://nytimes.com/2026/03/04/us/elections/trump-cornyn-paxton-endorsement-texas-senate-primary.html
 

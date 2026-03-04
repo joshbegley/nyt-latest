@@ -1,3 +1,15 @@
+**How to watch North Florida vs. West Georgia men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the West Georgia Wolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7087589/2026/03/04/north-florida-vs-west-georgia-stream-how-to-watch-march-4/
+
+**Hegseth to Join Campaign Rally in Home District of Soldier Killed in Iran War**\
+`The defense secretary planned to appear at a “Top Gun”-themed event for Representative Zach Nunn, Republican of Iowa, in the district where all four fallen soldiers had been stationed.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/hegseth-to-join-campaign-rally-in-home-district-of-soldier-killed-in-iran-war
+
+**Juan Jose Valdez, Last Marine Out of Saigon, Dies at 88**\
+`During the 1975 fall of the South Vietnamese capital, he helped evacuate thousands, and was nearly left behind.`\
+https://nytimes.com/2026/03/04/us/politics/juan-jose-valdez-dead.html
+
 **Nolan McLean set to join Team USA after experiencing 'vertigo-like symptoms'**\
 `Mets pitcher said Wednesday that his body is where it should be after he lost about five pounds in the last week.`\
 https://nytimes.com/athletic/7087026/2026/03/04/nolan-mclean-team-usa-wbc-vertigo/
