@@ -1,3 +1,7 @@
+**How to watch North Florida vs. West Georgia men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Florida Ospreys play the West Georgia Wolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7087589/2026/03/04/north-florida-vs-west-georgia-stream-how-to-watch-march-4/
+
 **Hegseth to Join Campaign Rally in Home District of Soldier Killed in Iran War**\
 `The defense secretary planned to appear at a “Top Gun”-themed event for Representative Zach Nunn, Republican of Iowa, in the district where all four fallen soldiers had been stationed.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/hegseth-to-join-campaign-rally-in-home-district-of-soldier-killed-in-iran-war
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/opinion/trump-iran-liberation.html
 **Colorado Governor Signals He’ll Commute Sentence of Election Denier**\
 `Pressured by President Trump, Gov. Jared Polis said he is considering the release of Tina Peters, the last high-profile 2020 election meddler still imprisoned. His fellow Democrats are outraged.`\
 https://nytimes.com/2026/03/04/us/politics/jared-polis-tina-peters.html
-
-**Golfer who fell down elevator shaft discharged from hospital**\
-`Pavan will remain in South Africa for a further five weeks of rehabilitation before travelling back to the United States.`\
-https://nytimes.com/athletic/7087341/2026/03/04/andrea-pavan-elevator-shaft-golf-discharged/
 
