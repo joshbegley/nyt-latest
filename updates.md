@@ -1,3 +1,11 @@
+**USL, players remain locked in CBA negotiations as strike threat lingers**\
+`As a new season nears, the USL and its players' association remain at odds.`\
+https://nytimes.com/athletic/7085601/2026/03/04/usl-championship-strike-cba-talks-promotion-relegation/
+
+**24 Off Broadway Shows to Catch in March**\
+`Hugh Jackman returns in “Sexual Misconduct of the Middle Classes,” Jesse Tyler Ferguson plays Truman Capote, and Celia Keenan-Bolger and Tony Shalhoub star in an “Antigone” riff.`\
+https://nytimes.com/2026/03/04/theater/off-broadway-jackman-shalhoub-antigone.html
+
 **2 Big Production Houses to Merge, Chaired by Jeff Zucker**\
 `The deal between All3Media and Banijay will bring together the companies behind the “Peaky Blinders” and the “Traitors” franchises.`\
 https://nytimes.com/2026/03/04/business/dealbook/all3media-banijay-merger-media.html

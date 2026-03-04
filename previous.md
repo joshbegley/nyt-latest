@@ -1,3 +1,11 @@
+**USL, players remain locked in CBA negotiations as strike threat lingers**\
+`As a new season nears, the USL and its players' association remain at odds.`\
+https://nytimes.com/athletic/7085601/2026/03/04/usl-championship-strike-cba-talks-promotion-relegation/
+
+**24 Off Broadway Shows to Catch in March**\
+`Hugh Jackman returns in “Sexual Misconduct of the Middle Classes,” Jesse Tyler Ferguson plays Truman Capote, and Celia Keenan-Bolger and Tony Shalhoub star in an “Antigone” riff.`\
+https://nytimes.com/2026/03/04/theater/off-broadway-jackman-shalhoub-antigone.html
+
 **2 Big Production Houses to Merge, Chaired by Jeff Zucker**\
 `The deal between All3Media and Banijay will bring together the companies behind the “Peaky Blinders” and the “Traitors” franchises.`\
 https://nytimes.com/2026/03/04/business/dealbook/all3media-banijay-merger-media.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/business/economy/bessent-trump-tariffs-15-percent
 **Luke Donald will return as Europe's Ryder Cup captain**\
 `Donald will be the first three-time captain since Bernard Gallacher three decades ago.`\
 https://nytimes.com/athletic/7086372/2026/03/04/ryder-cup-europe-luke-donald-captain-2027/
-
-**Gen X, It’s Time to Worry About Retirement**\
-`On the sorry state of retirement savings in the United States, and a policy that could help.`\
-https://nytimes.com/2026/03/04/opinion/gen-x-retirement.html
-
-**My Boss Didn’t Care That My Mother Was Dying. Help!**\
-`A reader can hardly stand to look at a superior after finding her recent anguish met with talk of “contractual obligations.”`\
-https://nytimes.com/2026/03/04/style/bereavement-grief-boss-unsympathetic.html
 
