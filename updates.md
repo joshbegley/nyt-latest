@@ -1,3 +1,11 @@
+**Interior Secretary Visits Venezuela as Part of Oil and Mining Expansion**\
+`The trip is part of the Trump administration’s push to build production in the South American nation.`\
+https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
+
+**99 days out, the big World Cup business questions, asked and answered: MoneyCall**\
+`The Athletic's free weekly sports-business cheat sheet, including Paramount's big buy, the Hawks' "Magic City Monday" promo and more.`\
+https://nytimes.com/athletic/7087019/2026/03/04/world-cup-fifa-soccer-moneycall/
+
 **As Israel Pounds Lebanon, Thousands of Syrians There Flee Back Home**\
 `“I felt great fear and I ran,” says one of thousands of Syrians who are leaving what had been a relatively safe refuge during the war in Syria.`\
 https://nytimes.com/2026/03/04/world/middleeast/as-israel-pounds-lebanon-thousands-of-syrians-there-flee-back-home.html

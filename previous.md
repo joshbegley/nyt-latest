@@ -1,3 +1,11 @@
+**Interior Secretary Visits Venezuela as Part of Oil and Mining Expansion**\
+`The trip is part of the Trump administration’s push to build production in the South American nation.`\
+https://nytimes.com/2026/03/04/us/politics/venezuela-burgum-oil-gas.html
+
+**99 days out, the big World Cup business questions, asked and answered: MoneyCall**\
+`The Athletic's free weekly sports-business cheat sheet, including Paramount's big buy, the Hawks' "Magic City Monday" promo and more.`\
+https://nytimes.com/athletic/7087019/2026/03/04/world-cup-fifa-soccer-moneycall/
+
 **As Israel Pounds Lebanon, Thousands of Syrians There Flee Back Home**\
 `“I felt great fear and I ran,” says one of thousands of Syrians who are leaving what had been a relatively safe refuge during the war in Syria.`\
 https://nytimes.com/2026/03/04/world/middleeast/as-israel-pounds-lebanon-thousands-of-syrians-there-flee-back-home.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010749477/maggie-gyllenhaal-on-envy-and
 **Maggie Gyllenhaal on Directing Her Husband in Sex Scenes**\
 `Maggie Gyllenhaal directed the 2021 film “The Lost Daughter,” in which a character played by her husband, Peter Sarsgaard, has a steamy love affair. She talked about what it was like to film those scenes during her conversation with “The Interview” co-host Lulu Garcia-Navarro.`\
 https://nytimes.com/video/podcasts/100000010749479/maggie-gyllenhaal-on-directing-her-husband-in-sex-scenes.html
-
-**Three Reasons John Cornyn Is Fighting for His Political Life**\
-`The veteran Texas senator faces what promises to be a bruising runoff with the state attorney general challenging him from the right. But he had a stronger showing than expected.`\
-https://nytimes.com/2026/03/04/us/texas-john-cornyn-ken-paxton-senate-runoff.html
-
-**Israel and U.S. Trumpet Their Collaboration in War Against Iran**\
-`U.S. and Israeli military officials are talking as often as 4,000 to 5,000 times a day, divvying up targets across Iran.`\
-https://nytimes.com/2026/03/04/world/middleeast/israel-and-us-trumpet-their-collaboration-in-war-against-iran.html
 
