@@ -1,3 +1,27 @@
+**Two curling stones apparently stolen from Paralympic venue on eve of competition**\
+`Authorities are investigating the disappearance of two curling stones from the Paralympic venue. Replacements have been brought in.`\
+https://nytimes.com/athletic/7087749/2026/03/04/paralympics-2026-curling-stones-stolen/
+
+**As New York Energy Costs Surge, Attention Turns to Landmark Climate Law**\
+`The battle to lower costs has reached the State Capitol, where concerns have emerged about the fate of a 2019 climate law and its ambitious goals to reduce greenhouse gas emissions.`\
+https://nytimes.com/2026/03/04/nyregion/energy-bills-climate.html
+
+**Ethiopia’s Demand for Red Sea Access Drives Fears of New War With Eritrea**\
+`Both sides have moved troops toward their shared border, while Ethiopia has accused Eritrea of occupying part of its territory.`\
+https://nytimes.com/2026/03/04/world/africa/ethiopia-eritrea-war-tensions.html
+
+**Your Iran questions, answered**\
+`My colleagues address your queries about the expanding conflict in the Middle East.`\
+https://nytimes.com/2026/03/04/world/iran-questions-turkey-nigeria.html
+
+**Spain insists it is not cooperating with U.S. on Iran war despite a White House claim.**\
+`It was part of a back`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/spain-white-house
+
+**Jurickson Profar's suspension left Team Netherlands scrambling mere minutes before game**\
+`“I heard of it 10 minutes before we started the game,” Netherlands manager Andruw Jones said.`\
+https://nytimes.com/athletic/7087578/2026/03/04/jurickson-profar-suspension-netherlands-braves/
+
 **Leafs to scratch Ekman-Larsson, Laughton, McMann ahead of trade deadline**\
 `The apparent change in plans suggests an uptick in interest around the three players being held out.`\
 https://nytimes.com/athletic/7087732/2026/03/04/leafs-scratching-oliver-ekman-larsson-scott-laughton-bobby-mcmann-trade-deadline/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7087475/2026/03/04/rangers-adam-fox-nhl-trade-deadl
 **Data Centers Are a Distraction. The Real Fight Is Elsewhere.**\
 `We are trying to decide what role A.I. will have in our lives.`\
 https://nytimes.com/2026/03/04/opinion/data-centers-ai-regulation.html
-
-**What’s in Our Queue? ‘The Art of Loving’ and More**\
-`Text by Nicole Sperling`\
-https://nytimes.com/card/2026/03/04/arts/editors-recommendations-artofloving
-
-**After Hegseth Cut Ties, Harvard Offers Workarounds for Troops**\
-`Defense Secretary Pete Hegseth has said the Pentagon would end funds supporting active-duty service members at Harvard. The school is offering military students alternatives to defer or go elsewhere.`\
-https://nytimes.com/2026/03/04/us/hegseth-pentagon-harvard-military.html
-
-**U.S. Submarine Launches First Torpedo in Combat Since World War II**\
-`Since 1991, Navy subs have launched scores of cruise missiles in combat, but the torpedo attack off Sri Lanka is a return to form after 80 years.`\
-https://nytimes.com/2026/03/04/us/politics/submarine-torpedo-iran-ship.html
-
-**Iran’s Drones Cost a Fraction of the U.S. Weapons Shooting Them Down**\
-`What to know about Iran’s cheap, noisy Shahed drones and the expensive defense systems trying to stop them.`\
-https://nytimes.com/2026/03/04/business/iran-shahed-drones-missiles-us-war.html
-
-**Most Patients Keep Weight Off With Fewer GLP-1 Shots, Study Finds**\
-`In a recent review, a small group of patients received the injections less frequently but still maintained weight loss and health benefits.`\
-https://nytimes.com/2026/03/04/health/glp1-weight-loss-dosing.html
-
-**Graffiti-Covered Los Angeles Skyscrapers Find a Buyer**\
-`The windows of the unfinished Oceanwide Plaza complex in downtown Los Angeles became a canvas for street artists in 2024. A new buyer is promising to complete the project.`\
-https://nytimes.com/2026/03/04/us/los-angeles-graffiti-skyscrapers-buyer.html
 
