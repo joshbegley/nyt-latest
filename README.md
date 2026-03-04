@@ -1,3 +1,7 @@
+**As Israel Pounds Lebanon, Thousands of Syrians There Flee Back Home**\
+`“I felt great fear and I ran,” says one of thousands of Syrians who are leaving what had been a relatively safe refuge during the war in Syria.`\
+https://nytimes.com/2026/03/04/world/middleeast/as-israel-pounds-lebanon-thousands-of-syrians-there-flee-back-home.html
+
 **NHL rumblings: Panthers ready to sell, potential Bobrovsky suitors, latest on Thomas, Parayko, more**\
 `Also two days ahead of the deadline: The Devils are listening on Nemec, Habs are looking at Kadri and Canucks are getting calls on Garland.`\
 https://nytimes.com/athletic/7086967/2026/03/04/bobrovsky-thomas-parayko-kadri-nhl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/texas-john-cornyn-ken-paxton-senate-runoff.htm
 **Israel and U.S. Trumpet Their Collaboration in War Against Iran**\
 `U.S. and Israeli military officials are talking as often as 4,000 to 5,000 times a day, divvying up targets across Iran.`\
 https://nytimes.com/2026/03/04/world/middleeast/israel-and-us-trumpet-their-collaboration-in-war-against-iran.html
-
-**U.S. Campaign in Iran Is ‘Far From Over,’ Joint Chiefs Chairman Says**\
-`Defense Secretary Pete Hegseth said responsibility for a strike on an Iranian girls’ school was under investigation.`\
-https://nytimes.com/2026/03/04/us/politics/us-war-iran.html
 
