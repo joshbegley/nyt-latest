@@ -1,3 +1,11 @@
+**Christian Astuguevieille, 79, Dies; Created Strange Scents and Enigmatic Objects**\
+`For Commes des Garçons, he designed improbable perfumes that conjured burning rubber and cars leaking oil. His uncanny art pieces were equally contrarian.`\
+https://nytimes.com/2026/03/04/arts/design/christian-astuguevieille-dead.html
+
+**Tiny Love Stories: ‘I Brought Only Sex and Chaos’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/04/style/tiny-modern-love-stories-i-only-brought-sex-and-chaos.html
+
 **Trump Wants the Iranians to Rise Up. But Will He Have Their Backs?**\
 `Hungary. Cuba. Afghanistan. Iraq. Now Iran?`\
 https://nytimes.com/2026/03/04/opinion/trump-iran-liberation.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010749731/chile-crisp-cheese-crackers.htm
 **College football set to play games at London's Wembley Stadium for next 3 years**\
 `Arizona State and Kansas will play in London's Wembley Stadium on Sept. 19.`\
 https://nytimes.com/athletic/7086815/2026/03/04/college-football-wembley-stadium-union-jack-classic/
-
-**Sheet-Pan Döner Kebab**\
-`Döner, a staple street food across the Middle East and beloved the world around, gets a home-friendly remix in this recipe, which cleverly uses scrolls of parchment paper and a hot oven to achieve the hearty browning and thin slices you’d get from carving meat from a vertical spit.`\
-https://nytimes.com/video/dining/100000010749733/sheet-pan-doner-kebab.html
-
-**Trader Joe’s Recalls 4 Frozen Food Products That May Contain Glass**\
-`No injuries had been confirmed, but consumers reported finding glass in their products. The announcement was part of a larger recall of nearly 37 million pounds of food products.`\
-https://nytimes.com/2026/03/04/us/trader-joes-recall-frozen-asian-food.html
 
