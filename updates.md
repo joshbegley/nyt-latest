@@ -1,3 +1,7 @@
+**Quote of the Day: STRIKES KILLED IRAN SUCCESSORS EYED BY U.S.**\
+`Quotation of the Day for Wednesday, March 4, 2026.`\
+https://nytimes.com/2026/03/03/pageoneplus/quote-of-the-day-strikes-killed-iran-successors-eyed-by-us.html
+
 **Court Rulings Throw Dallas County Vote Tally Into Uncertainty**\
 `Hours after a district judge ordered the county to keep its polling places open, the Texas Supreme Court temporarily blocked the decision.`\
 https://nytimes.com/2026/03/03/us/elections/dallas-county-vote-tally-court-ruling.html

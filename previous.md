@@ -1,3 +1,7 @@
+**Quote of the Day: STRIKES KILLED IRAN SUCCESSORS EYED BY U.S.**\
+`Quotation of the Day for Wednesday, March 4, 2026.`\
+https://nytimes.com/2026/03/03/pageoneplus/quote-of-the-day-strikes-killed-iran-successors-eyed-by-us.html
+
 **Court Rulings Throw Dallas County Vote Tally Into Uncertainty**\
 `Hours after a district judge ordered the county to keep its polling places open, the Texas Supreme Court temporarily blocked the decision.`\
 https://nytimes.com/2026/03/03/us/elections/dallas-county-vote-tally-court-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010746933/the-great-lie-of-war.html
 **Rangers install controversial statue honoring Texas Rangers law-enforcement body**\
 `The "One Riot, One Ranger" statue was removed from the Dallas airport after George Floyd died in police custody.`\
 https://nytimes.com/athletic/7085220/2026/03/03/texas-rangers-statue-dallas-airport/
-
-**There are a few key counties to watch in Texas.**\
-`By Christine Zhang`\
-https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/there-are-a-few-key-counties-to-watch-in-texas
 
