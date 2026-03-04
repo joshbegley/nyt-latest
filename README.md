@@ -1,3 +1,11 @@
+**When to Expect Primary Election Results**\
+`Voters in Texas, North Carolina and Arkansas kicked off the midterm contests on Tuesday.`\
+https://nytimes.com/2026/03/03/us/elections/primary-election-results-timing-when.html
+
+**Trump Tries to Quiet Claims Among Supporters That Israel Dragged Him Into War**\
+`Many of President Trump’s allies have urged him and his Make America Great Again movement to shift away from their close ties to Israel and military entanglements in the Middle East.`\
+https://nytimes.com/2026/03/03/us/politics/trump-israel-iran.html
+
 **5 Things to Know About Ken Paxton**\
 `The Texas attorney general rode into office on a Tea Party wave and has faced several high-profile scandals during his tenure.`\
 https://nytimes.com/2026/03/03/us/politics/ken-paxton-republican-senate-candidate.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/us/elections/trump-endorsements-texas-primary-ele
 **Americans were urged to leave 14 countries in the region.**\
 `By Lazaro Gamio`\
 https://nytimes.com/2026/03/03/world/middleeast/americans-were-urged-to-leave-14-countries-in-the-region.html
-
-**Maps show wide-ranging attacks in the opening days of the conflict.**\
-`(No description)`\
-https://nytimes.com/2026/03/03/world/middleeast/maps-show-wide-ranging-attacks-in-the-opening-days-of-the-conflict.html
-
-**Who’s in Charge of Iran’s Government After Khamenei’s Killing?**\
-`Who is in charge of Iran’s government after airstrikes killed the supreme leader and some of his defense and security officials? Erika Solomon, our bureau chief for Iran and Iraq, describes what we know.`\
-https://nytimes.com/video/world/middleeast/100000010746505/iran-government-leader.html
 
