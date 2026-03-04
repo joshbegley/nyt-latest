@@ -1,3 +1,11 @@
+**To Many, These Buildings in Japan Are Magnificent. They’re Doomed Anyway.**\
+`Why the country is quick to tear down its modern architectural masterpieces.`\
+https://nytimes.com/2026/03/04/arts/design/japan-architecture-buildings-demolition.html
+
+**Fusing the Personal and the Political, With Monumental Results**\
+`Doron Langberg used to think their Israeli heritage was incidental to their art. Then the Gaza war brought questions of identity and history to the surface.`\
+https://nytimes.com/2026/03/04/arts/design/doron-landberg-deitch-projects-landscapes.html
+
 **Top 75 relievers for fantasy baseball 2026 SOLDS leagues, starting with Cade Smith**\
 `Greg Jewett ranks his Top 75 relievers for SOLDS leagues, a format that brings all high-leverage relievers into the spotlight.`\
 https://nytimes.com/athletic/7084000/2026/03/04/solds-rankings-relievers-fantasy-baseball-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/heres-what-satell
 **Grading every NBA team at the quarter pole: Which 4 squads earned an F on our report card?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7086547/2026/03/04/nba-grades-spurs-thunder-the-bounce/
-
-**The Windup: OK, I'm bought-in on the WBC**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7086629/2026/03/04/world-baseball-classic-what-to-know-the-windup/
-
-**Maguire found guilty of non-serious assault, has suspended sentence reduced**\
-`The 32-year-old had originally been given a 21-month suspended sentence after an altercation on a 2020 family holiday in Mykonos.`\
-https://nytimes.com/athletic/7086538/2026/03/04/harry-maguire-manchester-united-greece-assault-charge/
 
