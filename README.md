@@ -1,3 +1,15 @@
+**Trump’s High-Profile Oil and Gas Lease Sale in Alaska Has No Takers**\
+`No companies bid for the chance to drill in more than 1 million acres of water off Alaska’s Cook Inlet, the Interior Department said Wednesday.`\
+https://nytimes.com/2026/03/04/climate/cook-inlet-alaska-lease-sale-bids.html
+
+**How Latino Voters Helped Talarico Win in Texas**\
+`The state legislator’s apparent strength with Latino voters in the Democratic primary for Senate suggested that he might be able to make inroads with a crucial demographic that has shifted away from his party.`\
+https://nytimes.com/interactive/2026/03/04/us/elections/texas-primary-talarico-crockett-results-votes.html
+
+**Lou Holtz, Who Coached Unbeaten Notre Dame to a Title, Dies at 89**\
+`Known for reviving football programs, he led six major colleges to bowl games, winning a national championship in 1989 after restoring the Irish to greatness.`\
+https://nytimes.com/2026/03/04/sports/football/lou-holtz-dead.html
+
 **Nepal Election to Test the Political Power of Gen Z**\
 `Nepalis expressed hope for their country as people head to the polls on Thursday for the first election since a youth-led uprising against corruption toppled the government last September.`\
 https://nytimes.com/video/world/asia/100000010753113/nepal-election-gen-z-shah-kathmandu.html
@@ -10,8 +22,8 @@ https://nytimes.com/athletic/6814719/2026/03/04/lou-holtz-death-obituary-coachin
 `See how much his East Wing ballroom design will upend the White House symmetry.`\
 https://nytimes.com/interactive/2026/03/04/us/politics/trump-white-house-east-wing-ballroom-design-plan.html
 
-**Bob Power, Engineer and A Tribe Called Quest Collaborator, Dies at 73**\
-`A producer, recording engineer and sound mixer, he helped pioneer the use of sampling in rap music, including on the influential album “The Low End Theory” by A Tribe Called Quest.`\
+**Bob Power, Hip-Hop Engineer and A Tribe Called Quest Collaborator, Dies at 73**\
+`A producer, recording engineer and sound mixer, he helped pioneer the early use of sampling in rap music, including on the influential album “The Low End Theory” by A Tribe Called Quest.`\
 https://nytimes.com/2026/03/04/arts/music/bob-power-dead.html
 
 **The Briefing: Aston Villa 1 Chelsea 4 - unstoppable Joao Pedro, Villa's flawed setup, big week ahead for Rosenior**\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/house-panel-votes-to-subpoena-pam-bon
 **Manchester City 2 Nottingham Forest 2 - Have City blown their momentum? How did Gibbs-White do that?**\
 `Pep Guardiola's side twice lost the lead to remarkable goals from a spirited Forest side `\
 https://nytimes.com/athletic/7083545/2026/03/04/manchester-city-2-nottingham-forest-2-briefing/
-
-**The Briefing: Brighton 0 Arsenal 1 - A key twist in the Premier League race?**\
-`With Arsenal and Manchester City both kicking off at the same time, James McNicholas analyses a key game in the Premier League title race`\
-https://nytimes.com/athletic/7083514/2026/03/04/brighton-arsenal-premier-league-title-race/
-
-**Democratic Infighting Begins in California Governor’s Race**\
-`Party leaders are starting to panic over the possibility that too many Democratic candidates could hand Republicans the governor’s office.`\
-https://nytimes.com/2026/03/04/us/elections/democratic-infighting-begins-in-california-governors-race.html
-
-**Mark Teixeira wins Texas GOP primary as other sports figures chase politics**\
-`Teixeira took more than 61 percent of the vote in Texas’ 21st Congressional district to win the 12-candidate field.`\
-https://nytimes.com/athletic/7087344/2026/03/04/mark-teixeira-yankees-texas-election-results-gop-primary/
 
