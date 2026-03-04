@@ -1,3 +1,11 @@
+**Mark Teixeira wins Texas GOP primary as other sports figures chase politics**\
+`Teixeira took more than 61 percent of the vote in Texas’ 21st Congressional district to win the 12-candidate field.`\
+https://nytimes.com/athletic/7087344/2026/03/04/mark-teixeira-yankees-texas-election-results-gop-primary/
+
+**Insulting the Mayor Is Nothing New. But This Was Shocking.**\
+`A well-known conservative radio host in New York called Mayor Zohran Mamdani a cockroach, resurfacing anti-Muslim sentiments that the mayor said were all too common.`\
+https://nytimes.com/2026/03/04/nyregion/muslim-mamdani-hate-speech.html
+
 **Two curling stones apparently stolen from Paralympic venue on eve of competition**\
 `Authorities are investigating the disappearance of two curling stones from the Paralympic venue. Replacements have been brought in.`\
 https://nytimes.com/athletic/7087749/2026/03/04/paralympics-2026-curling-stones-stolen/
