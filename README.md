@@ -1,3 +1,11 @@
+**Cornyn and Paxton Head to Runoff in Bitter Texas Senate Primary**\
+`Neither Senator John Cornyn nor Attorney General Ken Paxton secured a majority on Tuesday, setting up a May runoff after a bitter and costly Republican primary.`\
+https://nytimes.com/2026/03/03/us/elections/texas-senate-republican-primary-cornyn-paxton-runoff.html
+
+**The Great Lie of War**\
+`In attacking Iran and Venezuela, Trump appears to believe he can decapitate regimes without events spinning out of control. What if he’s wrong? The contributing Opinion writer Ben Rhodes and the columnist Ezra Klein discuss what Trump underestimates about war on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010746933/the-great-lie-of-war.html
+
 **Rangers install controversial statue honoring Texas Rangers law-enforcement body**\
 `The "One Riot, One Ranger" statue was removed from the Dallas airport after George Floyd died in police custody.`\
 https://nytimes.com/athletic/7085220/2026/03/03/texas-rangers-statue-dallas-airport/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/03/world/canada/toronto-synagogue-shots-fired.html
 **Democrats Question Credentials of Armed Squad Created by Trump Ally**\
 `Bruce Blakeman, the Republican candidate for governor of New York, formed a band of special deputies. A lawsuit calls the unit’s members unqualified and says that some appear to have arrest records.`\
 https://nytimes.com/2026/03/03/nyregion/blakeman-militia-nassau-ny.html
-
-**U.S. Opens Military Action in Ecuador Against ‘Terrorist Organizations’**\
-`U.S. Special Forces soldiers are advising and supporting Ecuadorian commandos on raids across the country against suspected drug shipment facilities and other drug-related sites.`\
-https://nytimes.com/2026/03/03/us/politics/us-ecuador-trump-military-operations.html
-
-**Congress Splits Over Iran War as Senate Faces a Vote**\
-`The administration’s shifting justifications for the military operation alarmed Democrats, who said no clear rationale had been given. Republicans struggled to echo the evolving explanations.`\
-https://nytimes.com/2026/03/03/us/politics/congress-iran-war-powers.html
 
