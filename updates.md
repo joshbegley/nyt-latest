@@ -1,3 +1,15 @@
+**Iran Strikes U.S. Military Communication Infrastructure in Mideast**\
+`Satellite images show damage near vital equipment on sites in at least five countries.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-strikes-us-military-communication-infrastructure-in-mideast.html
+
+**Carney Says That Canada’s Support for Airstrikes Came ‘With Regret’**\
+`The prime minister criticized Israel and the U.S. for not consulting other nations or the U.N. before their attack on Iran.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-attacks-carney-canada.html
+
+**A Look at 4 Americans Who Have Died in the Iran Conflict**\
+`They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
+https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
+
 **What Satellite Images Show on Efforts to Destroy Iran’s Ballistic Missiles**\
 `A New York Times analysis finds evidence of strikes on Iran’s underground ballistic missile sites and facilities targeted last June.`\
 https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.html

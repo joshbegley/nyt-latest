@@ -1,3 +1,11 @@
+**Iran Strikes U.S. Military Communication Infrastructure in Mideast**\
+`Satellite images show damage near vital equipment on sites in at least five countries.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-strikes-us-military-communication-infrastructure-in-mideast.html
+
+**Carney Says That Canada’s Support for Airstrikes Came ‘With Regret’**\
+`The prime minister criticized Israel and the U.S. for not consulting other nations or the U.N. before their attack on Iran.`\
+https://nytimes.com/2026/03/03/world/middleeast/iran-attacks-carney-canada.html
+
 **What Satellite Images Show on Efforts to Destroy Iran’s Ballistic Missiles**\
 `A New York Times analysis finds evidence of strikes on Iran’s underground ballistic missile sites and facilities targeted last June.`\
 https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.html
@@ -10,7 +18,7 @@ https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-
 `Mets rookie Nolan McLean is currently scheduled to start the championship game if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
 
-**The 4 Americans Killed in the Iran War Who Have Been Identified**\
+**A Look at 4 Americans Who Have Died in the Iran Conflict**\
 `They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
 https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085033/2026/03/03/wild-michael-mccarron-trade-grad
 **The Perennial Question in Texas: Is This the Year It Goes Blue?**\
 `The signs are familiar: an unpopular Republican president, well-funded Democrats and anecdotes of disaffected G.O.P. and independent voters.`\
 https://nytimes.com/2026/03/03/us/elections/texas-democrats-statewide-election.html
-
-**Poker game ring case involving Chauncey Billups may see two dozen plea deals**\
-`Billups and former NBA player Damon Jones were alleged to have acted as lures as part of the scheme.`\
-https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-plea-deal-agreements/
-
-**Tracking Trump’s Endorsements in Tonight’s Primary Results**\
-`President Trump has endorsed hundreds of Republicans ahead of the midterm primary elections. See who is winning and losing.`\
-https://nytimes.com/interactive/2026/us/elections/results-trump-endorsements-texas-nc-arkansas.html
 
