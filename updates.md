@@ -1,3 +1,19 @@
+**Trump’s High-Profile Oil and Gas Lease Sale in Alaska Has No Takers**\
+`No companies bid for the chance to drill in more than 1 million acres of water off Alaska’s Cook Inlet, the Interior Department said Wednesday.`\
+https://nytimes.com/2026/03/04/climate/cook-inlet-alaska-lease-sale-bids.html
+
+**How Latino Voters Helped Talarico Win in Texas**\
+`The state legislator’s apparent strength with Latino voters in the Democratic primary for Senate suggested that he might be able to make inroads with a crucial demographic that has shifted away from his party.`\
+https://nytimes.com/interactive/2026/03/04/us/elections/texas-primary-talarico-crockett-results-votes.html
+
+**Lou Holtz, Who Coached Unbeaten Notre Dame to a Title, Dies at 89**\
+`Known for reviving football programs, he led six major colleges to bowl games, winning a national championship in 1989 after restoring the Irish to greatness.`\
+https://nytimes.com/2026/03/04/sports/football/lou-holtz-dead.html
+
+**Bob Power, Hip-Hop Engineer and A Tribe Called Quest Collaborator, Dies at 73**\
+`A producer, recording engineer and sound mixer, he helped pioneer the early use of sampling in rap music, including on the influential album “The Low End Theory” by A Tribe Called Quest.`\
+https://nytimes.com/2026/03/04/arts/music/bob-power-dead.html
+
 **Nepal Election to Test the Political Power of Gen Z**\
 `Nepalis expressed hope for their country as people head to the polls on Thursday for the first election since a youth-led uprising against corruption toppled the government last September.`\
 https://nytimes.com/video/world/asia/100000010753113/nepal-election-gen-z-shah-kathmandu.html
