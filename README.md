@@ -1,3 +1,11 @@
+**Trader Joe’s Recalls 4 Frozen Food Products That May Contain Glass**\
+`No injuries had been confirmed, but consumers reported finding glass in their products. The announcement was part of a larger recall of nearly 37 million pounds of food products.`\
+https://nytimes.com/2026/03/04/us/trader-joes-recall-frozen-asian-food.html
+
+**Videos Show Homes and Businesses Across Mideast Caught Up by War**\
+`As the conflict widens, residents across the Middle East are feeling the consequences of the U.S. and Israeli attacks on Iran.`\
+https://nytimes.com/2026/03/04/world/middleeast/iran-us-israel-strikes-videos-dubai-kuwait.html
+
 **A U.N. panel condemns the U.S.-Israeli attacks on Iran.**\
 `By Nick Cumming-Bruce`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/a-un-panel-condemns-the-us-israeli-attacks-on-iran
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/upshot/texas-primary-talarico-cornyn-senate.html
 **John P. Hammond, Pioneer in 1960s Blues Renaissance, Dies at 83**\
 `With his acclaimed interpretations of Delta Blues standards, he was a fixture on the Greenwich Village music scene for decades.`\
 https://nytimes.com/2026/03/04/arts/music/john-p-hammond-dead.html
-
-**Why is Giannis even playing? 3 reasons the superstar is back on the court**\
-`What do the Bucks have to lose by having Giannis play this late in the regular season?`\
-https://nytimes.com/athletic/7086352/2026/03/04/giannis-antetokounmpo-bucks-injury-return/
-
-**Rhode Island Priests Abused Hundreds of Children Over Decades, Report Finds**\
-`The report from the state’s attorney general, covering 75 years, faulted the Diocese of Providence for not removing accused priests and not contacting the police enough.`\
-https://nytimes.com/2026/03/04/us/rhode-island-priests-abuse-report.html
 
