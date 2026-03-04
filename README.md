@@ -1,6 +1,6 @@
 **Representative Dan Crenshaw Loses G.O.P. Primary in Texas**\
 `The victory by Steve Toth, a hard-line Texas state representative, underscored how even a conservative House member could lose Republican voters by breaking with President Trump.`\
-https://nytimes.com/2026/03/04/us/elections/texas-district-2-primary.html
+https://nytimes.com/live/2026/03/03/us/election-midterms-tx-nc-ar/texas-district-2-primary
 
 **Liverpool are losing control late in games. Arne Slot needs to fix it**\
 `The loss to Wolves was yet another example of a last-gasp goal hurting the champions in their faltering campaign`\
