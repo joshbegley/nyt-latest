@@ -1,10 +1,18 @@
+**What Satellite Images Show on Efforts to Destroy Iran’s Ballistic Missiles**\
+`A New York Times analysis finds evidence of strikes on Iran’s underground ballistic missile sites and facilities targeted last June.`\
+https://nytimes.com/2026/03/03/us/politics/iran-ballistic-missiles-strikes-maps.html
+
+**Who Is Mojtaba Khamenei, the Son and Possible Successor of Iran’s Supreme Leader?**\
+`The selection of the son of Ayatollah Ali Khamenei, who was killed in a strike on his compound on Saturday, could anger Iranians seeking change.`\
+https://nytimes.com/2026/03/03/world/middleeast/mojtaba-khamenei-iran-successor-who.html
+
 **Why Paul Skenes is unlikely to take the mound for Team USA in a potential WBC final**\
 `Mets rookie Nolan McLean is currently scheduled to start the championship game if Team USA makes it that far.`\
 https://nytimes.com/athletic/7085234/2026/03/03/paul-skenes-world-baseball-classic-nolan-mclean/
 
 **The 4 Americans Killed in the Iran War Who Have Been Identified**\
 `They were from Nebraska, Florida, Iowa and Minnesota. One was wrapping up his final deployment and hoped to open a martial arts studio.`\
-https://nytimes.com/live/2026/03/03/world/iran-war-israel-lebanon-trump/the-4-americans-killed-in-the-iran-war-who-have-been-identified
+https://nytimes.com/2026/03/03/world/middleeast/the-4-americans-killed-in-the-iran-war-who-have-been-identified.html
 
 **Senators Question Kristi Noem on ICE Immigration Tactics**\
 `Homeland Security Secretary Kristi Noem repeatedly refused to apologize for suggesting that Alex Pretti and Renee Good, two U.S. citizens shot and killed by agents, were domestic terrorists.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085165/2026/03/03/chauncey-billups-damon-jones-ple
 **Tracking Trump’s Endorsements in Tonight’s Primary Results**\
 `President Trump has endorsed hundreds of Republicans ahead of the midterm primary elections. See who is winning and losing.`\
 https://nytimes.com/interactive/2026/us/elections/results-trump-endorsements-texas-nc-arkansas.html
-
-**9 Million Indians Live in the Persian Gulf. The Money They Send Home Is a Lifeline.**\
-`A huge number of Indians split their lives across the Arabian Sea — remitting $125 billion a year, supporting their families and the Indian economy.`\
-https://nytimes.com/2026/03/03/business/india-workers-iran-persian-gulf.html
-
-**First-Time Primary Voters Add Uncertainty to Texas Democratic Races**\
-`A surge of voters who had previously participated only in general elections turned out in the Democratic primary, a shift that could make key Texas races harder to predict.`\
-https://nytimes.com/2026/03/03/us/elections/texas-primary-democrats-turnout.html
 
