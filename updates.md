@@ -1,3 +1,11 @@
+**Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
+`Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
+https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/
+
+**Refugee Sentenced to 13 Years for Stabbing at Berlin Holocaust Memorial**\
+`A German court found that the attacker, now age 20, had traveled more than 100 miles to stab a Spanish tourist, who survived.`\
+https://nytimes.com/2026/03/05/world/europe/berlin-holocaust-memorial-stabbing-syrian-refugee.html
+
 **Republicans Toil to Avoid Saying ‘War’ as Iran Conflict Widens**\
 `Mission? Hostilities? Don’t call it a war, say G.O.P. lawmakers grappling with the political and legal challenges of the operation in the Middle East.`\
 https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html

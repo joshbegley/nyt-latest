@@ -1,3 +1,11 @@
+**Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
+`Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
+https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/
+
+**Refugee Sentenced to 13 Years for Stabbing at Berlin Holocaust Memorial**\
+`A German court found that the attacker, now age 20, had traveled more than 100 miles to stab a Spanish tourist, who survived.`\
+https://nytimes.com/2026/03/05/world/europe/berlin-holocaust-memorial-stabbing-syrian-refugee.html
+
 **Republicans Toil to Avoid Saying ‘War’ as Iran Conflict Widens**\
 `Mission? Hostilities? Don’t call it a war, say G.O.P. lawmakers grappling with the political and legal challenges of the operation in the Middle East.`\
 https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html
 **WAFCON 2026 postponed fewer than two weeks before planned start date**\
 `CAF said the decision was taken "in the light of certain unforeseen circumstances".`\
 https://nytimes.com/athletic/7075986/2026/03/05/wafcon-2026-postponed-morocco/
-
-**Iranian Kurdish Forces Say They May Enter Iran. Who Are the Kurds?**\
-`Spread across Iran, Iraq, Syria and Turkey, the ethnic group of 40 million has long sought, and fought for, greater autonomy.`\
-https://nytimes.com/2026/03/05/world/middleeast/iran-kurds-who.html
-
-**L.A. Broker and Reality TV Star Accuses Oren Alexander of Sexual Assault**\
-`Tracy Tutor said Mr. Alexander, a former top real estate agent in New York, drugged and assaulted her in 2014. Mr. Alexander and his two brothers are on trial for sex trafficking.`\
-https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
 
