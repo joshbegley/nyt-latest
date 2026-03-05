@@ -1,3 +1,15 @@
+**Brennan Johnson, 648 minutes for Palace and no goals - why is he struggling?**\
+`The forward, signed from Spurs in January, has struggled to settle - what's gone wrong?`\
+https://nytimes.com/athletic/7079161/2026/03/05/brennan-johnson-crystal-palace/
+
+**Barcelona's search for a new No 9 - and what it means for Rashford and Lewandowski**\
+`The Spanish champions are in the market for a new central striker. Here's what we're hearing on who they have in mind`\
+https://nytimes.com/athletic/7086892/2026/03/05/barcelona-lewandowski-alvarez-transfers-rashford/
+
+**A night for Forest heroes and renewed hope, but the path to safety remains perilously narrow**\
+`A huge three points against title-chasing City has brought hope to Forest, but the margins between survival and relegation are wafer-thin.`\
+https://nytimes.com/athletic/7088184/2026/03/05/nottingham-forest-man-city-heroes/
+
 **Nobody is going to save Spurs but these players. They have to start performing**\
 `The reality is that if the worst happens over the last 10 league games, it will mark the reputations of this group forever`\
 https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
