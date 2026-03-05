@@ -1,3 +1,7 @@
+**Druski Wants to Make a Buddy Cop Movie With Timothée Chalamet**\
+`The comedian Druski sat down with Jon Caramanica and Joe Coscarelli on “Popcast” for a revealing conversation about his galaxy of collaborators and the balancing act between unfiltered comedy and corporate America. A buddy cop movie with Timothée Chalamet? Don’t rule it out.`\
+https://nytimes.com/video/podcasts/100000010754392/druski-wants-to-make-a-buddy-cop-movie-with-timothee-chalamet.html
+
 **Whose Airstrike Hit a Girls’ School in Iran? The U.S. Says It’s Still Investigating.**\
 `The strike was one of the deadliest attacks of the American-Israeli campaign against Iran so far.`\
 https://nytimes.com/2026/03/04/us/politics/trump-iran-airstrike-girls-school.html
