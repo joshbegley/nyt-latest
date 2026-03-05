@@ -1,3 +1,7 @@
+**Newcastle United were hanging on – then along came Will Osula's wonder goal**\
+`Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United they got their reward`\
+https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/
+
 **Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
 `The head coach took a bold stance on discipline, set pieces and selection - the approach paid off with his most important win yet`\
 https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/

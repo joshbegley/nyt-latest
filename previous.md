@@ -1,3 +1,7 @@
+**Newcastle United were hanging on – then along came Will Osula's wonder goal**\
+`Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United they got their reward`\
+https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/
+
 **Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
 `The head coach took a bold stance on discipline, set pieces and selection - the approach paid off with his most important win yet`\
 https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086892/2026/03/05/barcelona-lewandowski-alvarez-tr
 **A night for Forest heroes and renewed hope, but the path to safety remains perilously narrow**\
 `A huge three points against title-chasing City has brought hope to Forest, but the margins between survival and relegation are wafer-thin.`\
 https://nytimes.com/athletic/7088184/2026/03/05/nottingham-forest-man-city-heroes/
-
-**Nobody is going to save Spurs but these players. They have to start performing**\
-`The reality is that if the worst happens over the last 10 league games, it will mark the reputations of this group forever`\
-https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
 
