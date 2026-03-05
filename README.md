@@ -1,3 +1,7 @@
+**Could Columbus be the destination for NWSL's next expansion team?**\
+`U.S. women's national team head coach Emma Hayes said it would be "fantastic" to have an NWSL franchise in the Ohio capital. `\
+https://nytimes.com/athletic/7089064/2026/03/05/columbus-ohio-nwsl-expansion-interest-explained/
+
 **As a Fired Noem Speaks in Nashville, Senators Welcome Her Replacement**\
 `The remarkable split-screen underscored how abruptly Kristi Noem’s ouster as homeland security secretary had unfolded, even by the standards of President Trump’s fast-paced Washington.`\
 https://nytimes.com/2026/03/05/us/politics/trump-fires-noem-gop-split-mullin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090865/2026/03/05/bears-dj-moore-trade-memories/
 **Blackhawks tired of being trade deadline sellers**\
 `"We want to become a team where we’re not losing anybody," Alex Vlasic said.`\
 https://nytimes.com/athletic/7090915/2026/03/05/blackhawks-nhl-trade-deadline-sellers-nick-foligno/
-
-**Where to Eat in the Most Unlikely of Places**\
-`Indonesian bites in a mini mart, seafood cocteles in a smoke shop and Vietnamese specialties in an old pizzeria.`\
-https://nytimes.com/2026/03/05/dining/where-to-eat-in-the-most-unlikely-of-places.html
 
