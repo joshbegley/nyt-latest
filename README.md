@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7089333/2026/03/05/india-t20-bumrah-england-bethell
 `Mexican clubs gained some concessions in the scheduling of the 2026 interleague tournament`\
 https://nytimes.com/athletic/7088767/2026/03/05/leagues-cup-mls-liga-mx-mexico-concacaf/
 
-**Board Delays Vote on Trump’s Ballroom Amid Deluge of Public Criticism**\
-`The National Capital Planning Commission, led by Trump allies, moved the vote to next month. It has received about 32,000 comments on the project, more than 98 percent of them negative.`\
-https://nytimes.com/2026/03/05/us/politics/trump-ballroom-criticism.html
-
