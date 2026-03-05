@@ -1,3 +1,15 @@
+**Andrew McCutchen agrees to minor league deal with Rangers: Source**\
+`The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
+https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
+
+**Browns' Myles Garrett cited for ninth speeding ticket since entering NFL**\
+`Garrett received his second ticket for driving more than 90 mph since August of last year. `\
+https://nytimes.com/athletic/7089890/2026/03/05/myles-garrett-speeding-ticket-citations/
+
+**Chelsea's Neto facing potential further punishment for Arsenal red card**\
+`Neto received a second yellow card only a few minutes after his first against Arsenal, missing Wednesday's win over Aston Villa as a result.`\
+https://nytimes.com/athletic/7089852/2026/03/05/chelsea-neto-red-card-charge-punishment-arsenal/
+
 **How the University of Florida Prepares Students for the Age of AI**\
 `Universities look to UF for guidance in adding AI instruction to every major and discipline.`\
 https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida-prepares-students-for-the-age-of-ai.html
