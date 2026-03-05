@@ -1,3 +1,15 @@
+**Art Gallery Shows to See in March**\
+`This week in Newly Reviewed, Seph Rodney covers Deborah Roberts’s collages, Ursula von Rydingsvard’s wood outcroppings and Noel W Anderson’s superstars.`\
+https://nytimes.com/2026/03/05/arts/art-gallery-shows-to-see-in-march.html
+
+**Kings trading Warren Foegele to Senators: Source**\
+`Foegele, 29, whose contract goes through 2027 with a $3,500,000 cap hit, has struggled this season after a career year in 2024-25.`\
+https://nytimes.com/athletic/7021355/2026/03/05/kings-warren-foegele-trade-senators/
+
+**Ronnie Eldridge, a Fixture in N.Y. Politics, Dies at 95**\
+`She was an adviser to Senator Robert F. Kennedy, Mayor John V. Lindsay and Representative Bella S. Abzug before serving on the New York City Council from 1989 to 2001.`\
+https://nytimes.com/2026/03/05/obituaries/ronnie-eldridge-dead.html
+
 **Nepal Heads to the Polls to Elect New Government**\
 `Nepalis voted for a new government on Thursday, the first elections since Gen Z-led protests upended the country in the fall.`\
 https://nytimes.com/video/world/asia/100000010756361/nepal-elections-politics-kathmandu.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/trump-fires-noem-gop-split-mullin.htm
 **António Lobo Antunes, One of Europe’s Most Revered Writers, Dies at 83**\
 `In a career studded with literary awards, he was the author of dozens of books that grappled with his nation’s legacy of dictatorship and colonialism.`\
 https://nytimes.com/2026/03/05/books/antonio-lobo-antunes-dead.html
-
-**A Different Kind of War in Mexico**\
-`Our correspondents discuss the challenges of Mexico’s war on drug cartels.`\
-https://nytimes.com/2026/03/05/world/mexico-cartel-crackdown-iran-lebanon.html
-
-**Wild notebook: Michael McCarron gets ribbed by new teammates, but 'glue guy' fits right in**\
-`The 6-foot-6 McCarron was acquired Wednesday from the Predators for a 2028 second-round pick.`\
-https://nytimes.com/athletic/7090755/2026/03/05/wild-michael-mccarron-trade-deadline/
-
-**Cooper Flagg expected to return vs. Magic as Mavs seek to end 4-game skid**\
-`Flagg, who has missed the Mavericks’ past eight games with a left midfoot sprain, will be on a minutes restriction.`\
-https://nytimes.com/athletic/7091143/2026/03/05/cooper-flagg-mavericks-return/
 

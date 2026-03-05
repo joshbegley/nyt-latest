@@ -1,3 +1,7 @@
+**Tottenham 1 Crystal Palace 3: Are Spurs going down? What was Van de Ven thinking?**\
+`Analysis of Tottenham's calamitous Premier League home defeat by Crystal Palace`\
+https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
+
 **Nepal Heads to the Polls to Elect New Government**\
 `Nepalis voted for a new government on Thursday, the first elections since Gen Z-led protests upended the country in the fall.`\
 https://nytimes.com/video/world/asia/100000010756361/nepal-elections-politics-kathmandu.html
