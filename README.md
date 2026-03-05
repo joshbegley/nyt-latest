@@ -1,3 +1,19 @@
+**Feeling the Effects of 260,000 Federal Jobs Lost**\
+`One year in, assessing budget cuts to federal climate and science jobs.`\
+https://nytimes.com/2026/03/05/climate/climate-forward-science-federal-cuts.html
+
+**Nature Report, Killed by Trump, Is Released Independently**\
+`A draft assessment of the health of nature in the United States is grim but features bright spots.`\
+https://nytimes.com/2026/03/05/climate/trump-nature-assessment.html
+
+**Lindsey Halligan Is Under Investigation by the Florida Bar**\
+`The actions of Ms. Halligan, who as a U.S. attorney brought criminal cases against President Trump’s enemies, are under review by the organization that licensed her to practice law.`\
+https://nytimes.com/2026/03/05/us/politics/lindsey-halligan-investigation-florida-bar.html
+
+**French Officer Accused of Shooting Teen to Be Charged Only With Manslaughter**\
+`The shooting of Nahel Merzouk in 2023 set off unrest across France, where his treatment was seen as emblematic of police brutality toward ethnic minorities.`\
+https://nytimes.com/2026/03/05/world/europe/france-shooting-teen-car-manslaughter-trial.html
+
 **Our Student Podcast Contest**\
 `We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 8 to May 13, 2026.`\
 https://nytimes.com/2026/03/05/learning/our-student-podcast-contest.html
@@ -6,7 +22,7 @@ https://nytimes.com/2026/03/05/learning/our-student-podcast-contest.html
 `Our White House correspondent Zolan Kanno-Youngs looks into how Trump’s base is responding to the administration’s conflicting messages on the war with Iran.`\
 https://nytimes.com/video/us/politics/100000010749958/how-trumps-base-is-reacting-to-his-war-message.html
 
-**America is Weary of School Shootings. Can Prosecuting Parents Help?**\
+**America Is Weary of School Shootings. Can Prosecuting Parents Help?**\
 `The country is casting an ever wider net in its search for accountability. Prosecuting parents is yielding results.`\
 https://nytimes.com/2026/03/05/us/apalachee-shooting-colt-gray-accountability.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/05/arts/design/manneken-pis-costumes-brussels.html
 **Trump Says He Should Have Role in Picking Iran’s Leader**\
 `The president’s comments were the most explicit he has been yet about his vision of an American role in creating a new government in Tehran.`\
 https://nytimes.com/2026/03/05/us/politics/trump-iran-leader.html
-
-**Senate Democrats Block D.H.S. Funding Again Over Enforcement Guardrails**\
-`For the third time, a bill to fund the Department of Homeland Security failed as Democrats refused to support the money without new restrictions on federal immigration agents.`\
-https://nytimes.com/2026/03/05/us/politics/senate-democrats-dhs-shutdown-ice-immigration.html
-
-**How the Florists Behind TEFAF Maastricht Work Their Magic**\
-`A Dutch florist has crafted the fair’s massive, colorful arrangements since 1988. Their secrets? Early mornings, intense planning and thousands of flowers.`\
-https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-flowers.html
-
-**Alex Bowman to miss Phoenix NASCAR race with vertigo**\
-`Bowman has struggled with injuries the past few years, suffering a concussion and a neck injury.`\
-https://nytimes.com/athletic/7090609/2026/03/05/alex-bowman-phoenix-nascar-out/
-
-**Welcome to Maastricht, Where All Things French Flourish**\
-`Evident is the vast influence that France has had upon the Netherlands city, the result of its geography, history and the population’s affinity for its culture.`\
-https://nytimes.com/2026/03/05/arts/design/maastricht-french-influences.html
 
