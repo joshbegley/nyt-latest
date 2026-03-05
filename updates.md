@@ -1,3 +1,11 @@
+**Colton Parayko invokes no-trade clause, nullifying potential Blues-Sabres trade**\
+`Parayko has one goal and 14 points in 58 games in 2025-26, with a minus-14 rating.`\
+https://nytimes.com/athletic/7088870/2026/03/05/blues-sabres-colton-parayko-trade/
+
+**UK government joins Paralympic opening ceremony boycott over Russia, Belarus participation**\
+`It was confirmed in February that Russian and Belarusian athletes would be able to compete at the Paralympics under their own flag.`\
+https://nytimes.com/athletic/7090191/2026/03/05/winter-olympic-opening-ceremony-boycott/
+
 **The Windup: My favorite WBC underdog**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7090405/2026/03/05/my-favorite-wbc-underdog-the-windup/

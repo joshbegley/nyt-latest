@@ -1,3 +1,7 @@
+**Board Delays Vote on Trump’s Ballroom Amid Deluge of Public Criticism**\
+`The National Capital Planning Commission, led by Trump allies, moved the vote to next month. It has received about 32,000 comments on the project, more than 98 percent of them negative.`\
+https://nytimes.com/2026/03/05/us/politics/trump-ballroom-criticism.html
+
 **Colton Parayko invokes no-trade clause, nullifying potential Blues-Sabres trade**\
 `Parayko has one goal and 14 points in 58 games in 2025-26, with a minus-14 rating.`\
 https://nytimes.com/athletic/7088870/2026/03/05/blues-sabres-colton-parayko-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/05/movies/pompei-below-the-clouds-review.html
 **Maple Leafs trade Nicolas Roy to Avalanche for draft picks**\
 `Leafs receive conditional first- and fifth-round picks for forward Nicolas Roy.`\
 https://nytimes.com/athletic/7090314/2026/03/05/maple-leafs-trade-nicolas-roy-avalanche/
-
-**Israel expanded its evacuation warnings for Lebanese residents to Beirut’s southern suburbs.**\
-`By Elena Shao`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-expanded-its-evacuation-warnings-for-lebanese-residents-to-beiruts-southern-suburbs
 
