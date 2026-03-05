@@ -1,5 +1,13 @@
+**Quote of the Day: Global Leaders Brace For Fallout From War**\
+`Quotation of the Day for Thursday, March 5, 2026.`\
+https://nytimes.com/2026/03/04/pageoneplus/quote-of-the-day-global-leaders-brace-for-fallout-from-war.html
+
+**Hornets' string of statement victories, sustained winning proof rebuilding days are over**\
+`Even if the Hornets finish only .500 on the season, the reasons would be more promising than any basketball from recent years.`\
+https://nytimes.com/athletic/7088763/2026/03/04/hornets-celtics-kon-knueppel-nba-statement-win/
+
 **Breanna Stewart outduels Kelsey Plum as Mist claim Unrivaled championship**\
-`Mist captain scores 32 points to overcome Plum's 40, win title.`\
+`The Mist captain scored 32 points to overcome Plum's 40 and win the title.`\
 https://nytimes.com/athletic/7088954/2026/03/04/breanna-stewart-unrivaled-championship-mist/
 
 **The A's won't close door on Kyler Murray. But is MLB really an option?**\
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-
 `China announced a 7 percent increase in military spending and a five-year plan to try to reduce its military and industry’s reliance on Western technology.`\
 https://nytimes.com/2026/03/04/world/asia/china-us-technology-trade-military.html
 
-**James Talarico Says ‘New Politics’ Is Being Born After Texas Primary Win**\
+**James Talarico Says ‘New Politics Is Being Born’ After Texas Primary Win**\
 `After clinching the Democratic Senate primary, he told supporters in Austin that the country’s real divide is between “top versus bottom,” not the left versus right.`\
 https://nytimes.com/2026/03/04/us/politics/talarico-victory-party.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/books/sarah-j-maas-court-of-thorns-and-roses-new-
 **Real Genius**\
 `Hanh Huynh picks a winner.`\
 https://nytimes.com/2026/03/04/crosswords/daily-puzzle-2026-03-05.html
-
-**Contract for El Paso ICE Center Is Under Review, Homeland Security Says**\
-`Camp East Montana in Texas has been under growing scrutiny over its living conditions and has been grappling with a measles outbreak.`\
-https://nytimes.com/2026/03/04/us/ice-el-paso-detention-center-dhs.html
-
-**NHL trade grades: Oilers make win-now bet on Jason Dickinson, Blackhawks get great return**\
-`Jason Dickinson is solid, reliable defensive player on a team that needs some reliability and defense.`\
-https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oilers-jason-dickinson/
 
