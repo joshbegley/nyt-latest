@@ -1,3 +1,7 @@
+**Republicans Toil to Avoid Saying ‘War’ as Iran Conflict Widens**\
+`Mission? Hostilities? Don’t call it a war, say G.O.P. lawmakers grappling with the political and legal challenges of the operation in the Middle East.`\
+https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html
+
 **3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
 `The vintage baseball card market is prized for its organic rarity versus the manufactured scarcity of today&#8217;s ultra-modern cards.`\
 https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/iran-kurds-who.html
 **L.A. Broker and Reality TV Star Accuses Oren Alexander of Sexual Assault**\
 `Tracy Tutor said Mr. Alexander, a former top real estate agent in New York, drugged and assaulted her in 2014. Mr. Alexander and his two brothers are on trial for sex trafficking.`\
 https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
-
-**A long way from home at WBC, underdogs from Czechia adopted by fans in Tokyo**\
-`The 2026 World Baseball Classic is underway in Tokyo, where Australia and Korea were winners and the fans were ready to roar.`\
-https://nytimes.com/athletic/7089206/2026/03/05/world-baseball-classic-australia-korea/
 
