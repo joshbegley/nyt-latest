@@ -1,3 +1,11 @@
+**Colton Parayko invokes no-trade clause, nullifying potential Blues-Sabres trade**\
+`Parayko has one goal and 14 points in 58 games in 2025-26, with a minus-14 rating.`\
+https://nytimes.com/athletic/7088870/2026/03/05/blues-sabres-colton-parayko-trade/
+
+**UK government joins Paralympic opening ceremony boycott over Russia, Belarus participation**\
+`It was confirmed in February that Russian and Belarusian athletes would be able to compete at the Paralympics under their own flag.`\
+https://nytimes.com/athletic/7090191/2026/03/05/winter-olympic-opening-ceremony-boycott/
+
 **The Windup: My favorite WBC underdog**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7090405/2026/03/05/my-favorite-wbc-underdog-the-windup/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7090314/2026/03/05/maple-leafs-trade-nicolas-roy-av
 **Israel expanded its evacuation warnings for Lebanese residents to Beirut’s southern suburbs.**\
 `By Elena Shao`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-expanded-its-evacuation-warnings-for-lebanese-residents-to-beiruts-southern-suburbs
-
-**Dozens of Medical Schools Back Kennedy Plan on Nutrition After Pressure**\
-`Robert F. Kennedy Jr. announced the commitments in Washington, even as some in the medical community questioned whether the government should try to influence curriculums.`\
-https://nytimes.com/2026/03/05/us/rfk-medical-schools-nutrition-curriculum.html
-
-**Teenagers on the Best Advice They’ve Ever Received**\
-`Students share 24 nuggets of wisdom for how to live better.`\
-https://nytimes.com/2026/03/05/learning/teenagers-on-the-best-advice-theyve-ever-received.html
 
