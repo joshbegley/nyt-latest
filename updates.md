@@ -1,3 +1,7 @@
+**Predators trading Michael Bunting to Stars: Source**\
+`Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
+https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
+
 **Lev Parnas, Who Turned Against Trump, Announces Run for Congress as Democrat**\
 `Mr. Parnas, who once tried to help find damaging information on Hunter Biden, said his background had turned him into “an advocate for speaking truth to power.”`\
 https://nytimes.com/2026/03/05/us/lev-parnas-trump-impeachment-florida-congress.html
