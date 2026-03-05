@@ -1,3 +1,7 @@
+**Leagues Cup's 2026 edition includes four Mexico games in structural shift**\
+`Mexican clubs gained some concessions in the scheduling of the 2026 interleague tournament`\
+https://nytimes.com/athletic/7088767/2026/03/05/leagues-cup-mls-liga-mx-mexico-concacaf/
+
 **Jayson Tatum nearing return to Celtics' lineup after 10-month absence with Achilles tear**\
 `The Celtics' star is listed as questionable to play Friday. Without Tatum, the Celtics have surged to second place in the East. `\
 https://nytimes.com/athletic/7084541/2026/03/05/celtics-jayson-tatum-injury-achilles-tear-return/
