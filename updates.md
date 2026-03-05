@@ -1,3 +1,15 @@
+**Jayson Tatum nearing return to Celtics' lineup after 10-month absence with Achilles tear**\
+`The Celtics' star is listed as questionable to play Friday. Without Tatum, the Celtics have surged to second place in the East. `\
+https://nytimes.com/athletic/7084541/2026/03/05/celtics-jayson-tatum-injury-achilles-tear-return/
+
+**States Sue to Stop Trump From Reviving Steep Tariffs**\
+`The lawsuit filed by two dozen states seeks to invalidate the president’s new, 10 percent global tax on imports.`\
+https://nytimes.com/2026/03/05/us/politics/states-lawsuit-trump-tariffs.html
+
+**Tomato-Cheddar Mac, Roasted Cabbage Salad With Spicy Lime Dressing, Sticky Date Oatmeal**\
+`A peek inside my Recipe Box.`\
+https://nytimes.com/2026/03/05/dining/tomato-cheddar-mac-roasted-cabbage-salad-with-spicy-lime-dressing-sticky-date-oatmeal.html
+
 **DJ Moore trade grades: Josh Allen gets the WR he needed, Bears' youth movement continues**\
 `Buffalo filled their biggest need with a vet, while the Bears freed up cap space thanks to a surplus of young pass-catchers.`\
 https://nytimes.com/athletic/7090417/2026/03/05/dj-moore-bills-bears-trade-grades/
