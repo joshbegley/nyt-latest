@@ -1,3 +1,15 @@
+**How $800 Monthly Car Payments Are Hurting Car Sales**\
+`Cars have become so expensive that many Americans are putting off or not buying new cars, hurting the auto industry.`\
+https://nytimes.com/2026/03/05/business/new-car-sales-payments-affordability.html
+
+**How Older Adults Are Improving Their ‘Sex Span’**\
+`With longevity comes the opportunity for an extended sex life, which some seniors find by staying active and open-minded.`\
+https://nytimes.com/2026/03/05/well/family/sex-span-longevity-health.html
+
+**A Truffle Dog Is a Chef’s Best Friend**\
+`Plus: a Portuguese farmhouse hotel, the debut collection from a vintage fashion brand and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/05/t-magazine/oregon-local-truffles-restaurants.html
+
 **Israeli Evacuation Orders Spark Panic in Beirut**\
 `Lebanon’s capital erupted in chaos after the Israeli military ordered people to flee the southern suburbs. A far-right minister in Israel warned of a devastating bombardment.`\
 https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order-panic.html

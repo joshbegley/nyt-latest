@@ -1,3 +1,15 @@
+**How $800 Monthly Car Payments Are Hurting Car Sales**\
+`Cars have become so expensive that many Americans are putting off or not buying new cars, hurting the auto industry.`\
+https://nytimes.com/2026/03/05/business/new-car-sales-payments-affordability.html
+
+**How Older Adults Are Improving Their ‘Sex Span’**\
+`With longevity comes the opportunity for an extended sex life, which some seniors find by staying active and open-minded.`\
+https://nytimes.com/2026/03/05/well/family/sex-span-longevity-health.html
+
+**A Truffle Dog Is a Chef’s Best Friend**\
+`Plus: a Portuguese farmhouse hotel, the debut collection from a vintage fashion brand and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/05/t-magazine/oregon-local-truffles-restaurants.html
+
 **Israeli Evacuation Orders Spark Panic in Beirut**\
 `Lebanon’s capital erupted in chaos after the Israeli military ordered people to flee the southern suburbs. A far-right minister in Israel warned of a devastating bombardment.`\
 https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order-panic.html
@@ -25,16 +37,4 @@ https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida
 **The Bounce: Was Thunder-Knicks a finals preview? Plus, a Tatum comeback conspiracy**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7089809/2026/03/05/knicks-thunder-jayson-tatum-nba-the-bounce/
-
-**Tyler Myers trade is a start, but harder part of Canucks rebuild lies ahead**\
-`The Myers trade is precisely the sort of deal the Canucks need to make, and need to make at volume.`\
-https://nytimes.com/athletic/7089135/2026/03/05/vancouver-canucks-nhl-trade-deadline-tyler-myers/
-
-**Mike Brown says SGA does a 'great job of convincing' referees he's being hit**\
-`Knicks coach Mike Brown picked up his first technical foul of the season after arguing a no-call against Shai Gilgeous-Alexander.`\
-https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-alexander-hit-okc/
-
-**Bucks are frustrated with 4-game losing streak: 'What are you playing for?'**\
-`The Bucks' four losses have come by a combined 97 points, the largest combined margin of victory in any four-game skid in franchise history.`\
-https://nytimes.com/athletic/7089308/2026/03/05/bucks-giannis-antetokounmpo-losing-streak-nba/
 
