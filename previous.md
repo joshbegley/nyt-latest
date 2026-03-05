@@ -1,3 +1,7 @@
+**Trump Says He Wants to Destroy Iran’s Navy. Here’s What to Know.**\
+`The United States has long considered Iranian naval ships a serious threat, even as the country’s nuclear and missile programs dominate discussions of its military capabilities.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-navy-ships-war.html
+
 **Vintage Nola is still in there. Phillies starter looks stronger after early offseason work**\
 `After getting an early start to his offseason work, Nola is showing positive signs this spring that he could deliver a bounce-back season.`\
 https://nytimes.com/athletic/7088093/2026/03/05/aaron-nola-phillies-2026-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088843/2026/03/05/central-connecticut-uconn-womens
 **Players with term on their contracts who could help Winnipeg Jets beyond this season**\
 `How can Winnipeg use its cap space to add players at the deadline?`\
 https://nytimes.com/athletic/7086972/2026/03/05/winnipeg-jets-trade-deadline-players-to-add/
-
-**Scouting Arvell Reese, Sonny Styles, CJ Allen: How do 2026 NFL Draft's top LBs stack up?**\
-`It's a good year to need help on the second level. The NFL Draft has an abundance of talent at linebacker, led by these three prospects.`\
-https://nytimes.com/athletic/7060429/2026/03/05/nfl-draft-2026-linebackers-scouting-linebackers-reese-styles-allen/
 

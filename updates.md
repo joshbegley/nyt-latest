@@ -1,3 +1,7 @@
+**Trump Says He Wants to Destroy Iran’s Navy. Here’s What to Know.**\
+`The United States has long considered Iranian naval ships a serious threat, even as the country’s nuclear and missile programs dominate discussions of its military capabilities.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-navy-ships-war.html
+
 **Vintage Nola is still in there. Phillies starter looks stronger after early offseason work**\
 `After getting an early start to his offseason work, Nola is showing positive signs this spring that he could deliver a bounce-back season.`\
 https://nytimes.com/athletic/7088093/2026/03/05/aaron-nola-phillies-2026-season/
