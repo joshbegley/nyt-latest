@@ -1,40 +1,40 @@
-**TNT to broadcast FIBA World Cup games featuring stars such as Caitlin Clark**\
-`TNT's sports channels will begin showing FIBA games, beginning with a 2026 women’s World Cup qualifying tournament March 11.`\
-https://nytimes.com/athletic/7089945/2026/03/05/tnt-fiba-world-cup-broadcast-caitlin-clark/
+**How to watch Arizona State vs. Iowa State women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090147/2026/03/05/arizona-state-vs-iowa-state-stream-how-to-watch-march-5/
 
-**Britney Spears Is Arrested by California Highway Patrol**\
-`“Hopefully this can be the first step in long overdue change that needs to occur in Britney’s life,” said a representative for the pop star.`\
-https://nytimes.com/2026/03/05/arts/music/britney-spears-arrest.html
+**How to watch Loyola (MD) vs. Colgate men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the Loyola (MD) Greyhounds play the Colgate Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090139/2026/03/05/loyola-md-vs-colgate-stream-how-to-watch-march-5/
 
-**Should New York City Burn Its Parks? This Scientist Thinks So.**\
-`An unusual outbreak of wildfires in city parks gave scientists a chance to study these rare events. Now they’re coming to different conclusions.`\
-https://nytimes.com/2026/03/05/climate/new-york-city-park-fires-controlled-burns.html
+**How to watch Drake vs. Southern Illinois men's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Drake Bulldogs play the Southern Illinois Salukis, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090135/2026/03/05/drake-vs-southern-illinois-stream-how-to-watch-march-5/
 
-**West Ham's Nuno in legal dispute with Forest over sacking**\
-`Nuno departed Forest just 75 days after signing a new three-year contract, having overseen qualification for the Europa League last term.`\
-https://nytimes.com/athletic/7089336/2026/03/05/nuno-espirito-santo-forest-dispute/
+**Wild trade tracker: Pursuit of Rangers' Trocheck fading as price remains too high for Guerin**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/05/minnesota-wild-trade-tracker-2026/
 
-**This Japanese Ground Beef Curry Is Comfort Food to Make on Repeat**\
-`If you’re not already familiar with the charms of Japanese curry bricks, allow this super simple recipe to introduce you.`\
-https://nytimes.com/2026/03/05/dining/this-japanese-ground-beef-curry-is-comfort-food-to-make-on-repeat.html
+**How to watch James Madison vs. Southern Miss men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Southern Miss Golden Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090114/2026/03/05/james-madison-vs-southern-miss-stream-how-to-watch-march-5/
 
-**How $800 Monthly Car Payments Are Hurting Car Sales**\
-`Cars have become so expensive that many Americans are putting off or not buying new cars, hurting the auto industry.`\
-https://nytimes.com/2026/03/05/business/new-car-sales-payments-affordability.html
+**How to watch Charleston Southern vs. Radford women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Charleston Southern Buccaneers play the Radford Highlanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090110/2026/03/05/charleston-southern-vs-radford-stream-how-to-watch-march-5/
 
-**How Older Adults Are Improving Their ‘Sex Span’**\
-`With longevity comes the opportunity for an extended sex life, which some seniors find by staying active and open-minded.`\
-https://nytimes.com/2026/03/05/well/family/sex-span-longevity-health.html
+**How to watch Illinois vs. Michigan State women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090104/2026/03/05/illinois-vs-michigan-state-stream-how-to-watch-march-5/
 
-**A Truffle Dog Is a Chef’s Best Friend**\
-`Plus: a Portuguese farmhouse hotel, the debut collection from a vintage fashion brand and more recommendations from T Magazine.`\
-https://nytimes.com/2026/03/05/t-magazine/oregon-local-truffles-restaurants.html
+**How to watch Auburn vs. Ole Miss women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090102/2026/03/05/auburn-vs-ole-miss-stream-how-to-watch-march-5/
 
-**Israeli Evacuation Orders Spark Panic in Beirut**\
-`Lebanon’s capital erupted in chaos after the Israeli military ordered people to flee the southern suburbs. A far-right minister in Israel warned of a devastating bombardment.`\
-https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order-panic.html
+**Arsenal would not be popular champions. But why should they care?**\
+`Nobody can pretend that Mikel Arteta's team are an easy watch but their players, staff and fans will only be focused on success`\
+https://nytimes.com/athletic/7083839/2026/03/05/arsenal-tactics-criticism/
 
-**Revolut, the British Finance App, Seeks a U.S. Banking Charter**\
-`The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
-https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
+**How to watch George Washington vs. Dayton women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Dayton Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090090/2026/03/05/george-washington-vs-dayton-stream-how-to-watch-march-5/
 
