@@ -1,3 +1,7 @@
+**Fewer Pregnant Women Received Acetaminophen in E.R.s After White House Warnings**\
+`A new analysis of prescription data found that emergency room orders for acetaminophen for pregnant women fell for weeks after the federal warning.`\
+https://nytimes.com/2026/03/05/health/tylenol-acetaminophen-autism-trump.html
+
 **Post Iran: Vance vs. Carlson in 2028?**\
 `The war in Iran may have a lasting impact on the political careers of Trump’s closest allies. On “Interesting Times,” Curt Mills, the executive director of the American Conservative, shares his thoughts on how Trump’s interventionist policies might play out in the 2028 Republican primaries.`\
 https://nytimes.com/video/opinion/100000010754473/post-iran-vance-vs-carlson-in-2028.html
