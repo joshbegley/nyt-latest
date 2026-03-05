@@ -1,3 +1,19 @@
+**This is what happened on March 4.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/march-4-major-updates
+
+**McDonald’s C.E.O. Takes a Big Bite Out of a Burger. Maybe Scratch ‘Big.’**\
+`Chris Kempczinski’s rather tentative chomp drew mirth online, even from some competitors.`\
+https://nytimes.com/2026/03/05/business/mcdonalds-ceo-big-arch-burger-video.html
+
+**Check these injury-predicting fastball metrics before drafting an ace**\
+`John Laghezza looks at which pitchers might be most susceptible to injury this season based upon their four-seam fastball velocity data.`\
+https://nytimes.com/athletic/7083264/2026/03/05/fantasy-baseball-starting-pitcher-injury-concerns-fastball-metrics/
+
+**Map: 4.9-Magnitude Earthquake Shakes Louisiana**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/05/us/louisiana-quake-tracker.html
+
 **Bears trading wide receiver DJ Moore to the Bills: Sources**\
 `Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
 https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/

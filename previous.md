@@ -1,3 +1,19 @@
+**This is what happened on March 4.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/march-4-major-updates
+
+**McDonald’s C.E.O. Takes a Big Bite Out of a Burger. Maybe Scratch ‘Big.’**\
+`Chris Kempczinski’s rather tentative chomp drew mirth online, even from some competitors.`\
+https://nytimes.com/2026/03/05/business/mcdonalds-ceo-big-arch-burger-video.html
+
+**Check these injury-predicting fastball metrics before drafting an ace**\
+`John Laghezza looks at which pitchers might be most susceptible to injury this season based upon their four-seam fastball velocity data.`\
+https://nytimes.com/athletic/7083264/2026/03/05/fantasy-baseball-starting-pitcher-injury-concerns-fastball-metrics/
+
+**Map: 4.9-Magnitude Earthquake Shakes Louisiana**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/05/us/louisiana-quake-tracker.html
+
 **Bears trading wide receiver DJ Moore to the Bills: Sources**\
 `Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
 https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7090218/2026/03/05/eastern-illinois-vs-ut-martin-st
 **In Big Ten hoops, where's the line between rivalry and ancient history?**\
 `Outside of their traditional rivals, many Big Ten hoops programs have more animosity to go around thanks to decades of high-stakes matchups.`\
 https://nytimes.com/athletic/7088796/2026/03/05/big-ten-basketball-rivalries-rankings/
-
-**How to watch American vs. Boston University men's basketball: Patriot League Tournament Time, TV, streaming**\
-`Find out how to watch the American Eagles play the Boston University Terriers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090213/2026/03/05/american-vs-boston-university-stream-how-to-watch-march-5/
-
-**How to watch San Diego vs. Saint Mary's (CA) women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the San Diego Toreros play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090207/2026/03/05/san-diego-vs-saint-mary-s-ca-stream-how-to-watch-march-5/
-
-**How to watch NJIT vs. UMBC women's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the NJIT Highlanders play the UMBC Retrievers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090204/2026/03/05/njit-vs-umbc-stream-how-to-watch-march-5/
-
-**How to watch Mavericks vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090202/2026/03/05/mavericks-vs-magic-stream-how-to-watch-march-5/
 
