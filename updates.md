@@ -1,3 +1,11 @@
+**Bears trading wide receiver DJ Moore to the Bills: Sources**\
+`Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
+https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/
+
+**Rangers trade tracker: Latest on Adam Fox, Vincent Trocheck and more**\
+`Friday's 3 p.m. ET trade deadline is closing in, with the Rangers one of the expected sellers many around the league are monitoring.`\
+https://nytimes.com/athletic/7087806/2026/03/05/rangers-trade-rumors-adam-fox-vincent-trocheck/
+
 **How to watch Maple Leafs vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7090228/2026/03/05/maple-leafs-vs-rangers-stream-how-to-watch-march-5/
