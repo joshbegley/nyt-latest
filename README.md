@@ -1,3 +1,7 @@
+**Days Before Firing, Noem Faced Criticism Over $220 Million Ad Campaign**\
+`During a Senate Judiciary Committee hearing, lawmakers from both parties questioned Kristi Noem about an ad campaign that featured her, for which the government paid $220 million. President Trump fired Ms. Noem on Thursday.`\
+https://nytimes.com/video/us/politics/100000010756443/noem-fired-220-million-ads.html
+
 **Did England do enough at the T20 World Cup to make up for their Ashes failure?**\
 `There were thrills and spills in defeat to India but, if white-ball progress is encouraging, coach Brendon McCullum remains under scrutiny`\
 https://nytimes.com/athletic/7090024/2026/03/05/england-mccullum-brook-t20-ashes/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/apalachee-shooting-colt-gray-accountability.ht
 **With the World in Transition, Paris Again Emerges as a Mecca for the Arts**\
 `Many of the galleries showing at TEFAF Maastricht are from France, a sign of the country’s growing presence in fairs and overall rising influence in art and collecting.`\
 https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-france.html
-
-**This Small Statue in Brussels Has a Large Bladder and Lots of Outfits**\
-`Manneken Pis, the famed bronze statue of a little boy who always has to go, has an official dresser in charge of his more than 1,190 outfits.`\
-https://nytimes.com/2026/03/05/arts/design/manneken-pis-costumes-brussels.html
 
