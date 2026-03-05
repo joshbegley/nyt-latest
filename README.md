@@ -1,3 +1,27 @@
+**How to watch Maple Leafs vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090228/2026/03/05/maple-leafs-vs-rangers-stream-how-to-watch-march-5/
+
+**How to watch Sabres vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090220/2026/03/05/sabres-vs-penguins-stream-how-to-watch-march-5/
+
+**How to watch Eastern Illinois vs. UT Martin men's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Eastern Illinois Panthers play the UT Martin Skyhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090218/2026/03/05/eastern-illinois-vs-ut-martin-stream-how-to-watch-march-5/
+
+**In Big Ten hoops, where's the line between rivalry and ancient history?**\
+`Outside of their traditional rivals, many Big Ten hoops programs have more animosity to go around thanks to decades of high-stakes matchups.`\
+https://nytimes.com/athletic/7088796/2026/03/05/big-ten-basketball-rivalries-rankings/
+
+**How to watch American vs. Boston University men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the American Eagles play the Boston University Terriers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090213/2026/03/05/american-vs-boston-university-stream-how-to-watch-march-5/
+
+**How to watch San Diego vs. Saint Mary's (CA) women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the San Diego Toreros play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090207/2026/03/05/san-diego-vs-saint-mary-s-ca-stream-how-to-watch-march-5/
+
 **How to watch NJIT vs. UMBC women's basketball: America East Tournament Time, TV, streaming**\
 `Find out how to watch the NJIT Highlanders play the UMBC Retrievers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7090204/2026/03/05/njit-vs-umbc-stream-how-to-watch-march-5/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7090200/2026/03/05/mammoth-vs-flyers-stream-how-to-
 **How to watch Indiana State vs. Valparaiso men's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Indiana State Sycamores play the Valparaiso Beacons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7090195/2026/03/05/indiana-state-vs-valparaiso-stream-how-to-watch-march-5/
-
-**How to watch Panthers vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090193/2026/03/05/panthers-vs-blue-jackets-stream-how-to-watch-march-5/
-
-**Meet the A.I. Prospectors Tapping a Billion-Dollar Gusher**\
-`Brian Janous, a former Microsoft executive, and his firm Cloverleaf have become modern-day land men, packaging electricity and land for data centers.`\
-https://nytimes.com/2026/03/05/technology/ai-data-centers-land-cloverleaf-infrastructure.html
-
-**The Smart Home Never Quite Worked. Now It’s Getting an A.I. Reboot.**\
-`Amazon and Google think that artificially intelligent assistants like Alexa+ and Gemini will speed up the process of setting up a smart home, but many problems remain unsolved.`\
-https://nytimes.com/2026/03/05/technology/personaltech/ai-smart-home-google-gemini-amazon-alexa.html
-
-**How to watch Cal vs. Syracuse women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the California Golden Bears play the Syracuse Orange, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090184/2026/03/05/cal-vs-syracuse-stream-how-to-watch-march-5/
-
-**How to watch Bucknell vs. Navy men's basketball: Patriot League Tournament Time, TV, streaming**\
-`Find out how to watch the Bucknell Bison play the Navy Midshipmen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090182/2026/03/05/bucknell-vs-navy-stream-how-to-watch-march-5/
-
-**How to watch Holy Cross vs. Lehigh men's basketball: Patriot League Tournament Time, TV, streaming**\
-`Find out how to watch the Holy Cross Crusaders play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090179/2026/03/05/holy-cross-vs-lehigh-stream-how-to-watch-march-5/
 
