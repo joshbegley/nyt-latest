@@ -1,3 +1,15 @@
+**How the University of Florida Prepares Students for the Age of AI**\
+`Universities look to UF for guidance in adding AI instruction to every major and discipline.`\
+https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida-prepares-students-for-the-age-of-ai.html
+
+**The Bounce: Was Thunder-Knicks a finals preview? Plus, a Tatum comeback conspiracy**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7089809/2026/03/05/knicks-thunder-jayson-tatum-nba-the-bounce/
+
+**Tyler Myers trade is a start, but harder part of Canucks rebuild lies ahead**\
+`The Myers trade is precisely the sort of deal the Canucks need to make, and need to make at volume.`\
+https://nytimes.com/athletic/7089135/2026/03/05/vancouver-canucks-nhl-trade-deadline-tyler-myers/
+
 **Mike Brown says SGA does a 'great job of convincing' referees he's being hit**\
 `Knicks coach Mike Brown picked up his first technical foul of the season after arguing a no-call against Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-alexander-hit-okc/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/theater/olivier-award-nominations.html
 **Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
 `Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
 https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/
-
-**Refugee Sentenced to 13 Years for Stabbing at Berlin Holocaust Memorial**\
-`A German court found that the attacker, now age 20, had traveled more than 100 miles to stab a Spanish tourist, who survived.`\
-https://nytimes.com/2026/03/05/world/europe/berlin-holocaust-memorial-stabbing-syrian-refugee.html
-
-**Republicans Toil to Avoid Saying ‘War’ as Iran Conflict Widens**\
-`Mission? Hostilities? Don’t call it a war, say G.O.P. lawmakers grappling with the political and legal challenges of the operation in the Middle East.`\
-https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html
-
-**3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
-`Topps experimented with a variety of baseball card alternatives and innovations in the '60s and '70s, some of which are very valuable today.`\
-https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
 
