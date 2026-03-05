@@ -1,3 +1,15 @@
+**Whose Airstrike Hit a Girls’ School in Iran? The U.S. Says It’s Still Investigating.**\
+`The strike was one of the deadliest attacks of the American-Israeli campaign against Iran so far.`\
+https://nytimes.com/2026/03/04/us/politics/trump-iran-airstrike-girls-school.html
+
+**Joe Musgrove could stabilize Padres, even amid mixed returns for Tommy John pitchers**\
+`The right-hander was one of the National League’s top performers from 2021 to 2023, compiling a 3.05 ERA. `\
+https://nytimes.com/athletic/7088170/2026/03/04/san-diego-padres-joe-musgrove-stabilize-tommy-john-return/
+
+**Why Ecuador Invited the U.S. Military to Help With Its Drug Gangs**\
+`Drug gangs have turned the South American country into one of the most dangerous in the region and the world’s leading exporter of cocaine.`\
+https://nytimes.com/2026/03/04/world/americas/ecuador-trump-drug-gangs-us-military.html
+
 **Noem and D.H.S. Inspector General Spar Over Obstruction Claim**\
 `Homeland Security Secretary Kristi Noem pushed back against her department’s inspector general, who told Congress in a letter that she had “systematically obstructed” his office’s work.`\
 https://nytimes.com/2026/03/04/us/politics/noem-dhs-inspector-general.html
