@@ -1,3 +1,7 @@
+**China Sets Economy’s Growth Target Below 5% for First Time in Decades**\
+`The goal, announced at a gathering of Communist Party leaders, was the lowest since 1991 and can offer clues about China’s policymaking plans.`\
+https://nytimes.com/2026/03/04/business/china-gdp-target-2025.html
+
 **Trump Follows His Gut. His National Security Advisers Try to Keep Up.**\
 `Decisions come fast, even if contradictions and inconsistencies abound. But without much of a process, there is little preparation for how things can go wrong.`\
 https://nytimes.com/2026/03/04/us/politics/trump-national-security.html

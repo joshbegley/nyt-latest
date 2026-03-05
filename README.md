@@ -1,3 +1,15 @@
+**Flames' MacKenzie Weegar waives no-trade clause for deal to Mammoth: Sources**\
+`The 32-year-old defenseman's contract goes through 2031 with a $6.25 million cap hit.`\
+https://nytimes.com/athletic/7087974/2026/03/04/flames-mackenzie-weegar-trade-mammoth/
+
+**Man Killed After Fleeing Texas Border Patrol Checkpoint, Police Say**\
+`The man fired shots at law enforcement and civilian vehicles before he was killed during a pursuit along Interstate 10 in West Texas.`\
+https://nytimes.com/2026/03/04/us/texas-border-patrol-checkpoint-shooting.html
+
+**Progressive Challenger Concedes in N.C.’s Bluest Congressional District**\
+`The Associated Press had not yet called the race. The contest was widely viewed as a bellwether for the type of candidate that Democratic voters wished to elevate in the Trump era.`\
+https://nytimes.com/2026/03/04/us/elections/north-carolina-district-4-primary.html
+
 **China Sets Economy’s Growth Target Below 5% for First Time in Decades**\
 `The goal, announced at a gathering of Communist Party leaders, was the lowest since 1991 and can offer clues about China’s policymaking plans.`\
 https://nytimes.com/2026/03/04/business/china-gdp-target-2025.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-retire-
 **Pro-American Kurdish Forces Are Preparing Possible Iran Incursion**\
 `The C.I.A. has given small weapons to Iranian Kurdish forces in Iraq in a covert program that began before the current war.`\
 https://nytimes.com/2026/03/04/us/politics/kurds-trump-iran-war.html
-
-**Will the Ducks upgrade on defense before the NHL trade deadline?**\
-`The surprising Ducks entered Wednesday one point behind Vegas for first place in the Pacific Division.`\
-https://nytimes.com/athletic/7088242/2026/03/04/anaheim-ducks-nhl-trade-deadline-2026/
-
-**Judge Blocks DeSantis’s Declaration of Muslim Group as Terrorist Organization**\
-`A federal judge found that the designation for CAIR, one of the nation’s largest Muslim advocacy groups, had violated the organization’s First Amendment rights.`\
-https://nytimes.com/2026/03/04/us/desantis-cair-muslim-group-terrorist-organization.html
-
-**Druski Wants to Make a Buddy Cop Movie With Timothée Chalamet**\
-`The comedian Druski sat down with Jon Caramanica and Joe Coscarelli on “Popcast” for a revealing conversation about his galaxy of collaborators and the balancing act between unfiltered comedy and corporate America. A buddy cop movie with Timothée Chalamet? Don’t rule it out.`\
-https://nytimes.com/video/podcasts/100000010754392/druski-wants-to-make-a-buddy-cop-movie-with-timothee-chalamet.html
 
