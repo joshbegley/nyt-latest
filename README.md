@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, March 5, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/05/todays-new-york-times
+
 **On the Ground in Beirut**\
 `Our Beirut bureau chief, Christina Goldbaum, reports on the escalating conflict between Israel and the Iran-backed armed group Hezbollah, as Israel’s military seizes areas of southern Lebanon and carries out bombings.`\
 https://nytimes.com/video/world/middleeast/100000010747493/on-the-ground-in-beirut.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086604/2026/03/05/wolves-premier-league-survival-c
 **How magical are football's fairytales? Grading them, from fabulous to fake**\
 `Wrexham's rise is a great story, whatever you think about how they have done it. How does it compare to other unlikely tales?`\
 https://nytimes.com/athletic/7081676/2026/03/05/grading-football-fairytales/
-
-**Liverpool have become a slow team. And that's a problem**\
-`Gone are the days of Liverpool flying forward in a red blur. The tempo has dropped - and so has the excitement`\
-https://nytimes.com/athletic/7086660/2026/03/05/liverpool-slow-football/
 
