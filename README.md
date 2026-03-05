@@ -4,7 +4,7 @@ https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html
 
 **Aston Martin F1 drivers at risk of nerve damage from car vibrations, will have laps capped in Australia**\
 `Aston Martin will retire early from the Australian Grand Prix due to an unsafe vibration in the car`\
-https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-nerve-damage-risk/
+https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-retire-early-nerve-damage-risk/
 
 **Pro-American Kurdish Forces Are Preparing Possible Iran Incursion**\
 `The C.I.A. has given small weapons to Iranian Kurdish forces in Iraq in a covert program that began before the current war.`\
