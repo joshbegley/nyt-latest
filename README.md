@@ -1,3 +1,15 @@
+**A Spring-Forward Meal Without the Stress**\
+`This breezy seasonal dinner from David Tanis features a soup, braised chicken and a gelato you can make in advance.`\
+https://nytimes.com/2026/03/05/dining/spring-dinner-party.html
+
+**Rangers unlikely to trade Alexis Lafrenière this week, but questions linger after**\
+`Not long ago, the 2020 No. 1 draft pick couldn’t escape attention, but with the trade deadline nearing, he isn’t being talked about much.`\
+https://nytimes.com/athletic/7090597/2026/03/05/rangers-alexis-lafreniere-nhl-trade-deadline-rumors/
+
+**A Danish Designer Explores Color for the Soul and the Senses**\
+`Margrethe Odgaard, whose new textiles will be featured at TEFAF Maastricht, aims to define the distinctive hues preferred in various places, by different cultures.`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-margrethe-odgaard.html
+
 **TEFAF Maastricht, Known for Old Art, Faces the Future**\
 `The Dutch art fair, renowned for art and antiquities, works to prove its relevance as the wider world changes around it.`\
 https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-european-union-rules.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/israel-lebanon-hezbollah.html
 **Photography Displays Add a Contemporary Flair to TEFAF**\
 `As the Maastricht fair continues to update its outlook, an emphasis on photography is bringing together “the whole range of what culture can be.”`\
 https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-photography.html
-
-**A Contemporary Gallery Putting Mexican Design on the World Stage**\
-`AGO Projects, which specializes in contemporary work, recently turned heads by standing by an artist who had become a political lightning rod.`\
-https://nytimes.com/2026/03/05/arts/design/mexico-city-gallery-ago-projects.html
-
-**Slurs Filled Chat Created by a Republican Party Official in Florida**\
-`After the secretary of the Miami-Dade County Republican Party created the chat for college students, it devolved into slurs against Black and Jewish people.`\
-https://nytimes.com/2026/03/05/us/florida-gop-slurs-group-chat.html
-
-**Mamdani to Close Huge Homeless Shelter Next to Bellevue Hospital**\
-`The 30th Street Shelter on the site of Bellevue’s former psychiatric hospital has been in disrepair for years.`\
-https://nytimes.com/2026/03/05/nyregion/bellevue-homeless-shelter-closing.html
 
