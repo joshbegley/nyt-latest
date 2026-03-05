@@ -1,3 +1,7 @@
+**At the Whitney, a Biennial Gets Personal**\
+`For an unmoored time, 56 artists and teams present an inspired discourse shaped by crisis, craft and community. Look up, and listen.`\
+https://nytimes.com/2026/03/05/arts/design/at-the-whitney-a-biennial-gets-personal.html
+
 **Iceland Defeats Iceland: A U.K. Supermarket Ends a Trademark Dispute**\
 `Can a company trademark the name of a country? In the case of Iceland, the British grocery store, the answer is no.`\
 https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html

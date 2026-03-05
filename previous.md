@@ -1,3 +1,7 @@
+**At the Whitney, a Biennial Gets Personal**\
+`For an unmoored time, 56 artists and teams present an inspired discourse shaped by crisis, craft and community. Look up, and listen.`\
+https://nytimes.com/2026/03/05/arts/design/at-the-whitney-a-biennial-gets-personal.html
+
 **Iceland Defeats Iceland: A U.K. Supermarket Ends a Trademark Dispute**\
 `Can a company trademark the name of a country? In the case of Iceland, the British grocery store, the answer is no.`\
 https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089528/2026/03/05/indiana-vs-ohio-state-stream-how
 **How to watch Duquesne vs. Saint Joseph's (PA) women's basketball: A-10 Tournament Time, TV, streaming**\
 `Find out how to watch the Duquesne Dukes play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089522/2026/03/05/duquesne-vs-saint-joseph-s-pa-stream-how-to-watch-march-5/
-
-**How to watch UL Monroe vs. Southern Miss women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the UL Monroe Warhawks play the Southern Miss Lady Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089520/2026/03/05/ul-monroe-vs-southern-miss-stream-how-to-watch-march-5/
 
