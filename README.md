@@ -1,3 +1,7 @@
+**Revolut, the British Finance App, Seeks a U.S. Banking Charter**\
+`The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
+https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
+
 **Andrew McCutchen agrees to minor league deal with Rangers: Source**\
 `The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
 https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089308/2026/03/05/bucks-giannis-antetokounmpo-losi
 **What I'm hearing about the Maple Leafs ahead of the trade deadline: 'Teams smell blood in the water'**\
 `If everything falls into place, the Maple Leafs could be big sellers at this deadline. But will there be a market for what they're offering?`\
 https://nytimes.com/athletic/7089762/2026/03/05/maple-leafs-trade-deadline-news/
-
-**Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
-`A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
-https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
 
