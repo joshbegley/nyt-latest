@@ -1,3 +1,35 @@
+**How to watch Indiana vs. Ohio State women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089528/2026/03/05/indiana-vs-ohio-state-stream-how-to-watch-march-5/
+
+**How to watch Duquesne vs. Saint Joseph's (PA) women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Duquesne Dukes play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089522/2026/03/05/duquesne-vs-saint-joseph-s-pa-stream-how-to-watch-march-5/
+
+**How to watch UL Monroe vs. Southern Miss women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the UL Monroe Warhawks play the Southern Miss Lady Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089520/2026/03/05/ul-monroe-vs-southern-miss-stream-how-to-watch-march-5/
+
+**How to watch SIU-Edwardsville vs. Southern Indiana women's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the SIU-Edwardsville Cougars play the Southern Indiana Screaming Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089514/2026/03/05/siu-edwardsville-vs-southern-indiana-stream-how-to-watch-march-5/
+
+**How to watch Saint Peter's vs. Sacred Heart women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Saint Peter's Peacocks play the Sacred Heart Pioneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089515/2026/03/05/saint-peter-s-vs-sacred-heart-stream-how-to-watch-march-5/
+
+**How to watch Florida vs. Oklahoma women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089509/2026/03/05/florida-vs-oklahoma-stream-how-to-watch-march-5/
+
+**How to watch Southeast Missouri State vs. Morehead State women's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Southeast Missouri State Redhawks play the Morehead State Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089507/2026/03/05/southeast-missouri-state-vs-morehead-state-stream-how-to-watch-march-5/
+
+**How to watch Seattle U vs. Washington State women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Seattle U Redhawks play the Washington State Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089503/2026/03/05/seattle-u-vs-washington-state-stream-how-to-watch-march-5/
+
 **How to watch Omaha vs. North Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
 `Find out how to watch the Omaha Mavericks play the North Dakota State Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089496/2026/03/05/omaha-vs-north-dakota-state-stream-how-to-watch-march-5/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/7089496/2026/03/05/omaha-vs-north-dakota-state-stre
 **How to watch FGCU vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Florida Gulf Coast Eagles play the Stetson Hatters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089494/2026/03/05/fgcu-vs-stetson-stream-how-to-watch-march-5/
-
-**How to watch Miami (FL) vs. Notre Dame women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Miami Hurricanes play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089491/2026/03/05/miami-fl-vs-notre-dame-stream-how-to-watch-march-5/
-
-**How to watch Winthrop vs. Gardner-Webb women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the Winthrop Eagles play the Gardner-Webb Runnin' Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089488/2026/03/05/winthrop-vs-gardner-webb-stream-how-to-watch-march-5/
-
-**How to watch UNC Greensboro vs. East Tennessee State women's basketball: SoCon Tournament Time, TV, streaming**\
-`Find out how to watch the UNC Greensboro Spartans play the East Tennessee State Buccaneers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089484/2026/03/05/unc-greensboro-vs-east-tennessee-state-stream-how-to-watch-march-5/
-
-**How to watch BYU vs. Utah women's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089477/2026/03/05/byu-vs-utah-stream-how-to-watch-march-5/
-
-**How to watch Samford vs. Wofford women's basketball: SoCon Tournament Time, TV, streaming**\
-`Find out how to watch the Samford Bulldogs play the Wofford Terriers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089470/2026/03/05/samford-vs-wofford-stream-how-to-watch-march-5/
-
-**Can Anthropic Make Peace With the Pentagon?**\
-`The artificial intelligence start-up has reportedly resumed talks with the Defense Department over use of its tools, with high stakes for both.`\
-https://nytimes.com/2026/03/05/business/dealbook/anthropic-pentagon-ai.html
-
-**Russia Returns to Venice Biennale, in Latest Sign of a Cultural Comeback**\
-`By hosting a pavilion again this year, Russia continues its efforts to shed its status as a cultural and sporting pariah.`\
-https://nytimes.com/2026/03/05/arts/design/russia-ukraine-venice-biennale.html
-
-**Trump Administration Live Updates: House to Vote on Funding of Homeland Security Department**\
-``\
-https://nytimes.com/live/2026/03/05/us/trump-news
 

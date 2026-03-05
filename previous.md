@@ -1,3 +1,27 @@
+**How to watch Omaha vs. North Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
+`Find out how to watch the Omaha Mavericks play the North Dakota State Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089496/2026/03/05/omaha-vs-north-dakota-state-stream-how-to-watch-march-5/
+
+**How to watch FGCU vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Florida Gulf Coast Eagles play the Stetson Hatters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089494/2026/03/05/fgcu-vs-stetson-stream-how-to-watch-march-5/
+
+**How to watch Miami (FL) vs. Notre Dame women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089491/2026/03/05/miami-fl-vs-notre-dame-stream-how-to-watch-march-5/
+
+**How to watch Winthrop vs. Gardner-Webb women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Winthrop Eagles play the Gardner-Webb Runnin' Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089488/2026/03/05/winthrop-vs-gardner-webb-stream-how-to-watch-march-5/
+
+**How to watch UNC Greensboro vs. East Tennessee State women's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the UNC Greensboro Spartans play the East Tennessee State Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089484/2026/03/05/unc-greensboro-vs-east-tennessee-state-stream-how-to-watch-march-5/
+
+**How to watch BYU vs. Utah women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089477/2026/03/05/byu-vs-utah-stream-how-to-watch-march-5/
+
 **How to watch Samford vs. Wofford women's basketball: SoCon Tournament Time, TV, streaming**\
 `Find out how to watch the Samford Bulldogs play the Wofford Terriers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089470/2026/03/05/samford-vs-wofford-stream-how-to-watch-march-5/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/05/arts/design/russia-ukraine-venice-biennale.html
 **Trump Administration Live Updates: House to Vote on Funding of Homeland Security Department**\
 ``\
 https://nytimes.com/live/2026/03/05/us/trump-news
-
-**With Anthony Colandrea, Nebraska hopes fresh start at QB can provide jump start it needs**\
-`For the first time since Rhule touched down at Nebraska, no one, it seems, is treading delicately around the quarterback situation.`\
-https://nytimes.com/athletic/7088283/2026/03/05/anthony-colandrea-nebraska-football-qb-spring-practice/
-
-**Blue Jays roster projection 2.0: WBC watch, six-man rotation and more**\
-`With 12 Blue Jays on World Baseball Classic rosters, fans will get a good early look at players against top competition.`\
-https://nytimes.com/athletic/7088265/2026/03/05/blue-jays-roster-projection-2-0/
-
-**Kyle Anderson, Wolves reunite in Minnesota with unfinished business**\
-`Chris Finch, as much as any coach in the league, has always looked below the surface with Anderson to understand how he can make an impact.`\
-https://nytimes.com/athletic/7084936/2026/03/05/kyle-anderson-timberwolves-reunion-anthony-edwards/
-
-**How Cubs' Edward Cabrera forces everyone to think differently about pitching**\
-`His velocity may stand out, but it’s the rest of Cabrera’s arsenal that can make him special.`\
-https://nytimes.com/athletic/7088141/2026/03/05/chicago-cubs-edward-cabrera-pitching-development/
-
-**The Sixers get an important victory ... against the tanking Jazz?**\
-`Philadelphia is trying to hold onto the No. 6 spot in the East, so even beating a team not trying to win means something.`\
-https://nytimes.com/athletic/7088925/2026/03/05/sixers-win-utah-maxey/
-
-**Utah Authorities Begin Investigation After 3 Women Are Found Dead**\
-`The authorities in Wayne County closed schools and urged the public to take precautions after two women were found on a hiking trail, and a third at a residence.`\
-https://nytimes.com/2026/03/05/us/wayne-county-utah-murders-manhunt.html
 
