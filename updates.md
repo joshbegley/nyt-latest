@@ -1,3 +1,7 @@
+**House Republicans Tell Gonzales to Quit Re-Election Campaign**\
+`The call came a day after the Texas congressman admitted to an extramarital affair with an aide, and as he faced a runoff to keep his seat.`\
+https://nytimes.com/2026/03/05/us/politics/house-republicans-gonzales.html
+
 **Protesting Veteran Forcibly Removed From Senate Hearing**\
 `On Wednesday, a Marine veteran protesting the war in Iran was forcibly removed from a Senate hearing. The protester, Brian McGinnis, said in a social media post that his arm was broken during the struggle. Senator Tim Sheehy, Republican of Montana, joined the Capitol Police in removing Mr. McGinnis.`\
 https://nytimes.com/video/us/100000010755770/us-marine-protest-iran-senate.html
