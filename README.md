@@ -1,3 +1,7 @@
+**Your Questions About Iran**\
+`You asked. Our reporters answered.`\
+https://nytimes.com/2026/03/05/briefing/your-questions-about-iran.html
+
 **Iranian Drones Fall in Azerbaijan as Conflict Spreads Farther Beyond Mideast**\
 `Azerbaijan says the attack “will not remain unanswered,” as  the neighbors with a long history of tensions found themselves again at odds.`\
 https://nytimes.com/2026/03/05/world/middleeast/azerbaijan-iran-drone-attack-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087515/2026/03/05/championship-play-offs-vote-efl/
 **Red Wings have held up their end. Now, at trade deadline, it's Steve Yzerman's turn**\
 `The Red Wings have answered the bell when challenged. Now it's up to Yzerman to give them one last boost at the trade deadline.`\
 https://nytimes.com/athletic/7088846/2026/03/05/detroit-red-wings-nhl-trade-deadline-steve-yzerman/
-
-**Panthers mock draft 2.0: SEC O-linemen enter the chat, along with defensive playmakers**\
-`A mock draft trade gives the Panthers four picks within the first 100 with offensive tackle the priority in Round 1.`\
-https://nytimes.com/athletic/7087646/2026/03/05/panthers-mock-draft-monroe-freeling-first-round/
 
