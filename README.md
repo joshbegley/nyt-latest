@@ -1,3 +1,15 @@
+**Nepal Heads to the Polls to Elect New Government**\
+`Nepalis voted for a new government on Thursday, the first elections since Gen Z-led protests upended the country in the fall.`\
+https://nytimes.com/video/world/asia/100000010756361/nepal-elections-politics-kathmandu.html
+
+**Tottenham 1 Crystal Palace 3 - Are Spurs going down? What was Van de Ven thinking?**\
+`Analysis of Tottenham's calamitous Premier League home defeat by Crystal Palace`\
+https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
+
+**House Turns Back Bid to Restrict Trump’s War Powers in Iran**\
+`A handful of Democrats joined Republicans to defeat an effort to force President Trump to go to Congress for approval to continue using force against Iran, while two G.O.P. lawmakers backed it.`\
+https://nytimes.com/2026/03/05/us/politics/trump-war-powers-iran-house-vote.html
+
 **WAFCON was postponed due to 'unforeseen circumstances'. CAF's lack of clarity harms its future**\
 `CAF's handling impacts the players the most with 2027 Women's World Cup implications`\
 https://nytimes.com/athletic/7072020/2026/03/05/wafcon-2026-postpond-caf-tournament/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7090755/2026/03/05/wild-michael-mccarron-trade-dead
 **Cooper Flagg expected to return vs. Magic as Mavs seek to end 4-game skid**\
 `Flagg, who has missed the Mavericks’ past eight games with a left midfoot sprain, will be on a minutes restriction.`\
 https://nytimes.com/athletic/7091143/2026/03/05/cooper-flagg-mavericks-return/
-
-**A.I. Videos Distort Damage From Iranian Strikes**\
-`After Iran’s retaliatory strikes across the Middle East, A.I.-generated imagery claiming to show massive explosions or exaggerated destruction at or near targeted sites have been spreading on social media.`\
-https://nytimes.com/video/world/middleeast/100000010748622/iran-ai-disinfo.html
-
-**Edu's Forest future in doubt but likely to be decided in summer**\
-`Any further changes at the City Ground are likely to come at the end of the season, as head coach Vitor Pereira prioritises stability.`\
-https://nytimes.com/athletic/7090888/2026/03/05/edu-nottingham-forest-future/
-
-**Bears moving on without DJ Moore, but memories of his biggest moments will last**\
-`A miscommunication with Caleb Williams ended the Bears' season and, ultimately, Moore's time in Chicago. Will the trade be a win-win?`\
-https://nytimes.com/athletic/7090865/2026/03/05/bears-dj-moore-trade-memories/
 
