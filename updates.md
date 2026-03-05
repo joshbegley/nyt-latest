@@ -1,3 +1,11 @@
+**Israeli Evacuation Orders Spark Panic in Beirut**\
+`Lebanon’s capital erupted in chaos after the Israeli military ordered people to flee the southern suburbs. A far-right minister in Israel warned of a devastating bombardment.`\
+https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order-panic.html
+
+**Revolut, the British Finance App, Seeks a U.S. Banking Charter**\
+`The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
+https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
+
 **Andrew McCutchen agrees to minor league deal with Rangers: Source**\
 `The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
 https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
