@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7090568/2026/03/05/womens-conference-tournament-acc
 
 **House Republicans Tell Gonzales to Quit Re-Election Campaign**\
 `The call came a day after the Texas congressman admitted to an extramarital affair with an aide, and as he faced a runoff to keep his seat.`\
-https://nytimes.com/live/2026/03/05/us/trump-news/house-republicans-gonzales
+https://nytimes.com/2026/03/05/us/politics/house-republicans-gonzales.html
 
 **The 3.8.26 Issue**\
 ``\

@@ -1,3 +1,15 @@
+**Protesting Veteran Forcibly Removed From Senate Hearing**\
+`On Wednesday, a Marine veteran protesting the war in Iran was forcibly removed from a Senate hearing. The protester, Brian McGinnis, said in a social media post that his arm was broken during the struggle. Senator Tim Sheehy, Republican of Montana, joined the Capitol Police in removing Mr. McGinnis.`\
+https://nytimes.com/video/us/100000010755770/us-marine-protest-iran-senate.html
+
+**Women's conference tournament takeaways: Clemson improves NCAA tourney chances with win**\
+`Clemson is enjoying its best season in 25 years. But will Virginia still make the NCAA Tournament? `\
+https://nytimes.com/athletic/7090568/2026/03/05/womens-conference-tournament-acc-clemson/
+
+**House Republicans Tell Gonzales to Quit Re-Election Campaign**\
+`The call came a day after the Texas congressman admitted to an extramarital affair with an aide, and as he faced a runoff to keep his seat.`\
+https://nytimes.com/live/2026/03/05/us/trump-news/house-republicans-gonzales
+
 **The 3.8.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/05/the-3826-issue
