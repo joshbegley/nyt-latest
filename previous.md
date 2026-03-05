@@ -1,3 +1,7 @@
+**They Survived the 24 Hours That Rocked South Korea’s Markets**\
+`After explosive growth in recent months, the country’s benchmark stock index plummeted, then rebounded, in the wake of the U.S. and Israeli attacks on Iran.`\
+https://nytimes.com/2026/03/05/business/south-korea-markets.html
+
 **Villa still in process of registering January signing Brian Madjo**\
 `Madjo joined in a deal worth in the region of £10million from Metz but is yet to play for any of Villa's teams.`\
 https://nytimes.com/athletic/7086928/2026/03/05/brian-madjo-aston-villa-transfer-register/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/crosswords/spelling-bee-forum.html
 **Late Night Doesn’t Understand Why America Is Attacking Iran**\
 `“This could be the first war ever launched based on vibes,” Jimmy Fallon said.`\
 https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
-
-**What do Brighton do about their problematic No 6 position?**\
-`Carlos Baleba could leave in the summer and James Milner has yet to decide on his plans, so Fabian Hurzeler may need reinforcements`\
-https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
 

@@ -1,3 +1,7 @@
+**They Survived the 24 Hours That Rocked South Korea’s Markets**\
+`After explosive growth in recent months, the country’s benchmark stock index plummeted, then rebounded, in the wake of the U.S. and Israeli attacks on Iran.`\
+https://nytimes.com/2026/03/05/business/south-korea-markets.html
+
 **Villa still in process of registering January signing Brian Madjo**\
 `Madjo joined in a deal worth in the region of £10million from Metz but is yet to play for any of Villa's teams.`\
 https://nytimes.com/athletic/7086928/2026/03/05/brian-madjo-aston-villa-transfer-register/
