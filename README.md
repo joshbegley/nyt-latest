@@ -1,3 +1,15 @@
+**Iceland Defeats Iceland: A U.K. Supermarket Ends a Trademark Dispute**\
+`Can a company trademark the name of a country? In the case of Iceland, the British grocery store, the answer is no.`\
+https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html
+
+**WAFCON 2026 postponed fewer than two weeks before planned start date**\
+`CAF said the decision was taken "in the light of certain unforeseen circumstances".`\
+https://nytimes.com/athletic/7075986/2026/03/05/wafcon-2026-postponed-morocco/
+
+**Iranian Kurdish Forces Say They May Enter Iran. Who Are the Kurds?**\
+`Spread across Iran, Iraq, Syria and Turkey, the ethnic group of 40 million has long sought, and fought for, greater autonomy.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-kurds-who.html
+
 **L.A. Broker and Reality TV Star Accuses Oren Alexander of Sexual Assault**\
 `Tracy Tutor said Mr. Alexander, a former top real estate agent in New York, drugged and assaulted her in 2014. Mr. Alexander and his two brothers are on trial for sex trafficking.`\
 https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7089522/2026/03/05/duquesne-vs-saint-joseph-s-pa-st
 **How to watch UL Monroe vs. Southern Miss women's basketball: Sun Belt Tournament Time, TV, streaming**\
 `Find out how to watch the UL Monroe Warhawks play the Southern Miss Lady Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089520/2026/03/05/ul-monroe-vs-southern-miss-stream-how-to-watch-march-5/
-
-**How to watch SIU-Edwardsville vs. Southern Indiana women's basketball: OVC Tournament Time, TV, streaming**\
-`Find out how to watch the SIU-Edwardsville Cougars play the Southern Indiana Screaming Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089514/2026/03/05/siu-edwardsville-vs-southern-indiana-stream-how-to-watch-march-5/
-
-**How to watch Saint Peter's vs. Sacred Heart women's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Peter's Peacocks play the Sacred Heart Pioneers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089515/2026/03/05/saint-peter-s-vs-sacred-heart-stream-how-to-watch-march-5/
-
-**How to watch Florida vs. Oklahoma women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089509/2026/03/05/florida-vs-oklahoma-stream-how-to-watch-march-5/
 
