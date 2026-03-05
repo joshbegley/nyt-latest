@@ -1,4 +1,8 @@
 **The A's won't close door on Kyler Murray. But is MLB really an option?**\
+`General manager David Forst said his team is "always open to him exploring a return to baseball with the A’s."`\
+https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
+
+**The A's won't close door on Kyler Murray. But is MLB really an option?**\
 `General manager David Forst told MLB.com that his team is "always open to him exploring a return to baseball with the A’s."`\
 https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
 
