@@ -1,3 +1,15 @@
+**Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
+`Igor Tudor is a specialist in fixing broken teams. Tottenham look to have got worse`\
+https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job/
+
+**Louisiana Tech suing Conference USA in effort to leave early for Sun Belt**\
+`CUSA bylaws require 14 months notice to depart the conference, and the sides have not come to a financial agreement to allow an early split.`\
+https://nytimes.com/athletic/7091285/2026/03/05/louisiana-tech-sun-belt-cusa-lawsuit-realignment/
+
+**How Trump’s Firing of Noem Sets Off a Political Scramble in Oklahoma**\
+`The president’s choice of Senator Markwayne Mullin of Oklahoma to replace her at the Department of Homeland Security could trigger a cascade of aspirants for his seat.`\
+https://nytimes.com/2026/03/05/us/politics/trump-noem-mullin-oklahoma-senate-seat-republicans.html
+
 **Iran delays naming a new leader out of security concerns, officials say.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/iran-delays-naming-a-new-leader-out-of-security-concerns-officials-say
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-secur
 **Israel Begins Assault in Southern Beirut, Raising Fears of Wider Incursion**\
 `As the war with Iran threatens to engulf more countries in the region, President Trump said he wanted to be involved in picking a new leader in Tehran.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-evacuation-lebanon-iran-trump.html
-
-**Predators trading Michael Bunting to Stars: Source**\
-`Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
-https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
-
-**Lev Parnas, Who Turned Against Trump, Announces Run for Congress as Democrat**\
-`Mr. Parnas, who once tried to help find damaging information on Hunter Biden, said his background had turned him into “an advocate for speaking truth to power.”`\
-https://nytimes.com/2026/03/05/us/lev-parnas-trump-impeachment-florida-congress.html
-
-**Art Gallery Shows to See in March**\
-`This week in Newly Reviewed, Seph Rodney covers Deborah Roberts’s collages, Ursula von Rydingsvard’s wood outcroppings and Noel W Anderson’s superstars.`\
-https://nytimes.com/2026/03/05/arts/art-gallery-shows-to-see-in-march.html
 

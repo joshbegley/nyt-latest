@@ -1,3 +1,15 @@
+**Bob Harlan, ex-Packers president who hired two GMs who won Super Bowls, dies at 89**\
+`Harlan helped return one of the NFL's iconic franchises to relevance when Green Bay won its first Super Bowl in 29 years in the 1996 season.`\
+https://nytimes.com/athletic/7091500/2026/03/05/bob-harlan-obituary-packers-president-nfl/
+
+**Trump ‘Can’t Say No to Israel’**\
+`Who is calling the shots in the war with Iran? Curt Mills, the executive director of the American Conservative, thinks Israeli influence is guiding Trump’s decision to go to war in the Middle East. He explains why on this episode of “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.html
+
+**S.E.C. Settles Its Case Against Justin Sun, an Investor in the Trumps’ Crypto Coins**\
+`The decision to settle the court action is particularly striking because the defendant was accused of a serious violation of securities laws. He denied the charges.`\
+https://nytimes.com/2026/03/05/us/politics/sec-justin-sun.html
+
 **Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
 `Igor Tudor is a specialist in fixing broken teams. Tottenham look to have got worse`\
 https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7081303/2026/03/05/2026-winter-paralympics-medal-co
 **Trump Fires His Homeland Security Secretary**\
 `Also, child care costs are rising fast. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2026/03/05/briefing/trump-kristi-noem-iran-next-leader.html
-
-**President Trump welcomes Messi and Inter Miami to White House, highlights Iran conflict**\
-`Trump's speech began with a lengthy discourse on the ongoing military conflict`\
-https://nytimes.com/athletic/7091235/2026/03/05/trump-messi-white-house-iran-inter-miami/
-
-**Who Is Markwayne Mullin, Trump’s Pick for Homeland Security Secretary?**\
-`The Oklahoma senator has been a staunch defender of the Trump administration’s mass deportation campaign.`\
-https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-security.html
-
-**Israel Begins Assault in Southern Beirut, Raising Fears of Wider Incursion**\
-`As the war with Iran threatens to engulf more countries in the region, President Trump said he wanted to be involved in picking a new leader in Tehran.`\
-https://nytimes.com/2026/03/05/world/middleeast/israel-evacuation-lebanon-iran-trump.html
 

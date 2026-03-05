@@ -1,3 +1,15 @@
+**Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
+`Igor Tudor is a specialist in fixing broken teams. Tottenham look to have got worse`\
+https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job/
+
+**Louisiana Tech suing Conference USA in effort to leave early for Sun Belt**\
+`CUSA bylaws require 14 months notice to depart the conference, and the sides have not come to a financial agreement to allow an early split.`\
+https://nytimes.com/athletic/7091285/2026/03/05/louisiana-tech-sun-belt-cusa-lawsuit-realignment/
+
+**How Trump’s Firing of Noem Sets Off a Political Scramble in Oklahoma**\
+`The president’s choice of Senator Markwayne Mullin of Oklahoma to replace her at the Department of Homeland Security could trigger a cascade of aspirants for his seat.`\
+https://nytimes.com/2026/03/05/us/politics/trump-noem-mullin-oklahoma-senate-seat-republicans.html
+
 **Iran delays naming a new leader out of security concerns, officials say.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/iran-delays-naming-a-new-leader-out-of-security-concerns-officials-say
