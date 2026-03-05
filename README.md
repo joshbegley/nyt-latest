@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: House to Vote on Funding of Homeland Security Department**\
+``\
+https://nytimes.com/live/2026/03/05/us/trump-news
+
+**With Anthony Colandrea, Nebraska hopes fresh start at QB can provide jump start it needs**\
+`For the first time since Rhule touched down at Nebraska, no one, it seems, is treading delicately around the quarterback situation.`\
+https://nytimes.com/athletic/7088283/2026/03/05/anthony-colandrea-nebraska-football-qb-spring-practice/
+
+**Blue Jays roster projection 2.0: WBC watch, six-man rotation and more**\
+`With 12 Blue Jays on World Baseball Classic rosters, fans will get a good early look at players against top competition.`\
+https://nytimes.com/athletic/7088265/2026/03/05/blue-jays-roster-projection-2-0/
+
+**Kyle Anderson, Wolves reunite in Minnesota with unfinished business**\
+`Chris Finch, as much as any coach in the league, has always looked below the surface with Anderson to understand how he can make an impact.`\
+https://nytimes.com/athletic/7084936/2026/03/05/kyle-anderson-timberwolves-reunion-anthony-edwards/
+
 **How Cubs' Edward Cabrera forces everyone to think differently about pitching**\
 `His velocity may stand out, but it’s the rest of Cabrera’s arsenal that can make him special.`\
 https://nytimes.com/athletic/7088141/2026/03/05/chicago-cubs-edward-cabrera-pitching-development/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/israel-downs-iran-fighter-plane-
 **After Gen-Z Revolution, Nepal Votes for a Fresh Slate of Leaders**\
 `A millennial rapper and former mayor is aiming to lead the country, six months after the old guard was ousted.`\
 https://nytimes.com/2026/03/05/world/asia/gen-z-nepal-election.html
-
-**Trump Says He Wants to Destroy Iran’s Navy. Here’s What to Know.**\
-`The United States has long considered Iranian naval ships a serious threat, even as the country’s nuclear and missile programs dominate discussions of its military capabilities.`\
-https://nytimes.com/2026/03/05/world/middleeast/iran-navy-ships-war.html
-
-**Vintage Nola is still in there. Phillies starter looks stronger after early offseason work**\
-`After getting an early start to his offseason work, Nola is showing positive signs this spring that he could deliver a bounce-back season.`\
-https://nytimes.com/athletic/7088093/2026/03/05/aaron-nola-phillies-2026-season/
-
-**Seahawks mock draft: A trade with a division rival, plus a few defensive playmakers**\
-`With only four picks in the 2026 NFL Draft, the Seahawks will have to get creative to assemble an impactful draft class.`\
-https://nytimes.com/athletic/7087164/2026/03/05/seahawks-nfl-mock-draft-trade/
-
-**Travis Etienne? Cade Otton? Where Broncos could turn to fill 'musts' list in free agency**\
-`If the Broncos are set on making a splash during free agency, it could come in the form of a new backfield piece for Denver's offense.`\
-https://nytimes.com/athletic/7087200/2026/03/05/denver-broncos-free-agency-needs/
 
