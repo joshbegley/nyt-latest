@@ -1,3 +1,7 @@
+**TEFAF Maastricht, Known for Old Art, Faces the Future**\
+`The Dutch art fair, renowned for art and antiquities, works to prove its relevance as the wider world changes around it.`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-european-union-rules.html
+
 **How many Americans live in the Mideast?**\
 `By Amy Schoenfeld Walker`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/american-citizens-expats-middle-east
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/florida-gop-slurs-group-chat.html
 **Mamdani to Close Huge Homeless Shelter Next to Bellevue Hospital**\
 `The 30th Street Shelter on the site of Bellevue’s former psychiatric hospital has been in disrepair for years.`\
 https://nytimes.com/2026/03/05/nyregion/bellevue-homeless-shelter-closing.html
-
-**Trump Announces He Is Replacing Noem With Oklahoma Senator**\
-`The president tapped Markwayne Mullin as the new homeland security secretary after Kristi Noem was grilled by Republicans at a congressional hearing.`\
-https://nytimes.com/2026/03/05/us/politics/kristi-noem-markwayne-mullin-trump.html
 
