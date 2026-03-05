@@ -1,3 +1,19 @@
+**Mike Brown says SGA does a 'great job of convincing' referees he's being hit**\
+`Knicks coach Mike Brown picked up his first technical foul of the season after arguing a no-call against Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-alexander-hit-okc/
+
+**Bucks are frustrated with 4-game losing streak: 'What are you playing for?'**\
+`The Bucks' four losses have come by a combined 97 points, the largest combined margin of victory in any four-game skid in franchise history.`\
+https://nytimes.com/athletic/7089308/2026/03/05/bucks-giannis-antetokounmpo-losing-streak-nba/
+
+**What I'm hearing about the Maple Leafs ahead of the trade deadline: 'Teams smell blood in the water'**\
+`If everything falls into place, the Maple Leafs could be big sellers at this deadline. But will there be a market for what they're offering?`\
+https://nytimes.com/athletic/7089762/2026/03/05/maple-leafs-trade-deadline-news/
+
+**3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
+`Topps experimented with a variety of baseball card alternatives and innovations in the '60s and '70s, some of which are very valuable today.`\
+https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
+
 **Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
 `A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
 https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
