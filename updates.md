@@ -1,3 +1,15 @@
+**3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
+`The vintage baseball card market is prized for its organic rarity versus the manufactured scarcity of today&#8217;s ultra-modern cards.`\
+https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
+
+**Fueled by anxiety, exhausted Iranians cross the border into Turkey.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/fueled-by-anxiety-exhausted-iranians-cross-the-border-into-turkey
+
+**Italy Pledges Air Defenses for Gulf Allies as Europe Accelerates Response to Mideast Crisis**\
+`Defense Minister Guido Crosetto said that Italy would provide “air defense systems, anti-drone and antimissile systems” as Iran widened its retaliatory strikes.`\
+https://nytimes.com/2026/03/05/world/middleeast/europe-iran-war-military-defense.html
+
 **Fallout From Mideast Swirls Over the War in Ukraine**\
 `Three-way peace talks are on hold, and Kyiv fears that U.S. air defense systems it needs to counter Russia could be diverted to the Iran conflict.`\
 https://nytimes.com/2026/03/05/world/europe/ukraine-zelensky-iran-middle-east.html
