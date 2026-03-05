@@ -1,3 +1,7 @@
+**Maple Leafs trade Nicolas Roy to Avalanche for draft picks**\
+`Leafs receive conditional first- and fifth-round picks for forward Nicolas Roy.`\
+https://nytimes.com/athletic/7090314/2026/03/05/maple-leafs-trade-nicolas-roy-avalanche/
+
 **Israel expanded its evacuation warnings for Lebanese residents to Beirut’s southern suburbs.**\
 `By Elena Shao`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/israel-expanded-its-evacuation-warnings-for-lebanese-residents-to-beiruts-southern-suburbs
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/the-docket-judge-battle.html
 **Tom Ford Thrills**\
 `Haider Ackermann serves up what is likely the show of the season.`\
 https://nytimes.com/2026/03/05/style/tom-ford-pfw.html
-
-**‘Protector’ Review: She Knows How to Give Life, and How to Take It**\
-`Milla Jovovich plays a mother whose wrath is unleashed when her daughter is kidnapped in this brooding revenge thriller.`\
-https://nytimes.com/2026/03/05/movies/protector-review.html
 
