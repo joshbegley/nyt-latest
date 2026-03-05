@@ -1,3 +1,7 @@
+**Republicans Toil to Avoid Saying ‘War’ as Iran Conflict Widens**\
+`Mission? Hostilities? Don’t call it a war, say G.O.P. lawmakers grappling with the political and legal challenges of the operation in the Middle East.`\
+https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html
+
 **3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
 `The vintage baseball card market is prized for its organic rarity versus the manufactured scarcity of today&#8217;s ultra-modern cards.`\
 https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
