@@ -1,3 +1,7 @@
+**Russia Returns to Venice Biennale, in Latest Sign of a Cultural Comeback**\
+`By hosting a pavilion again this year, Russia continues its efforts to shed its status as a cultural and sporting pariah.`\
+https://nytimes.com/2026/03/05/arts/design/russia-ukraine-venice-biennale.html
+
 **Trump Administration Live Updates: House to Vote on Funding of Homeland Security Department**\
 ``\
 https://nytimes.com/live/2026/03/05/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089259/2026/03/05/arsenal-brighton-not-football-ro
 **Israel Says It Downed an Iranian Yak-130 Fighter Jet**\
 `Israel said one of its F-35 fighter jets, known as an Adir, had downed another crewed plane over Tehran, the Iranian capital. Iran did not immediately comment.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-downs-iran-fighter-plane-yak130.html
-
-**After Gen-Z Revolution, Nepal Votes for a Fresh Slate of Leaders**\
-`A millennial rapper and former mayor is aiming to lead the country, six months after the old guard was ousted.`\
-https://nytimes.com/2026/03/05/world/asia/gen-z-nepal-election.html
 
