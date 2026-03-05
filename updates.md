@@ -1,3 +1,15 @@
+**If this Knicks defense is here to stay, an NBA title is within their reach**\
+`If this Knicks defense continues to be as good as it showed in a nail-biter of a loss to Oklahoma City, then the sky is the limit.`\
+https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunder/
+
+**Lewis Hamilton experienced a winter of self-discovery: ‘You won’t see that person again'**\
+`Hamilton has outlined how he spent the F1 offseason recovering from a tough first season with Ferrari to be better this year.`\
+https://nytimes.com/athletic/7089218/2026/03/05/lewis-hamilton-ferrari-f1-2026/
+
+**Iran knocked out of Asian Cup by hosts Australia in 4-0 loss**\
+`The #68-ranked team are yet to score at the tournament.`\
+https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
+
 **The Pulse: The Raiders are already a mess**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7087300/2026/03/05/raiders-maxx-crosby-brady-the-pulse/
