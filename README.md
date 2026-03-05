@@ -1,3 +1,7 @@
+**Andrew McCutchen agrees to minor league deal with Rangers: Source**\
+`The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
+https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
+
 **Browns' Myles Garrett cited for ninth speeding ticket since entering NFL**\
 `Garrett received his second ticket for driving more than 90 mph since August of last year. `\
 https://nytimes.com/athletic/7089890/2026/03/05/myles-garrett-speeding-ticket-citations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089762/2026/03/05/maple-leafs-trade-deadline-news/
 **Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
 `A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
 https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
-
-**What I'm hearing: Flyers check in on Robert Thomas as trade deadline nears**\
-`Flyers see asking price for Blues forward Robert Thomas as too high; Rasmus Ristolainen market seems to be shrinking.`\
-https://nytimes.com/athletic/7089673/2026/03/05/philadelphia-flyers-trade-deadline-robert-thomas/
 
