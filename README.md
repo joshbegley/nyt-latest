@@ -1,40 +1,40 @@
-**Awards Watch: With Jayson Tatum's return looming, let's appreciate Jaylen Brown**\
-`What's going on with the Celtics sparks memories from out west more than two decades ago.`\
-https://nytimes.com/athletic/7080380/2026/03/05/jaylen-brown-celtics-nba-mvp-sga-jokic/
+**Championship play-offs expanded: Why EFL is increasing routes into Premier League**\
+`The team finishing eighth in the Championship will get the chance to win promotion to the top flight under the expanded play-off structure.`\
+https://nytimes.com/athletic/7087515/2026/03/05/championship-play-offs-expanded-why-efl-is-increasing-routes-into-premier-league/
 
-**Who Is Eyal Zamir, the Architect of Israel’s War Plans?**\
-`The Israeli general has long been focused on the threat from Iran and its proxies, and has called for a regional alliance against the country.`\
-https://nytimes.com/2026/03/05/world/middleeast/eyal-zamir-profile-iran-war.html
+**Red Wings have held up their end. Now, at trade deadline, it's Steve Yzerman's turn**\
+`The Red Wings have answered the bell when challenged. Now it's up to Yzerman to give them one last boost at the trade deadline.`\
+https://nytimes.com/athletic/7088846/2026/03/05/detroit-red-wings-nhl-trade-deadline-steve-yzerman/
 
-**U.S. Says It Torpedoed Iranian Ship**\
-`After the attack killed dozens of sailors, Iran’s foreign minister accused the United States of committing an “atrocity at sea.”`\
-https://nytimes.com/2026/03/05/world/middleeast/us-iran-iris-dena-ship-sri-lanka.html
+**Panthers mock draft 2.0: SEC O-linemen enter the chat, along with defensive playmakers**\
+`A mock draft trade gives the Panthers four picks within the first 100 with offensive tackle the priority in Round 1.`\
+https://nytimes.com/athletic/7087646/2026/03/05/panthers-mock-draft-monroe-freeling-first-round/
 
-**The NBA teams riding statistical droughts that feel impossible but apparently aren’t**\
-`From coast to coast, every franchise has numbers to be proud of — and a few anomalies that make you go, "Really?"`\
-https://nytimes.com/athletic/7071967/2026/03/05/nba-teams-statistical-drought-surprises-record/
+**The Scott Laughton trade one year later: Right person, wrong deal for the Leafs**\
+`Laughton became one of the most popular players in the dressing room but fell short of filling his role in Toronto on the ice.`\
+https://nytimes.com/athletic/7088295/2026/03/05/scott-laughton-maple-leafs-trade/
 
-**Steelers' free agency to-do list: Re-sign Aaron Rodgers, Kenny G — then target these players**\
-`Using Daniel Popper's top 150 free agents as a guide, let's highlight a few players who make sense at critical positions for the Steelers.`\
-https://nytimes.com/athletic/7085334/2026/03/05/steelers-free-agency-targets-cap-space/
+**What I learned at the NFL combine: Detroit Lions buzz and draft targets**\
+`Keldric Faulk and Kyle Louis make for interesting fits into Detroit's scheme, and multiple offensive linemen stood out in Indy.`\
+https://nytimes.com/athletic/7083679/2026/03/05/lions-combine-analysis-needs/
 
-**Can AI help your fastball? This Mets pitcher thinks so**\
-`The son of an engineer created a pitching app and welcomes input from players of all ages: 'Let's do it together.'`\
-https://nytimes.com/athletic/7087632/2026/03/05/mets-ai-pitching-analytics-robert-stock/
+**UConn's Sarah Strong: The Athletic's women's basketball Player of the Year**\
+`Strong's stat line was historic: 59.5 percent field goal shooting, 40.7 percent on 3-pointers and 88.1 percent on free throws.`\
+https://nytimes.com/athletic/7088237/2026/03/05/uconn-sarah-strong-player-of-the-year-the-athletic/
 
-**Ranking all 20 WBC teams, from the sure things to the Cinderellas to the seedlings**\
-`Which teams are most likely to win it all and which are just happy to be here? We break down the bracket. `\
-https://nytimes.com/athletic/7077982/2026/03/05/wbc-2026-team-rankings-guide/
+**Was Aaron Judge's speech to Team USA really that bad?**\
+`A clip of Judge's speech to Team USA drew plenty of attention and criticism. We reached out to experts to dive deeper.`\
+https://nytimes.com/athletic/7088784/2026/03/05/aaron-judge-speech-team-usa-baseball/
 
-**Falcons mailbag: Should Atlanta explore the free-agent QB market?**\
-`The Falcons will have just one quarterback on the roster once Kirk Cousins is released next week. Will they sign another free agent?`\
-https://nytimes.com/athletic/7087091/2026/03/05/falcons-nfl-free-agency-qb-michael-penix-mailbag/
+**Why a trade for Sergei Bobrovsky is a good idea, despite his poor statistics**\
+`The numbers suggest time could finally be catching up to the 37-year-old goalie, but the film says otherwise.`\
+https://nytimes.com/athletic/7088574/2026/03/05/sergei-bobrovsky-nhl-trade-panthers/
 
-**Bad news for the Colts? Alec Pierce wants to 'see what's out there' in free agency**\
-`The Colts hope to sign Pierce to a long-term deal, but he says he's earned the right to explore the free-agent market.`\
-https://nytimes.com/athletic/7088139/2026/03/05/colts-alec-pierce-free-agency-decision/
+**What has happened with young QBs in the NFL? Elite names haven't changed in a few years**\
+`Quarterbacks are arguably more prepared than ever, yet the top names are the same (Mahomes, Jackson, Allen, etc.) with no new breakthroughs.`\
+https://nytimes.com/athletic/7087997/2026/03/05/nfl-draft-elite-young-quarterbacks/
 
-**An inside look at NFL scouting reports, and the scouts who create them**\
-`An NFL scouting report can range from traditional sentences to a series of color-coded messages, shorthand terms and emoji-like tags.`\
-https://nytimes.com/athletic/7067790/2026/03/05/nfl-scouting-reports-grades-prospects/
+**Bengals free agency: Anticipated fits, targets and strategy to microwave defense again**\
+`A look at free-agent classes leading up to Cincinnati's Super Bowl appearance gives possible clues about this year's approach.`\
+https://nytimes.com/athletic/7087712/2026/03/05/bengals-free-agency-preview/
 
