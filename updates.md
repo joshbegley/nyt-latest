@@ -1,3 +1,15 @@
+**Iceland Defeats Iceland: A U.K. Supermarket Ends a Trademark Dispute**\
+`Can a company trademark the name of a country? In the case of Iceland, the British grocery store, the answer is no.`\
+https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html
+
+**WAFCON 2026 postponed fewer than two weeks before planned start date**\
+`CAF said the decision was taken "in the light of certain unforeseen circumstances".`\
+https://nytimes.com/athletic/7075986/2026/03/05/wafcon-2026-postponed-morocco/
+
+**Iranian Kurdish Forces Say They May Enter Iran. Who Are the Kurds?**\
+`Spread across Iran, Iraq, Syria and Turkey, the ethnic group of 40 million has long sought, and fought for, greater autonomy.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-kurds-who.html
+
 **L.A. Broker and Reality TV Star Accuses Oren Alexander of Sexual Assault**\
 `Tracy Tutor said Mr. Alexander, a former top real estate agent in New York, drugged and assaulted her in 2014. Mr. Alexander and his two brothers are on trial for sex trafficking.`\
 https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
