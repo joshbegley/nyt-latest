@@ -1,3 +1,7 @@
+**Carney Says Canada and Australia Can ‘Set the Agenda’ as World Faces ‘Crises’**\
+`The Canadian prime minister is touring the Asia-Pacific to rejuvenate alliances in the wake of the U.S. trade war and President Trump’s calls for Canada’s annexation.`\
+https://nytimes.com/2026/03/05/world/canada/carney-australia.html
+
 **Here is the latest.**\
 `By Yan Zhuang and Leily Nikounazar`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/here-is-the-latest
