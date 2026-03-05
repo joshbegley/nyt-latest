@@ -1,3 +1,19 @@
+**The Pentagon Officially Notifies Anthropic That It Is a ‘Supply Chain Risk’**\
+`Anthropic has said it will sue the Defense Department over the designation, which could prevent the start-up from doing business with the U.S. government.`\
+https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-department.html
+
+**2026 Winter Paralympics medal count**\
+``\
+https://nytimes.com/athletic/7081303/2026/03/05/2026-winter-paralympics-medal-count/
+
+**Trump Fires His Homeland Security Secretary**\
+`Also, child care costs are rising fast. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/05/briefing/trump-kristi-noem-iran-next-leader.html
+
+**President Trump welcomes Messi and Inter Miami to White House, highlights Iran conflict**\
+`Trump's speech began with a lengthy discourse on the ongoing military conflict`\
+https://nytimes.com/athletic/7091235/2026/03/05/trump-messi-white-house-iran-inter-miami/
+
 **Who Is Markwayne Mullin, Trump’s Pick for Homeland Security Secretary?**\
 `The Oklahoma senator has been a staunch defender of the Trump administration’s mass deportation campaign.`\
 https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-security.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/05/arts/art-gallery-shows-to-see-in-march.html
 **Kings trading Warren Foegele to Senators: Source**\
 `Foegele, 29, whose contract goes through 2027 with a $3,500,000 cap hit, has struggled this season after a career year in 2024-25.`\
 https://nytimes.com/athletic/7021355/2026/03/05/kings-warren-foegele-trade-senators/
-
-**Ronnie Eldridge, a Fixture in N.Y. Politics, Dies at 95**\
-`She was an adviser to Senator Robert F. Kennedy, Mayor John V. Lindsay and Representative Bella S. Abzug before serving on the New York City Council from 1989 to 2001.`\
-https://nytimes.com/2026/03/05/obituaries/ronnie-eldridge-dead.html
-
-**Nepal Heads to the Polls to Elect New Government**\
-`Nepalis voted for a new government on Thursday, the first elections since Gen Z-led protests upended the country in the fall.`\
-https://nytimes.com/video/world/asia/100000010756361/nepal-elections-politics-kathmandu.html
-
-**Tottenham 1 Crystal Palace 3: Are Spurs going down? What was Van de Ven thinking?**\
-`Analysis of Tottenham's calamitous Premier League home defeat by Crystal Palace`\
-https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
-
-**House Turns Back Bid to Restrict Trump’s War Powers in Iran**\
-`A handful of Democrats joined Republicans to defeat an effort to force President Trump to go to Congress for approval to continue using force against Iran, while two G.O.P. lawmakers backed it.`\
-https://nytimes.com/2026/03/05/us/politics/trump-war-powers-iran-house-vote.html
 

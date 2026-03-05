@@ -1,3 +1,19 @@
+**The Pentagon Officially Notifies Anthropic That It Is a ‘Supply Chain Risk’**\
+`Anthropic has said it will sue the Defense Department over the designation, which could prevent the start-up from doing business with the U.S. government.`\
+https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-department.html
+
+**2026 Winter Paralympics medal count**\
+``\
+https://nytimes.com/athletic/7081303/2026/03/05/2026-winter-paralympics-medal-count/
+
+**Trump Fires His Homeland Security Secretary**\
+`Also, child care costs are rising fast. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/05/briefing/trump-kristi-noem-iran-next-leader.html
+
+**President Trump welcomes Messi and Inter Miami to White House, highlights Iran conflict**\
+`Trump's speech began with a lengthy discourse on the ongoing military conflict`\
+https://nytimes.com/athletic/7091235/2026/03/05/trump-messi-white-house-iran-inter-miami/
+
 **Who Is Markwayne Mullin, Trump’s Pick for Homeland Security Secretary?**\
 `The Oklahoma senator has been a staunch defender of the Trump administration’s mass deportation campaign.`\
 https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-security.html
