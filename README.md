@@ -1,3 +1,15 @@
+**Mike Brown says SGA does a 'great job of convincing' referees he's being hit**\
+`Knicks coach Mike Brown picked up his first technical foul of the season after arguing a no-call against Shai Gilgeous-Alexander.`\
+https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-alexander-hit-okc/
+
+**Bucks are frustrated with 4-game losing streak: 'What are you playing for?'**\
+`The Bucks' four losses have come by a combined 97 points, the largest combined margin of victory in any four-game skid in franchise history.`\
+https://nytimes.com/athletic/7089308/2026/03/05/bucks-giannis-antetokounmpo-losing-streak-nba/
+
+**What I'm hearing about the Maple Leafs ahead of the trade deadline: 'Teams smell blood in the water'**\
+`If everything falls into place, the Maple Leafs could be big sellers at this deadline. But will there be a market for what they're offering?`\
+https://nytimes.com/athletic/7089762/2026/03/05/maple-leafs-trade-deadline-news/
+
 **Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
 `A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
 https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
@@ -23,18 +35,6 @@ https://nytimes.com/2026/03/05/world/europe/berlin-holocaust-memorial-stabbing-s
 https://nytimes.com/2026/03/05/us/politics/iran-war-republicans.html
 
 **3-D, comics and currency: The experimental baseball cards of the '60s and '70s**\
-`The vintage baseball card market is prized for its organic rarity versus the manufactured scarcity of today&#8217;s ultra-modern cards.`\
+`Topps experimented with a variety of baseball card alternatives and innovations in the '60s and '70s, some of which are very valuable today.`\
 https://nytimes.com/athletic/7088730/2026/03/05/topps-oddball-baseball-cards/
-
-**Fueled by anxiety, exhausted Iranians cross the border into Turkey.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/fueled-by-anxiety-exhausted-iranians-cross-the-border-into-turkey
-
-**Italy Pledges Air Defenses for Gulf Allies as Europe Accelerates Response to Mideast Crisis**\
-`Defense Minister Guido Crosetto said that Italy would provide “air defense systems, anti-drone and antimissile systems” as Iran widened its retaliatory strikes.`\
-https://nytimes.com/2026/03/05/world/middleeast/europe-iran-war-military-defense.html
-
-**Fallout From Mideast Swirls Over the War in Ukraine**\
-`Three-way peace talks are on hold, and Kyiv fears that U.S. air defense systems it needs to counter Russia could be diverted to the Iran conflict.`\
-https://nytimes.com/2026/03/05/world/europe/ukraine-zelensky-iran-middle-east.html
 

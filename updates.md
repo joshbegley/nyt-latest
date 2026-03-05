@@ -1,3 +1,15 @@
+**Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
+`A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
+https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
+
+**What I'm hearing: Flyers check in on Robert Thomas as trade deadline nears**\
+`Flyers see asking price for Blues forward Robert Thomas as too high; Rasmus Ristolainen market seems to be shrinking.`\
+https://nytimes.com/athletic/7089673/2026/03/05/philadelphia-flyers-trade-deadline-robert-thomas/
+
+**Olivier Awards: ‘Paddington’ and ‘Into the Woods’ Lead Nominations**\
+`The two musicals secured 11 nominations each for Britain’s equivalent of the Tony Awards. Cate Blanchett, Bryan Cranston and Rachel Zegler are also among the nominees.`\
+https://nytimes.com/2026/03/05/theater/olivier-award-nominations.html
+
 **Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
 `Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
 https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/

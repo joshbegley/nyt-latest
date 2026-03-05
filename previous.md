@@ -1,3 +1,15 @@
+**Lawsuit Accuses Amy Griffin, Best-Selling Author, of Invasion of Privacy**\
+`A former classmate contends that Ms. Griffin’s story of being sexually abused, described in “The Tell,” was based on assaults the classmate herself suffered.`\
+https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
+
+**What I'm hearing: Flyers check in on Robert Thomas as trade deadline nears**\
+`Flyers see asking price for Blues forward Robert Thomas as too high; Rasmus Ristolainen market seems to be shrinking.`\
+https://nytimes.com/athletic/7089673/2026/03/05/philadelphia-flyers-trade-deadline-robert-thomas/
+
+**Olivier Awards: ‘Paddington’ and ‘Into the Woods’ Lead Nominations**\
+`The two musicals secured 11 nominations each for Britain’s equivalent of the Tony Awards. Cate Blanchett, Bryan Cranston and Rachel Zegler are also among the nominees.`\
+https://nytimes.com/2026/03/05/theater/olivier-award-nominations.html
+
 **Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
 `Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
 https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/europe-iran-war-military-defense
 **Fallout From Mideast Swirls Over the War in Ukraine**\
 `Three-way peace talks are on hold, and Kyiv fears that U.S. air defense systems it needs to counter Russia could be diverted to the Iran conflict.`\
 https://nytimes.com/2026/03/05/world/europe/ukraine-zelensky-iran-middle-east.html
-
-**At the Whitney, a Biennial Gets Personal**\
-`For an unmoored time, 56 artists and teams present an inspired discourse shaped by crisis, craft and community. Look up, and listen.`\
-https://nytimes.com/2026/03/05/arts/design/at-the-whitney-a-biennial-gets-personal.html
-
-**Iceland Defeats Iceland: A U.K. Supermarket Ends a Trademark Dispute**\
-`Can a company trademark the name of a country? In the case of Iceland, the British grocery store, the answer is no.`\
-https://nytimes.com/2026/03/05/world/europe/iceland-supermarket-trademark.html
-
-**WAFCON 2026 postponed fewer than two weeks before planned start date**\
-`CAF said the decision was taken "in the light of certain unforeseen circumstances".`\
-https://nytimes.com/athletic/7075986/2026/03/05/wafcon-2026-postponed-morocco/
 
