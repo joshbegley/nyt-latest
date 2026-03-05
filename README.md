@@ -1,3 +1,11 @@
+**How Cubs' Edward Cabrera forces everyone to think differently about pitching**\
+`His velocity may stand out, but it’s the rest of Cabrera’s arsenal that can make him special.`\
+https://nytimes.com/athletic/7088141/2026/03/05/chicago-cubs-edward-cabrera-pitching-development/
+
+**The Sixers get an important victory ... against the tanking Jazz?**\
+`Philadelphia is trying to hold onto the No. 6 spot in the East, so even beating a team not trying to win means something.`\
+https://nytimes.com/athletic/7088925/2026/03/05/sixers-win-utah-maxey/
+
 **Utah Authorities Begin Investigation After 3 Women Are Found Dead**\
 `The authorities in Wayne County closed schools and urged the public to take precautions after two women were found on a hiking trail, and a third at a residence.`\
 https://nytimes.com/2026/03/05/us/wayne-county-utah-murders-manhunt.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7087164/2026/03/05/seahawks-nfl-mock-draft-trade/
 **Travis Etienne? Cade Otton? Where Broncos could turn to fill 'musts' list in free agency**\
 `If the Broncos are set on making a splash during free agency, it could come in the form of a new backfield piece for Denver's offense.`\
 https://nytimes.com/athletic/7087200/2026/03/05/denver-broncos-free-agency-needs/
-
-**Giants' Grant McCray is showing patience, but believes his time is now**\
-`At 25, McCray is still evolving as a player, particularly at the plate, making him a strong candidate for the Opening Day roster.`\
-https://nytimes.com/athletic/7089070/2026/03/05/grant-mccray-giants-patience-time-now/
-
-**Bruce Pearl vs. Miami (Ohio) is an argument of hypothetical wins and real losses**\
-`Would Miami have a better record than Auburn against the Tigers' schedule? Who cares? We’ve got enough data to shun all hypotheticals.`\
-https://nytimes.com/athletic/7088613/2026/03/05/bruce-pearl-miami-ohio-auburn-ncaa-tournament/
 

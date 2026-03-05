@@ -1,3 +1,19 @@
+**Utah Authorities Begin Investigation After 3 Women Are Found Dead**\
+`The authorities in Wayne County closed schools and urged the public to take precautions after two women were found on a hiking trail, and a third at a residence.`\
+https://nytimes.com/2026/03/05/us/wayne-county-utah-murders-manhunt.html
+
+**TAFC: Arsenal win over Brighton 'not football'. Plus: Rodrygo ACL shock, ranking fairytales**\
+`Today in TAFC: Arsenal extend their lead at the top of the Premier League, but Brighton are not amused. Plus: Ranking football fairytales.`\
+https://nytimes.com/athletic/7089259/2026/03/05/arsenal-brighton-not-football-rodrygo-acl/
+
+**Israel Says It Downed an Iranian Yak-130 Fighter Jet**\
+`Israel said one of its F-35 fighter jets, known as an Adir, had downed another crewed plane over Tehran, the Iranian capital. Iran did not immediately comment.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-downs-iran-fighter-plane-yak130.html
+
+**After Gen-Z Revolution, Nepal Votes for a Fresh Slate of Leaders**\
+`A millennial rapper and former mayor is aiming to lead the country, six months after the old guard was ousted.`\
+https://nytimes.com/2026/03/05/world/asia/gen-z-nepal-election.html
+
 **Trump Says He Wants to Destroy Iran’s Navy. Here’s What to Know.**\
 `The United States has long considered Iranian naval ships a serious threat, even as the country’s nuclear and missile programs dominate discussions of its military capabilities.`\
 https://nytimes.com/2026/03/05/world/middleeast/iran-navy-ships-war.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7089070/2026/03/05/grant-mccray-giants-patience-tim
 **Bruce Pearl vs. Miami (Ohio) is an argument of hypothetical wins and real losses**\
 `Would Miami have a better record than Auburn against the Tigers' schedule? Who cares? We’ve got enough data to shun all hypotheticals.`\
 https://nytimes.com/athletic/7088613/2026/03/05/bruce-pearl-miami-ohio-auburn-ncaa-tournament/
-
-**Five other takeaways from 'the book' and how analytics affect college football**\
-`Here are a few strategies, some situational and some big-picture, that coaches and analysts say don’t get enough attention.`\
-https://nytimes.com/athletic/7087460/2026/03/05/college-football-fourth-down-decisions-the-book/
-
-**The Mariners' anchor at first: How Josh Naylor got Seattle's successful offseason started early**\
-`After thriving in October following a deadline deal, Naylor decided to stick around the Pacific Northwest.`\
-https://nytimes.com/athletic/7087187/2026/03/05/josh-naylor-seattle-mariners-offseason/
-
-**Central Connecticut State may seem a world away from UConn, but the love of basketball endures**\
-`Kristin Caruso's coaching career has taken her from reaching the Final Four with UConn 35 years ago to trying to get CCSU its second win.`\
-https://nytimes.com/athletic/7088843/2026/03/05/central-connecticut-uconn-womens-basketball/
-
-**Players with term on their contracts who could help Winnipeg Jets beyond this season**\
-`How can Winnipeg use its cap space to add players at the deadline?`\
-https://nytimes.com/athletic/7086972/2026/03/05/winnipeg-jets-trade-deadline-players-to-add/
 

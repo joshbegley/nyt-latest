@@ -1,3 +1,19 @@
+**Utah Authorities Begin Investigation After 3 Women Are Found Dead**\
+`The authorities in Wayne County closed schools and urged the public to take precautions after two women were found on a hiking trail, and a third at a residence.`\
+https://nytimes.com/2026/03/05/us/wayne-county-utah-murders-manhunt.html
+
+**TAFC: Arsenal win over Brighton 'not football'. Plus: Rodrygo ACL shock, ranking fairytales**\
+`Today in TAFC: Arsenal extend their lead at the top of the Premier League, but Brighton are not amused. Plus: Ranking football fairytales.`\
+https://nytimes.com/athletic/7089259/2026/03/05/arsenal-brighton-not-football-rodrygo-acl/
+
+**Israel Says It Downed an Iranian Yak-130 Fighter Jet**\
+`Israel said one of its F-35 fighter jets, known as an Adir, had downed another crewed plane over Tehran, the Iranian capital. Iran did not immediately comment.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-downs-iran-fighter-plane-yak130.html
+
+**After Gen-Z Revolution, Nepal Votes for a Fresh Slate of Leaders**\
+`A millennial rapper and former mayor is aiming to lead the country, six months after the old guard was ousted.`\
+https://nytimes.com/2026/03/05/world/asia/gen-z-nepal-election.html
+
 **Trump Says He Wants to Destroy Iran’s Navy. Here’s What to Know.**\
 `The United States has long considered Iranian naval ships a serious threat, even as the country’s nuclear and missile programs dominate discussions of its military capabilities.`\
 https://nytimes.com/2026/03/05/world/middleeast/iran-navy-ships-war.html
