@@ -1,3 +1,23 @@
+**Here is the latest.**\
+`By Yan Zhuang and Leily Nikounazar`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/here-is-the-latest
+
+**Live Updates: Iran Denies Firing Missile at Turkey as Crisis Spills Beyond Middle East**\
+`The assertion came after Turkey, a member of NATO, said that the alliance shot down a ballistic missile headed toward Turkish airspace.`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump
+
+**Winding Paths**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/03/05/learning/winding-paths.html
+
+**$2.5 Million Rift Pits Cannabis Pioneer Against Group That Backed Her**\
+`A dispute between the nonprofit Housing Works and the owner of a cannabis dispensary shows the risks for businesses in an industry that is locked out of traditional financing and resources.`\
+https://nytimes.com/2026/03/05/nyregion/cannabis-housingworks-new-york-dispute.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/05/crosswords/spelling-bee-forum.html
+
 **Late Night Doesn’t Understand Why America Is Attacking Iran**\
 `“This could be the first war ever launched based on vibes,” Jimmy Fallon said.`\
 https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
 **Newcastle were hanging on – then along came Will Osula's wondergoal**\
 `Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United, they got their reward`\
 https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/
-
-**What the Extraordinary Market Volatility in Asia Says About Energy and A.I.**\
-`Stocks in South Korea and Taiwan, the center of global chip making, plunged on fears about energy prices. Their recovery shows the bullishness over artificial intelligence.`\
-https://nytimes.com/2026/03/05/business/stocks-asia-iran-energy.html
-
-**2026 World Baseball Classic schedule, latest game results and pool play standings**\
-`Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
-https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
-
-**The New York Times in Print for Thursday, March 5, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/05/todays-new-york-times
-
-**On the Ground in Beirut**\
-`Our Beirut bureau chief, Christina Goldbaum, reports on the escalating conflict between Israel and the Iran-backed armed group Hezbollah, as Israel’s military seizes areas of southern Lebanon and carries out bombings.`\
-https://nytimes.com/video/world/middleeast/100000010747493/on-the-ground-in-beirut.html
-
-**Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
-`The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
-https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
 
