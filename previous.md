@@ -1,3 +1,11 @@
+**2026 World Baseball Classic schedule, latest game results and pool play standings**\
+`Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
+https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
+
+**Michael Carrick's honeymoon period at Manchester United is over – it had been coming**\
+`One defeat should not extinguish the side's rediscovered spark, but there is work to do in the fight to secure Champions League football`\
+https://nytimes.com/athletic/7087232/2026/03/05/manchester-united-newcastle-defeat-carrick/
+
 **Arsenal did exactly what Fabian Hurzeler said they would do - and won**\
 `It was not always pretty and their approach agitated the home manager and crowd, but Mikel Arteta's side ground out an important victory`\
 https://nytimes.com/athletic/7088250/2026/03/05/arsenal-brighton-hurzeler-arteta/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
 **VAR: What's wrong and how to fix it**\
 `It remains one of the most divisive subjects in football. So what do the experts believe can be done to help improve VAR?`\
 https://nytimes.com/athletic/7086296/2026/03/05/var-referee-problems-fix/
-
-**This team have won 14 league titles in a row. Their dream of a world-record 15th is hanging by a thread**\
-`Despite coming from a small city, Ludogorets have won the Bulgarian First League in each of the 14 seasons since being promoted in 2011`\
-https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
-
-**Can Wolves stage the greatest of Premier League great escapes?**\
-`Wolves have the easiest run-in and the momentum of big wins behind them. They couldn't, could they?`\
-https://nytimes.com/athletic/7086604/2026/03/05/wolves-premier-league-survival-chances/
 

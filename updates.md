@@ -1,3 +1,11 @@
+**2026 World Baseball Classic schedule, latest game results and pool play standings**\
+`Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
+https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
+
+**Michael Carrick's honeymoon period at Manchester United is over – it had been coming**\
+`One defeat should not extinguish the side's rediscovered spark, but there is work to do in the fight to secure Champions League football`\
+https://nytimes.com/athletic/7087232/2026/03/05/manchester-united-newcastle-defeat-carrick/
+
 **Arsenal did exactly what Fabian Hurzeler said they would do - and won**\
 `It was not always pretty and their approach agitated the home manager and crowd, but Mikel Arteta's side ground out an important victory`\
 https://nytimes.com/athletic/7088250/2026/03/05/arsenal-brighton-hurzeler-arteta/
