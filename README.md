@@ -1,40 +1,40 @@
-**How to watch Rutgers vs. Michigan State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091007/2026/03/05/rutgers-vs-michigan-state-stream-how-to-watch-march-5/
+**How to watch North Alabama vs. Central Arkansas women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the North Alabama Lions play the Central Arkansas Sugar Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091050/2026/03/05/north-alabama-vs-central-arkansas-stream-how-to-watch-march-5/
 
-**How to watch Georgia Southern vs. Arkansas State men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia Southern Eagles play the Arkansas State Red Wolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091002/2026/03/05/georgia-southern-vs-arkansas-state-stream-how-to-watch-march-5/
+**How to watch UNC Asheville vs. Longwood women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the UNC Asheville Bulldogs play the Longwood Lancers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091039/2026/03/05/unc-asheville-vs-longwood-stream-how-to-watch-march-5/
 
-**How to watch Georgia Tech vs. Virginia Tech women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia Tech Yellow Jackets play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090996/2026/03/05/georgia-tech-vs-virginia-tech-stream-how-to-watch-march-5/
+**Why the Torpedoed Iranian Warship Is a Political Problem for India**\
+`An Iranian ship had been invited by India to take part in peacetime naval exercises with dozens of other countries, days before it was sunk in a U.S. submarine attack.`\
+https://nytimes.com/2026/03/05/world/middleeast/iranian-warship-torpedo-india-exercises.html
 
-**Providence expected to fire coach Kim English after season: Reports**\
-`Providence is in seventh place in the Big East and is on track to miss the NCAA Tournament for the third consecutive year.`\
-https://nytimes.com/athletic/7090216/2026/03/05/kim-english-providence-basketball-coach-fired/
+**How to watch Michigan vs. Iowa men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091032/2026/03/05/michigan-vs-iowa-stream-how-to-watch-march-5/
 
-**How to watch Pepperdine vs. Portland men's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Pepperdine Waves play the Portland Pilots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090988/2026/03/05/pepperdine-vs-portland-stream-how-to-watch-march-5/
+**How to watch Pelicans vs. Kings: Time, TV, streaming**\
+`Find out how to watch the New Orleans Pelicans play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091028/2026/03/05/pelicans-vs-kings-stream-how-to-watch-march-5/
 
-**Scoop City: What prior small-sample wonders tells us about Malik Willis' future**\
-`Can the Packers backup revive a downtrodden franchise like the Jets, Cardinals, Browns or Dolphins? History is filled with red flags`\
-https://nytimes.com/athletic/7090880/2026/03/05/malik-willis-nfl-history-comps-matt-flynn/
+**What I'm hearing about Penguins trade deadline targets: Will a familiar name return?**\
+`The Penguins have a center depth issue and are looking to a frequent trade partner for help.`\
+https://nytimes.com/athletic/7090794/2026/03/05/penguins-nhl-trade-deadline-teddy-blueger-rumors/
 
-**How to watch South Dakota State vs. St. Thomas men's basketball: Summit League Tournament Time, TV, streaming**\
-`Find out how to watch the South Dakota State Jackrabbits play the Saint Thomas Tommies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090961/2026/03/05/south-dakota-state-vs-st-thomas-stream-how-to-watch-march-5/
+**How to watch Lakers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091020/2026/03/05/lakers-vs-nuggets-stream-how-to-watch-march-5/
 
-**An Artist’s Six-Decade-Long Love Affair With Clay**\
-`At 87, the sculptor and ceramist Megumi Yuasa is having his first solo exhibition in the U.S.`\
-https://nytimes.com/2026/03/05/t-magazine/megumi-yuasa-ortuzar.html
+**How to watch Raptors vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091018/2026/03/05/raptors-vs-timberwolves-stream-how-to-watch-march-5/
 
-**Analysis Suggests School Was Hit Amid U.S. Strikes on Iranian Naval Base**\
-`The Feb. 28 school strike in Minab, which killed dozens, including children, appears to have been part of an attack on an adjacent naval base in southern Iran, where officials said U.S. forces were operating.`\
-https://nytimes.com/2026/03/05/world/middleeast/iran-school-us-strikes-naval-base.html
+**How to watch Pistons vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091015/2026/03/05/pistons-vs-spurs-stream-how-to-watch-march-5/
 
-**NHL trade board 9.0: The latest on all the top targets on Deadline Day eve**\
-`As we count down to 3 p.m. ET on Friday, it appears we’ll see more “hockey” moves than usual.`\
-https://nytimes.com/athletic/7089447/2026/03/05/nhl-trade-board-bobrovsky-trocheck-ekman-larsson/
+**How to watch Lightning vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091012/2026/03/05/lightning-vs-jets-stream-how-to-watch-march-5/
 
