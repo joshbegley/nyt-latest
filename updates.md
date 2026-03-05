@@ -1,3 +1,15 @@
+**How to watch Samford vs. Wofford women's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Samford Bulldogs play the Wofford Terriers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7089470/2026/03/05/samford-vs-wofford-stream-how-to-watch-march-5/
+
+**Can Anthropic Make Peace With the Pentagon?**\
+`The artificial intelligence start-up has reportedly resumed talks with the Defense Department over use of its tools, with high stakes for both.`\
+https://nytimes.com/2026/03/05/business/dealbook/anthropic-pentagon-ai.html
+
+**Russia Returns to Venice Biennale, in Latest Sign of a Cultural Comeback**\
+`By hosting a pavilion again this year, Russia continues its efforts to shed its status as a cultural and sporting pariah.`\
+https://nytimes.com/2026/03/05/arts/design/russia-ukraine-venice-biennale.html
+
 **Trump Administration Live Updates: House to Vote on Funding of Homeland Security Department**\
 ``\
 https://nytimes.com/live/2026/03/05/us/trump-news
