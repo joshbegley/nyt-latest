@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
 `Nuno Espirito Santo was grateful to Mads Hermansen after the goalkeeper helped his side pick up three crucial points at Fulham`\
 https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
 
-**Aston Villa's structure, cohesion and confidence has deserted them. They look ragged**\
+**Aston Villa's structure, cohesion and confidence have deserted them. They look ragged**\
 `Unai Emery has previously had a clear strategy but his team look muddled at the moment. Their dip has come at a bad time`\
 https://nytimes.com/athletic/7088140/2026/03/05/aston-villa-emery-chelsea/
 
