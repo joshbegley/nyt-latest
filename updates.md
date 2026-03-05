@@ -1,3 +1,11 @@
+**Experts doubt Tehran’s claims of advanced ‘hypersonic’ missiles.**\
+`As Iran fires fewer ballistic missiles, experts doubt Tehran is saving more advanced weapons.`\
+https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-doubt-tehrans-claims-of-advanced-hypersonic-missiles
+
+**Steelers to release TE Jonnu Smith, underscoring commitment to Pat Freiermuth: Source**\
+`The move frees up cap space and helps alleviate a depth-chart logjam.`\
+https://nytimes.com/athletic/7088480/2026/03/04/steelers-to-release-te-jonnu-smith-underscoring-commitment-to-pat-freiermuth/
+
 **U.S. Court Takes First Steps Toward Ordering Tariff Refunds**\
 `The Trump administration is likely to appeal the move, as it ramps up its attempt to slow or potentially block the repayment of billions in past duties.`\
 https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html

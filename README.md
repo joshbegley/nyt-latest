@@ -1,3 +1,7 @@
+**Trump Follows His Gut. His National Security Advisers Try to Keep Up.**\
+`Decisions come fast, even if contradictions and inconsistencies abound. But without much of a process, there is little preparation for how things can go wrong.`\
+https://nytimes.com/2026/03/04/us/politics/trump-national-security.html
+
 **Experts doubt Tehran’s claims of advanced ‘hypersonic’ missiles.**\
 `As Iran fires fewer ballistic missiles, experts doubt Tehran is saving more advanced weapons.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-doubt-tehrans-claims-of-advanced-hypersonic-missiles
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010754392/druski-wants-to-make-a-buddy-
 **Whose Airstrike Hit a Girls’ School in Iran? The U.S. Says It’s Still Investigating.**\
 `The strike was one of the deadliest attacks of the American-Israeli campaign against Iran so far.`\
 https://nytimes.com/2026/03/04/us/politics/trump-iran-airstrike-girls-school.html
-
-**Joe Musgrove could stabilize Padres, even amid mixed returns for Tommy John pitchers**\
-`The right-hander was one of the National League’s top performers from 2021 to 2023, compiling a 3.05 ERA. `\
-https://nytimes.com/athletic/7088170/2026/03/04/san-diego-padres-joe-musgrove-stabilize-tommy-john-return/
 
