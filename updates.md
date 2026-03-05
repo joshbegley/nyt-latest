@@ -1,3 +1,7 @@
+**Villa still in process of registering January signing Brian Madjo**\
+`Madjo joined in a deal worth in the region of £10million from Metz but is yet to play for any of Villa's teams.`\
+https://nytimes.com/athletic/7086928/2026/03/05/brian-madjo-aston-villa-transfer-register/
+
 **Athletes reflect on 50 years of Winter Paralympics, growth and the work still to do**\
 `As the Winter Paralympics turn 50, the event is bigger than ever but still has plenty of room to improve.`\
 https://nytimes.com/athletic/7081033/2026/03/05/paralympics-2026-winter-history-growth-progress-future/
