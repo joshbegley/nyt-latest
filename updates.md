@@ -1,3 +1,27 @@
+**Here is the latest.**\
+`By Yan Zhuang and Leily Nikounazar`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/here-is-the-latest
+
+**Live Updates: Iran Denies Firing Missile at Turkey as Crisis Spills Beyond Middle East**\
+`The assertion came after Turkey, a member of NATO, said that the alliance shot down a ballistic missile headed toward Turkish airspace.`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump
+
+**Winding Paths**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2026/03/05/learning/winding-paths.html
+
+**$2.5 Million Rift Pits Cannabis Pioneer Against Group That Backed Her**\
+`A dispute between the nonprofit Housing Works and the owner of a cannabis dispensary shows the risks for businesses in an industry that is locked out of traditional financing and resources.`\
+https://nytimes.com/2026/03/05/nyregion/cannabis-housingworks-new-york-dispute.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/05/crosswords/spelling-bee-forum.html
+
+**West Ham and Hermansen are starting to believe a Mads end to the season will keep them up**\
+`Head coach Nuno Espirito Santo was grateful to his goalkeeper after picking up three crucial points at Fulham`\
+https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
+
 **Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
 `The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
 https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/

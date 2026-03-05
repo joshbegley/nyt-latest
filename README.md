@@ -1,3 +1,7 @@
+**Carney Says Canada and Australia Can ‘Set the Agenda’ as World Faces ‘Crises’**\
+`The Canadian prime minister is touring the Asia-Pacific to rejuvenate alliances in the wake of the U.S. trade war and President Trump’s calls for Canada’s annexation.`\
+https://nytimes.com/2026/03/05/world/canada/carney-australia.html
+
 **Here is the latest.**\
 `By Yan Zhuang and Leily Nikounazar`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-rel
 **Word of the Day: solace**\
 `This word has appeared in 417 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
-
-**Newcastle were hanging on – then along came Will Osula's wondergoal**\
-`Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United, they got their reward`\
-https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/
 
