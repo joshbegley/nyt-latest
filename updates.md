@@ -1,3 +1,19 @@
+**Lev Parnas, Who Turned Against Trump, Announces Run for Congress as Democrat**\
+`Mr. Parnas, who once tried to help find damaging information on Hunter Biden, said his background had turned him into “an advocate for speaking truth to power.”`\
+https://nytimes.com/2026/03/05/us/lev-parnas-trump-impeachment-florida-congress.html
+
+**Art Gallery Shows to See in March**\
+`This week in Newly Reviewed, Seph Rodney covers Deborah Roberts’s collages, Ursula von Rydingsvard’s wood outcroppings and Noel W Anderson’s superstars.`\
+https://nytimes.com/2026/03/05/arts/art-gallery-shows-to-see-in-march.html
+
+**Kings trading Warren Foegele to Senators: Source**\
+`Foegele, 29, whose contract goes through 2027 with a $3,500,000 cap hit, has struggled this season after a career year in 2024-25.`\
+https://nytimes.com/athletic/7021355/2026/03/05/kings-warren-foegele-trade-senators/
+
+**Ronnie Eldridge, a Fixture in N.Y. Politics, Dies at 95**\
+`She was an adviser to Senator Robert F. Kennedy, Mayor John V. Lindsay and Representative Bella S. Abzug before serving on the New York City Council from 1989 to 2001.`\
+https://nytimes.com/2026/03/05/obituaries/ronnie-eldridge-dead.html
+
 **Tottenham 1 Crystal Palace 3: Are Spurs going down? What was Van de Ven thinking?**\
 `Analysis of Tottenham's calamitous Premier League home defeat by Crystal Palace`\
 https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
