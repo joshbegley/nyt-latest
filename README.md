@@ -1,3 +1,7 @@
+**Pro-American Kurdish Forces Are Preparing Possible Iran Incursion**\
+`The C.I.A. has given small weapons to Iranian Kurdish forces in Iraq in a covert program that began before the current war.`\
+https://nytimes.com/2026/03/04/us/politics/kurds-trump-iran-war.html
+
 **Will the Ducks upgrade on defense before the NHL trade deadline?**\
 `The surprising Ducks entered Wednesday one point behind Vegas for first place in the Pacific Division.`\
 https://nytimes.com/athletic/7088242/2026/03/04/anaheim-ducks-nhl-trade-deadline-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/texas-primaries-runoffs-may.html
 **Israelis Celebrate Purim Amid Iranian Missile Attacks**\
 `The war did not stop ultra-Orthodox parts of Jerusalem from drinking and dancing for the Jewish holiday.`\
 https://nytimes.com/2026/03/04/world/middleeast/israelis-celebrate-purim-amid-iranian-missile-attacks.html
-
-**Four Questions About What’s Next in Texas**\
-`The biggest immediate one: What will Trump do?`\
-https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
 
