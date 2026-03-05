@@ -1,40 +1,40 @@
-**How to watch North Alabama vs. Central Arkansas women's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the North Alabama Lions play the Central Arkansas Sugar Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091050/2026/03/05/north-alabama-vs-central-arkansas-stream-how-to-watch-march-5/
+**How to watch Nets vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091106/2026/03/05/nets-vs-heat-stream-how-to-watch-march-5/
 
-**How to watch UNC Asheville vs. Longwood women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the UNC Asheville Bulldogs play the Longwood Lancers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091039/2026/03/05/unc-asheville-vs-longwood-stream-how-to-watch-march-5/
+**How to watch Evansville vs. Northern Iowa men's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Evansville Purple Aces play the Northern Iowa Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091100/2026/03/05/evansville-vs-northern-iowa-stream-how-to-watch-march-5/
 
-**Why the Torpedoed Iranian Warship Is a Political Problem for India**\
-`An Iranian ship had been invited by India to take part in peacetime naval exercises with dozens of other countries, days before it was sunk in a U.S. submarine attack.`\
-https://nytimes.com/2026/03/05/world/middleeast/iranian-warship-torpedo-india-exercises.html
+**How to watch Bulls vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091098/2026/03/05/bulls-vs-suns-stream-how-to-watch-march-5/
 
-**How to watch Michigan vs. Iowa men's basketball: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091032/2026/03/05/michigan-vs-iowa-stream-how-to-watch-march-5/
+**How to watch Alabama vs. Tennessee women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091096/2026/03/05/alabama-vs-tennessee-stream-how-to-watch-march-5/
 
-**How to watch Pelicans vs. Kings: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091028/2026/03/05/pelicans-vs-kings-stream-how-to-watch-march-5/
+**How to watch Warriors vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091091/2026/03/05/warriors-vs-rockets-stream-how-to-watch-march-5/
 
-**What I'm hearing about Penguins trade deadline targets: Will a familiar name return?**\
-`The Penguins have a center depth issue and are looking to a frequent trade partner for help.`\
-https://nytimes.com/athletic/7090794/2026/03/05/penguins-nhl-trade-deadline-teddy-blueger-rumors/
+**Pokémon Company Objects to White House Use for Its Political Memes**\
+`“No permission was granted for the use of our intellectual property,” the company said. The Trump administration frequently promotes policies with content from video games.`\
+https://nytimes.com/2026/03/05/arts/pokemon-company-white-house-memes.html
 
-**How to watch Lakers vs. Nuggets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Denver Nuggets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091020/2026/03/05/lakers-vs-nuggets-stream-how-to-watch-march-5/
+**How to watch Manhattan vs. Fairfield men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Manhattan Jaspers play the Fairfield Stags, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091080/2026/03/05/manhattan-vs-fairfield-stream-how-to-watch-march-5/
 
-**How to watch Raptors vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091018/2026/03/05/raptors-vs-timberwolves-stream-how-to-watch-march-5/
+**How to watch Oregon vs. Maryland women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Oregon Ducks play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091074/2026/03/05/oregon-vs-maryland-stream-how-to-watch-march-5/
 
-**How to watch Pistons vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091015/2026/03/05/pistons-vs-spurs-stream-how-to-watch-march-5/
+**An Intimate Introduction to Toni Morrison**\
+`Parul Sehgal, a critic at large for The New York Times, talked with Wesley Morris about her first encounter with Toni Morrison’s novel “The Bluest Eye.”`\
+https://nytimes.com/video/arts/100000010753957/an-intimate-introduction-to-toni-morrison.html
 
-**How to watch Lightning vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091012/2026/03/05/lightning-vs-jets-stream-how-to-watch-march-5/
+**Jayson Tatum's return: Submit your questions for our Q&A**\
+`Tatum has spent the past 10 months rehabbing after tearing his right Achilles tendon in last year's playoffs.`\
+https://nytimes.com/athletic/7090832/2026/03/05/jayson-tatum-return-questions-celtics/
 
