@@ -1,3 +1,23 @@
+**How Welcome To Wrexham is preparing for Chelsea FA Cup tie: 'The storyline sells itself'**\
+`Saturday's FA Cup game at the Racecourse Ground is a big day for the documentary crew`\
+https://nytimes.com/athletic/7072518/2026/03/05/welcome-to-wrexham-chelsea-fa-cup/
+
+**Senate Republicans Block Limits to Trump’s War Powers**\
+`Senate Republicans voted against a Democratic bill that would have required President Trump to obtain congressional authorization to continue waging war against Iran.`\
+https://nytimes.com/video/us/politics/100000010755053/iran-trump-senate-war-powers.html
+
+**Australia Moves to Memorialize an Atrocity That’s ‘Not History Yet’**\
+`The country and its small Jewish community are still trying to process the mass shooting at Bondi Beach in December.`\
+https://nytimes.com/2026/03/05/world/australia/bondi-australia-memorial.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 5, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7088975/2026/03/05/connections-sports-edition-hints-answers-march-5-2026/
+
+**Corrections: March 5, 2026**\
+`Corrections that appeared in print on Thursday, March 5, 2026.`\
+https://nytimes.com/2026/03/05/pageoneplus/corrections-march-5-2026.html
+
 **Quote of the Day: Global Leaders Brace For Fallout From War**\
 `Quotation of the Day for Thursday, March 5, 2026.`\
 https://nytimes.com/2026/03/04/pageoneplus/quote-of-the-day-global-leaders-brace-for-fallout-from-war.html
