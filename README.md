@@ -1,3 +1,7 @@
+**Did England do enough at the T20 World Cup to make up for their Ashes failure?**\
+`There were thrills and spills in defeat to India but, if white-ball progress is encouraging, coach Brendon McCullum remains under scrutiny`\
+https://nytimes.com/athletic/7090024/2026/03/05/england-mccullum-brook-t20-ashes/
+
 **Feeling the Effects of 260,000 Federal Jobs Lost**\
 `One year in, assessing budget cuts to federal climate and science jobs.`\
 https://nytimes.com/2026/03/05/climate/climate-forward-science-federal-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-france.html
 **This Small Statue in Brussels Has a Large Bladder and Lots of Outfits**\
 `Manneken Pis, the famed bronze statue of a little boy who always has to go, has an official dresser in charge of his more than 1,190 outfits.`\
 https://nytimes.com/2026/03/05/arts/design/manneken-pis-costumes-brussels.html
-
-**Trump Says He Should Have Role in Picking Iran’s Leader**\
-`The president’s comments were the most explicit he has been yet about his vision of an American role in creating a new government in Tehran.`\
-https://nytimes.com/2026/03/05/us/politics/trump-iran-leader.html
 
