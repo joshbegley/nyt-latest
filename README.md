@@ -1,3 +1,15 @@
+**The Statues Were Mostly Men or Nude Women. So These Knitters Got to Work.**\
+`Women in Denmark, dismayed by unequal representation in public art, stitched together a protest campaign.`\
+https://nytimes.com/2026/03/05/arts/design/denmark-women-statues-knitting.html
+
+**A strong USWNT performance hints at Emma Hayes' possible core group**\
+`Ally Sentnor's goal lifted the U.S. over Canada, giving the team the top spot in the SheBelieves Cup heading into the final match.`\
+https://nytimes.com/athletic/7088895/2026/03/05/uswnt-emma-hayes-canada-shebelieves-cup/
+
+**As Patriots prep for free agency, predictions at the team's biggest positions of need**\
+`New England is likely to sign at least one player each at wide receiver, edge rusher, tight end and guard/center. Here are our guesses.`\
+https://nytimes.com/athletic/7087272/2026/03/05/patriots-nfl-free-agency-predictions-alec-pierce/
+
 **Who’s Running for Governor of California?**\
 `A cluster of lesser-known Democrats, two Republicans and a Green candidate will fight for the attention of frustrated voters.`\
 https://nytimes.com/interactive/2026/03/05/us/politics/california-governor-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/arts/druski-popcast-timothee-chalamet-skits.html
 **Trump Wants a Quick Victory in Iran. But the War May Be Costly.**\
 `The opening days of the conflict are challenging the idea that President Trump can project force abroad while safeguarding American lives and the economy.`\
 https://nytimes.com/2026/03/05/us/politics/trump-iran-war-deaths.html
-
-**You’ve Never Seen Ants Like This Before**\
-`The Antscan database captures the tiny insects’ diversity and shows how the world’s living things could be rendered in three dimensions.`\
-https://nytimes.com/2026/03/05/science/ants-3d-scans.html
-
-**A Political Earthquake Rattles the North Carolina Legislature**\
-`Voters across this politically purple state made it clear on Tuesday that they wanted to punish the powerful on both sides of the aisle. It may be a warning to incumbents elsewhere.`\
-https://nytimes.com/2026/03/05/us/north-carolina-primary-election-legislature.html
-
-**How War in the Persian Gulf Could Spill Into the U.S. Economy**\
-`Rising energy prices, snarled supply chains and higher government debt could all hurt American consumers.`\
-https://nytimes.com/2026/03/05/business/economy/iran-oil-economy-consumers.html
 
