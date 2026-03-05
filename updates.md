@@ -1,3 +1,15 @@
+**Aston Villa's structure, cohesion and confidence has deserted them. They look ragged**\
+`Unai Emery has previously had a clear strategy but his team look muddled at the moment. Their dip has come at a bad time`\
+https://nytimes.com/athletic/7088140/2026/03/05/aston-villa-emery-chelsea/
+
+**Word of the Day: solace**\
+`This word has appeared in 417 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
+
+**Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
+`The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
+https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
+
 **Newcastle United were hanging on – then along came Will Osula's wonder goal**\
 `Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United they got their reward`\
 https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/

@@ -1,3 +1,7 @@
+**West Ham are starting to believe a Mads end to the season will keep them in the Premier League**\
+`Nuno Espirito Santo was grateful to Mads Hermansen after the goalkeeper helped his side pick up three crucial points at Fulham`\
+https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
+
 **Aston Villa's structure, cohesion and confidence has deserted them. They look ragged**\
 `Unai Emery has previously had a clear strategy but his team look muddled at the moment. Their dip has come at a bad time`\
 https://nytimes.com/athletic/7088140/2026/03/05/aston-villa-emery-chelsea/
@@ -17,10 +21,6 @@ https://nytimes.com/2026/03/05/business/stocks-asia-iran-energy.html
 **2026 World Baseball Classic schedule, latest game results and pool play standings**\
 `Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
 https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
-
-**Michael Carrick's honeymoon period at Manchester United is over – it had been coming**\
-`One defeat should not extinguish the side's rediscovered spark, but there is work to do in the fight to secure Champions League football`\
-https://nytimes.com/athletic/7087232/2026/03/05/manchester-united-newcastle-defeat-carrick/
 
 **The New York Times in Print for Thursday, March 5, 2026**\
 ``\
