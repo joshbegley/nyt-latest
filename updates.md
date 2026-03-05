@@ -1,3 +1,15 @@
+**As a Fired Noem Speaks in Nashville, Senators Welcome Her Replacement**\
+`The remarkable split-screen underscored how abruptly Kristi Noem’s ouster as homeland security secretary had unfolded, even by the standards of President Trump’s fast-paced Washington.`\
+https://nytimes.com/2026/03/05/us/politics/trump-fires-noem-gop-split-mullin.html
+
+**António Lobo Antunes, One of Europe’s Most Revered Writers, Dies at 83**\
+`In a career studded with literary awards, he was the author of dozens of books that grappled with his nation’s legacy of dictatorship and colonialism.`\
+https://nytimes.com/2026/03/05/books/antonio-lobo-antunes-dead.html
+
+**A Different Kind of War in Mexico**\
+`Our correspondents discuss the challenges of Mexico’s war on drug cartels.`\
+https://nytimes.com/2026/03/05/world/mexico-cartel-crackdown-iran-lebanon.html
+
 **Wild notebook: Michael McCarron gets ribbed by new teammates, but 'glue guy' fits right in**\
 `The 6-foot-6 McCarron was acquired Wednesday from the Predators for a 2028 second-round pick.`\
 https://nytimes.com/athletic/7090755/2026/03/05/wild-michael-mccarron-trade-deadline/
