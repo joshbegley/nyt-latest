@@ -1,3 +1,7 @@
+**Blackhawks trade Dickinson, Dach to Oilers for Mangiapane, pick: Sources**\
+`The Blackhawks retained 50 percent of Dickinson’s $4.25 million cap hit and the condition of the draft pick is its top-12 protected.`\
+https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
+
 **NHL trade grades: Oilers make win-now bet on Jason Dickinson, Blackhawks get great return**\
 `Jason Dickinson is solid, reliable defensive player on a team that needs some reliability and defense.`\
 https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oilers-jason-dickinson/
