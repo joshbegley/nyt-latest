@@ -1,3 +1,7 @@
+**Capitals trade Nic Dowd to Golden Knights for draft picks, goalie prospect**\
+`Vegas hopes the addition of the veteran Dowd will solidify its center depth.`\
+https://nytimes.com/athletic/7090273/2026/03/05/nic-dowd-trade-capitals-golden-knights/
+
 **Middle East conflict: Saudi game postponed, Spanish FA raises concerns over game in Turkey to UEFA**\
 `Thursday’s game between Al Kholood and Al Qadsiah had been rescheduled for 10pm local time on Saturday.`\
 https://nytimes.com/athletic/7089819/2026/03/05/middle-east-conflict-iran-saudi-spain/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083264/2026/03/05/fantasy-baseball-starting-pitche
 **Map: 4.9-Magnitude Earthquake Shakes Louisiana**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/05/us/louisiana-quake-tracker.html
-
-**Bears trading wide receiver DJ Moore to the Bills: Sources**\
-`Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
-https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/
 

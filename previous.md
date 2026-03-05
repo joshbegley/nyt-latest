@@ -1,3 +1,23 @@
+**Middle East conflict: Saudi game postponed, Spanish FA raises concerns over game in Turkey to UEFA**\
+`Thursday’s game between Al Kholood and Al Qadsiah had been rescheduled for 10pm local time on Saturday.`\
+https://nytimes.com/athletic/7089819/2026/03/05/middle-east-conflict-iran-saudi-spain/
+
+**A Judge’s ‘Battle Royale’ With Trump and the Supreme Court**\
+`After repeated but cryptic rebukes from the justices, Judge Brian Murphy last week again ruled against one of the administration’s signature immigration programs.`\
+https://nytimes.com/2026/03/05/us/the-docket-judge-battle.html
+
+**Tom Ford Thrills**\
+`Haider Ackermann serves up what is likely the show of the season.`\
+https://nytimes.com/2026/03/05/style/tom-ford-pfw.html
+
+**‘Protector’ Review: She Knows How to Give Life, and How to Take It**\
+`Milla Jovovich plays a mother whose wrath is unleashed when her daughter is kidnapped in this brooding revenge thriller.`\
+https://nytimes.com/2026/03/05/movies/protector-review.html
+
+**We Want Your Questions for the ‘Project Hail Mary’ Author Andy Weir**\
+`The Book Review podcast is talking with Andy Weir about his book “Project Hail Mary” and its much-anticipated movie adaptation.`\
+https://nytimes.com/2026/03/05/podcasts/the-book-review-andy-weir-callout.html
+
 **This is what happened on March 4.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/march-4-major-updates
@@ -17,24 +37,4 @@ https://nytimes.com/interactive/2026/03/05/us/louisiana-quake-tracker.html
 **Bears trading wide receiver DJ Moore to the Bills: Sources**\
 `Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
 https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/
-
-**Rangers trade tracker: Latest on Adam Fox, Vincent Trocheck and more**\
-`Friday's 3 p.m. ET trade deadline is closing in, with the Rangers one of the expected sellers many around the league are monitoring.`\
-https://nytimes.com/athletic/7087806/2026/03/05/rangers-trade-rumors-adam-fox-vincent-trocheck/
-
-**How to watch Maple Leafs vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090228/2026/03/05/maple-leafs-vs-rangers-stream-how-to-watch-march-5/
-
-**How to watch Sabres vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090220/2026/03/05/sabres-vs-penguins-stream-how-to-watch-march-5/
-
-**How to watch Eastern Illinois vs. UT Martin men's basketball: OVC Tournament Time, TV, streaming**\
-`Find out how to watch the Eastern Illinois Panthers play the UT Martin Skyhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7090218/2026/03/05/eastern-illinois-vs-ut-martin-stream-how-to-watch-march-5/
-
-**In Big Ten hoops, where's the line between rivalry and ancient history?**\
-`Outside of their traditional rivals, many Big Ten hoops programs have more animosity to go around thanks to decades of high-stakes matchups.`\
-https://nytimes.com/athletic/7088796/2026/03/05/big-ten-basketball-rivalries-rankings/
 
