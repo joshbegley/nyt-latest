@@ -1,3 +1,7 @@
+**The Pulse: The Raiders are already a mess**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7087300/2026/03/05/raiders-maxx-crosby-brady-the-pulse/
+
 **Christopher Bell on why he isn't a 'Chris' and wouldn't give up a toe to win Daytona**\
 `Each week, The Athletic's Jeff Gluck asks a NASCAR driver 12 revealing questions. This week: Christopher Bell of Joe Gibbs Racing.`\
 https://nytimes.com/athletic/7078889/2026/03/05/christopher-bell-nascar-joe-gibbs-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088237/2026/03/05/uconn-sarah-strong-player-of-the
 **Was Aaron Judge's speech to Team USA really that bad?**\
 `A clip of Judge's speech to Team USA drew plenty of attention and criticism. We reached out to experts to dive deeper.`\
 https://nytimes.com/athletic/7088784/2026/03/05/aaron-judge-speech-team-usa-baseball/
-
-**Why a trade for Sergei Bobrovsky is a good idea, despite his poor statistics**\
-`The numbers suggest time could finally be catching up to the 37-year-old goalie, but the film says otherwise.`\
-https://nytimes.com/athletic/7088574/2026/03/05/sergei-bobrovsky-nhl-trade-panthers/
 

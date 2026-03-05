@@ -1,3 +1,7 @@
+**Iran knocked out of Asian Cup by hosts Australia in 4-0 loss**\
+`The #68-ranked team are yet to score at the tournament.`\
+https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
+
 **The Pulse: The Raiders are already a mess**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7087300/2026/03/05/raiders-maxx-crosby-brady-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083679/2026/03/05/lions-combine-analysis-needs/
 **UConn's Sarah Strong: The Athletic's women's basketball Player of the Year**\
 `Strong's stat line was historic: 59.5 percent field goal shooting, 40.7 percent on 3-pointers and 88.1 percent on free throws.`\
 https://nytimes.com/athletic/7088237/2026/03/05/uconn-sarah-strong-player-of-the-year-the-athletic/
-
-**Was Aaron Judge's speech to Team USA really that bad?**\
-`A clip of Judge's speech to Team USA drew plenty of attention and criticism. We reached out to experts to dive deeper.`\
-https://nytimes.com/athletic/7088784/2026/03/05/aaron-judge-speech-team-usa-baseball/
 
