@@ -1,3 +1,7 @@
+**On the Ground in Beirut**\
+`Our Beirut bureau chief, Christina Goldbaum, reports on the escalating conflict between Israel and the Iran-backed armed group Hezbollah, as Israel’s military seizes areas of southern Lebanon and carries out bombings.`\
+https://nytimes.com/video/world/middleeast/100000010747493/on-the-ground-in-beirut.html
+
 **Brennan Johnson, 648 minutes for Palace and no goals - why is he struggling?**\
 `The forward, signed from Spurs in January, has struggled to settle - what's gone wrong?`\
 https://nytimes.com/athletic/7079161/2026/03/05/brennan-johnson-crystal-palace/
