@@ -1,6 +1,14 @@
+**Christopher Bell on why he isn't a 'Chris' and wouldn't give up a toe to win Daytona**\
+`Each week, The Athletic's Jeff Gluck asks a NASCAR driver 12 revealing questions. This week: Christopher Bell of Joe Gibbs Racing.`\
+https://nytimes.com/athletic/7078889/2026/03/05/christopher-bell-nascar-joe-gibbs-12-questions/
+
+**After a long journey and a breakout season, Nahshon Wright eyes a life-changing payday**\
+`Whether his future is with the Bears or another team, Wright has leverage and optimism heading into free agency.`\
+https://nytimes.com/athletic/7086758/2026/03/05/nahshon-wright-bears-2026-nfl-free-agency/
+
 **Championship play-offs expanded: Why EFL is increasing routes into Premier League**\
 `The team finishing eighth in the Championship will get the chance to win promotion to the top flight under the expanded play-off structure.`\
-https://nytimes.com/athletic/7087515/2026/03/05/championship-play-offs-expanded-why-efl-is-increasing-routes-into-premier-league/
+https://nytimes.com/athletic/7087515/2026/03/05/championship-play-offs-vote-efl/
 
 **Red Wings have held up their end. Now, at trade deadline, it's Steve Yzerman's turn**\
 `The Red Wings have answered the bell when challenged. Now it's up to Yzerman to give them one last boost at the trade deadline.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7088784/2026/03/05/aaron-judge-speech-team-usa-base
 **Why a trade for Sergei Bobrovsky is a good idea, despite his poor statistics**\
 `The numbers suggest time could finally be catching up to the 37-year-old goalie, but the film says otherwise.`\
 https://nytimes.com/athletic/7088574/2026/03/05/sergei-bobrovsky-nhl-trade-panthers/
-
-**What has happened with young QBs in the NFL? Elite names haven't changed in a few years**\
-`Quarterbacks are arguably more prepared than ever, yet the top names are the same (Mahomes, Jackson, Allen, etc.) with no new breakthroughs.`\
-https://nytimes.com/athletic/7087997/2026/03/05/nfl-draft-elite-young-quarterbacks/
-
-**Bengals free agency: Anticipated fits, targets and strategy to microwave defense again**\
-`A look at free-agent classes leading up to Cincinnati's Super Bowl appearance gives possible clues about this year's approach.`\
-https://nytimes.com/athletic/7087712/2026/03/05/bengals-free-agency-preview/
 
