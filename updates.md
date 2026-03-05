@@ -1,3 +1,11 @@
+**Who Is Markwayne Mullin, Trump’s Pick for Homeland Security Secretary?**\
+`The Oklahoma senator has been a staunch defender of the Trump administration’s mass deportation campaign.`\
+https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-security.html
+
+**Israel Begins Assault in Southern Beirut, Raising Fears of Wider Incursion**\
+`As the war with Iran threatens to engulf more countries in the region, President Trump said he wanted to be involved in picking a new leader in Tehran.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-evacuation-lebanon-iran-trump.html
+
 **Predators trading Michael Bunting to Stars: Source**\
 `Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
 https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
