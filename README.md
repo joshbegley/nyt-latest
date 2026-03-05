@@ -1,3 +1,7 @@
+**Arsenal did exactly what Fabian Hurzeler said they would do - and won**\
+`It was not always pretty and their approach agitated the home manager and crowd, but Mikel Arteta's side ground out an important victory`\
+https://nytimes.com/athletic/7088250/2026/03/05/arsenal-brighton-hurzeler-arteta/
+
 **The New York Times in Print for Thursday, March 5, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
 **Can Wolves stage the greatest of Premier League great escapes?**\
 `Wolves have the easiest run-in and the momentum of big wins behind them. They couldn't, could they?`\
 https://nytimes.com/athletic/7086604/2026/03/05/wolves-premier-league-survival-chances/
-
-**How magical are football's fairytales? Grading them, from fabulous to fake**\
-`Wrexham's rise is a great story, whatever you think about how they have done it. How does it compare to other unlikely tales?`\
-https://nytimes.com/athletic/7081676/2026/03/05/grading-football-fairytales/
 
