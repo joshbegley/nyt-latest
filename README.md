@@ -1,3 +1,19 @@
+**DJ Moore trade grades: Josh Allen gets the WR he needed, Bears' youth movement continues**\
+`Buffalo filled their biggest need with a vet, while the Bears freed up cap space thanks to a surplus of young pass-catchers.`\
+https://nytimes.com/athletic/7090417/2026/03/05/dj-moore-bills-bears-trade-grades/
+
+**Team USA loses Aliyah Boston, Sonia Citron to injury ahead of World Cup qualifiers**\
+`Team USA has training in Miami this weekend before traveling to Puerto Rico for the World Cup qualifying tournament.`\
+https://nytimes.com/athletic/7090372/2026/03/05/fiba-world-cup-roster-injury-boston-citron/
+
+**Josh Allen gets No. 1 wideout in DJ Moore. Youngsters take center stage in Chicago**\
+`Jake Ciely responds to the Bills trade for DJ Moore. Josh Allen gets a new weapon, while Moore's potential skyrockets as a true No. 1 WR. `\
+https://nytimes.com/athletic/7090343/2026/03/05/fantasy-football-impact-dj-moore-bills/
+
+**Sri Lanka Is Caught in the Middle as Second Iranian Vessel Seeks Safe Haven**\
+`A day after rescuing Iranian sailors from the wreckage of a warship sunk by a U.S. submarine, Sri Lanka’s neutrality is being tested.`\
+https://nytimes.com/2026/03/05/world/asia/sri-lanka-iran-navy-war.html
+
 **India beat England in thrilling Mumbai run fest to reach T20 World Cup final**\
 `A first T20 century from Jacob Bethell was in vain as the holders secured a seven-run victory in Mumbai and will play New Zealand on Sunday`\
 https://nytimes.com/athletic/7089333/2026/03/05/india-t20-bumrah-england-bethell/
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/7090405/2026/03/05/my-favorite-wbc-underdog-the-win
 **The Iran War, History and the Law**\
 `Readers discuss historical and legal aspects of the war. Also: Richard Nixon and a Watergate episode; America’s voting problem; scenes from “The Pitt.”`\
 https://nytimes.com/2026/03/05/opinion/iran-war-history-law.html
-
-**An Assertive Supreme Court Turns to Curbing State Courts**\
-`Liberal justices accused their colleagues of expanding use of the emergency docket again in two orders issued this week.`\
-https://nytimes.com/2026/03/05/us/politics/supreme-court-emergency-docket.html
-
-**NHL trade grades: Maple Leafs get a win in sending Nicolas Roy to Avalanche**\
-`A first-round pick for a role player on a going-nowhere roster seems almost too good to be true.`\
-https://nytimes.com/athletic/7090305/2026/03/05/nhl-trade-grades-maple-leafs-avalanche-nicolas-roy/
-
-**‘Pompei: Below the Clouds’ Review: Trembling Beauties, Old and New**\
-`The past and the present converge in this ravishingly beautiful Italian documentary set in the shadow of Mount Vesuvius.`\
-https://nytimes.com/2026/03/05/movies/pompei-below-the-clouds-review.html
 

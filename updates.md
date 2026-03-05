@@ -1,3 +1,11 @@
+**India beat England in thrilling Mumbai run fest to reach T20 World Cup final**\
+`A first T20 century from Jacob Bethell was in vain as the holders secured a seven-run victory in Mumbai and will play New Zealand on Sunday`\
+https://nytimes.com/athletic/7089333/2026/03/05/india-t20-bumrah-england-bethell/
+
+**Board Delays Vote on Trump’s Ballroom Amid Deluge of Public Criticism**\
+`The National Capital Planning Commission, led by Trump allies, moved the vote to next month. It has received about 32,000 comments on the project, more than 98 percent of them negative.`\
+https://nytimes.com/2026/03/05/us/politics/trump-ballroom-criticism.html
+
 **Colton Parayko invokes no-trade clause, nullifying potential Blues-Sabres trade**\
 `Parayko has one goal and 14 points in 58 games in 2025-26, with a minus-14 rating.`\
 https://nytimes.com/athletic/7088870/2026/03/05/blues-sabres-colton-parayko-trade/
