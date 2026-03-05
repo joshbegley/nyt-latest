@@ -1,3 +1,7 @@
+**How Welcome To Wrexham is preparing for Chelsea FA Cup tie: 'The storyline sells itself'**\
+`Saturday's FA Cup game at the Racecourse Ground is a big day for the documentary crew`\
+https://nytimes.com/athletic/7072518/2026/03/05/welcome-to-wrexham-chelsea-fa-cup/
+
 **Senate Republicans Block Limits to Trump’s War Powers**\
 `Senate Republicans voted against a Democratic bill that would have required President Trump to obtain congressional authorization to continue waging war against Iran.`\
 https://nytimes.com/video/us/politics/100000010755053/iran-trump-senate-war-powers.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-
 **In a Riskier Era, China Bets on Technology to Resist U.S. Pressure**\
 `China announced a 7 percent increase in military spending and a five-year plan to try to reduce its military and industry’s reliance on Western technology.`\
 https://nytimes.com/2026/03/04/world/asia/china-us-technology-trade-military.html
-
-**James Talarico Says ‘New Politics Is Being Born’ After Texas Primary Win**\
-`After clinching the Democratic Senate primary, he told supporters in Austin that the country’s real divide is between “top versus bottom,” not the left versus right.`\
-https://nytimes.com/2026/03/04/us/politics/talarico-victory-party.html
 
