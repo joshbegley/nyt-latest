@@ -1,3 +1,7 @@
+**Blackhawks trade Jason Dickinson, Colton Dach to Oilers for Andrew Mangiapane, pick: Sources**\
+`The Blackhawks retained 50 percent of Dickinson’s $4.25 million cap hit and the condition of the draft pick is its top-12 protected.`\
+https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
+
 **NHL trade grades: Mammoth make a smart bet on MacKenzie Weegar, boosting their blue line**\
 `This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
 https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/

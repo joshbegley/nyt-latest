@@ -1,4 +1,4 @@
-**NHL trade grades: Mammoth make a smart bet on MacKenzie Weegar, boosting their blue line**\
+**NHL trade grades: Mammoth make smart bet on MacKenzie Weegar, boosting blue line**\
 `This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
 https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
 

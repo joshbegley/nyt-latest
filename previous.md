@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
 
 **Blackhawks trade Jason Dickinson, Colton Dach to Oilers for Andrew Mangiapane, pick: Sources**\
-`Dickinson, 30, is a pending unrestricted free agent with a $4.25 million cap hit.`\
+`The Blackhawks retained 50 percent of Dickinson’s $4.25 million cap hit and the condition of the draft pick is its top-12 protected.`\
 https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
 
 **Man Accused of Plotting to Kill Trump Blames Iran for Scheme**\
