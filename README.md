@@ -1,3 +1,11 @@
+**Will the Ducks upgrade on defense before the NHL trade deadline?**\
+`The surprising Ducks entered Wednesday one point behind Vegas for first place in the Pacific Division.`\
+https://nytimes.com/athletic/7088242/2026/03/04/anaheim-ducks-nhl-trade-deadline-2026/
+
+**Judge Blocks DeSantis’s Declaration of Muslim Group as Terrorist Organization**\
+`A federal judge found that the designation for CAIR, one of the nation’s largest Muslim advocacy groups, had violated the organization’s First Amendment rights.`\
+https://nytimes.com/2026/03/04/us/desantis-cair-muslim-group-terrorist-organization.html
+
 **Druski Wants to Make a Buddy Cop Movie With Timothée Chalamet**\
 `The comedian Druski sat down with Jon Caramanica and Joe Coscarelli on “Popcast” for a revealing conversation about his galaxy of collaborators and the balancing act between unfiltered comedy and corporate America. A buddy cop movie with Timothée Chalamet? Don’t rule it out.`\
 https://nytimes.com/video/podcasts/100000010754392/druski-wants-to-make-a-buddy-cop-movie-with-timothee-chalamet.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/04/world/middleeast/israelis-celebrate-purim-amid-ir
 **Four Questions About What’s Next in Texas**\
 `The biggest immediate one: What will Trump do?`\
 https://nytimes.com/2026/03/04/us/politics/trump-texas-paxton-talarico-house-runoff.html
-
-**Yakuza Leader Sentenced to 20 Years for Trafficking Nuclear Material**\
-`Prosecutors said Takeshi Ebisawa tried to sell uranium and plutonium from Myanmar in a plot tied to Iran’s nuclear program.`\
-https://nytimes.com/2026/03/04/us/japan-yakuza-nuclear-trafficking-sentencing.html
-
-**Aaron Rodgers praises, defends Mike McCarthy — but doesn't say whether he'll play in 2026**\
-`On Wednesday, Rodgers made his first public comments since McCarthy's hiring as the Steelers' new head coach.`\
-https://nytimes.com/athletic/7088092/2026/03/04/aaron-rodgers-mike-mccarthy-steelers-plans/
 
