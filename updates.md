@@ -1,3 +1,11 @@
+**WAFCON was postponed due to 'unforeseen circumstances'. CAF's lack of clarity harms its future**\
+`CAF's handling impacts the players the most with 2027 Women's World Cup implications`\
+https://nytimes.com/athletic/7072020/2026/03/05/wafcon-2026-postpond-caf-tournament/
+
+**Could Columbus be the destination for NWSL's next expansion team?**\
+`U.S. women's national team head coach Emma Hayes said it would be "fantastic" to have an NWSL franchise in the Ohio capital. `\
+https://nytimes.com/athletic/7089064/2026/03/05/columbus-ohio-nwsl-expansion-interest-explained/
+
 **As a Fired Noem Speaks in Nashville, Senators Welcome Her Replacement**\
 `The remarkable split-screen underscored how abruptly Kristi Noem’s ouster as homeland security secretary had unfolded, even by the standards of President Trump’s fast-paced Washington.`\
 https://nytimes.com/2026/03/05/us/politics/trump-fires-noem-gop-split-mullin.html
