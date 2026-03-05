@@ -1,3 +1,11 @@
+**Who Is Markwayne Mullin, Trump’s Pick for Homeland Security Secretary?**\
+`The Oklahoma senator has been a staunch defender of the Trump administration’s mass deportation campaign.`\
+https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-security.html
+
+**Israel Begins Assault in Southern Beirut, Raising Fears of Wider Incursion**\
+`As the war with Iran threatens to engulf more countries in the region, President Trump said he wanted to be involved in picking a new leader in Tehran.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-evacuation-lebanon-iran-trump.html
+
 **Predators trading Michael Bunting to Stars: Source**\
 `Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
 https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
 **House Turns Back Bid to Restrict Trump’s War Powers in Iran**\
 `A handful of Democrats joined Republicans to defeat an effort to force President Trump to go to Congress for approval to continue using force against Iran, while two G.O.P. lawmakers backed it.`\
 https://nytimes.com/2026/03/05/us/politics/trump-war-powers-iran-house-vote.html
-
-**WAFCON was postponed due to 'unforeseen circumstances'. CAF's lack of clarity harms its future**\
-`CAF's handling impacts the players the most with 2027 Women's World Cup implications`\
-https://nytimes.com/athletic/7072020/2026/03/05/wafcon-2026-postpond-caf-tournament/
-
-**Could Columbus be the destination for NWSL's next expansion team?**\
-`U.S. women's national team head coach Emma Hayes said it would be "fantastic" to have an NWSL franchise in the Ohio capital. `\
-https://nytimes.com/athletic/7089064/2026/03/05/columbus-ohio-nwsl-expansion-interest-explained/
 
