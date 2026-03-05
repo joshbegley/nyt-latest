@@ -1,3 +1,11 @@
+**A.I. Videos Distort Damage From Iranian Strikes**\
+`After Iran’s retaliatory strikes across the Middle East, A.I.-generated imagery claiming to show massive explosions or exaggerated destruction at or near targeted sites have been spreading on social media.`\
+https://nytimes.com/video/world/middleeast/100000010748622/iran-ai-disinfo.html
+
+**Edu's Forest future in doubt but likely to be decided in summer**\
+`Any further changes at the City Ground are likely to come at the end of the season, as head coach Vitor Pereira prioritises stability.`\
+https://nytimes.com/athletic/7090888/2026/03/05/edu-nottingham-forest-future/
+
 **Bears moving on without DJ Moore, but memories of his biggest moments will last**\
 `A miscommunication with Caleb Williams ended the Bears' season and, ultimately, Moore's time in Chicago. Will the trade be a win-win?`\
 https://nytimes.com/athletic/7090865/2026/03/05/bears-dj-moore-trade-memories/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7091106/2026/03/05/nets-vs-heat-stream-how-to-watch
 **How to watch Evansville vs. Northern Iowa men's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Evansville Purple Aces play the Northern Iowa Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7091100/2026/03/05/evansville-vs-northern-iowa-stream-how-to-watch-march-5/
-
-**How to watch Bulls vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091098/2026/03/05/bulls-vs-suns-stream-how-to-watch-march-5/
-
-**How to watch Alabama vs. Tennessee women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Tennessee Lady Volunteers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091096/2026/03/05/alabama-vs-tennessee-stream-how-to-watch-march-5/
 
