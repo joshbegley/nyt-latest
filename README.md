@@ -1,3 +1,15 @@
+**Jayson Tatum nearing return to Celtics' lineup after 10-month absence with Achilles tear**\
+`The Celtics' star is listed as questionable to play Friday. Without Tatum, the Celtics have surged to second place in the East. `\
+https://nytimes.com/athletic/7084541/2026/03/05/celtics-jayson-tatum-injury-achilles-tear-return/
+
+**States Sue to Stop Trump From Reviving Steep Tariffs**\
+`The lawsuit filed by two dozen states seeks to invalidate the president’s new, 10 percent global tax on imports.`\
+https://nytimes.com/2026/03/05/us/politics/states-lawsuit-trump-tariffs.html
+
+**Tomato-Cheddar Mac, Roasted Cabbage Salad With Spicy Lime Dressing, Sticky Date Oatmeal**\
+`A peek inside my Recipe Box.`\
+https://nytimes.com/2026/03/05/dining/tomato-cheddar-mac-roasted-cabbage-salad-with-spicy-lime-dressing-sticky-date-oatmeal.html
+
 **DJ Moore trade grades: Josh Allen gets the WR he needed, Bears' youth movement continues**\
 `Buffalo filled their biggest need with a vet, while the Bears freed up cap space thanks to a surplus of young pass-catchers.`\
 https://nytimes.com/athletic/7090417/2026/03/05/dj-moore-bills-bears-trade-grades/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/trump-ballroom-criticism.html
 **Colton Parayko invokes no-trade clause, nullifying potential Blues-Sabres trade**\
 `Parayko has one goal and 14 points in 58 games in 2025-26, with a minus-14 rating.`\
 https://nytimes.com/athletic/7088870/2026/03/05/blues-sabres-colton-parayko-trade/
-
-**UK government joins Paralympic opening ceremony boycott over Russia, Belarus participation**\
-`It was confirmed in February that Russian and Belarusian athletes would be able to compete at the Paralympics under their own flag.`\
-https://nytimes.com/athletic/7090191/2026/03/05/winter-olympic-opening-ceremony-boycott/
-
-**The Windup: My favorite WBC underdog**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7090405/2026/03/05/my-favorite-wbc-underdog-the-windup/
-
-**The Iran War, History and the Law**\
-`Readers discuss historical and legal aspects of the war. Also: Richard Nixon and a Watergate episode; America’s voting problem; scenes from “The Pitt.”`\
-https://nytimes.com/2026/03/05/opinion/iran-war-history-law.html
 
