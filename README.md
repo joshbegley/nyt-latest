@@ -1,3 +1,7 @@
+**Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
+`Igor Tudor is a specialist in fixing broken teams. Tottenham look to have got worse`\
+https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job/
+
 **Louisiana Tech suing Conference USA in effort to leave early for Sun Belt**\
 `CUSA bylaws require 14 months notice to depart the conference, and the sides have not come to a financial agreement to allow an early split.`\
 https://nytimes.com/athletic/7091285/2026/03/05/louisiana-tech-sun-belt-cusa-lawsuit-realignment/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/markwayne-mullin-trump-homeland-secur
 **Israel Begins Assault in Southern Beirut, Raising Fears of Wider Incursion**\
 `As the war with Iran threatens to engulf more countries in the region, President Trump said he wanted to be involved in picking a new leader in Tehran.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-evacuation-lebanon-iran-trump.html
-
-**Predators trading Michael Bunting to Stars: Source**\
-`Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
-https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
 
