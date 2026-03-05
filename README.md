@@ -1,3 +1,7 @@
+**What do Brighton do about their problematic No 6 position?**\
+`Carlos Baleba could leave in the summer and James Milner has yet to decide on his plans, so Fabian Hurzeler may need reinforcements`\
+https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
+
 **West Ham are starting to believe a Mads end to the season will keep them in the Premier League**\
 `Nuno Espirito Santo was grateful to Mads Hermansen after the goalkeeper helped his side pick up three crucial points at Fulham`\
 https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010747493/on-the-ground-in-beir
 **Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
 `The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
 https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
-
-**Brennan Johnson, 648 minutes for Palace and no goals - why is he struggling?**\
-`The forward, signed from Spurs in January, has struggled to settle - what's gone wrong?`\
-https://nytimes.com/athletic/7079161/2026/03/05/brennan-johnson-crystal-palace/
 
