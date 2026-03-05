@@ -1,3 +1,11 @@
+**If this Knicks defense is here to stay, an NBA title is within their reach**\
+`If this Knicks defense continues to be as good as it showed in a nail-biter of a loss to Oklahoma City, then the sky is the limit.`\
+https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunder/
+
+**Lewis Hamilton experienced a winter of self-discovery: ‘You won’t see that person again'**\
+`Hamilton has outlined how he spent the F1 offseason recovering from a tough first season with Ferrari to be better this year.`\
+https://nytimes.com/athletic/7089218/2026/03/05/lewis-hamilton-ferrari-f1-2026/
+
 **Iran knocked out of Asian Cup by hosts Australia in 4-0 loss**\
 `The #68-ranked team are yet to score at the tournament.`\
 https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7087646/2026/03/05/panthers-mock-draft-monroe-freel
 **The Scott Laughton trade one year later: Right person, wrong deal for the Leafs**\
 `Laughton became one of the most popular players in the dressing room but fell short of filling his role in Toronto on the ice.`\
 https://nytimes.com/athletic/7088295/2026/03/05/scott-laughton-maple-leafs-trade/
-
-**What I learned at the NFL combine: Detroit Lions buzz and draft targets**\
-`Keldric Faulk and Kyle Louis make for interesting fits into Detroit's scheme, and multiple offensive linemen stood out in Indy.`\
-https://nytimes.com/athletic/7083679/2026/03/05/lions-combine-analysis-needs/
-
-**UConn's Sarah Strong: The Athletic's women's basketball Player of the Year**\
-`Strong's stat line was historic: 59.5 percent field goal shooting, 40.7 percent on 3-pointers and 88.1 percent on free throws.`\
-https://nytimes.com/athletic/7088237/2026/03/05/uconn-sarah-strong-player-of-the-year-the-athletic/
 
