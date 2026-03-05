@@ -18,6 +18,10 @@ https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
 `It remains one of the most divisive subjects in football. So what do the experts believe can be done to help improve VAR?`\
 https://nytimes.com/athletic/7086296/2026/03/05/var-referee-problems-fix/
 
+**This team have won 14 league titles in a row. Their dream of a world-record 15th is hanging by a thread**\
+`Despite coming from a small city, Ludogorets have won the Bulgarian First League in each of the 14 seasons since being promoted in 2011`\
+https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
+
 **Can Wolves stage the greatest of Premier League great escapes?**\
 `Wolves have the easiest run-in and the momentum of big wins behind them. They couldn't, could they?`\
 https://nytimes.com/athletic/7086604/2026/03/05/wolves-premier-league-survival-chances/
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/7081676/2026/03/05/grading-football-fairytales/
 **Liverpool have become a slow team. And that's a problem**\
 `Gone are the days of Liverpool flying forward in a red blur. The tempo has dropped - and so has the excitement`\
 https://nytimes.com/athletic/7086660/2026/03/05/liverpool-slow-football/
-
-**This team have won 14 league titles in a row. Their dream of a world-record 15th is hanging by a thread**\
-`Despite coming from a small city, Ludogorets have won the Bulgarian First League in each of the 14 seasons since being promoted in 2011`\
-https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
 
 **How Welcome To Wrexham is preparing for Chelsea FA Cup tie: 'The storyline sells itself'**\
 `Saturday's FA Cup game at the Racecourse Ground is a big day for the documentary crew`\
