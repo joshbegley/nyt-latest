@@ -1,40 +1,40 @@
-**They Survived the 24 Hours That Rocked South Korea’s Markets**\
-`After explosive growth in recent months, the country’s benchmark stock index plummeted, then rebounded, in the wake of the U.S. and Israeli attacks on Iran.`\
-https://nytimes.com/2026/03/05/business/south-korea-markets.html
+**Who’s Running for Governor of California?**\
+`A cluster of lesser-known Democrats, two Republicans and a Green candidate will fight for the attention of frustrated voters.`\
+https://nytimes.com/interactive/2026/03/05/us/politics/california-governor-race.html
 
-**Villa still in process of registering January signing Brian Madjo**\
-`Madjo joined in a deal worth in the region of £10million from Metz but is yet to play for any of Villa's teams.`\
-https://nytimes.com/athletic/7086928/2026/03/05/brian-madjo-aston-villa-transfer-register/
+**Seeking a House in Seattle for About $600,000**\
+`After a decade of renting apartments around the city, a first-time buyer wanted ‘something a little quieter,’ but centrally located. Here’s what he found.`\
+https://nytimes.com/interactive/2026/03/05/realestate/seattle-homes-for-sale.html
 
-**Athletes reflect on 50 years of Winter Paralympics, growth and the work still to do**\
-`As the Winter Paralympics turn 50, the event is bigger than ever but still has plenty of room to improve.`\
-https://nytimes.com/athletic/7081033/2026/03/05/paralympics-2026-winter-history-growth-progress-future/
+**Does the Iran War Put America First?**\
+`How the antiwar right sees Trump’s foreign policy.`\
+https://nytimes.com/2026/03/05/opinion/iran-us-foreign-policy-curt-mills.html
 
-**Carney Says Canada and Australia Can ‘Set the Agenda’ as World Faces ‘Crises’**\
-`The Canadian prime minister is touring the Asia-Pacific to rejuvenate alliances in the wake of the U.S. trade war and President Trump’s calls for Canada’s annexation.`\
-https://nytimes.com/2026/03/05/world/canada/carney-australia.html
+**What Is Trump Up To in Iran?**\
+`Well, that was a week.`\
+https://nytimes.com/2026/03/05/opinion/iran-war-trump-texas-talarico.html
 
-**Here is the latest.**\
-`By Yan Zhuang and Leily Nikounazar`\
-https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/here-is-the-latest
+**Iran Has Friends, but Where Are They Now?**\
+`Iran maintains ties with a range of countries, including Turkey, India, Russia and China. Yet in this war, their support is mostly rhetoric.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-turkey-india-russia.html
 
-**Live Updates: Iran Denies Firing Missile at Turkey as Crisis Spills Beyond Middle East**\
-`The assertion came after Turkey, a member of NATO, said that the alliance shot down a ballistic missile headed toward Turkish airspace.`\
-https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump
+**Druski Can’t Believe He’s Getting Away With All This, Either**\
+`The comedian is building a galaxy of collaborators — Timothée Chalamet, Kai Cenat and Justin Bieber — and telling us how they fit into his future.`\
+https://nytimes.com/2026/03/05/arts/druski-popcast-timothee-chalamet-skits.html
 
-**Winding Paths**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/03/05/learning/winding-paths.html
+**Trump Wants a Quick Victory in Iran. But the War May Be Costly.**\
+`The opening days of the conflict are challenging the idea that President Trump can project force abroad while safeguarding American lives and the economy.`\
+https://nytimes.com/2026/03/05/us/politics/trump-iran-war-deaths.html
 
-**$2.5 Million Rift Pits Cannabis Pioneer Against Group That Backed Her**\
-`A dispute between the nonprofit Housing Works and the owner of a cannabis dispensary shows the risks for businesses in an industry that is locked out of traditional financing and resources.`\
-https://nytimes.com/2026/03/05/nyregion/cannabis-housingworks-new-york-dispute.html
+**You’ve Never Seen Ants Like This Before**\
+`The Antscan database captures the tiny insects’ diversity and shows how the world’s living things could be rendered in three dimensions.`\
+https://nytimes.com/2026/03/05/science/ants-3d-scans.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/05/crosswords/spelling-bee-forum.html
+**A Political Earthquake Rattles the North Carolina Legislature**\
+`Voters across this politically purple state made it clear on Tuesday that they wanted to punish the powerful on both sides of the aisle. It may be a warning to incumbents elsewhere.`\
+https://nytimes.com/2026/03/05/us/north-carolina-primary-election-legislature.html
 
-**Late Night Doesn’t Understand Why America Is Attacking Iran**\
-`“This could be the first war ever launched based on vibes,” Jimmy Fallon said.`\
-https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
+**How War in the Persian Gulf Could Spill Into the U.S. Economy**\
+`Rising energy prices, snarled supply chains and higher government debt could all hurt American consumers.`\
+https://nytimes.com/2026/03/05/business/economy/iran-oil-economy-consumers.html
 
