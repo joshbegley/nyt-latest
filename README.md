@@ -1,3 +1,7 @@
+**Post Iran: Vance vs. Carlson in 2028?**\
+`The war in Iran may have a lasting impact on the political careers of Trump’s closest allies. On “Interesting Times,” Curt Mills, the executive director of the American Conservative, shares his thoughts on how Trump’s interventionist policies might play out in the 2028 Republican primaries.`\
+https://nytimes.com/video/opinion/100000010754473/post-iran-vance-vs-carlson-in-2028.html
+
 **Bob Harlan, ex-Packers president who hired two GMs who won Super Bowls, dies at 89**\
 `Harlan helped return one of the NFL's iconic franchises to relevance when Green Bay won its first Super Bowl in 29 years in the 1996 season.`\
 https://nytimes.com/athletic/7091500/2026/03/05/bob-harlan-obituary-packers-president-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-de
 **2026 Winter Paralympics medal count**\
 ``\
 https://nytimes.com/athletic/7081303/2026/03/05/2026-winter-paralympics-medal-count/
-
-**Trump Fires His Homeland Security Secretary**\
-`Also, child care costs are rising fast. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/03/05/briefing/trump-kristi-noem-iran-next-leader.html
 
