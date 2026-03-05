@@ -1,3 +1,7 @@
+**Trump Follows His Gut. His National Security Advisers Try to Keep Up.**\
+`Decisions come fast, even if contradictions and inconsistencies abound. But without much of a process, there is little preparation for how things can go wrong.`\
+https://nytimes.com/2026/03/04/us/politics/trump-national-security.html
+
 **Experts doubt Tehran’s claims of advanced ‘hypersonic’ missiles.**\
 `As Iran fires fewer ballistic missiles, experts doubt Tehran is saving more advanced weapons.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-doubt-tehrans-claims-of-advanced-hypersonic-missiles
