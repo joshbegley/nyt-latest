@@ -1,3 +1,7 @@
+**Astros' Jeremy Peña out for WBC with finger fracture**\
+`Isaac Paredes would need to handle a more prominent role if Houston's shortstop is unavailable for Opening Day.`\
+https://nytimes.com/athletic/7089016/2026/03/05/world-baseball-classic-jeremy-pena-injury/
+
 **What’s Going On in This Graph? | March 11, 2026**\
 `How safe are self-driving cars?`\
 https://nytimes.com/2026/03/05/learning/whats-going-on-in-this-graph-march-11-2026.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/7090024/2026/03/05/england-mccullum-brook-t20-ashes
 https://nytimes.com/2026/03/05/climate/climate-forward-science-federal-cuts.html
 
 **Nature Report, Killed by Trump, Is Released Independently**\
-`A draft assessment of the health of nature in the United States is grim but features bright spots.`\
+`A draft assessment of the health of nature in the United States is grim but shot through with bright spots and possibility.`\
 https://nytimes.com/2026/03/05/climate/trump-nature-assessment.html
 
 **Lindsey Halligan Is Under Investigation by the Florida Bar**\
 `The actions of Ms. Halligan, who as a U.S. attorney brought criminal cases against President Trump’s enemies, are under review by the organization that licensed her to practice law.`\
 https://nytimes.com/2026/03/05/us/politics/lindsey-halligan-investigation-florida-bar.html
-
-**French Officer Accused of Shooting Teen to Be Charged Only With Manslaughter**\
-`The shooting of Nahel Merzouk in 2023 set off unrest across France, where his treatment was seen as emblematic of police brutality toward ethnic minorities.`\
-https://nytimes.com/2026/03/05/world/europe/france-shooting-teen-car-manslaughter-trial.html
 
