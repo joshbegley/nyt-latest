@@ -1,3 +1,7 @@
+**Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
+`Igor Tudor is a specialist in fixing broken teams — but Tottenham look to have gotten worse`\
+https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job-premier-league-crystal-palace/
+
 **Fewer Pregnant Women Received Acetaminophen in E.R.s After White House Warnings**\
 `A new analysis of prescription data found that emergency room orders for acetaminophen for pregnant women fell for weeks after the federal warning.`\
 https://nytimes.com/2026/03/05/health/tylenol-acetaminophen-autism-trump.html

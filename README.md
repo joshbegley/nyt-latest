@@ -1,3 +1,7 @@
+**Rebuild or reload, the Leafs need as many (good) assets as they can get**\
+`The Leafs are off to a good start with a first-round pick and a conditional fifth for Nicolas Roy. Now they need to keep the momentum going.`\
+https://nytimes.com/athletic/7090971/2026/03/05/maple-leafs-nhl-trade-deadline-picks-assets-roy/
+
 **Fewer Pregnant Women Received Acetaminophen in E.R.s After White House Warnings**\
 `A new analysis of prescription data found that emergency room orders for acetaminophen for pregnant women fell for weeks after the federal warning.`\
 https://nytimes.com/2026/03/05/health/tylenol-acetaminophen-autism-trump.html
@@ -19,7 +23,7 @@ https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.ht
 https://nytimes.com/2026/03/05/us/politics/sec-justin-sun.html
 
 **Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
-`Igor Tudor is a specialist in fixing broken teams — but Tottenham look to have gotten worse`\
+`Igor Tudor is a specialist in fixing broken teams — but Tottenham look to have gotten worse in his three games in charge`\
 https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job-premier-league-crystal-palace/
 
 **Louisiana Tech suing Conference USA in effort to leave early for Sun Belt**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/trump-noem-mullin-oklahoma-senate-sea
 **Iran delays naming a new leader out of security concerns, officials say.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/iran-delays-naming-a-new-leader-out-of-security-concerns-officials-say
-
-**The Pentagon Officially Notifies Anthropic That It Is a ‘Supply Chain Risk’**\
-`Anthropic has said it will sue the Defense Department over the designation, which could prevent the start-up from doing business with the U.S. government.`\
-https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-department.html
 

@@ -19,8 +19,8 @@ https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.ht
 https://nytimes.com/2026/03/05/us/politics/sec-justin-sun.html
 
 **Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
-`Igor Tudor is a specialist in fixing broken teams. Tottenham look to have got worse`\
-https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job/
+`Igor Tudor is a specialist in fixing broken teams — but Tottenham look to have gotten worse`\
+https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job-premier-league-crystal-palace/
 
 **Louisiana Tech suing Conference USA in effort to leave early for Sun Belt**\
 `CUSA bylaws require 14 months notice to depart the conference, and the sides have not come to a financial agreement to allow an early split.`\
