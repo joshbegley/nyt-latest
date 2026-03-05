@@ -1,40 +1,40 @@
-**Dressing Adult Desire**\
-`At Tom Ford, Haider Ackermann explores what might happen just before suits come undone.`\
-https://nytimes.com/2026/03/05/style/tom-ford-haider-ackermann-fall-2026.html
+**Who Is Eyal Zamir, the Architect of Israel’s War Plans?**\
+`The Israeli general has long been focused on the threat from Iran and its proxies, and has called for a regional alliance against the country.`\
+https://nytimes.com/2026/03/05/world/middleeast/eyal-zamir-profile-iran-war.html
 
-**How to watch Austin Peay vs. Eastern Kentucky women's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the Austin Peay Governors play the Eastern Kentucky Colonels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089295/2026/03/05/austin-peay-vs-eastern-kentucky-stream-how-to-watch-march-5/
+**U.S. Says It Torpedoed Iranian Ship**\
+`After the attack killed dozens of sailors, Iran’s foreign minister accused the United States of committing an “atrocity at sea.”`\
+https://nytimes.com/2026/03/05/world/middleeast/us-iran-iris-dena-ship-sri-lanka.html
 
-**How to watch Saint Bonaventure vs. Loyola Chicago women's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Bonaventure Bonnies play the Loyola Chicago Ramblers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089293/2026/03/05/saint-bonaventure-vs-loyola-chicago-stream-how-to-watch-march-5/
+**The NBA teams riding statistical droughts that feel impossible but apparently aren’t**\
+`From coast to coast, every franchise has numbers to be proud of — and a few anomalies that make you go, "Really?"`\
+https://nytimes.com/athletic/7071967/2026/03/05/nba-teams-statistical-drought-surprises-record/
 
-**How to watch Marist vs. Manhattan women's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Marist Red Foxes play the Manhattan Jaspers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089291/2026/03/05/marist-vs-manhattan-stream-how-to-watch-march-5/
+**Steelers' free agency to-do list: Re-sign Aaron Rodgers, Kenny G — then target these players**\
+`Using Daniel Popper's top 150 free agents as a guide, let's highlight a few players who make sense at critical positions for the Steelers.`\
+https://nytimes.com/athletic/7085334/2026/03/05/steelers-free-agency-targets-cap-space/
 
-**How to watch UMKC vs. South Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
-`Find out how to watch the UMKC Roos play the South Dakota State Jackrabbits, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089289/2026/03/05/umkc-vs-south-dakota-state-stream-how-to-watch-march-5/
+**Can AI help your fastball? This Mets pitcher thinks so**\
+`The son of an engineer created a pitching app and welcomes input from players of all ages: 'Let's do it together.'`\
+https://nytimes.com/athletic/7087632/2026/03/05/mets-ai-pitching-analytics-robert-stock/
 
-**How to watch South Alabama vs. Texas State women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the South Alabama Jaguars play the Texas State Bobcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089287/2026/03/05/south-alabama-vs-texas-state-stream-how-to-watch-march-5/
+**Ranking all 20 WBC teams, from the sure things to the Cinderellas to the seedlings**\
+`Which teams are most likely to win it all and which are just happy to be here? We break down the bracket. `\
+https://nytimes.com/athletic/7077982/2026/03/05/wbc-2026-team-rankings-guide/
 
-**How to watch Clemson vs. Virginia women's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089285/2026/03/05/clemson-vs-virginia-stream-how-to-watch-march-5/
+**Falcons mailbag: Should Atlanta explore the free-agent QB market?**\
+`The Falcons will have just one quarterback on the roster once Kirk Cousins is released next week. Will they sign another free agent?`\
+https://nytimes.com/athletic/7087091/2026/03/05/falcons-nfl-free-agency-qb-michael-penix-mailbag/
 
-**How to watch South Carolina Upstate vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the South Carolina Upstate Spartans play the High Point Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089284/2026/03/05/south-carolina-upstate-vs-high-point-stream-how-to-watch-march-5/
+**Bad news for the Colts? Alec Pierce wants to 'see what's out there' in free agency**\
+`The Colts hope to sign Pierce to a long-term deal, but he says he's earned the right to explore the free-agent market.`\
+https://nytimes.com/athletic/7088139/2026/03/05/colts-alec-pierce-free-agency-decision/
 
-**How to watch Kansas State vs. Texas Tech women's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Texas Tech Lady Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089281/2026/03/05/kansas-state-vs-texas-tech-stream-how-to-watch-march-5/
+**An inside look at NFL scouting reports, and the scouts who create them**\
+`An NFL scouting report can range from traditional sentences to a series of color-coded messages, shorthand terms and emoji-like tags.`\
+https://nytimes.com/athletic/7067790/2026/03/05/nfl-scouting-reports-grades-prospects/
 
-**How to watch Kentucky vs. Georgia women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Georgia Lady Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089279/2026/03/05/kentucky-vs-georgia-stream-how-to-watch-march-5/
+**New York Jets 7-round mock draft 2.0: A need that could arise after free agency**\
+`The Jets could also target the quarterback class deeper in the draft.`\
+https://nytimes.com/athletic/7087794/2026/03/05/new-york-jets-seven-round-mock-draft-2/
 
