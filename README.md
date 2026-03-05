@@ -1,3 +1,19 @@
+**The A's won't close door on Kyler Murray. But is MLB really an option?**\
+`General manager David Forst told MLB.com that his team is "always open to him exploring a return to baseball with the A’s."`\
+https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
+
+**In a Riskier Era, China Bets on Technology to Resist U.S. Pressure**\
+`China announced a 7 percent increase in military spending and a five-year plan to try to reduce its military and industry’s reliance on Western technology.`\
+https://nytimes.com/2026/03/04/world/asia/china-us-technology-trade-military.html
+
+**James Talarico Says ‘New Politics’ Is Being Born After Texas Primary Win**\
+`After clinching the Democratic Senate primary, he told supporters in Austin that the country’s real divide is between “top versus bottom,” not the left versus right.`\
+https://nytimes.com/2026/03/04/us/politics/talarico-victory-party.html
+
+**Lou Holtz's impact on broadcasting: Former colleagues remember a competitor and friend**\
+`ESPN's Rece Davis called working with Holtz "some of the best times of my career and my life."`\
+https://nytimes.com/athletic/7088493/2026/03/04/lou-holtz-infuence-broadcasting/
+
 **Top Aide to Labor Secretary Placed on Leave**\
 `Several of Labor Secretary Lori Chavez-DeRemer’s employees are under investigation for official misconduct under her leadership.`\
 https://nytimes.com/2026/03/04/business/economy/top-aide-to-labor-secretary-placed-on-leave.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oile
 **NHL trade grades: Mammoth make smart bet on MacKenzie Weegar, boosting blue line**\
 `This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
 https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
-
-**Blackhawks trade Dickinson, Dach to Oilers for Mangiapane, pick: Sources**\
-`The Blackhawks retained 50 percent of Dickinson’s $4.25 million cap hit and the condition of the draft pick is its top-12 protected.`\
-https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
-
-**Man Accused of Plotting to Kill Trump Blames Iran for Scheme**\
-`Asif Merchant testified in his own defense, saying he participated in the plot to protect his family in Iran. Prosecutors reject his account of his motives.`\
-https://nytimes.com/2026/03/04/nyregion/iran-blackmail-trump-assassination-plot.html
-
-**Daines Drops Re-election Bid in Montana, Upending a Senate Race**\
-`The surprise announcement by Senator Steve Daines could give Democrats a slim opening in the Republican-leaning state in their uphill fight to take the Senate majority.`\
-https://nytimes.com/2026/03/04/us/elections/steve-daines-out-montana-senate-race.html
-
-**Flames' MacKenzie Weegar waives no-trade clause for deal to Mammoth**\
-`The 32-year-old defenseman's contract goes through 2031 with a $6.25 million cap hit.`\
-https://nytimes.com/athletic/7087974/2026/03/04/flames-mackenzie-weegar-trade-mammoth/
 
