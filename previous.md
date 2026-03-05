@@ -1,3 +1,15 @@
+**NHL trade board 9.0: The latest on all the top targets on Deadline Day eve**\
+`As we count down to 3 p.m. ET on Friday, it appears we’ll see more “hockey” moves than usual.`\
+https://nytimes.com/athletic/7089447/2026/03/05/nhl-trade-board-bobrovsky-trocheck-ekman-larsson/
+
+**How to watch Lindenwood vs. Southeast Missouri State men's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Lindenwood Lions play the Southeast Missouri State Redhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090923/2026/03/05/lindenwood-vs-southeast-missouri-state-stream-how-to-watch-march-5/
+
+**How to watch Saint Louis vs. La Salle women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Saint Louis Billikens play the La Salle Explorers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090912/2026/03/05/saint-louis-vs-la-salle-stream-how-to-watch-march-5/
+
 **How to watch Kansas vs. Colorado women's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7090900/2026/03/05/kansas-vs-colorado-stream-how-to-watch-march-5/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/05/books/review/new-recommended-books.html
 **The Free Press Is Under Threat Globally**\
 `The rising global attacks on the free press reveal increasingly desperate regimes attempting to snuff out attempts to find the truth.`\
 https://nytimes.com/2026/03/05/opinion/free-press-repression-journalists-prison.html
-
-**Days Before Firing, Noem Faced Criticism Over $220 Million Ad Campaign**\
-`During a Senate Judiciary Committee hearing, lawmakers from both parties questioned Kristi Noem about an ad campaign that featured her, for which the government paid $220 million. President Trump fired Ms. Noem on Thursday.`\
-https://nytimes.com/video/us/politics/100000010756443/noem-fired-220-million-ads.html
-
-**Did England do enough at the T20 World Cup to make up for their Ashes failure?**\
-`There were thrills and spills in defeat to India but, if white-ball progress is encouraging, coach Brendon McCullum remains under scrutiny`\
-https://nytimes.com/athletic/7090024/2026/03/05/england-mccullum-brook-t20-ashes/
-
-**Feeling the Effects of 260,000 Federal Jobs Lost**\
-`One year in, assessing budget cuts to federal climate and science jobs.`\
-https://nytimes.com/2026/03/05/climate/climate-forward-science-federal-cuts.html
 
