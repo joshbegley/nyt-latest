@@ -1,3 +1,27 @@
+**Nobody is going to save Spurs but these players. They have to start performing**\
+`The reality is that if the worst happens over the last 10 league games, it will mark the reputations of this group forever`\
+https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
+
+**VAR: What's wrong and how to fix it**\
+`It remains one of the most divisive subjects in football. So what do the experts believe can be done to help improve VAR?`\
+https://nytimes.com/athletic/7086296/2026/03/05/var-referee-problems-fix/
+
+**Can Wolves stage the greatest of Premier League great escapes?**\
+`Wolves have the easiest run-in and the momentum of big wins behind them. They couldn't, could they?`\
+https://nytimes.com/athletic/7086604/2026/03/05/wolves-premier-league-survival-chances/
+
+**How magical are football's fairytales? Grading them, from fabulous to fake**\
+`Wrexham's rise is a great story, whatever you think about how they have done it. How does it compare to other unlikely tales?`\
+https://nytimes.com/athletic/7081676/2026/03/05/grading-football-fairytales/
+
+**Liverpool have become a slow team. And that's a problem**\
+`Gone are the days of Liverpool flying forward in a red blur. The tempo has dropped - and so has the excitement`\
+https://nytimes.com/athletic/7086660/2026/03/05/liverpool-slow-football/
+
+**This team have won 14 league titles in a row. Their dream of a world-record 15th is hanging by a thread**\
+`Despite coming from a small city, Ludogorets have won the Bulgarian First League in each of the 14 seasons since being promoted in 2011`\
+https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
+
 **How Welcome To Wrexham is preparing for Chelsea FA Cup tie: 'The storyline sells itself'**\
 `Saturday's FA Cup game at the Racecourse Ground is a big day for the documentary crew`\
 https://nytimes.com/athletic/7072518/2026/03/05/welcome-to-wrexham-chelsea-fa-cup/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/05/world/australia/bondi-australia-memorial.html
 **Connections: Sports Edition Coach: Hints and answers for March 5, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7088975/2026/03/05/connections-sports-edition-hints-answers-march-5-2026/
-
-**Corrections: March 5, 2026**\
-`Corrections that appeared in print on Thursday, March 5, 2026.`\
-https://nytimes.com/2026/03/05/pageoneplus/corrections-march-5-2026.html
-
-**Quote of the Day: Global Leaders Brace For Fallout From War**\
-`Quotation of the Day for Thursday, March 5, 2026.`\
-https://nytimes.com/2026/03/04/pageoneplus/quote-of-the-day-global-leaders-brace-for-fallout-from-war.html
-
-**Hornets' string of statement victories, sustained winning proof rebuilding days are over**\
-`Even if the Hornets finish only .500 on the season, the reasons would be more promising than any basketball from recent years.`\
-https://nytimes.com/athletic/7088763/2026/03/04/hornets-celtics-kon-knueppel-nba-statement-win/
-
-**Breanna Stewart outduels Kelsey Plum as Mist claim Unrivaled championship**\
-`The Mist captain scored 32 points to overcome Plum's 40 and win the title.`\
-https://nytimes.com/athletic/7088954/2026/03/04/breanna-stewart-unrivaled-championship-mist/
-
-**The A's won't close door on Kyler Murray. But is MLB really an option?**\
-`General manager David Forst said his team is "always open to him exploring a return to baseball with the A’s."`\
-https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
-
-**In a Riskier Era, China Bets on Technology to Resist U.S. Pressure**\
-`China announced a 7 percent increase in military spending and a five-year plan to try to reduce its military and industry’s reliance on Western technology.`\
-https://nytimes.com/2026/03/04/world/asia/china-us-technology-trade-military.html
 
