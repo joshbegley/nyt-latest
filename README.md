@@ -1,3 +1,7 @@
+**A long way from home at WBC, underdogs from Czechia adopted by fans in Tokyo**\
+`The 2026 World Baseball Classic is underway in Tokyo, where Australia and Korea were winners and the fans were ready to roar.`\
+https://nytimes.com/athletic/7089206/2026/03/05/world-baseball-classic-australia-korea/
+
 **NATO’s chief downplays the risks of the alliance being drawn into the conflict.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/natos-chief-downplays-the-risks-of-the-alliance-being-drawn-into-the-conflict
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089509/2026/03/05/florida-vs-oklahoma-stream-how-t
 **How to watch Southeast Missouri State vs. Morehead State women's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Southeast Missouri State Redhawks play the Morehead State Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089507/2026/03/05/southeast-missouri-state-vs-morehead-state-stream-how-to-watch-march-5/
-
-**How to watch Seattle U vs. Washington State women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Seattle U Redhawks play the Washington State Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089503/2026/03/05/seattle-u-vs-washington-state-stream-how-to-watch-march-5/
 
