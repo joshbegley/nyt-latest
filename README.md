@@ -1,3 +1,7 @@
+**Iranian Drones Fall in Azerbaijan as Conflict Spreads Farther Beyond Mideast**\
+`Azerbaijan says the attack “will not remain unanswered,” as  the neighbors with a long history of tensions found themselves again at odds.`\
+https://nytimes.com/2026/03/05/world/middleeast/azerbaijan-iran-drone-attack-airport.html
+
 **If this Knicks defense is here to stay, an NBA title is within their reach**\
 `If this Knicks defense continues to be as good as it showed in a nail-biter of a loss to Oklahoma City, then the sky is the limit.`\
 https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunder/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunde
 `Hamilton has outlined how he spent the F1 offseason recovering from a tough first season with Ferrari to be better this year.`\
 https://nytimes.com/athletic/7089218/2026/03/05/lewis-hamilton-ferrari-f1-2026/
 
-**Iran knocked out of Asian Cup by hosts Australia in 4-0 loss**\
+**Iran face Asian Cup elimination after 4-0 loss to hosts Australia**\
 `The #68-ranked team are yet to score at the tournament.`\
 https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088846/2026/03/05/detroit-red-wings-nhl-trade-dead
 **Panthers mock draft 2.0: SEC O-linemen enter the chat, along with defensive playmakers**\
 `A mock draft trade gives the Panthers four picks within the first 100 with offensive tackle the priority in Round 1.`\
 https://nytimes.com/athletic/7087646/2026/03/05/panthers-mock-draft-monroe-freeling-first-round/
-
-**The Scott Laughton trade one year later: Right person, wrong deal for the Leafs**\
-`Laughton became one of the most popular players in the dressing room but fell short of filling his role in Toronto on the ice.`\
-https://nytimes.com/athletic/7088295/2026/03/05/scott-laughton-maple-leafs-trade/
 
