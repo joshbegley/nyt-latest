@@ -1,3 +1,15 @@
+**Slurs Filled Chat Created by a Republican Party Official in Florida**\
+`After the secretary of the Miami-Dade County Republican Party created the chat for college students, it devolved into slurs against Black and Jewish people.`\
+https://nytimes.com/2026/03/05/us/florida-gop-slurs-group-chat.html
+
+**Mamdani Administration to Close Massive Homeless Shelter in Manhattan**\
+`The 30th Street Shelter at the former Bellevue psychiatric hospital has been in disrepair for years.`\
+https://nytimes.com/2026/03/05/nyregion/bellevue-homeless-shelter-closing.html
+
+**Trump Announces He Is Replacing Noem With Oklahoma Senator**\
+`The president tapped Markwayne Mullin as the new homeland security secretary after Kristi Noem was grilled by Republicans at a congressional hearing.`\
+https://nytimes.com/2026/03/05/us/politics/kristi-noem-markwayne-mullin-trump.html
+
 **House Republicans Tell Gonzales to Quit Re-Election Campaign**\
 `The call came a day after the Texas congressman admitted to an extramarital affair with an aide, and as he faced a runoff to keep his seat.`\
 https://nytimes.com/2026/03/05/us/politics/house-republicans-gonzales.html
