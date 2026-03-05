@@ -1,3 +1,11 @@
+**Man Accused of Plotting to Kill Trump Blames Iran for Scheme**\
+`Asif Merchant testified in his own defense, saying he participated in the plot to protect his family in Iran. Prosecutors reject his account of his motives.`\
+https://nytimes.com/2026/03/04/nyregion/iran-blackmail-trump-assassination-plot.html
+
+**Daines Drops Re-election Bid in Montana, Upending a Senate Race**\
+`The surprise announcement by Senator Steve Daines could give Democrats a slim opening in the Republican-leaning state in their uphill fight to take the Senate majority.`\
+https://nytimes.com/2026/03/04/us/elections/steve-daines-out-montana-senate-race.html
+
 **Flames' MacKenzie Weegar waives no-trade clause for deal to Mammoth: Sources**\
 `The 32-year-old defenseman's contract goes through 2031 with a $6.25 million cap hit.`\
 https://nytimes.com/athletic/7087974/2026/03/04/flames-mackenzie-weegar-trade-mammoth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7088480/2026/03/04/steelers-to-release-te-jonnu-smi
 **U.S. Court Takes First Steps Toward Ordering Tariff Refunds**\
 `The Trump administration is likely to appeal the move, as it ramps up its attempt to slow or potentially block the repayment of billions in past duties.`\
 https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html
-
-**Aston Martin F1 drivers at risk of nerve damage from car vibrations, will have laps capped in Australia**\
-`Aston Martin will retire early from the Australian Grand Prix due to an unsafe vibration in the car`\
-https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-retire-early-nerve-damage-risk/
-
-**Pro-American Kurdish Forces Are Preparing Possible Iran Incursion**\
-`The C.I.A. has given small weapons to Iranian Kurdish forces in Iraq in a covert program that began before the current war.`\
-https://nytimes.com/2026/03/04/us/politics/kurds-trump-iran-war.html
 

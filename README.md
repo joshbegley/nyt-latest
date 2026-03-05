@@ -1,3 +1,7 @@
+**Blackhawks trade Jason Dickinson, Colton Dach to Oilers for Andrew Mangiapane, pick: Sources**\
+`Dickinson, 30, is a pending unrestricted free agent with a $4.25 million cap hit.`\
+https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
+
 **Man Accused of Plotting to Kill Trump Blames Iran for Scheme**\
 `Asif Merchant testified in his own defense, saying he participated in the plot to protect his family in Iran. Prosecutors reject his account of his motives.`\
 https://nytimes.com/2026/03/04/nyregion/iran-blackmail-trump-assassination-plot.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-
 **Steelers to release TE Jonnu Smith, underscoring commitment to Pat Freiermuth: Source**\
 `The move frees up cap space and helps alleviate a depth-chart logjam.`\
 https://nytimes.com/athletic/7088480/2026/03/04/steelers-to-release-te-jonnu-smith-underscoring-commitment-to-pat-freiermuth/
-
-**U.S. Court Takes First Steps Toward Ordering Tariff Refunds**\
-`The Trump administration is likely to appeal the move, as it ramps up its attempt to slow or potentially block the repayment of billions in past duties.`\
-https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html
 
