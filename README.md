@@ -1,3 +1,15 @@
+**Brennan Johnson, 648 minutes for Palace and no goals - why is he struggling?**\
+`The forward, signed from Spurs in January, has struggled to settle - what's gone wrong?`\
+https://nytimes.com/athletic/7079161/2026/03/05/brennan-johnson-crystal-palace/
+
+**Barcelona's search for a new No 9 - and what it means for Rashford and Lewandowski**\
+`The Spanish champions are in the market for a new central striker. Here's what we're hearing on who they have in mind`\
+https://nytimes.com/athletic/7086892/2026/03/05/barcelona-lewandowski-alvarez-transfers-rashford/
+
+**A night for Forest heroes and renewed hope, but the path to safety remains perilously narrow**\
+`A huge three points against title-chasing City has brought hope to Forest, but the margins between survival and relegation are wafer-thin.`\
+https://nytimes.com/athletic/7088184/2026/03/05/nottingham-forest-man-city-heroes/
+
 **Nobody is going to save Spurs but these players. They have to start performing**\
 `The reality is that if the worst happens over the last 10 league games, it will mark the reputations of this group forever`\
 https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7083434/2026/03/05/ludogorets-world-record-titles/
 **How Welcome To Wrexham is preparing for Chelsea FA Cup tie: 'The storyline sells itself'**\
 `Saturday's FA Cup game at the Racecourse Ground is a big day for the documentary crew`\
 https://nytimes.com/athletic/7072518/2026/03/05/welcome-to-wrexham-chelsea-fa-cup/
-
-**Senate Republicans Block Limits to Trump’s War Powers**\
-`Senate Republicans voted against a Democratic bill that would have required President Trump to obtain congressional authorization to continue waging war against Iran.`\
-https://nytimes.com/video/us/politics/100000010755053/iran-trump-senate-war-powers.html
-
-**Australia Moves to Memorialize an Atrocity That’s ‘Not History Yet’**\
-`The country and its small Jewish community are still trying to process the mass shooting at Bondi Beach in December.`\
-https://nytimes.com/2026/03/05/world/australia/bondi-australia-memorial.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 5, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7088975/2026/03/05/connections-sports-edition-hints-answers-march-5-2026/
 
