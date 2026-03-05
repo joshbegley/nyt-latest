@@ -1,3 +1,15 @@
+**Nepal Heads to the Polls to Elect New Government**\
+`Nepalis voted for a new government on Thursday, the first elections since Gen Z-led protests upended the country in the fall.`\
+https://nytimes.com/video/world/asia/100000010756361/nepal-elections-politics-kathmandu.html
+
+**Tottenham 1 Crystal Palace 3 - Are Spurs going down? What was Van de Ven thinking?**\
+`Analysis of Tottenham's calamitous Premier League home defeat by Crystal Palace`\
+https://nytimes.com/athletic/7083602/2026/03/05/tottenham-relegation-chances/
+
+**House Turns Back Bid to Restrict Trump’s War Powers in Iran**\
+`A handful of Democrats joined Republicans to defeat an effort to force President Trump to go to Congress for approval to continue using force against Iran, while two G.O.P. lawmakers backed it.`\
+https://nytimes.com/2026/03/05/us/politics/trump-war-powers-iran-house-vote.html
+
 **WAFCON was postponed due to 'unforeseen circumstances'. CAF's lack of clarity harms its future**\
 `CAF's handling impacts the players the most with 2027 Women's World Cup implications`\
 https://nytimes.com/athletic/7072020/2026/03/05/wafcon-2026-postpond-caf-tournament/
