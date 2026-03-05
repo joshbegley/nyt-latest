@@ -1,3 +1,15 @@
+**How to watch Kansas vs. Colorado women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090900/2026/03/05/kansas-vs-colorado-stream-how-to-watch-march-5/
+
+**Desperate travelers wait as Dubai resumes a few flights.**\
+`As Iranian missile strikes continue to the U.A.E., stranded passengers at Dubai International Airport anxiously await a way back home.`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/desperate-travelers-wait-as-dubai-resumes-a-few-flights
+
+**Astros' Jeremy Peña out for WBC with finger fracture**\
+`Isaac Paredes would need to handle a more prominent role if Houston's shortstop is unavailable for Opening Day.`\
+https://nytimes.com/athletic/7089016/2026/03/05/world-baseball-classic-jeremy-pena-injury/
+
 **What’s Going On in This Graph? | March 11, 2026**\
 `How safe are self-driving cars?`\
 https://nytimes.com/2026/03/05/learning/whats-going-on-in-this-graph-march-11-2026.html
