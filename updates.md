@@ -1,3 +1,7 @@
+**Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
+`The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
+https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
+
 **Late Night Doesn’t Understand Why America Is Attacking Iran**\
 `“This could be the first war ever launched based on vibes,” Jimmy Fallon said.`\
 https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
