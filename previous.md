@@ -1,3 +1,7 @@
+**Athletes reflect on 50 years of Winter Paralympics, growth and the work still to do**\
+`As the Winter Paralympics turn 50, the event is bigger than ever but still has plenty of room to improve.`\
+https://nytimes.com/athletic/7081033/2026/03/05/paralympics-2026-winter-history-growth-progress-future/
+
 **Carney Says Canada and Australia Can ‘Set the Agenda’ as World Faces ‘Crises’**\
 `The Canadian prime minister is touring the Asia-Pacific to rejuvenate alliances in the wake of the U.S. trade war and President Trump’s calls for Canada’s annexation.`\
 https://nytimes.com/2026/03/05/world/canada/carney-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
 **West Ham and Hermansen are starting to believe a Mads end to the season will keep them up**\
 `Head coach Nuno Espirito Santo was grateful to his goalkeeper after picking up three crucial points at Fulham`\
 https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
-
-**Word of the Day: solace**\
-`This word has appeared in 417 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
 
