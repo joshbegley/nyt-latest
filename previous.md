@@ -1,3 +1,7 @@
+**NHL trade grades: Mammoth make a smart bet on MacKenzie Weegar, boosting their blue line**\
+`This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
+https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
+
 **Blackhawks trade Jason Dickinson, Colton Dach to Oilers for Andrew Mangiapane, pick: Sources**\
 `Dickinson, 30, is a pending unrestricted free agent with a $4.25 million cap hit.`\
 https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/politics/trump-national-security.html
 **Experts doubt Tehran’s claims of advanced ‘hypersonic’ missiles.**\
 `As Iran fires fewer ballistic missiles, experts doubt Tehran is saving more advanced weapons.`\
 https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-doubt-tehrans-claims-of-advanced-hypersonic-missiles
-
-**Steelers to release TE Jonnu Smith, underscoring commitment to Pat Freiermuth: Source**\
-`The move frees up cap space and helps alleviate a depth-chart logjam.`\
-https://nytimes.com/athletic/7088480/2026/03/04/steelers-to-release-te-jonnu-smith-underscoring-commitment-to-pat-freiermuth/
 
