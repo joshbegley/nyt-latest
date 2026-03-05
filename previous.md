@@ -1,3 +1,7 @@
+**Contract for El Paso ICE Center Is Under Review, Homeland Security Says**\
+`Camp East Montana in Texas has been under growing scrutiny over its living conditions and has been grappling with a measles outbreak.`\
+https://nytimes.com/2026/03/04/us/ice-el-paso-detention-center-dhs.html
+
 **NHL trade grades: Oilers make win-now bet on Jason Dickinson, Blackhawks get great return**\
 `Jason Dickinson is solid, reliable defensive player on a team that needs some reliability and defense.`\
 https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oilers-jason-dickinson/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/elections/north-carolina-district-4-primary.ht
 **China Sets Economy’s Growth Target Below 5% for First Time in Decades**\
 `The goal, announced at a gathering of Communist Party leaders, was the lowest since 1991 and can offer clues about China’s policymaking plans.`\
 https://nytimes.com/2026/03/04/business/china-gdp-target-2025.html
-
-**Trump Follows His Gut. His National Security Advisers Try to Keep Up.**\
-`Decisions come fast, even if contradictions and inconsistencies abound. But without much of a process, there is little preparation for how things can go wrong.`\
-https://nytimes.com/2026/03/04/us/politics/trump-national-security.html
 

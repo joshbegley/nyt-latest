@@ -1,3 +1,7 @@
+**Contract for El Paso ICE Center Is Under Review, Homeland Security Says**\
+`Camp East Montana in Texas has been under growing scrutiny over its living conditions and has been grappling with a measles outbreak.`\
+https://nytimes.com/2026/03/04/us/ice-el-paso-detention-center-dhs.html
+
 **Blackhawks trade Dickinson, Dach to Oilers for Mangiapane, pick: Sources**\
 `The Blackhawks retained 50 percent of Dickinson’s $4.25 million cap hit and the condition of the draft pick is its top-12 protected.`\
 https://nytimes.com/athletic/7076195/2026/03/04/blackhawks-oilers-dickinson-dach-mangiapane-trade/
