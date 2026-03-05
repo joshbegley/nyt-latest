@@ -1,3 +1,19 @@
+**Britney Spears Is Arrested by California Highway Patrol**\
+`“Hopefully this can be the first step in long overdue change that needs to occur in Britney’s life,” said a representative for the pop star.`\
+https://nytimes.com/2026/03/05/arts/music/britney-spears-arrest.html
+
+**Should New York City Burn Its Parks? This Scientist Thinks So.**\
+`An unusual outbreak of wildfires in city parks gave scientists a chance to study these rare events. Now they’re coming to different conclusions.`\
+https://nytimes.com/2026/03/05/climate/new-york-city-park-fires-controlled-burns.html
+
+**West Ham's Nuno in legal dispute with Forest over sacking**\
+`Nuno departed Forest just 75 days after signing a new three-year contract, having overseen qualification for the Europa League last term.`\
+https://nytimes.com/athletic/7089336/2026/03/05/nuno-espirito-santo-forest-dispute/
+
+**This Japanese Ground Beef Curry Is Comfort Food to Make on Repeat**\
+`If you’re not already familiar with the charms of Japanese curry bricks, allow this super simple recipe to introduce you.`\
+https://nytimes.com/2026/03/05/dining/this-japanese-ground-beef-curry-is-comfort-food-to-make-on-repeat.html
+
 **How $800 Monthly Car Payments Are Hurting Car Sales**\
 `Cars have become so expensive that many Americans are putting off or not buying new cars, hurting the auto industry.`\
 https://nytimes.com/2026/03/05/business/new-car-sales-payments-affordability.html
@@ -18,23 +34,7 @@ https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order
 `The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
 https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
 
-**Andrew McCutchen agrees to minor league deal with Rangers: Source**\
+**Andrew McCutchen agrees to minor-league deal with Rangers: Source**\
 `The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
 https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
-
-**Browns' Myles Garrett cited for ninth speeding ticket since entering NFL**\
-`Garrett received his second ticket for driving more than 90 mph since August of last year. `\
-https://nytimes.com/athletic/7089890/2026/03/05/myles-garrett-speeding-ticket-citations/
-
-**Chelsea's Neto facing potential further punishment for Arsenal red card**\
-`Neto received a second yellow card only a few minutes after his first against Arsenal, missing Wednesday's win over Aston Villa as a result.`\
-https://nytimes.com/athletic/7089852/2026/03/05/chelsea-neto-red-card-charge-punishment-arsenal/
-
-**How the University of Florida Prepares Students for the Age of AI**\
-`Universities look to UF for guidance in adding AI instruction to every major and discipline.`\
-https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida-prepares-students-for-the-age-of-ai.html
-
-**The Bounce: Was Thunder-Knicks a finals preview? Plus, a Tatum comeback conspiracy**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7089809/2026/03/05/knicks-thunder-jayson-tatum-nba-the-bounce/
 

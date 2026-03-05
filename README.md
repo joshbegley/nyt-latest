@@ -1,3 +1,7 @@
+**TNT to broadcast FIBA World Cup games featuring stars such as Caitlin Clark**\
+`TNT's sports channels will begin showing FIBA games, beginning with a 2026 women’s World Cup qualifying tournament March 11.`\
+https://nytimes.com/athletic/7089945/2026/03/05/tnt-fiba-world-cup-broadcast-caitlin-clark/
+
 **Britney Spears Is Arrested by California Highway Patrol**\
 `“Hopefully this can be the first step in long overdue change that needs to occur in Britney’s life,” said a representative for the pop star.`\
 https://nytimes.com/2026/03/05/arts/music/britney-spears-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order
 **Revolut, the British Finance App, Seeks a U.S. Banking Charter**\
 `The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
 https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
-
-**Andrew McCutchen agrees to minor-league deal with Rangers: Source**\
-`The deal officially ends McCutchen's second tenure in Pittsburgh, which began in 2023.`\
-https://nytimes.com/athletic/6784450/2026/03/05/mlb-andrew-mccutchen-free-agency-signing-texas-rangers/
 
