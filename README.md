@@ -6,8 +6,8 @@ https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
 `Carlos Baleba could leave in the summer and James Milner has yet to decide on his plans, so Fabian Hurzeler may need reinforcements`\
 https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
 
-**West Ham are starting to believe a Mads end to the season will keep them in the Premier League**\
-`Nuno Espirito Santo was grateful to Mads Hermansen after the goalkeeper helped his side pick up three crucial points at Fulham`\
+**West Ham and Hermansen are starting to believe a Mads end to the season will keep them up**\
+`Head coach Nuno Espirito Santo was grateful to his goalkeeper after picking up three crucial points at Fulham`\
 https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
 
 **Word of the Day: solace**\
