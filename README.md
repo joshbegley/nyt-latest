@@ -1,3 +1,11 @@
+**Wild notebook: Michael McCarron gets ribbed by new teammates, but 'glue guy' fits right in**\
+`The 6-foot-6 McCarron was acquired Wednesday from the Predators for a 2028 second-round pick.`\
+https://nytimes.com/athletic/7090755/2026/03/05/wild-michael-mccarron-trade-deadline/
+
+**Cooper Flagg expected to return vs. Magic as Mavs seek to end 4-game skid**\
+`Flagg, who has missed the Mavericks’ past eight games with a left midfoot sprain, will be on a minutes restriction.`\
+https://nytimes.com/athletic/7091143/2026/03/05/cooper-flagg-mavericks-return/
+
 **A.I. Videos Distort Damage From Iranian Strikes**\
 `After Iran’s retaliatory strikes across the Middle East, A.I.-generated imagery claiming to show massive explosions or exaggerated destruction at or near targeted sites have been spreading on social media.`\
 https://nytimes.com/video/world/middleeast/100000010748622/iran-ai-disinfo.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7090362/2026/03/05/fantasy-basketball-hot-topics-gi
 **How Noem’s Handling of Disaster Aid Angered Even Some Republicans**\
 `Long delays in FEMA assistance brought bipartisan complaints, especially in North Carolina after Hurricane Helene in 2024.`\
 https://nytimes.com/2026/03/05/us/politics/kristi-noem-fema-disaster.html
-
-**How to watch Nets vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091106/2026/03/05/nets-vs-heat-stream-how-to-watch-march-5/
-
-**How to watch Evansville vs. Northern Iowa men's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Evansville Purple Aces play the Northern Iowa Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091100/2026/03/05/evansville-vs-northern-iowa-stream-how-to-watch-march-5/
 
