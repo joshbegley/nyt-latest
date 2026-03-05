@@ -1,3 +1,7 @@
+**The 3.8.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/05/the-3826-issue
+
 **Leagues Cup's 2026 edition includes four Mexico games in structural shift**\
 `Mexican clubs gained some concessions in the scheduling of the 2026 interleague tournament`\
 https://nytimes.com/athletic/7088767/2026/03/05/leagues-cup-mls-liga-mx-mexico-concacaf/
