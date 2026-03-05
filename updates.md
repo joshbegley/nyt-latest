@@ -1,3 +1,11 @@
+**NHL trade grades: Maple Leafs get a win in sending Nicolas Roy to Avalanche**\
+`A first-round pick for a role player on a going-nowhere roster seems almost too good to be true.`\
+https://nytimes.com/athletic/7090305/2026/03/05/nhl-trade-grades-maple-leafs-avalanche-nicolas-roy/
+
+**‘Pompei: Below the Clouds’ Review: Trembling Beauties, Old and New**\
+`The past and the present converge in this ravishingly beautiful Italian documentary set in the shadow of Mount Vesuvius.`\
+https://nytimes.com/2026/03/05/movies/pompei-below-the-clouds-review.html
+
 **Maple Leafs trade Nicolas Roy to Avalanche for draft picks**\
 `Leafs receive conditional first- and fifth-round picks for forward Nicolas Roy.`\
 https://nytimes.com/athletic/7090314/2026/03/05/maple-leafs-trade-nicolas-roy-avalanche/

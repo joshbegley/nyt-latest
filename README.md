@@ -34,7 +34,3 @@ https://nytimes.com/2026/03/05/us/senator-tim-sheehy-marine-war-protester.html
 `Vegas hopes the addition of the veteran Dowd will solidify its center depth.`\
 https://nytimes.com/athletic/7090273/2026/03/05/nic-dowd-trade-capitals-golden-knights/
 
-**Middle East conflict: Saudi game postponed, Spanish FA raises concerns over game in Turkey to UEFA**\
-`Thursday’s game between Al Kholood and Al Qadsiah had been rescheduled for 10pm local time on Saturday.`\
-https://nytimes.com/athletic/7089819/2026/03/05/middle-east-conflict-iran-saudi-spain/
-
