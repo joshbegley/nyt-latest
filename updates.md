@@ -1,3 +1,11 @@
+**Fallout From Mideast Swirls Over the War in Ukraine**\
+`Three-way peace talks are on hold, and Kyiv fears that U.S. air defense systems it needs to counter Russia could be diverted to the Iran conflict.`\
+https://nytimes.com/2026/03/05/world/europe/ukraine-zelensky-iran-middle-east.html
+
+**NATO’s chief downplays the risks that the alliance will be drawn into the conflict.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/natos-chief-downplays-the-risks-of-the-alliance-being-drawn-into-the-conflict
+
 **At the Whitney, a Biennial Gets Personal**\
 `For an unmoored time, 56 artists and teams present an inspired discourse shaped by crisis, craft and community. Look up, and listen.`\
 https://nytimes.com/2026/03/05/arts/design/at-the-whitney-a-biennial-gets-personal.html

@@ -1,3 +1,7 @@
+**Fallout From Mideast Swirls Over the War in Ukraine**\
+`Three-way peace talks are on hold, and Kyiv fears that U.S. air defense systems it needs to counter Russia could be diverted to the Iran conflict.`\
+https://nytimes.com/2026/03/05/world/europe/ukraine-zelensky-iran-middle-east.html
+
 **At the Whitney, a Biennial Gets Personal**\
 `For an unmoored time, 56 artists and teams present an inspired discourse shaped by crisis, craft and community. Look up, and listen.`\
 https://nytimes.com/2026/03/05/arts/design/at-the-whitney-a-biennial-gets-personal.html
@@ -22,7 +26,7 @@ https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
 `The 2026 World Baseball Classic is underway in Tokyo, where Australia and Korea were winners and the fans were ready to roar.`\
 https://nytimes.com/athletic/7089206/2026/03/05/world-baseball-classic-australia-korea/
 
-**NATO’s chief downplays the risks of the alliance being drawn into the conflict.**\
+**NATO’s chief downplays the risks that the alliance will be drawn into the conflict.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/natos-chief-downplays-the-risks-of-the-alliance-being-drawn-into-the-conflict
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087847/2026/03/05/red-sox-mailbag-questions-2/
 **How to watch Indiana vs. Ohio State women's basketball: Big Ten Tournament Time, TV, streaming**\
 `Find out how to watch the Indiana Hoosiers play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7089528/2026/03/05/indiana-vs-ohio-state-stream-how-to-watch-march-5/
-
-**How to watch Duquesne vs. Saint Joseph's (PA) women's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Duquesne Dukes play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7089522/2026/03/05/duquesne-vs-saint-joseph-s-pa-stream-how-to-watch-march-5/
 
