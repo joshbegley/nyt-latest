@@ -1,3 +1,7 @@
+**Arsenal did exactly what Fabian Hurzeler said they would do - and won**\
+`It was not always pretty and their approach agitated the home manager and crowd, but Mikel Arteta's side ground out an important victory`\
+https://nytimes.com/athletic/7088250/2026/03/05/arsenal-brighton-hurzeler-arteta/
+
 **The New York Times in Print for Thursday, March 5, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/05/todays-new-york-times
