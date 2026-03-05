@@ -1,3 +1,7 @@
+**Predators trading Michael Bunting to Stars: Source**\
+`Bunting, 30, is in the final year of a contract with a $4,500,000 cap hit.`\
+https://nytimes.com/athletic/7018719/2026/03/05/predators-michael-bunting-trade-stars/
+
 **Lev Parnas, Who Turned Against Trump, Announces Run for Congress as Democrat**\
 `Mr. Parnas, who once tried to help find damaging information on Hunter Biden, said his background had turned him into “an advocate for speaking truth to power.”`\
 https://nytimes.com/2026/03/05/us/lev-parnas-trump-impeachment-florida-congress.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072020/2026/03/05/wafcon-2026-postpond-caf-tournam
 **Could Columbus be the destination for NWSL's next expansion team?**\
 `U.S. women's national team head coach Emma Hayes said it would be "fantastic" to have an NWSL franchise in the Ohio capital. `\
 https://nytimes.com/athletic/7089064/2026/03/05/columbus-ohio-nwsl-expansion-interest-explained/
-
-**As a Fired Noem Speaks in Nashville, Senators Welcome Her Replacement**\
-`The remarkable split-screen underscored how abruptly Kristi Noem’s ouster as homeland security secretary had unfolded, even by the standards of President Trump’s fast-paced Washington.`\
-https://nytimes.com/2026/03/05/us/politics/trump-fires-noem-gop-split-mullin.html
 
