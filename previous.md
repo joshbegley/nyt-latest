@@ -1,3 +1,7 @@
+**NHL trade grades: Oilers make win-now bet on Jason Dickinson, Blackhawks get great return**\
+`Jason Dickinson is solid, reliable defensive player on a team that needs some reliability and defense.`\
+https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oilers-jason-dickinson/
+
 **NHL trade grades: Mammoth make smart bet on MacKenzie Weegar, boosting blue line**\
 `This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
 https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/04/nyregion/iran-blackmail-trump-assassination-plot.
 `The surprise announcement by Senator Steve Daines could give Democrats a slim opening in the Republican-leaning state in their uphill fight to take the Senate majority.`\
 https://nytimes.com/2026/03/04/us/elections/steve-daines-out-montana-senate-race.html
 
-**Flames' MacKenzie Weegar waives no-trade clause for deal to Mammoth: Sources**\
+**Flames' MacKenzie Weegar waives no-trade clause for deal to Mammoth**\
 `The 32-year-old defenseman's contract goes through 2031 with a $6.25 million cap hit.`\
 https://nytimes.com/athletic/7087974/2026/03/04/flames-mackenzie-weegar-trade-mammoth/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/business/china-gdp-target-2025.html
 **Trump Follows His Gut. His National Security Advisers Try to Keep Up.**\
 `Decisions come fast, even if contradictions and inconsistencies abound. But without much of a process, there is little preparation for how things can go wrong.`\
 https://nytimes.com/2026/03/04/us/politics/trump-national-security.html
-
-**Experts doubt Tehran’s claims of advanced ‘hypersonic’ missiles.**\
-`As Iran fires fewer ballistic missiles, experts doubt Tehran is saving more advanced weapons.`\
-https://nytimes.com/live/2026/03/04/world/iran-war-israel-lebanon-trump/experts-doubt-tehrans-claims-of-advanced-hypersonic-missiles
 
