@@ -1,3 +1,7 @@
+**L.A. Broker and Reality TV Star Accuses Oren Alexander of Sexual Assault**\
+`Tracy Tutor said Mr. Alexander, a former top real estate agent in New York, drugged and assaulted her in 2014. Mr. Alexander and his two brothers are on trial for sex trafficking.`\
+https://nytimes.com/2026/03/05/nyregion/tracy-tutor-oren-alexander-lawsuit.html
+
 **A long way from home at WBC, underdogs from Czechia adopted by fans in Tokyo**\
 `The 2026 World Baseball Classic is underway in Tokyo, where Australia and Korea were winners and the fans were ready to roar.`\
 https://nytimes.com/athletic/7089206/2026/03/05/world-baseball-classic-australia-korea/
