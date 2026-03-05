@@ -1,3 +1,11 @@
+**Late Night Doesn’t Understand Why America Is Attacking Iran**\
+`“This could be the first war ever launched based on vibes,” Jimmy Fallon said.`\
+https://nytimes.com/2026/03/05/arts/television/late-night-america-iran.html
+
+**Newcastle were hanging on – then along came Will Osula's wondergoal**\
+`Eddie Howe's side are kings of endurance, champions of getting through. Against Manchester United, they got their reward`\
+https://nytimes.com/athletic/7088725/2026/03/05/newcastle-united-will-osula-wonder-goal/
+
 **What do Brighton do about their problematic No 6 position?**\
 `Carlos Baleba could leave in the summer and James Milner has yet to decide on his plans, so Fabian Hurzeler may need reinforcements`\
 https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/

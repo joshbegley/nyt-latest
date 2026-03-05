@@ -10,10 +10,6 @@ https://nytimes.com/athletic/7072490/2026/03/05/brighton-baleba-milner/
 `Nuno Espirito Santo was grateful to Mads Hermansen after the goalkeeper helped his side pick up three crucial points at Fulham`\
 https://nytimes.com/athletic/7087345/2026/03/05/west-ham-mads-hermansen-nuno-relegation-battle/
 
-**Aston Villa's structure, cohesion and confidence have deserted them. They look ragged**\
-`Unai Emery has previously had a clear strategy but his team look muddled at the moment. Their dip has come at a bad time`\
-https://nytimes.com/athletic/7088140/2026/03/05/aston-villa-emery-chelsea/
-
 **Word of the Day: solace**\
 `This word has appeared in 417 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
@@ -37,4 +33,8 @@ https://nytimes.com/issue/todayspaper/2026/03/05/todays-new-york-times
 **On the Ground in Beirut**\
 `Our Beirut bureau chief, Christina Goldbaum, reports on the escalating conflict between Israel and the Iran-backed armed group Hezbollah, as Israel’s military seizes areas of southern Lebanon and carries out bombings.`\
 https://nytimes.com/video/world/middleeast/100000010747493/on-the-ground-in-beirut.html
+
+**Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
+`The head coach took a bold stance on discipline, set pieces and selection – the approach paid off with his most important win yet`\
+https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
 
