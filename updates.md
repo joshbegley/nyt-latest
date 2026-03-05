@@ -1,3 +1,7 @@
+**A long way from home at WBC, underdogs from Czechia adopted by fans in Tokyo**\
+`The 2026 World Baseball Classic is underway in Tokyo, where Australia and Korea were winners and the fans were ready to roar.`\
+https://nytimes.com/athletic/7089206/2026/03/05/world-baseball-classic-australia-korea/
+
 **NATO’s chief downplays the risks of the alliance being drawn into the conflict.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/natos-chief-downplays-the-risks-of-the-alliance-being-drawn-into-the-conflict
