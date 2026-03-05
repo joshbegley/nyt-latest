@@ -1,3 +1,7 @@
+**Awards Watch: With Jayson Tatum's return looming, let's appreciate Jaylen Brown**\
+`What's going on with the Celtics sparks memories from out west more than two decades ago.`\
+https://nytimes.com/athletic/7080380/2026/03/05/jaylen-brown-celtics-nba-mvp-sga-jokic/
+
 **Who Is Eyal Zamir, the Architect of Israel’s War Plans?**\
 `The Israeli general has long been focused on the threat from Iran and its proxies, and has called for a regional alliance against the country.`\
 https://nytimes.com/2026/03/05/world/middleeast/eyal-zamir-profile-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088139/2026/03/05/colts-alec-pierce-free-agency-de
 **An inside look at NFL scouting reports, and the scouts who create them**\
 `An NFL scouting report can range from traditional sentences to a series of color-coded messages, shorthand terms and emoji-like tags.`\
 https://nytimes.com/athletic/7067790/2026/03/05/nfl-scouting-reports-grades-prospects/
-
-**New York Jets 7-round mock draft 2.0: A need that could arise after free agency**\
-`The Jets could also target the quarterback class deeper in the draft.`\
-https://nytimes.com/athletic/7087794/2026/03/05/new-york-jets-seven-round-mock-draft-2/
 
