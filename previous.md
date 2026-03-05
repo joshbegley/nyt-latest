@@ -1,3 +1,15 @@
+**Deliberations to Start in Sex-Trafficking Trial of Alexander Brothers**\
+`Prosecutors called more than 30 witnesses, including 11 women who said the three men had sexually abused them. The brothers, who have pleaded not guilty, face life in prison if convicted.`\
+https://nytimes.com/2026/03/05/nyregion/jury-alexander-brothers-sex-trafficking.html
+
+**Senator Helps Officers Forcibly Remove Protesting Veteran From Hearing**\
+`The physical struggle, involving Senator Tim Sheehy of Montana, was captured on video. The protester, Brian McGinnis, said on social media that his arm was broken.`\
+https://nytimes.com/2026/03/05/us/senator-tim-sheehy-marine-war-protester.html
+
+**Capitals trade Nic Dowd to Golden Knights for draft picks, goalie prospect**\
+`Vegas hopes the addition of the veteran Dowd will solidify its center depth.`\
+https://nytimes.com/athletic/7090273/2026/03/05/nic-dowd-trade-capitals-golden-knights/
+
 **Middle East conflict: Saudi game postponed, Spanish FA raises concerns over game in Turkey to UEFA**\
 `Thursday’s game between Al Kholood and Al Qadsiah had been rescheduled for 10pm local time on Saturday.`\
 https://nytimes.com/athletic/7089819/2026/03/05/middle-east-conflict-iran-saudi-spain/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/march-4-major-upd
 **McDonald’s C.E.O. Takes a Big Bite Out of a Burger. Maybe Scratch ‘Big.’**\
 `Chris Kempczinski’s rather tentative chomp drew mirth online, even from some competitors.`\
 https://nytimes.com/2026/03/05/business/mcdonalds-ceo-big-arch-burger-video.html
-
-**Check these injury-predicting fastball metrics before drafting an ace**\
-`John Laghezza looks at which pitchers might be most susceptible to injury this season based upon their four-seam fastball velocity data.`\
-https://nytimes.com/athletic/7083264/2026/03/05/fantasy-baseball-starting-pitcher-injury-concerns-fastball-metrics/
-
-**Map: 4.9-Magnitude Earthquake Shakes Louisiana**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/03/05/us/louisiana-quake-tracker.html
-
-**Bears trading wide receiver DJ Moore to the Bills: Sources**\
-`Moore had 244 receptions, 3,012 yards and 20 touchdowns across his three seasons with the Bears.`\
-https://nytimes.com/athletic/7090045/2026/03/05/dj-moore-trade-chicago-bears/
 
