@@ -1,3 +1,11 @@
+**NHL trade grades: Maple Leafs get a win in sending Nicolas Roy to Avalanche**\
+`A first-round pick for a role player on a going-nowhere roster seems almost too good to be true.`\
+https://nytimes.com/athletic/7090305/2026/03/05/nhl-trade-grades-maple-leafs-avalanche-nicolas-roy/
+
+**‘Pompei: Below the Clouds’ Review: Trembling Beauties, Old and New**\
+`The past and the present converge in this ravishingly beautiful Italian documentary set in the shadow of Mount Vesuvius.`\
+https://nytimes.com/2026/03/05/movies/pompei-below-the-clouds-review.html
+
 **Maple Leafs trade Nicolas Roy to Avalanche for draft picks**\
 `Leafs receive conditional first- and fifth-round picks for forward Nicolas Roy.`\
 https://nytimes.com/athletic/7090314/2026/03/05/maple-leafs-trade-nicolas-roy-avalanche/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7090273/2026/03/05/nic-dowd-trade-capitals-golden-k
 **Middle East conflict: Saudi game postponed, Spanish FA raises concerns over game in Turkey to UEFA**\
 `Thursday’s game between Al Kholood and Al Qadsiah had been rescheduled for 10pm local time on Saturday.`\
 https://nytimes.com/athletic/7089819/2026/03/05/middle-east-conflict-iran-saudi-spain/
-
-**A Judge’s ‘Battle Royale’ With Trump and the Supreme Court**\
-`After repeated but cryptic rebukes from the justices, Judge Brian Murphy last week again ruled against one of the administration’s signature immigration programs.`\
-https://nytimes.com/2026/03/05/us/the-docket-judge-battle.html
-
-**Tom Ford Thrills**\
-`Haider Ackermann serves up what is likely the show of the season.`\
-https://nytimes.com/2026/03/05/style/tom-ford-pfw.html
 
