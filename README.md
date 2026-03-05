@@ -1,3 +1,11 @@
+**Browns' Myles Garrett cited for ninth speeding ticket since entering NFL**\
+`Garrett received his second ticket for driving more than 90 mph since August of last year. `\
+https://nytimes.com/athletic/7089890/2026/03/05/myles-garrett-speeding-ticket-citations/
+
+**Chelsea's Neto facing potential further punishment for Arsenal red card**\
+`Neto received a second yellow card only a few minutes after his first against Arsenal, missing Wednesday's win over Aston Villa as a result.`\
+https://nytimes.com/athletic/7089852/2026/03/05/chelsea-neto-red-card-charge-punishment-arsenal/
+
 **How the University of Florida Prepares Students for the Age of AI**\
 `Universities look to UF for guidance in adding AI instruction to every major and discipline.`\
 https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida-prepares-students-for-the-age-of-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/05/nyregion/amy-griffin-the-tell-lawsuit.html
 **What I'm hearing: Flyers check in on Robert Thomas as trade deadline nears**\
 `Flyers see asking price for Blues forward Robert Thomas as too high; Rasmus Ristolainen market seems to be shrinking.`\
 https://nytimes.com/athletic/7089673/2026/03/05/philadelphia-flyers-trade-deadline-robert-thomas/
-
-**Olivier Awards: ‘Paddington’ and ‘Into the Woods’ Lead Nominations**\
-`The two musicals secured 11 nominations each for Britain’s equivalent of the Tony Awards. Cate Blanchett, Bryan Cranston and Rachel Zegler are also among the nominees.`\
-https://nytimes.com/2026/03/05/theater/olivier-award-nominations.html
-
-**Fantasy football and the 2026 NFL Draft: Ranking the rookies with fantasy comparisons**\
-`Jake Ciely previews all the rookie skill-position players for fantasy football 2026, providing a player comparison mash-up for each.`\
-https://nytimes.com/athletic/7084591/2026/03/05/fantasy-football-and-the-2026-nfl-draft-ranking-the-rookies-with-fantasy-comparisons/
 

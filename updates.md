@@ -1,3 +1,15 @@
+**How the University of Florida Prepares Students for the Age of AI**\
+`Universities look to UF for guidance in adding AI instruction to every major and discipline.`\
+https://nytimes.com/paidpost/university-of-florida/how-the-university-of-florida-prepares-students-for-the-age-of-ai.html
+
+**The Bounce: Was Thunder-Knicks a finals preview? Plus, a Tatum comeback conspiracy**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7089809/2026/03/05/knicks-thunder-jayson-tatum-nba-the-bounce/
+
+**Tyler Myers trade is a start, but harder part of Canucks rebuild lies ahead**\
+`The Myers trade is precisely the sort of deal the Canucks need to make, and need to make at volume.`\
+https://nytimes.com/athletic/7089135/2026/03/05/vancouver-canucks-nhl-trade-deadline-tyler-myers/
+
 **Mike Brown says SGA does a 'great job of convincing' referees he's being hit**\
 `Knicks coach Mike Brown picked up his first technical foul of the season after arguing a no-call against Shai Gilgeous-Alexander.`\
 https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-alexander-hit-okc/
