@@ -1,3 +1,11 @@
+**Iranian Drones Fall in Azerbaijan as Conflict Spreads Farther Beyond Mideast**\
+`Azerbaijan says the attack “will not remain unanswered,” as  the neighbors with a long history of tensions found themselves again at odds.`\
+https://nytimes.com/2026/03/05/world/middleeast/azerbaijan-iran-drone-attack-airport.html
+
+**Iran face Asian Cup elimination after 4-0 loss to hosts Australia**\
+`The #68-ranked team are yet to score at the tournament.`\
+https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
+
 **If this Knicks defense is here to stay, an NBA title is within their reach**\
 `If this Knicks defense continues to be as good as it showed in a nail-biter of a loss to Oklahoma City, then the sky is the limit.`\
 https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunder/
