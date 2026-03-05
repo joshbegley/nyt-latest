@@ -1,3 +1,7 @@
+**Aston Villa's structure, cohesion and confidence has deserted them. They look ragged**\
+`Unai Emery has previously had a clear strategy but his team look muddled at the moment. Their dip has come at a bad time`\
+https://nytimes.com/athletic/7088140/2026/03/05/aston-villa-emery-chelsea/
+
 **Word of the Day: solace**\
 `This word has appeared in 417 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/05/learning/word-of-the-day-solace.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-vill
 **Brennan Johnson, 648 minutes for Palace and no goals - why is he struggling?**\
 `The forward, signed from Spurs in January, has struggled to settle - what's gone wrong?`\
 https://nytimes.com/athletic/7079161/2026/03/05/brennan-johnson-crystal-palace/
-
-**Barcelona's search for a new No 9 - and what it means for Rashford and Lewandowski**\
-`The Spanish champions are in the market for a new central striker. Here's what we're hearing on who they have in mind`\
-https://nytimes.com/athletic/7086892/2026/03/05/barcelona-lewandowski-alvarez-transfers-rashford/
 
