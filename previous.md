@@ -1,3 +1,7 @@
+**Iran delays naming a new leader out of security concerns, officials say.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/iran-delays-naming-a-new-leader-out-of-security-concerns-officials-say
+
 **The Pentagon Officially Notifies Anthropic That It Is a ‘Supply Chain Risk’**\
 `Anthropic has said it will sue the Defense Department over the designation, which could prevent the start-up from doing business with the U.S. government.`\
 https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/lev-parnas-trump-impeachment-florida-congress.
 **Art Gallery Shows to See in March**\
 `This week in Newly Reviewed, Seph Rodney covers Deborah Roberts’s collages, Ursula von Rydingsvard’s wood outcroppings and Noel W Anderson’s superstars.`\
 https://nytimes.com/2026/03/05/arts/art-gallery-shows-to-see-in-march.html
-
-**Kings trading Warren Foegele to Senators: Source**\
-`Foegele, 29, whose contract goes through 2027 with a $3,500,000 cap hit, has struggled this season after a career year in 2024-25.`\
-https://nytimes.com/athletic/7021355/2026/03/05/kings-warren-foegele-trade-senators/
 

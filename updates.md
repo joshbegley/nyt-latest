@@ -1,3 +1,7 @@
+**Iran delays naming a new leader out of security concerns, officials say.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/iran-delays-naming-a-new-leader-out-of-security-concerns-officials-say
+
 **The Pentagon Officially Notifies Anthropic That It Is a ‘Supply Chain Risk’**\
 `Anthropic has said it will sue the Defense Department over the designation, which could prevent the start-up from doing business with the U.S. government.`\
 https://nytimes.com/2026/03/05/technology/anthropic-supply-chain-risk-defense-department.html
