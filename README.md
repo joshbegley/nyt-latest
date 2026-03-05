@@ -1,3 +1,19 @@
+**Our Student Podcast Contest**\
+`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 8 to May 13, 2026.`\
+https://nytimes.com/2026/03/05/learning/our-student-podcast-contest.html
+
+**How Trump’s Base Is Reacting to His War Message**\
+`Our White House correspondent Zolan Kanno-Youngs looks into how Trump’s base is responding to the administration’s conflicting messages on the war with Iran.`\
+https://nytimes.com/video/us/politics/100000010749958/how-trumps-base-is-reacting-to-his-war-message.html
+
+**America is Weary of School Shootings. Can Prosecuting Parents Help?**\
+`The country is casting an ever wider net in its search for accountability. Prosecuting parents is yielding results.`\
+https://nytimes.com/2026/03/05/us/apalachee-shooting-colt-gray-accountability.html
+
+**With the World in Transition, Paris Again Emerges as a Mecca for the Arts**\
+`Many of the galleries showing at TEFAF Maastricht are from France, a sign of the country’s growing presence in fairs and overall rising influence in art and collecting.`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-france.html
+
 **This Small Statue in Brussels Has a Large Bladder and Lots of Outfits**\
 `Manneken Pis, the famed bronze statue of a little boy who always has to go, has an official dresser in charge of his more than 1,190 outfits.`\
 https://nytimes.com/2026/03/05/arts/design/manneken-pis-costumes-brussels.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7090609/2026/03/05/alex-bowman-phoenix-nascar-out/
 **Welcome to Maastricht, Where All Things French Flourish**\
 `Evident is the vast influence that France has had upon the Netherlands city, the result of its geography, history and the population’s affinity for its culture.`\
 https://nytimes.com/2026/03/05/arts/design/maastricht-french-influences.html
-
-**A Spring-Forward Meal Without the Stress**\
-`This breezy seasonal dinner from David Tanis features a soup, braised chicken and a gelato you can make in advance.`\
-https://nytimes.com/2026/03/05/dining/spring-dinner-party.html
-
-**Rangers unlikely to trade Alexis Lafrenière this week, but questions linger after**\
-`Not long ago, the 2020 No. 1 draft pick couldn’t escape attention, but with the trade deadline nearing, he isn’t being talked about much.`\
-https://nytimes.com/athletic/7090597/2026/03/05/rangers-alexis-lafreniere-nhl-trade-deadline-rumors/
-
-**A Danish Designer Explores Color for the Soul and the Senses**\
-`Margrethe Odgaard, whose new textiles will be featured at TEFAF Maastricht, aims to define the distinctive hues preferred in various places, by different cultures.`\
-https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-margrethe-odgaard.html
-
-**TEFAF Maastricht, Known for Old Art, Faces the Future**\
-`The Dutch art fair, renowned for art and antiquities, works to prove its relevance as the wider world changes around it.`\
-https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-european-union-rules.html
 
