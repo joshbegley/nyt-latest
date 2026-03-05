@@ -1,3 +1,11 @@
+**How to watch Kansas vs. Colorado women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Kansas Jayhawks play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7090900/2026/03/05/kansas-vs-colorado-stream-how-to-watch-march-5/
+
+**Desperate travelers wait as Dubai resumes a few flights.**\
+`As Iranian missile strikes continue to the U.A.E., stranded passengers at Dubai International Airport anxiously await a way back home.`\
+https://nytimes.com/live/2026/03/05/world/iran-war-israel-trump/desperate-travelers-wait-as-dubai-resumes-a-few-flights
+
 **Astros' Jeremy Peña out for WBC with finger fracture**\
 `Isaac Paredes would need to handle a more prominent role if Houston's shortstop is unavailable for Opening Day.`\
 https://nytimes.com/athletic/7089016/2026/03/05/world-baseball-classic-jeremy-pena-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7090024/2026/03/05/england-mccullum-brook-t20-ashes
 **Feeling the Effects of 260,000 Federal Jobs Lost**\
 `One year in, assessing budget cuts to federal climate and science jobs.`\
 https://nytimes.com/2026/03/05/climate/climate-forward-science-federal-cuts.html
-
-**Nature Report, Killed by Trump, Is Released Independently**\
-`A draft assessment of the health of nature in the United States is grim but shot through with bright spots and possibility.`\
-https://nytimes.com/2026/03/05/climate/trump-nature-assessment.html
-
-**Lindsey Halligan Is Under Investigation by the Florida Bar**\
-`The actions of Ms. Halligan, who as a U.S. attorney brought criminal cases against President Trump’s enemies, are under review by the organization that licensed her to practice law.`\
-https://nytimes.com/2026/03/05/us/politics/lindsey-halligan-investigation-florida-bar.html
 
