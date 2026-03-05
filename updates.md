@@ -1,3 +1,15 @@
+**Israel Pushes Farther Into Lebanon, and Readies for More**\
+`Days into its offensive against Hezbollah, Israel is massing armored vehicles near the Lebanese border for a potentially much larger ground incursion.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-lebanon-hezbollah.html
+
+**Photography Displays Add a Contemporary Flair to TEFAF**\
+`As the Maastricht fair continues to update its outlook, an emphasis on photography is bringing together “the whole range of what culture can be.”`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-photography.html
+
+**A Contemporary Gallery Putting Mexican Design on the World Stage**\
+`AGO Projects, which specializes in contemporary work, recently turned heads by standing by an artist who had become a political lightning rod.`\
+https://nytimes.com/2026/03/05/arts/design/mexico-city-gallery-ago-projects.html
+
 **Slurs Filled Chat Created by a Republican Party Official in Florida**\
 `After the secretary of the Miami-Dade County Republican Party created the chat for college students, it devolved into slurs against Black and Jewish people.`\
 https://nytimes.com/2026/03/05/us/florida-gop-slurs-group-chat.html

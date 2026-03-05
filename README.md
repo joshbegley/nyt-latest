@@ -1,3 +1,11 @@
+**What Else Is Happening During TEFAF Maastricht**\
+`Nearby cities in the Netherlands and Belgium will display van Gogh masterpieces, an exhibition on birds, an exploration of the evolution of beauty standards and more.`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-cities-exhibitions.html
+
+**Oil Jumps, Stocks Drop as Investors Grapple With Iran War’s Impact**\
+`Oil futures are at their highest level since July 2024. The S&P 500 is now in negative territory for the year.`\
+https://nytimes.com/2026/03/05/business/oil-stocks-iran-war.html
+
 **Israel Pushes Farther Into Lebanon, and Readies for More**\
 `Days into its offensive against Hezbollah, Israel is massing armored vehicles near the Lebanese border for a potentially much larger ground incursion.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-lebanon-hezbollah.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010755770/us-marine-protest-iran-senate.html
 **Women's conference tournament takeaways: Clemson improves NCAA tourney chances with win**\
 `Clemson is enjoying its best season in 25 years. But will Virginia still make the NCAA Tournament? `\
 https://nytimes.com/athletic/7090568/2026/03/05/womens-conference-tournament-acc-clemson/
-
-**House Republicans Tell Gonzales to Quit Re-Election Campaign**\
-`The call came a day after the Texas congressman admitted to an extramarital affair with an aide, and as he faced a runoff to keep his seat.`\
-https://nytimes.com/2026/03/05/us/politics/house-republicans-gonzales.html
-
-**The 3.8.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/03/05/the-3826-issue
 

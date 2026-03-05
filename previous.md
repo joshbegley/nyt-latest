@@ -1,3 +1,15 @@
+**Israel Pushes Farther Into Lebanon, and Readies for More**\
+`Days into its offensive against Hezbollah, Israel is massing armored vehicles near the Lebanese border for a potentially much larger ground incursion.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-lebanon-hezbollah.html
+
+**Photography Displays Add a Contemporary Flair to TEFAF**\
+`As the Maastricht fair continues to update its outlook, an emphasis on photography is bringing together “the whole range of what culture can be.”`\
+https://nytimes.com/2026/03/05/arts/design/tefaf-maastricht-photography.html
+
+**A Contemporary Gallery Putting Mexican Design on the World Stage**\
+`AGO Projects, which specializes in contemporary work, recently turned heads by standing by an artist who had become a political lightning rod.`\
+https://nytimes.com/2026/03/05/arts/design/mexico-city-gallery-ago-projects.html
+
 **Slurs Filled Chat Created by a Republican Party Official in Florida**\
 `After the secretary of the Miami-Dade County Republican Party created the chat for college students, it devolved into slurs against Black and Jewish people.`\
 https://nytimes.com/2026/03/05/us/florida-gop-slurs-group-chat.html
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/house-republicans-gonzales.html
 **The 3.8.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/05/the-3826-issue
-
-**Jayson Tatum nearing return to Celtics' lineup after 10-month absence with Achilles tear**\
-`The Celtics' star is listed as questionable to play Friday. Without Tatum, the Celtics have surged to second place in the East. `\
-https://nytimes.com/athletic/7084541/2026/03/05/celtics-jayson-tatum-injury-achilles-tear-return/
-
-**States Sue to Stop Trump From Reviving Steep Tariffs**\
-`The lawsuit filed by two dozen states seeks to invalidate the president’s new, 10 percent global tax on imports.`\
-https://nytimes.com/2026/03/05/us/politics/states-lawsuit-trump-tariffs.html
 
