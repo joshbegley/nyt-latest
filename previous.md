@@ -1,3 +1,7 @@
+**Breanna Stewart outduels Kelsey Plum as Mist claim Unrivaled championship**\
+`Mist captain scores 32 points to overcome Plum's 40, win title.`\
+https://nytimes.com/athletic/7088954/2026/03/04/breanna-stewart-unrivaled-championship-mist/
+
 **The A's won't close door on Kyler Murray. But is MLB really an option?**\
 `General manager David Forst said his team is "always open to him exploring a return to baseball with the A’s."`\
 https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/us/ice-el-paso-detention-center-dhs.html
 **NHL trade grades: Oilers make win-now bet on Jason Dickinson, Blackhawks get great return**\
 `Jason Dickinson is solid, reliable defensive player on a team that needs some reliability and defense.`\
 https://nytimes.com/athletic/7088657/2026/03/04/nhl-trade-grades-blackhawks-oilers-jason-dickinson/
-
-**NHL trade grades: Mammoth make smart bet on MacKenzie Weegar, boosting blue line**\
-`This is a trade made between two teams heading in opposite directions, but also one that should pay off on both sides.`\
-https://nytimes.com/athletic/7088088/2026/03/04/nhl-trade-grades-mackenzie-weegar-flames-mammoth/
 

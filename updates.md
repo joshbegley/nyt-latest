@@ -1,3 +1,7 @@
+**Breanna Stewart outduels Kelsey Plum as Mist claim Unrivaled championship**\
+`Mist captain scores 32 points to overcome Plum's 40, win title.`\
+https://nytimes.com/athletic/7088954/2026/03/04/breanna-stewart-unrivaled-championship-mist/
+
 **The A's won't close door on Kyler Murray. But is MLB really an option?**\
 `General manager David Forst said his team is "always open to him exploring a return to baseball with the A’s."`\
 https://nytimes.com/athletic/7088698/2026/03/04/kyler-murray-athletics-baseball-nfl-free-agency/
