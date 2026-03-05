@@ -1,3 +1,7 @@
+**Rosenior went public on three key Chelsea issues this week. He was vindicated at Aston Villa**\
+`The head coach took a bold stance on discipline, set pieces and selection - the approach paid off with his most important win yet`\
+https://nytimes.com/athletic/7088212/2026/03/05/liam-rosenior-chelsea-aston-villa/
+
 **What the Extraordinary Market Volatility in Asia Says About Energy and A.I.**\
 `Stocks in South Korea and Taiwan, the center of global chip making, plunged on fears about energy prices. Their recovery shows the bullishness over artificial intelligence.`\
 https://nytimes.com/2026/03/05/business/stocks-asia-iran-energy.html
@@ -9,10 +13,6 @@ https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-sche
 **Michael Carrick's honeymoon period at Manchester United is over – it had been coming**\
 `One defeat should not extinguish the side's rediscovered spark, but there is work to do in the fight to secure Champions League football`\
 https://nytimes.com/athletic/7087232/2026/03/05/manchester-united-newcastle-defeat-carrick/
-
-**Arsenal did exactly what Fabian Hurzeler said they would do - and won**\
-`It was not always pretty and their approach agitated the home manager and crowd, but Mikel Arteta's side ground out an important victory`\
-https://nytimes.com/athletic/7088250/2026/03/05/arsenal-brighton-hurzeler-arteta/
 
 **The New York Times in Print for Thursday, March 5, 2026**\
 ``\

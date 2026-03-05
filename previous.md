@@ -1,3 +1,7 @@
+**What the Extraordinary Market Volatility in Asia Says About Energy and A.I.**\
+`Stocks in South Korea and Taiwan, the center of global chip making, plunged on fears about energy prices. Their recovery shows the bullishness over artificial intelligence.`\
+https://nytimes.com/2026/03/05/business/stocks-asia-iran-energy.html
+
 **2026 World Baseball Classic schedule, latest game results and pool play standings**\
 `Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
 https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088184/2026/03/05/nottingham-forest-man-city-heroe
 **Nobody is going to save Spurs but these players. They have to start performing**\
 `The reality is that if the worst happens over the last 10 league games, it will mark the reputations of this group forever`\
 https://nytimes.com/athletic/7086378/2026/03/05/tottenham-players-standing-up/
-
-**VAR: What's wrong and how to fix it**\
-`It remains one of the most divisive subjects in football. So what do the experts believe can be done to help improve VAR?`\
-https://nytimes.com/athletic/7086296/2026/03/05/var-referee-problems-fix/
 

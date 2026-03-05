@@ -1,3 +1,7 @@
+**What the Extraordinary Market Volatility in Asia Says About Energy and A.I.**\
+`Stocks in South Korea and Taiwan, the center of global chip making, plunged on fears about energy prices. Their recovery shows the bullishness over artificial intelligence.`\
+https://nytimes.com/2026/03/05/business/stocks-asia-iran-energy.html
+
 **2026 World Baseball Classic schedule, latest game results and pool play standings**\
 `Stay up to date as 20 teams hope to escape pool play and advance into the tournament's quarterfinal round. `\
 https://nytimes.com/athletic/7086575/2026/03/05/world-baseball-classic-2026-schedule-results-standings/
