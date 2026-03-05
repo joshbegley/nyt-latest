@@ -1,3 +1,7 @@
+**Israeli Evacuation Orders Spark Panic in Beirut**\
+`Lebanon’s capital erupted in chaos after the Israeli military ordered people to flee the southern suburbs. A far-right minister in Israel warned of a devastating bombardment.`\
+https://nytimes.com/2026/03/05/world/middleeast/lebanon-israeli-evacuation-order-panic.html
+
 **Revolut, the British Finance App, Seeks a U.S. Banking Charter**\
 `The company said that the move, if approved, would allow it to offer more products to American customers as it seeks to grow globally.`\
 https://nytimes.com/2026/03/05/business/dealbook/revolut-us-banking-charter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089685/2026/03/05/knicks-mike-brown-shai-gilgeous-
 **Bucks are frustrated with 4-game losing streak: 'What are you playing for?'**\
 `The Bucks' four losses have come by a combined 97 points, the largest combined margin of victory in any four-game skid in franchise history.`\
 https://nytimes.com/athletic/7089308/2026/03/05/bucks-giannis-antetokounmpo-losing-streak-nba/
-
-**What I'm hearing about the Maple Leafs ahead of the trade deadline: 'Teams smell blood in the water'**\
-`If everything falls into place, the Maple Leafs could be big sellers at this deadline. But will there be a market for what they're offering?`\
-https://nytimes.com/athletic/7089762/2026/03/05/maple-leafs-trade-deadline-news/
 
