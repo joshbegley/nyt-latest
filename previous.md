@@ -1,3 +1,7 @@
+**U.S. Court Takes First Steps Toward Ordering Tariff Refunds**\
+`The Trump administration is likely to appeal the move, as it ramps up its attempt to slow or potentially block the repayment of billions in past duties.`\
+https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html
+
 **Aston Martin F1 drivers at risk of nerve damage from car vibrations, will have laps capped in Australia**\
 `Aston Martin will retire early from the Australian Grand Prix due to an unsafe vibration in the car`\
 https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-retire-early-nerve-damage-risk/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/04/world/americas/ecuador-trump-drug-gangs-us-milita
 **Noem and D.H.S. Inspector General Spar Over Obstruction Claim**\
 `Homeland Security Secretary Kristi Noem pushed back against her department’s inspector general, who told Congress in a letter that she had “systematically obstructed” his office’s work.`\
 https://nytimes.com/2026/03/04/us/politics/noem-dhs-inspector-general.html
-
-**If You Liked the Texas Primaries, You’ll Love the Sequel**\
-`Texas voters will revisit the Republican Senate primary — and some House races where no candidate captured more than 50 percent of the vote — in runoffs on May 26.`\
-https://nytimes.com/2026/03/04/us/politics/texas-primaries-runoffs-may.html
 

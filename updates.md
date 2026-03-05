@@ -1,3 +1,7 @@
+**U.S. Court Takes First Steps Toward Ordering Tariff Refunds**\
+`The Trump administration is likely to appeal the move, as it ramps up its attempt to slow or potentially block the repayment of billions in past duties.`\
+https://nytimes.com/2026/03/04/us/politics/judge-order-trump-tariff-refunds.html
+
 **Aston Martin F1 drivers at risk of nerve damage from car vibrations, will have laps capped in Australia**\
 `Aston Martin will retire early from the Australian Grand Prix due to an unsafe vibration in the car`\
 https://nytimes.com/athletic/7088263/2026/03/04/aston-martin-laps-capped-retire-early-nerve-damage-risk/
