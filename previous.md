@@ -1,40 +1,40 @@
-**Iranian Drones Fall in Azerbaijan as Conflict Spreads Farther Beyond Mideast**\
-`Azerbaijan says the attack “will not remain unanswered,” as  the neighbors with a long history of tensions found themselves again at odds.`\
-https://nytimes.com/2026/03/05/world/middleeast/azerbaijan-iran-drone-attack-airport.html
+**Vintage Nola is still in there. Phillies starter looks stronger after early offseason work**\
+`After getting an early start to his offseason work, Nola is showing positive signs this spring that he could deliver a bounce-back season.`\
+https://nytimes.com/athletic/7088093/2026/03/05/aaron-nola-phillies-2026-season/
 
-**If this Knicks defense is here to stay, an NBA title is within their reach**\
-`If this Knicks defense continues to be as good as it showed in a nail-biter of a loss to Oklahoma City, then the sky is the limit.`\
-https://nytimes.com/athletic/7088964/2026/03/05/knicks-defense-title-loss-thunder/
+**Seahawks mock draft: A trade with a division rival, plus a few defensive playmakers**\
+`With only four picks in the 2026 NFL Draft, the Seahawks will have to get creative to assemble an impactful draft class.`\
+https://nytimes.com/athletic/7087164/2026/03/05/seahawks-nfl-mock-draft-trade/
 
-**Lewis Hamilton experienced a winter of self-discovery: ‘You won’t see that person again'**\
-`Hamilton has outlined how he spent the F1 offseason recovering from a tough first season with Ferrari to be better this year.`\
-https://nytimes.com/athletic/7089218/2026/03/05/lewis-hamilton-ferrari-f1-2026/
+**Travis Etienne? Cade Otton? Where Broncos could turn to fill 'musts' list in free agency**\
+`If the Broncos are set on making a splash during free agency, it could come in the form of a new backfield piece for Denver's offense.`\
+https://nytimes.com/athletic/7087200/2026/03/05/denver-broncos-free-agency-needs/
 
-**Iran face Asian Cup elimination after 4-0 loss to hosts Australia**\
-`The #68-ranked team are yet to score at the tournament.`\
-https://nytimes.com/athletic/7089299/2026/03/05/iran-asian-cup-australia-loss/
+**Giants' Grant McCray is showing patience, but believes his time is now**\
+`At 25, McCray is still evolving as a player, particularly at the plate, making him a strong candidate for the Opening Day roster.`\
+https://nytimes.com/athletic/7089070/2026/03/05/grant-mccray-giants-patience-time-now/
 
-**The Pulse: The Raiders are already a mess**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7087300/2026/03/05/raiders-maxx-crosby-brady-the-pulse/
+**Bruce Pearl vs. Miami (Ohio) is an argument of hypothetical wins and real losses**\
+`Would Miami have a better record than Auburn against the Tigers' schedule? Who cares? We’ve got enough data to shun all hypotheticals.`\
+https://nytimes.com/athletic/7088613/2026/03/05/bruce-pearl-miami-ohio-auburn-ncaa-tournament/
 
-**Christopher Bell on why he isn't a 'Chris' and wouldn't give up a toe to win Daytona**\
-`Each week, The Athletic's Jeff Gluck asks a NASCAR driver 12 revealing questions. This week: Christopher Bell of Joe Gibbs Racing.`\
-https://nytimes.com/athletic/7078889/2026/03/05/christopher-bell-nascar-joe-gibbs-12-questions/
+**Five other takeaways from 'the book' and how analytics affect college football**\
+`Here are a few strategies, some situational and some big-picture, that coaches and analysts say don’t get enough attention.`\
+https://nytimes.com/athletic/7087460/2026/03/05/college-football-fourth-down-decisions-the-book/
 
-**After a long journey and a breakout season, Nahshon Wright eyes a life-changing payday**\
-`Whether his future is with the Bears or another team, Wright has leverage and optimism heading into free agency.`\
-https://nytimes.com/athletic/7086758/2026/03/05/nahshon-wright-bears-2026-nfl-free-agency/
+**The Mariners' anchor at first: How Josh Naylor got Seattle's successful offseason started early**\
+`After thriving in October following a deadline deal, Naylor decided to stick around the Pacific Northwest.`\
+https://nytimes.com/athletic/7087187/2026/03/05/josh-naylor-seattle-mariners-offseason/
 
-**Championship play-offs expanded: Why EFL is increasing routes into Premier League**\
-`The team finishing eighth in the Championship will get the chance to win promotion to the top flight under the expanded play-off structure.`\
-https://nytimes.com/athletic/7087515/2026/03/05/championship-play-offs-vote-efl/
+**Central Connecticut State may seem a world away from UConn, but the love of basketball endures**\
+`Kristin Caruso's coaching career has taken her from reaching the Final Four with UConn 35 years ago to trying to get CCSU its second win.`\
+https://nytimes.com/athletic/7088843/2026/03/05/central-connecticut-uconn-womens-basketball/
 
-**Red Wings have held up their end. Now, at trade deadline, it's Steve Yzerman's turn**\
-`The Red Wings have answered the bell when challenged. Now it's up to Yzerman to give them one last boost at the trade deadline.`\
-https://nytimes.com/athletic/7088846/2026/03/05/detroit-red-wings-nhl-trade-deadline-steve-yzerman/
+**Players with term on their contracts who could help Winnipeg Jets beyond this season**\
+`How can Winnipeg use its cap space to add players at the deadline?`\
+https://nytimes.com/athletic/7086972/2026/03/05/winnipeg-jets-trade-deadline-players-to-add/
 
-**Panthers mock draft 2.0: SEC O-linemen enter the chat, along with defensive playmakers**\
-`A mock draft trade gives the Panthers four picks within the first 100 with offensive tackle the priority in Round 1.`\
-https://nytimes.com/athletic/7087646/2026/03/05/panthers-mock-draft-monroe-freeling-first-round/
+**Scouting Arvell Reese, Sonny Styles, CJ Allen: How do 2026 NFL Draft's top LBs stack up?**\
+`It's a good year to need help on the second level. The NFL Draft has an abundance of talent at linebacker, led by these three prospects.`\
+https://nytimes.com/athletic/7060429/2026/03/05/nfl-draft-2026-linebackers-scouting-linebackers-reese-styles-allen/
 
