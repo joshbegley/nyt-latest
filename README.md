@@ -1,3 +1,7 @@
+**An Assertive Supreme Court Turns to Curbing State Courts**\
+`Liberal justices accused their colleagues of expanding use of the emergency docket again in two orders issued this week.`\
+https://nytimes.com/2026/03/05/us/politics/supreme-court-emergency-docket.html
+
 **NHL trade grades: Maple Leafs get a win in sending Nicolas Roy to Avalanche**\
 `A first-round pick for a role player on a going-nowhere roster seems almost too good to be true.`\
 https://nytimes.com/athletic/7090305/2026/03/05/nhl-trade-grades-maple-leafs-avalanche-nicolas-roy/
@@ -22,15 +26,11 @@ https://nytimes.com/2026/03/05/us/rfk-medical-schools-nutrition-curriculum.html
 `Students share 24 nuggets of wisdom for how to live better.`\
 https://nytimes.com/2026/03/05/learning/teenagers-on-the-best-advice-theyve-ever-received.html
 
-**Deliberations to Start in Sex-Trafficking Trial of Alexander Brothers**\
+**Deliberations Start in Sex-Trafficking Trial of Alexander Brothers**\
 `Prosecutors called more than 30 witnesses, including 11 women who said the three men had sexually abused them. The brothers, who have pleaded not guilty, face life in prison if convicted.`\
 https://nytimes.com/2026/03/05/nyregion/jury-alexander-brothers-sex-trafficking.html
 
 **Senator Helps Officers Forcibly Remove Protesting Veteran From Hearing**\
 `The physical struggle, involving Senator Tim Sheehy of Montana, was captured on video. The protester, Brian McGinnis, said on social media that his arm was broken.`\
 https://nytimes.com/2026/03/05/us/senator-tim-sheehy-marine-war-protester.html
-
-**Capitals trade Nic Dowd to Golden Knights for draft picks, goalie prospect**\
-`Vegas hopes the addition of the veteran Dowd will solidify its center depth.`\
-https://nytimes.com/athletic/7090273/2026/03/05/nic-dowd-trade-capitals-golden-knights/
 
