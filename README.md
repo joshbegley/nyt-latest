@@ -1,3 +1,11 @@
+**War in the Gulf Could Turn India Back Onto Russian Oil**\
+`India’s trade deal with President Trump was supposed to end its imports of oil from Russia. But the war in Iran has cut off alternative supplies from the Middle East.`\
+https://nytimes.com/2026/03/05/business/india-russian-oil.html
+
+**Minnesota Officials Welcome Firing of Homeland Security Secretary**\
+`Mayor Jacob Frey of Minneapolis said “Good riddance” after Ms. Noem’s ouster. Gov. Tim Walz and others said they still wanted a “complete overhaul” of the department.`\
+https://nytimes.com/2026/03/05/us/politics/minnesota-kristi-noem-walz.html
+
 **Israel Pounds Southern Beirut, a Hezbollah Stronghold**\
 `The strikes were the most intense bombardment since a cease-fire deal in late 2024.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.
 **Craig Counsell gets a proud-dad moment watching son, Brady, make spring debut**\
 `Prior to the game, Craig Counsell joked that he’d close his eyes and watch video of his son batting later. `\
 https://nytimes.com/athletic/7091587/2026/03/05/chicago-cubs-craig-counsell-son-brady/
-
-**Blues still have time to maximize trade deadline, but after two whiffs, it's running short**\
-`The Blues have had two trades publicly fall through and have less than 24 hours to start making more before the NHL deadline.`\
-https://nytimes.com/athletic/7091114/2026/03/05/blues-nhl-trade-deadline-parayko-thomas-no-trade-clause/
-
-**Two Schools in Iran Damaged in U.S.-Israeli Bombing**\
-`Photos show that both schools, southeast of Tehran, sustained damage. No injuries were reported.`\
-https://nytimes.com/2026/03/05/world/middleeast/iran-schools-hit.html
 
