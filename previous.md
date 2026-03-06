@@ -1,40 +1,40 @@
-**Man United increase ticket prices for fourth successive season**\
-`It includes corporate and hospitality, although executive club members are able to freeze at the current price if renewing before April 15.`\
-https://nytimes.com/athletic/7092948/2026/03/06/manchester-united-ticket-price-increase/
+**Men's college basketball weekend guide: UNC-Duke, Michigan St. vs. Michigan, bubblers**\
+`Duke-UNC and MSU-Michigan are the clear headliners, but there's much more to check out during the final weekend of the regular season.`\
+https://nytimes.com/athletic/7090371/2026/03/06/unc-duke-michigan-ncaa-tournament-bubble-watch/
 
-**Stocks fall again in Europe at the end of a turbulent week for markets.**\
-`By Eshe Nelson`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/stocks-fall-again-in-europe-at-the-end-of-a-turbulent-week-for-markets
+**What we're seeing in Phillies camp: A new outfielder, Johan Rojas, ABS and more**\
+`Why was Keaton Anthony, a first baseman, hanging out with the outfielders in left during BP? The move is a worthwhile experiment.`\
+https://nytimes.com/athletic/7091422/2026/03/06/phillies-spring-training-johan-rojas/
 
-**Diego Pavia's sister is just a freshman, but college coaches know 'I'm a baller'**\
-`Abby Pavia might be a tad less famous than her big bro. But she’s just just as confident and just as entertaining as Diego.`\
-https://nytimes.com/athletic/7090659/2026/03/06/diego-pavia-sister-basketball-star/
+**Young and Looking for Work? We Want to Hear From You.**\
+`Unemployment is higher among younger people than other groups, and some companies are cutting back on entry-level hiring. Tell us how you are navigating the start of your career.`\
+https://nytimes.com/2026/03/06/business/economy/young-and-looking-for-work-we-want-to-hear-from-you.html
 
-**Shohei Ohtani mashes grand slam as Japan opens WBC title defense in style**\
-`A crazed stadium full of fans in Tokyo celebrated their countryman giving them exactly what they’d paid for.`\
-https://nytimes.com/athletic/7092966/2026/03/06/ohtani-grand-slam-japan-world-baseball-classic/
+**Team USA World Baseball Classic watch guide: TV schedule, broadcast and roster**\
+`Here's how to follow the U.S. team, with four Pool B games in Houston.`\
+https://nytimes.com/athletic/7087047/2026/03/06/usa-world-baseball-classic-2026-how-to-watch/
 
-**Indonesia to Block Children Under 16 From Social Media**\
-`The ban is to take effect March 28, according to a government minister, but details about how it would be implemented were scarce.`\
-https://nytimes.com/2026/03/06/world/asia/indonesia-social-media-ban.html
+**After trading DJ Moore, can Ryan Poles take Bears to the next level?**\
+`Before he landed Ben Johnson, Poles looked like another doomed Bears GM. But one great season later, he has a chance to write his legacy.`\
+https://nytimes.com/athletic/7091366/2026/03/06/bears-dj-moore-trade-ryan-poles-draft-free-agency/
 
-**College sports and private equity are converging. So what are the best-case scenarios?**\
-`Private equity cash infusions into college sports come with plenty of much-discussed criticism and skepticism. So what's the case for it?`\
-https://nytimes.com/athletic/7090151/2026/03/06/college-football-sports-private-equity-money/
+**The Athletic’s Friday football quiz question #96**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/7089323/2026/03/06/the-athletics-friday-football-quiz-question-96/
 
-**The Athletic's Freshman of the Year: USC's Jazzy Davidson**\
-`Davidson was thrust into an important role, and she handled it excellently.`\
-https://nytimes.com/athletic/7091262/2026/03/06/usc-jazzy-davidson-athletic-freshman-year/
+**Kara Lawson's Duke, Team USA balancing act is its own March Madness**\
+`Team USA's training camp and Duke's postseason obligations will overlap, forcing Lawson to make some tough decisions.`\
+https://nytimes.com/athletic/7091123/2026/03/06/kara-lawson-duke-team-usa/
 
-**Intriguing MLB spring training roster battles that could produce exciting young players**\
-`Roster battles aren't always that intriguing but when one of the contenders is a potential future roster pillar, they take on more meaning.`\
-https://nytimes.com/athletic/7081183/2026/03/06/mlb-spring-roster-battles-breakout-players/
+**Luka Dončić reaches brink of suspension after racking up 15th technical foul**\
+`Dončić's technical foul was part of a tough night for the Lakers with the officials during their 120-113 loss to the Nuggets.`\
+https://nytimes.com/athletic/7092782/2026/03/06/luka-doncic-lakers-technical-foul-suspension/
 
-**The Athletic's women's basketball Coach of the Year: Vanderbilt's Shea Ralph**\
-`Ralph brought in four new starters to create a successful season.`\
-https://nytimes.com/athletic/7090804/2026/03/06/vanderbilt-shea-ralph-athletic-womens-basketball-coach-year/
+**Romeo Doubs, Jaelan Phillips and every free agent who makes sense for the 49ers**\
+`One position that seems like a must in free agency: defensive tackle. The 49ers have a lot of youth there but little experience.`\
+https://nytimes.com/athletic/7092003/2026/03/06/49ers-free-agency-needs-nfl/
 
-**Women's NCAA Tournament Bracket Watch: UConn, UCLA No. 1 seed locks. Then who?**\
-`Did Michigan State play itself out of hosting contention?`\
-https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-watch-uconn-ucla/
+**Why Tom Izzo and Dusty May personify the Big Ten's best basketball rivalry**\
+`Michigan-Michigan State is heated in all sports, but the basketball rivalry is reaching another level with May challenging Izzo.`\
+https://nytimes.com/athletic/7090531/2026/03/06/michigan-state-michigan-basketball-rivalry-izzo-may/
 

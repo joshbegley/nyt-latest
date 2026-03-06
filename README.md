@@ -1,3 +1,11 @@
+**The Jobs Report**\
+`We explain why you should consider the numbers.`\
+https://nytimes.com/2026/03/06/briefing/the-jobs-report.html
+
+**Madrid sanctioned by UEFA after fan performed Nazi salute at Champions League tie**\
+`The incident took place before Madrid's 2-1 win over Benfica and the club opened disciplinary proceedings following the match.`\
+https://nytimes.com/athletic/7092991/2026/03/06/real-madrid-benfica-uefa-sanction/
+
 **Men's college basketball weekend guide: UNC-Duke, Michigan St. vs. Michigan, bubblers**\
 `Duke-UNC and MSU-Michigan are the clear headliners, but there's much more to check out during the final weekend of the regular season.`\
 https://nytimes.com/athletic/7090371/2026/03/06/unc-duke-michigan-ncaa-tournament-bubble-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7091123/2026/03/06/kara-lawson-duke-team-usa/
 **Luka Dončić reaches brink of suspension after racking up 15th technical foul**\
 `Dončić's technical foul was part of a tough night for the Lakers with the officials during their 120-113 loss to the Nuggets.`\
 https://nytimes.com/athletic/7092782/2026/03/06/luka-doncic-lakers-technical-foul-suspension/
-
-**Romeo Doubs, Jaelan Phillips and every free agent who makes sense for the 49ers**\
-`One position that seems like a must in free agency: defensive tackle. The 49ers have a lot of youth there but little experience.`\
-https://nytimes.com/athletic/7092003/2026/03/06/49ers-free-agency-needs-nfl/
-
-**Why Tom Izzo and Dusty May personify the Big Ten's best basketball rivalry**\
-`Michigan-Michigan State is heated in all sports, but the basketball rivalry is reaching another level with May challenging Izzo.`\
-https://nytimes.com/athletic/7090531/2026/03/06/michigan-state-michigan-basketball-rivalry-izzo-may/
 
