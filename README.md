@@ -1,3 +1,7 @@
+**3 Australians Were on U.S. Submarine that Sank an Iranian Warship**\
+`Prime Minister Anthony Albanese’s disclosure about the attack in the Indian Ocean prompted concern that Australia’s close military cooperation with the United States could draw it into the fighting in the Middle East.`\
+https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-australia.html
+
 **Crystal Palace have some momentum again**\
 `Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
 https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resiliance-premier-league-glasner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-b
 **Aston Martin F1 crisis deepens with engine battery shortage at 2026 Australian GP**\
 `Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
 https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/
-
-**Wizards' Juju Reese, younger brother of Angel Reese, collects 20 rebounds**\
-`One week ago, Juju Reese was in the G League. On Thursday, he controlled the boards for the NBA's Wizards.`\
-https://nytimes.com/athletic/7092479/2026/03/06/juju-reese-angel-reese-20-rebounds/
 
