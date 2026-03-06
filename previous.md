@@ -1,3 +1,11 @@
+**How to watch Southeast Missouri State vs. Western Illinois women's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Southeast Missouri State Redhawks play the Western Illinois Leathernecks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093210/2026/03/06/southeast-missouri-state-vs-western-illinois-stream-how-to-watch-march-6/
+
+**How to watch Ohio State vs. Minnesota women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093205/2026/03/06/ohio-state-vs-minnesota-stream-how-to-watch-march-6/
+
 **NHL Power Rankings: A new (old) No. 1, plus each team's perfect trade deadline**\
 `Hope is high for teams on both sides of the buyer/seller line. Let's look into each team’s best-case-scenario deadline.`\
 https://nytimes.com/athletic/7092385/2026/03/06/nhl-power-rankings-trade-deadline-5/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/06/us/trump-news-updates
 **The Timberwolves are making their charge, right on schedule**\
 `Minnesota has been maddeningly inconsistent at times this season, but Anthony Edwards can feel the team starting to hit its stride. `\
 https://nytimes.com/athletic/7092045/2026/03/06/timberwolves-anthony-edwards-win-streak/
-
-**F1 stewards to be more lenient over clashes between drivers in 2026**\
-`The FIA's guideline changes cover “racing to the apex” driving and how drivers cannot simply disappear once they have been overtaken.`\
-https://nytimes.com/athletic/7093007/2026/03/06/f1-driver-clashes-guidelines/
-
-**Trump’s Strait of Hormuz Problem**\
-`The president campaigned on lowering prices for Americans. That pledge has come under fire this week as the Iran war pushes up the cost of gasoline.`\
-https://nytimes.com/2026/03/06/business/dealbook/trump-strait-hormuz-iran-gasoline.html
 
