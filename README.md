@@ -1,3 +1,15 @@
+**Red Wings trade deadline report card: Grading Steve Yzerman's moves**\
+`The Red Wings saved their deadline with a last-minute deal to address their biggest need.`\
+https://nytimes.com/athletic/7082694/2026/03/06/red-wings-2026-nhl-trade-deadline-grades/
+
+**Nazem Kadri returning to Avalanche after trade from Flames: Sources**\
+`Kadri, 35, whose contract goes through 2029 with a $7,000,000 cap hit, has led the Flames in scoring each of the past two seasons.`\
+https://nytimes.com/athletic/7010451/2026/03/06/flames-nazem-kadri-trade-avalanche/
+
+**Both Top Choices to Lead N.Y. Child Services Agency Are Off the List**\
+`The Mamdani administration had signaled it was open to making significant changes at the agency, and it was unclear on Friday what direction it will now take.`\
+https://nytimes.com/2026/03/06/nyregion/acs-abolitionist-commissioner.html
+
 **Sabres trade deadline report card: Grading GM Jarmo Kekäläinen's moves**\
 `Kekäläinen made some solid depth additions that will boost Buffalo’s team toughness, which will be necessary in the playoffs.`\
 https://nytimes.com/athletic/7080890/2026/03/06/sabres-2026-nhl-trade-deadline-grades/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7094502/2026/03/06/nhl-trade-grades-kraken-maple-le
 **Senators trade deadline report card: Grading Steve Staios' moves**\
 `The addition of Warren Foegele is the highlight of the Senators' moves at the deadline, but Ottawa could have added another defensive piece.`\
 https://nytimes.com/athletic/7083266/2026/03/06/senators-2026-nhl-trade-deadline-grades/
-
-**NHL trade grades: Red Wings bring in Justin Faulk to fill a crucial role**\
-`The best trades are the ones where both teams win, and the Justin Faulk deal is a perfect example of that.`\
-https://nytimes.com/athletic/7094651/2026/03/06/nhl-trade-grades-justin-faulk-red-wings-blues/
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
-https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
-
-**Jets trade deadline report card: Grading Kevin Cheveldayoff's moves**\
-`The prospect and draft picks have way higher odds of helping Winnipeg down the road than a pair of unrestricted free agents.`\
-https://nytimes.com/athletic/7083350/2026/03/06/jets-2026-nhl-trade-deadline-grades/
 

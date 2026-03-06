@@ -1,3 +1,23 @@
+**Sabres trade deadline report card: Grading GM Jarmo Kekäläinen's moves**\
+`Kekäläinen made some solid depth additions that will boost Buffalo’s team toughness, which will be necessary in the playoffs.`\
+https://nytimes.com/athletic/7080890/2026/03/06/sabres-2026-nhl-trade-deadline-grades/
+
+**A Head of State, a Rock Star and Oprah Walk Into a Palace**\
+`Stella McCartney commands the axis of cultural power for the French Legion of Honor.`\
+https://nytimes.com/2026/03/06/style/stella-mccartney-legion-dhonneur-emmanuel-macron-paris.html
+
+**The State of U.S. Markets**\
+`Our business reporter Joe Rennison walks us through three charts to help make sense of the wild swings in the markets this week since the attacks on Iran commenced.`\
+https://nytimes.com/video/us/100000010755999/the-state-of-us-markets.html
+
+**The Washington Capitals just traded John Carlson — will they lose Alex Ovechkin, too?**\
+`Ovechkin's contract expires after this season, and the Capitals just traded one of his close friends.`\
+https://nytimes.com/athletic/7094328/2026/03/06/washington-capitals-ovechkin-carlson-trade/
+
+**NHL trade deadline winners and losers: Parayko rebuffs Buffalo, McDavid doesn't get enough help**\
+`A sleepy NHL trade deadline says a lot about the state of the league in 2026. Here's who navigated the changing landscape best — and worst.`\
+https://nytimes.com/athletic/7094620/2026/03/06/nhl-trade-deadline-winners-losers-2026/
+
 **NHL trade grades: Maple Leafs-Kraken deal for Bobby McMann is underwhelming all around**\
 `The Maple Leafs got an acceptable return from the Kraken but not much more.`\
 https://nytimes.com/athletic/7094502/2026/03/06/nhl-trade-grades-kraken-maple-leafs-bobby-mcmann/
@@ -17,24 +37,4 @@ https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
 **Jets trade deadline report card: Grading Kevin Cheveldayoff's moves**\
 `The prospect and draft picks have way higher odds of helping Winnipeg down the road than a pair of unrestricted free agents.`\
 https://nytimes.com/athletic/7083350/2026/03/06/jets-2026-nhl-trade-deadline-grades/
-
-**Leafs trade Scott Laughton to Kings for draft pick**\
-`The Leafs sent their 2027 first-round pick to the Flyers as part of a package to acquire Laughton at the 2025 trade deadline.`\
-https://nytimes.com/athletic/7036432/2026/03/06/maple-leafs-trade-scott-laughton-kings/
-
-**Macron speaks with Lebanon’s leader, as France seeks to broker a truce between Israel and Hezbollah.**\
-`By Euan Ward, Natan Odenheimer and Catherine Porter`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/macron-aoun-lebanon-france-israel-ceasefire-hezbollah
-
-**How to watch Avalanche vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7094859/2026/03/06/avalanche-vs-stars-stream-how-to-watch-march-6/
-
-**How to watch Northern Iowa vs. Illinois State men's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Northern Iowa Panthers play the Illinois State Redbirds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7094854/2026/03/06/northern-iowa-vs-illinois-state-stream-how-to-watch-march-6/
-
-**How to watch Pelicans vs. Suns: Time, TV, streaming**\
-`Find out how to watch the New Orleans Pelicans play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7094848/2026/03/06/pelicans-vs-suns-stream-how-to-watch-march-6/
 
