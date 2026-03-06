@@ -1,3 +1,11 @@
+**‘The Pitt’ Season 2, Episode 9 Recap: Family Separation**\
+`A young boy arrives at the emergency room this week with a firework-related injury, but his troubles run much deeper than that.`\
+https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9.html
+
+**Drone’s Image**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2026/03/05/crosswords/daily-puzzle-2026-03-06.html
+
 **Court filing takes aim at Grand Slam Track's bankruptcy plan**\
 `More than 150 athletes are still owed large sums, including $268,750 for Sydney McLaughin-Levrone.`\
 https://nytimes.com/athletic/7091617/2026/03/05/grand-slam-track-bankruptcy-plan-court/

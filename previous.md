@@ -1,3 +1,11 @@
+**‘The Pitt’ Season 2, Episode 9 Recap: Family Separation**\
+`A young boy arrives at the emergency room this week with a firework-related injury, but his troubles run much deeper than that.`\
+https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9.html
+
+**Drone’s Image**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2026/03/05/crosswords/daily-puzzle-2026-03-06.html
+
 **Court filing takes aim at Grand Slam Track's bankruptcy plan**\
 `More than 150 athletes are still owed large sums, including $268,750 for Sydney McLaughin-Levrone.`\
 https://nytimes.com/athletic/7091617/2026/03/05/grand-slam-track-bankruptcy-plan-court/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7092136/2026/03/05/rams-tyler-higbee-nfl-free-agenc
 **Justice Dept. Releases Missing Interviews With Woman Who Made Claims Against Trump**\
 `The pages had been withheld from the trove of documents related to the convicted sex offender Jeffrey Epstein because of what officials called a mistaken determination that they were duplicates.`\
 https://nytimes.com/2026/03/05/us/politics/trump-epstein-interviews-woman-justice-department.html
-
-**Dodgers Roster Projection 2.0: Finding the battles in a settled camp**\
-`Like just about everything in Dodgers camp, there is little suspense. Much of the roster is already settled.`\
-https://nytimes.com/athletic/7091674/2026/03/05/dodgers-roster-projection-2-0-spring-training-2026/
-
-**Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
-`The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
-https://nytimes.com/2026/03/05/us/politics/kristi-noem-dhs-timeline.html
 
