@@ -1,3 +1,7 @@
+**Two Make-or-Break Days in the Life of a Fashion Designer**\
+`In the lead-up to Courrèges fall fashion show, Nicolas Di Felice held fittings, oversaw rehearsals and gave notes on a floor meant to look like a city street.`\
+https://nytimes.com/2026/03/06/t-magazine/courreges-nicolas-di-felice-show.html
+
 **Red Wings trade deadline report card: Grading Steve Yzerman's moves**\
 `The Red Wings saved their deadline with a last-minute deal to address their biggest need.`\
 https://nytimes.com/athletic/7082694/2026/03/06/red-wings-2026-nhl-trade-deadline-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7094620/2026/03/06/nhl-trade-deadline-winners-loser
 **NHL trade grades: Maple Leafs-Kraken deal for Bobby McMann is underwhelming all around**\
 `The Maple Leafs got an acceptable return from the Kraken but not much more.`\
 https://nytimes.com/athletic/7094502/2026/03/06/nhl-trade-grades-kraken-maple-leafs-bobby-mcmann/
-
-**Senators trade deadline report card: Grading Steve Staios' moves**\
-`The addition of Warren Foegele is the highlight of the Senators' moves at the deadline, but Ottawa could have added another defensive piece.`\
-https://nytimes.com/athletic/7083266/2026/03/06/senators-2026-nhl-trade-deadline-grades/
 
