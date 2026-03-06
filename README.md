@@ -1,3 +1,11 @@
+**'The sacrifice is worth it' - Polish side intends to forfeit match over away fan ban**\
+`The president of Wisla has said the club “will remain in Krakow and not participate” in the game, scheduled for Saturday in Wroclaw.`\
+https://nytimes.com/athletic/7094330/2026/03/06/poland-football-ban-wisla-krakow-slask/
+
+**Wild trade deadline report card: Grading Bill Guerin's moves**\
+`The Wild’s heavy lifting was done with their mid-December blockbuster for Quinn Hughes, who has absolutely been a game-changer for the team.`\
+https://nytimes.com/athletic/7082711/2026/03/06/wild-2026-nhl-trade-deadline-grades/
+
 **Ex-Michigan coach Sherrone Moore agrees to plea deal, felony charge dropped**\
 `Sherrone Moore pleaded no contest to two misdemeanor charges as part of a plea agreement that dismissed other charges.`\
 https://nytimes.com/athletic/7094533/2026/03/06/sherrone-moore-michigan-plea-deal-charges/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/us/markwayne-mullin-trump-oklahoma.html
 **Blues captain Brayden Schenn waives no-trade for deal to Islanders**\
 `Schenn, 34, whose contract goes through 2028 with a $6,500,000 cap hit, had a 15-team no-trade list.`\
 https://nytimes.com/athletic/7021197/2026/03/06/blues-islanders-trade-brayden-schenn/
-
-**Families Forced to Sleep on the Streets of Beirut as Israel Pounds Hezbollah**\
-`Thousands fled the southern outskirts of the Lebanese capital before Israel unleashed heavy strikes on the militant group overnight. Many say they have nowhere to go.`\
-https://nytimes.com/2026/03/06/world/middleeast/beirut-displaced-israeli-strikes-dahiya.html
-
-**Colorado to honor quarterback Dominiq Ponder with jersey patch**\
-`Colorado coach Deion Sanders said Friday the walk-on was a “bona fide leader.”`\
-https://nytimes.com/athletic/7094332/2026/03/06/colorado-dominiq-ponder-jersey-patch/
 
