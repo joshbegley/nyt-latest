@@ -1,3 +1,11 @@
+**Here Is Mexico’s Plan to Keep the Country Safe During the World Cup**\
+`Officials announced a massive deployment of security forces ahead of the world’s largest sporting event after recent violence prompted safety concerns for the millions of fans expected to attend.`\
+https://nytimes.com/2026/03/06/world/americas/world-cup-mexico-security-plan.html
+
+**Spain’s Spurning of Trump Has Made Me a Patriot**\
+`There are times when it is clear what it means to stand up for what is right.`\
+https://nytimes.com/2026/03/06/opinion/trump-spain-sanchez-iran-military-bases.html
+
 **Florida Bar Retreats From Statement Saying Lindsey Halligan Was Under Scrutiny**\
 `The Florida bar said that it had “erroneously” made that assertion, disclosed in a letter last month, and that no investigation into Ms. Halligan was pending.`\
 https://nytimes.com/2026/03/06/us/politics/lindsey-halligan-florida-bar.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082727/2026/03/06/canadiens-2026-nhl-trade-deadlin
 **Kings trade deadline report card: Grading GM Ken Holland's moves**\
 `The Kings made a late move for forward Scott Laughton.`\
 https://nytimes.com/athletic/7082703/2026/03/06/la-kings-2026-nhl-trade-deadline-grades/
-
-**Having already hit his home run, Wild GM Bill Guerin bets on his team with patient trade deadline**\
-`Guerin didn't use any of his premium assets to add at the deadline, saying "Sometimes patience pays off."`\
-https://nytimes.com/athletic/7094572/2026/03/06/wild-bill-guerin-trade-deadline-2026/
-
-**Timothée Chalamet Has a Point About Ballet**\
-`This art form is alive, and Chalamet, who comes from a dance family, knows it. But what value does ballet have for the world at large?`\
-https://nytimes.com/2026/03/06/arts/dance/timothee-chalamet-ballet-opera.html
 
