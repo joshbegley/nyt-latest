@@ -1,3 +1,7 @@
+**A Sly Political Switcheroo Stuns Montana and Starts a New Senate Fight**\
+`Minutes before the Senate filing deadline, Senator Steve Daines withdrew his re-election bid and an ally jumped in. Even some fellow Republicans criticized the 11th-hour switch.`\
+https://nytimes.com/2026/03/05/us/politics/steve-daines-montana-senate-alme.html
+
 **Not Just Oil: In Venezuela, U.S. Interior Secretary Pushes for Mining Access**\
 `Venezuela is home to large reserves of rare earths, gold and other valuable minerals that the Trump administration wants to exert more control over.`\
 https://nytimes.com/2026/03/05/nyregion/not-just-oil-in-venezuela-us-interior-secretary-pushes-for-mining-access.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010756485/trump-noem-mullin-dhs.html
 **Senate Democrat Pushes to Investigate Noem for Perjury**\
 `Senator Richard Blumenthal of Connecticut said Democrats had evidence to suggest Kristi Noem lied under oath during a Senate hearing on Tuesday.`\
 https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal.html
-
-**Rangers sit Vincent Trocheck, Sam Carrick for roster management**\
-`Trocheck and Carrick are two of the remaining centers on the trade market ahead of the league's 3 p.m. (ET) Friday deadline.`\
-https://nytimes.com/athletic/7091672/2026/03/05/rangers-vincent-trocheck-sam-carrick-trade-leafs/
 

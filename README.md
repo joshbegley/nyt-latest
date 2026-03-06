@@ -1,3 +1,19 @@
+**Israel Pounds Southern Beirut, a Hezbollah Stronghold**\
+`The strikes were the most intense bombardment since a cease-fire deal in late 2024.`\
+https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
+
+**State Department Is Accused of Slow Assistance for Stranded Americans**\
+`Many veteran diplomats faulted the State Department for its response after the attacks in Iran began, and for its actions beforehand.`\
+https://nytimes.com/2026/03/05/us/politics/state-department-iran-evacuations.html
+
+**Iran War Pulls New Countries Into Conflict**\
+`The conflict between Iran, Israel and the United States expanded on Thursday after multiple Iranian attacks pushed leaders in Britain and Italy to accelerate their deployment of military assets to the region.`\
+https://nytimes.com/video/world/middleeast/100000010755847/europe-iran-defense-uk-italy.html
+
+**Ex-Executive at Blood Filter Start-Up Charged With Covering Up Deaths**\
+`ExThera attracted cancer patients to Antigua with the promise that its devices could cure them. Its former chief regulatory officer now faces up to three years in prison.`\
+https://nytimes.com/2026/03/05/business/exthera-cancer-filter-federal-charges.html
+
 **A Sly Political Switcheroo Stuns Montana and Starts a New Senate Fight**\
 `Minutes before the Senate filing deadline, Senator Steve Daines withdrew his re-election bid and an ally jumped in. Even some fellow Republicans criticized the 11th-hour switch.`\
 https://nytimes.com/2026/03/05/us/politics/steve-daines-montana-senate-alme.html
@@ -15,26 +31,10 @@ https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.
 https://nytimes.com/athletic/7091587/2026/03/05/chicago-cubs-craig-counsell-son-brady/
 
 **Blues still have time to maximize trade deadline, but after two whiffs, it's running short**\
-`The Blues have had two trades fall through and have less than 24 hours to start making more before the NHL deadline.`\
+`The Blues have had two trades publicly fall through and have less than 24 hours to start making more before the NHL deadline.`\
 https://nytimes.com/athletic/7091114/2026/03/05/blues-nhl-trade-deadline-parayko-thomas-no-trade-clause/
 
 **Two Schools in Iran Damaged in U.S.-Israeli Bombing**\
 `Photos show that both schools, southeast of Tehran, sustained damage. No injuries were reported.`\
 https://nytimes.com/2026/03/05/world/middleeast/iran-schools-hit.html
-
-**How to watch San Diego vs. Loyola Marymount men's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the San Diego Toreros play the Loyola Marymount Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7091860/2026/03/05/san-diego-vs-loyola-marymount-stream-how-to-watch-march-5/
-
-**Protection for Section 8 Renters Is Struck Down by N.Y. Appeals Court**\
-`A panel of appeals judges ruled that a state law banning housing discrimination against renters who use federal vouchers was unconstitutional.`\
-https://nytimes.com/2026/03/05/nyregion/section-8-vouchers-ruling-new-york.html
-
-**President Fires Noem as Homeland Security Secretary**\
-`President Trump fired Kristi Noem, his embattled homeland security secretary, on Thursday and announced his plans to replace her with Senator Markwayne Mullin of Oklahoma.`\
-https://nytimes.com/video/us/politics/100000010756485/trump-noem-mullin-dhs.html
-
-**Senate Democrat Pushes to Investigate Noem for Perjury**\
-`Senator Richard Blumenthal of Connecticut said Democrats had evidence to suggest Kristi Noem lied under oath during a Senate hearing on Tuesday.`\
-https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal.html
 
