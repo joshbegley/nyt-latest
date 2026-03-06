@@ -1,3 +1,7 @@
+**Rangers trading Sam Carrick to Sabres: Source**\
+`Carrick has another year on his contract at $1 million average annual value.`\
+https://nytimes.com/athletic/7092368/2026/03/05/rangers-sam-carrick-trade-sabres/
+
 **LeBron passes Kareem for most made field goals in NBA history**\
 `"He's got a hell of a catalog,” Laker coach JJ Redick said before Thursday's game in Denver.`\
 https://nytimes.com/athletic/7092315/2026/03/05/lebron-james-record-field-goals-nba-kareem/
