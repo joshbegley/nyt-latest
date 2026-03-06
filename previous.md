@@ -1,3 +1,11 @@
+**In first spring start, Justin Verlander comes full circle with Detroit**\
+`It’s the story of a three-time Cy Young Award winner steering his journey back to the place where it all began, at age 43. `\
+https://nytimes.com/athletic/7095215/2026/03/06/detroit-tigers-justin-verlander-first-spring-training-start/
+
+**Trump Demands ‘Unconditional Surrender’ From Iran**\
+`Also, a weak jobs report. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/03/06/briefing/iran-oil-jobs.html
+
 **High schooler scores 4 baskets in 17 seconds to lift team to state title game**\
 `Ava Smid stole her team a win with an instantly viral scoring blitz at the Iowa girls basketball state tournament.`\
 https://nytimes.com/athletic/7094405/2026/03/06/iowa-high-school-girls-basketball-comeback/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/06/us/politics/talarico-social-media-democrats-jobs-
 **Canucks trade deadline report card: Grading GM Patrik Allvin's moves**\
 `The work overall is defensible, but it wasn't a home run deadline for an embattled Canucks management group.`\
 https://nytimes.com/athletic/7083338/2026/03/06/canucks-2026-nhl-trade-deadline-grades/
-
-**Maple Leafs trade deadline report card: Grading Brad Treliving's moves**\
-`In the end, the Leafs did just OK in trading away Nicolas Roy, Bobby McMann and Scott Laughton for draft picks.`\
-https://nytimes.com/athletic/7083307/2026/03/06/maple-leafs-2026-nhl-trade-deadline-grades/
-
-**Penguins trade deadline report card: Grading Kyle Dubas' moves**\
-`There were no blockbusters, but the Penguins did get better before the NHL trade deadline.`\
-https://nytimes.com/athletic/7083285/2026/03/06/penguins-2026-nhl-trade-deadline-grades/
 

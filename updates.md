@@ -1,3 +1,11 @@
+**In first spring start, Justin Verlander comes full circle with Detroit**\
+`It’s the story of a three-time Cy Young Award winner steering his journey back to the place where it all began, at age 43. `\
+https://nytimes.com/athletic/7095215/2026/03/06/detroit-tigers-justin-verlander-first-spring-training-start/
+
+**Trump Demands ‘Unconditional Surrender’ From Iran**\
+`Also, a weak jobs report. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/03/06/briefing/iran-oil-jobs.html
+
 **High schooler scores 4 baskets in 17 seconds to lift team to state title game**\
 `Ava Smid stole her team a win with an instantly viral scoring blitz at the Iowa girls basketball state tournament.`\
 https://nytimes.com/athletic/7094405/2026/03/06/iowa-high-school-girls-basketball-comeback/
