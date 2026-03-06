@@ -1,3 +1,15 @@
+**A Philharmonic Conductor’s Concerts Surprise, for Better and Worse**\
+`Mirga Grazinyte-Tyla returned to the New York Philharmonic for a pair of programs, but only one formed a cohesive arc of ideas.`\
+https://nytimes.com/2026/03/06/arts/music/ny-phil-mirga-grazinyte-tyla.html
+
+**Winter Survival Tips From the Cast of ‘Sentimental Value’**\
+`The Scandinavian co-stars of Joachim Trier’s 2025 film “Sentimental Value” — Stefan Skarsgard, Renate Reinsve and Inga Ibsdotter Lilleaas — discuss their favorite winter rituals.`\
+https://nytimes.com/video/t-magazine/100000010739305/winter-survival-tips-from-the-cast-of-sentimental-value.html
+
+**Flashback: Your Weekly History Quiz, March 7, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/03/06/upshot/flashback.html
+
 **Trump’s Removal of Kristi Noem**\
 `Readers respond to the dismissal of Kristi Noem as the homeland security secretary. Also: Two ways of parking; Meta’s facial recognition.`\
 https://nytimes.com/2026/03/06/opinion/trump-kristi-noem-dhs.html

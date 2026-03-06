@@ -1,3 +1,11 @@
+**Take a peek inside the Cortina d'Ampezzo Paralympic athletes' village**\
+`Take a tour of the Cortina athletes' village, which the area's Paralympians will call home over the next week-plus.`\
+https://nytimes.com/athletic/7089925/2026/03/06/winter-paralympics-athletes-village-cortina-inside-tour/
+
+**NBA commissioner Adam Silver says changes coming to deter teams from tanking**\
+`Silver has personally gotten involved in finding a solution to tanking, and the NBA has escalated punishments for such teams.`\
+https://nytimes.com/athletic/7094125/2026/03/06/nba-adam-silver-tanking-solution-future/
+
 **A Philharmonic Conductor’s Concerts Surprise, for Better and Worse**\
 `Mirga Grazinyte-Tyla returned to the New York Philharmonic for a pair of programs, but only one formed a cohesive arc of ideas.`\
 https://nytimes.com/2026/03/06/arts/music/ny-phil-mirga-grazinyte-tyla.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/arts/design/charlotte-perriand-dead.html
 **Wars Often Lose Public Support Over Time. Trump Started This One Without Much.**\
 `In opening a military campaign against Iran, President Trump is the first president in modern times to take the United States to war without the backing of the public.`\
 https://nytimes.com/2026/03/06/us/politics/trump-iran-war-public-support.html
-
-**When Britney Spears’s Conservatorship Ended, Concern for Her Did Not**\
-`The pop star’s arrest on suspicion of driving under the influence this week was a breaking point, years after she regained control of her life and finances.`\
-https://nytimes.com/2026/03/06/arts/music/britney-spears-arrest-conservatorship.html
-
-**Kings trade Corey Perry to Lightning for second-round pick**\
-`The 40-year-old has been on the losing side of five of the last six Stanley Cup Finals.`\
-https://nytimes.com/athletic/7094128/2026/03/06/kings-corey-perry-trade-lightning/
 
