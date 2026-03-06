@@ -1,3 +1,23 @@
+**Architect of Trump’s Rollback of Climate Rules Leaves White House**\
+`Jeffrey B. Clark oversaw the dismantlement of government restrictions on greenhouse gas emissions and water and air pollution. He had also faced a criminal probe in connection with the 2020 election.`\
+https://nytimes.com/2026/03/06/us/politics/trump-administration-jeffrey-clark-exit.html
+
+**Blues trade Justin Faulk to Red Wings for 1st- and 3rd-round picks: Sources**\
+`Faulk, 33, whose contract goes through 2027 with a $6.5 million cap hit, is logging more than 22 minutes per night in his 15th NHL season.`\
+https://nytimes.com/athletic/7021215/2026/03/06/blues-red-wings-trade-justin-faulk/
+
+**Leafs trade Bobby McMann to Kraken for draft picks**\
+`McMann, 29, is a pending unrestricted free agent with a $1.35 million cap hit.`\
+https://nytimes.com/athletic/7018829/2026/03/06/maple-leafs-bobby-mcmann-trade-kraken/
+
+**In the Gulf, a Cruise Line Steps Up to Get Stranded Passengers Home**\
+`Thousands of guests on at least six ships await evacuation in the Gulf region. With government help slow, MSC, the world’s third-largest line, took matters into its own hands.`\
+https://nytimes.com/2026/03/06/travel/stranded-cruise-passengers-gulf-war.html
+
+**Devils trade deadline report card: Grading Tom Fitzgerald's moves**\
+`The Devils didn’t change much at the deadline: Dougie Hamilton stayed, as did Šimon Nemec.`\
+https://nytimes.com/athletic/7082732/2026/03/06/devils-2026-nhl-trade-deadline-grades/
+
 **'The sacrifice is worth it' - Polish side intends to forfeit match over away fan ban**\
 `The president of Wisla has said the club “will remain in Krakow and not participate” in the game, scheduled for Saturday in Wroclaw.`\
 https://nytimes.com/athletic/7094330/2026/03/06/poland-football-ban-wisla-krakow-slask/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7080928/2026/03/06/blackhawks-2026-nhl-trade-deadli
 **Jeremy Larner, Who Wrote ‘The Candidate,’ a Political Film Classic, Dies at 88**\
 `His Oscar-winning 1972 screenplay starred Robert Redford as an idealistic public interest lawyer making a run for the Senate.`\
 https://nytimes.com/2026/03/06/movies/jeremy-larner-dead.html
-
-**Wolves commemorate Jota with Molineux paintings before Liverpool FA Cup tie**\
-`Jota, who made 131 appearances for Wolves and 182 for Liverpool, died at the age of 28 alongside his brother Andre Silva in Spain`\
-https://nytimes.com/athletic/7094423/2026/03/06/diogo-jota-painting-news-liverpool-wolves-fa-cup/
-
-**Can a Bride Ban a Hairstyle?**\
-`In a TikTok video, an influencer said that she would prefer for bridesmaids not to wear a specific hairstyle to her wedding, igniting a conversation about the strict rules bridesmaids often follow.`\
-https://nytimes.com/2026/03/06/style/wedding-planning-bridesmaid-hair-rules.html
-
-**Caleb Wilson out for season after breaking thumb in practice**\
-`Wilson, the Tar Heels’ leading scorer and rebounder, has missed UNC’s last six games with a fractured left hand.`\
-https://nytimes.com/athletic/7094486/2026/03/06/north-carolina-caleb-wilson-breaks-thumb-surgery/
-
-**Markwayne Mullin, Trump’s Homeland Security Pick, Learned to Spar in Oklahoma**\
-`He hosted a home improvement radio show, fought in cage matches and inherited a plumbing business before becoming a “MAGA warrior” in Congress.`\
-https://nytimes.com/2026/03/06/us/markwayne-mullin-trump-oklahoma.html
-
-**Blues captain Brayden Schenn waives no-trade for deal to Islanders**\
-`Schenn, 34, whose contract goes through 2028 with a $6,500,000 cap hit, had a 15-team no-trade list.`\
-https://nytimes.com/athletic/7021197/2026/03/06/blues-islanders-trade-brayden-schenn/
 
