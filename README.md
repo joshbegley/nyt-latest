@@ -1,3 +1,11 @@
+**Israeli Strikes Intensify in Beirut as Thousands of Lebanese Flee**\
+`About 300,000 people in Lebanon have fled their homes since bombing from the Israeli military began, the Norwegian Refugee Council estimated. ​​The Israeli military said it was targeting infrastructure belonging to Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000010758544/beirut-lebanon-iran-war-israel.html
+
+**The Unlikely Pairing That Pushed Hip-Hop Forward**\
+`A Tribe Called Quest had the vision for “The Low End Theory.” The engineer Bob Power helped piece it together.`\
+https://nytimes.com/2026/03/06/arts/music/bob-power-tribe-called-quest.html
+
 **Blues trade deadline report card: Grading Doug Armstrong's moves**\
 `It could have been a lot worse for the Blues if GM Doug Armstrong hadn't gotten a couple moves across the line late.`\
 https://nytimes.com/athletic/7083296/2026/03/06/blues-2026-nhl-trade-deadline-grades/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/nyregion/acs-abolitionist-commissioner.html
 **Sabres trade deadline report card: Grading GM Jarmo Kekäläinen's moves**\
 `Kekäläinen made some solid depth additions that will boost Buffalo’s team toughness, which will be necessary in the playoffs.`\
 https://nytimes.com/athletic/7080890/2026/03/06/sabres-2026-nhl-trade-deadline-grades/
-
-**A Head of State, a Rock Star and Oprah Walk Into a Palace**\
-`Stella McCartney commands the axis of cultural power for the French Legion of Honor.`\
-https://nytimes.com/2026/03/06/style/stella-mccartney-legion-dhonneur-emmanuel-macron-paris.html
-
-**The State of U.S. Markets**\
-`Our business reporter Joe Rennison walks us through three charts to help make sense of the wild swings in the markets this week since the attacks on Iran commenced.`\
-https://nytimes.com/video/us/100000010755999/the-state-of-us-markets.html
 
