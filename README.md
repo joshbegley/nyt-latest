@@ -1,3 +1,7 @@
+**Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
+`The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
+https://nytimes.com/2026/03/05/us/politics/key-moments-kristi-noem-dhs.html
+
 **Kristi Noem’s Story Was Destined to End This Way**\
 `It’s hard out there for a MAGA woman.`\
 https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/minnesota-kristi-noem-walz.html
 **Israel Pounds Southern Beirut, a Hezbollah Stronghold**\
 `The strikes were the most intense bombardment since a cease-fire deal in late 2024.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
-
-**State Department Is Accused of Slow Assistance for Stranded Americans**\
-`Many veteran diplomats faulted the State Department for its response after the attacks in Iran began, and for its actions beforehand.`\
-https://nytimes.com/2026/03/05/us/politics/state-department-iran-evacuations.html
 

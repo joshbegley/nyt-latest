@@ -1,3 +1,7 @@
+**Kristi Noem’s Story Was Destined to End This Way**\
+`It’s hard out there for a MAGA woman.`\
+https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
+
 **Panic in Beirut After Israel Warns Residents to Evacuate**\
 `The streets of Beirut erupted in chaos on Thursday after Israel told people in the southern suburbs to evacuate. The Israeli military has been carrying out airstrikes in Dahiya, a Hezbollah stronghold, since the militant group fired rockets into northern Israel earlier this week.`\
 https://nytimes.com/video/world/middleeast/100000010756628/beirut-lebanon-strikes-israel.html
