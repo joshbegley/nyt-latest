@@ -1,3 +1,15 @@
+**Flyers ease logjam at one position, worsen it at another. That's fine with Briere**\
+`Briere also said he got trade offers for Rasmus Ristolainen, but "nothing that made more sense to trade him, for what he brings.”`\
+https://nytimes.com/athletic/7095261/2026/03/06/flyers-nhl-trade-deadline-jiricek-defense-ristolainen-brink/
+
+**How the War in Iran Is Disrupting the World’s Oil**\
+`Our business reporter Peter Eavis looks at the global implications of the Strait of Hormuz, the narrow waterway to the south of Iran. He analyzes ship activity in the strait, comparing it before and after the United States and Israel initiated attacks on Iran.`\
+https://nytimes.com/video/world/middleeast/100000010750140/how-the-war-in-iran-is-disrupting-the-worlds-oil.html
+
+**Iran War Poses Test for Justice Dept. After Firings Deplete National Security Ranks**\
+`Firings, resignations and diversions to the president’s priorities have left elite counterterrorism and counterintelligence units stretched thin, current and former officials say.`\
+https://nytimes.com/2026/03/06/us/politics/trump-iran-war-doj-dhs-firings.html
+
 **Bears trading for Patriots center Garrett Bradbury: Sources**\
 `The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
 https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
