@@ -1,3 +1,15 @@
+**3 Australians Were on U.S. Submarine that Sank an Iranian Warship**\
+`Prime Minister Anthony Albanese’s disclosure about the attack in the Indian Ocean prompted concern that Australia’s close military cooperation with the United States could draw it into the fighting in the Middle East.`\
+https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-australia.html
+
+**Crystal Palace have some momentum again**\
+`Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
+https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resiliance-premier-league-glasner/
+
+**Capitals trade John Carlson to Ducks for 2 draft picks**\
+`Carlson has spent his entire 17-year NHL career with the Capitals, winning the Stanley Cup with them in 2018.`\
+https://nytimes.com/athletic/7036849/2026/03/06/capitals-john-carlson-trade/
+
 **Sabres acquire defensemen Logan Stanley, Luke Schenn in trade with Jets**\
 `Buffalo is sending Winnipeg Isak Rosen, Jacob Bryson, a second-round pick in 2027 and a fourth-round pick in 2026.`\
 https://nytimes.com/athletic/7092598/2026/03/06/jets-sabres-trade-stanley-schenn-rosen/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-b
 **Aston Martin F1 crisis deepens with engine battery shortage at 2026 Australian GP**\
 `Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
 https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/
-
-**Wizards' Juju Reese, younger brother of Angel Reese, collects 20 rebounds**\
-`One week ago, Juju Reese was in the G League. On Thursday, he controlled the boards for the NBA's Wizards.`\
-https://nytimes.com/athletic/7092479/2026/03/06/juju-reese-angel-reese-20-rebounds/
-
-**Explained: Elland Road, a push for infrastructure help — and why it won't impact redevelopment**\
-`Leeds director Peter Lowy spoke out about certain elements of redeveloping the area around Elland Road earlier this week`\
-https://nytimes.com/athletic/7089821/2026/03/06/elland-road-a-push-for-infrastructure-help-and-why-it-wont-impact-leedss-redevelopment/
-
-**Newcastle have played the most of any club in Europe's big leagues: This is the impact it's had**\
-`Eddie Howe's team have played more games in all competitions than any other side in the continent's top five leagues, this is why it matters`\
-https://nytimes.com/athletic/7087324/2026/03/06/newcastle-games-played-eddie-howe/
 
