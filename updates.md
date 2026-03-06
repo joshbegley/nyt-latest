@@ -1,3 +1,7 @@
+**Texas Representative Tony Gonzales Will Not Seek Re-election**\
+`Several House members had called for Tony Gonzales to step down after texts emerged showing his pursuit of a staff member who later killed herself.`\
+https://nytimes.com/2026/03/05/us/politics/tony-gonzales-resigns.html
+
 **Inexcusable play by Malkin could spell major trouble for the Penguins**\
 `Malkin is facing a likely suspension after slashing Rasmus Dahlin in the head and neck, and the Penguins will pay the price.`\
 https://nytimes.com/athletic/7092208/2026/03/05/penguins-evgeni-malkin-slash-dubas-trade-deadline-sabres/
