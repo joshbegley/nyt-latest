@@ -1,3 +1,11 @@
+**War in the Gulf Could Turn India Back Onto Russian Oil**\
+`India’s trade deal with President Trump was supposed to end its imports of oil from Russia. But the war in Iran has cut off alternative supplies from the Middle East.`\
+https://nytimes.com/2026/03/05/business/india-russian-oil.html
+
+**Minnesota Officials Welcome Firing of Homeland Security Secretary**\
+`Mayor Jacob Frey of Minneapolis said “Good riddance” after Ms. Noem’s ouster. Gov. Tim Walz and others said they still wanted a “complete overhaul” of the department.`\
+https://nytimes.com/2026/03/05/us/politics/minnesota-kristi-noem-walz.html
+
 **Israel Pounds Southern Beirut, a Hezbollah Stronghold**\
 `The strikes were the most intense bombardment since a cease-fire deal in late 2024.`\
 https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
