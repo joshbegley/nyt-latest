@@ -1,3 +1,7 @@
+**Court filing takes aim at Grand Slam Track's bankruptcy plan**\
+`More than 150 athletes are still owed large sums, including $268,750 for Sydney McLaughin-Levrone.`\
+https://nytimes.com/athletic/7091617/2026/03/05/grand-slam-track-bankruptcy-plan-court/
+
 **Bears releasing LB Tremaine Edmunds to free up salary-cap space: Source**\
 `Cutting Edmunds, a respected veteran who played for Chicago the last three years, clears $15 million of cap space for the Bears.`\
 https://nytimes.com/athletic/7060538/2026/03/05/bears-release-tremaine-edmunds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7091674/2026/03/05/dodgers-roster-projection-2-0-sp
 **Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
 `The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
 https://nytimes.com/2026/03/05/us/politics/kristi-noem-dhs-timeline.html
-
-**What Kristi Noem Should Do After President Trump Fired Her**\
-`It’s hard out there for a MAGA woman.`\
-https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
 
