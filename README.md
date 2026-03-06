@@ -1,3 +1,31 @@
+**Are Tottenham set for all-time shock relegation? Plus: Messi, Inter Miami meet Trump**\
+`Today in TAFC: Are Spurs set for a shock relegation after Palace defeat? Plus: Inter Miami and a pink ball at the White House...`\
+https://nytimes.com/athletic/7092935/2026/03/06/tottenham-relegation-messi-inter-miami-trump/
+
+**Twins hope veteran relievers pave way for young arms moving to bullpen**\
+`The Twins believe the four veteran relievers acquired late in the offseason can be a positive influence on their young arms.`\
+https://nytimes.com/athletic/7090552/2026/03/06/twins-veteran-relievers-mentor-bullpen/
+
+**The Italian job: Longtime Giants coaches Ron Wotus, Dave Righetti together again in WBC**\
+`Righetti and Wotus used to share a dugout in San Francisco. Now they'll try to help Team Italy advance in the World Baseball Classic.`\
+https://nytimes.com/athletic/7091779/2026/03/06/world-baseball-classic-sf-giants-ron-wotus-dave-righetti/
+
+**They Can’t Stay at Harry’s House, So They’ll Stay With Fellow Fans**\
+`Ahead of Harry Styles’s Madison Square Garden residency, fans are preparing to sublet their couches and spare rooms to concertgoers.`\
+https://nytimes.com/2026/03/06/realestate/harry-styles-residency-nyc-fan-sublets.html
+
+**‘The Headlines’ News Quiz: Mar. 6, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/03/06/podcasts/the-headlines/the-headlines-news-quiz-mar-6-2026.html
+
+**Air travel remains disrupted across the Middle East.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/air-travel-is-still-disrupted-across-the-middle-east
+
+**Pistons had few answers against the Spurs. What does it mean for the playoffs?**\
+`San Antonio's defense swarmed and stifled Cade Cunningham in a pair of wins. Can Detroit learn from it in time for the postseason?`\
+https://nytimes.com/athletic/7092665/2026/03/06/pistons-spurs-sweep-cade-cunningham/
+
 **This is what happened on March 5.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-5
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7089940/2026/03/06/red-sox-spring-training-standout
 **The Jobs Report**\
 `We explain why you should consider the numbers.`\
 https://nytimes.com/2026/03/06/briefing/the-jobs-report.html
-
-**Madrid sanctioned by UEFA after fan performed Nazi salute at Champions League tie**\
-`The incident took place before Madrid's 2-1 win over Benfica and the club opened disciplinary proceedings following the match.`\
-https://nytimes.com/athletic/7092991/2026/03/06/real-madrid-benfica-uefa-sanction/
-
-**Men's college basketball weekend guide: UNC-Duke, Michigan St. vs. Michigan, bubblers**\
-`Duke-UNC and MSU-Michigan are the clear headliners, but there's much more to check out during the final weekend of the regular season.`\
-https://nytimes.com/athletic/7090371/2026/03/06/unc-duke-michigan-ncaa-tournament-bubble-watch/
-
-**What we're seeing in Phillies camp: A new outfielder, Johan Rojas, ABS and more**\
-`Why was Keaton Anthony, a first baseman, hanging out with the outfielders in left during BP? The move is a worthwhile experiment.`\
-https://nytimes.com/athletic/7091422/2026/03/06/phillies-spring-training-johan-rojas/
-
-**Young and Looking for Work? We Want to Hear From You.**\
-`Unemployment is higher among younger people than other groups, and some companies are cutting back on entry-level hiring. Tell us how you are navigating the start of your career.`\
-https://nytimes.com/2026/03/06/business/economy/young-and-looking-for-work-we-want-to-hear-from-you.html
-
-**Team USA World Baseball Classic watch guide: TV schedule, broadcast and roster**\
-`Here's how to follow the U.S. team, with four Pool B games in Houston.`\
-https://nytimes.com/athletic/7087047/2026/03/06/usa-world-baseball-classic-2026-how-to-watch/
-
-**After trading DJ Moore, can Ryan Poles take Bears to the next level?**\
-`Before he landed Ben Johnson, Poles looked like another doomed Bears GM. But one great season later, he has a chance to write his legacy.`\
-https://nytimes.com/athletic/7091366/2026/03/06/bears-dj-moore-trade-ryan-poles-draft-free-agency/
-
-**The Athletic’s Friday football quiz question #96**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/7089323/2026/03/06/the-athletics-friday-football-quiz-question-96/
 
