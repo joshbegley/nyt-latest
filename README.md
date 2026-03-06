@@ -1,3 +1,7 @@
+**Palace's Doucoure plays first match after 14-month layoff with knee injury**\
+`The 26-year-old tore his meniscus in January 2025, having played just 13 times since recovering from a ruptured achilles in November 2023.`\
+https://nytimes.com/athletic/7093244/2026/03/06/doucoure-crystal-palace-injury-news/
+
 **Bellingham injury: Madrid midfielder doubtful for City tie**\
 `Kylian Mbappe is also expected to miss the first leg in Madrid and may not be fit for the return fixture.`\
 https://nytimes.com/athletic/7090383/2026/03/06/jude-bellingham-real-madrid-injury-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093255/2026/03/06/uic-vs-murray-state-stream-how-t
 **How to watch UL Monroe vs. Old Dominion women's basketball: Sun Belt Tournament Time, TV, streaming**\
 `Find out how to watch the UL Monroe Warhawks play the Old Dominion Monarchs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093246/2026/03/06/ul-monroe-vs-old-dominion-stream-how-to-watch-march-6/
-
-**How to watch Washington State vs. Pacific women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Washington State Cougars play the Pacific Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093243/2026/03/06/washington-state-vs-pacific-stream-how-to-watch-march-6/
 
