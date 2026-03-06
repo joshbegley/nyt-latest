@@ -1,3 +1,7 @@
+**Wild acquire winger Bobby Brink, send prospect David Jiricek to Flyers**\
+`The Wild see Brink, 24, as a third-line right wing who can move up the lineup if needed. He's a pending restricted free agent.`\
+https://nytimes.com/athletic/7093611/2026/03/06/wild-flyers-trade-bobby-brink-david-jiricek/
+
 **Jesse Lingard joins Brazilian club Corinthians**\
 `The 33-year-old has signed a contract until the end of 2026, with the option of a further year if certain thresholds are met.`\
 https://nytimes.com/athletic/7093432/2026/03/06/jesse-lingard-transfer-corinthians-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093399/2026/03/06/cristiano-ronaldo-saudi-spain-in
 **Stocks Drop as Weak Jobs Report Adds to Uncertain Outlook**\
 `Stock movements this week has been choppy as investors weighed the inflationary impact of the war in the Middle East. The jobs report has complicated matters.`\
 https://nytimes.com/2026/03/06/business/stocks-jobs-report.html
-
-**Iran will not compete in Paralympics due to travel concerns amid U.S., Israel strikes**\
-`Iran's lone representative will not compete at the 2026 Games, the International Paralympic Committee announced Friday.`\
-https://nytimes.com/athletic/7093395/2026/03/06/iran-winter-paralympics-us-israel-attack-travel/
 
