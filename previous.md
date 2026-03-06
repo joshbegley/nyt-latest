@@ -1,40 +1,40 @@
-**4 Men Arrested on Suspicion of Spying on Jews in London for Iran**\
-`The police said one Iranian and three British-Iranians were detained as part of a counterterrorism investigation.`\
-https://nytimes.com/2026/03/06/world/europe/4-men-arrested-on-suspicion-of-spying-on-jews-in-london-for-iran.html
+**Kristi Noem’s Firing, and the Boom of American Billionaires**\
+`Plus, your Friday news quiz.`\
+https://nytimes.com/2026/03/06/podcasts/the-headlines/kristi-noems-firing-american-billionaires.html
 
-**Tyra Banks Is (Kinda) Sorry**\
-`Wesley Morris talks with the writer, editor and stylist Michaela angela Davis about a new Netflix docu-series’ attempt to reckon with the legacy of “America’s Next Top Model.”`\
-https://nytimes.com/video/podcasts/100000010757690/tyra-banks-is-kinda-sorry.html
+**The Firing of Kristi Noem**\
+`President Trump fired the homeland security secretary, who helped fulfill his border pledges but also drew negative attention to his administration.`\
+https://nytimes.com/2026/03/06/podcasts/the-daily/trump-fires-kristi-noem.html
 
-**FA Cup fifth-round odds: Can Wrexham, Wolves and Newcastle provide the shock factor?**\
-`With eight ties over four days, this FA Cup fifth round could be when the cream rises to the top — or present an opportunity for a cupset`\
-https://nytimes.com/athletic/7092897/2026/03/06/fa-cup-fifth-round-wrexham-chelsea-man-city-newcastle/
+**Wordle Review No. 1,722**\
+`Scroll down for hints and conversation about the puzzle for Saturday, March 7, 2026.`\
+https://nytimes.com/2026/03/06/crosswords/wordle-review-1722.html
 
-**Body language in sports isn’t mystical. It can win or lose the next play**\
-`This isn't a character flaw; it's human wiring. The question is: What we can learn to do about it?`\
-https://nytimes.com/athletic/7090564/2026/03/06/kevin-durant-caleb-williams-body-language-expert/
+**Cowboys mock draft: A good case to trade back while still beefing up defense**\
+`In this mock draft, the Cowboys trade back, but still hold two first-round picks and add a second-rounder, too.`\
+https://nytimes.com/athletic/7089167/2026/03/06/cowboys-mock-draft-trade-defense-impact-mansoor-delane/
 
-**Jayson Tatum vs. Jaylen Brown? It's time to put that tired narrative to rest**\
-`“It’s the same dumb s--t they’ve been talking about since I was here,” former Celtic Grant Williams says of any Tatum-Brown rivalry talk.`\
-https://nytimes.com/athletic/7090883/2026/03/06/jayson-tatum-injury-celtics-return-jaylen-brown/
+**Connections Companion No. 1,000**\
+`Scroll down for hints and conversation about the puzzle for Saturday, March 7, 2026.`\
+https://nytimes.com/2026/03/06/crosswords/connections-companion-1000.html
 
-**How Team Nicaragua, underdogs in the World Baseball Classic, landed Dusty Baker**\
-`Baker will make his WBC debut after watching prior years from afar: 'It looks both fun and crazy. And I’m ready for both of them.'`\
-https://nytimes.com/athletic/7071961/2026/03/06/wbc-dusty-baker-nicaragua/
+**Sabres push winning streak to 5 as trade deadline buzz provides 'boost of morale'**\
+`The Sabres are thriving on the ice and enjoying the new experience of being buyers at the trade deadline.`\
+https://nytimes.com/athletic/7092427/2026/03/06/sabres-trade-deadline-tuch-kekalainen-penguins/
 
-**La Liga to stage retro week, vintage kits to be revealed at Madrid Fashion Week**\
-`La Liga confirmed 38 of the 42 teams across the country's top two divisions will participate in the initiative.`\
-https://nytimes.com/athletic/7083627/2026/03/06/la-liga-retro-week-vintage-shirts/
+**Lions mock draft: An offensive lineman they'll love and edge rusher with juice**\
+`Free agency might shake things up next week, but this Lions mock draft — with multiple trades — fills some key spots on both sides.`\
+https://nytimes.com/athletic/7091436/2026/03/06/lions-mock-draft-offensive-line-edge-rusher/
 
-**One dozen quarterbacks — including 2 favorites — who could be the Jets’ next starter**\
-`Ranking the team's true options as free agency approaches.`\
-https://nytimes.com/athletic/7092246/2026/03/06/new-york-jets-free-agency-qb-targets/
+**How Viktor Arvidsson has made his case to stay instead of being traded**\
+`Arvidsson, acquired last July, leads the Bruins in goals since the calendar turned to 2026.`\
+https://nytimes.com/athletic/7092193/2026/03/06/bruins-viktor-arvidsson-trade-candidate-predators/
 
-**Jermaine Eluemunor rose from rock bottom. Now, his reward awaits**\
-`The right tackle struggled with mental health for years before emerging as the self-proclaimed “best right tackle in the league.”`\
-https://nytimes.com/athletic/7090885/2026/03/06/jermaine-eluemunor-new-york-giants-free-agency/
+**Bubble Watch: With one game left before Champ Week, who's safe?**\
+`Bubble teams everywhere are scrambling to finish their homework before it is pencils down on Selection Sunday.`\
+https://nytimes.com/athletic/7090675/2026/03/06/mens-ncaa-tournament-bubble-watch-missouri-miami/
 
-**Ghiroli: The problem with MLB's drug policy isn't the testing, it's the contracts**\
-`Players don't receive a lifetime ban until a third PED violation. Perhaps it's time to reconsider the current penalties for positive tests.`\
-https://nytimes.com/athletic/7091280/2026/03/06/mlb-drug-testing-contracts-jurickson-profar/
+**Packers free agency: Which players from other teams might Green Bay target?**\
+`The Packers may not be major players in free agency, but there are a handful of bargain bin players they might have their eyes on.`\
+https://nytimes.com/athletic/7090762/2026/03/06/packers-free-agency-targets/
 
