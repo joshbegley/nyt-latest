@@ -1,3 +1,7 @@
+**Blues captain Brayden Schenn waives no-trade for deal to Islanders**\
+`Schenn, 34, whose contract goes through 2028 with a $6,500,000 cap hit, had a 15-team no-trade list.`\
+https://nytimes.com/athletic/7021197/2026/03/06/blues-islanders-trade-brayden-schenn/
+
 **Families Forced to Sleep on the Streets of Beirut as Israel Pounds Hezbollah**\
 `Thousands fled the southern outskirts of the Lebanese capital before Israel unleashed heavy strikes on the militant group overnight. Many say they have nowhere to go.`\
 https://nytimes.com/2026/03/06/world/middleeast/beirut-displaced-israeli-strikes-dahiya.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7084277/2026/03/06/rashan-gary-departure-packers-nf
 **Airspace in the region remains heavily restricted.**\
 `By Lazaro Gamio and Zach Levitt`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airspace-in-the-region-remains-heavily-restricted
-
-**Vikings restructure contracts of Justin Jefferson, Christian Darrisaw, Byron Murphy: Sources**\
-`Minnesota entered the offseason facing a significant cap deficit, necessitating the release of several players and contract restructuring.`\
-https://nytimes.com/athletic/7094066/2026/03/06/vikings-justin-jefferson-christian-darrisaw-restructure-contracts/
 
