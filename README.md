@@ -1,3 +1,7 @@
+**NHL trade grades: Bobby Brink will add more skill in the middle-six for Wild**\
+`Bobby Brink can help the Wild's secondary scoring in their playoff run and they did well to cash in on David Jiricek.`\
+https://nytimes.com/athletic/7093632/2026/03/06/nhl-trade-grades-bobby-brink-wild-flyers/
+
 **Weak Jobs Data Underscores Fed’s Dilemma as War Stokes Inflation Risk**\
 `The Federal Reserve is still widely expected to hold interest rates steady when its officials next meet on March 17-18.`\
 https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve-jobs-inflation
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/world/middleeast/iran-strikes-azadi-stadium.html
 **Wild trade tracker: Will they get in on the bidding for Predators' Ryan O'Reilly?**\
 `Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
 https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/
-
-**Brazilian top-flight player handed 12-game ban for sexist remarks**\
-`Marques, 24, was also fined in 30,000 Brazilian reais ($5,700, £4,277) for his comments about referee Daiane Muniz.`\
-https://nytimes.com/athletic/7093390/2026/03/06/brazil-football-ban-sexist-abuse/
 
