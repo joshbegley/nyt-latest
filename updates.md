@@ -1,3 +1,11 @@
+**Canadiens have a clear 'want' as deadline looms; whether it is a 'need' remains to be seen**\
+`The Canadiens have a lack of jam and management has a decision to make whether to pay now to get it or wait for the offseason.`\
+https://nytimes.com/athletic/7091725/2026/03/05/canadiens-nhl-trade-deadline-needs/
+
+**Kristaps Porziņģis misses sixth straight game but inching closer to return**\
+`The Warriors' center is still recovering from an illness and has only played once since Golden State acquired him at the trade deadline.`\
+https://nytimes.com/athletic/7091869/2026/03/05/kristaps-porzingis-warriors-update-illness/
+
 **War in the Gulf Could Turn India Back Onto Russian Oil**\
 `India’s trade deal with President Trump was supposed to end its imports of oil from Russia. But the war in Iran has cut off alternative supplies from the Middle East.`\
 https://nytimes.com/2026/03/05/business/india-russian-oil.html

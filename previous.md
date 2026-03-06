@@ -1,3 +1,11 @@
+**Canadiens have a clear 'want' as deadline looms; whether it is a 'need' remains to be seen**\
+`The Canadiens have a lack of jam and management has a decision to make whether to pay now to get it or wait for the offseason.`\
+https://nytimes.com/athletic/7091725/2026/03/05/canadiens-nhl-trade-deadline-needs/
+
+**Kristaps Porziņģis misses sixth straight game but inching closer to return**\
+`The Warriors' center is still recovering from an illness and has only played once since Golden State acquired him at the trade deadline.`\
+https://nytimes.com/athletic/7091869/2026/03/05/kristaps-porzingis-warriors-update-illness/
+
 **War in the Gulf Could Turn India Back Onto Russian Oil**\
 `India’s trade deal with President Trump was supposed to end its imports of oil from Russia. But the war in Iran has cut off alternative supplies from the Middle East.`\
 https://nytimes.com/2026/03/05/business/india-russian-oil.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/steve-daines-montana-senate-alme.html
 **Not Just Oil: In Venezuela, U.S. Interior Secretary Pushes for Mining Access**\
 `Venezuela is home to large reserves of rare earths, gold and other valuable minerals that the Trump administration wants to exert more control over.`\
 https://nytimes.com/2026/03/05/nyregion/not-just-oil-in-venezuela-us-interior-secretary-pushes-for-mining-access.html
-
-**Superfood Fuels Mating Frenzy for a Critically Endangered Parrot**\
-`Kakapos, which are reclusive and flightless and can live as long as humans, are found only in New Zealand. They feed on the fruit of the rimu tree.`\
-https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.html
-
-**Craig Counsell gets a proud-dad moment watching son, Brady, make spring debut**\
-`Prior to the game, Craig Counsell joked that he’d close his eyes and watch video of his son batting later. `\
-https://nytimes.com/athletic/7091587/2026/03/05/chicago-cubs-craig-counsell-son-brady/
 
