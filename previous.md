@@ -1,5 +1,5 @@
 **Man United increase ticket prices for fourth successive season**\
-`Old Trafford prices will be increased by five per cent across all areas for the 2026-27 campaign at an average of £2 per game for adults.`\
+`It includes corporate and hospitality, although executive club members are able to freeze at the current price if renewing before April 15.`\
 https://nytimes.com/athletic/7092948/2026/03/06/manchester-united-ticket-price-increase/
 
 **Stocks fall again in Europe at the end of a turbulent week for markets.**\
