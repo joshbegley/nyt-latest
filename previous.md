@@ -1,40 +1,40 @@
-**Khamenei’s Killing Sparks Anger and Grief in South Asia’s Shiite Muslims**\
-`Ayatollah Ali Khamenei, who was killed during the U.S.-Israeli strikes on Iran, was deeply respected among the millions of Shiite Muslims in Pakistan and India.`\
-https://nytimes.com/2026/03/06/world/middleeast/iran-khamenei-shiite-india-pakistan.html
+**An America First Conservative Wrestles With Trump’s War**\
+`On seeking clarity in the reasons for the military operation and restraint in foreign policy.`\
+https://nytimes.com/2026/03/06/opinion/trump-iran-conservative-america-first.html
 
-**Saying Goodbye With the Perfect Coat**\
-`Assessing Pieter Mulier’s final Alaïa show — and his tenure.`\
-https://nytimes.com/2026/03/06/style/pieter-mulier-last-alaia-show.html
+**Trump’s Fantasy Is Crashing Down**\
+`The repercussions of his reckless war in Iran are just beginning.`\
+https://nytimes.com/2026/03/06/opinion/trump-iran-war-gulf.html
 
-**U.S. Gas Prices, Up 11% in a Week, Pile Pressure on Trump**\
-`The average price of a gallon of gasoline jumped again on Friday, to $3.32 per gallon, hitting its highest level in a year and a half.`\
-https://nytimes.com/2026/03/06/business/aaa-gas-prices.html
+**Potomac Is Safe Now, Officials Say. But Locals Still Worry About the Poop.**\
+`A broken pipe sent a gusher of sewage into the river near Washington. Some people may try to row, sail or fish. But skeptics are steering clear.`\
+https://nytimes.com/2026/03/06/us/politics/potomac-river-poop-sewage-dc.html
 
-**Boston's World Cup games still in doubt after funding shortfall proposal rejected**\
-`Boston's host committee and Kraft Sports & Entertainment pledged funds to help fill a $7.8 million gap but were instantly rejected`\
-https://nytimes.com/athletic/7092343/2026/03/06/world-cup-boston-kraft-foxboro-funding/
+**A Fast-Rising American Director Is Wowing the West End**\
+`After a prizewinning “Fiddler on the Roof” and a lauded take on Sondheim, Jordan Fein is tackling Arthur Miller’s enigmatic “Broken Glass.”`\
+https://nytimes.com/2026/03/06/theater/jordan-fein-broken-glass.html
 
-**Lebanon at ‘Tipping Point’ as It Seeks to Curb Hezbollah’s Influence**\
-`The country is waiting to see if the government seizes on this moment to disarm the Iranian-backed armed group and how the militants will respond.`\
-https://nytimes.com/2026/03/06/world/middleeast/lebanon-hezbollah-iran-disarm.html
+**Who Should Control A.I.?**\
+`The former A.I. policy adviser to the Trump White House explains why the conflict between Anthropic and the White House is so dangerous.`\
+https://nytimes.com/video/opinion/100000010747008/who-should-control-ai.html
 
-**‘War Machine’ Review: On the Fritz**\
-`The “Reacher” star Alan Ritchson can’t troubleshoot this alien invasion sci-fi flick.`\
-https://nytimes.com/2026/03/06/movies/war-machine-review.html
+**8 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2026/03/06/movies/new-movies-this-week-critics.html
 
-**Lionel Messi takes rare step into politics as Inter Miami enters President Trump's orbit**\
-`Messi has notably avoided political spotlight, but a toast to the 2025 MLS Cup winners began as an Iran war briefing and didn't stop there`\
-https://nytimes.com/athletic/7092220/2026/03/06/trump-messi-ronaldo-politics-iran/
+**A Candidate for Georgia Straight From the Marjorie Taylor Greene Playbook**\
+`Colton Moore, who hopes to win a special election on Tuesday to replace Ms. Greene, has the same flair for the dramatic and the ultra-MAGA persona, but he lacks one thing: a Trump endorsement.`\
+https://nytimes.com/2026/03/06/us/politics/colton-moore-marjorie-taylor-greene-special-election.html
 
-**Phone Pouch**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/03/06/learning/phone-pouch.html
+**150 Years of History: The Legal Aid Society of New York**\
+`An exhibit at the New York Historical sheds light on an organization that began by serving sailors, women and factory workers.`\
+https://nytimes.com/2026/03/06/nyregion/150-years-legal-aid-society.html
 
-**180,000 New Yorkers May Lose Food Stamp Benefits Under New Work Rules**\
-`Social workers are scrambling to alert recipients and help them find jobs before their aid is eliminated under President Trump’s sweeping domestic policy law.`\
-https://nytimes.com/2026/03/06/nyregion/snap-food-stamps-work-requirements.html
+**Football grounds designed for women's teams aren't a trend, they're a necessity**\
+`WSL teams are increasingly interested in purpose-built stadiums. While there's upside, the shift will take significant investment`\
+https://nytimes.com/athletic/7087191/2026/03/06/wsl-football-stadium-design-women/
 
-**Robotaxis Put on Hold as Hochul Seeks Support for Car Insurance Reforms**\
-`How two seemingly unrelated policies, one to reduce car insurance costs, the other to allow driverless taxis, became tangled up in Albany politics.`\
-https://nytimes.com/2026/03/06/nyregion/auto-insurance-robotaxi-waymo-hochul.html
+**Oscar Piastri Realizes the New Rules Will Make This Season a Challenge**\
+`He said the cars require a different driving style with a higher level of mental work.`\
+https://nytimes.com/2026/03/06/sports/autoracing/oscar-piastri-mclaren-new-rules.html
 
