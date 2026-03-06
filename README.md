@@ -1,3 +1,7 @@
+**D.C. Court Strikes Down Local Ban on High-Capacity Gun Magazines**\
+`A three-judge panel reversed the conviction of a man charged with possessing a 30-bullet magazine, saying it had constitutional protection.`\
+https://nytimes.com/2026/03/05/us/politics/dc-court-gun-case.html
+
 **Blue Jackets beat Florida for latest win, charge into trade deadline as buyers**\
 `The Blue Jackets are one point out of the second wild-card spot in the East after winning 14 of their last 17 games.`\
 https://nytimes.com/athletic/7092313/2026/03/05/blue-jackets-trade-deadline-waddell-provorov-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9
 **Drone’s Image**\
 `Adrian Johnson opens our solving weekend.`\
 https://nytimes.com/2026/03/05/crosswords/daily-puzzle-2026-03-06.html
-
-**Court filing takes aim at Grand Slam Track's bankruptcy plan**\
-`More than 150 athletes are still owed large sums, including $268,750 for Sydney McLaughin-Levrone.`\
-https://nytimes.com/athletic/7091617/2026/03/05/grand-slam-track-bankruptcy-plan-court/
 

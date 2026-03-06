@@ -1,3 +1,11 @@
+**Blue Jackets beat Florida for latest win, charge into trade deadline as buyers**\
+`The Blue Jackets are one point out of the second wild-card spot in the East after winning 14 of their last 17 games.`\
+https://nytimes.com/athletic/7092313/2026/03/05/blue-jackets-trade-deadline-waddell-provorov-panthers/
+
+**Representative Tony Gonzales Will Not Seek Re-election**\
+`Several House members had called for Mr. Gonzales, a Texas Republican, to step down after texts emerged showing his pursuit of a staff member who later killed herself.`\
+https://nytimes.com/2026/03/05/us/politics/tony-gonzales-resigns.html
+
 **Texas Representative Tony Gonzales Will Not Seek Re-election**\
 `Several House members had called for Tony Gonzales to step down after texts emerged showing his pursuit of a staff member who later killed herself.`\
 https://nytimes.com/2026/03/05/us/politics/tony-gonzales-resigns.html
