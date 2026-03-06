@@ -1,3 +1,7 @@
+**Texans, Danielle Hunter agree to $40.1 million contract extension: Reports**\
+`Hunter's extension includes a $30.7 million signing bonus and keeps him in Houston through 2027.`\
+https://nytimes.com/athletic/7092243/2026/03/05/texans-danielle-hunter-extension/
+
 **‘The Pitt’ Season 2, Episode 9 Recap: Family Separation**\
 `A young boy arrives at the emergency room this week with a firework-related injury, but his troubles run much deeper than that.`\
 https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slas
 **Rams re-sign TE Tyler Higbee to 2-year deal: Source**\
 `Higbee, a 2016 fourth-round pick, has spent his entire 10-year career with the Rams. `\
 https://nytimes.com/athletic/7092136/2026/03/05/rams-tyler-higbee-nfl-free-agency-2026/
-
-**Justice Dept. Releases Missing Interviews With Woman Who Made Claims Against Trump**\
-`The pages had been withheld from the trove of documents related to the convicted sex offender Jeffrey Epstein because of what officials called a mistaken determination that they were duplicates.`\
-https://nytimes.com/2026/03/05/us/politics/trump-epstein-interviews-woman-justice-department.html
 

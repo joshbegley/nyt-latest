@@ -1,3 +1,7 @@
+**Texans, Danielle Hunter agree to $40.1 million contract extension: Reports**\
+`Hunter's extension includes a $30.7 million signing bonus and keeps him in Houston through 2027.`\
+https://nytimes.com/athletic/7092243/2026/03/05/texans-danielle-hunter-extension/
+
 **‘The Pitt’ Season 2, Episode 9 Recap: Family Separation**\
 `A young boy arrives at the emergency room this week with a firework-related injury, but his troubles run much deeper than that.`\
 https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9.html
