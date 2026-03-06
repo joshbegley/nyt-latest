@@ -1,3 +1,7 @@
+**U.S. Restarts Diplomatic Relations With Venezuela**\
+`Washington has rapidly warmed up ties with Venezuela — and applied major pressure on it — since capturing the country’s president, Nicolás Maduro, two months ago.`\
+https://nytimes.com/2026/03/05/world/americas/us-venezuela-diplomatic-relations.html
+
 **Texans, Danielle Hunter agree to $40.1 million contract extension: Reports**\
 `Hunter's extension includes a $30.7 million signing bonus and keeps him in Houston through 2027.`\
 https://nytimes.com/athletic/7092243/2026/03/05/texans-danielle-hunter-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-
 **Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
 `The incident occurred with less than a minute left in the first period, and Buffalo scored on the ensuing five-minute major.`\
 https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
-
-**Rams re-sign TE Tyler Higbee to 2-year deal: Source**\
-`Higbee, a 2016 fourth-round pick, has spent his entire 10-year career with the Rams. `\
-https://nytimes.com/athletic/7092136/2026/03/05/rams-tyler-higbee-nfl-free-agency-2026/
 
