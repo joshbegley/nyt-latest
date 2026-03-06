@@ -1,3 +1,11 @@
+**A New England Patriots plane brought Americans back from the Middle East.**\
+`By Victor Mather and Michael Crowley`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/a-new-england-patriots-plane-brought-americans-back-from-the-middle-east
+
+**Trump Demands ‘Unconditional Surrender’ by Iran**\
+`President Trump’s comments on Friday reflected yet another shift in the goals of U.S. military actions.`\
+https://nytimes.com/2026/03/06/us/politics/trump-unconditional-surrender-iran.html
+
 **WNBA star Arike Ogunbowale arrested after Unrivaled title victory**\
 `Ogunbowale was arrested after punching a man, who fell to the ground, outside of a Miami nightclub.`\
 https://nytimes.com/athletic/7094222/2026/03/06/wnba-arike-ogunbowale-arrested-unrivaled/
@@ -25,12 +33,4 @@ https://nytimes.com/video/t-magazine/100000010739305/winter-survival-tips-from-t
 **Flashback: Your Weekly History Quiz, March 7, 2026**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2026/03/06/upshot/flashback.html
-
-**Trump’s Removal of Kristi Noem**\
-`Readers respond to the dismissal of Kristi Noem as the homeland security secretary. Also: Two ways of parking; Meta’s facial recognition.`\
-https://nytimes.com/2026/03/06/opinion/trump-kristi-noem-dhs.html
-
-**For the Friars, a Sad Sale of Their Club’s Last Vestiges**\
-`Friars Club memorabilia, including photos of Billy Crystal and Jack Benny’s violin, sold well at an auction that upset former members of the defunct showbiz fraternity.`\
-https://nytimes.com/2026/03/06/arts/for-the-friars-a-sad-sale-of-their-clubs-last-vestiges.html
 
