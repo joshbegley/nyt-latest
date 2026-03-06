@@ -1,3 +1,7 @@
+**When Britney Spears’s Conservatorship Ended, Concern for Her Did Not**\
+`The pop star’s arrest on suspicion of driving under the influence this week was a breaking point, years after she regained control of her life and finances.`\
+https://nytimes.com/2026/03/06/arts/music/britney-spears-arrest-conservatorship.html
+
 **Kings trade Corey Perry to Lightning for second-round pick**\
 `The 40-year-old has been on the losing side of five of the last six Stanley Cup Finals.`\
 https://nytimes.com/athletic/7094128/2026/03/06/kings-corey-perry-trade-lightning/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/arts/music/aaliyah-dead.html
 **From 1978: Golda Meir, 80, Dies in Jerusalem; Israelis Acclaim ‘Stalwart Lioness’**\
 `Once a teacher in Milwaukee, she climbed the ranks of the Labor Party to become Israel’s first female prime minister.`\
 https://nytimes.com/2026/03/06/world/middleeast/golda-meir-dead.html
-
-**From 2014: Maya Angelou, Lyrical Witness of the Jim Crow South, Dies at 86**\
-`Her landmark book “I Know Why the Caged Bird Sings” was among the first 20th-century autobiographies of a Black woman to reach a wide readership.`\
-https://nytimes.com/2026/03/06/arts/maya-angelou-dead.html
 
