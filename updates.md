@@ -1,3 +1,8 @@
+**Aussie catcher explains handshake snub of Czech rival before WBC game: ‘There’s no malice’**\
+`Robbie Perkins says his refusal to shake hands with Milan Prokop was just a matter of  competitive spirit and principle
+`\
+https://nytimes.com/athletic/7093421/2026/03/06/australia-wbc-handshake-robbie-perkins-snub/
+
 **Iran’s Chokehold on Persian Gulf Waterway Strains Shipping**\
 `The threat of prolonged attacks on oil tankers and other vessels is giving Iran an advantage, analysts say.`\
 https://nytimes.com/2026/03/06/business/iran-persian-gulf-hormuz-shipping.html
