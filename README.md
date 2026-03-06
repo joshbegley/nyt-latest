@@ -1,3 +1,7 @@
+**F1 stewards to be more lenient over clashes between drivers in 2026**\
+`The FIA's guideline changes cover “racing to the apex” driving and how drivers cannot simply disappear once they have been overtaken.`\
+https://nytimes.com/athletic/7093007/2026/03/06/f1-driver-clashes-guidelines/
+
 **Trump’s Strait of Hormuz Problem**\
 `The president campaigned on lowering prices for Americans. That pledge has come under fire this week as the Iran war pushes up the cost of gasoline.`\
 https://nytimes.com/2026/03/06/business/dealbook/trump-strait-hormuz-iran-gasoline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092665/2026/03/06/pistons-spurs-sweep-cade-cunning
 **This is what happened on March 5.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-5
-
-**Red Sox camp standouts: Four under-the-radar players who could make an impact in 2026**\
-`A tall journeyman and a familiar face could help Boston on the pitching side, while a newly acquired outfielder can provide speed.`\
-https://nytimes.com/athletic/7089940/2026/03/06/red-sox-spring-training-standout-players/
 

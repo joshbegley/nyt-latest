@@ -1,3 +1,7 @@
+**Trump’s Strait of Hormuz Problem**\
+`The president campaigned on lowering prices for Americans. That pledge has come under fire this week as the Iran war pushes up the cost of gasoline.`\
+https://nytimes.com/2026/03/06/business/dealbook/trump-strait-hormuz-iran-gasoline.html
+
 **Are Tottenham set for all-time shock relegation? Plus: Messi, Inter Miami meet Trump**\
 `Today in TAFC: Are Spurs set for a shock relegation after Palace defeat? Plus: Inter Miami and a pink ball at the White House...`\
 https://nytimes.com/athletic/7092935/2026/03/06/tottenham-relegation-messi-inter-miami-trump/
