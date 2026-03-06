@@ -1,40 +1,40 @@
-**How to watch Sacred Heart vs. Merrimack men's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Sacred Heart Pioneers play the Merrimack Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093774/2026/03/06/sacred-heart-vs-merrimack-stream-how-to-watch-march-6/
+**How to watch Arizona State vs. West Virginia women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093856/2026/03/06/arizona-state-vs-west-virginia-stream-how-to-watch-march-6/
 
-**Raiders set to release QB Geno Smith after 1 season in Las Vegas: Sources**\
-`Smith threw an NFL-worst 17 interceptions in his lone season with the Raiders, which ended with Las Vegas earning the top pick in the draft.`\
-https://nytimes.com/athletic/7089791/2026/03/06/geno-smith-released-raiders-nfl/
+**Defense Without U.S. Help Is a Live Topic for Canada, Japan and Australia**\
+`The leaders of Japan and Canada are making a unified front on defense cooperation as President Trump raises the pressure over military spending.`\
+https://nytimes.com/2026/03/06/world/canada/carney-takaichi-japan-trump.html
 
-**A Versatile (and Reader-Favorite) Silken Tofu-Miso Dressing**\
-`And more of our most popular recipes from the week.`\
-https://nytimes.com/2026/03/06/dining/a-versatile-and-reader-favorite-silken-tofu-miso-dressing.html
+**How to watch Syracuse vs. Louisville women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093846/2026/03/06/syracuse-vs-louisville-stream-how-to-watch-march-6/
 
-**Five International Movies to Stream Now**\
-`This month’s picks include a Mexican drama, a Japanese crime thriller, an absurdist French comedy and more.`\
-https://nytimes.com/2026/03/06/movies/international-movies-streaming.html
+**How to watch Ole Miss vs. Vanderbilt women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093843/2026/03/06/ole-miss-vs-vanderbilt-stream-how-to-watch-march-6/
 
-**Epstein Was Wicked. But Also Banal.**\
-`Just look at his philosophical opinions.`\
-https://nytimes.com/2026/03/06/opinion/epstein-files.html
+**Trump Aides Remain Bullish Despite Rising Unemployment and Gas Prices**\
+`The president’s economic advisers insist that any signs of strains are temporary, as they look to sell the president’s agenda entering the midterms.`\
+https://nytimes.com/2026/03/06/business/economy/trump-gas-prices.html
 
-**Is This Treadmill Walking Trend Good for Your Fitness?**\
-`Here’s what to know about the 12-3-30 workout.`\
-https://nytimes.com/2026/03/06/well/move/12-3-30-treadmill-workout-trend.html
+**How to watch Longwood vs. UNC Asheville men's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Longwood Lancers play the UNC Asheville Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093840/2026/03/06/longwood-vs-unc-asheville-stream-how-to-watch-march-6/
 
-**Manchester United, ticket price rises and deciphering the strategy**\
-`As at other Premier League clubs, ticketing has become a more prominent issue among match-going United fans`\
-https://nytimes.com/athletic/7093348/2026/03/06/manchester-united-ticket-prices-must-fab/
+**Democrats Blame Trump for Weak Jobs Report as Republicans Play Defense**\
+`The weaker-than-expected numbers quickly became a source of tension between the two parties ahead of the midterm elections.`\
+https://nytimes.com/2026/03/06/business/economy/jobs-report-unemployment-democrats-republicans-midterms.html
 
-**'The night Tottenham died' – How Spurs fans feel as threat of relegation grows**\
-`Months of woeful performances have left Tottenham Hotspur fans disconsolate and fearing the worst`\
-https://nytimes.com/athletic/7092975/2026/03/06/tottenham-fans-relegation/
+**How to watch Citadel vs. Chattanooga men's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Citadel Bulldogs play the Chattanooga Mocs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093822/2026/03/06/citadel-vs-chattanooga-stream-how-to-watch-march-6/
 
-**NHL trade grades: Bobby Brink will add more skill in the middle-six for Wild**\
-`Bobby Brink can help the Wild's secondary scoring in their playoff run and they did well to cash in on David Jiricek.`\
-https://nytimes.com/athletic/7093632/2026/03/06/nhl-trade-grades-bobby-brink-wild-flyers/
+**Sri Lanka Rescues Iranian Sailors After U.S. Torpedoes Warship**\
+`A torpedo attack by the United States, its first in combat since World War II, sank an Iranian warship in the Indian Ocean. The Sri Lankan Navy said it had rescued 32 survivors and was still searching for survivors.`\
+https://nytimes.com/video/world/middleeast/100000010758654/us-submarine-iran-warship-sri-lanka.html
 
-**Weak Jobs Data Underscores Fed’s Dilemma as War Stokes Inflation Risk**\
-`The Federal Reserve is still widely expected to hold interest rates steady when its officials next meet on March 17-18.`\
-https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve-jobs-inflation
+**How to watch Stetson vs. Austin Peay men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Stetson Hatters play the Austin Peay Governors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093782/2026/03/06/stetson-vs-austin-peay-stream-how-to-watch-march-6/
 
