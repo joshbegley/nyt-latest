@@ -1,3 +1,7 @@
+**Oscar Piastri is Australia’s top motorsport son – but greater recognition brings added pressure**\
+`Besting the efforts of Mark Webber and Daniel Ricciardo has become an expectation of Piastri by his passionate supporter base in Australia`\
+https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-is-australias-top-motorsport-son-but-greater-recognition-brings-added-pressure/
+
 **Rams re-sign safety Kam Curl to 3-year deal: Source**\
 `Curl started all 17 games and had two interceptions and two sacks last season for the Rams. `\
 https://nytimes.com/athletic/7093327/2026/03/06/rams-kam-curl-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090383/2026/03/06/jude-bellingham-real-madrid-inju
 **How to watch Sacred Heart vs. Fairfield women's basketball: MAAC Tournament Time, TV, streaming**\
 `Find out how to watch the Sacred Heart Pioneers play the Fairfield Stags, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093284/2026/03/06/sacred-heart-vs-fairfield-stream-how-to-watch-march-6/
-
-**How to watch Charleston Southern vs. Winthrop men's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the Charleston Southern Buccaneers play the Winthrop Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093278/2026/03/06/charleston-southern-vs-winthrop-stream-how-to-watch-march-6/
 
