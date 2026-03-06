@@ -1,3 +1,15 @@
+**Dyche 'doesn't understand' Forest sacking, blames 'keyboard warriors'**\
+`Speaking for the first time since his sacking, Dyche also conceded that player unrest had played a part in his dismissal.`\
+https://nytimes.com/athletic/7091591/2026/03/06/sean-dyche-nottingham-forest-sacked/
+
+**Word of the Day: fortitude**\
+`This word has appeared in 200 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/06/learning/word-of-the-day-fortitude.html
+
+**Capitals trade defenseman John Carlson to Ducks for 2 draft picks**\
+`Carlson has spent his entire 17-year NHL career with the Capitals, winning the Stanley Cup with them in 2018.`\
+https://nytimes.com/athletic/7036849/2026/03/06/capitals-john-carlson-trade/
+
 **Late Night Isn’t Sad to See Kristi Noem Leave Homeland Security**\
 `“Sounds like someone’s about to become the FIFA secretary of homeland security,” Stephen Colbert joked.`\
 https://nytimes.com/2026/03/06/arts/television/late-night-kristi-noem-homeland-security.html

@@ -1,3 +1,11 @@
+**Dyche 'doesn't understand' Forest sacking, blames 'keyboard warriors'**\
+`Speaking for the first time since his sacking, Dyche also conceded that player unrest had played a part in his dismissal.`\
+https://nytimes.com/athletic/7091591/2026/03/06/sean-dyche-nottingham-forest-sacked/
+
+**Word of the Day: fortitude**\
+`This word has appeared in 200 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/06/learning/word-of-the-day-fortitude.html
+
 **Late Night Isn’t Sad to See Kristi Noem Leave Homeland Security**\
 `“Sounds like someone’s about to become the FIFA secretary of homeland security,” Stephen Colbert joked.`\
 https://nytimes.com/2026/03/06/arts/television/late-night-kristi-noem-homeland-security.html
@@ -10,7 +18,7 @@ https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-austra
 `Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
 https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resiliance-premier-league-glasner/
 
-**Capitals trade John Carlson to Ducks for 2 draft picks**\
+**Capitals trade defenseman John Carlson to Ducks for 2 draft picks**\
 `Carlson has spent his entire 17-year NHL career with the Capitals, winning the Stanley Cup with them in 2018.`\
 https://nytimes.com/athletic/7036849/2026/03/06/capitals-john-carlson-trade/
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon
 **The New York Times in Print for Friday, March 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/06/todays-new-york-times
-
-**America Won’t Save Iran**\
-`The most likely outcome of the American-Israeli bombing campaign is not the advent of liberal democracy but something worse.`\
-https://nytimes.com/2026/03/06/opinion/iran-bombing-america.html
-
-**NHL trade grades: Blue Jackets make savvy move in getting Conor Garland from Canucks**\
-`The Blue Jackets didn't give up a first or any prospects but Garland's six-year extension kicks in next year without any Canucks retention.`\
-https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-blue-jackets-canucks/
 
