@@ -1,3 +1,11 @@
+**Dodgers Roster Projection 2.0: Finding the battles in a settled camp**\
+`Like just about everything in Dodgers camp, there is little suspense. Much of the roster is already settled.`\
+https://nytimes.com/athletic/7091674/2026/03/05/dodgers-roster-projection-2-0-spring-training-2026/
+
+**Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
+`The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
+https://nytimes.com/2026/03/05/us/politics/key-moments-kristi-noem-dhs.html
+
 **Kristi Noem’s Story Was Destined to End This Way**\
 `It’s hard out there for a MAGA woman.`\
 https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
