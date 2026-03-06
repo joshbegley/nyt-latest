@@ -1,9 +1,17 @@
+**Stocks fall again in Europe at the end of a turbulent week for markets.**\
+`By Eshe Nelson`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/stocks-fall-again-in-europe-at-the-end-of-a-turbulent-week-for-markets
+
+**Diego Pavia's sister is just a freshman, but college coaches know 'I'm a baller'**\
+`Abby Pavia might be a tad less famous than her big bro. But she’s just just as confident and just as entertaining as Diego.`\
+https://nytimes.com/athletic/7090659/2026/03/06/diego-pavia-sister-basketball-star/
+
 **Shohei Ohtani mashes grand slam as Japan opens WBC title defense in style**\
 `A crazed stadium full of fans in Tokyo celebrated their countryman giving them exactly what they’d paid for.`\
 https://nytimes.com/athletic/7092966/2026/03/06/ohtani-grand-slam-japan-world-baseball-classic/
 
 **Indonesia to Block Children Under 16 From Social Media**\
-`The ban is to take effect March 28, according to a government minister, but details about how it would be implemented  were scarce.`\
+`The ban is to take effect March 28, according to a government minister, but details about how it would be implemented were scarce.`\
 https://nytimes.com/2026/03/06/world/asia/indonesia-social-media-ban.html
 
 **College sports and private equity are converging. So what are the best-case scenarios?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-wa
 **The Pulse: Buzzer-beaters are back**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7090625/2026/03/06/lehigh-buzzer-beater-nfl-nhl-trades-the-pulse/
-
-**'It’s time for change': Behind the NASCAR breakthrough of Michael Jordan and 23XI Racing**\
-`An unprecedented three wins in three races to start the season has Jordan's NASCAR team at the top and ahead of schedule.`\
-https://nytimes.com/athletic/7090980/2026/03/06/michael-jordan-23xi-racing-nascar-denny-hamlin/
-
-**Kristi Noem’s Firing, and the Boom of American Billionaires**\
-`Plus, your Friday news quiz.`\
-https://nytimes.com/2026/03/06/podcasts/the-headlines/kristi-noems-firing-american-billionaires.html
 
