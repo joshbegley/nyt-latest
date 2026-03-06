@@ -1,3 +1,7 @@
+**Dodgers Roster Projection 2.0: Finding the battles in a settled camp**\
+`Like just about everything in Dodgers camp, there is little suspense. Much of the roster is already settled.`\
+https://nytimes.com/athletic/7091674/2026/03/05/dodgers-roster-projection-2-0-spring-training-2026/
+
 **Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
 `The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
 https://nytimes.com/2026/03/05/us/politics/key-moments-kristi-noem-dhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/business/india-russian-oil.html
 **Minnesota Officials Welcome Firing of Homeland Security Secretary**\
 `Mayor Jacob Frey of Minneapolis said “Good riddance” after Ms. Noem’s ouster. Gov. Tim Walz and others said they still wanted a “complete overhaul” of the department.`\
 https://nytimes.com/2026/03/05/us/politics/minnesota-kristi-noem-walz.html
-
-**Israel Pounds Southern Beirut, a Hezbollah Stronghold**\
-`The strikes were the most intense bombardment since a cease-fire deal in late 2024.`\
-https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
 
