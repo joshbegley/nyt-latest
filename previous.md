@@ -1,40 +1,40 @@
-**An America First Conservative Wrestles With Trump’s War**\
-`On seeking clarity in the reasons for the military operation and restraint in foreign policy.`\
-https://nytimes.com/2026/03/06/opinion/trump-iran-conservative-america-first.html
-
-**Trump’s Fantasy Is Crashing Down**\
-`The repercussions of his reckless war in Iran are just beginning.`\
-https://nytimes.com/2026/03/06/opinion/trump-iran-war-gulf.html
-
-**Potomac Is Safe Now, Officials Say. But Locals Still Worry About the Poop.**\
-`A broken pipe sent a gusher of sewage into the river near Washington. Some people may try to row, sail or fish. But skeptics are steering clear.`\
-https://nytimes.com/2026/03/06/us/politics/potomac-river-poop-sewage-dc.html
-
-**A Fast-Rising American Director Is Wowing the West End**\
-`After a prizewinning “Fiddler on the Roof” and a lauded take on Sondheim, Jordan Fein is tackling Arthur Miller’s enigmatic “Broken Glass.”`\
-https://nytimes.com/2026/03/06/theater/jordan-fein-broken-glass.html
+**Falcons mailbag: Did any NFL combine quarterbacks get on Atlanta's radar?**\
+`The Falcons are expected to add two quarterbacks this offseason, and there are a few intriguing options who could be late-round draft picks.`\
+https://nytimes.com/athletic/7090210/2026/03/06/falcons-nfl-free-agency-draft-mailbag/
 
 **Who Should Control A.I.?**\
 `The former A.I. policy adviser to the Trump White House explains why the conflict between Anthropic and the White House is so dangerous.`\
-https://nytimes.com/video/opinion/100000010747008/who-should-control-ai.html
+https://nytimes.com/2026/03/06/opinion/ezra-klein-podcast-dean-ball.html
 
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/03/06/movies/new-movies-this-week-critics.html
+** The New York Times News Quiz, March 6, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/03/06/briefing/news-quiz-iran-khamenei.html
 
-**A Candidate for Georgia Straight From the Marjorie Taylor Greene Playbook**\
-`Colton Moore, who hopes to win a special election on Tuesday to replace Ms. Greene, has the same flair for the dramatic and the ultra-MAGA persona, but he lacks one thing: a Trump endorsement.`\
-https://nytimes.com/2026/03/06/us/politics/colton-moore-marjorie-taylor-greene-special-election.html
+**Meet the Human Mood-Lifters**\
+`They can make a trip to the D.M.V., jury duty or a bus commute the best part of your day. How do they do it? And why?`\
+https://nytimes.com/2026/03/06/well/nice-workers-bus-drivers-dmv-jury-duty.html
 
-**150 Years of History: The Legal Aid Society of New York**\
-`An exhibit at the New York Historical sheds light on an organization that began by serving sailors, women and factory workers.`\
-https://nytimes.com/2026/03/06/nyregion/150-years-legal-aid-society.html
+**What Author Would You Most Like to Meet?**\
+`The Times followed the creator of the graphic novel series “Dog Man” on a recent book tour. Is there an author you would want to spend time with?`\
+https://nytimes.com/2026/03/06/learning/what-author-would-you-most-like-to-meet.html
 
-**Football grounds designed for women's teams aren't a trend, they're a necessity**\
-`WSL teams are increasingly interested in purpose-built stadiums. While there's upside, the shift will take significant investment`\
-https://nytimes.com/athletic/7087191/2026/03/06/wsl-football-stadium-design-women/
+**Can I Call My Husband a Nickname He Hates?**\
+`A ruling on the matter of “Jouglas.”`\
+https://nytimes.com/interactive/2026/03/06/magazine/nicknames-jouglas-hodgman-quiz.html
 
-**Oscar Piastri Realizes the New Rules Will Make This Season a Challenge**\
-`He said the cars require a different driving style with a higher level of mental work.`\
-https://nytimes.com/2026/03/06/sports/autoracing/oscar-piastri-mclaren-new-rules.html
+**Jesse Jackson Service to Draw Leaders Including Biden, Obama and Clinton**\
+`The large-scale, public event in Chicago on Friday caps two weeks of memorials for Mr. Jackson, the civil rights leader, who died at 84.`\
+https://nytimes.com/2026/03/06/us/jesse-jackson-funeral-chicago.html
+
+**Big Revisions Are a Reason to Question Jobs Numbers, Not Dismiss Them**\
+`Economists say estimates from the Bureau of Labor Statistics and other agencies are reliable, but they worry the quality of data is eroding.`\
+https://nytimes.com/2026/03/06/business/economy/economy-data-revisions.html
+
+**Daryl Hannah: How Can ‘Love Story’ Get Away With This?**\
+`The character “Daryl Hannah” in “Love Story” is not even a remotely accurate representation of my life or my conduct — and these kinds of lies don’t go away.`\
+https://nytimes.com/2026/03/06/opinion/daryl-hannah-love-story-jfk-jr.html
+
+**Alysa Liu on Dancing Her Way to Gold: ‘The Music Carries My Body’**\
+`The free-spirited figure skater spoke to our dance critic about her approach to performing, the role of music and more.`\
+https://nytimes.com/2026/03/06/arts/dance/alysa-liu-olympics-figure-skating-interview.html
 
