@@ -1,40 +1,40 @@
-**D.C. Court Strikes Down Local Ban on High-Capacity Gun Magazines**\
-`A three-judge panel reversed the conviction of a man charged with possessing a 30-bullet magazine, saying it had constitutional protection.`\
-https://nytimes.com/2026/03/05/us/politics/dc-court-gun-case.html
+**The Prospects: Jesse Derry, Chelsea**\
+`This week's The Prospects column looks at Chelsea's young star Jesse Derry`\
+https://nytimes.com/athletic/7089531/2026/03/06/the-prospects-jesse-derry-chelsea/
 
-**Blue Jackets beat Florida for latest win, charge into trade deadline as buyers**\
-`The Blue Jackets are one point out of the second wild-card spot in the East after winning 14 of their last 17 games.`\
-https://nytimes.com/athletic/7092313/2026/03/05/blue-jackets-trade-deadline-waddell-provorov-panthers/
+**What I'm hearing about Canucks' priorities ahead of NHL trade deadline**\
+`The Canucks have been a motivated seller for months and expect to make more moves before the deadline passes.`\
+https://nytimes.com/athletic/7091968/2026/03/06/canucks-nhl-trade-deadline-2026/
 
-**Representative Tony Gonzales Will Not Seek Re-election**\
-`Several House members had called for Mr. Gonzales, a Texas Republican, to step down after texts emerged showing his pursuit of a staff member who later killed herself.`\
-https://nytimes.com/2026/03/05/us/politics/tony-gonzales-resigns.html
+**Arsenal and Man City are chasing the quadruple - how close did Ferguson, Mourinho, Klopp get?**\
+`They have a shot at the 'almost impossible' and meet in the Carabao Cup final - but how have other teams got on fighting on four fronts?`\
+https://nytimes.com/athletic/7066392/2026/03/06/quadruple-arsenal-man-city/
 
-**Inexcusable play by Malkin could spell major trouble for the Penguins**\
-`Malkin is facing a likely suspension after slashing Rasmus Dahlin in the head and neck, and the Penguins will pay the price.`\
-https://nytimes.com/athletic/7092208/2026/03/05/penguins-evgeni-malkin-slash-dubas-trade-deadline-sabres/
+**Is the FA Cup important? We asked our readers**\
+`We asked people what they think of the competition, how big a role it plays in the football landscape and where it ranks in the priorities`\
+https://nytimes.com/athletic/7089776/2026/03/06/fa-cup-fan-survey-arsenal-chelsea/
 
-**Rangers trading Sam Carrick to Sabres: Source**\
-`Carrick has another year on his contract at $1 million average annual value.`\
-https://nytimes.com/athletic/7092368/2026/03/05/rangers-sam-carrick-trade-sabres/
+**As Trump Out-Putins Putin, Russia’s Global Influence Erodes**\
+`The conflict in Iran may give Moscow a short-term boost economically and in Ukraine. But it has also shown the limits of Russia’s partnerships.`\
+https://nytimes.com/2026/03/06/world/europe/russia-iran-putin.html
 
-**LeBron passes Kareem for most made field goals in NBA history**\
-`"He's got a hell of a catalog,” Laker coach JJ Redick said before Thursday's game in Denver.`\
-https://nytimes.com/athletic/7092315/2026/03/05/lebron-james-record-field-goals-nba-kareem/
+**A Canadian Lawmaker, and Friend of JD Vance, Channels Charlie Kirk**\
+`Jamil Jivani, a Conservative rookie member of Parliament, follows an American playbook to win over young men on college campuses.`\
+https://nytimes.com/2026/03/06/world/canada/jamil-jivani-canada-conservative-jd-vance.html
 
-**U.S. Restarts Diplomatic Relations With Venezuela**\
-`Washington has rapidly warmed up ties with Venezuela — and applied major pressure on it — since capturing the country’s president, Nicolás Maduro, two months ago.`\
-https://nytimes.com/2026/03/05/world/americas/us-venezuela-diplomatic-relations.html
+**Corrections: March 6, 2026**\
+`Corrections that appeared in print on Friday, March 6, 2026.`\
+https://nytimes.com/2026/03/06/pageoneplus/corrections-march-6-2026.html
 
-**Texans, Danielle Hunter agree to $40.1 million contract extension: Reports**\
-`Hunter's extension includes a $30.7 million signing bonus and keeps him in Houston through 2027.`\
-https://nytimes.com/athletic/7092243/2026/03/05/texans-danielle-hunter-extension/
+**A Power Outage Made Us Possible**\
+`If he couldn’t see me or my place, maybe he wouldn’t judge me either.`\
+https://nytimes.com/2026/03/06/style/modern-love-a-power-outage-made-us-possible.html
 
-**‘The Pitt’ Season 2, Episode 9 Recap: Family Separation**\
-`A young boy arrives at the emergency room this week with a firework-related injury, but his troubles run much deeper than that.`\
-https://nytimes.com/2026/03/05/arts/television/the-pitt-recap-season-2-episode-9.html
+**He Grew Up Watching Her on TV. Years Later, She Joined His World.**\
+`Brian Thalman became familiar with Brooke Hyland while watching her on “Dance Moms.” The two met seven years after her final season on the reality TV show.`\
+https://nytimes.com/2026/03/06/style/brooke-hyland-brian-thalman-wedding.html
 
-**Drone’s Image**\
-`Adrian Johnson opens our solving weekend.`\
-https://nytimes.com/2026/03/05/crosswords/daily-puzzle-2026-03-06.html
+**They Met in a Chemistry Class, but the Connection Came Later**\
+`Jordan Goldberg and Adam Rossman were friends at the University of Texas at Austin. Years later, after building a life in New York, they married in Austin.`\
+https://nytimes.com/2026/03/06/style/jordan-goldberg-adam-rossman-wedding.html
 
