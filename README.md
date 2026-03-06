@@ -1,3 +1,7 @@
+**Texas Representative Tony Gonzales Will Not Seek Re-election**\
+`Several House members had called for Tony Gonzales to step down after texts emerged showing his pursuit of a staff member who later killed herself.`\
+https://nytimes.com/2026/03/05/us/politics/tony-gonzales-resigns.html
+
 **Inexcusable play by Malkin could spell major trouble for the Penguins**\
 `Malkin is facing a likely suspension after slashing Rasmus Dahlin in the head and neck, and the Penguins will pay the price.`\
 https://nytimes.com/athletic/7092208/2026/03/05/penguins-evgeni-malkin-slash-dubas-trade-deadline-sabres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7091617/2026/03/05/grand-slam-track-bankruptcy-plan
 **Bears releasing LB Tremaine Edmunds to free up salary-cap space: Source**\
 `Cutting Edmunds, a respected veteran who played for Chicago the last three years, clears $15 million of cap space for the Bears.`\
 https://nytimes.com/athletic/7060538/2026/03/05/bears-release-tremaine-edmunds/
-
-**Trae Young makes long-awaited Wizards debut, brings spark on 'Trae Day'**\
-`Young returned from injury and wasted no time affecting the game when he scored his first bucket on the Wizards’ first possession.`\
-https://nytimes.com/athletic/7092135/2026/03/05/trae-young-wizards-debut-jazz-nba/
 
