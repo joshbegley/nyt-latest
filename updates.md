@@ -1,3 +1,5 @@
+
+
 **Everton hopeful of appointing Norwich's Rastrick as new academy director**\
 `Rastrick previously held the post of academy manager at Tottenham Hotspur.`\
 https://nytimes.com/athletic/7093276/2026/03/06/dean-rastrick-everton-academy-director/
