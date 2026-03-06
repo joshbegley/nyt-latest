@@ -1,3 +1,7 @@
+**Can a Bride Ban a Hairstyle?**\
+`In a TikTok video, an influencer said that she would prefer for bridesmaids not to wear a specific hairstyle to her wedding, igniting a conversation about the strict rules bridesmaids often follow.`\
+https://nytimes.com/2026/03/06/style/wedding-planning-bridesmaid-hair-rules.html
+
 **Caleb Wilson breaks thumb, to undergo season-ending surgery**\
 `Wilson, the Tar Heels’ leading scorer and rebounder, has missed UNC’s last six games with a fractured left hand.`\
 https://nytimes.com/athletic/7094486/2026/03/06/north-carolina-caleb-wilson-breaks-thumb-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/science/nasa-dart-asteroid-sun-orbit.html
 **Top National Symphony Leader Quits in New Blow to Kennedy Center**\
 `The executive director, Jean Davidson, said her departure reflects frustration at the turmoil that has engulfed the arts center.`\
 https://nytimes.com/2026/03/06/arts/music/kennedy-center-national-symphony-orchestra-leader-quits.html
-
-**Backstage for a Regal Night of Rock With Paul Simon and Elvis Costello**\
-`At a gala concert, musicians were supported by star-studded hosts including Whoopi Goldberg and Bill Murray — on cowbell.`\
-https://nytimes.com/2026/03/06/style/gods-love-we-deliver-concert-elvis-costello.html
 

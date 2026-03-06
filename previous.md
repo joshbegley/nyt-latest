@@ -1,3 +1,11 @@
+**Caleb Wilson breaks thumb, to undergo season-ending surgery**\
+`Wilson, the Tar Heels’ leading scorer and rebounder, has missed UNC’s last six games with a fractured left hand.`\
+https://nytimes.com/athletic/7094486/2026/03/06/north-carolina-caleb-wilson-breaks-thumb-surgery/
+
+**Markwayne Mullin, Trump’s Homeland Security Pick, Learned to Spar in Oklahoma**\
+`He hosted a home improvement radio show, fought in cage matches and inherited a plumbing business before becoming a “MAGA warrior” in Congress.`\
+https://nytimes.com/2026/03/06/us/markwayne-mullin-trump-oklahoma.html
+
 **Blues captain Brayden Schenn waives no-trade for deal to Islanders**\
 `Schenn, 34, whose contract goes through 2028 with a $6,500,000 cap hit, had a 15-team no-trade list.`\
 https://nytimes.com/athletic/7021197/2026/03/06/blues-islanders-trade-brayden-schenn/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/arts/music/kennedy-center-national-symphony-orche
 **Backstage for a Regal Night of Rock With Paul Simon and Elvis Costello**\
 `At a gala concert, musicians were supported by star-studded hosts including Whoopi Goldberg and Bill Murray — on cowbell.`\
 https://nytimes.com/2026/03/06/style/gods-love-we-deliver-concert-elvis-costello.html
-
-**Packers defensive end Rashan Gary says farewell: 'On to my next stop'**\
-`Cutting or trading the defensive end frees up around $11 million for Green Bay, according to Over the Cap.`\
-https://nytimes.com/athletic/7084277/2026/03/06/rashan-gary-departure-packers-nfl-free-agency/
-
-**Airspace in the region remains heavily restricted.**\
-`By Lazaro Gamio and Zach Levitt`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airspace-in-the-region-remains-heavily-restricted
 
