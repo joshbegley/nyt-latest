@@ -1,3 +1,11 @@
+**A Quiet Winter Retreat in the French Riviera**\
+`The French Riviera is usually considered a busy summer hotspot with throngs of tourists, but during the winter months, this stretch of the Mediterranean coastline becomes a quiet, relaxing retreat.`\
+https://nytimes.com/video/travel/100000010758681/french-riviera-winter-travel.html
+
+**A Fear for Travelers Escaping the Gulf: Are Flights Safe?**\
+`Drone and missile attacks have caused high anxiety across the region, but experts say the danger to commercial airliners is “fairly remote.”`\
+https://nytimes.com/2026/03/06/travel/iran-war-flights-safety.html
+
 **The Briefing: Wolves 1 Liverpool 3 - Did Ngumoha take his chance? Salah's platform to build on?**\
 `Liverpool managed to overcome Wolves on Friday night and advance to the sixth round of the FA Cup`\
 https://nytimes.com/athletic/7086484/2026/03/06/wolves-liverpool-score-result-report-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7080851/2026/03/06/bruins-2026-nhl-trade-deadline-g
 **Israeli Strikes Intensify in Beirut as Thousands of Lebanese Flee**\
 `About 300,000 people in Lebanon have fled their homes since bombing from the Israeli military began, the Norwegian Refugee Council estimated. ​​The Israeli military said it was targeting infrastructure belonging to Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000010758544/beirut-lebanon-iran-war-israel.html
-
-**The Unlikely Pairing That Pushed Hip-Hop Forward**\
-`A Tribe Called Quest had the vision for “The Low End Theory.” The engineer Bob Power helped piece it together.`\
-https://nytimes.com/2026/03/06/arts/music/bob-power-tribe-called-quest.html
-
-**Blues trade deadline report card: Grading Doug Armstrong's moves**\
-`It could have been a lot worse for the Blues if GM Doug Armstrong hadn't gotten a couple moves across the line late.`\
-https://nytimes.com/athletic/7083296/2026/03/06/blues-2026-nhl-trade-deadline-grades/
 
