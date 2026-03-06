@@ -1,3 +1,11 @@
+**Trump’s U.S.S. Cole Remarks Raise Questions in Guantánamo Case**\
+`Prosecutors have offered up no evidence supporting a link that the president claimed between Iran and the attack in Yemen in 2000, defense lawyers say.`\
+https://nytimes.com/2026/03/06/us/politics/trump-uss-cole-iran.html
+
+**Fanatics Flag Football Classic moving from Saudi Arabia to Los Angeles: Sources**\
+`Tom Brady partnered with the chairman of the Saudi General Entertainment Authority to announce the event in September. `\
+https://nytimes.com/athletic/7081326/2026/03/06/fanatics-flag-football-classic-saudi-arabia-la-tom-brady/
+
 **Chelsea's Rosenior says Sanchez has reacted well to being dropped**\
 `"I know traditionally if there's a change of goalkeeper, it's like he's now the No 1. It's not the case," Rosenior said on Friday.`\
 https://nytimes.com/athletic/7093394/2026/03/06/robert-sanchez-rosenior-chelsea-goalkeeper/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-australian-f1-gp-2
 **Rams re-sign safety Kam Curl to 3-year deal: Source**\
 `Curl started all 17 games and had two interceptions and two sacks last season for the Rams. `\
 https://nytimes.com/athletic/7093327/2026/03/06/rams-kam-curl-nfl-free-agency-2026/
-
-**NHL trade board 9.0: The top 50 names to watch on Deadline Day**\
-`As we count down to 3 p.m. ET on Friday, it appears we’ll see more “hockey” moves than usual.`\
-https://nytimes.com/athletic/7089447/2026/03/06/nhl-trade-board-bobrovsky-trocheck-ekman-larsson/
-
-**A Vexing Problem for College Students: Course Availability**\
-`A new report looks at course “shutouts,” which can add to the time and cost of getting a degree.`\
-https://nytimes.com/2026/03/06/your-money/college-students-course-availability.html
 
