@@ -1,3 +1,19 @@
+**Wizards' Juju Reese, younger brother of Angel Reese, collects 20 rebounds**\
+`One week ago, Juju Reese was in the G League. On Thursday, he controlled the boards for the NBA's Wizards.`\
+https://nytimes.com/athletic/7092479/2026/03/06/juju-reese-angel-reese-20-rebounds/
+
+**Explained: Elland Road, a push for infrastructure help — and why it won't impact redevelopment**\
+`Leeds director Peter Lowy spoke out about certain elements of redeveloping the area around Elland Road earlier this week`\
+https://nytimes.com/athletic/7089821/2026/03/06/elland-road-a-push-for-infrastructure-help-and-why-it-wont-impact-leedss-redevelopment/
+
+**Newcastle have played the most of any club in Europe's big leagues: This is the impact it's had**\
+`Eddie Howe's team have played more games in all competitions than any other side in the continent's top five leagues, this is why it matters`\
+https://nytimes.com/athletic/7087324/2026/03/06/newcastle-games-played-eddie-howe/
+
+**Canucks trade Conor Garland to Blue Jackets for 2 draft picks**\
+`Garland, 29, signed a six-year extension with the Canucks last summer but has since seen the team pivot to a rebuild.`\
+https://nytimes.com/athletic/7036835/2026/03/06/canucks-conor-garland-trade-blue-jackets/
+
 **How Chelsea kicked off the ownership revolution that has transformed Wrexham**\
 `Wrexham hosting Chelsea is a classically compelling modern FA Cup tie, but there is a deeper significance to their unique identities
 `\
