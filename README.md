@@ -1,3 +1,7 @@
+**Bears releasing LB Tremaine Edmunds to free up salary-cap space: Source**\
+`Cutting Edmunds, a respected veteran who played for Chicago the last three years, clears $15 million of cap space for the Bears.`\
+https://nytimes.com/athletic/7060538/2026/03/05/bears-release-tremaine-edmunds/
+
 **Trae Young makes long-awaited Wizards debut, brings spark on 'Trae Day'**\
 `Young returned from injury and wasted no time affecting the game when he scored his first bucket on the Wizards’ first possession.`\
 https://nytimes.com/athletic/7092135/2026/03/05/trae-young-wizards-debut-jazz-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/kristi-noem-dhs-timeline.html
 **What Kristi Noem Should Do After President Trump Fired Her**\
 `It’s hard out there for a MAGA woman.`\
 https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
-
-**Panic in Beirut After Israel Warns Residents to Evacuate**\
-`The streets of Beirut erupted in chaos on Thursday after Israel told people in the southern suburbs to evacuate. The Israeli military has been carrying out airstrikes in Dahiya, a Hezbollah stronghold, since the militant group fired rockets into northern Israel earlier this week.`\
-https://nytimes.com/video/world/middleeast/100000010756628/beirut-lebanon-strikes-israel.html
 

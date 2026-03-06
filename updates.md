@@ -1,3 +1,11 @@
+**Trae Young makes long-awaited Wizards debut, brings spark on 'Trae Day'**\
+`Young returned from injury and wasted no time affecting the game when he scored his first bucket on the Wizards’ first possession.`\
+https://nytimes.com/athletic/7092135/2026/03/05/trae-young-wizards-debut-jazz-nba/
+
+**Wallace Shawn’s ‘What We Did Before Our Moth Days’ Is Purgatory Done Right**\
+`The playwright and his collaborator André Gregory are together again, delivering a sumptuous set of interlinked monologues about life, death and betrayal.`\
+https://nytimes.com/2026/03/05/theater/what-we-did-before-our-moth-days-review.html
+
 **Senators trade Perron to Red Wings for 2026 fourth-round pick**\
 `Perron played in Detroit for two seasons between 2022 and 2024, racking up 103 points in 158 games as a Red Wing.`\
 https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-ottawa-senators-detroit-red-wings/
