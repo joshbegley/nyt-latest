@@ -1,3 +1,7 @@
+**2026 fantasy football rookies, plus DJ Moore trade news speed run**\
+`Jake Ciely discusses the Bears-Bills trade, sending DJ Moore to Buffalo, along with 2026 fantasy football rookies. `\
+https://nytimes.com/athletic/7090517/2026/03/06/2026-fantasy-football-rookies-dj-moore-trade-speed-run/
+
 **4 Men Arrested on Suspicion of Spying on Jews in London for Iran**\
 `The police said one Iranian and three British-Iranians were detained as part of a counterterrorism investigation.`\
 https://nytimes.com/2026/03/06/world/europe/4-men-arrested-on-suspicion-of-spying-on-jews-in-london-for-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092246/2026/03/06/new-york-jets-free-agency-qb-tar
 **Jermaine Eluemunor rose from rock bottom. Now, his reward awaits**\
 `The right tackle struggled with mental health for years before emerging as the self-proclaimed “best right tackle in the league.”`\
 https://nytimes.com/athletic/7090885/2026/03/06/jermaine-eluemunor-new-york-giants-free-agency/
-
-**Ghiroli: The problem with MLB's drug policy isn't the testing, it's the contracts**\
-`Players don't receive a lifetime ban until a third PED violation. Perhaps it's time to reconsider the current penalties for positive tests.`\
-https://nytimes.com/athletic/7091280/2026/03/06/mlb-drug-testing-contracts-jurickson-profar/
 
