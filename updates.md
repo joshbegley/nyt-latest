@@ -1,3 +1,7 @@
+**U.S. Gas Prices, Up 11% in a Week, Pile Pressure on Trump**\
+`The average price of a gallon of gasoline jumped again on Friday, to $3.32 per gallon, hitting its highest level in a year and a half.`\
+https://nytimes.com/2026/03/06/business/aaa-gas-prices.html
+
 **Boston's World Cup games still in doubt after funding shortfall proposal rejected**\
 `Boston's host committee and Kraft Sports & Entertainment pledged funds to help fill a $7.8 million gap but were instantly rejected`\
 https://nytimes.com/athletic/7092343/2026/03/06/world-cup-boston-kraft-foxboro-funding/
