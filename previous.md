@@ -1,3 +1,7 @@
+**Man United increase ticket prices for fourth successive season**\
+`Old Trafford prices will be increased by five per cent across all areas for the 2026-27 campaign at an average of £2 per game for adults.`\
+https://nytimes.com/athletic/7092948/2026/03/06/manchester-united-ticket-price-increase/
+
 **Stocks fall again in Europe at the end of a turbulent week for markets.**\
 `By Eshe Nelson`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/stocks-fall-again-in-europe-at-the-end-of-a-turbulent-week-for-markets
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090804/2026/03/06/vanderbilt-shea-ralph-athletic-w
 **Women's NCAA Tournament Bracket Watch: UConn, UCLA No. 1 seed locks. Then who?**\
 `Did Michigan State play itself out of hosting contention?`\
 https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-watch-uconn-ucla/
-
-**The Pulse: Buzzer-beaters are back**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7090625/2026/03/06/lehigh-buzzer-beater-nfl-nhl-trades-the-pulse/
 
