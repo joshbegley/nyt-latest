@@ -1,3 +1,7 @@
+**Palace's Doucoure plays first match after 14-month layoff with knee injury**\
+`The 26-year-old tore his meniscus in January 2025, having played just 13 times since recovering from a ruptured achilles in November 2023.`\
+https://nytimes.com/athletic/7093244/2026/03/06/doucoure-crystal-palace-injury-news/
+
 **Bellingham injury: Madrid midfielder doubtful for City tie**\
 `Kylian Mbappe is also expected to miss the first leg in Madrid and may not be fit for the return fixture.`\
 https://nytimes.com/athletic/7090383/2026/03/06/jude-bellingham-real-madrid-injury-mbappe/
