@@ -1,3 +1,19 @@
+**Bellingham injury: Madrid midfielder doubtful for City tie**\
+`Kylian Mbappe is also expected to miss the first leg in Madrid and may not be fit for the return fixture.`\
+https://nytimes.com/athletic/7090383/2026/03/06/jude-bellingham-real-madrid-injury-mbappe/
+
+**How to watch Sacred Heart vs. Fairfield women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Sacred Heart Pioneers play the Fairfield Stags, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093284/2026/03/06/sacred-heart-vs-fairfield-stream-how-to-watch-march-6/
+
+**How to watch Charleston Southern vs. Winthrop men's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Charleston Southern Buccaneers play the Winthrop Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093278/2026/03/06/charleston-southern-vs-winthrop-stream-how-to-watch-march-6/
+
+**How to watch Denver vs. South Dakota women's basketball: Summit Tournament Time, TV, streaming**\
+`Find out how to watch the Denver Pioneers play the South Dakota Coyotes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093272/2026/03/06/denver-vs-south-dakota-stream-how-to-watch-march-6/
+
 **How to watch DePaul vs. Providence women's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the DePaul Blue Demons play the Providence Friars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093261/2026/03/06/depaul-vs-providence-stream-how-to-watch-march-6/
