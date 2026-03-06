@@ -1,3 +1,19 @@
+**Body language in sports isn’t mystical. It can win or lose the next play**\
+`This isn't a character flaw; it's human wiring. The question is: What we can learn to do about it?`\
+https://nytimes.com/athletic/7090564/2026/03/06/kevin-durant-caleb-williams-body-language-expert/
+
+**Jayson Tatum vs. Jaylen Brown? It's time to put that tired narrative to rest**\
+`“It’s the same dumb s--t they’ve been talking about since I was here,” former Celtic Grant Williams says of any Tatum-Brown rivalry talk.`\
+https://nytimes.com/athletic/7090883/2026/03/06/jayson-tatum-injury-celtics-return-jaylen-brown/
+
+**How Team Nicaragua, underdogs in the World Baseball Classic, landed Dusty Baker**\
+`Baker will make his WBC debut after watching prior years from afar: 'It looks both fun and crazy. And I’m ready for both of them.'`\
+https://nytimes.com/athletic/7071961/2026/03/06/wbc-dusty-baker-nicaragua/
+
+**La Liga to stage retro week, vintage kits to be revealed at Madrid Fashion Week**\
+`La Liga confirmed 38 of the 42 teams across the country's top two divisions will participate in the initiative.`\
+https://nytimes.com/athletic/7083627/2026/03/06/la-liga-retro-week-vintage-shirts/
+
 **One dozen quarterbacks — including 2 favorites — who could be the Jets’ next starter**\
 `Ranking the team's true options as free agency approaches.`\
 https://nytimes.com/athletic/7092246/2026/03/06/new-york-jets-free-agency-qb-targets/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7091305/2026/03/06/colts-mock-draft-alec-pierce/
 **Anthony Edwards' midrange mastery, a Thunder glow up and more NBA trends I'm watching**\
 `Minnesota's Anthony Edwards has been adding skills to his repertoire and it's come from learning through his losses. `\
 https://nytimes.com/athletic/7091453/2026/03/06/anthony-edwards-cason-wallace-og-anunoby-nba/
-
-**Steelers post-combine mock draft: Targeting two big needs early**\
-`Combine interviews offer some clues to Steelers' draft strategy.`\
-https://nytimes.com/athletic/7090872/2026/03/06/steelers-post-combine-mock-draft/
-
-**Browns 7-round mock draft: Heavy investment in the offensive line**\
-`In our second mock draft of the year, we have Cleveland again focusing on upgrading the offense — starting up front with the O-line.`\
-https://nytimes.com/athletic/7091410/2026/03/06/browns-mock-draft-2026/
-
-**How an invite to Team USA became an offer American players can't refuse**\
-`"My first year, there were definitely a lot of players, some of the best players, that didn't want to play,” said Paul Goldschmidt.`\
-https://nytimes.com/athletic/7091356/2026/03/06/team-usa-invite-aaron-judge-best-players/
-
-**The Seahawks' blueprint? Good luck trying to follow it**\
-`With patience and a little luck, the reigning Super Bowl champs had a roster-building approach that will be tough to duplicate.`\
-https://nytimes.com/athletic/7091240/2026/03/06/seattle-seahawks-super-bowl-roster-blueprint/
 
