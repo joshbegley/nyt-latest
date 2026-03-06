@@ -1,3 +1,11 @@
+**Colorado to honor quarterback Dominiq Ponder with jersey patch**\
+`Colorado coach Deion Sanders said Friday the walk-on was a “bona fide leader.”`\
+https://nytimes.com/athletic/7094332/2026/03/06/colorado-dominiq-ponder-jersey-patch/
+
+**John Carpino resigns as Angels president, longtime exec named as replacement**\
+`Jolly, who most recently served as senior vice president, is replacing Carpino, who had held the role of team president since 2009.`\
+https://nytimes.com/athletic/7094185/2026/03/06/john-carpino-resigns-angels-president/
+
 **100 Years of Women Who Changed History**\
 `Revisiting the obituaries of a century of notable women to show how they were remembered — and what history may have left unsaid.`\
 https://nytimes.com/interactive/2026/03/06/obituaries/archives/notable-women-deaths-obituaries.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7094066/2026/03/06/vikings-justin-jefferson-christi
 **Lions left tackle Taylor Decker requests release, says time in Detroit 'coming to an end'**\
 `The departure of Decker, 32, the longest-tenured player on the Lions roster, would create an urgent need in Detroit.`\
 https://nytimes.com/athletic/7094322/2026/03/06/lions-taylor-decker-requests-release/
-
-**Wild trade tracker: After bottom-six overhaul — Foligno, Brink in, Hinostroza out — are they done?**\
-`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
-https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/
-
-**Bills to release CB Taron Johnson after 8 seasons: Source**\
-`Johnson has spent all eight years of his NFL career in Buffalo and was a second-team All-Pro selection in 2023. `\
-https://nytimes.com/athletic/7094252/2026/03/06/bills-taron-johnson-release-nfl-free-agency-2026/
 
