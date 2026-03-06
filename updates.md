@@ -1,3 +1,7 @@
+**When Britney Spears’s Conservatorship Ended, Concern for Her Did Not**\
+`The pop star’s arrest on suspicion of driving under the influence this week was a breaking point, years after she regained control of her life and finances.`\
+https://nytimes.com/2026/03/06/arts/music/britney-spears-arrest-conservatorship.html
+
 **Kings trade Corey Perry to Lightning for second-round pick**\
 `The 40-year-old has been on the losing side of five of the last six Stanley Cup Finals.`\
 https://nytimes.com/athletic/7094128/2026/03/06/kings-corey-perry-trade-lightning/
