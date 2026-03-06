@@ -1,3 +1,7 @@
+**Bears trading for Patriots center Garrett Bradbury: Sources**\
+`The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
+https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
+
 **How We Analyzed the Strike on the Iranian School**\
 `Malachy Browne of our Visual Investigations team describes what satellite imagery and other evidence tell us about who might be responsible for an airstrike on an elementary school in southern Iran. The strike killed at least 175 people, according to health officials and Iranian state media.`\
 https://nytimes.com/video/world/middleeast/100000010750321/how-we-analyzed-the-strike-on-the-iranian-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010737138/epstein-doctors-women.html
 **Boston Symphony Abruptly Ends Its Music Director’s Contract**\
 `The orchestra’s leadership announced on Friday that it and the conductor Andris Nelsons “were not aligned on future vision.”`\
 https://nytimes.com/2026/03/06/arts/music/boston-symphony-andris-nelsons.html
-
-**Will Talarico’s Long Online Paper Trail Haunt Him?**\
-`For some Democrats, generational change comes with a cringey social media past.`\
-https://nytimes.com/2026/03/06/us/politics/talarico-social-media-democrats-jobs-report.html
 
