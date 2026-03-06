@@ -1,3 +1,7 @@
+**Maple Leafs trade deadline report card: Grading Brad Treliving's moves**\
+`In the end, the Leafs did just OK in trading away Nicolas Roy, Bobby McMann and Scott Laughton for draft picks.`\
+https://nytimes.com/athletic/7083307/2026/03/06/maple-leafs-2026-nhl-trade-deadline-grades/
+
 **Penguins trade deadline report card: Grading Kyle Dubas' moves**\
 `There were no blockbusters, but the Penguins did get better before the NHL trade deadline.`\
 https://nytimes.com/athletic/7083285/2026/03/06/penguins-2026-nhl-trade-deadline-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095010/2026/03/06/folarin-balogun-monaco-psg-goal-
 **Rangers trade deadline report card: Grading Chris Drury's moves**\
 `The Rangers let the deadline come and go without moving their biggest trade chip: veteran center Vincent Trocheck.`\
 https://nytimes.com/athletic/7082740/2026/03/06/rangers-2026-nhl-trade-deadline-grades/
-
-**Going to War With Iran, Surrounded by Yes Men**\
-`Members of President Trump’s cabinet see their jobs as “total obedience to the president’s will,” the columnist Jamelle Bouie argues, and that means we should all be very worried about how the war in Iran could unfold.`\
-https://nytimes.com/video/opinion/100000010759672/going-to-war-with-iran-surrounded-by-yes-men.html
 

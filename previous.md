@@ -1,3 +1,15 @@
+**Penguins trade deadline report card: Grading Kyle Dubas' moves**\
+`There were no blockbusters, but the Penguins did get better before the NHL trade deadline.`\
+https://nytimes.com/athletic/7083285/2026/03/06/penguins-2026-nhl-trade-deadline-grades/
+
+**Divisive F.D.A. Vaccine Regulator Resigns**\
+`Dr. Vinay Prasad drew criticism for decisions that overrode agency scientists and rejected potential drugs.`\
+https://nytimes.com/2026/03/06/health/fda-prasad-resigns.html
+
+**Saliba an injury doubt for Arsenal's trip to Mansfield**\
+`The defender missed the midweek win at Brighton with what manager Mikel Arteta said was a turned ankle.`\
+https://nytimes.com/athletic/7090456/2026/03/06/william-saliba-injury-arsenal-mansfield/
+
 **Here Is Mexico’s Plan to Keep the Country Safe During the World Cup**\
 `Officials announced a massive deployment of security forces ahead of the world’s largest sporting event after recent violence prompted safety concerns for the millions of fans expected to attend.`\
 https://nytimes.com/2026/03/06/world/americas/world-cup-mexico-security-plan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7082740/2026/03/06/rangers-2026-nhl-trade-deadline-
 **Going to War With Iran, Surrounded by Yes Men**\
 `Members of President Trump’s cabinet see their jobs as “total obedience to the president’s will,” the columnist Jamelle Bouie argues, and that means we should all be very worried about how the war in Iran could unfold.`\
 https://nytimes.com/video/opinion/100000010759672/going-to-war-with-iran-surrounded-by-yes-men.html
-
-**Pakistani Man Convicted of Attempted Terrorism in Plot to Kill Trump**\
-`A federal jury in Brooklyn found Asif Merchant guilty on Friday of plotting to kill American politicians, in a scheme backed by the Iranian government.`\
-https://nytimes.com/2026/03/06/nyregion/guilty-iran-trump-merchant-trial.html
-
-**Canadiens trade deadline report card: Grading GM Kent Hughes**\
-`The Canadiens say they were in on a "significant deal," but it didn't come to fruition, so they stood pat at the deadline.`\
-https://nytimes.com/athletic/7082727/2026/03/06/canadiens-2026-nhl-trade-deadline-grades/
-
-**Kings trade deadline report card: Grading GM Ken Holland's moves**\
-`The Kings made a late move for forward Scott Laughton.`\
-https://nytimes.com/athletic/7082703/2026/03/06/la-kings-2026-nhl-trade-deadline-grades/
 

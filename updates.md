@@ -1,3 +1,15 @@
+**Penguins trade deadline report card: Grading Kyle Dubas' moves**\
+`There were no blockbusters, but the Penguins did get better before the NHL trade deadline.`\
+https://nytimes.com/athletic/7083285/2026/03/06/penguins-2026-nhl-trade-deadline-grades/
+
+**Divisive F.D.A. Vaccine Regulator Resigns**\
+`Dr. Vinay Prasad drew criticism for decisions that overrode agency scientists and rejected potential drugs.`\
+https://nytimes.com/2026/03/06/health/fda-prasad-resigns.html
+
+**Saliba an injury doubt for Arsenal's trip to Mansfield**\
+`The defender missed the midweek win at Brighton with what manager Mikel Arteta said was a turned ankle.`\
+https://nytimes.com/athletic/7090456/2026/03/06/william-saliba-injury-arsenal-mansfield/
+
 **Here Is Mexico’s Plan to Keep the Country Safe During the World Cup**\
 `Officials announced a massive deployment of security forces ahead of the world’s largest sporting event after recent violence prompted safety concerns for the millions of fans expected to attend.`\
 https://nytimes.com/2026/03/06/world/americas/world-cup-mexico-security-plan.html
