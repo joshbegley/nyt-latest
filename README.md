@@ -1,3 +1,11 @@
+**Trae Young makes long-awaited Wizards debut, brings spark on 'Trae Day'**\
+`Young returned from injury and wasted no time affecting the game when he scored his first bucket on the Wizards’ first possession.`\
+https://nytimes.com/athletic/7092135/2026/03/05/trae-young-wizards-debut-jazz-nba/
+
+**Wallace Shawn’s ‘What We Did Before Our Moth Days’ Is Purgatory Done Right**\
+`The playwright and his collaborator André Gregory are together again, delivering a sumptuous set of interlinked monologues about life, death and betrayal.`\
+https://nytimes.com/2026/03/05/theater/what-we-did-before-our-moth-days-review.html
+
 **Senators trade Perron to Red Wings for 2026 fourth-round pick**\
 `Perron played in Detroit for two seasons between 2022 and 2024, racking up 103 points in 158 games as a Red Wing.`\
 https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-ottawa-senators-detroit-red-wings/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
 **Panic in Beirut After Israel Warns Residents to Evacuate**\
 `The streets of Beirut erupted in chaos on Thursday after Israel told people in the southern suburbs to evacuate. The Israeli military has been carrying out airstrikes in Dahiya, a Hezbollah stronghold, since the militant group fired rockets into northern Israel earlier this week.`\
 https://nytimes.com/video/world/middleeast/100000010756628/beirut-lebanon-strikes-israel.html
-
-**Colts exploring Zaire Franklin trade as they seek salary cap relief: Sources**\
-`The Colts, who are $4.7 million over the salary cap, would like to acquire draft capital in exchange for the linebacker.`\
-https://nytimes.com/athletic/7091977/2026/03/05/colts-zaire-franklin-trade-talks/
-
-**What Are We Fighting For?**\
-`After launching a war in Iran, President Trump owes the American people a clear explanation of his objectives and possible endgame — something we have yet to receive, argues the Times Opinion writer W.J. Hennigan.`\
-https://nytimes.com/video/opinion/100000010751075/what-are-we-fighting-for.html
 
