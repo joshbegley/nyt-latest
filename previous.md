@@ -1,3 +1,31 @@
+**How to watch Southeast Missouri State vs. Morehead State men's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Southeast Missouri State Redhawks play the Morehead State Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094717/2026/03/06/southeast-missouri-state-vs-morehead-state-stream-how-to-watch-march-6/
+
+**How to watch Denver vs. North Dakota men's basketball: Summit League Tournament Time, TV, streaming**\
+`Find out how to watch the Denver Pioneers play the North Dakota Fightin' Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094713/2026/03/06/denver-vs-north-dakota-stream-how-to-watch-march-6/
+
+**Blue Jackets trade deadline report card: Grading Don Waddell's moves**\
+`Conor Garland will definitely have a spot in the Blue Jackets' top six, but where he lands isn't exactly clear.`\
+https://nytimes.com/athletic/7080939/2026/03/06/blue-jackets-2026-nhl-trade-deadline-grades/
+
+**How to watch Portland vs. Washington State men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Portland Pilots play the Washington State Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094706/2026/03/06/portland-vs-washington-state-stream-how-to-watch-march-6/
+
+**How to watch La Salle vs. Richmond women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the La Salle Explorers play the Richmond Spiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094703/2026/03/06/la-salle-vs-richmond-stream-how-to-watch-march-6/
+
+**Oilers trade deadline report card: Grading GM Stan Bowman's moves**\
+`There were no home runs at the deadline for Edmonton, but the solutions are bona fide bets.`\
+https://nytimes.com/athletic/7082699/2026/03/06/oilers-2026-nhl-trade-deadline-grades/
+
+**Justice Dept. Pushes for Charges Against Cuban Leaders**\
+`The move comes as President Trump is ratcheting up his rhetorical assault on Cuba’s leadership.`\
+https://nytimes.com/2026/03/06/us/politics/justice-dept-cuba-investigation.html
+
 **NHL trade grades: Brayden Schenn is a good fit for the Islanders now but a risky long-term bet**\
 `It's a good return for the Blues and a good acquisition for an Islanders team pushing for the playoffs.`\
 https://nytimes.com/athletic/7094472/2026/03/06/nhl-trade-grades-brayden-schenn-islanders-blues/
@@ -9,32 +37,4 @@ https://nytimes.com/live/2026/03/06/business/jobs-report-economy/what-to-know-ab
 **Architect of Trump’s Rollback of Climate Rules Leaves White House**\
 `Jeffrey B. Clark oversaw the dismantlement of government restrictions on greenhouse gas emissions and water and air pollution. He had also faced a criminal probe in connection with the 2020 election.`\
 https://nytimes.com/2026/03/06/us/politics/trump-administration-jeffrey-clark-exit.html
-
-**Blues trade Justin Faulk to Red Wings for 1st- and 3rd-round picks: Sources**\
-`Faulk, 33, whose contract goes through 2027 with a $6.5 million cap hit, is logging more than 22 minutes per night in his 15th NHL season.`\
-https://nytimes.com/athletic/7021215/2026/03/06/blues-red-wings-trade-justin-faulk/
-
-**Leafs trade Bobby McMann to Kraken for draft picks**\
-`McMann, 29, is a pending unrestricted free agent with a $1.35 million cap hit.`\
-https://nytimes.com/athletic/7018829/2026/03/06/maple-leafs-bobby-mcmann-trade-kraken/
-
-**In the Gulf, a Cruise Line Steps Up to Get Stranded Passengers Home**\
-`Thousands of guests on at least six ships await evacuation in the Gulf region. With government help slow, MSC, the world’s third-largest line, took matters into its own hands.`\
-https://nytimes.com/2026/03/06/travel/stranded-cruise-passengers-gulf-war.html
-
-**Devils trade deadline report card: Grading Tom Fitzgerald's moves**\
-`The Devils didn’t change much at the deadline: Dougie Hamilton stayed, as did Šimon Nemec.`\
-https://nytimes.com/athletic/7082732/2026/03/06/devils-2026-nhl-trade-deadline-grades/
-
-**'The sacrifice is worth it' - Polish side intends to forfeit match over away fan ban**\
-`The president of Wisla has said the club “will remain in Krakow and not participate” in the game, scheduled for Saturday in Wroclaw.`\
-https://nytimes.com/athletic/7094330/2026/03/06/poland-football-ban-wisla-krakow-slask/
-
-**Wild trade deadline report card: Grading Bill Guerin's moves**\
-`The Wild’s heavy lifting was done with their mid-December blockbuster for Quinn Hughes, who has absolutely been a game-changer for the team.`\
-https://nytimes.com/athletic/7082711/2026/03/06/wild-2026-nhl-trade-deadline-grades/
-
-**Ex-Michigan coach Sherrone Moore agrees to plea deal, felony charge dropped**\
-`Sherrone Moore pleaded no contest to two misdemeanor charges as part of a plea agreement that dismissed other charges.`\
-https://nytimes.com/athletic/7094533/2026/03/06/sherrone-moore-michigan-plea-deal-charges/
 
