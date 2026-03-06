@@ -1,3 +1,7 @@
+**Khamenei’s Killing Sparks Anger and Grief in South Asia’s Shiite Muslims**\
+`Ayatollah Ali Khamenei, who was killed during the U.S.-Israeli strikes on Iran, was deeply respected among the millions of Shiite Muslims in Pakistan and India.`\
+https://nytimes.com/2026/03/06/world/middleeast/iran-khamenei-shiite-india-pakistan.html
+
 **Saying Goodbye With the Perfect Coat**\
 `Assessing Pieter Mulier’s final Alaïa show — and his tenure.`\
 https://nytimes.com/2026/03/06/style/pieter-mulier-last-alaia-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/nyregion/snap-food-stamps-work-requirements.html
 **Robotaxis Put on Hold as Hochul Seeks Support for Car Insurance Reforms**\
 `How two seemingly unrelated policies, one to reduce car insurance costs, the other to allow driverless taxis, became tangled up in Albany politics.`\
 https://nytimes.com/2026/03/06/nyregion/auto-insurance-robotaxi-waymo-hochul.html
-
-**After a Brutal Winter, Worse News for Oyster Farmers**\
-`The deep freeze on the East Coast will still be felt during the summer. Long Island oysters will be in short supply.`\
-https://nytimes.com/2026/03/06/nyregion/oyster-farm-long-island-ice-damage.html
 
