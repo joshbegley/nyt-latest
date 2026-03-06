@@ -1,3 +1,27 @@
+**Shohei Ohtani mashes grand slam as Japan opens WBC title defense in style**\
+`A crazed stadium full of fans in Tokyo celebrated their countryman giving them exactly what they’d paid for.`\
+https://nytimes.com/athletic/7092966/2026/03/06/ohtani-grand-slam-japan-world-baseball-classic/
+
+**Indonesia to Block Children Under 16 From Social Media**\
+`The ban is to take effect March 28, according to a government minister, but details about how it would be implemented  were scarce.`\
+https://nytimes.com/2026/03/06/world/asia/indonesia-social-media-ban.html
+
+**College sports and private equity are converging. So what are the best-case scenarios?**\
+`Private equity cash infusions into college sports come with plenty of much-discussed criticism and skepticism. So what's the case for it?`\
+https://nytimes.com/athletic/7090151/2026/03/06/college-football-sports-private-equity-money/
+
+**The Athletic's Freshman of the Year: USC's Jazzy Davidson**\
+`Davidson was thrust into an important role, and she handled it excellently.`\
+https://nytimes.com/athletic/7091262/2026/03/06/usc-jazzy-davidson-athletic-freshman-year/
+
+**Intriguing MLB spring training roster battles that could produce exciting young players**\
+`Roster battles aren't always that intriguing but when one of the contenders is a potential future roster pillar, they take on more meaning.`\
+https://nytimes.com/athletic/7081183/2026/03/06/mlb-spring-roster-battles-breakout-players/
+
+**The Athletic's women's basketball Coach of the Year: Vanderbilt's Shea Ralph**\
+`Ralph brought in four new starters to create a successful season.`\
+https://nytimes.com/athletic/7090804/2026/03/06/vanderbilt-shea-ralph-athletic-womens-basketball-coach-year/
+
 **Women's NCAA Tournament Bracket Watch: UConn, UCLA No. 1 seed locks. Then who?**\
 `Did Michigan State play itself out of hosting contention?`\
 https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-watch-uconn-ucla/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7090980/2026/03/06/michael-jordan-23xi-racing-nasca
 **Kristi Noem’s Firing, and the Boom of American Billionaires**\
 `Plus, your Friday news quiz.`\
 https://nytimes.com/2026/03/06/podcasts/the-headlines/kristi-noems-firing-american-billionaires.html
-
-**Bears mock draft: How DJ Moore, Drew Dalman departures change things**\
-`The Bears swapped a fifth-round pick for a second-rounder in the Moore trade and need a new center. Let's play this out.`\
-https://nytimes.com/athletic/7091279/2026/03/06/bears-mock-draft-dj-moore-drew-dalman/
-
-**Sticking in the top 6, Scottie Barnes' growth and more: Raptors mailbag**\
-`There were so many questions that the Raptors mailbag has been split into two. In this first, Eric Koreen looks at bigger-picture questions.`\
-https://nytimes.com/athletic/7087227/2026/03/06/scottie-barnes-growth-mailbag/
-
-**Chiefs NFL mock draft: How Trent McDuffie trade changes things for K.C.**\
-`Here are the positions — and players — the Chiefs could target now after trading McDuffie to add three 2026 draft picks.`\
-https://nytimes.com/athletic/7090274/2026/03/06/chiefs-nfl-mock-draft-trent-mcduffie/
-
-**Newcastle increase season ticket prices for fourth successive season**\
-`Newcastle have announced a five per cent rise in season ticket prices.`\
-https://nytimes.com/athletic/7092937/2026/03/06/newcastle-season-ticket-prices-increase/
-
-**The Firing of Kristi Noem**\
-`President Trump fired the homeland security secretary, who helped fulfill his border pledges but also drew negative attention to his administration.`\
-https://nytimes.com/2026/03/06/podcasts/the-daily/trump-fires-kristi-noem.html
-
-**Wordle Review No. 1,722**\
-`Scroll down for hints and conversation about the puzzle for Saturday, March 7, 2026.`\
-https://nytimes.com/2026/03/06/crosswords/wordle-review-1722.html
 
