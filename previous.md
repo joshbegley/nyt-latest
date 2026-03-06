@@ -1,3 +1,19 @@
+**Timothée Chalamet Has a Point About Ballet**\
+`This art form is alive, and Chalamet, who comes from a dance family, knows it. But what value does ballet have for the world at large?`\
+https://nytimes.com/2026/03/06/arts/dance/timothee-chalamet-ballet-opera.html
+
+**Concourse celebrations and a Team Netherlands father-son duo to watch: WBC Dispatch**\
+`During pool play, The Athletic will be publishing a daily Postcard from the WBC, which will feature reports from our writers who are spread across four cities (Tokyo, Houston, Miami and San Juan) to cover this year&#8217;s tournament.`\
+https://nytimes.com/athletic/7095040/2026/03/06/andrus-jones-netherlands-usa-brazil/
+
+**NHL trade grades: Nazem Kadri gives Avalanche's elite lineup another luxury**\
+`Colorado knows its playoff path likely will be difficult, but Kadri should help considerably.`\
+https://nytimes.com/athletic/7094942/2026/03/06/nhl-trade-grades-nazem-kadri-avalanche-flames/
+
+**Trump Demands Iran’s ‘Unconditional Surrender’ as Israel Pounds Tehran and Lebanon**\
+`Israel’s air forces shifted their focus back to Iran on Friday after a night of heavy bombardment in Lebanon, which was quickly becoming one of the largest fronts in the regional conflict.`\
+https://nytimes.com/2026/03/06/world/middleeast/iran-war-trump-demands-surrender-israel-bombards-lebanon.html
+
 **A Quiet Winter Retreat in the French Riviera**\
 `The French Riviera is usually considered a busy summer hotspot with throngs of tourists, but during the winter months, this stretch of the Mediterranean coastline becomes a quiet, relaxing retreat.`\
 https://nytimes.com/video/travel/100000010758681/french-riviera-winter-travel.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/travel/100000010756487/minnesota-sled-dog-hotel.html
 **Golden Knights trade deadline report card: Grading GM Kelly McCrimmon's moves**\
 `The Golden Knights were surprisingly quiet at the deadline.`\
 https://nytimes.com/athletic/7083342/2026/03/06/golden-knights-2026-nhl-trade-deadline-grades/
-
-**Ex-Colts, Vikings center Ryan Kelly announces retirement**\
-`The 32-year-old Kelly was named to the Pro Bowl four times with the Colts and earned a second-team All-Pro nod in 2020.`\
-https://nytimes.com/athletic/7095015/2026/03/06/ryan-kelly-vikings-colts-retirement/
-
-**Red Light: The 20 biggest deadline deals**\
-`Welcome to Red Light, The Athletic's hockey newsletter.`\
-https://nytimes.com/athletic/7094928/2026/03/06/nhl-trade-deadline-rankings-red-light/
-
-**Bruins trade deadline report card: Grading GM Don Sweeney's moves**\
-`The Bruins' deadline acknowledged that as much as they’d like to make the playoffs this year, they are realistic about their chances.`\
-https://nytimes.com/athletic/7080851/2026/03/06/bruins-2026-nhl-trade-deadline-grades/
-
-**Israeli Strikes Intensify in Beirut as Thousands of Lebanese Flee**\
-`About 300,000 people in Lebanon have fled their homes since bombing from the Israeli military began, the Norwegian Refugee Council estimated. ​​The Israeli military said it was targeting infrastructure belonging to Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000010758544/beirut-lebanon-iran-war-israel.html
 
