@@ -1,3 +1,7 @@
+**Aston Martin F1 crisis deepens, around critical engine battery shortage**\
+`Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
+https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/
+
 **Wizards' Juju Reese, younger brother of Angel Reese, collects 20 rebounds**\
 `One week ago, Juju Reese was in the G League. On Thursday, he controlled the boards for the NBA's Wizards.`\
 https://nytimes.com/athletic/7092479/2026/03/06/juju-reese-angel-reese-20-rebounds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089429/2026/03/06/hansi-flick-barcelona-lateness-f
 **Why are Everton using this unusual kick-off technique?**\
 `David Moyes' side resorted to a route-one tactic in the first minute against Burnley. They are not the first side to use it in the league`\
 https://nytimes.com/athletic/7089360/2026/03/06/everton-unusual-kick-off-analysis/
-
-**Michael Kayode: His long throw approach, 'special Brentford' and Italy ambitions**\
-`The Brentford right-back has adapted superbly to the Premier League - and added to his club's attacking threat with his huge throw `\
-https://nytimes.com/athletic/7083405/2026/03/06/michael-kayode-interview-brentford-italy-long-throw/
 
