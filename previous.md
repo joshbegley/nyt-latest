@@ -1,3 +1,11 @@
+**Colts exploring Zaire Franklin trade as they seek salary cap relief: Sources**\
+`The Colts, who are $4.7 million over the salary cap, would like to acquire draft capital in exchange for the linebacker.`\
+https://nytimes.com/athletic/7091977/2026/03/05/colts-zaire-franklin-trade-talks/
+
+**What Are We Fighting For?**\
+`After launching a war in Iran, President Trump owes the American people a clear explanation of his objectives and possible endgame — something we have yet to receive, argues the Times Opinion writer W.J. Hennigan.`\
+https://nytimes.com/video/opinion/100000010751075/what-are-we-fighting-for.html
+
 **Canadiens have a clear 'want' as deadline looms; whether it is a 'need' remains to be seen**\
 `The Canadiens have a lack of jam and management has a decision to make whether to pay now to get it or wait for the offseason.`\
 https://nytimes.com/athletic/7091725/2026/03/05/canadiens-nhl-trade-deadline-needs/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010755847/europe-iran-defense-u
 **Ex-Executive at Blood Filter Start-Up Is Charged With Covering Up Deaths**\
 `ExThera attracted cancer patients to Antigua with the promise that its devices could cure them. Its former chief regulatory officer faces up to three years in prison.`\
 https://nytimes.com/2026/03/05/business/exthera-cancer-filter-federal-charges.html
-
-**A Sly Political Switcheroo Stuns Montana and Starts a New Senate Fight**\
-`Minutes before the Senate filing deadline, Senator Steve Daines withdrew his re-election bid and an ally jumped in. Even some fellow Republicans criticized the 11th-hour switch.`\
-https://nytimes.com/2026/03/05/us/politics/steve-daines-montana-senate-alme.html
-
-**Not Just Oil: In Venezuela, U.S. Interior Secretary Pushes for Mining Access**\
-`Venezuela is home to large reserves of rare earths, gold and other valuable minerals that the Trump administration wants to exert more control over.`\
-https://nytimes.com/2026/03/05/nyregion/not-just-oil-in-venezuela-us-interior-secretary-pushes-for-mining-access.html
 

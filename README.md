@@ -1,3 +1,7 @@
+**Panic in Beirut After Israel Warns Residents to Evacuate**\
+`The streets of Beirut erupted in chaos on Thursday after Israel told people in the southern suburbs to evacuate. The Israeli military has been carrying out airstrikes in Dahiya, a Hezbollah stronghold, since the militant group fired rockets into northern Israel earlier this week.`\
+https://nytimes.com/video/world/middleeast/100000010756628/beirut-lebanon-strikes-israel.html
+
 **Colts exploring Zaire Franklin trade as they seek salary cap relief: Sources**\
 `The Colts, who are $4.7 million over the salary cap, would like to acquire draft capital in exchange for the linebacker.`\
 https://nytimes.com/athletic/7091977/2026/03/05/colts-zaire-franklin-trade-talks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/state-department-iran-evacuations.htm
 **Iran War Pulls New Countries Into Conflict**\
 `The conflict between Iran, Israel and the United States expanded on Thursday after multiple Iranian attacks pushed leaders in Britain and Italy to accelerate their deployment of military assets to the region.`\
 https://nytimes.com/video/world/middleeast/100000010755847/europe-iran-defense-uk-italy.html
-
-**Ex-Executive at Blood Filter Start-Up Is Charged With Covering Up Deaths**\
-`ExThera attracted cancer patients to Antigua with the promise that its devices could cure them. Its former chief regulatory officer faces up to three years in prison.`\
-https://nytimes.com/2026/03/05/business/exthera-cancer-filter-federal-charges.html
 
