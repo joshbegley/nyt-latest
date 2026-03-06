@@ -1,3 +1,19 @@
+**Bellingham injury: Madrid midfielder doubtful for City tie**\
+`Kylian Mbappe is also expected to miss the first leg in Madrid and may not be fit for the return fixture.`\
+https://nytimes.com/athletic/7090383/2026/03/06/jude-bellingham-real-madrid-injury-mbappe/
+
+**How to watch Sacred Heart vs. Fairfield women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Sacred Heart Pioneers play the Fairfield Stags, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093284/2026/03/06/sacred-heart-vs-fairfield-stream-how-to-watch-march-6/
+
+**How to watch Charleston Southern vs. Winthrop men's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Charleston Southern Buccaneers play the Winthrop Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093278/2026/03/06/charleston-southern-vs-winthrop-stream-how-to-watch-march-6/
+
+**How to watch Denver vs. South Dakota women's basketball: Summit Tournament Time, TV, streaming**\
+`Find out how to watch the Denver Pioneers play the South Dakota Coyotes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093272/2026/03/06/denver-vs-south-dakota-stream-how-to-watch-march-6/
+
 **How to watch DePaul vs. Providence women's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the DePaul Blue Demons play the Providence Friars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093261/2026/03/06/depaul-vs-providence-stream-how-to-watch-march-6/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7093246/2026/03/06/ul-monroe-vs-old-dominion-stream
 **How to watch Washington State vs. Pacific women's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Washington State Cougars play the Pacific Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093243/2026/03/06/washington-state-vs-pacific-stream-how-to-watch-march-6/
-
-**How to watch FGCU vs. Lipscomb men's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the Florida Gulf Coast Eagles play the Lipscomb Bisons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093239/2026/03/06/fgcu-vs-lipscomb-stream-how-to-watch-march-6/
-
-**How to watch Xavier vs. St. John's women's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Xavier Musketeers play the St. John's Red Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093236/2026/03/06/xavier-vs-st-john-s-stream-how-to-watch-march-6/
-
-**How to watch Northeastern vs. N.C. A&T men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Northeastern Huskies play the North Carolina A&T Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093234/2026/03/06/northeastern-vs-n-c-a-t-stream-how-to-watch-march-6/
-
-**How to watch Samford vs. East Tennessee State women's basketball: SoCon Tournament Time, TV, streaming**\
-`Find out how to watch the Samford Bulldogs play the East Tennessee State Buccaneers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093231/2026/03/06/samford-vs-east-tennessee-state-stream-how-to-watch-march-6/
 
