@@ -1,3 +1,31 @@
+**‘War Machine’ Review: On the Fritz**\
+`The “Reacher” star Alan Ritchson can’t troubleshoot this alien invasion sci-fi flick.`\
+https://nytimes.com/2026/03/06/movies/war-machine-review.html
+
+**Lionel Messi takes rare step into politics as Inter Miami enters President Trump's orbit**\
+`Messi has notably avoided political spotlight, but a toast to the 2025 MLS Cup winners began as an Iran war briefing and didn't stop there`\
+https://nytimes.com/athletic/7092220/2026/03/06/trump-messi-ronaldo-politics-iran/
+
+**Phone Pouch**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/03/06/learning/phone-pouch.html
+
+**180,000 New Yorkers May Lose Food Stamp Benefits Under New Work Rules**\
+`Social workers are scrambling to alert recipients and help them find jobs before their aid is eliminated under President Trump’s sweeping domestic policy law.`\
+https://nytimes.com/2026/03/06/nyregion/snap-food-stamps-work-requirements.html
+
+**Robotaxis Put on Hold as Hochul Seeks Support for Car Insurance Reforms**\
+`How two seemingly unrelated policies, one to reduce car insurance costs, the other to allow driverless taxis, became tangled up in Albany politics.`\
+https://nytimes.com/2026/03/06/nyregion/auto-insurance-robotaxi-waymo-hochul.html
+
+**After a Brutal Winter, Worse News for Oyster Farmers**\
+`The deep freeze on the East Coast will still be felt during the summer. Long Island oysters will be in short supply.`\
+https://nytimes.com/2026/03/06/nyregion/oyster-farm-long-island-ice-damage.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/06/crosswords/spelling-bee-forum.html
+
 **OT win over Rockets 'feels a little better than most,' Draymond Green says**\
 `The list of players the Warriors were missing includes Stephen Curry, Jimmy Butler, Kristaps Porziņģis and Gary Payton II.`\
 https://nytimes.com/athletic/7092623/2026/03/06/warriors-rockets-ot-short-handed-win/
