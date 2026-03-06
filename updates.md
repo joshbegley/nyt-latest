@@ -1,3 +1,15 @@
+**Vikings restructure contracts of Justin Jefferson, Christian Darrisaw: Source**\
+`Minnesota entered the offseason facing a significant cap deficit, necessitating the release of several players and contract restructuring.`\
+https://nytimes.com/athletic/7094066/2026/03/06/vikings-justin-jefferson-christian-darrisaw-restructure-contracts/
+
+**Lions left tackle Taylor Decker requests release, says time in Detroit 'coming to an end'**\
+`The departure of Decker, 32, the longest-tenured player on the Lions roster would create an urgent need in Detroit.`\
+https://nytimes.com/athletic/7094322/2026/03/06/lions-taylor-decker-requests-release/
+
+**Wild trade tracker: After bottom-six overhaul — Foligno, Brink in, Hinostroza out — are they done?**\
+`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
+https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/
+
 **Wild trade tracker: After bottom-six overhaul — Foligno, Brink in, Hinostroza out — re they done?**\
 `Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
 https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/

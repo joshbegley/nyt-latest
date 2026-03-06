@@ -1,4 +1,12 @@
-**Wild trade tracker: After bottom-six overhaul — Foligno, Brink in, Hinostroza out — re they done?**\
+**Vikings restructure contracts of Justin Jefferson, Christian Darrisaw: Source**\
+`Minnesota entered the offseason facing a significant cap deficit, necessitating the release of several players and contract restructuring.`\
+https://nytimes.com/athletic/7094066/2026/03/06/vikings-justin-jefferson-christian-darrisaw-restructure-contracts/
+
+**Lions left tackle Taylor Decker requests release, says time in Detroit 'coming to an end'**\
+`The departure of Decker, 32, the longest-tenured player on the Lions roster would create an urgent need in Detroit.`\
+https://nytimes.com/athletic/7094322/2026/03/06/lions-taylor-decker-requests-release/
+
+**Wild trade tracker: After bottom-six overhaul — Foligno, Brink in, Hinostroza out — are they done?**\
 `Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
 https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/
 
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/06/us/politics/trump-unconditional-surrender-iran.ht
 **WNBA star Arike Ogunbowale arrested after Unrivaled title victory**\
 `Ogunbowale was arrested after punching a man, who fell to the ground, outside of a Miami nightclub.`\
 https://nytimes.com/athletic/7094222/2026/03/06/wnba-arike-ogunbowale-arrested-unrivaled/
-
-**Real Madrid wage bill rose by €38m in first half of 2025-26 season**\
-`Interim financials filed by the club show that it paid out €277.5million (£240.4m; $321.9m) in salaries between July and December 2025.`\
-https://nytimes.com/athletic/7094144/2026/03/06/real-madrid-finances-wages-revenue/
 
