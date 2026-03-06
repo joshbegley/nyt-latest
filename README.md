@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Senator Seeks Perjury Investigation Into Noem**\
+``\
+https://nytimes.com/live/2026/03/06/us/trump-news-updates
+
 **The Timberwolves are making their charge, right on schedule**\
 `Minnesota has been maddeningly inconsistent at times this season, but Anthony Edwards can feel the team starting to hit its stride. `\
 https://nytimes.com/athletic/7092045/2026/03/06/timberwolves-anthony-edwards-win-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/podcasts/the-headlines/the-headlines-news-quiz-ma
 **Air travel remains disrupted across the Middle East.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/air-travel-is-still-disrupted-across-the-middle-east
-
-**Pistons had few answers against the Spurs. What does it mean for the playoffs?**\
-`San Antonio's defense swarmed and stifled Cade Cunningham in a pair of wins. Can Detroit learn from it in time for the postseason?`\
-https://nytimes.com/athletic/7092665/2026/03/06/pistons-spurs-sweep-cade-cunningham/
 

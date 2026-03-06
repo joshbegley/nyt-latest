@@ -1,3 +1,11 @@
+**The Timberwolves are making their charge, right on schedule**\
+`Minnesota has been maddeningly inconsistent at times this season, but Anthony Edwards can feel the team starting to hit its stride. `\
+https://nytimes.com/athletic/7092045/2026/03/06/timberwolves-anthony-edwards-win-streak/
+
+**F1 stewards to be more lenient over clashes between drivers in 2026**\
+`The FIA's guideline changes cover “racing to the apex” driving and how drivers cannot simply disappear once they have been overtaken.`\
+https://nytimes.com/athletic/7093007/2026/03/06/f1-driver-clashes-guidelines/
+
 **Trump’s Strait of Hormuz Problem**\
 `The president campaigned on lowering prices for Americans. That pledge has come under fire this week as the Iran war pushes up the cost of gasoline.`\
 https://nytimes.com/2026/03/06/business/dealbook/trump-strait-hormuz-iran-gasoline.html
