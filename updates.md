@@ -1,3 +1,15 @@
+**Daily Barrage of Iranian Drone Attacks Increases Pressure on Gulf States**\
+`Missile launches from Iran have slowed, but relentless drone volleys could deplete air defenses in the region.`\
+https://nytimes.com/2026/03/06/world/middleeast/persian-gulf-states-air-defense-iran.html
+
+**Axel Springer Agrees to Buy U.K.’s Telegraph**\
+`The $766 million takeover is the latest twist for The Telegraph, an influential British newspaper whose ownership had been in limbo for years.`\
+https://nytimes.com/2026/03/06/business/dealbook/axel-springer-telegraph.html
+
+**Bills free agent targets: Wide receivers, edge rushers, linebackers and more**\
+`The Bills traded to fill one need, but still have several others.`\
+https://nytimes.com/athletic/7087950/2026/03/06/bills-free-agent-targets/
+
 **Oscar Piastri is Australia’s top motorsport son – but greater recognition brings added pressure**\
 `Besting the efforts of Mark Webber and Daniel Ricciardo has become an expectation of Piastri by his passionate supporter base in Australia`\
 https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-australian-f1-gp-2026/

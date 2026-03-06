@@ -1,3 +1,16 @@
+**Chelsea's Rosenior says Sanchez has reacted well to being dropped**\
+`"I know traditionally if there's a change of goalkeeper, it's like he's now the No 1. It's not the case," Rosenior said on Friday.`\
+https://nytimes.com/athletic/7093394/2026/03/06/robert-sanchez-rosenior-chelsea-goalkeeper/
+
+**2026 NFL Draft pro day schedule: When will top prospects work out for scouts?**\
+`Fernando Mendoza and other top 2026 NFL Draft prospects have at least one more chance after the combine to impress teams.`\
+https://nytimes.com/athletic/7091433/2026/03/06/nfl-draft-2026-pro-days-schedule-indiana/
+
+**Aussie catcher explains handshake snub of Czech rival before WBC game: ‘There’s no malice’**\
+`Robbie Perkins says his refusal to shake hands with Milan Prokop was just a matter of  competitive spirit and principle
+`\
+https://nytimes.com/athletic/7093421/2026/03/06/australia-wbc-handshake-robbie-perkins-snub/
+
 **Daily Barrage of Iranian Drone Attacks Increases Pressure on Gulf States**\
 `Missile launches from Iran have slowed, but relentless drone volleys could deplete air defenses in the region.`\
 https://nytimes.com/2026/03/06/world/middleeast/persian-gulf-states-air-defense-iran.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/7089447/2026/03/06/nhl-trade-board-bobrovsky-troche
 **A Vexing Problem for College Students: Course Availability**\
 `A new report looks at course “shutouts,” which can add to the time and cost of getting a degree.`\
 https://nytimes.com/2026/03/06/your-money/college-students-course-availability.html
-
-**Everton hopeful of appointing Norwich's Rastrick as new academy director**\
-`Rastrick previously held the post of academy manager at Tottenham Hotspur.`\
-https://nytimes.com/athletic/7093276/2026/03/06/dean-rastrick-everton-academy-director/
-
-**A Shohei Slam, an ecstatic fan, and the early favorite for Hairdo of the WBC**\
-`Ohtani's thrilling big fly and another Aussie win kicked off the first bug day of this year's tournament.`\
-https://nytimes.com/athletic/7093018/2026/03/06/ohtani-grand-slam-ball-fan-wbc/
-
-**Rangers trade tracker: Trocheck held out of lineup, Carrick dealt to Sabres**\
-`Friday's 3 p.m. ET trade deadline is closing in, with the Rangers one of the expected sellers many around the league are monitoring.`\
-https://nytimes.com/athletic/7087806/2026/03/06/rangers-trade-rumors-adam-fox-vincent-trocheck/
 
