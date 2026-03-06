@@ -1,3 +1,8 @@
+**How Chelsea kicked off the ownership revolution that has transformed Wrexham**\
+`Wrexham hosting Chelsea is a classically compelling modern FA Cup tie, but there is a deeper significance to their unique identities
+`\
+https://nytimes.com/athletic/7091207/2026/03/06/chelsea-wrexham-fa-cup-ryan-reynolds-rob-mac-premier-league/
+
 **The day Phil Parkinson outfoxed Jose Mourinho's Chelsea**\
 `The Athletic brings the inside story of arguably Parkinson's finest hour through the lens of the footballer at the heart of his game plan`\
 https://nytimes.com/athletic/7086092/2026/03/06/phil-parkinson-outfoxed-jose-mourinho-wrexham-chelsea/

@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7086092/2026/03/06/phil-parkinson-outfoxed-jose-mou
 `An exclusive video interview with Tomori on Maldini's influence, people underestimating Pulisic and his World Cup hopes`\
 https://nytimes.com/athletic/7086014/2026/03/06/fikayo-tomori-milan-career-italy-interview/
 
-**Canucks trade Conor Garland to Blue Jackets for 2 draft picks: Sources**\
+**Canucks trade Conor Garland to Blue Jackets for 2 draft picks**\
 `Garland, 29, signed a six-year extension with the Canucks last summer but has since seen the team pivot to a rebuild.`\
 https://nytimes.com/athletic/7036835/2026/03/06/canucks-conor-garland-trade-blue-jackets/
 
