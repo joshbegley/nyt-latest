@@ -1,3 +1,11 @@
+**NHL trade grades: Brayden Schenn is a good fit for the Islanders now but a risky long-term bet**\
+`It's a good return for the Blues and a good acquisition for an Islanders team pushing for the playoffs.`\
+https://nytimes.com/athletic/7094472/2026/03/06/nhl-trade-grades-brayden-schenn-islanders-blues/
+
+**What to know about the report.**\
+`By Sydney Ember`\
+https://nytimes.com/live/2026/03/06/business/jobs-report-economy/what-to-know-about-the-report-clone
+
 **Architect of Trump’s Rollback of Climate Rules Leaves White House**\
 `Jeffrey B. Clark oversaw the dismantlement of government restrictions on greenhouse gas emissions and water and air pollution. He had also faced a criminal probe in connection with the 2020 election.`\
 https://nytimes.com/2026/03/06/us/politics/trump-administration-jeffrey-clark-exit.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7082711/2026/03/06/wild-2026-nhl-trade-deadline-gra
 **Ex-Michigan coach Sherrone Moore agrees to plea deal, felony charge dropped**\
 `Sherrone Moore pleaded no contest to two misdemeanor charges as part of a plea agreement that dismissed other charges.`\
 https://nytimes.com/athletic/7094533/2026/03/06/sherrone-moore-michigan-plea-deal-charges/
-
-**Blackhawks trade deadline report card: Grading GM Kyle Davidson's moves**\
-`The Blackhawks traded Nick Foligno, Connor Murphy, Jason Dickinson and Colton Dach for Andrew Mangiapane and picks, plus another small deal.`\
-https://nytimes.com/athletic/7080928/2026/03/06/blackhawks-2026-nhl-trade-deadline-grades/
-
-**Jeremy Larner, Who Wrote ‘The Candidate,’ a Political Film Classic, Dies at 88**\
-`His Oscar-winning 1972 screenplay starred Robert Redford as an idealistic public interest lawyer making a run for the Senate.`\
-https://nytimes.com/2026/03/06/movies/jeremy-larner-dead.html
 
