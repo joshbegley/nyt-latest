@@ -1,3 +1,7 @@
+**NHL trade grades: Blue Jackets make savvy move in getting Conor Garland from Canucks**\
+`The Blue Jackets didn't give up a first or any prospects but Garland's six-year extension kicks in next year without any Canucks retention.`\
+https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-blue-jackets-canucks/
+
 **Aston Martin F1 crisis deepens, around critical engine battery shortage**\
 `Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
 https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/

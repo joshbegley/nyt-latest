@@ -1,8 +1,16 @@
+**The New York Times in Print for Friday, March 6, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/06/todays-new-york-times
+
+**America Won’t Save Iran**\
+`The most likely outcome of the American-Israeli bombing campaign is not the advent of liberal democracy but something worse.`\
+https://nytimes.com/2026/03/06/opinion/iran-bombing-america.html
+
 **NHL trade grades: Blue Jackets make savvy move in getting Conor Garland from Canucks**\
 `The Blue Jackets didn't give up a first or any prospects but Garland's six-year extension kicks in next year without any Canucks retention.`\
 https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-blue-jackets-canucks/
 
-**Aston Martin F1 crisis deepens, around critical engine battery shortage**\
+**Aston Martin F1 crisis deepens with engine battery shortage at 2026 Australian GP**\
 `Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
 https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7086014/2026/03/06/fikayo-tomori-milan-career-italy
 **Canucks trade Conor Garland to Blue Jackets for 2 draft picks**\
 `Garland, 29, signed a six-year extension with the Canucks last summer but has since seen the team pivot to a rebuild.`\
 https://nytimes.com/athletic/7036835/2026/03/06/canucks-conor-garland-trade-blue-jackets/
-
-**Investigating accusations of stat-padding: Kane, Milner and… Ronaldo?**\
-`Delve a little deeper than headline statistics and it can be easy to pick holes in landmark achievements`\
-https://nytimes.com/athletic/7072114/2026/03/06/stat-padding-kane-milner/
-
-**What do you get for being late at Hansi Flick's Barcelona? A $46,000 fine**\
-`Flick's strictness on tardiness is nothin new. But the way he is punishing offenders has changed`\
-https://nytimes.com/athletic/7089429/2026/03/06/hansi-flick-barcelona-lateness-fine/
 

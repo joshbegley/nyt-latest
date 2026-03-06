@@ -1,3 +1,7 @@
+**NHL trade grades: Blue Jackets make savvy move in getting Conor Garland from Canucks**\
+`The Blue Jackets didn't give up a first or any prospects but Garland's six-year extension kicks in next year without any Canucks retention.`\
+https://nytimes.com/athletic/7092534/2026/03/06/nhl-trade-grades-conor-garland-blue-jackets-canucks/
+
 **Aston Martin F1 crisis deepens, around critical engine battery shortage**\
 `Aston Martin team boss Adrian Newey has revealed just how short the F1 team is running on critical engine parts ahead of the first 2026 race`\
 https://nytimes.com/athletic/7092547/2026/03/06/aston-martin-f1-engine-battery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7072114/2026/03/06/stat-padding-kane-milner/
 **What do you get for being late at Hansi Flick's Barcelona? A $46,000 fine**\
 `Flick's strictness on tardiness is nothin new. But the way he is punishing offenders has changed`\
 https://nytimes.com/athletic/7089429/2026/03/06/hansi-flick-barcelona-lateness-fine/
-
-**Why are Everton using this unusual kick-off technique?**\
-`David Moyes' side resorted to a route-one tactic in the first minute against Burnley. They are not the first side to use it in the league`\
-https://nytimes.com/athletic/7089360/2026/03/06/everton-unusual-kick-off-analysis/
 
