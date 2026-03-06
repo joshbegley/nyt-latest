@@ -1,3 +1,7 @@
+**How to watch San Diego vs. Loyola Marymount men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the San Diego Toreros play the Loyola Marymount Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7091860/2026/03/05/san-diego-vs-loyola-marymount-stream-how-to-watch-march-5/
+
 **Protection for Section 8 Renters Is Struck Down by N.Y. Appeals Court**\
 `A panel of appeals judges ruled that a state law banning housing discrimination against renters who use federal vouchers was unconstitutional.`\
 https://nytimes.com/2026/03/05/nyregion/section-8-vouchers-ruling-new-york.html
@@ -11,7 +15,7 @@ https://nytimes.com/video/us/politics/100000010756485/trump-noem-mullin-dhs.html
 https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal.html
 
 **Rangers sit Vincent Trocheck, Sam Carrick for roster management**\
-`Trocheck and Carrick are two of the remaining centers on the trade market ahead of the league's 3 p.m. ET deadline on Friday.`\
+`Trocheck and Carrick are two of the remaining centers on the trade market ahead of the league's 3 p.m. (ET) Friday deadline.`\
 https://nytimes.com/athletic/7091672/2026/03/05/rangers-vincent-trocheck-sam-carrick-trade-leafs/
 
 **Rebuild or reload, the Leafs need as many (good) assets as they can get**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7091500/2026/03/05/bob-harlan-obituary-packers-pres
 **Trump ‘Can’t Say No to Israel’**\
 `Who is calling the shots in the war with Iran? Curt Mills, the executive director of the American Conservative, thinks Israeli influence is guiding Trump’s decision to go to war in the Middle East. He explains why on this episode of “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.html
-
-**S.E.C. Settles Its Case Against Justin Sun, an Investor in the Trumps’ Crypto Coins**\
-`The decision to settle the court action is particularly striking because the defendant was accused of a serious violation of securities laws. He denied the charges.`\
-https://nytimes.com/2026/03/05/us/politics/sec-justin-sun.html
 
