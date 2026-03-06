@@ -1,3 +1,27 @@
+**A Versatile (and Reader-Favorite) Silken Tofu-Miso Dressing**\
+`And more of our most popular recipes from the week.`\
+https://nytimes.com/2026/03/06/dining/a-versatile-and-reader-favorite-silken-tofu-miso-dressing.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Mexican drama, a Japanese crime thriller, an absurdist French comedy and more.`\
+https://nytimes.com/2026/03/06/movies/international-movies-streaming.html
+
+**Epstein Was Wicked. But Also Banal.**\
+`Just look at his philosophical opinions.`\
+https://nytimes.com/2026/03/06/opinion/epstein-files.html
+
+**Is This Treadmill Walking Trend Good for Your Fitness?**\
+`Here’s what to know about the 12-3-30 workout.`\
+https://nytimes.com/2026/03/06/well/move/12-3-30-treadmill-workout-trend.html
+
+**'The night Tottenham died' – How Spurs fans feel as threat of relegation grows**\
+`Months of woeful performances have left Tottenham Hotspur fans disconsolate and fearing the worst`\
+https://nytimes.com/athletic/7092975/2026/03/06/tottenham-fans-relegation/
+
+**Manchester United, ticket price rises and deciphering the strategy**\
+`As at other Premier League clubs, ticketing has become a more prominent issue among match-going United fans`\
+https://nytimes.com/athletic/7093348/2026/03/06/manchester-united-ticket-prices-must-fab/
+
 **NHL trade grades: Bobby Brink will add more skill in the middle-six for Wild**\
 `Bobby Brink can help the Wild's secondary scoring in their playoff run and they did well to cash in on David Jiricek.`\
 https://nytimes.com/athletic/7093632/2026/03/06/nhl-trade-grades-bobby-brink-wild-flyers/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/06/arts/design/daredevil-batman-artist-klaus-janson-
 **Tom Junod Would Like to Tell You About His Father**\
 `A star writer from the heyday of magazines reveals the family secret behind his award-winning stories.`\
 https://nytimes.com/2026/03/06/style/tom-junod-would-like-to-tell-you-about-his-father.html
-
-**Wild acquire winger Bobby Brink, send prospect David Jiricek to Flyers**\
-`The Wild see Brink, 24, as a third-line right wing who can move up the lineup if needed. He's a pending restricted free agent.`\
-https://nytimes.com/athletic/7093611/2026/03/06/wild-flyers-trade-bobby-brink-david-jiricek/
-
-**Jesse Lingard joins Brazilian club Corinthians**\
-`The 33-year-old has signed a contract until the end of 2026, with the option of a further year if certain thresholds are met.`\
-https://nytimes.com/athletic/7093432/2026/03/06/jesse-lingard-transfer-corinthians-brazil/
-
-**Israel issues an evacuation warning in the Qom region, near an Iranian nuclear site.**\
-`By Euan Ward`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/israel-issues-an-evacuation-warning-in-the-qom-region-near-an-iranian-nuclear-site
-
-**The Bounce: What should we expect from Jayson Tatum in his return from injury?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7093484/2026/03/06/jayson-tatum-celtics-return-achilles-the-bounce/
-
-**Strikes Batter Iran’s Storied Azadi Stadium Complex**\
-`Several sports centers have been hit in Tehran since the U.S. and Israel began their attacks, the authorities say, but none with the resonance of the Azadi.`\
-https://nytimes.com/2026/03/06/world/middleeast/iran-strikes-azadi-stadium.html
-
-**Wild trade tracker: Will they get in on the bidding for Predators' Ryan O'Reilly?**\
-`Keep up with all the latest ahead of Friday's NHL trade deadline with live updates here from Wild insiders Michael Russo and Joe Smith.`\
-https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-2026/
 
