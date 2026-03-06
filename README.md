@@ -1,3 +1,7 @@
+**Raiders set to release QB Geno Smith after 1 season in Las Vegas: Sources**\
+`Smith threw an NFL-worst 17 interceptions in his lone season with the Raiders, which ended with Las Vegas earning the top pick in the draft.`\
+https://nytimes.com/athletic/7089791/2026/03/06/geno-smith-released-raiders-nfl/
+
 **A Versatile (and Reader-Favorite) Silken Tofu-Miso Dressing**\
 `And more of our most popular recipes from the week.`\
 https://nytimes.com/2026/03/06/dining/a-versatile-and-reader-favorite-silken-tofu-miso-dressing.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve
 **An Artist of Caped Crusaders Emerges From the Shadows**\
 `Klaus Janson, known for his work on Daredevil and Batman, said he hoped his new solo show could give people “a growing appreciation of what comics can do.”`\
 https://nytimes.com/2026/03/06/arts/design/daredevil-batman-artist-klaus-janson-labaune-gallery.html
-
-**Tom Junod Would Like to Tell You About His Father**\
-`A star writer from the heyday of magazines reveals the family secret behind his award-winning stories.`\
-https://nytimes.com/2026/03/06/style/tom-junod-would-like-to-tell-you-about-his-father.html
 
