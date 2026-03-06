@@ -1,3 +1,7 @@
+**D.C. Court Strikes Down Local Ban on High-Capacity Gun Magazines**\
+`A three-judge panel reversed the conviction of a man charged with possessing a 30-bullet magazine, saying it had constitutional protection.`\
+https://nytimes.com/2026/03/05/us/politics/dc-court-gun-case.html
+
 **Blue Jackets beat Florida for latest win, charge into trade deadline as buyers**\
 `The Blue Jackets are one point out of the second wild-card spot in the East after winning 14 of their last 17 games.`\
 https://nytimes.com/athletic/7092313/2026/03/05/blue-jackets-trade-deadline-waddell-provorov-panthers/
