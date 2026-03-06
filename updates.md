@@ -1,3 +1,15 @@
+**Families Forced to Sleep on the Streets of Beirut as Israel Pounds Hezbollah**\
+`Thousands fled the southern outskirts of the Lebanese capital before Israel unleashed heavy strikes on the militant group overnight. Many say they have nowhere to go.`\
+https://nytimes.com/2026/03/06/world/middleeast/beirut-displaced-israeli-strikes-dahiya.html
+
+**Colorado to honor quarterback Dominiq Ponder with jersey patch**\
+`Colorado coach Deion Sanders said Friday the walk-on was a “bona fide leader.”`\
+https://nytimes.com/athletic/7094332/2026/03/06/colorado-dominiq-ponder-jersey-patch/
+
+**John Carpino resigns as Angels president, longtime exec named as replacement**\
+`Jolly, who most recently served as senior vice president, is replacing Carpino, who had held the role of team president since 2009.`\
+https://nytimes.com/athletic/7094185/2026/03/06/john-carpino-resigns-angels-president/
+
 **100 Years of Women Who Changed History**\
 `Revisiting the obituaries of a century of notable women to show how they were remembered — and what history may have left unsaid.`\
 https://nytimes.com/interactive/2026/03/06/obituaries/archives/notable-women-deaths-obituaries.html
