@@ -1,3 +1,15 @@
+**4 Men Arrested on Suspicion of Spying on Jews in London for Iran**\
+`The police said one Iranian and three British-Iranians were detained as part of a counterterrorism investigation.`\
+https://nytimes.com/2026/03/06/world/europe/4-men-arrested-on-suspicion-of-spying-on-jews-in-london-for-iran.html
+
+**Tyra Banks Is (Kinda) Sorry**\
+`Wesley Morris talks with the writer, editor and stylist Michaela angela Davis about a new Netflix docu-series’ attempt to reckon with the legacy of “America’s Next Top Model.”`\
+https://nytimes.com/video/podcasts/100000010757690/tyra-banks-is-kinda-sorry.html
+
+**FA Cup fifth-round odds: Can Wrexham, Wolves and Newcastle provide the shock factor?**\
+`With eight ties over four days, this FA Cup fifth round could be when the cream rises to the top — or present an opportunity for a cupset`\
+https://nytimes.com/athletic/7092897/2026/03/06/fa-cup-fifth-round-wrexham-chelsea-man-city-newcastle/
+
 **Body language in sports isn’t mystical. It can win or lose the next play**\
 `This isn't a character flaw; it's human wiring. The question is: What we can learn to do about it?`\
 https://nytimes.com/athletic/7090564/2026/03/06/kevin-durant-caleb-williams-body-language-expert/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7090885/2026/03/06/jermaine-eluemunor-new-york-gian
 **Ghiroli: The problem with MLB's drug policy isn't the testing, it's the contracts**\
 `Players don't receive a lifetime ban until a third PED violation. Perhaps it's time to reconsider the current penalties for positive tests.`\
 https://nytimes.com/athletic/7091280/2026/03/06/mlb-drug-testing-contracts-jurickson-profar/
-
-**Who's got the best fit on the biggest stage? Ranking World Baseball Classic uniforms**\
-`MLB has long been known for its iconic uniforms and bold and recognizable iconography. But who's the best dressed on the national stage?`\
-https://nytimes.com/athletic/7076130/2026/03/06/wbc-baseball-uniform-rankings-2026/
-
-**Colts mock draft: What happens if WR Alec Pierce leaves in free agency?**\
-`The players Indianapolis selects next month could be greatly affected by the decisions the team makes this month.`\
-https://nytimes.com/athletic/7091305/2026/03/06/colts-mock-draft-alec-pierce/
-
-**Anthony Edwards' midrange mastery, a Thunder glow up and more NBA trends I'm watching**\
-`Minnesota's Anthony Edwards has been adding skills to his repertoire and it's come from learning through his losses. `\
-https://nytimes.com/athletic/7091453/2026/03/06/anthony-edwards-cason-wallace-og-anunoby-nba/
 
