@@ -1,3 +1,15 @@
+**How to watch Miami (OH) vs. Ohio men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Ohio Bobcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094750/2026/03/06/miami-oh-vs-ohio-stream-how-to-watch-march-6/
+
+**How The Times Tracks Down the Connections Behind Trump’s Pardons**\
+`Reporters tapped sources, combed through public records and scrutinized social media to penetrate the web of influence and money underlying the president’s clemency grants.`\
+https://nytimes.com/2026/03/06/us/politics/how-the-times-covers-pardons.html
+
+**How to watch Virginia Tech vs. North Carolina women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094728/2026/03/06/virginia-tech-vs-north-carolina-stream-how-to-watch-march-6/
+
 **How to watch Southeast Missouri State vs. Morehead State men's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Southeast Missouri State Redhawks play the Morehead State Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7094717/2026/03/06/southeast-missouri-state-vs-morehead-state-stream-how-to-watch-march-6/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7082699/2026/03/06/oilers-2026-nhl-trade-deadline-g
 **Justice Dept. Pushes for Charges Against Cuban Leaders**\
 `The move comes as President Trump is ratcheting up his rhetorical assault on Cuba’s leadership.`\
 https://nytimes.com/2026/03/06/us/politics/justice-dept-cuba-investigation.html
-
-**NHL trade grades: Brayden Schenn is a good fit for the Islanders now but a risky long-term bet**\
-`It's a good return for the Blues and a good acquisition for an Islanders team pushing for the playoffs.`\
-https://nytimes.com/athletic/7094472/2026/03/06/nhl-trade-grades-brayden-schenn-islanders-blues/
-
-**What to know about the report.**\
-`By Sydney Ember`\
-https://nytimes.com/live/2026/03/06/business/jobs-report-economy/what-to-know-about-the-report-clone
-
-**Architect of Trump’s Rollback of Climate Rules Leaves White House**\
-`Jeffrey B. Clark oversaw the dismantlement of government restrictions on greenhouse gas emissions and water and air pollution. He had also faced a criminal probe in connection with the 2020 election.`\
-https://nytimes.com/2026/03/06/us/politics/trump-administration-jeffrey-clark-exit.html
 

@@ -1,3 +1,15 @@
+**How to watch Miami (OH) vs. Ohio men's basketball: Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the Ohio Bobcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094750/2026/03/06/miami-oh-vs-ohio-stream-how-to-watch-march-6/
+
+**How The Times Tracks Down the Connections Behind Trump’s Pardons**\
+`Reporters tapped sources, combed through public records and scrutinized social media to penetrate the web of influence and money underlying the president’s clemency grants.`\
+https://nytimes.com/2026/03/06/us/politics/how-the-times-covers-pardons.html
+
+**How to watch Virginia Tech vs. North Carolina women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7094728/2026/03/06/virginia-tech-vs-north-carolina-stream-how-to-watch-march-6/
+
 **How to watch Southeast Missouri State vs. Morehead State men's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Southeast Missouri State Redhawks play the Morehead State Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7094717/2026/03/06/southeast-missouri-state-vs-morehead-state-stream-how-to-watch-march-6/
