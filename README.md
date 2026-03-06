@@ -1,3 +1,7 @@
+**Families Forced to Sleep on the Streets of Beirut as Israel Pounds Hezbollah**\
+`Thousands fled the southern outskirts of the Lebanese capital before Israel unleashed heavy strikes on the militant group overnight. Many say they have nowhere to go.`\
+https://nytimes.com/2026/03/06/world/middleeast/beirut-displaced-israeli-strikes-dahiya.html
+
 **Colorado to honor quarterback Dominiq Ponder with jersey patch**\
 `Colorado coach Deion Sanders said Friday the walk-on was a “bona fide leader.”`\
 https://nytimes.com/athletic/7094332/2026/03/06/colorado-dominiq-ponder-jersey-patch/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airspace-in-the-r
 **Vikings restructure contracts of Justin Jefferson, Christian Darrisaw, Byron Murphy: Sources**\
 `Minnesota entered the offseason facing a significant cap deficit, necessitating the release of several players and contract restructuring.`\
 https://nytimes.com/athletic/7094066/2026/03/06/vikings-justin-jefferson-christian-darrisaw-restructure-contracts/
-
-**Lions left tackle Taylor Decker requests release, says time in Detroit 'coming to an end'**\
-`The departure of Decker, 32, the longest-tenured player on the Lions roster, would create an urgent need in Detroit.`\
-https://nytimes.com/athletic/7094322/2026/03/06/lions-taylor-decker-requests-release/
 
