@@ -1,3 +1,11 @@
+**Will Talarico’s Long Online Paper Trail Haunt Him?**\
+`For some Democrats, generational change comes with a cringey social media past.`\
+https://nytimes.com/2026/03/06/us/politics/talarico-social-media-democrats-jobs-report.html
+
+**Canucks trade deadline report card: Grading GM Patrik Allvin's moves**\
+`The work overall is defensible, but it wasn't a home run deadline for an embattled Canucks management group.`\
+https://nytimes.com/athletic/7083338/2026/03/06/canucks-2026-nhl-trade-deadline-grades/
+
 **Maple Leafs trade deadline report card: Grading Brad Treliving's moves**\
 `In the end, the Leafs did just OK in trading away Nicolas Roy, Bobby McMann and Scott Laughton for draft picks.`\
 https://nytimes.com/athletic/7083307/2026/03/06/maple-leafs-2026-nhl-trade-deadline-grades/
@@ -25,16 +33,4 @@ https://nytimes.com/2026/03/06/opinion/trump-spain-sanchez-iran-military-bases.h
 **Florida Bar Retreats From Statement Saying Lindsey Halligan Was Under Scrutiny**\
 `The Florida bar said that it had “erroneously” made that assertion, disclosed in a letter last month, and that no investigation into Ms. Halligan was pending.`\
 https://nytimes.com/2026/03/06/us/politics/lindsey-halligan-florida-bar.html
-
-**Bucks' Doc Rivers responds to retirement speculation: 'Not getting into that'**\
-`Giannis Antetokounmpo has missed 29 games for the Bucks, but even with him in the lineup, Milwaukee is struggling to win.`\
-https://nytimes.com/athletic/7094934/2026/03/06/doc-rivers-bucks-retirement-speculation/
-
-**USA striker Folarin Balogun stays hot for Monaco vs. PSG with goal, assist**\
-`Balogun has scored in three straight Ligue 1 matches and has five goals in his last five games in all competitions`\
-https://nytimes.com/athletic/7095010/2026/03/06/folarin-balogun-monaco-psg-goal-assist-usmnt/
-
-**Rangers trade deadline report card: Grading Chris Drury's moves**\
-`The Rangers let the deadline come and go without moving their biggest trade chip: veteran center Vincent Trocheck.`\
-https://nytimes.com/athletic/7082740/2026/03/06/rangers-2026-nhl-trade-deadline-grades/
 
