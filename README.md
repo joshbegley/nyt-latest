@@ -1,3 +1,11 @@
+**At Paralympics, U.S. curlers Steve Emt and Laura Dwyer are right where they belong**\
+`The road to Milan Cortina wasn't easy, but through teamwork and growing confidence, Emt and Dwyer give the U.S. a real medal shot.`\
+https://nytimes.com/athletic/7092005/2026/03/06/paralympics-curling-steve-emt-laura-dwyer-usa/
+
+**Iranians flee to Turkey. ‘I am in constant fear,’ says one.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/iranians-flee-to-turkey-i-am-in-constant-fear-says-one
+
 **How to watch Mavericks vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093954/2026/03/06/mavericks-vs-celtics-stream-how-to-watch-march-6/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7093760/2026/03/06/leeds-ramadan-boos-burnley-ellan
 **How to watch Valparaiso vs. Bradley men's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Valparaiso Beacons play the Bradley Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093913/2026/03/06/valparaiso-vs-bradley-stream-how-to-watch-march-6/
-
-**NHL trade grades: Stanley and Schenn are not the answer to the Sabres missing out on Parayko**\
-`This trade doesn’t make the Sabres better but kudos to Winnipeg for packaging both veteran defensemen to extract a higher price.`\
-https://nytimes.com/athletic/7093746/2026/03/06/nhl-trade-grades-luke-schenn-logan-stanley-sabres-jets/
-
-**How to watch Omaha vs. South Dakota men's basketball: Summit League Tournament Time, TV, streaming**\
-`Find out how to watch the Omaha Mavericks play the South Dakota Coyotes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093871/2026/03/06/omaha-vs-south-dakota-stream-how-to-watch-march-6/
 
