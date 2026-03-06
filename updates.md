@@ -1,3 +1,7 @@
+**Not Just Oil: In Venezuela, U.S. Interior Secretary Pushes for Mining Access**\
+`Venezuela is home to large reserves of rare earths, gold and other valuable minerals that the Trump administration wants to exert more control over.`\
+https://nytimes.com/2026/03/05/nyregion/not-just-oil-in-venezuela-us-interior-secretary-pushes-for-mining-access.html
+
 **Superfood Fuels Mating Frenzy for a Critically Endangered Parrot**\
 `Kakapos, which are reclusive and flightless and can live as long as humans, are found only in New Zealand. They feed on the fruit of the rimu tree.`\
 https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.html
