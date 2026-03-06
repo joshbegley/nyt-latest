@@ -1,3 +1,7 @@
+**LeBron passes Kareem for most made field goals in NBA history**\
+`"He's got a hell of a catalog,” Laker coach JJ Redick said before Thursday's game in Denver.`\
+https://nytimes.com/athletic/7092315/2026/03/05/lebron-james-record-field-goals-nba-kareem/
+
 **Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
 `The incident occurred with less than a minute into in the second period, and Buffalo scored on the ensuing five-minute major.`\
 https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
