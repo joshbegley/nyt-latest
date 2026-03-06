@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-austra
 `Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
 https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resiliance-premier-league-glasner/
 
-**Capitals trade John Carlson to Ducks for 2 draft picks**\
+**Capitals trade defenseman John Carlson to Ducks for 2 draft picks**\
 `Carlson has spent his entire 17-year NHL career with the Capitals, winning the Stanley Cup with them in 2018.`\
 https://nytimes.com/athletic/7036849/2026/03/06/capitals-john-carlson-trade/
 
