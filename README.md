@@ -1,3 +1,7 @@
+**Weak Jobs Data Underscores Fed’s Dilemma as War Stokes Inflation Risk**\
+`The Federal Reserve is still widely expected to hold interest rates steady when its officials next meet on March 17-18.`\
+https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve-jobs-inflation
+
 **An Artist of Caped Crusaders Emerges From the Shadows**\
 `Klaus Janson, known for his work on Daredevil and Batman, said he hoped his new solo show could give people “a growing appreciation of what comics can do.”`\
 https://nytimes.com/2026/03/06/arts/design/daredevil-batman-artist-klaus-janson-labaune-gallery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7075630/2026/03/06/minnesota-wild-trade-tracker-202
 **Brazilian top-flight player handed 12-game ban for sexist remarks**\
 `Marques, 24, was also fined in 30,000 Brazilian reais ($5,700, £4,277) for his comments about referee Daiane Muniz.`\
 https://nytimes.com/athletic/7093390/2026/03/06/brazil-football-ban-sexist-abuse/
-
-**Browns to restructure quarterback Deshaun Watson's contract: Source**\
-`The move will save more than $35 million in cap space and ensure Watson remains on the roster for 2026. `\
-https://nytimes.com/athletic/7067916/2026/03/06/deshaun-watson-browns-contract-restructure/
 
