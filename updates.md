@@ -1,3 +1,7 @@
+**Blues captain Brayden Schenn waives no-trade for deal to Islanders**\
+`Schenn, 34, whose contract goes through 2028 with a $6,500,000 cap hit, had a 15-team no-trade list.`\
+https://nytimes.com/athletic/7021197/2026/03/06/blues-islanders-trade-brayden-schenn/
+
 **Families Forced to Sleep on the Streets of Beirut as Israel Pounds Hezbollah**\
 `Thousands fled the southern outskirts of the Lebanese capital before Israel unleashed heavy strikes on the militant group overnight. Many say they have nowhere to go.`\
 https://nytimes.com/2026/03/06/world/middleeast/beirut-displaced-israeli-strikes-dahiya.html
