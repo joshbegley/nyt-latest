@@ -1,3 +1,15 @@
+**Everton hopeful of appointing Norwich's Rastrick as new academy director**\
+`Rastrick previously held the post of academy manager at Tottenham Hotspur.`\
+https://nytimes.com/athletic/7093276/2026/03/06/dean-rastrick-everton-academy-director/
+
+**A Shohei Slam, an ecstatic fan, and the early favorite for Hairdo of the WBC**\
+`Ohtani's thrilling big fly and another Aussie win kicked off the first bug day of this year's tournament.`\
+https://nytimes.com/athletic/7093018/2026/03/06/ohtani-grand-slam-ball-fan-wbc/
+
+**Rangers trade tracker: Trocheck held out of lineup, Carrick dealt to Sabres**\
+`Friday's 3 p.m. ET trade deadline is closing in, with the Rangers one of the expected sellers many around the league are monitoring.`\
+https://nytimes.com/athletic/7087806/2026/03/06/rangers-trade-rumors-adam-fox-vincent-trocheck/
+
 **Palace's Doucoure plays first match after 14-month layoff with knee injury**\
 `The 26-year-old tore his meniscus in January 2025, having played just 13 times since recovering from a ruptured achilles in November 2023.`\
 https://nytimes.com/athletic/7093244/2026/03/06/doucoure-crystal-palace-injury-news/
