@@ -1,3 +1,11 @@
+**A New England Patriots plane brought Americans back from the Middle East.**\
+`By Victor Mather and Michael Crowley`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/a-new-england-patriots-plane-brought-americans-back-from-the-middle-east
+
+**Trump Demands ‘Unconditional Surrender’ by Iran**\
+`President Trump’s comments on Friday reflected yet another shift in the goals of U.S. military actions.`\
+https://nytimes.com/2026/03/06/us/politics/trump-unconditional-surrender-iran.html
+
 **WNBA star Arike Ogunbowale arrested after Unrivaled title victory**\
 `Ogunbowale was arrested after punching a man, who fell to the ground, outside of a Miami nightclub.`\
 https://nytimes.com/athletic/7094222/2026/03/06/wnba-arike-ogunbowale-arrested-unrivaled/
