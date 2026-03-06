@@ -1,3 +1,7 @@
+**Future N.B.A. Stars in March Madness**\
+`Men’s college basketball is experiencing an offensive surge, with scoring and tempo reaching all-time highs. “The Athletic Show” breaks down the top powerhouse programs to watch and highlights the potential future N.B.A. stars currently hitting the court.`\
+https://nytimes.com/video/the-athletic/100000010756994/future-nba-stars-in-march-madness.html
+
 **Lawmaker Asks Court to Block Trump From Closing Kennedy Center**\
 `The president has said he plans to shut down the center for two years starting this summer for a “complete rebuilding.”`\
 https://nytimes.com/2026/03/06/us/politics/trump-kennedy-center-lawsuit.html
