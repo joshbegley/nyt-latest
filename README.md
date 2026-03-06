@@ -1,3 +1,7 @@
+**Daily Barrage of Iranian Drone Attacks Increases Pressure on Gulf States**\
+`Missile launches from Iran have slowed, but relentless drone volleys could deplete air defenses in the region.`\
+https://nytimes.com/2026/03/06/world/middleeast/persian-gulf-states-air-defense-iran.html
+
 **Axel Springer Agrees to Buy U.K.’s Telegraph**\
 `The $766 million takeover is the latest twist for The Telegraph, an influential British newspaper whose ownership had been in limbo for years.`\
 https://nytimes.com/2026/03/06/business/dealbook/axel-springer-telegraph.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093018/2026/03/06/ohtani-grand-slam-ball-fan-wbc/
 **Rangers trade tracker: Trocheck held out of lineup, Carrick dealt to Sabres**\
 `Friday's 3 p.m. ET trade deadline is closing in, with the Rangers one of the expected sellers many around the league are monitoring.`\
 https://nytimes.com/athletic/7087806/2026/03/06/rangers-trade-rumors-adam-fox-vincent-trocheck/
-
-**Palace's Doucoure plays first match after 14-month layoff with knee injury**\
-`The 26-year-old tore his meniscus in January 2025, having played just 13 times since recovering from a ruptured achilles in November 2023.`\
-https://nytimes.com/athletic/7093244/2026/03/06/doucoure-crystal-palace-injury-news/
 
