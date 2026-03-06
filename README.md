@@ -1,3 +1,27 @@
+**NHL Power Rankings: A new (old) No. 1, plus each team's perfect trade deadline**\
+`Hope is high for teams on both sides of the buyer/seller line. Let's look into each team’s best-case-scenario deadline.`\
+https://nytimes.com/athletic/7092385/2026/03/06/nhl-power-rankings-trade-deadline-5/
+
+**Kiké Hernández finds creative ways to support Puerto Rico in WBC, despite injury**\
+`Hernández continues to work his way back from elbow surgery, but he dyed his hair blond in solidarity with Team Puerto Rico.`\
+https://nytimes.com/athletic/7088541/2026/03/06/dodgers-kike-hernandez-wbc-puerto-rico/
+
+**Gary Payton II, raised by the Sonics, dreams of playing in Seattle**\
+`Gary Payton II was raised around the Seattle SuperSonics and if the NBA brings them back, he wants to go play there. `\
+https://nytimes.com/athletic/7081942/2026/03/06/gary-payton-sonics-seattle-nba-expansion/
+
+**Patrick Agyemang: From DIII to the World Cup**\
+`The USMNT forward continues to make progress and dreams of a big summer ahead`\
+https://nytimes.com/athletic/7091698/2026/03/06/patrick-agyemang-bet-on-himself-and-is-playing-his-way-from-diii-toward-a-world-cup/
+
+**Chargers' best free-agent fits include Tyler Linderbaum, Charlie Kolar, Kenneth Gainwell**\
+`The Chargers have the cap space to be among the league's most active teams. Who should they spend their money on? `\
+https://nytimes.com/athletic/7090290/2026/03/06/chargers-free-agent-fits-linderbaum-gainwell/
+
+**Why the Conor Garland trade represents the moment Canucks' rebuild got serious**\
+`Have the Canucks indeed, at last, committed to some form of multiyear rebuilding effort?`\
+https://nytimes.com/athletic/7092726/2026/03/06/canucks-nhl-trade-deadline-conor-garland/
+
 **Trump Administration Live Updates: Senator Seeks Perjury Investigation Into Noem**\
 ``\
 https://nytimes.com/live/2026/03/06/us/trump-news-updates
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7093007/2026/03/06/f1-driver-clashes-guidelines/
 **Trump’s Strait of Hormuz Problem**\
 `The president campaigned on lowering prices for Americans. That pledge has come under fire this week as the Iran war pushes up the cost of gasoline.`\
 https://nytimes.com/2026/03/06/business/dealbook/trump-strait-hormuz-iran-gasoline.html
-
-**Are Tottenham set for all-time shock relegation? Plus: Messi, Inter Miami meet Trump**\
-`Today in TAFC: Are Spurs set for a shock relegation after Palace defeat? Plus: Inter Miami and a pink ball at the White House...`\
-https://nytimes.com/athletic/7092935/2026/03/06/tottenham-relegation-messi-inter-miami-trump/
-
-**Twins hope veteran relievers pave way for young arms moving to bullpen**\
-`The Twins believe the four veteran relievers acquired late in the offseason can be a positive influence on their young arms.`\
-https://nytimes.com/athletic/7090552/2026/03/06/twins-veteran-relievers-mentor-bullpen/
-
-**The Italian job: Longtime Giants coaches Ron Wotus, Dave Righetti together again in WBC**\
-`Righetti and Wotus used to share a dugout in San Francisco. Now they'll try to help Team Italy advance in the World Baseball Classic.`\
-https://nytimes.com/athletic/7091779/2026/03/06/world-baseball-classic-sf-giants-ron-wotus-dave-righetti/
-
-**They Can’t Stay at Harry’s House, So They’ll Stay With Fellow Fans**\
-`Ahead of Harry Styles’s Madison Square Garden residency, fans are preparing to sublet their couches and spare rooms to concertgoers.`\
-https://nytimes.com/2026/03/06/realestate/harry-styles-residency-nyc-fan-sublets.html
-
-**‘The Headlines’ News Quiz: Mar. 6, 2026**\
-`Following the news? Tracy Mumford has some questions for you.`\
-https://nytimes.com/2026/03/06/podcasts/the-headlines/the-headlines-news-quiz-mar-6-2026.html
-
-**Air travel remains disrupted across the Middle East.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/air-travel-is-still-disrupted-across-the-middle-east
 
