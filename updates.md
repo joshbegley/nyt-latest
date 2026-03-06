@@ -1,3 +1,19 @@
+**Two Make-or-Break Days in the Life of a Fashion Designer**\
+`In the lead-up to Courrèges fall fashion show, Nicolas Di Felice held fittings, oversaw rehearsals and gave notes on a floor meant to look like a city street.`\
+https://nytimes.com/2026/03/06/t-magazine/courreges-nicolas-di-felice-show.html
+
+**Red Wings trade deadline report card: Grading Steve Yzerman's moves**\
+`The Red Wings saved their deadline with a last-minute deal to address their biggest need.`\
+https://nytimes.com/athletic/7082694/2026/03/06/red-wings-2026-nhl-trade-deadline-grades/
+
+**Nazem Kadri returning to Avalanche after trade from Flames: Sources**\
+`Kadri, 35, whose contract goes through 2029 with a $7,000,000 cap hit, has led the Flames in scoring each of the past two seasons.`\
+https://nytimes.com/athletic/7010451/2026/03/06/flames-nazem-kadri-trade-avalanche/
+
+**Both Top Choices to Lead N.Y. Child Services Agency Are Off the List**\
+`The Mamdani administration had signaled it was open to making significant changes at the agency, and it was unclear on Friday what direction it will now take.`\
+https://nytimes.com/2026/03/06/nyregion/acs-abolitionist-commissioner.html
+
 **Sabres trade deadline report card: Grading GM Jarmo Kekäläinen's moves**\
 `Kekäläinen made some solid depth additions that will boost Buffalo’s team toughness, which will be necessary in the playoffs.`\
 https://nytimes.com/athletic/7080890/2026/03/06/sabres-2026-nhl-trade-deadline-grades/
