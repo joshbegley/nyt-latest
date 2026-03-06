@@ -1,3 +1,7 @@
+**Future N.B.A. Stars in March Madness**\
+`Men’s college basketball is experiencing an offensive surge, with scoring and tempo reaching all-time highs. “The Athletic Show” breaks down the top powerhouse programs to watch and highlights the potential future N.B.A. stars currently hitting the court.`\
+https://nytimes.com/video/the-athletic/100000010756994/future-nba-stars-in-march-madness.html
+
 **Lawmaker Asks Court to Block Trump From Closing Kennedy Center**\
 `The president has said he plans to shut down the center for two years starting this summer for a “complete rebuilding.”`\
 https://nytimes.com/2026/03/06/us/politics/trump-kennedy-center-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/arts/design/charlotte-perriand-dead.html
 **From 2011: Wangari Maathai, Nobel Peace Prize Laureate, Dies at 71**\
 `A Kenyan environmentalist, she began by paying women a few shillings to plant trees and went on to become the first African woman to win a Nobel Peace Prize.`\
 https://nytimes.com/2026/03/06/world/africa/wangari-maathai-dead.html
-
-**Christine Keeler, Central Figure in British ‘Scandal of the Century,’ Is Dead at 75**\
-`News of her affair with the government minister John Profumo and other revelations set England abuzz in the early 1960s.`\
-https://nytimes.com/2026/03/06/world/europe/christine-keeler-dead.html
 
