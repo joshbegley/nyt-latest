@@ -1,3 +1,11 @@
+**Senate Democrat Pushes to Investigate Noem for Perjury**\
+`Senator Richard Blumenthal of Connecticut said Democrats had evidence to suggest Kristi Noem lied under oath during a Senate hearing on Tuesday.`\
+https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal.html
+
+**Rangers sit Vincent Trocheck, Sam Carrick for roster management**\
+`Trocheck and Carrick are two of the remaining centers on the trade market ahead of the league's 3 p.m. ET deadline on Friday.`\
+https://nytimes.com/athletic/7091672/2026/03/05/rangers-vincent-trocheck-sam-carrick-trade-leafs/
+
 **Rebuild or reload, the Leafs need as many (good) assets as they can get**\
 `The Leafs are off to a good start with a first-round pick and a conditional fifth for Nicolas Roy. Now they need to keep the momentum going.`\
 https://nytimes.com/athletic/7090971/2026/03/05/maple-leafs-nhl-trade-deadline-picks-assets-roy/
