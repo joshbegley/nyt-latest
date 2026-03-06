@@ -1,3 +1,15 @@
+**A Philharmonic Conductor’s Concerts Surprise, for Better and Worse**\
+`Mirga Grazinyte-Tyla returned to the New York Philharmonic for a pair of programs, but only one formed a cohesive arc of ideas.`\
+https://nytimes.com/2026/03/06/arts/music/ny-phil-mirga-grazinyte-tyla.html
+
+**Winter Survival Tips From the Cast of ‘Sentimental Value’**\
+`The Scandinavian co-stars of Joachim Trier’s 2025 film “Sentimental Value” — Stefan Skarsgard, Renate Reinsve and Inga Ibsdotter Lilleaas — discuss their favorite winter rituals.`\
+https://nytimes.com/video/t-magazine/100000010739305/winter-survival-tips-from-the-cast-of-sentimental-value.html
+
+**Flashback: Your Weekly History Quiz, March 7, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/03/06/upshot/flashback.html
+
 **Trump’s Removal of Kristi Noem**\
 `Readers respond to the dismissal of Kristi Noem as the homeland security secretary. Also: Two ways of parking; Meta’s facial recognition.`\
 https://nytimes.com/2026/03/06/opinion/trump-kristi-noem-dhs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/06/arts/music/britney-spears-arrest-conservatorship.
 **Kings trade Corey Perry to Lightning for second-round pick**\
 `The 40-year-old has been on the losing side of five of the last six Stanley Cup Finals.`\
 https://nytimes.com/athletic/7094128/2026/03/06/kings-corey-perry-trade-lightning/
-
-**Brian Kelly talks LSU firing, if he will return to coaching**\
-`In a radio interview, Brian Kelly detailed his reaction to being fired and what would entice him to return to coaching.`\
-https://nytimes.com/athletic/7094083/2026/03/06/brian-kelly-lsu-football-fired-return/
-
-**Prime Tire: 500 races for the F1 driver you never see**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7094145/2026/03/06/australian-gp-2026-prime-tire/
-
-**The Vase I Couldn’t Forget**\
-`We help a reader find a prop seen in Durga Chew-Bose’s debut film “Bonjour Tristesse.”`\
-https://nytimes.com/2026/03/06/t-magazine/bonjour-tristesse-vase.html
 
