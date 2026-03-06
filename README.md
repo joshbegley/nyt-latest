@@ -1,3 +1,11 @@
+**Israel issues an evacuation warning in the Qom region, near an Iranian nuclear site.**\
+`By Euan Ward`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/israel-issues-an-evacuation-warning-in-the-qom-region-near-an-iranian-nuclear-site
+
+**The Bounce: What should we expect from Jayson Tatum in his return from injury?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7093484/2026/03/06/jayson-tatum-celtics-return-achilles-the-bounce/
+
 **Strikes Batter Iran’s Storied Azadi Stadium Complex**\
 `Several sports centers have been hit in Tehran since the U.S. and Israel began their attacks, the authorities say, but none with the resonance of the Azadi.`\
 https://nytimes.com/2026/03/06/world/middleeast/iran-strikes-azadi-stadium.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7093395/2026/03/06/iran-winter-paralympics-us-israe
 **Ticket prices, ICE and visas: Two U.S. politicians weigh in on the World Cup's big issues**\
 `The 2026 World Cup has its fair share of hot-button issues in the U.S., and things are only intensifying as the tournament nears`\
 https://nytimes.com/athletic/7086926/2026/03/06/world-cup-usa-politics-issues-pou-lahood/
-
-**Iran’s Chokehold on Persian Gulf Waterway Strains Shipping**\
-`The threat of prolonged attacks on oil tankers and other vessels is giving Iran an advantage, analysts say.`\
-https://nytimes.com/2026/03/06/business/iran-persian-gulf-hormuz-shipping.html
-
-**Chargers find their new center, agree to terms with Tyler Biadasz: Source**\
-`Biadasz replaces and will serve as an upgrade for Bradley Bozeman, who retired this offseason.`\
-https://nytimes.com/athletic/7093303/2026/03/06/tyler-biadasz-chargers-nfl-free-agency-2026/
 
