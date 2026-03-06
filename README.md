@@ -1,3 +1,11 @@
+**An Artist of Caped Crusaders Emerges From the Shadows**\
+`Klaus Janson, known for his work on Daredevil and Batman, said he hoped his new solo show could give people “a growing appreciation of what comics can do.”`\
+https://nytimes.com/2026/03/06/arts/design/daredevil-batman-artist-klaus-janson-labaune-gallery.html
+
+**Tom Junod Would Like to Tell You About His Father**\
+`A star writer from the heyday of magazines reveals the family secret behind his award-winning stories.`\
+https://nytimes.com/2026/03/06/style/tom-junod-would-like-to-tell-you-about-his-father.html
+
 **Wild acquire winger Bobby Brink, send prospect David Jiricek to Flyers**\
 `The Wild see Brink, 24, as a third-line right wing who can move up the lineup if needed. He's a pending restricted free agent.`\
 https://nytimes.com/athletic/7093611/2026/03/06/wild-flyers-trade-bobby-brink-david-jiricek/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7093390/2026/03/06/brazil-football-ban-sexist-abuse
 **Browns to restructure quarterback Deshaun Watson's contract: Source**\
 `The move will save more than $35 million in cap space and ensure Watson remains on the roster for 2026. `\
 https://nytimes.com/athletic/7067916/2026/03/06/deshaun-watson-browns-contract-restructure/
-
-**Ronaldo travels from Saudi to Spain for hamstring treatment, Jesus says**\
-`Al Nassr head coach Jesus said Ronaldo's injury was in Madrid for treatment on the injury and would miss his side's next two matches.`\
-https://nytimes.com/athletic/7093399/2026/03/06/cristiano-ronaldo-saudi-spain-injury/
-
-**Stocks Drop as Weak Jobs Report Adds to Uncertain Outlook**\
-`Stock movements this week has been choppy as investors weighed the inflationary impact of the war in the Middle East. The jobs report has complicated matters.`\
-https://nytimes.com/2026/03/06/business/stocks-jobs-report.html
 

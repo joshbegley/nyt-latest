@@ -1,3 +1,7 @@
+**Wild acquire winger Bobby Brink, send prospect David Jiricek to Flyers**\
+`The Wild see Brink, 24, as a third-line right wing who can move up the lineup if needed. He's a pending restricted free agent.`\
+https://nytimes.com/athletic/7093611/2026/03/06/wild-flyers-trade-bobby-brink-david-jiricek/
+
 **Jesse Lingard joins Brazilian club Corinthians**\
 `The 33-year-old has signed a contract until the end of 2026, with the option of a further year if certain thresholds are met.`\
 https://nytimes.com/athletic/7093432/2026/03/06/jesse-lingard-transfer-corinthians-brazil/
