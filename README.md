@@ -1,3 +1,11 @@
+**High schooler scores 4 baskets in 17 seconds to lift team to state title game**\
+`Ava Smid stole her team a win with an instantly viral scoring blitz at the Iowa girls basketball state tournament.`\
+https://nytimes.com/athletic/7094405/2026/03/06/iowa-high-school-girls-basketball-comeback/
+
+**Russia Is Sharing Intelligence With Iran, U.S. Officials Say**\
+`The information has included satellite imagery showing the locations of military personnel. But some officials played down the significance of the partnership.`\
+https://nytimes.com/2026/03/06/us/politics/russia-iran-partnernship.html
+
 **Why nothing big? Because the Bruins' time is yet to come**\
 `GM Don Sweeney stood pat at the deadline, resisting the temptation to buy at high prices or sell and hurt the team's playoff chances.`\
 https://nytimes.com/athletic/7095153/2026/03/06/bruins-trade-deadline-don-sweeney/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7083307/2026/03/06/maple-leafs-2026-nhl-trade-deadl
 **Penguins trade deadline report card: Grading Kyle Dubas' moves**\
 `There were no blockbusters, but the Penguins did get better before the NHL trade deadline.`\
 https://nytimes.com/athletic/7083285/2026/03/06/penguins-2026-nhl-trade-deadline-grades/
-
-**Divisive F.D.A. Vaccine Regulator Resigns**\
-`Dr. Vinay Prasad drew criticism for decisions that overrode agency scientists and rejected potential drugs.`\
-https://nytimes.com/2026/03/06/health/fda-prasad-resigns.html
-
-**Saliba an injury doubt for Arsenal's trip to Mansfield**\
-`The defender missed the midweek win at Brighton with what manager Mikel Arteta said was a turned ankle.`\
-https://nytimes.com/athletic/7090456/2026/03/06/william-saliba-injury-arsenal-mansfield/
 
