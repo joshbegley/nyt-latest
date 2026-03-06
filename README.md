@@ -1,3 +1,11 @@
+**How We Analyzed the Strike on the Iranian School**\
+`Malachy Browne of our Visual Investigations team describes what satellite imagery and other evidence tell us about who might be responsible for an airstrike on an elementary school in southern Iran. The strike killed at least 175 people, according to health officials and Iranian state media.`\
+https://nytimes.com/video/world/middleeast/100000010750321/how-we-analyzed-the-strike-on-the-iranian-school.html
+
+**Alan Trustman, 95, Dies; Wrote ‘Bullitt’ and ‘Thomas Crown Affair’**\
+`In a wide-ranging career, he was a Boston lawyer, a Hollywood screenwriter and a Swiss currency trader.`\
+https://nytimes.com/2026/03/06/movies/alan-trustman-dead.html
+
 **In first spring start, Justin Verlander comes full circle with Detroit**\
 `It’s the story of a three-time Cy Young Award winner steering his journey back to the place where it all began, at age 43. `\
 https://nytimes.com/athletic/7095215/2026/03/06/detroit-tigers-justin-verlander-first-spring-training-start/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/06/arts/music/boston-symphony-andris-nelsons.html
 **Will Talarico’s Long Online Paper Trail Haunt Him?**\
 `For some Democrats, generational change comes with a cringey social media past.`\
 https://nytimes.com/2026/03/06/us/politics/talarico-social-media-democrats-jobs-report.html
-
-**Canucks trade deadline report card: Grading GM Patrik Allvin's moves**\
-`The work overall is defensible, but it wasn't a home run deadline for an embattled Canucks management group.`\
-https://nytimes.com/athletic/7083338/2026/03/06/canucks-2026-nhl-trade-deadline-grades/
 
