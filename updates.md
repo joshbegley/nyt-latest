@@ -1,3 +1,11 @@
+**Protection for Section 8 Renters Is Struck Down by N.Y. Appeals Court**\
+`A panel of appeals judges ruled that a state law banning housing discrimination against renters who use federal vouchers was unconstitutional.`\
+https://nytimes.com/2026/03/05/nyregion/section-8-vouchers-ruling-new-york.html
+
+**President Fires Noem as Homeland Security Secretary**\
+`President Trump fired Kristi Noem, his embattled homeland security secretary, on Thursday and announced his plans to replace her with Senator Markwayne Mullin of Oklahoma.`\
+https://nytimes.com/video/us/politics/100000010756485/trump-noem-mullin-dhs.html
+
 **Senate Democrat Pushes to Investigate Noem for Perjury**\
 `Senator Richard Blumenthal of Connecticut said Democrats had evidence to suggest Kristi Noem lied under oath during a Senate hearing on Tuesday.`\
 https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal.html
