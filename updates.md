@@ -1,3 +1,11 @@
+**This is what happened on March 5.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-5
+
+**Red Sox camp standouts: Four under-the-radar players who could make an impact in 2026**\
+`A tall journeyman and a familiar face could help Boston on the pitching side, while a newly acquired outfielder can provide speed.`\
+https://nytimes.com/athletic/7089940/2026/03/06/red-sox-spring-training-standout-players/
+
 **The Jobs Report**\
 `We explain why you should consider the numbers.`\
 https://nytimes.com/2026/03/06/briefing/the-jobs-report.html
