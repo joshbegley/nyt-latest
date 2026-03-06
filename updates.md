@@ -1,3 +1,11 @@
+**At Paralympics, U.S. curlers Steve Emt and Laura Dwyer are right where they belong**\
+`The road to Milan Cortina wasn't easy, but through teamwork and growing confidence, Emt and Dwyer give the U.S. a real medal shot.`\
+https://nytimes.com/athletic/7092005/2026/03/06/paralympics-curling-steve-emt-laura-dwyer-usa/
+
+**Iranians flee to Turkey. ‘I am in constant fear,’ says one.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/iranians-flee-to-turkey-i-am-in-constant-fear-says-one
+
 **How to watch Mavericks vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093954/2026/03/06/mavericks-vs-celtics-stream-how-to-watch-march-6/

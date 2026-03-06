@@ -1,3 +1,7 @@
+**Blackhawks trade Nick Foligno to Wild**\
+`Foligno, 38, is in the final year of his contract with a $4.5 million cap hit.`\
+https://nytimes.com/athletic/7093721/2026/03/06/blackhawks-wild-nick-foligno-trade-nhl/
+
 **At Paralympics, U.S. curlers Steve Emt and Laura Dwyer are right where they belong**\
 `The road to Milan Cortina wasn't easy, but through teamwork and growing confidence, Emt and Dwyer give the U.S. a real medal shot.`\
 https://nytimes.com/athletic/7092005/2026/03/06/paralympics-curling-steve-emt-laura-dwyer-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093581/2026/03/06/ohtani-grand-slam-wbc-the-windup
 **Leeds ask fans to respect players breaking Ramadan fast at Elland Road**\
 `Boos were heard around the stadium on Saturday in Leeds' game with Manchester City as players broke their fast at sunset.`\
 https://nytimes.com/athletic/7093760/2026/03/06/leeds-ramadan-boos-burnley-elland-road/
-
-**How to watch Valparaiso vs. Bradley men's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Valparaiso Beacons play the Bradley Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7093913/2026/03/06/valparaiso-vs-bradley-stream-how-to-watch-march-6/
 
