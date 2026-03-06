@@ -1,3 +1,11 @@
+**Women's NCAA Tournament Bracket Watch: UConn, UCLA No. 1 seed locks. Then who?**\
+`Did Michigan State play itself out of hosting contention?`\
+https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-watch-uconn-ucla/
+
+**The Pulse: Buzzer-beaters are back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7090625/2026/03/06/lehigh-buzzer-beater-nfl-nhl-trades-the-pulse/
+
 **'It’s time for change': Behind the NASCAR breakthrough of Michael Jordan and 23XI Racing**\
 `An unprecedented three wins in three races to start the season has Jordan's NASCAR team at the top and ahead of schedule.`\
 https://nytimes.com/athletic/7090980/2026/03/06/michael-jordan-23xi-racing-nascar-denny-hamlin/
