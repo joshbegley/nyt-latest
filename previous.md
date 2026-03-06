@@ -1,12 +1,24 @@
+**Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
+`The incident occurred with less than a minute left in the first period, and Buffalo scored on the ensuing five-minute major.`\
+https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
+
+**Rams re-sign TE Tyler Higbee to 2-year deal: Source**\
+`Higbee, a 2016 fourth-round pick, has spent his entire 10-year career with the Rams. `\
+https://nytimes.com/athletic/7092136/2026/03/05/rams-tyler-higbee-nfl-free-agency-2026/
+
+**Justice Dept. Releases Missing Interviews With Woman Who Made Claims Against Trump**\
+`The pages had been withheld from the trove of documents related to the convicted sex offender Jeffrey Epstein because of what officials called a mistaken determination that they were duplicates.`\
+https://nytimes.com/2026/03/05/us/politics/trump-epstein-interviews-woman-justice-department.html
+
 **Dodgers Roster Projection 2.0: Finding the battles in a settled camp**\
 `Like just about everything in Dodgers camp, there is little suspense. Much of the roster is already settled.`\
 https://nytimes.com/athletic/7091674/2026/03/05/dodgers-roster-projection-2-0-spring-training-2026/
 
 **Bulletproof Vests and Rolex Watches: The Rise and Fall of Kristi Noem**\
 `The homeland security secretary, who was fired by President Trump Thursday, helped fulfill his border pledges, but also drew negative attention to his administration.`\
-https://nytimes.com/2026/03/05/us/politics/key-moments-kristi-noem-dhs.html
+https://nytimes.com/2026/03/05/us/politics/kristi-noem-dhs-timeline.html
 
-**Kristi Noem’s Story Was Destined to End This Way**\
+**What Kristi Noem Should Do After President Trump Fired Her**\
 `It’s hard out there for a MAGA woman.`\
 https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010751075/what-are-we-fighting-for.html
 **Canadiens have a clear 'want' as deadline looms; whether it is a 'need' remains to be seen**\
 `The Canadiens have a lack of jam and management has a decision to make whether to pay now to get it or wait for the offseason.`\
 https://nytimes.com/athletic/7091725/2026/03/05/canadiens-nhl-trade-deadline-needs/
-
-**Kristaps Porziņģis misses sixth straight game but inching closer to return**\
-`The Warriors' center is still recovering from an illness and has only played once since Golden State acquired him at the trade deadline.`\
-https://nytimes.com/athletic/7091869/2026/03/05/kristaps-porzingis-warriors-update-illness/
-
-**War in the Gulf Could Turn India Back Onto Russian Oil**\
-`India’s trade deal with President Trump was supposed to end its imports of oil from Russia. But the war in Iran has cut off alternative supplies from the Middle East.`\
-https://nytimes.com/2026/03/05/business/india-russian-oil.html
-
-**Minnesota Officials Welcome Firing of Homeland Security Secretary**\
-`Mayor Jacob Frey of Minneapolis said “Good riddance” after Ms. Noem’s ouster. Gov. Tim Walz and others said they still wanted a “complete overhaul” of the department.`\
-https://nytimes.com/2026/03/05/us/politics/minnesota-kristi-noem-walz.html
 
