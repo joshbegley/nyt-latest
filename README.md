@@ -1,3 +1,7 @@
+**U.S. and Venezuela Agree to Restore Relations**\
+`The State Department announced on Thursday that it was re-establishing diplomatic relations with Venezuela. It came as a U.S. delegation negotiated for access to Venezuela’s mining industry.`\
+https://nytimes.com/video/world/americas/100000010757865/us-venezuela-diplomatic-relations.html
+
 **Why is everyone so upset about Arsenal's game management?**\
 `Brighton boss Fabian Hurzeler was infuriated on Wednesday, but are Mikel Arteta's side really outliers when it comes to slowing games down?`\
 https://nytimes.com/athletic/7090423/2026/03/06/arsenal-arteta-time-wasting-brighton-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092598/2026/03/06/jets-sabres-trade-stanley-schenn
 **Here’s the latest.**\
 `By Euan Ward, Erika Solomon, Dayana Iwaza and Ephrat Livni`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/heres-the-latest
-
-**Live Updates: Tehran, Beirut and Tel Aviv Are Targeted in Attacks and Counterattacks**\
-`The Israeli military said it was striking Iran’s capital while pounding Hezbollah targets in Lebanon, as fighting there intensified. Iran said it was targeting Tel Aviv, the country’s state news agency reported.`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon
 

@@ -1,3 +1,7 @@
+**Why is everyone so upset about Arsenal's game management?**\
+`Brighton boss Fabian Hurzeler was infuriated on Wednesday, but are Mikel Arteta's side really outliers when it comes to slowing games down?`\
+https://nytimes.com/athletic/7090423/2026/03/06/arsenal-arteta-time-wasting-brighton-premier-league/
+
 **Dyche 'doesn't understand' Forest sacking, blames 'keyboard warriors'**\
 `Speaking for the first time since his sacking, Dyche also conceded that player unrest had played a part in his dismissal.`\
 https://nytimes.com/athletic/7091591/2026/03/06/sean-dyche-nottingham-forest-sacked/
@@ -16,7 +20,7 @@ https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-austra
 
 **Crystal Palace have some momentum again**\
 `Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
-https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resiliance-premier-league-glasner/
+https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resilience-premier-league-glasner/
 
 **Capitals trade defenseman John Carlson to Ducks for 2 draft picks**\
 `Carlson has spent his entire 17-year NHL career with the Capitals, winning the Stanley Cup with them in 2018.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/heres-th
 **Live Updates: Tehran, Beirut and Tel Aviv Are Targeted in Attacks and Counterattacks**\
 `The Israeli military said it was striking Iran’s capital while pounding Hezbollah targets in Lebanon, as fighting there intensified. Iran said it was targeting Tel Aviv, the country’s state news agency reported.`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon
-
-**The New York Times in Print for Friday, March 6, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/06/todays-new-york-times
 

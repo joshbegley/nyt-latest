@@ -1,3 +1,11 @@
+**Why is everyone so upset about Arsenal's game management?**\
+`Brighton boss Fabian Hurzeler was infuriated on Wednesday, but are Mikel Arteta's side really outliers when it comes to slowing games down?`\
+https://nytimes.com/athletic/7090423/2026/03/06/arsenal-arteta-time-wasting-brighton-premier-league/
+
+**Crystal Palace have some momentum again**\
+`Victory at Spurs provided a glimpse of the sense of freedom and togetherness seen last season`\
+https://nytimes.com/athletic/7086585/2026/03/06/crystal-palace-momentum-resilience-premier-league-glasner/
+
 **Dyche 'doesn't understand' Forest sacking, blames 'keyboard warriors'**\
 `Speaking for the first time since his sacking, Dyche also conceded that player unrest had played a part in his dismissal.`\
 https://nytimes.com/athletic/7091591/2026/03/06/sean-dyche-nottingham-forest-sacked/
