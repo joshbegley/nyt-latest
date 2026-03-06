@@ -1,3 +1,15 @@
+**NHL trade grades: Maple Leafs-Kraken deal for Bobby McMann is underwhelming all around**\
+`The Maple Leafs got an acceptable return from the Kraken but not much more.`\
+https://nytimes.com/athletic/7094502/2026/03/06/nhl-trade-grades-kraken-maple-leafs-bobby-mcmann/
+
+**Senators trade deadline report card: Grading Steve Staios' moves**\
+`The addition of Warren Foegele is the highlight of the Senators' moves at the deadline, but Ottawa could have added another defensive piece.`\
+https://nytimes.com/athletic/7083266/2026/03/06/senators-2026-nhl-trade-deadline-grades/
+
+**NHL trade grades: Red Wings bring in Justin Faulk to fill a crucial role**\
+`The best trades are the ones where both teams win, and the Justin Faulk deal is a perfect example of that.`\
+https://nytimes.com/athletic/7094651/2026/03/06/nhl-trade-grades-justin-faulk-red-wings-blues/
+
 **Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
 `After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
 https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7094854/2026/03/06/northern-iowa-vs-illinois-state-
 **How to watch Pelicans vs. Suns: Time, TV, streaming**\
 `Find out how to watch the New Orleans Pelicans play the Phoenix Suns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7094848/2026/03/06/pelicans-vs-suns-stream-how-to-watch-march-6/
-
-**How to watch UT Martin vs. Tennessee State men's basketball: OVC Tournament Time, TV, streaming**\
-`Find out how to watch the UT Martin Skyhawks play the Tennessee State Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7094843/2026/03/06/ut-martin-vs-tennessee-state-stream-how-to-watch-march-6/
-
-**Israel says it struck an underground bunker at Khamenei’s compound.**\
-`By Daniel Wood, Sanjana Varghese, Ronen Bergman and Euan Ward`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/khamenei-compound-strike
-
-**Flyers trade deadline report card: Grading GM Daniel Briere's moves**\
-`The Flyers added two players but held on to defenseman Rasmus Ristolainen.`\
-https://nytimes.com/athletic/7083275/2026/03/06/flyers-2026-nhl-trade-deadline-grades/
 
