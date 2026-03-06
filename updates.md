@@ -1,3 +1,11 @@
+**Boston's World Cup games still in doubt after funding shortfall proposal rejected**\
+`Boston's host committee and Kraft Sports & Entertainment pledged funds to help fill a $7.8 million gap but were instantly rejected`\
+https://nytimes.com/athletic/7092343/2026/03/06/world-cup-boston-kraft-foxboro-funding/
+
+**Lebanon at ‘Tipping Point’ as It Seeks to Curb Hezbollah’s Influence**\
+`The country is waiting to see if the government seizes on this moment to disarm the Iranian-backed armed group and how the militants will respond.`\
+https://nytimes.com/2026/03/06/world/middleeast/lebanon-hezbollah-iran-disarm.html
+
 **‘War Machine’ Review: On the Fritz**\
 `The “Reacher” star Alan Ritchson can’t troubleshoot this alien invasion sci-fi flick.`\
 https://nytimes.com/2026/03/06/movies/war-machine-review.html

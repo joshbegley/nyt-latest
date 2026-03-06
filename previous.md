@@ -1,3 +1,11 @@
+**Boston's World Cup games still in doubt after funding shortfall proposal rejected**\
+`Boston's host committee and Kraft Sports & Entertainment pledged funds to help fill a $7.8 million gap but were instantly rejected`\
+https://nytimes.com/athletic/7092343/2026/03/06/world-cup-boston-kraft-foxboro-funding/
+
+**Lebanon at ‘Tipping Point’ as It Seeks to Curb Hezbollah’s Influence**\
+`The country is waiting to see if the government seizes on this moment to disarm the Iranian-backed armed group and how the militants will respond.`\
+https://nytimes.com/2026/03/06/world/middleeast/lebanon-hezbollah-iran-disarm.html
+
 **‘War Machine’ Review: On the Fritz**\
 `The “Reacher” star Alan Ritchson can’t troubleshoot this alien invasion sci-fi flick.`\
 https://nytimes.com/2026/03/06/movies/war-machine-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/crosswords/spelling-bee-forum.html
 **OT win over Rockets 'feels a little better than most,' Draymond Green says**\
 `The list of players the Warriors were missing includes Stephen Curry, Jimmy Butler, Kristaps Porziņģis and Gary Payton II.`\
 https://nytimes.com/athletic/7092623/2026/03/06/warriors-rockets-ot-short-handed-win/
-
-**U.S. and Venezuela Agree to Restore Relations**\
-`The State Department announced on Thursday that it was re-establishing diplomatic relations with Venezuela. It came as a U.S. delegation negotiated for access to Venezuela’s mining industry.`\
-https://nytimes.com/video/world/americas/100000010757865/us-venezuela-diplomatic-relations.html
-
-**Why is everyone so upset about Arsenal's game management?**\
-`Brighton boss Fabian Hurzeler was infuriated on Wednesday, but are Mikel Arteta's side really outliers when it comes to slowing games down?`\
-https://nytimes.com/athletic/7090423/2026/03/06/arsenal-arteta-time-wasting-brighton-premier-league/
 
