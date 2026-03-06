@@ -1,3 +1,19 @@
+**Israeli Strikes Intensify in Beirut as Thousands of Lebanese Flee**\
+`About 300,000 people in Lebanon have fled their homes since bombing from the Israeli military began, the Norwegian Refugee Council estimated. ​​The Israeli military said it was targeting infrastructure belonging to Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000010758544/beirut-lebanon-iran-war-israel.html
+
+**The Unlikely Pairing That Pushed Hip-Hop Forward**\
+`A Tribe Called Quest had the vision for “The Low End Theory.” The engineer Bob Power helped piece it together.`\
+https://nytimes.com/2026/03/06/arts/music/bob-power-tribe-called-quest.html
+
+**Blues trade deadline report card: Grading Doug Armstrong's moves**\
+`It could have been a lot worse for the Blues if GM Doug Armstrong hadn't gotten a couple moves across the line late.`\
+https://nytimes.com/athletic/7083296/2026/03/06/blues-2026-nhl-trade-deadline-grades/
+
+**Women's conference tournament takeaways: Four wins in four days continues South Alabama's run**\
+`Syracuse's road just got tougher without its injured guard.`\
+https://nytimes.com/athletic/7094662/2026/03/06/womens-conference-tournament-takeaways-four-wins-in-four-days-continues-south-alabama-run/
+
 **Women's conference tournament takeaways: Four wins in four days continues South Alabama's run**\
 `Syracuse's road just got tougher without injured guard.`\
 https://nytimes.com/athletic/7094662/2026/03/06/womens-conference-tournament-takeaways-four-wins-in-four-days-continues-south-alabama-run/

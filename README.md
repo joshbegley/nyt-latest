@@ -1,3 +1,7 @@
+**Bruins trade deadline report card: Grading GM Don Sweeney's moves**\
+`The Bruins' deadline acknowledged that as much as they’d like to make the playoffs this year, they are realistic about their chances.`\
+https://nytimes.com/athletic/7080851/2026/03/06/bruins-2026-nhl-trade-deadline-grades/
+
 **Israeli Strikes Intensify in Beirut as Thousands of Lebanese Flee**\
 `About 300,000 people in Lebanon have fled their homes since bombing from the Israeli military began, the Norwegian Refugee Council estimated. ​​The Israeli military said it was targeting infrastructure belonging to Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000010758544/beirut-lebanon-iran-war-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7010451/2026/03/06/flames-nazem-kadri-trade-avalanc
 **Both Top Choices to Lead N.Y. Child Services Agency Are Off the List**\
 `The Mamdani administration had signaled it was open to making significant changes at the agency, and it was unclear on Friday what direction it will now take.`\
 https://nytimes.com/2026/03/06/nyregion/acs-abolitionist-commissioner.html
-
-**Sabres trade deadline report card: Grading GM Jarmo Kekäläinen's moves**\
-`Kekäläinen made some solid depth additions that will boost Buffalo’s team toughness, which will be necessary in the playoffs.`\
-https://nytimes.com/athletic/7080890/2026/03/06/sabres-2026-nhl-trade-deadline-grades/
 
