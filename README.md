@@ -1,3 +1,7 @@
+**Lawmaker Asks Court to Block Trump From Closing Kennedy Center**\
+`The president has said he plans to shut down the center for two years starting this summer for a “complete rebuilding.”`\
+https://nytimes.com/2026/03/06/us/politics/trump-kennedy-center-lawsuit.html
+
 **From 2001: Aaliyah, 22, Singer Who First Hit the Charts at 14**\
 `She was seen as a hip-hop temptress when she was still a teenager, and her albums “Age Ain’t Nothing but a Number” and “One in a Million” sold millions of copies.`\
 https://nytimes.com/2026/03/06/arts/music/aaliyah-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/world/africa/wangari-maathai-dead.html
 **Christine Keeler, Central Figure in British ‘Scandal of the Century,’ Is Dead at 75**\
 `News of her affair with the government minister John Profumo and other revelations set England abuzz in the early 1960s.`\
 https://nytimes.com/2026/03/06/world/europe/christine-keeler-dead.html
-
-**From 2010: Victoria Manalo Draves, Olympic Champion Diver, Dies at 85**\
-`She overcame prejudice early in her career to become the first woman to win a gold medal in both the springboard and the platform, at the 1948 Olympic Games in London.`\
-https://nytimes.com/2026/03/06/sports/victoria-manalo-draves-dead.html
 
