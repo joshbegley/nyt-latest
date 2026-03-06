@@ -1,3 +1,7 @@
+**Inexcusable play by Malkin could spell major trouble for the Penguins**\
+`Evgeni Malkin is facing a likely suspension after slashing Rasmus Dahlin in the head and neck, and the Penguins will pay the price.`\
+https://nytimes.com/athletic/7092208/2026/03/05/penguins-evgeni-malkin-slash-dubas-trade-deadline-sabres/
+
 **Rangers trading Sam Carrick to Sabres: Source**\
 `Carrick has another year on his contract at $1 million average annual value.`\
 https://nytimes.com/athletic/7092368/2026/03/05/rangers-sam-carrick-trade-sabres/
