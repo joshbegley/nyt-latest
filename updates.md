@@ -1,3 +1,12 @@
+**Ticket prices, ICE and visas: Two U.S. politicians weigh in on the World Cup's big issues**\
+`The 2026 World Cup has its fair share of hot-button issues in the U.S., and things are only intensifying as the tournament nears`\
+https://nytimes.com/athletic/7086926/2026/03/06/world-cup-usa-politics-issues-pou-lahood/
+
+**Aussie catcher explains handshake snub of Czech rival before WBC game: ‘There’s no malice’**\
+`Robbie Perkins says his refusal to shake hands with Milan Prokop was just a matter of  competitive spirit and principle
+`\
+https://nytimes.com/athletic/7093421/2026/03/06/australia-wbc-handshake-robbie-perkins-snub/
+
 **Aussie catcher explains handshake snub of Czech rival before WBC game: ‘There’s no malice’**\
 `Robbie Perkins says his refusal to shake hands with Milan Prokop was just a matter of  competitive spirit and principle
 `\
