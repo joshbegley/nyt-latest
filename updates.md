@@ -1,5 +1,9 @@
 **Oscar Piastri is Australia’s top motorsport son – but greater recognition brings added pressure**\
 `Besting the efforts of Mark Webber and Daniel Ricciardo has become an expectation of Piastri by his passionate supporter base in Australia`\
+https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-australian-f1-gp-2026/
+
+**Oscar Piastri is Australia’s top motorsport son – but greater recognition brings added pressure**\
+`Besting the efforts of Mark Webber and Daniel Ricciardo has become an expectation of Piastri by his passionate supporter base in Australia`\
 https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-is-australias-top-motorsport-son-but-greater-recognition-brings-added-pressure/
 
 **Rams re-sign safety Kam Curl to 3-year deal: Source**\
