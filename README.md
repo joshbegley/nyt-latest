@@ -1,3 +1,7 @@
+**Not Just Oil: In Venezuela, U.S. Interior Secretary Pushes for Mining Access**\
+`Venezuela is home to large reserves of rare earths, gold and other valuable minerals that the Trump administration wants to exert more control over.`\
+https://nytimes.com/2026/03/05/nyregion/not-just-oil-in-venezuela-us-interior-secretary-pushes-for-mining-access.html
+
 **Superfood Fuels Mating Frenzy for a Critically Endangered Parrot**\
 `Kakapos, which are reclusive and flightless and can live as long as humans, are found only in New Zealand. They feed on the fruit of the rimu tree.`\
 https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/us/politics/noem-perjury-investigation-blumenthal
 **Rangers sit Vincent Trocheck, Sam Carrick for roster management**\
 `Trocheck and Carrick are two of the remaining centers on the trade market ahead of the league's 3 p.m. (ET) Friday deadline.`\
 https://nytimes.com/athletic/7091672/2026/03/05/rangers-vincent-trocheck-sam-carrick-trade-leafs/
-
-**Rebuild or reload, the Leafs need as many (good) assets as they can get**\
-`The Leafs are off to a good start with a first-round pick and a conditional fifth for Nicolas Roy. Now they need to keep the momentum going.`\
-https://nytimes.com/athletic/7090971/2026/03/05/maple-leafs-nhl-trade-deadline-picks-assets-roy/
 
