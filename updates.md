@@ -1,3 +1,11 @@
+**The Jobs Report**\
+`We explain why you should consider the numbers.`\
+https://nytimes.com/2026/03/06/briefing/the-jobs-report.html
+
+**Madrid sanctioned by UEFA after fan performed Nazi salute at Champions League tie**\
+`The incident took place before Madrid's 2-1 win over Benfica and the club opened disciplinary proceedings following the match.`\
+https://nytimes.com/athletic/7092991/2026/03/06/real-madrid-benfica-uefa-sanction/
+
 **Men's college basketball weekend guide: UNC-Duke, Michigan St. vs. Michigan, bubblers**\
 `Duke-UNC and MSU-Michigan are the clear headliners, but there's much more to check out during the final weekend of the regular season.`\
 https://nytimes.com/athletic/7090371/2026/03/06/unc-duke-michigan-ncaa-tournament-bubble-watch/

@@ -1,3 +1,11 @@
+**This is what happened on March 5.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-5
+
+**Red Sox camp standouts: Four under-the-radar players who could make an impact in 2026**\
+`A tall journeyman and a familiar face could help Boston on the pitching side, while a newly acquired outfielder can provide speed.`\
+https://nytimes.com/athletic/7089940/2026/03/06/red-sox-spring-training-standout-players/
+
 **The Jobs Report**\
 `We explain why you should consider the numbers.`\
 https://nytimes.com/2026/03/06/briefing/the-jobs-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7091366/2026/03/06/bears-dj-moore-trade-ryan-poles-
 **The Athletic’s Friday football quiz question #96**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/7089323/2026/03/06/the-athletics-friday-football-quiz-question-96/
-
-**Kara Lawson's Duke, Team USA balancing act is its own March Madness**\
-`Team USA's training camp and Duke's postseason obligations will overlap, forcing Lawson to make some tough decisions.`\
-https://nytimes.com/athletic/7091123/2026/03/06/kara-lawson-duke-team-usa/
-
-**Luka Dončić reaches brink of suspension after racking up 15th technical foul**\
-`Dončić's technical foul was part of a tough night for the Lakers with the officials during their 120-113 loss to the Nuggets.`\
-https://nytimes.com/athletic/7092782/2026/03/06/luka-doncic-lakers-technical-foul-suspension/
 
