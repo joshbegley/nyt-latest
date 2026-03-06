@@ -1,3 +1,7 @@
+**OT win over Rockets 'feels a little better than most,' Draymond Green says**\
+`The list of players the Warriors were missing includes Stephen Curry, Jimmy Butler, Kristaps Porziņģis and Gary Payton II.`\
+https://nytimes.com/athletic/7092623/2026/03/06/warriors-rockets-ot-short-handed-win/
+
 **U.S. and Venezuela Agree to Restore Relations**\
 `The State Department announced on Thursday that it was re-establishing diplomatic relations with Venezuela. It came as a U.S. delegation negotiated for access to Venezuela’s mining industry.`\
 https://nytimes.com/video/world/americas/100000010757865/us-venezuela-diplomatic-relations.html

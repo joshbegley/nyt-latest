@@ -1,3 +1,7 @@
+**OT win over Rockets 'feels a little better than most,' Draymond Green says**\
+`The list of players the Warriors were missing includes Stephen Curry, Jimmy Butler, Kristaps Porziņģis and Gary Payton II.`\
+https://nytimes.com/athletic/7092623/2026/03/06/warriors-rockets-ot-short-handed-win/
+
 **U.S. and Venezuela Agree to Restore Relations**\
 `The State Department announced on Thursday that it was re-establishing diplomatic relations with Venezuela. It came as a U.S. delegation negotiated for access to Venezuela’s mining industry.`\
 https://nytimes.com/video/world/americas/100000010757865/us-venezuela-diplomatic-relations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7036849/2026/03/06/capitals-john-carlson-trade/
 **Sabres acquire defensemen Logan Stanley, Luke Schenn in trade with Jets**\
 `Buffalo is sending Winnipeg Isak Rosen, Jacob Bryson, a second-round pick in 2027 and a fourth-round pick in 2026.`\
 https://nytimes.com/athletic/7092598/2026/03/06/jets-sabres-trade-stanley-schenn-rosen/
-
-**Here’s the latest.**\
-`By Euan Ward, Erika Solomon, Dayana Iwaza and Ephrat Livni`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/heres-the-latest
 
