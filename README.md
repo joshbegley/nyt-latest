@@ -1,3 +1,11 @@
+**Women's NCAA Tournament Bracket Watch: UConn, UCLA No. 1 seed locks. Then who?**\
+`Did Michigan State play itself out of hosting contention?`\
+https://nytimes.com/athletic/7092398/2026/03/06/women-ncaa-tournament-bracket-watch-uconn-ucla/
+
+**The Pulse: Buzzer-beaters are back**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7090625/2026/03/06/lehigh-buzzer-beater-nfl-nhl-trades-the-pulse/
+
 **'It’s time for change': Behind the NASCAR breakthrough of Michael Jordan and 23XI Racing**\
 `An unprecedented three wins in three races to start the season has Jordan's NASCAR team at the top and ahead of schedule.`\
 https://nytimes.com/athletic/7090980/2026/03/06/michael-jordan-23xi-racing-nascar-denny-hamlin/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/podcasts/the-daily/trump-fires-kristi-noem.html
 **Wordle Review No. 1,722**\
 `Scroll down for hints and conversation about the puzzle for Saturday, March 7, 2026.`\
 https://nytimes.com/2026/03/06/crosswords/wordle-review-1722.html
-
-**Cowboys mock draft: A good case to trade back while still beefing up defense**\
-`In this mock draft, the Cowboys trade back, but still hold two first-round picks and add a second-rounder, too.`\
-https://nytimes.com/athletic/7089167/2026/03/06/cowboys-mock-draft-trade-defense-impact-mansoor-delane/
-
-**Connections Companion No. 1,000**\
-`Scroll down for hints and conversation about the puzzle for Saturday, March 7, 2026.`\
-https://nytimes.com/2026/03/06/crosswords/connections-companion-1000.html
 
