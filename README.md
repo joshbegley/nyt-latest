@@ -1,3 +1,7 @@
+**Jesse Lingard joins Brazilian club Corinthians**\
+`The 33-year-old has signed a contract until the end of 2026, with the option of a further year if certain thresholds are met.`\
+https://nytimes.com/athletic/7093432/2026/03/06/jesse-lingard-transfer-corinthians-brazil/
+
 **Israel issues an evacuation warning in the Qom region, near an Iranian nuclear site.**\
 `By Euan Ward`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/israel-issues-an-evacuation-warning-in-the-qom-region-near-an-iranian-nuclear-site
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/business/stocks-jobs-report.html
 **Iran will not compete in Paralympics due to travel concerns amid U.S., Israel strikes**\
 `Iran's lone representative will not compete at the 2026 Games, the International Paralympic Committee announced Friday.`\
 https://nytimes.com/athletic/7093395/2026/03/06/iran-winter-paralympics-us-israel-attack-travel/
-
-**Ticket prices, ICE and visas: Two U.S. politicians weigh in on the World Cup's big issues**\
-`The 2026 World Cup has its fair share of hot-button issues in the U.S., and things are only intensifying as the tournament nears`\
-https://nytimes.com/athletic/7086926/2026/03/06/world-cup-usa-politics-issues-pou-lahood/
 
