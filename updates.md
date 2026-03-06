@@ -1,3 +1,7 @@
+**Real Madrid wage bill rose by €38m in first half of 2025-26 season**\
+`Interim financials filed by the club show that it paid out €277.5million (£240.4m; $321.9m) in salaries between July and December 2025.`\
+https://nytimes.com/athletic/7094144/2026/03/06/real-madrid-finances-wages-revenue/
+
 **Take a peek inside the Cortina d'Ampezzo Paralympic athletes' village**\
 `Take a tour of the Cortina athletes' village, which the area's Paralympians will call home over the next week-plus.`\
 https://nytimes.com/athletic/7089925/2026/03/06/winter-paralympics-athletes-village-cortina-inside-tour/

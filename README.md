@@ -1,3 +1,7 @@
+**WNBA star Arike Ogunbowale arrested after Unrivaled title victory**\
+`Ogunbowale was arrested after punching a man, who fell to the ground, outside of a Miami nightclub.`\
+https://nytimes.com/athletic/7094222/2026/03/06/wnba-arike-ogunbowale-arrested-unrivaled/
+
 **Real Madrid wage bill rose by €38m in first half of 2025-26 season**\
 `Interim financials filed by the club show that it paid out €277.5million (£240.4m; $321.9m) in salaries between July and December 2025.`\
 https://nytimes.com/athletic/7094144/2026/03/06/real-madrid-finances-wages-revenue/
@@ -29,12 +33,4 @@ https://nytimes.com/2026/03/06/opinion/trump-kristi-noem-dhs.html
 **For the Friars, a Sad Sale of Their Club’s Last Vestiges**\
 `Friars Club memorabilia, including photos of Billy Crystal and Jack Benny’s violin, sold well at an auction that upset former members of the defunct showbiz fraternity.`\
 https://nytimes.com/2026/03/06/arts/for-the-friars-a-sad-sale-of-their-clubs-last-vestiges.html
-
-**NHL trade grades: Wild gain Nick Foligno's veteran grit, brotherly love from Blackhawks**\
-`Nick Foligno is mostly a veteran vibes-bringer at this point in his career, but that could be all the Wild need from him.`\
-https://nytimes.com/athletic/7094091/2026/03/06/nhl-trade-grades-nick-foligno-wild-blackhawks/
-
-**From 1999: Charlotte Perriand, Designer, Is Dead at 96**\
-`Le Corbusier famously told her, “We don’t embroider cushions here,” when she sought a job at his studio. Then he recognized her talent for design.`\
-https://nytimes.com/2026/03/06/arts/design/charlotte-perriand-dead.html
 
