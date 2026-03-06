@@ -1,3 +1,7 @@
+**Senators trade Perron to Red Wings for 2026 fourth-round pick**\
+`Perron played in Detroit for two seasons between 2022 and 2024, racking up 103 points in 158 games as a Red Wing.`\
+https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-ottawa-senators-detroit-red-wings/
+
 **Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
 `The incident occurred with less than a minute left in the first period, and Buffalo scored on the ensuing five-minute major.`\
 https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7091977/2026/03/05/colts-zaire-franklin-trade-talks
 **What Are We Fighting For?**\
 `After launching a war in Iran, President Trump owes the American people a clear explanation of his objectives and possible endgame — something we have yet to receive, argues the Times Opinion writer W.J. Hennigan.`\
 https://nytimes.com/video/opinion/100000010751075/what-are-we-fighting-for.html
-
-**Canadiens have a clear 'want' as deadline looms; whether it is a 'need' remains to be seen**\
-`The Canadiens have a lack of jam and management has a decision to make whether to pay now to get it or wait for the offseason.`\
-https://nytimes.com/athletic/7091725/2026/03/05/canadiens-nhl-trade-deadline-needs/
 
