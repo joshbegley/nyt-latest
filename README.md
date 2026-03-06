@@ -1,3 +1,15 @@
+**Why nothing big? Because the Bruins' time is yet to come**\
+`GM Don Sweeney stood pat at the deadline, resisting the temptation to buy at high prices or sell and hurt the team's playoff chances.`\
+https://nytimes.com/athletic/7095153/2026/03/06/bruins-trade-deadline-don-sweeney/
+
+**How Jeffrey Epstein Used Doctors to Control Women**\
+`Our investigative reporter David A. Fahrenthold describes how Jeffrey Epstein used a small circle of doctors to control the medical care of and manipulate the young women from overseas who were having sex with him.`\
+https://nytimes.com/video/us/100000010737138/epstein-doctors-women.html
+
+**Boston Symphony Abruptly Ends Its Music Director’s Contract**\
+`The orchestra’s leadership announced on Friday that it and the conductor Andris Nelsons “were not aligned on future vision.”`\
+https://nytimes.com/2026/03/06/arts/music/boston-symphony-andris-nelsons.html
+
 **Will Talarico’s Long Online Paper Trail Haunt Him?**\
 `For some Democrats, generational change comes with a cringey social media past.`\
 https://nytimes.com/2026/03/06/us/politics/talarico-social-media-democrats-jobs-report.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/06/health/fda-prasad-resigns.html
 **Saliba an injury doubt for Arsenal's trip to Mansfield**\
 `The defender missed the midweek win at Brighton with what manager Mikel Arteta said was a turned ankle.`\
 https://nytimes.com/athletic/7090456/2026/03/06/william-saliba-injury-arsenal-mansfield/
-
-**Here Is Mexico’s Plan to Keep the Country Safe During the World Cup**\
-`Officials announced a massive deployment of security forces ahead of the world’s largest sporting event after recent violence prompted safety concerns for the millions of fans expected to attend.`\
-https://nytimes.com/2026/03/06/world/americas/world-cup-mexico-security-plan.html
-
-**Spain’s Spurning of Trump Has Made Me a Patriot**\
-`There are times when it is clear what it means to stand up for what is right.`\
-https://nytimes.com/2026/03/06/opinion/trump-spain-sanchez-iran-military-bases.html
-
-**Florida Bar Retreats From Statement Saying Lindsey Halligan Was Under Scrutiny**\
-`The Florida bar said that it had “erroneously” made that assertion, disclosed in a letter last month, and that no investigation into Ms. Halligan was pending.`\
-https://nytimes.com/2026/03/06/us/politics/lindsey-halligan-florida-bar.html
 
