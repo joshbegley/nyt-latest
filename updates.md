@@ -1,3 +1,7 @@
+**Late Night Isn’t Sad to See Kristi Noem Leave Homeland Security**\
+`“Sounds like someone’s about to become the FIFA secretary of homeland security,” Stephen Colbert joked.`\
+https://nytimes.com/2026/03/06/arts/television/late-night-kristi-noem-homeland-security.html
+
 **3 Australians Were on U.S. Submarine that Sank an Iranian Warship**\
 `Prime Minister Anthony Albanese’s disclosure about the attack in the Indian Ocean prompted concern that Australia’s close military cooperation with the United States could draw it into the fighting in the Middle East.`\
 https://nytimes.com/2026/03/06/world/middleeast/iran-warship-us-submarine-australia.html
