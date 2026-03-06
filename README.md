@@ -1,3 +1,7 @@
+**Protection for Section 8 Renters Is Struck Down by N.Y. Appeals Court**\
+`A panel of appeals judges ruled that a state law banning housing discrimination against renters who use federal vouchers was unconstitutional.`\
+https://nytimes.com/2026/03/05/nyregion/section-8-vouchers-ruling-new-york.html
+
 **President Fires Noem as Homeland Security Secretary**\
 `President Trump fired Kristi Noem, his embattled homeland security secretary, on Thursday and announced his plans to replace her with Senator Markwayne Mullin of Oklahoma.`\
 https://nytimes.com/video/us/politics/100000010756485/trump-noem-mullin-dhs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.ht
 **S.E.C. Settles Its Case Against Justin Sun, an Investor in the Trumps’ Crypto Coins**\
 `The decision to settle the court action is particularly striking because the defendant was accused of a serious violation of securities laws. He denied the charges.`\
 https://nytimes.com/2026/03/05/us/politics/sec-justin-sun.html
-
-**Appointing Igor Tudor has backfired. Tottenham look more toxic than ever**\
-`Igor Tudor is a specialist in fixing broken teams — but Tottenham look to have gotten worse in his three games in charge`\
-https://nytimes.com/athletic/7091293/2026/03/05/igor-tudor-spurs-job-premier-league-crystal-palace/
 
