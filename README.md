@@ -1,3 +1,15 @@
+**Flyers ease logjam at one position, worsen it at another. That's fine with Briere**\
+`Briere also said he got trade offers for Rasmus Ristolainen, but "nothing that made more sense to trade him, for what he brings.”`\
+https://nytimes.com/athletic/7095261/2026/03/06/flyers-nhl-trade-deadline-jiricek-defense-ristolainen-brink/
+
+**How the War in Iran Is Disrupting the World’s Oil**\
+`Our business reporter Peter Eavis looks at the global implications of the Strait of Hormuz, the narrow waterway to the south of Iran. He analyzes ship activity in the strait, comparing it before and after the United States and Israel initiated attacks on Iran.`\
+https://nytimes.com/video/world/middleeast/100000010750140/how-the-war-in-iran-is-disrupting-the-worlds-oil.html
+
+**Iran War Poses Test for Justice Dept. After Firings Deplete National Security Ranks**\
+`Firings, resignations and diversions to the president’s priorities have left elite counterterrorism and counterintelligence units stretched thin, current and former officials say.`\
+https://nytimes.com/2026/03/06/us/politics/trump-iran-war-doj-dhs-firings.html
+
 **Bears trading for Patriots center Garrett Bradbury: Sources**\
 `The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
 https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7094405/2026/03/06/iowa-high-school-girls-basketbal
 **Russia Is Sharing Intelligence With Iran, U.S. Officials Say**\
 `The information has included satellite imagery showing the locations of military personnel. But some officials played down the significance of the partnership.`\
 https://nytimes.com/2026/03/06/us/politics/russia-iran-partnernship.html
-
-**Why nothing big? Because the Bruins' time is yet to come**\
-`GM Don Sweeney stood pat at the deadline, resisting the temptation to buy at high prices or sell and hurt the team's playoff chances.`\
-https://nytimes.com/athletic/7095153/2026/03/06/bruins-trade-deadline-don-sweeney/
-
-**How Jeffrey Epstein Used Doctors to Control Women**\
-`Our investigative reporter David A. Fahrenthold describes how Jeffrey Epstein used a small circle of doctors to control the medical care of and manipulate the young women from overseas who were having sex with him.`\
-https://nytimes.com/video/us/100000010737138/epstein-doctors-women.html
-
-**Boston Symphony Abruptly Ends Its Music Director’s Contract**\
-`The orchestra’s leadership announced on Friday that it and the conductor Andris Nelsons “were not aligned on future vision.”`\
-https://nytimes.com/2026/03/06/arts/music/boston-symphony-andris-nelsons.html
 

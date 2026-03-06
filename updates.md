@@ -1,3 +1,7 @@
+**Bears trading for Patriots center Garrett Bradbury: Sources**\
+`The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
+https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
+
 **How We Analyzed the Strike on the Iranian School**\
 `Malachy Browne of our Visual Investigations team describes what satellite imagery and other evidence tell us about who might be responsible for an airstrike on an elementary school in southern Iran. The strike killed at least 175 people, according to health officials and Iranian state media.`\
 https://nytimes.com/video/world/middleeast/100000010750321/how-we-analyzed-the-strike-on-the-iranian-school.html
