@@ -1,3 +1,11 @@
+**Iran’s Chokehold on Persian Gulf Waterway Strains Shipping**\
+`The threat of prolonged attacks on oil tankers and other vessels is giving Iran an advantage, analysts say.`\
+https://nytimes.com/2026/03/06/business/iran-persian-gulf-hormuz-shipping.html
+
+**Chargers find their new center, agree to terms with Tyler Biadasz: Source**\
+`Biadasz replaces and will serve as an upgrade for Bradley Bozeman, who retired this offseason.`\
+https://nytimes.com/athletic/7093303/2026/03/06/tyler-biadasz-chargers-nfl-free-agency-2026/
+
 **Trump’s U.S.S. Cole Remarks Raise Questions in Guantánamo Case**\
 `Prosecutors have offered up no evidence supporting a link that the president claimed between Iran and the attack in Yemen in 2000, defense lawyers say.`\
 https://nytimes.com/2026/03/06/us/politics/trump-uss-cole-iran.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/03/06/business/dealbook/axel-springer-telegraph.html
 **Bills free agent targets: Wide receivers, edge rushers, linebackers and more**\
 `The Bills traded to fill one need, but still have several others.`\
 https://nytimes.com/athletic/7087950/2026/03/06/bills-free-agent-targets/
-
-**Oscar Piastri is Australia’s top motorsport son – but greater recognition brings added pressure**\
-`Besting the efforts of Mark Webber and Daniel Ricciardo has become an expectation of Piastri by his passionate supporter base in Australia`\
-https://nytimes.com/athletic/7093013/2026/03/06/oscar-piastri-australian-f1-gp-2026/
-
-**Rams re-sign safety Kam Curl to 3-year deal: Source**\
-`Curl started all 17 games and had two interceptions and two sacks last season for the Rams. `\
-https://nytimes.com/athletic/7093327/2026/03/06/rams-kam-curl-nfl-free-agency-2026/
 

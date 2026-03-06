@@ -1,3 +1,7 @@
+**Ticket prices, ICE and visas: Two U.S. politicians weigh in on the World Cup's big issues**\
+`The 2026 World Cup has its fair share of hot-button issues in the U.S., and things are only intensifying as the tournament nears`\
+https://nytimes.com/athletic/7086926/2026/03/06/world-cup-usa-politics-issues-pou-lahood/
+
 **Iran’s Chokehold on Persian Gulf Waterway Strains Shipping**\
 `The threat of prolonged attacks on oil tankers and other vessels is giving Iran an advantage, analysts say.`\
 https://nytimes.com/2026/03/06/business/iran-persian-gulf-hormuz-shipping.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/06/world/middleeast/persian-gulf-states-air-defense-
 **Axel Springer Agrees to Buy U.K.’s Telegraph**\
 `The $766 million takeover is the latest twist for The Telegraph, an influential British newspaper whose ownership had been in limbo for years.`\
 https://nytimes.com/2026/03/06/business/dealbook/axel-springer-telegraph.html
-
-**Bills free agent targets: Wide receivers, edge rushers, linebackers and more**\
-`The Bills traded to fill one need, but still have several others.`\
-https://nytimes.com/athletic/7087950/2026/03/06/bills-free-agent-targets/
 

@@ -1,3 +1,16 @@
+**Iran’s Chokehold on Persian Gulf Waterway Strains Shipping**\
+`The threat of prolonged attacks on oil tankers and other vessels is giving Iran an advantage, analysts say.`\
+https://nytimes.com/2026/03/06/business/iran-persian-gulf-hormuz-shipping.html
+
+**Chargers find their new center, agree to terms with Tyler Biadasz: Source**\
+`Biadasz replaces and will serve as an upgrade for Bradley Bozeman, who retired this offseason.`\
+https://nytimes.com/athletic/7093303/2026/03/06/tyler-biadasz-chargers-nfl-free-agency-2026/
+
+**Aussie catcher explains handshake snub of Czech rival before WBC game: ‘There’s no malice’**\
+`Robbie Perkins says his refusal to shake hands with Milan Prokop was just a matter of  competitive spirit and principle
+`\
+https://nytimes.com/athletic/7093421/2026/03/06/australia-wbc-handshake-robbie-perkins-snub/
+
 **Trump’s U.S.S. Cole Remarks Raise Questions in Guantánamo Case**\
 `Prosecutors have offered up no evidence supporting a link that the president claimed between Iran and the attack in Yemen in 2000, defense lawyers say.`\
 https://nytimes.com/2026/03/06/us/politics/trump-uss-cole-iran.html
