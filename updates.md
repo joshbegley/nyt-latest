@@ -1,3 +1,15 @@
+**Jesse Lingard joins Brazilian club Corinthians**\
+`The 33-year-old has signed a contract until the end of 2026, with the option of a further year if certain thresholds are met.`\
+https://nytimes.com/athletic/7093432/2026/03/06/jesse-lingard-transfer-corinthians-brazil/
+
+**Israel issues an evacuation warning in the Qom region, near an Iranian nuclear site.**\
+`By Euan Ward`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/israel-issues-an-evacuation-warning-in-the-qom-region-near-an-iranian-nuclear-site
+
+**The Bounce: What should we expect from Jayson Tatum in his return from injury?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7093484/2026/03/06/jayson-tatum-celtics-return-achilles-the-bounce/
+
 **Strikes Batter Iran’s Storied Azadi Stadium Complex**\
 `Several sports centers have been hit in Tehran since the U.S. and Israel began their attacks, the authorities say, but none with the resonance of the Azadi.`\
 https://nytimes.com/2026/03/06/world/middleeast/iran-strikes-azadi-stadium.html
