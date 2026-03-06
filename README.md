@@ -1,3 +1,7 @@
+**Kristi Noem’s Story Was Destined to End This Way**\
+`It’s hard out there for a MAGA woman.`\
+https://nytimes.com/2026/03/05/opinion/kristi-noem-fired-trump-mullin.html
+
 **Panic in Beirut After Israel Warns Residents to Evacuate**\
 `The streets of Beirut erupted in chaos on Thursday after Israel told people in the southern suburbs to evacuate. The Israeli military has been carrying out airstrikes in Dahiya, a Hezbollah stronghold, since the militant group fired rockets into northern Israel earlier this week.`\
 https://nytimes.com/video/world/middleeast/100000010756628/beirut-lebanon-strikes-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/world/middleeast/israel-bombs-beirut.html
 **State Department Is Accused of Slow Assistance for Stranded Americans**\
 `Many veteran diplomats faulted the State Department for its response after the attacks in Iran began, and for its actions beforehand.`\
 https://nytimes.com/2026/03/05/us/politics/state-department-iran-evacuations.html
-
-**Iran War Pulls New Countries Into Conflict**\
-`The conflict between Iran, Israel and the United States expanded on Thursday after multiple Iranian attacks pushed leaders in Britain and Italy to accelerate their deployment of military assets to the region.`\
-https://nytimes.com/video/world/middleeast/100000010755847/europe-iran-defense-uk-italy.html
 
