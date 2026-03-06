@@ -1,3 +1,15 @@
+**Weak Jobs Data Underscores Fed’s Dilemma as War Stokes Inflation Risk**\
+`The Federal Reserve is still widely expected to hold interest rates steady when its officials next meet on March 17-18.`\
+https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve-jobs-inflation
+
+**An Artist of Caped Crusaders Emerges From the Shadows**\
+`Klaus Janson, known for his work on Daredevil and Batman, said he hoped his new solo show could give people “a growing appreciation of what comics can do.”`\
+https://nytimes.com/2026/03/06/arts/design/daredevil-batman-artist-klaus-janson-labaune-gallery.html
+
+**Tom Junod Would Like to Tell You About His Father**\
+`A star writer from the heyday of magazines reveals the family secret behind his award-winning stories.`\
+https://nytimes.com/2026/03/06/style/tom-junod-would-like-to-tell-you-about-his-father.html
+
 **Wild acquire winger Bobby Brink, send prospect David Jiricek to Flyers**\
 `The Wild see Brink, 24, as a third-line right wing who can move up the lineup if needed. He's a pending restricted free agent.`\
 https://nytimes.com/athletic/7093611/2026/03/06/wild-flyers-trade-bobby-brink-david-jiricek/
