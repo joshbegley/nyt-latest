@@ -1,3 +1,7 @@
+**Why a G.O.P. War Powers Hawk Was a No on Reining Trump In on Iran**\
+`Many Republicans deferred almost unquestioningly to President Trump after he began a sweeping military offensive in the Middle East. Senator Todd Young was more conflicted, but ended up in the same place.`\
+https://nytimes.com/2026/03/06/us/politics/todd-young-trump-iran-war-powers.html
+
 **A New England Patriots plane brought Americans back from the Middle East.**\
 `By Victor Mather and Michael Crowley`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/a-new-england-patriots-plane-brought-americans-back-from-the-middle-east
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/06/arts/music/ny-phil-mirga-grazinyte-tyla.html
 **Winter Survival Tips From the Cast of ‘Sentimental Value’**\
 `The Scandinavian co-stars of Joachim Trier’s 2025 film “Sentimental Value” — Stefan Skarsgard, Renate Reinsve and Inga Ibsdotter Lilleaas — discuss their favorite winter rituals.`\
 https://nytimes.com/video/t-magazine/100000010739305/winter-survival-tips-from-the-cast-of-sentimental-value.html
-
-**Flashback: Your Weekly History Quiz, March 7, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/03/06/upshot/flashback.html
 

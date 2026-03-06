@@ -1,3 +1,7 @@
+**Why a G.O.P. War Powers Hawk Was a No on Reining Trump In on Iran**\
+`Many Republicans deferred almost unquestioningly to President Trump after he began a sweeping military offensive in the Middle East. Senator Todd Young was more conflicted, but ended up in the same place.`\
+https://nytimes.com/2026/03/06/us/politics/todd-young-trump-iran-war-powers.html
+
 **A New England Patriots plane brought Americans back from the Middle East.**\
 `By Victor Mather and Michael Crowley`\
 https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/a-new-england-patriots-plane-brought-americans-back-from-the-middle-east
