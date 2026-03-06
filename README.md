@@ -1,5 +1,9 @@
+**Blues trade deadline report card: Grading Doug Armstrong's moves**\
+`It could have been a lot worse for the Blues if GM Doug Armstrong hadn't gotten a couple moves across the line late.`\
+https://nytimes.com/athletic/7083296/2026/03/06/blues-2026-nhl-trade-deadline-grades/
+
 **Women's conference tournament takeaways: Four wins in four days continues South Alabama's run**\
-`Syracuse's road just got tougher without injured guard.`\
+`Syracuse's road just got tougher without its injured guard.`\
 https://nytimes.com/athletic/7094662/2026/03/06/womens-conference-tournament-takeaways-four-wins-in-four-days-continues-south-alabama-run/
 
 **Submit your Dodgers questions for Katie Woo's mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/style/stella-mccartney-legion-dhonneur-emmanuel-m
 **The State of U.S. Markets**\
 `Our business reporter Joe Rennison walks us through three charts to help make sense of the wild swings in the markets this week since the attacks on Iran commenced.`\
 https://nytimes.com/video/us/100000010755999/the-state-of-us-markets.html
-
-**The Washington Capitals just traded John Carlson — will they lose Alex Ovechkin, too?**\
-`Ovechkin's contract expires after this season, and the Capitals just traded one of his close friends.`\
-https://nytimes.com/athletic/7094328/2026/03/06/washington-capitals-ovechkin-carlson-trade/
 

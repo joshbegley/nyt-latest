@@ -1,3 +1,11 @@
+**Women's conference tournament takeaways: Four wins in four days continues South Alabama's run**\
+`Syracuse's road just got tougher without injured guard.`\
+https://nytimes.com/athletic/7094662/2026/03/06/womens-conference-tournament-takeaways-four-wins-in-four-days-continues-south-alabama-run/
+
+**Submit your Dodgers questions for Katie Woo's mailbag**\
+`Submit your Dodgers questions for Katie Woo's mailbag`\
+https://nytimes.com/athletic/7094953/2026/03/06/dodgers-mailbag-spring-training/
+
 **Two Make-or-Break Days in the Life of a Fashion Designer**\
 `In the lead-up to Courrèges fall fashion show, Nicolas Di Felice held fittings, oversaw rehearsals and gave notes on a floor meant to look like a city street.`\
 https://nytimes.com/2026/03/06/t-magazine/courreges-nicolas-di-felice-show.html
