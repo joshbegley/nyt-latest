@@ -1,3 +1,15 @@
+**Sabres acquire defensemen Logan Stanley, Luke Schenn in trade with Jets**\
+`Buffalo is sending Winnipeg Isak Rosen, Jacob Bryson, a second-round pick in 2027 and a fourth-round pick in 2026.`\
+https://nytimes.com/athletic/7092598/2026/03/06/jets-sabres-trade-stanley-schenn-rosen/
+
+**Here’s the latest.**\
+`By Euan Ward, Erika Solomon, Dayana Iwaza and Ephrat Livni`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: Tehran, Beirut and Tel Aviv Are Targeted in Attacks and Counterattacks**\
+`The Israeli military said it was striking Iran’s capital while pounding Hezbollah targets in Lebanon, as fighting there intensified. Iran said it was targeting Tel Aviv, the country’s state news agency reported.`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon
+
 **The New York Times in Print for Friday, March 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/06/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7089821/2026/03/06/elland-road-a-push-for-infrastru
 **Newcastle have played the most of any club in Europe's big leagues: This is the impact it's had**\
 `Eddie Howe's team have played more games in all competitions than any other side in the continent's top five leagues, this is why it matters`\
 https://nytimes.com/athletic/7087324/2026/03/06/newcastle-games-played-eddie-howe/
-
-**The day Phil Parkinson outfoxed Jose Mourinho's Chelsea**\
-`The Athletic brings the inside story of arguably Parkinson's finest hour through the lens of the footballer at the heart of his game plan`\
-https://nytimes.com/athletic/7086092/2026/03/06/phil-parkinson-outfoxed-jose-mourinho-wrexham-chelsea/
-
-**Fikayo Tomori on his five years at Milan: 'San Siro was full and I just thought: Phwoar'**\
-`An exclusive video interview with Tomori on Maldini's influence, people underestimating Pulisic and his World Cup hopes`\
-https://nytimes.com/athletic/7086014/2026/03/06/fikayo-tomori-milan-career-italy-interview/
-
-**Canucks trade Conor Garland to Blue Jackets for 2 draft picks**\
-`Garland, 29, signed a six-year extension with the Canucks last summer but has since seen the team pivot to a rebuild.`\
-https://nytimes.com/athletic/7036835/2026/03/06/canucks-conor-garland-trade-blue-jackets/
 

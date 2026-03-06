@@ -1,3 +1,15 @@
+**Sabres acquire defensemen Logan Stanley, Luke Schenn in trade with Jets**\
+`Buffalo is sending Winnipeg Isak Rosen, Jacob Bryson, a second-round pick in 2027 and a fourth-round pick in 2026.`\
+https://nytimes.com/athletic/7092598/2026/03/06/jets-sabres-trade-stanley-schenn-rosen/
+
+**Here’s the latest.**\
+`By Euan Ward, Erika Solomon, Dayana Iwaza and Ephrat Livni`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: Tehran, Beirut and Tel Aviv Are Targeted in Attacks and Counterattacks**\
+`The Israeli military said it was striking Iran’s capital while pounding Hezbollah targets in Lebanon, as fighting there intensified. Iran said it was targeting Tel Aviv, the country’s state news agency reported.`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon
+
 **The New York Times in Print for Friday, March 6, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/06/todays-new-york-times
