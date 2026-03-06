@@ -1,3 +1,7 @@
+**Bears releasing LB Tremaine Edmunds to free up salary-cap space: Source**\
+`Cutting Edmunds, a respected veteran who played for Chicago the last three years, clears $15 million of cap space for the Bears.`\
+https://nytimes.com/athletic/7060538/2026/03/05/bears-release-tremaine-edmunds/
+
 **Trae Young makes long-awaited Wizards debut, brings spark on 'Trae Day'**\
 `Young returned from injury and wasted no time affecting the game when he scored his first bucket on the Wizards’ first possession.`\
 https://nytimes.com/athletic/7092135/2026/03/05/trae-young-wizards-debut-jazz-nba/
