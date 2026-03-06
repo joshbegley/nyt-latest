@@ -1,3 +1,19 @@
+**Superfood Fuels Mating Frenzy for a Critically Endangered Parrot**\
+`Kakapos, which are reclusive and flightless and can live as long as humans, are found only in New Zealand. They feed on the fruit of the rimu tree.`\
+https://nytimes.com/2026/03/05/science/kakapo-endangered-parrots-mating-berries.html
+
+**Craig Counsell gets a proud-dad moment watching son, Brady, make spring debut**\
+`Prior to the game, Craig Counsell joked that he’d close his eyes and watch video of his son batting later. `\
+https://nytimes.com/athletic/7091587/2026/03/05/chicago-cubs-craig-counsell-son-brady/
+
+**Blues still have time to maximize trade deadline, but after two whiffs, it's running short**\
+`The Blues have had two trades fall through and have less than 24 hours to start making more before the NHL deadline.`\
+https://nytimes.com/athletic/7091114/2026/03/05/blues-nhl-trade-deadline-parayko-thomas-no-trade-clause/
+
+**Two Schools in Iran Damaged in U.S.-Israeli Bombing**\
+`Photos show that both schools, southeast of Tehran, sustained damage. No injuries were reported.`\
+https://nytimes.com/2026/03/05/world/middleeast/iran-schools-hit.html
+
 **How to watch San Diego vs. Loyola Marymount men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the San Diego Toreros play the Loyola Marymount Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7091860/2026/03/05/san-diego-vs-loyola-marymount-stream-how-to-watch-march-5/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7091672/2026/03/05/rangers-vincent-trocheck-sam-car
 **Rebuild or reload, the Leafs need as many (good) assets as they can get**\
 `The Leafs are off to a good start with a first-round pick and a conditional fifth for Nicolas Roy. Now they need to keep the momentum going.`\
 https://nytimes.com/athletic/7090971/2026/03/05/maple-leafs-nhl-trade-deadline-picks-assets-roy/
-
-**Fewer Pregnant Women Received Acetaminophen in E.R.s After White House Warnings**\
-`A new analysis of prescription data found that emergency room orders for acetaminophen for pregnant women fell for weeks after the federal warning.`\
-https://nytimes.com/2026/03/05/health/tylenol-acetaminophen-autism-trump.html
-
-**Post Iran: Vance vs. Carlson in 2028?**\
-`The war in Iran may have a lasting impact on the political careers of Trump’s closest allies. On “Interesting Times,” Curt Mills, the executive director of the American Conservative, shares his thoughts on how Trump’s interventionist policies might play out in the 2028 Republican primaries.`\
-https://nytimes.com/video/opinion/100000010754473/post-iran-vance-vs-carlson-in-2028.html
-
-**Bob Harlan, ex-Packers president who hired two GMs who won Super Bowls, dies at 89**\
-`Harlan helped return one of the NFL's iconic franchises to relevance when Green Bay won its first Super Bowl in 29 years in the 1996 season.`\
-https://nytimes.com/athletic/7091500/2026/03/05/bob-harlan-obituary-packers-president-nfl/
-
-**Trump ‘Can’t Say No to Israel’**\
-`Who is calling the shots in the war with Iran? Curt Mills, the executive director of the American Conservative, thinks Israeli influence is guiding Trump’s decision to go to war in the Middle East. He explains why on this episode of “Interesting Times.”`\
-https://nytimes.com/video/opinion/100000010747180/trump-cant-say-no-to-israel.html
 
