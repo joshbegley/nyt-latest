@@ -10,8 +10,8 @@ https://nytimes.com/2026/03/05/us/politics/state-department-iran-evacuations.htm
 `The conflict between Iran, Israel and the United States expanded on Thursday after multiple Iranian attacks pushed leaders in Britain and Italy to accelerate their deployment of military assets to the region.`\
 https://nytimes.com/video/world/middleeast/100000010755847/europe-iran-defense-uk-italy.html
 
-**Ex-Executive at Blood Filter Start-Up Charged With Covering Up Deaths**\
-`ExThera attracted cancer patients to Antigua with the promise that its devices could cure them. Its former chief regulatory officer now faces up to three years in prison.`\
+**Ex-Executive at Blood Filter Start-Up Is Charged With Covering Up Deaths**\
+`ExThera attracted cancer patients to Antigua with the promise that its devices could cure them. Its former chief regulatory officer faces up to three years in prison.`\
 https://nytimes.com/2026/03/05/business/exthera-cancer-filter-federal-charges.html
 
 **A Sly Political Switcheroo Stuns Montana and Starts a New Senate Fight**\
