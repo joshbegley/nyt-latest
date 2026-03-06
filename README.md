@@ -1,3 +1,7 @@
+**LeBron passes Kareem for most made field goals in NBA history**\
+`"He's got a hell of a catalog,” Laker coach JJ Redick said before Thursday's game in Denver.`\
+https://nytimes.com/athletic/7092315/2026/03/05/lebron-james-record-field-goals-nba-kareem/
+
 **U.S. Restarts Diplomatic Relations With Venezuela**\
 `Washington has rapidly warmed up ties with Venezuela — and applied major pressure on it — since capturing the country’s president, Nicolás Maduro, two months ago.`\
 https://nytimes.com/2026/03/05/world/americas/us-venezuela-diplomatic-relations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/05/theater/what-we-did-before-our-moth-days-review.h
 **Senators trade Perron to Red Wings for 2026 fourth-round pick**\
 `Perron played in Detroit for two seasons between 2022 and 2024, racking up 103 points in 158 games as a Red Wing.`\
 https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-ottawa-senators-detroit-red-wings/
-
-**Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
-`The incident occurred with less than a minute into in the second period, and Buffalo scored on the ensuing five-minute major.`\
-https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
 

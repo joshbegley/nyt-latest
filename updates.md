@@ -1,3 +1,7 @@
+**Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
+`The incident occurred with less than a minute into in the second period, and Buffalo scored on the ensuing five-minute major.`\
+https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
+
 **U.S. Restarts Diplomatic Relations With Venezuela**\
 `Washington has rapidly warmed up ties with Venezuela — and applied major pressure on it — since capturing the country’s president, Nicolás Maduro, two months ago.`\
 https://nytimes.com/2026/03/05/world/americas/us-venezuela-diplomatic-relations.html

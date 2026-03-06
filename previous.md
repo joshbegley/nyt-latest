@@ -35,6 +35,6 @@ https://nytimes.com/2026/03/05/theater/what-we-did-before-our-moth-days-review.h
 https://nytimes.com/athletic/7092210/2026/03/05/david-perron-nhl-trade-deadline-ottawa-senators-detroit-red-wings/
 
 **Penguins' Malkin ejected for slashing Sabres' Dahlin in the neck**\
-`The incident occurred with less than a minute left in the first period, and Buffalo scored on the ensuing five-minute major.`\
+`The incident occurred with less than a minute into in the second period, and Buffalo scored on the ensuing five-minute major.`\
 https://nytimes.com/athletic/7092122/2026/03/05/evgeni-malkin-match-penalty-slashing-dahlin-penguins-sabres/
 
