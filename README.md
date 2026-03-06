@@ -1,3 +1,7 @@
+**How to watch Stetson vs. Austin Peay men's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Stetson Hatters play the Austin Peay Governors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093782/2026/03/06/stetson-vs-austin-peay-stream-how-to-watch-march-6/
+
 **How to watch Sacred Heart vs. Merrimack men's basketball: MAAC Tournament Time, TV, streaming**\
 `Find out how to watch the Sacred Heart Pioneers play the Merrimack Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7093774/2026/03/06/sacred-heart-vs-merrimack-stream-how-to-watch-march-6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7092975/2026/03/06/tottenham-fans-relegation/
 **NHL trade grades: Bobby Brink will add more skill in the middle-six for Wild**\
 `Bobby Brink can help the Wild's secondary scoring in their playoff run and they did well to cash in on David Jiricek.`\
 https://nytimes.com/athletic/7093632/2026/03/06/nhl-trade-grades-bobby-brink-wild-flyers/
-
-**Weak Jobs Data Underscores Fed’s Dilemma as War Stokes Inflation Risk**\
-`The Federal Reserve is still widely expected to hold interest rates steady when its officials next meet on March 17-18.`\
-https://nytimes.com/live/2026/03/06/business/jobs-report-economy/federal-reserve-jobs-inflation
 

@@ -1,3 +1,11 @@
+**How to watch Sacred Heart vs. Merrimack men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Sacred Heart Pioneers play the Merrimack Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7093774/2026/03/06/sacred-heart-vs-merrimack-stream-how-to-watch-march-6/
+
+**Raiders set to release QB Geno Smith after 1 season in Las Vegas: Sources**\
+`Smith threw an NFL-worst 17 interceptions in his lone season with the Raiders, which ended with Las Vegas earning the top pick in the draft.`\
+https://nytimes.com/athletic/7089791/2026/03/06/geno-smith-released-raiders-nfl/
+
 **A Versatile (and Reader-Favorite) Silken Tofu-Miso Dressing**\
 `And more of our most popular recipes from the week.`\
 https://nytimes.com/2026/03/06/dining/a-versatile-and-reader-favorite-silken-tofu-miso-dressing.html
