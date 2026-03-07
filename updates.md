@@ -1,3 +1,15 @@
+**How to watch Arizona vs. Colorado men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097366/2026/03/07/arizona-vs-colorado-stream-how-to-watch-march-7/
+
+**Braves still 'stunned' by Jurickson Profar suspension, Walt Weiss says**\
+`The Braves' manager spoke to the team about how Profar's suspension could provide unexpected opportunities for players to shine.`\
+https://nytimes.com/athletic/7097306/2026/03/07/braves-jurkickson-profar-suspension-walt-weiss/
+
+**How to watch Auburn vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097342/2026/03/07/auburn-vs-alabama-stream-how-to-watch-march-7/
+
 **Eagles, DT Jordan Davis agree to 3-year, $78M extension: Sources**\
 `The new deal includes $65 million in guaranteed money, and it keeps Davis under contract with the Eagles through 2029.`\
 https://nytimes.com/athletic/7097278/2026/03/07/eagles-jordan-davis-contract-extension/
