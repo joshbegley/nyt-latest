@@ -1,3 +1,7 @@
+**Rory McIlroy withdraws from Arnold Palmer Invitational with back injury**\
+`The surprise move comes a week before McIlroy will attempt to defend his Players Championship title and a month before his Masters defense.`\
+https://nytimes.com/athletic/7097207/2026/03/07/rory-mcilroy-arnold-palmer-invitational-back-injury/
+
 **After whirlwind day, Bobby Brink debuts for his beloved Wild: 'It's good to be home'**\
 `Brink is the latest Minnesota-born player to come to the Wild. Like the rest of them, he was told to focus on winning, not a homecoming.`\
 https://nytimes.com/athletic/7096817/2026/03/07/bobby-brink-wild-flyers-trade-homecoming/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097125/2026/03/07/northern-arizona-vs-idaho-state-
 **How to watch Canadiens vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097121/2026/03/07/canadiens-vs-kings-stream-how-to-watch-march-7/
-
-**How to watch Jazz vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097118/2026/03/07/jazz-vs-bucks-stream-how-to-watch-march-7/
 
