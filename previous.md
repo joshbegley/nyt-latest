@@ -1,3 +1,11 @@
+**Maple Leafs GM Brad Treliving on the trade deadline: What he said, what it means**\
+`Leafs general manager Brad Treliving met with the media Friday for what was maybe his most sombre availability since coming to Toronto.`\
+https://nytimes.com/athletic/7095288/2026/03/06/maple-leafs-trade-deadline-treliving-comments/
+
+**How to watch San Diego vs. Seattle U men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the San Diego Toreros play the Seattle U Redhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7095488/2026/03/06/san-diego-vs-seattle-u-stream-how-to-watch-march-6/
+
 **Blue Jackets hold onto UFAs, add Conor Garland's scoring punch for playoff drive**\
 `Blue Jackets GM Don Waddell aimed to not only put his team in a position to make the playoffs, but also have a chance to succeed.`\
 https://nytimes.com/athletic/7095106/2026/03/06/blue-jackets-conor-garland-nhl-trade-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/06/us/politics/trump-iran-war-doj-dhs-firings.html
 **Bears trading for Patriots center Garrett Bradbury: Sources**\
 `The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
 https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
-
-**How We Analyzed the Strike on the Iranian School**\
-`Malachy Browne of our Visual Investigations team describes what satellite imagery and other evidence tell us about who might be responsible for an airstrike on an elementary school in southern Iran. The strike killed at least 175 people, according to health officials and Iranian state media.`\
-https://nytimes.com/video/world/middleeast/100000010750321/how-we-analyzed-the-strike-on-the-iranian-school.html
-
-**Alan Trustman, Who Wrote ‘Bullitt’ and ‘Thomas Crown Affair,’ Dies at 95**\
-`In a wide-ranging career, he was a Boston lawyer, a Hollywood screenwriter and a Swiss currency trader.`\
-https://nytimes.com/2026/03/06/movies/alan-trustman-dead.html
 

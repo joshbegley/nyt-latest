@@ -1,3 +1,11 @@
+**Maple Leafs GM Brad Treliving on the trade deadline: What he said, what it means**\
+`Leafs general manager Brad Treliving met with the media Friday for what was maybe his most sombre availability since coming to Toronto.`\
+https://nytimes.com/athletic/7095288/2026/03/06/maple-leafs-trade-deadline-treliving-comments/
+
+**How to watch San Diego vs. Seattle U men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the San Diego Toreros play the Seattle U Redhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7095488/2026/03/06/san-diego-vs-seattle-u-stream-how-to-watch-march-6/
+
 **Blue Jackets hold onto UFAs, add Conor Garland's scoring punch for playoff drive**\
 `Blue Jackets GM Don Waddell aimed to not only put his team in a position to make the playoffs, but also have a chance to succeed.`\
 https://nytimes.com/athletic/7095106/2026/03/06/blue-jackets-conor-garland-nhl-trade-deadline/
