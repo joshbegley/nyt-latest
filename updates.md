@@ -1,3 +1,15 @@
+**What Clothes Feel New Now?**\
+`In Paris, Loewe and Polo bring some much needed color and uplift.`\
+https://nytimes.com/2026/03/07/style/what-clothes-feel-new-now.html
+
+**Ian Huntley, Whose Murder of Schoolgirls Appalled Britain, Dies After Prison Attack**\
+`The 2002 deaths of Holly Wells and Jessica Chapman, and the manhunt that led to a local school caretaker, shook the U.K.`\
+https://nytimes.com/2026/03/07/world/europe/ian-huntley-dead-soham-murders-uk.html
+
+**Iranian President’s Apology Showcases Leadership Rifts**\
+`Masoud Pezeshkian, the Iranian president, apologized for the waves of strikes hitting Gulf states, then hours later claimed Iran had not attacked its “friendly and neighboring countries” in this war.`\
+https://nytimes.com/2026/03/07/world/middleeast/iran-president-pezeshkian-gulf-apology-war.html
+
 **Edu set to leave Nottingham Forest just eight months after appointment**\
 `The Brazilian was appointed in the position in July 2025 having previously been the sporting director at Arsenal.`\
 https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
