@@ -1,3 +1,16 @@
+**Trump Maintains That U.S. Has Ample Weapons as Iran War Depletes Stocks**\
+`After meeting with defense contractors at the White House, President Trump said the companies were all committed to increasing production.`\
+https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
+
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
+**One House Republican in California Retires, and Another Runs as an Independent**\
+`The decisions by Darrell Issa and Kevin Kiley, made newly vulnerable by redistricting, demonstrated the challenges Republicans face in a difficult midterm environment.`\
+https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
+
 **Justice Department Denounces Federal Judges in Fight Against Law Firms**\
 `The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
 https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html

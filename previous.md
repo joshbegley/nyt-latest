@@ -1,9 +1,18 @@
+**Trump Maintains That U.S. Has Ample Weapons as Iran War Depletes Stocks**\
+`After meeting with defense contractors at the White House, President Trump said the companies were all committed to increasing production.`\
+https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
+
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **Justice Department Denounces Federal Judges in Fight Against Law Firms**\
 `The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
 https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html
 
-**Darrell Issa, Vulnerable California Republican, Drops Re-election Bid**\
-`Mr. Issa faced a challenging fight for another term in the House under a newly drawn congressional map.`\
+**One House Republican in California Retires, and Another Runs as an Independent**\
+`The decisions by Darrell Issa and Kevin Kiley, made newly vulnerable by redistricting, demonstrated the challenges Republicans face in a difficult midterm environment.`\
 https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
 
 **Canadiens took a big swing at the deadline and missed, but the swing still told a story**\
@@ -29,12 +38,4 @@ https://nytimes.com/video/opinion/100000010747012/the-governments-ai-alignment-p
 **Malkin suspended 5 games for slashing Buffalo's Rasmus Dahlin**\
 `The Penguins are now missing two of their best players for a daunting run of games, with their playoff berth potentially in jeopardy.`\
 https://nytimes.com/athletic/7095132/2026/03/06/evgeni-malkin-suspension-penguins-slashing-dahlin-dubas/
-
-**Doug Armstrong denies Blues leaked Parayko trade, says he ordered check of staff's phone records**\
-`Many assumed that the Blues leaked the trade to try to pressure Parayko to waive his no-trade clause.`\
-https://nytimes.com/athletic/7095336/2026/03/06/doug-armstrong-colton-parayko-trade-leak/
-
-**Vanderbilt’s Shea Ralph ejected in upset SEC tournament loss to Ole Miss**\
-`Ralph was tossed for the first time in her career after complaining about a foul call after the Rebels were dominating the Commodores.`\
-https://nytimes.com/athletic/7095607/2026/03/06/vanderbilt-ole-miss-shea-ralph-ejection-sec-tournament/
 
