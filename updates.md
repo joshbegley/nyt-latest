@@ -1,3 +1,7 @@
+**Blues GM Doug Armstrong on deals that didn’t develop, no-trade clauses, his future**\
+`Armstrong says no-trade clauses can't stop a team from assessing players' trade value. "You have to explore everything."`\
+https://nytimes.com/athletic/7095203/2026/03/07/blues-doug-armstrong-trade-deadline/
+
 **February sports card market recap: The biggest sales and trends**\
 `As Honus Wagner dominates the high-end market, Kon Knueppel builds moment at the lower end. `\
 https://nytimes.com/athletic/7096358/2026/03/07/t206-honus-wagner-sales-card-market/
