@@ -1,3 +1,31 @@
+**How to watch Florida vs. Kentucky men's basketball: Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096621/2026/03/07/florida-vs-kentucky-stream-how-to-watch-march-7/
+
+**How to watch Mount St. Mary's vs. Merrimack women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Mount St. Mary's Mountaineers play the Merrimack Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096616/2026/03/07/mount-st-mary-s-vs-merrimack-stream-how-to-watch-march-7/
+
+**How to watch Montana vs. Northern Arizona women's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Montana Lady Griz play the Northern Arizona Lumberjacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096614/2026/03/07/montana-vs-northern-arizona-stream-how-to-watch-march-7/
+
+**How to watch Michigan vs. Iowa women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096601/2026/03/07/michigan-vs-iowa-stream-how-to-watch-march-7/
+
+**How to watch Colgate vs. Bucknell women's basketball: Patriot Tournament Time, TV, streaming**\
+`Find out how to watch the Colgate Raiders play the Bucknell Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096602/2026/03/07/colgate-vs-bucknell-stream-how-to-watch-march-7/
+
+**How to watch Drake vs. UIC men's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Drake Bulldogs play the UIC Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096598/2026/03/07/drake-vs-uic-stream-how-to-watch-march-7/
+
+**How to watch Wisconsin vs. Purdue men's basketball: Time, TV, streaming**\
+`Find out how to watch the Wisconsin Badgers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096596/2026/03/07/wisconsin-vs-purdue-stream-how-to-watch-march-7/
+
 **How to watch UL Monroe vs. Arkansas State women's basketball: Sun Belt Tournament Time, TV, streaming**\
 `Find out how to watch the UL Monroe Warhawks play the Arkansas State Red Wolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096593/2026/03/07/ul-monroe-vs-arkansas-state-stream-how-to-watch-march-7/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7096590/2026/03/07/south-dakota-vs-south-dakota-sta
 **How to watch UNC Greensboro vs. Wofford men's basketball: SoCon Tournament Time, TV, streaming**\
 `Find out how to watch the UNC Greensboro Spartans play the Wofford Terriers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096586/2026/03/07/unc-greensboro-vs-wofford-stream-how-to-watch-march-7/
-
-**How to watch LSU vs. South Carolina women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096584/2026/03/07/lsu-vs-south-carolina-stream-how-to-watch-march-7/
-
-**How to watch Kansas State vs. TCU women's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096581/2026/03/07/kansas-state-vs-tcu-stream-how-to-watch-march-7/
-
-**How to watch FGCU vs. Central Arkansas men's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the Florida Gulf Coast Eagles play the Central Arkansas Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096575/2026/03/07/fgcu-vs-central-arkansas-stream-how-to-watch-march-7/
-
-**How to watch Rangers vs. Devils: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096560/2026/03/07/rangers-vs-devils-stream-how-to-watch-march-7/
-
-**How to watch Creighton vs. Marquette women's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Creighton Bluejays play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096555/2026/03/07/creighton-vs-marquette-stream-how-to-watch-march-7/
-
-**How to watch Air Force vs. Wyoming women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Air Force Falcons play the Wyoming Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096550/2026/03/07/air-force-vs-wyoming-stream-how-to-watch-march-7/
-
-**How to watch Northeastern vs. Drexel men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Northeastern Huskies play the Drexel Dragons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096548/2026/03/07/northeastern-vs-drexel-stream-how-to-watch-march-7/
 
