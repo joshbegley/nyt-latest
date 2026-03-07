@@ -1,3 +1,19 @@
+**Caitlin Clark preparing for Team USA debut, feels 'even better' than start of last season**\
+`Clark says her ultimate Team USA goal is to play on the Olympics squad. "Getting to put on the jersey will be super special.”`\
+https://nytimes.com/athletic/7096874/2026/03/07/caitlin-clark-usa-basketball-indiana-fever-health-status/
+
+**How to watch Winthrop vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Winthrop Eagles play the High Point Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097140/2026/03/07/winthrop-vs-high-point-stream-how-to-watch-march-7/
+
+**How to watch Flyers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097137/2026/03/07/flyers-vs-penguins-stream-how-to-watch-march-7/
+
+**How to watch 76ers vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097135/2026/03/07/76ers-vs-hawks-stream-how-to-watch-march-7/
+
 **How to watch Northern Arizona vs. Idaho State men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Northern Arizona Lumberjacks play the Idaho State Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097125/2026/03/07/northern-arizona-vs-idaho-state-stream-how-to-watch-march-7/

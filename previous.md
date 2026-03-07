@@ -1,3 +1,19 @@
+**Caitlin Clark preparing for Team USA debut, feels 'even better' than start of last season**\
+`Clark says her ultimate Team USA goal is to play on the Olympics squad. "Getting to put on the jersey will be super special.”`\
+https://nytimes.com/athletic/7096874/2026/03/07/caitlin-clark-usa-basketball-indiana-fever-health-status/
+
+**How to watch Winthrop vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Winthrop Eagles play the High Point Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097140/2026/03/07/winthrop-vs-high-point-stream-how-to-watch-march-7/
+
+**How to watch Flyers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097137/2026/03/07/flyers-vs-penguins-stream-how-to-watch-march-7/
+
+**How to watch 76ers vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097135/2026/03/07/76ers-vs-hawks-stream-how-to-watch-march-7/
+
 **How to watch Northern Arizona vs. Idaho State men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Northern Arizona Lumberjacks play the Idaho State Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097125/2026/03/07/northern-arizona-vs-idaho-state-stream-how-to-watch-march-7/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7097112/2026/03/07/predators-vs-sabres-stream-how-t
 **How to watch Colorado vs. West Virginia women's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Colorado Buffaloes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097100/2026/03/07/colorado-vs-west-virginia-stream-how-to-watch-march-7/
-
-**How to watch Ole Miss vs. Texas women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097098/2026/03/07/ole-miss-vs-texas-stream-how-to-watch-march-7/
-
-**How to watch San Francisco vs. Pepperdine women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the San Francisco Dons play the Pepperdine Waves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097095/2026/03/07/san-francisco-vs-pepperdine-stream-how-to-watch-march-7/
-
-**Celtics' Nikola Vučević has surgery on finger, will be reevaluated in 3-4 weeks**\
-`Vučević hurt his right ring finger while trying to post up during the first quarter of Friday's 120-100 win over the Mavericks.`\
-https://nytimes.com/athletic/7096892/2026/03/07/celtics-nikola-vucevic-surgery-injury/
-
-**How to watch San Jose State vs. Boise State women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the San Jose State Spartans play the Boise State Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097089/2026/03/07/san-jose-state-vs-boise-state-stream-how-to-watch-march-7/
 
