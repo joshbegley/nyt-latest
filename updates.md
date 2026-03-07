@@ -1,3 +1,11 @@
+**Trump's college sports roundtable: Two hours of talk, with few solutions**\
+`President promises an executive order to fix college sports, while the SCORE Act receives a boost. Here's a breakdown of the meeting.`\
+https://nytimes.com/athletic/7095330/2026/03/06/trump-saving-college-sports-roundtable-executive-order-score-act/
+
+**USL Championship players open season with 'display of unity' over CBA deadlock**\
+`Players from Lexington SC and Louisville City stood in silence for 60 seconds after kickoff as the sold-out crowd cheered.`\
+https://nytimes.com/athletic/7095840/2026/03/06/usl-championship-players-silent-protest-cba-deadlock/
+
 **Maxx Crosby trade grades: Ravens add defensive pillar, Raiders' teardown is complete**\
 `It's yet another bold move for the Ravens, who are remaking the franchise after missing the playoffs in 2025.`\
 https://nytimes.com/athletic/7095895/2026/03/06/maxx-crosby-raiders-ravens-trade-grades/
