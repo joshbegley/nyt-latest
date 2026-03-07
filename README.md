@@ -1,3 +1,7 @@
+**Russia Hits Ukraine With Deadly Barrage of Missiles and Drones**\
+`At least eight people were killed when a Russian missile hit a five-story apartment building in the city of Kharkiv, and Kyiv and several other regions also came under attack.`\
+https://nytimes.com/2026/03/07/world/europe/russia-ukraine-kharkiv-zelensky-airstrike.html
+
 **Russia wins first medals of Winter Paralympics in 12 years**\
 `Varvara Voronchikhina came third in the downhill women’s standing as Aleksei Bugaev made the podium in the men’s visually impaired race.`\
 https://nytimes.com/athletic/7096275/2026/03/07/russia-medals-winter-paralympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096311/2026/03/07/bryant-vs-vermont-stream-how-to-
 **How to watch Richmond vs. George Mason women's basketball: A-10 Tournament Time, TV, streaming**\
 `Find out how to watch the Richmond Spiders play the George Mason Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096309/2026/03/07/richmond-vs-george-mason-stream-how-to-watch-march-7/
-
-**How to watch Yale vs. Princeton women's basketball: Time, TV, streaming**\
-`Find out how to watch the Yale Bulldogs play the Princeton Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096307/2026/03/07/yale-vs-princeton-stream-how-to-watch-march-7/
 
