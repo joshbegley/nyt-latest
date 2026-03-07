@@ -1,5 +1,13 @@
+**Inside the Wild's trade deadline: Folignos united, what Brink brings and building playoff depth**\
+`They didn't land a big-name center, but the Wild were optimistic after showing restraint at the trade deadline and addressing areas of need.`\
+https://nytimes.com/athletic/7095271/2026/03/06/wild-trade-deadline-insider/
+
+**Anaheim Ducks 2026 trade deadline report card: Grading GM Pat Verbeek’s moves**\
+`The Ducks made one of their biggest deadline moves ever, for John Carlson.`\
+https://nytimes.com/athletic/7095256/2026/03/06/anaheim-ducks-2026-nhl-trade-deadline-grades/
+
 **Flyers ease logjam at one position, worsen it at another. That's fine with Briere**\
-`Briere also said he got trade offers for Rasmus Ristolainen, but "nothing that made more sense to trade him, for what he brings.”`\
+`Daniel Briere also said he got trade offers for Rasmus Ristolainen, but "nothing that made more sense to trade him, for what he brings.”`\
 https://nytimes.com/athletic/7095261/2026/03/06/flyers-nhl-trade-deadline-jiricek-defense-ristolainen-brink/
 
 **How the War in Iran Is Disrupting the World’s Oil**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7095215/2026/03/06/detroit-tigers-justin-verlander-
 **Trump Demands ‘Unconditional Surrender’ From Iran**\
 `Also, a weak jobs report. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/03/06/briefing/iran-oil-jobs.html
-
-**High schooler scores 4 baskets in 17 seconds to lift team to state title game**\
-`Ava Smid stole her team a win with an instantly viral scoring blitz at the Iowa girls basketball state tournament.`\
-https://nytimes.com/athletic/7094405/2026/03/06/iowa-high-school-girls-basketball-comeback/
-
-**Russia Is Sharing Intelligence With Iran, U.S. Officials Say**\
-`The information has included satellite imagery showing the locations of military personnel. But some officials played down the significance of the partnership.`\
-https://nytimes.com/2026/03/06/us/politics/russia-iran-partnernship.html
 
