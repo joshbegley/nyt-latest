@@ -1,3 +1,7 @@
+**Americans Struggle to Evacuate the Middle East a Week After Strikes**\
+`One week into the U.S.-Israeli war with Iran, thousands of Americans remain stranded. Despite official promises of help, many say they’ve been left to navigate closed airports, canceled flights and uncertainty on their own.`\
+https://nytimes.com/video/world/middleeast/100000010759942/middle-east-americans-stranded-airlines.html
+
 **This is what happened on March 7.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-7

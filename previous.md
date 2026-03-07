@@ -1,3 +1,7 @@
+**Americans Struggle to Evacuate the Middle East a Week After Strikes**\
+`One week into the U.S.-Israeli war with Iran, thousands of Americans remain stranded. Despite official promises of help, many say they’ve been left to navigate closed airports, canceled flights and uncertainty on their own.`\
+https://nytimes.com/video/world/middleeast/100000010759942/middle-east-americans-stranded-airlines.html
+
 **This is what happened on March 7.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-7
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster
 **Bryce Harper wants MLB players in 2028 Olympics. Could it actually happen?**\
 `“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
 https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
-
-**The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
-`Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
-https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
 
