@@ -1,3 +1,7 @@
+**Netherlands' Ozzie Albies hits first walk-off home run in WBC history**\
+`Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
+https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
+
 **Satellite images show U.S. and Israeli targets in Iran.**\
 `By Adam Goldman, Samuel Granados, Ronen Bergman and Eric Schmitt`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-show-us-and-israeli-targets-in-iran
