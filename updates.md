@@ -1,3 +1,11 @@
+**Evgeni Malkin drama has overshadowed the trade deadline and, perhaps, the season**\
+`There are always two sides to the story when analyzing Malkin, and they are always every bit as confounding as the man himself.`\
+https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-trade-deadline/
+
+**Tarik Skubal says he didn't receive long-term offer from Tigers during offseason**\
+`Skubal, who won the American League Cy Young Award in 2024 and 2025, earned a record $32 million in arbitration.`\
+https://nytimes.com/athletic/7097152/2026/03/07/tarik-skubal-detroit-tigers-extension-offer/
+
 **Gavin McKenna waives preliminary hearing in assault case**\
 `The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
 https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
