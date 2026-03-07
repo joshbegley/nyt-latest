@@ -1,3 +1,11 @@
+**Edu set to leave Nottingham Forest just eight months after appointment**\
+`The Brazilian was appointed in the position in July 2025 having previously been the sporting director at Arsenal.`\
+https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
+
+**Iranian president’s apology showcases rifts among the country’s leaders.**\
+`By Leily Nikounazar and Aaron Boxerman`\
+https://nytimes.com/2026/03/07/world/middleeast/iranian-president-apology.html
+
 **The Briefing: England 2-0 Iceland - James brings the joy, crucial save from Hampton**\
 `England were given a stubborn test by a compact Icelandic defence that at times frustrated the European champions`\
 https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/

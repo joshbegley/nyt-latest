@@ -1,3 +1,7 @@
+**Edu set to leave Nottingham Forest just eight months after appointment**\
+`The Brazilian was appointed in the position in July 2025 having previously been the sporting director at Arsenal.`\
+https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
+
 **The Briefing: England 2-0 Iceland - James brings the joy, crucial save from Hampton**\
 `England were given a stubborn test by a compact Icelandic defence that at times frustrated the European champions`\
 https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
@@ -8,7 +12,7 @@ https://nytimes.com/athletic/7095210/2026/03/07/venezuela-world-baseball-classic
 
 **Iranian president’s apology showcases rifts among the country’s leaders.**\
 `By Leily Nikounazar and Aaron Boxerman`\
-https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/iranian-president-apology
+https://nytimes.com/2026/03/07/world/middleeast/iranian-president-apology.html
 
 **Miami (Ohio) is a perfect college basketball team causing an insufferable debate**\
 `A wretched discourse from college football has crossed into basketball: Is a non-power team deserving of a shot on the sport's main stage?`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/arts/music/andris-nelsons-boston-symphony-orchest
 **Vodka Sauce Tomato Soup Is Exactly as Luscious as It Sounds**\
 `With serious tomato flavor from roasted canned and cherry tomatoes as well as caramelized tomato paste.`\
 https://nytimes.com/2026/03/07/dining/vodka-sauce-tomato-soup-is-exactly-as-luscious-as-it-sounds.html
-
-**Map shows the continuing challenges for U.S. forces and international energy supplies.**\
-`By Christoph Koettl and Malika Khurana`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/map-shows-the-continuing-challenges-for-us-forces-and-international-energy-supplies
 
