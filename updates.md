@@ -1,3 +1,8 @@
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **The reality of the NHL trade deadline and how it should shape Canucks' rebuild**\
 `More than anything else, the trade deadline is a process test, and Vancouver can learn from how Friday played out.`\
 https://nytimes.com/athletic/7095416/2026/03/06/vancouver-canucks-nhl-trade-deadline-2026/
