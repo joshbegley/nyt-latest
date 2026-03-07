@@ -1,3 +1,31 @@
+**How to watch Ohio State vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096270/2026/03/07/ohio-state-vs-ucla-stream-how-to-watch-march-7/
+
+**How to watch Arizona State vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096268/2026/03/07/arizona-state-vs-iowa-state-stream-how-to-watch-march-7/
+
+**How to watch New Hampshire vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
+`Find out how to watch the New Hampshire Wildcats play the UMBC Retrievers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096265/2026/03/07/new-hampshire-vs-umbc-stream-how-to-watch-march-7/
+
+**How to watch Georgetown vs. UConn women's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096263/2026/03/07/georgetown-vs-uconn-stream-how-to-watch-march-7/
+
+**How to watch UNC Asheville vs. High Point men's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the UNC Asheville Bulldogs play the High Point Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096261/2026/03/07/unc-asheville-vs-high-point-stream-how-to-watch-march-7/
+
+**How to watch Siena vs. Iona women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Siena Saints play the Iona Gaels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096258/2026/03/07/siena-vs-iona-stream-how-to-watch-march-7/
+
+**Did Senators do enough at trade deadline to support their playoff push — and future?**\
+`Ottawa was quiet ahead of the deadline but did well by adding Warren Foegele and selling David Perron. Could the team have done more?`\
+https://nytimes.com/athletic/7093767/2026/03/07/senators-nhl-trade-deadline-warren-foegele-perron/
+
 **Red Wings' deadline day goes from fireworks to angst in a matter of hours**\
 `Steve Yzerman entered new territory by trading his first-round pick for Justin Faulk. But the Red Wings' day turned after that. `\
 https://nytimes.com/athletic/7095874/2026/03/07/detroit-red-wings-trade-deadline-steve-yzerman-dylan-larkin/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7095587/2026/03/07/blackhawks-trade-deadline-folign
 **Why Drury is taking a big gamble by holding Vincent Trocheck**\
 `The Rangers may be able to get good value for Trocheck in the summer, but there's no guarantee the return will match Friday's offers.`\
 https://nytimes.com/athletic/7095616/2026/03/07/new-york-rangers-trocheck-trade-deadline-chris-drury-offseason-draft/
-
-**Let's pause to remember Rondale Moore, another life gone too soon**\
-`Strong bodies. Fragile lives. It has been a devastating year for the NFL and college football, with nearly a dozen high-profile deaths.`\
-https://nytimes.com/athletic/7093708/2026/03/07/rondale-moore-death-obit-cardinals-purdue-vikings/
-
-**Mercedes’ dominated Australia qualifying. Its rivals fear F1 2026 is already over**\
-`Mercedes' gap over the rest of the field in Australian GP qualifying have rivals fearing the season's contest is already over`\
-https://nytimes.com/athletic/7096230/2026/03/07/mercedes-2026-f1-car-advantage/
-
-**Maple Leafs prospect watch: Who will we see fill now-open forward spots?**\
-`Nicolas Roy, Bobby McMann and Scott Laughton are gone. Which Marlies could get an opportunity down the stretch?`\
-https://nytimes.com/athletic/7095375/2026/03/07/maple-leafs-prospects-trade-deadline-2026/
-
-**Mirtle: NHL's odd trade deadline showcases league's changing of the guard**\
-`It was a relatively dull deadline, but the playoffs should be anything but, with so many new teams trying to topple the old standbys.`\
-https://nytimes.com/athletic/7095764/2026/03/07/nhl-trade-deadline-changing-of-guard/
-
-**Grading every NHL team's trade deadline moves (or lack thereof)**\
-`Which teams accomplished their goals, and which left their fan bases fuming? We grade all 32 clubs on their performance at the deadline.`\
-https://nytimes.com/athletic/7095504/2026/03/07/nhl-trade-deadline-2026-team-grades/
-
-**My Sister’s Crime Shattered Our Family. Do I Have to Help Her?**\
-`If I refuse, her future looks shakier. If I help, my family may never forgive me.`\
-https://nytimes.com/2026/03/07/magazine/sisters-crime-family-ethics.html
-
-**Inside the Blue Jays' next wave of rotation depth**\
-`Grant Rogers, CJ Van Eyk and other emerging pitchers could earn a spot in the majors this season. `\
-https://nytimes.com/athletic/7094299/2026/03/07/blue-jays-pitching-depth/
 
