@@ -1,3 +1,15 @@
+**Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
+`In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
+https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/
+
+**The making of Castellanos, the 'X-factor' forward driving West Ham's survival bid**\
+`The Premier League club first considered signing the Argentine forward in 2022. Now they have him, he is showing why they admired him`\
+https://nytimes.com/athletic/6961322/2026/03/07/taty-castellanos-west-ham-making-of/
+
+**Newcastle's goalkeeper situation is shrouded in uncertainty. Eddie Howe has a decision to make**\
+`Nick Pope appears to have been replaced by Aaron Ramsdale, but for how long and in which competitions? `\
+https://nytimes.com/athletic/7086190/2026/03/07/pope-ramsdale-newcastle-premier-league-champions-league-fa-cup/
+
 **Tottenham decided not to spend big in January. Now it may cost them far more**\
 `Johan Lange claimed there were ‘very few players’ who could make a difference at Spurs ‘now or in the future’. But is that really the case?`\
 https://nytimes.com/athletic/7093275/2026/03/07/tottenham-premier-league-relegation-transfers/
