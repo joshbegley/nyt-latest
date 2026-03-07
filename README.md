@@ -1,3 +1,7 @@
+**When DOGE Unleashed ChatGPT on the Humanities**\
+`Documents reveal how A.I. was used to cancel most previously approved grants by the National Endowment for the Humanities as the agency embraced President Trump’s “America First” agenda.`\
+https://nytimes.com/2026/03/07/arts/humanities-endowment-doge-trump.html
+
 **Russia is back and winning medals as Paralympics open under political tension**\
 `The 2026 Paralympics have begun under political tension as Russia's return has sparked controversy — and already resulted in medals.`\
 https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals-ukraine/
@@ -10,7 +14,7 @@ https://nytimes.com/2026/03/07/arts/thaddeus-mosley-dead.html
 `Murray continued to call games throughout his debilitating cancer treatment until last season, when it all became too much.`\
 https://nytimes.com/athletic/7097227/2026/03/07/blackhawks-broadcaster-troy-murray-dies/
 
-**Israel Renews Search for Missing Airman Amid Clashes in Lebanon’s Bekaa Valley**\
+**Deadly Clashes in Lebanon as Israel Renews Search for Missing Airman**\
 `Dozens were killed in the Bekaa Valley overnight, the Lebanese health authorities said, amid airstrikes and intense violence in the town of Nabi Sheet.`\
 https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097152/2026/03/07/tarik-skubal-detroit-tigers-exte
 **Gavin McKenna waives preliminary hearing in assault case**\
 `The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
 https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
-
-**Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
-`At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
-https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html
 

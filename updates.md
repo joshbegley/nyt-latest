@@ -1,3 +1,23 @@
+**Russia is back and winning medals as Paralympics open under political tension**\
+`The 2026 Paralympics have begun under political tension as Russia's return has sparked controversy — and already resulted in medals.`\
+https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals-ukraine/
+
+**Thaddeus Mosley, Sculptor Who Found Fame in His Last Decade, Dies at 99**\
+`A self-taught artist, he turned reclaimed wood into striking abstract works influenced by Brancusi, Noguchi and African art.`\
+https://nytimes.com/2026/03/07/arts/thaddeus-mosley-dead.html
+
+**Blackhawks broadcaster Troy Murray leaves legacy of laughter, unfillable void**\
+`Murray continued to call games throughout his debilitating cancer treatment until last season, when it all became too much.`\
+https://nytimes.com/athletic/7097227/2026/03/07/blackhawks-broadcaster-troy-murray-dies/
+
+**Israel Renews Search for Missing Airman Amid Clashes in Lebanon’s Bekaa Valley**\
+`Dozens were killed in the Bekaa Valley overnight, the Lebanese health authorities said, amid airstrikes and intense violence in the town of Nabi Sheet.`\
+https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
+
+**Bills, center Connor McGovern agree to four-year, $52 million deal: Sources**\
+`McGovern would have been a hot commodity on the open market.`\
+https://nytimes.com/athletic/7097254/2026/03/07/connor-mcgovern-bills-nfl-free-agency-2026/
+
 **Two Toronto-Area Synagogues Are Struck by Gunfire**\
 `The episodes, which happened late Friday and early Saturday, came after a third synagogue was damaged by gunfire on Monday, officials said.`\
 https://nytimes.com/2026/03/07/world/canada/toronto-synagogue-shootings-canada.html
