@@ -1,3 +1,19 @@
+**Young New Yorkers Decided the Revolution Will Have Roommates**\
+`Mayor Zohran Mamdani’s focus on freezing the rent as part of his affordability platform has unleashed a new political force of younger renters.`\
+https://nytimes.com/2026/03/07/nyregion/rent-ripoff-hearing-mamdani.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/07/crosswords/spelling-bee-forum.html
+
+**Forget Florida. They Got Older and Moved to New York.**\
+`A growing number of older transplants have been undeterred by the city’s high costs, and are connecting with young neighbors over brunches, birthday parties and running clubs.`\
+https://nytimes.com/2026/03/07/nyregion/older-adults-nyc-move.html
+
+**Historic District Rules May Keep NoHo Parking Lot From Becoming Housing**\
+`Some residents in the Manhattan neighborhood are fighting the construction of two apartment towers, which could rise up to 19 stories on the site of a parking lot.`\
+https://nytimes.com/2026/03/07/nyregion/noho-manhattan-parking-lot-housing.html
+
 **Rob Edwards and his Wolves players must now prolong the delicate truce at Molineux**\
 `The effective end of Wolves' campaign brought polite applause from home fans. Recent results have given some optimism in a sorry season`\
 https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans-reaction/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon
 **Russell storms to Australian GP pole as Mercedes dominates qualifying for 2026 F1 opener**\
 `George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
 https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
-
-**The New York Times in Print for Saturday, March 7, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/07/todays-new-york-times
-
-**Miami (Ohio) escapes Ohio in overtime to complete perfect regular season**\
-`Miami wouldn’t be denied despite three technical fouls, going to a fourth overtime this season and allowing Ohio to attempt the final shot.`\
-https://nytimes.com/athletic/7095967/2026/03/07/miami-red-hawks-undefeated-regular-season-ot-win/
-
-**We Taste-Tested 59 Types of Sardines. These Are the Best.**\
-`Text by Kathleen Squires`\
-https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
-
-**Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
-`In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
-https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/
 

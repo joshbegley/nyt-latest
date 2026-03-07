@@ -1,3 +1,7 @@
+**Rob Edwards and his Wolves players must now prolong the delicate truce at Molineux**\
+`The effective end of Wolves' campaign brought polite applause from home fans. Recent results have given some optimism in a sorry season`\
+https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans-reaction/
+
 **Russell storms to Australian GP pole as Mercedes dominates qualifying for 2026 F1 opener**\
 `George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
 https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/

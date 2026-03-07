@@ -1,3 +1,7 @@
+**Rob Edwards and his Wolves players must now prolong the delicate truce at Molineux**\
+`The effective end of Wolves' campaign brought polite applause from home fans. Recent results have given some optimism in a sorry season`\
+https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans-reaction/
+
 **Michael McCarron delivers in Wild debut with 2 points, game-winner: Takeaways**\
 `McCarron became the 33rd player in Wild history to score in his debut with the team as the Minnesota Wild swept the season series.`\
 https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
 **Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
 `In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
 https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/
-
-**The making of Castellanos, the 'X-factor' forward driving West Ham's survival bid**\
-`The Premier League club first considered signing the Argentine forward in 2022. Now they have him, he is showing why they admired him`\
-https://nytimes.com/athletic/6961322/2026/03/07/taty-castellanos-west-ham-making-of/
 
