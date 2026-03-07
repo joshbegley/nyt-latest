@@ -1,3 +1,7 @@
+**How Logan Webb sealed his decision to play for Team USA on a country singer's tour bus**\
+`A pre-show hang in November with David Ross, Pat McAfee and ERNEST in Nashville ended up doubling as a recruiting pitch to the Giants ace.`\
+https://nytimes.com/athletic/7096338/2026/03/07/logan-webb-team-usa-world-baseball-classic-ernest/
+
 **Trial for pitchers tied to gambling scheme pushed to November as conflicting defenses mount**\
 `It's not yet determined whether Emmanuel Clase and Luis Ortiz will stand trial separately, as both pitchers have requested.`\
 https://nytimes.com/athletic/7095740/2026/03/07/guardians-emmanuel-clase-luis-ortiz-gambling-trial-date/
