@@ -1,3 +1,7 @@
+**Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
+`"I beat the odds," says Ball. `\
+https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
+
 **The Pulse: The case for Miami (Ohio)**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7096096/2026/03/07/the-case-for-miami-ohio-plus-a-doozy-of-an-nfl-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010756058/how-trump-views-war.html
 **It’s Not Enough for Some Iranians to Be Happy About the War**\
 `The Iranian people are not overthrowing their government, and the war is spreading across the region.`\
 https://nytimes.com/2026/03/07/opinion/iran-war-trump.html
-
-**Trump’s Iran War and the Shadow of Iraq**\
-`The desire for a revolutionary presidency gives hubris a lot of space to work.`\
-https://nytimes.com/2026/03/07/opinion/trump-iran-george-w-bush-iraq.html
 
