@@ -1,3 +1,15 @@
+**Inside Real Madrid: How key will Valverde's Celta winner be for Arbeloa? Trent's mistake, Man City next**\
+`Fede Valverde scored a last-gasp winner against Celta Vigo to ease the pressure on Alvaro Arbeloa and lift the mood around the Bernabeu`\
+https://nytimes.com/athletic/7096163/2026/03/07/inside-real-madrid-arbeloa-valverde-trent/
+
+**Predicting the fates of the Giants' 27 free agents**\
+`Who's likely staying and who's likely on the way out with free agency a few days away.`\
+https://nytimes.com/athletic/7095495/2026/03/07/new-york-giants-free-agent-predictions/
+
+**I played only one game in the NBA. This is my one regret**\
+`Ryan Robertson, who played college basketball at Kansas, played one game for the Sacramento Kings. He wishes he did one thing differently.`\
+https://nytimes.com/athletic/7093460/2026/03/07/ryan-robertson-nba-one-game-lesson/
+
 **'Respect the wind': Every tennis player's least-favorite opponent rules over Indian Wells**\
 `In gusty conditions in the California desert, players had to find their rhythm as the wind wreaked havoc.`\
 https://nytimes.com/athletic/6182622/2026/03/07/tennis-wind-indian-wells-weather-conditions/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/07/crosswords/connections-1000.html
 **Economic Warning Signs Pile Up for Republicans Ahead of Midterms**\
 `With employers cutting jobs and gas prices rising amid the war in Iran, Democrats see an opportunity to press their advantage.`\
 https://nytimes.com/2026/03/07/us/politics/economy-midterms-republicans.html
-
-**How Good Intentions Helped Pave Trump’s Road to Iran**\
-`Humanitarians proposed a loophole in international law. Decades later, Trump is jumping through it.`\
-https://nytimes.com/2026/03/07/world/middleeast/how-good-intentions-helped-pave-trumps-road-to-iran.html
-
-**Russia Revels in a Sudden Reversal in Fortunes as Oil and Gas Prices Soar**\
-`President Vladimir V. Putin threatened to cut off remaining gas supplies to Europe as the Iran war drives a surge in energy costs.`\
-https://nytimes.com/2026/03/07/world/europe/russia-iran-oil-exports.html
-
-**How War in the Middle East Could Sow Hunger**\
-`The Persian Gulf is a major source of fertilizers, making the conflict disruptive to the global production of food.`\
-https://nytimes.com/2026/03/07/business/middle-east-war-fertilizer-supplies.html
 
