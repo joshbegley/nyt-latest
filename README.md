@@ -1,3 +1,7 @@
+**Map shows the continuing challenges for U.S. forces and international energy supplies.**\
+`By Christoph Koettl and Malika Khurana`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/map-shows-the-continuing-challenges-for-us-forces-and-international-energy-supplies
+
 **Arteta says multiple Arsenal players 'carrying issues' after win at Mansfield**\
 `Leandro Trossard and Riccardo Calafiori were two established players who did start in the 2-1 win but were forced off with knocks.`\
 https://nytimes.com/athletic/7096714/2026/03/07/arsenal-injury-updates-arteta-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096626/2026/03/07/maine-vs-njit-stream-how-to-watc
 **How to watch Florida vs. Kentucky men's basketball: Time, TV, streaming**\
 `Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096621/2026/03/07/florida-vs-kentucky-stream-how-to-watch-march-7/
-
-**How to watch Mount St. Mary's vs. Merrimack women's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Mount St. Mary's Mountaineers play the Merrimack Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096616/2026/03/07/mount-st-mary-s-vs-merrimack-stream-how-to-watch-march-7/
 

@@ -1,3 +1,7 @@
+**Arteta says multiple Arsenal players 'carrying issues' after win at Mansfield**\
+`Leandro Trossard and Riccardo Calafiori were two established players who did start in the 2-1 win but were forced off with knocks.`\
+https://nytimes.com/athletic/7096714/2026/03/07/arsenal-injury-updates-arteta-fa-cup/
+
 **St. Bonaventure coach Mark Schmidt expected to retire after 19 seasons: Sources**\
 `St. Bonaventure's general manager Adrian Wojnarowski, the longtime ESPN insider, is expected to play a key role in the hiring process.`\
 https://nytimes.com/athletic/7096706/2026/03/07/st-bonaventure-basketball-coach-mark-schmidt-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096621/2026/03/07/florida-vs-kentucky-stream-how-t
 **How to watch Mount St. Mary's vs. Merrimack women's basketball: MAAC Tournament Time, TV, streaming**\
 `Find out how to watch the Mount St. Mary's Mountaineers play the Merrimack Warriors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096616/2026/03/07/mount-st-mary-s-vs-merrimack-stream-how-to-watch-march-7/
-
-**How to watch Montana vs. Northern Arizona women's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Montana Lady Griz play the Northern Arizona Lumberjacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096614/2026/03/07/montana-vs-northern-arizona-stream-how-to-watch-march-7/
 

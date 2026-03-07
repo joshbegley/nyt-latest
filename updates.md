@@ -1,3 +1,7 @@
+**Arteta says multiple Arsenal players 'carrying issues' after win at Mansfield**\
+`Leandro Trossard and Riccardo Calafiori were two established players who did start in the 2-1 win but were forced off with knocks.`\
+https://nytimes.com/athletic/7096714/2026/03/07/arsenal-injury-updates-arteta-fa-cup/
+
 **St. Bonaventure coach Mark Schmidt expected to retire after 19 seasons: Sources**\
 `St. Bonaventure's general manager Adrian Wojnarowski, the longtime ESPN insider, is expected to play a key role in the hiring process.`\
 https://nytimes.com/athletic/7096706/2026/03/07/st-bonaventure-basketball-coach-mark-schmidt-retirement/
