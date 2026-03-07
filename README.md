@@ -1,3 +1,7 @@
+**Justice Department Denounces Federal Judges in Fight Against Law Firms**\
+`The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
+https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html
+
 **Darrell Issa, Vulnerable California Republican, Drops Re-election Bid**\
 `Mr. Issa faced a challenging fight for another term in the House under a newly drawn congressional map.`\
 https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095336/2026/03/06/doug-armstrong-colton-parayko-tr
 **Vanderbilt’s Shea Ralph ejected in upset SEC tournament loss to Ole Miss**\
 `Ralph was tossed for the first time in her career after complaining about a foul call after the Rebels were dominating the Commodores.`\
 https://nytimes.com/athletic/7095607/2026/03/06/vanderbilt-ole-miss-shea-ralph-ejection-sec-tournament/
-
-**San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
-`This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
-https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
 

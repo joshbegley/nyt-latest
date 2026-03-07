@@ -1,3 +1,11 @@
+**Darrell Issa, Vulnerable California Republican, Drops Re-election Bid**\
+`Mr. Issa faced a challenging fight for another term in the House under a newly drawn congressional map.`\
+https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
+
+**Canadiens took a big swing at the deadline and missed, but the swing still told a story**\
+`The Canadiens had the luxury of putting all their eggs in a big basket at the deadline, but that luxury won't last forever.`\
+https://nytimes.com/athletic/7095678/2026/03/06/canadiens-nhl-trade-deadline-kent-hughes-roster-upgrade-inaction/
+
 **The Pentagon’s Attack on Anthropic Is Political**\
 `What happens when the A.I. tools helping to run the country stop sharing the government’s goals? The former Trump A.I. adviser Dean Ball joins “The Ezra Klein Show” to discuss the looming threat of institutional misalignment.`\
 https://nytimes.com/video/opinion/100000010747018/the-pentagons-attack-on-anthropic-is-political.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7095607/2026/03/06/vanderbilt-ole-miss-shea-ralph-e
 **San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
 `This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
 https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
-
-**At trade deadline, Jarmo Kekäläinen behaved like Sabres are a legit contender**\
-`Buffalo's additions are a sign the Sabres aren’t content just getting to the playoffs. They want to be prepared once they get there.`\
-https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadline-2026-jarmo-kekalainen/
-
-**Drury debriefs Rangers deadline: Holding Trocheck, moving Othmann, more**\
-`The Rangers GM and president of hockey operations didn't make any major moves as the trade deadline came to a close.`\
-https://nytimes.com/athletic/7095339/2026/03/06/rangers-chris-drury-trade-deadline-trocheck-othman-fox-comments/
 
