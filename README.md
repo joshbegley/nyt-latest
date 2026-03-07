@@ -1,3 +1,19 @@
+**Tottenham decided not to spend big in January. Now it may cost them far more**\
+`Johan Lange claimed there were ‘very few players’ who could make a difference at Spurs ‘now or in the future’. But is that really the case?`\
+https://nytimes.com/athletic/7093275/2026/03/07/tottenham-premier-league-relegation-transfers/
+
+**How Wrexham can beat Chelsea: Chaos at corners and wing-back width**\
+`Chelsea are one of the worst teams in Europe at defending set pieces, while attacking set pieces is one of Wrexham's biggest strengths...`\
+https://nytimes.com/athletic/7090389/2026/03/07/how-wrexham-can-beat-chelsea-tactics/
+
+**How every Premier League team struggle: What is your club’s 'same-old story’?**\
+`After Arne Slot lamented a familiar end to Liverpool's game on Tuesday our writers run through their club's 'Here we go again!' scenario`\
+https://nytimes.com/athletic/7093038/2026/03/07/premier-league-same-old-story-woe/
+
+**Business of Football: Premier League's 'worrying concentration of talent', EFL's prized assets**\
+`A look back at the can't-miss croissant on the sports conference circuit, and why Bradford City and Wigan Athletic might be attractive buys`\
+https://nytimes.com/athletic/7086174/2026/03/07/business-football-league-one-ft-wimbledon/
+
 **Welcome to Wrexham, from The Athletic's dedicated club correspondent**\
 `Richard Sutcliffe has covered Wrexham AFC since 2023, and has learned plenty in that time`\
 https://nytimes.com/athletic/7082970/2026/03/07/welcome-to-wrexham-athletic/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7089718/2026/03/07/peter-claffey-dunk-ser-duncan-ru
 **Quote of the Day: A Globe-Trotting U.S. Citizen Landed in a Venezuelan Hell**\
 `Quotation of the Day for Saturday, March 7, 2026.`\
 https://nytimes.com/2026/03/06/pageoneplus/quote-of-the-day-a-globe-trotting-us-citizen-landed-in-a-venezuelan-hell.html
-
-**Trump Calls On Private Companies to Take On a Bigger Role in Cyber**\
-`In his National Cybersecurity Strategy, President Trump sought an expanded role for private firms in cyberwarfare. He did not take on China or Russia in the document.`\
-https://nytimes.com/2026/03/06/us/politics/trump-cybersecurity-strategy.html
-
-**Airstrikes hit Tehran’s Mehrabad Airport.**\
-`By Martín González Gómez`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airstrikes-hit-tehrans-mehrabad-airport
-
-**Appeals Court Upholds Protected Status for 350,000 Haitians**\
-`The D.C. Circuit ruled against the Trump administration, ensuring Haitians can remain in the United States and keep working while the underlying lawsuit proceeds.`\
-https://nytimes.com/2026/03/06/us/haiti-tps-appeals-court.html
-
-**State Department Bypasses Congress to Send Israel More Than 20,000 Bombs**\
-`The sale had been under informal review in Congress, but the State Department declared an emergency because of the war in Iran.`\
-https://nytimes.com/2026/03/06/us/politics/state-department-bomb-sale-israel.html
 
