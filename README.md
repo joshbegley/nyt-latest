@@ -1,3 +1,7 @@
+**Michael McCarron delivers in Wild debut with 2 points, game-winner: Takeaways**\
+`McCarron became the 33rd player in Wild history to score in his debut with the team as the Minnesota Wild swept the season series.`\
+https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
+
 **Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
 `The calls for more starts for the 17-year-old winger will only increase after his impressive display in the FA Cup win over Wolves`\
 https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-play
 **The making of Castellanos, the 'X-factor' forward driving West Ham's survival bid**\
 `The Premier League club first considered signing the Argentine forward in 2022. Now they have him, he is showing why they admired him`\
 https://nytimes.com/athletic/6961322/2026/03/07/taty-castellanos-west-ham-making-of/
-
-**Newcastle's goalkeeper situation is shrouded in uncertainty. Eddie Howe has a decision to make**\
-`Nick Pope appears to have been replaced by Aaron Ramsdale, but for how long and in which competitions? `\
-https://nytimes.com/athletic/7086190/2026/03/07/pope-ramsdale-newcastle-premier-league-champions-league-fa-cup/
 
