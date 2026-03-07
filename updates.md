@@ -1,3 +1,7 @@
+**Gavin McKenna waives preliminary hearing in assault case**\
+`The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
+https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
+
 **Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
 `At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
 https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html

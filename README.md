@@ -1,3 +1,11 @@
+**Evgeni Malkin drama has overshadowed the trade deadline and, perhaps, the season**\
+`There are always two sides to the story when analyzing Malkin, and they are always every bit as confounding as the man himself.`\
+https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-trade-deadline/
+
+**Tarik Skubal says he didn't receive long-term offer from Tigers during offseason**\
+`Skubal, who won the American League Cy Young Award in 2024 and 2025, earned a record $32 million in arbitration.`\
+https://nytimes.com/athletic/7097152/2026/03/07/tarik-skubal-detroit-tigers-extension-offer/
+
 **Gavin McKenna waives preliminary hearing in assault case**\
 `The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
 https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/07/us/politics/ice-arrests-slowdown.html
 **Caitlin Clark preparing for Team USA debut, feels 'even better' than start of last season**\
 `Clark says her ultimate Team USA goal is to play on the Olympics squad. "Getting to put on the jersey will be super special.”`\
 https://nytimes.com/athletic/7096874/2026/03/07/caitlin-clark-usa-basketball-indiana-fever-health-status/
-
-**How to watch Winthrop vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the Winthrop Eagles play the High Point Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097140/2026/03/07/winthrop-vs-high-point-stream-how-to-watch-march-7/
-
-**How to watch Flyers vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097137/2026/03/07/flyers-vs-penguins-stream-how-to-watch-march-7/
 

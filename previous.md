@@ -1,3 +1,7 @@
+**Gavin McKenna waives preliminary hearing in assault case**\
+`The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
+https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
+
 **Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
 `At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
 https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097140/2026/03/07/winthrop-vs-high-point-stream-ho
 **How to watch Flyers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097137/2026/03/07/flyers-vs-penguins-stream-how-to-watch-march-7/
-
-**How to watch 76ers vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097135/2026/03/07/76ers-vs-hawks-stream-how-to-watch-march-7/
 
