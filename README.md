@@ -1,3 +1,7 @@
+**The Government’s A.I. Alignment Problem**\
+`The Pentagon’s attack on Anthropic is a signal of government-sanctioned suppression, Trump’s former A.I. adviser Dean Ball argues on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010747012/the-governments-ai-alignment-problem.html
+
 **Malkin suspended 5 games for slashing Buffalo's Rasmus Dahlin**\
 `The Penguins are now missing two of their best players for a daunting run of games, with their playoff berth potentially in jeopardy.`\
 https://nytimes.com/athletic/7095132/2026/03/06/evgeni-malkin-suspension-penguins-slashing-dahlin-dubas/
@@ -22,8 +26,8 @@ https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadlin
 `The Rangers GM and president of hockey operations didn't make any major moves as the trade deadline came to a close.`\
 https://nytimes.com/athletic/7095339/2026/03/06/rangers-chris-drury-trade-deadline-trocheck-othman-fox-comments/
 
-**Mamdani Says His Wife’s Views on Gaza Are No One’s Business**\
-`Rama Duwaji, Mr. Mamdani’s wife, had liked Instagram posts that supported the Hamas-led attack on Israel on Oct. 7, 2023.`\
+**Mamdani Defends Wife Amid Criticism of Her Support for Palestinian Cause**\
+`Rama Duwaji, Mr. Mamdani’s wife, had liked Instagram posts related to the Hamas-led attack on Israel on Oct. 7, 2023.`\
 https://nytimes.com/2026/03/06/nyregion/mamdani-rama-wife-israel.html
 
 **A Sex Scandal and ‘Mein Kampf’ Give Democrats Hope in West Texas Race**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/06/us/politics/texas-democrats-brandon-herrera-youtu
 **Russia Gets Silent Treatment in Paralympics Return**\
 `Russia’s flag was paraded at the opening ceremony of the Paralympics for the first time since 2014 prompting a boycott by several nations led by Ukraine.`\
 https://nytimes.com/2026/03/06/world/europe/2026-paralympics-russia-doping-ukraine-boycott.html
-
-**Senior U.N. official warns of a brewing humanitarian crisis in the Middle East.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/developing-humanitarian-crisis-in-the-mideast
 

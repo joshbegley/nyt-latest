@@ -1,3 +1,7 @@
+**Malkin suspended 5 games for slashing Buffalo's Rasmus Dahlin**\
+`The Penguins are now missing two of their best players for a daunting run of games, with their playoff berth potentially in jeopardy.`\
+https://nytimes.com/athletic/7095132/2026/03/06/evgeni-malkin-suspension-penguins-slashing-dahlin-dubas/
+
 **Doug Armstrong denies Blues leaked Parayko trade, says he ordered check of staff's phone records**\
 `Many assumed that the Blues leaked the trade to try to pressure Parayko to waive his no-trade clause.`\
 https://nytimes.com/athletic/7095336/2026/03/06/doug-armstrong-colton-parayko-trade-leak/
