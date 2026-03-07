@@ -1,6 +1,6 @@
 **Russia wins first medals of Winter Paralympics in 12 years**\
 `Varvara Voronchikhina came third in the downhill women’s standing as Aleksei Bugaev made the podium in the men’s visually impaired race.`\
-https://nytimes.com/athletic/7096275/2026/03/07/russia-wins-first-medals-of-winter-paralympics-in-12-years-with-voronchikhina-bugaev-successes/
+https://nytimes.com/athletic/7096275/2026/03/07/russia-medals-winter-paralympics/
 
 **Hanging Up**\
 `If decreasing dependence on our phones feels impossible, we might benefit from considering what we’d want to fill the space that they occupy.`\
