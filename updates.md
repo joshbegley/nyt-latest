@@ -1,3 +1,19 @@
+**How to watch Southern Miss vs. Appalachian State men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Miss Golden Eagles play the Appalachian State Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097018/2026/03/07/southern-miss-vs-appalachian-state-stream-how-to-watch-march-7/
+
+**How to watch Hampton vs. Towson men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Hampton Pirates play the Towson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096992/2026/03/07/hampton-vs-towson-stream-how-to-watch-march-7/
+
+**How to watch Providence vs. Villanova women's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096982/2026/03/07/providence-vs-villanova-stream-how-to-watch-march-7/
+
+**Man Utd appoint Man City's academy head of coaching**\
+`Hughes joins United from Manchester City, where he held multiple roles across the past 12 years, most recently as academy head of coaching.`\
+https://nytimes.com/athletic/7096934/2026/03/07/manchester-united-academy-football-coach-darren-hughes/
+
 **Ducks look to make postseason splash with 'huge addition' of John Carlson**\
 `Ducks GM Pat Verbeek said trading for the veteran defenseman would "give them a chance to make the playoffs and do well in the playoffs."`\
 https://nytimes.com/athletic/7096064/2026/03/07/anaheim-ducks-john-carlson-trade-outlook/

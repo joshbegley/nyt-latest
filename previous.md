@@ -1,3 +1,19 @@
+**How to watch Southern Miss vs. Appalachian State men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Miss Golden Eagles play the Appalachian State Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097018/2026/03/07/southern-miss-vs-appalachian-state-stream-how-to-watch-march-7/
+
+**How to watch Hampton vs. Towson men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Hampton Pirates play the Towson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096992/2026/03/07/hampton-vs-towson-stream-how-to-watch-march-7/
+
+**How to watch Providence vs. Villanova women's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the Villanova Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096982/2026/03/07/providence-vs-villanova-stream-how-to-watch-march-7/
+
+**Man Utd appoint Man City's academy head of coaching**\
+`Hughes joins United from Manchester City, where he held multiple roles across the past 12 years, most recently as academy head of coaching.`\
+https://nytimes.com/athletic/7096934/2026/03/07/manchester-united-academy-football-coach-darren-hughes/
+
 **Ducks look to make postseason splash with 'huge addition' of John Carlson**\
 `Ducks GM Pat Verbeek said trading for the veteran defenseman would "give them a chance to make the playoffs and do well in the playoffs."`\
 https://nytimes.com/athletic/7096064/2026/03/07/anaheim-ducks-john-carlson-trade-outlook/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
 **The Briefing: England 2 Iceland 0 - James brings the joy, crucial save from Hampton**\
 `Back-to-back European champions given a tough and sometimes frustrating test by a compact defence in latest World Cup qualifier`\
 https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
-
-**Amid political tensions, Team Venezuela shines in WBC opener**\
-`Team Venezuela is finding joy in Miami after numerous anxieties surrounded the group in the lead-up to the World Baseball Classic.`\
-https://nytimes.com/athletic/7095210/2026/03/07/venezuela-world-baseball-classic/
-
-**Iranian President’s Apology Showcases Leadership Rifts**\
-`Masoud Pezeshkian, the Iranian president, apologized for the waves of strikes hitting Gulf states, then hours later claimed Iran had not attacked its “friendly and neighboring countries” in this war.`\
-https://nytimes.com/2026/03/07/world/middleeast/iran-president-pezeshkian-gulf-apology-war.html
-
-**Miami (Ohio) is a perfect college basketball team causing an insufferable debate**\
-`A wretched discourse from college football has crossed into basketball: Is a non-power team deserving of a shot on the sport's main stage?`\
-https://nytimes.com/athletic/7096775/2026/03/07/miami-ohio-undefeated-season-ncaa-tournament-debate/
-
-**Immigration Agents Detain a Reporter in Nashville**\
-`The detention of Estefany Maria Rodriguez Florez, who had sought asylum and is married to an American citizen, raised fears that she had been targeted for her reporting.`\
-https://nytimes.com/2026/03/07/us/immigration-ice-nashville-reporter-detained-tn-estefany-rodriguez-florez.html
 
