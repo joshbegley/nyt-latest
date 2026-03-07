@@ -1,3 +1,7 @@
+**Gas Prices Continue to Surge in U.S., Rising 14% in a Week**\
+`Soaring oil prices suggest that more increases could be in store for American drivers. Diesel, jet fuel, and other refined products are also becoming much more expensive.`\
+https://nytimes.com/2026/03/07/business/gasoline-prices.html
+
 **And Givenchy Created Woman**\
 `Or Sarah Burton, the brand’s creative director, did, in all her multiple incarnations. Rick Owens took Marlene Dietrich punk.`\
 https://nytimes.com/2026/03/07/style/givenchy-sarah-burton-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans
 **Michael McCarron delivers in Wild debut with 2 points, game-winner: Takeaways**\
 `McCarron became the 33rd player in Wild history to score in his debut with the team as the Minnesota Wild swept the season series.`\
 https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
-
-**Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
-`The calls for more starts for the 17-year-old winger will only increase after his impressive display in Friday's FA Cup win at Wolves`\
-https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
 
