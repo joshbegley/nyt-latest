@@ -1,3 +1,11 @@
+**Jayson Tatum returns to Celtics with double-double in win over Mavericks**\
+`"It’s been a long journey, and the culmination of a new journey begins today," Celtics head coach Joe Mazzulla said.`\
+https://nytimes.com/athletic/7095715/2026/03/06/jayson-tatum-returns-celtics-mavericks-nba/
+
+**This is what happened on March 6.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-6
+
 **White House posts bombing videos interspersed with MLB, NFL highlights**\
 `The clips mix videos of explosions with home runs hit by former sluggers and violent hits in pro and college football games.`\
 https://nytimes.com/athletic/7095448/2026/03/06/white-house-post-bombing-videos-mlb-nfl/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-raven
 **Justice Department Denounces Federal Judges in Fight Against Law Firms**\
 `The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
 https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html
-
-**One House Republican in California Retires, and Another Runs as an Independent**\
-`The decisions by Darrell Issa and Kevin Kiley, made newly vulnerable by redistricting, demonstrated the challenges Republicans face in a difficult midterm environment.`\
-https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
-
-**Canadiens took a big swing at the deadline and missed, but the swing still told a story**\
-`The Canadiens had the luxury of putting all their eggs in a big basket at the deadline, but that luxury won't last forever.`\
-https://nytimes.com/athletic/7095678/2026/03/06/canadiens-nhl-trade-deadline-kent-hughes-roster-upgrade-inaction/
 
