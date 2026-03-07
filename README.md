@@ -1,3 +1,7 @@
+**Colts trade LB Zaire Franklin to Packers for DT Colby Wooden: Sources**\
+`Franklin is a former Pro Bowler, while Wooden is coming off his most productive season.`\
+https://nytimes.com/athletic/7097462/2026/03/07/colts-trade-zaire-franklin-packers-colby-wooden/
+
 **Hurley ejected as UConn loses at Marquette, putting No. 1 seed in jeopardy**\
 `Hurley lost it on officials and was tossed after a no-call went against UConn guard Silas Demary Jr.`\
 https://nytimes.com/athletic/7097301/2026/03/07/dan-hurley-ejected-uconn-marquette-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097446/2026/03/07/senators-vs-kraken-stream-how-to
 **How to watch Morehead State vs. Tennessee State men's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Morehead State Eagles play the Tennessee State Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097442/2026/03/07/morehead-state-vs-tennessee-state-stream-how-to-watch-march-7/
-
-**How to watch Warriors vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097440/2026/03/07/warriors-vs-thunder-stream-how-to-watch-march-7/
 
