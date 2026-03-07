@@ -1,3 +1,7 @@
+**Before he faced Aaron Judge, Joseph Contreras had to finish his high school classwork**\
+`The 17-year-old Team Brazil righty, son of former MLB pitcher Jose Contreras, got out of a huge jam against Team USA's star-studded lineup.`\
+https://nytimes.com/athletic/7095722/2026/03/06/joseph-contreras-17-year-old-wbc-usa-brazil/
+
 **Winnipeg Jets trade deadline was a step toward sensible but there's more to be done**\
 `The Jets still have a long way to go to restore faith in the Hellebuyck contender window.`\
 https://nytimes.com/athletic/7095189/2026/03/06/winnipeg-jets-trade-deadline-cheveldayoff-schenn-stanley-contenders/
@@ -34,8 +38,4 @@ https://nytimes.com/video/opinion/100000010747018/the-pentagons-attack-on-anthro
 **Former Presidents Speak at Jesse Jackson’s Memorial**\
 `Barack Obama, Joseph R. Biden Jr. and Bill Clinton were among the dozens of speakers at a public memorial for the late Rev. Jesse Jackson in Chicago on Friday. The event celebrated the civil rights leader’s commitment to public service and racial justice.`\
 https://nytimes.com/video/us/politics/100000010759061/jesse-jackson-memorial-us-presidents.html
-
-**Trump Echoes F.D.R. and Grant in Calling for ‘Unconditional Surrender’**\
-`President Trump demanded that Iran capitulate in the war with the United States, invoking a phrase made famous by statesmen and generals.`\
-https://nytimes.com/2026/03/06/world/middleeast/trump-iran-war-unconditional-surrender.html
 

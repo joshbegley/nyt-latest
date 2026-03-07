@@ -1,3 +1,8 @@
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **Winnipeg Jets trade deadline was a step toward sensible but there's more to be done**\
 `The Jets still have a long way to go to restore faith in the Hellebuyck contender window.`\
 https://nytimes.com/athletic/7095189/2026/03/06/winnipeg-jets-trade-deadline-cheveldayoff-schenn-stanley-contenders/
