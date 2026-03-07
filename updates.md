@@ -1,3 +1,7 @@
+**Justice Department Denounces Federal Judges in Fight Against Law Firms**\
+`The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
+https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html
+
 **Darrell Issa, Vulnerable California Republican, Drops Re-election Bid**\
 `Mr. Issa faced a challenging fight for another term in the House under a newly drawn congressional map.`\
 https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
