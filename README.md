@@ -1,3 +1,7 @@
+**Alyssa Thompson goal secures USWNT’s eighth SheBelieves Cup victory**\
+`The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
+https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
+
 **How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010761139/us-israeli-bombing-ca
 **49ers re-signing kicker Eddy Piñeiro: source**\
 `Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
 https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/
-
-**Tatjana Wood, Award-Winning Comic Book Colorist, Dies at 99**\
-`She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
-https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
 

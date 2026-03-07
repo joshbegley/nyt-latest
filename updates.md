@@ -1,3 +1,11 @@
+**How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
+
+**How to watch Mammoth vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097800/2026/03/07/mammoth-vs-blue-jackets-stream-how-to-watch-march-7/
+
 **Americans Struggle to Evacuate the Middle East a Week After Strikes**\
 `One week into the U.S.-Israeli war with Iran, thousands of Americans remain stranded. Despite official promises of help, many say they’ve been left to navigate closed airports, canceled flights and uncertainty on their own.`\
 https://nytimes.com/video/world/middleeast/100000010759942/middle-east-americans-stranded-airlines.html
