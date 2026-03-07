@@ -1,3 +1,7 @@
+**One President’s Whim. A World in Crisis.**\
+`A week into Trump’s war in Iran, his strategy is still a mystery.`\
+https://nytimes.com/video/opinion/100000010756051/one-presidents-whim-a-world-in-crisis.html
+
 **Russia Hits Ukraine With Deadly Barrage of Missiles and Drones**\
 `At least eight people were killed when a Russian missile hit a five-story apartment building in the city of Kharkiv, and Kyiv and several other regions also came under attack.`\
 https://nytimes.com/2026/03/07/world/europe/russia-ukraine-kharkiv-zelensky-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096313/2026/03/07/wagner-vs-liu-stream-how-to-watc
 **How to watch Bryant vs. Vermont men's basketball: America East Tournament Time, TV, streaming**\
 `Find out how to watch the Bryant Bulldogs play the Vermont Catamounts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096311/2026/03/07/bryant-vs-vermont-stream-how-to-watch-march-7/
-
-**How to watch Richmond vs. George Mason women's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Richmond Spiders play the George Mason Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096309/2026/03/07/richmond-vs-george-mason-stream-how-to-watch-march-7/
 

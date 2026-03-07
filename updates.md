@@ -1,3 +1,7 @@
+**One President’s Whim. A World in Crisis.**\
+`A week into Trump’s war in Iran, his strategy is still a mystery.`\
+https://nytimes.com/video/opinion/100000010756051/one-presidents-whim-a-world-in-crisis.html
+
 **Russia wins first medals of Winter Paralympics in 12 years**\
 `Varvara Voronchikhina came third in the downhill women’s standing as Aleksei Bugaev made the podium in the men’s standing race.`\
 https://nytimes.com/athletic/7096275/2026/03/07/russia-medals-winter-paralympics/
