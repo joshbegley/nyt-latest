@@ -14,7 +14,7 @@ https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/heres-th
 `The Israeli military said Saturday that it had launched more strikes on Iran’s capital. Some hit near the Mehrabad Airport. Footage shared on state media showed explosions and columns of smoke.`\
 https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon
 
-**Qualifying recap from the 2026 F1 Australian Grand Prix**\
+**Russell storms to Australian GP pole as Mercedes dominates qualifying for 2026 F1 opener**\
 `George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
 https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
 

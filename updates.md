@@ -1,3 +1,7 @@
+**Michael McCarron delivers in Wild debut with 2 points, game-winner: Takeaways**\
+`McCarron became the 33rd player in Wild history to score in his debut with the team as the Minnesota Wild swept the season series.`\
+https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
+
 **Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
 `The calls for more starts for the 17-year-old winger will only increase after his impressive display in the FA Cup win over Wolves`\
 https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
