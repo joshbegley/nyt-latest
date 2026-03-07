@@ -1,3 +1,7 @@
+**After whirlwind day, Bobby Brink debuts for his beloved Wild: 'It's good to be home'**\
+`Brink is the latest Minnesota-born player to come to the Wild. Like the rest of them, he was told to focus on winning, not a homecoming.`\
+https://nytimes.com/athletic/7096817/2026/03/07/bobby-brink-wild-flyers-trade-homecoming/
+
 **Pakistan Praised Trump. Now It Risks Being Caught Up in His War.**\
 `U.S. and Israeli strikes on Iran have set off a crippling energy crisis and sparked deadly protests in one of the world’s most populous Muslim nations.`\
 https://nytimes.com/2026/03/07/world/asia/pakistan-trump-us-iran-war.html
