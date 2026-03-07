@@ -1,3 +1,7 @@
+**Blues GM Doug Armstrong on deals that didn’t develop, no-trade clauses, speculation about his future**\
+`Armstrong says no-trade clauses can't stop a team from assessing players' trade value. "You have to explore everything."`\
+https://nytimes.com/athletic/7095203/2026/03/07/blues-doug-armstrong-trade-deadline/
+
 **Blues' GM Doug Armstrong on trades that didn't develop and speculation about other GM jobs**\
 `Armstrong says no-trade clauses can't stop a team from assessing players' trade value. "You have to explore everything."`\
 https://nytimes.com/athletic/7095203/2026/03/07/blues-doug-armstrong-trade-deadline/
