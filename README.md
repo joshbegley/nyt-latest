@@ -1,3 +1,7 @@
+**Iran’s Navy Is Weakened but U.S. Still Faces Challenges in Strait of Hormuz**\
+`U.S. strikes have heavily targeted Iran’s large ships and bases, but its Revolutionary Guard navy is a more nimble force.`\
+https://nytimes.com/2026/03/06/world/middleeast/iran-navy-strait-of-hormuz-satellite-images.html
+
 **Jayson Tatum returns to Celtics with double-double in win over Mavericks**\
 `"It’s been a long journey, and the culmination of a new journey begins today," Celtics head coach Joe Mazzulla said.`\
 https://nytimes.com/athletic/7095715/2026/03/06/jayson-tatum-returns-celtics-mavericks-nba/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
 `Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
 `\
 https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
-
-**Justice Department Denounces Federal Judges in Fight Against Law Firms**\
-`The Trump administration had signaled earlier this week that it was ready to abandon four executive orders seeking to punish law firms, but abruptly reversed course the next day.`\
-https://nytimes.com/2026/03/06/us/politics/justice-department-law-firms-executive-orders.html
 
