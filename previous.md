@@ -1,3 +1,7 @@
+**Eagles, DT Jordan Davis agree to 3-year, $78M extension: Sources**\
+`The new deal includes $65 million in guaranteed money, and it keeps Davis under contract with the Eagles through 2029.`\
+https://nytimes.com/athletic/7097278/2026/03/07/eagles-jordan-davis-contract-extension/
+
 **When DOGE Unleashed ChatGPT on the Humanities**\
 `Documents reveal how A.I. was used to cancel most previously approved grants by the National Endowment for the Humanities as the agency embraced President Trump’s “America First” agenda.`\
 https://nytimes.com/2026/03/07/arts/humanities-endowment-doge-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-tra
 **Tarik Skubal says he didn't receive long-term offer from Tigers during offseason**\
 `Skubal, who won the American League Cy Young Award in 2024 and 2025, earned a record $32 million in arbitration.`\
 https://nytimes.com/athletic/7097152/2026/03/07/tarik-skubal-detroit-tigers-extension-offer/
-
-**Gavin McKenna waives preliminary hearing in assault case**\
-`The Penn State hockey star and NHL Draft prospect was scheduled to appear in front of a magisterial court in Pennsylvania on March 11.`\
-https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearing-waived-assault/
 

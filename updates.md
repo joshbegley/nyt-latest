@@ -1,3 +1,7 @@
+**Eagles, DT Jordan Davis agree to 3-year, $78M extension: Sources**\
+`The new deal includes $65 million in guaranteed money, and it keeps Davis under contract with the Eagles through 2029.`\
+https://nytimes.com/athletic/7097278/2026/03/07/eagles-jordan-davis-contract-extension/
+
 **When DOGE Unleashed ChatGPT on the Humanities**\
 `Documents reveal how A.I. was used to cancel most previously approved grants by the National Endowment for the Humanities as the agency embraced President Trump’s “America First” agenda.`\
 https://nytimes.com/2026/03/07/arts/humanities-endowment-doge-trump.html
