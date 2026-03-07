@@ -1,3 +1,7 @@
+**Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
+`"I beat the odds," says Ball. `\
+https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
+
 **The Pulse: The case for Miami (Ohio)**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7096096/2026/03/07/the-case-for-miami-ohio-plus-a-doozy-of-an-nfl-trade/
