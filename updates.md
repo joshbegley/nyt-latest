@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
 
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **Jayson Tatum returns to Celtics with double-double in win over Mavericks**\
 `"It’s been a long journey, and the culmination of a new journey begins today," Celtics head coach Joe Mazzulla said.`\
 https://nytimes.com/athletic/7095715/2026/03/06/jayson-tatum-returns-celtics-mavericks-nba/
