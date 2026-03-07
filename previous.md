@@ -1,3 +1,7 @@
+**The Pentagon’s Attack on Anthropic Is Political**\
+`What happens when the A.I. tools helping to run the country stop sharing the government’s goals? The former Trump A.I. adviser Dean Ball joins “The Ezra Klein Show” to discuss the looming threat of institutional misalignment.`\
+https://nytimes.com/video/opinion/100000010747018/the-pentagons-attack-on-anthropic-is-political.html
+
 **Former Presidents Speak at Jesse Jackson’s Memorial**\
 `Barack Obama, Joseph R. Biden Jr. and Bill Clinton were among the dozens of speakers at a public memorial for the late Rev. Jesse Jackson in Chicago on Friday. The event celebrated the civil rights leader’s commitment to public service and racial justice.`\
 https://nytimes.com/video/us/politics/100000010759061/jesse-jackson-memorial-us-presidents.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadlin
 **Drury debriefs Rangers deadline: Holding Trocheck, moving Othmann, more**\
 `The Rangers GM and president of hockey operations didn't make any major moves as the trade deadline came to a close.`\
 https://nytimes.com/athletic/7095339/2026/03/06/rangers-chris-drury-trade-deadline-trocheck-othman-fox-comments/
-
-**Mamdani Defends Wife Amid Criticism of Her Support for Palestinian Cause**\
-`Rama Duwaji, Mr. Mamdani’s wife, had liked Instagram posts related to the Hamas-led attack on Israel on Oct. 7, 2023.`\
-https://nytimes.com/2026/03/06/nyregion/mamdani-rama-wife-israel.html
 
