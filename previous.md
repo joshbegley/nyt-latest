@@ -1,3 +1,11 @@
+**This is what happened on March 7.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-7
+
+**Join Together**\
+`Kelly Richardson’s puzzle is a celebration for solvers.`\
+https://nytimes.com/2026/03/07/crosswords/daily-puzzle-2026-03-08.html
+
 **Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
 `After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
 https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
 **The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
 `Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
 https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
-
-**Satellite images show U.S. and Israeli targets in Iran.**\
-`By Adam Goldman, Samuel Granados, Ronen Bergman and Eric Schmitt`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-show-us-and-israeli-targets-in-iran
-
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
-https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
 

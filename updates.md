@@ -1,3 +1,11 @@
+**This is what happened on March 7.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-7
+
+**Join Together**\
+`Kelly Richardson’s puzzle is a celebration for solvers.`\
+https://nytimes.com/2026/03/07/crosswords/daily-puzzle-2026-03-08.html
+
 **Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
 `After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
 https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
