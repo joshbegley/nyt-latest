@@ -1,3 +1,7 @@
+**'Respect the wind': Every tennis player's least-favorite opponent rules over Indian Wells**\
+`In gusty conditions in the California desert, players had to find their rhythm as the wind wreaked havoc.`\
+https://nytimes.com/athletic/6182622/2026/03/07/tennis-wind-indian-wells-weather-conditions/
+
 **Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
 `The writer and activist on how political change happens and taking the long view.`\
 https://nytimes.com/2026/03/07/magazine/rebecca-solnit-interview.html
