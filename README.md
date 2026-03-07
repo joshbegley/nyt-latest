@@ -1,3 +1,7 @@
+**Ohtani homers again as mighty Japan holds off upset bid from Korea in WBC**\
+`Shohei Ohtani homered for the second straight day in the World Baseball Classic. `\
+https://nytimes.com/athletic/7096328/2026/03/07/shohei-ohtani-home-run-japa-korea/
+
 **Maxx Crosby wanted to be a 'Raider for life,' but then it all fell apart**\
 `Maxx Crosby's commitment to the Raiders and their fans was genuine and powerful. But then the situation in Las Vegas changed.`\
 https://nytimes.com/athletic/7096229/2026/03/07/maxx-crosby-trade-ravens-raiders-analysis-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095382/2026/03/07/paralympics-team-usa-sled-hockey
 **Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
 `"I beat the odds," says Ball. `\
 https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
-
-**The Pulse: The case for Miami (Ohio)**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7096096/2026/03/07/the-case-for-miami-ohio-plus-a-doozy-of-an-nfl-trade/
 
