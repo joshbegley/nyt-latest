@@ -1,3 +1,11 @@
+**Doug Armstrong denies Blues leaked Parayko trade, says he ordered check of staff's phone records**\
+`Many assumed that the Blues leaked the trade to try to pressure Parayko to waive his no-trade clause.`\
+https://nytimes.com/athletic/7095336/2026/03/06/doug-armstrong-colton-parayko-trade-leak/
+
+**Vanderbilt's Shea Ralph ejected vs. Ole Miss after arguing foul call**\
+`Ralph was tossed for the first time in her career after complaining about a foul call after the Rebels were dominating the Commodores.`\
+https://nytimes.com/athletic/7095607/2026/03/06/vanderbilt-ole-miss-shea-ralph-ejection-sec-tournament/
+
 **San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
 `This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
 https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
