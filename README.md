@@ -1,3 +1,7 @@
+**U.S. sled hockey, already a Paralympic dynasty, starts quest for fifth straight gold**\
+`"It would make us pretty much infamous in any sport," goalie Griffin LaMarre says of Team USA's pursuit of yet another sled hockey gold.`\
+https://nytimes.com/athletic/7095382/2026/03/07/paralympics-team-usa-sled-hockey-josh-pauls-gold-medal-streak/
+
 **Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
 `"I beat the odds," says Ball. `\
 https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/opinion/trump-iran-war-strategy.html
 **How Trump Views War**\
 `President Trump’s war in Iran isn’t so much a strategy as a game of “Risk,” says the Times Opinion columnist Jamelle Bouie.`\
 https://nytimes.com/video/opinion/100000010756058/how-trump-views-war.html
-
-**It’s Not Enough for Some Iranians to Be Happy About the War**\
-`The Iranian people are not overthrowing their government, and the war is spreading across the region.`\
-https://nytimes.com/2026/03/07/opinion/iran-war-trump.html
 

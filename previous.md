@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7095740/2026/03/07/guardians-emmanuel-clase-luis-or
 `After acquiring two forwards this week, Vegas didn't make any more moves Friday.`\
 https://nytimes.com/athletic/7095305/2026/03/07/vegas-golden-knights-trade-deadline-2026/
 
-**There Are About 20 Canisters Filled With Uranium Somewhere in Iran. We Must Find Them.**\
+**There Is One Crucial Reason We’re Talking About Boots on the Ground**\
 `The U.S. and Israel have no good options to address an unavoidable problem.`\
 https://nytimes.com/2026/03/07/opinion/trump-iran-nuclear-weapons-enriched-uranium-war.html
 

@@ -1,3 +1,7 @@
+**There Is One Crucial Reason We’re Talking About Boots on the Ground**\
+`The U.S. and Israel have no good options to address an unavoidable problem.`\
+https://nytimes.com/2026/03/07/opinion/trump-iran-nuclear-weapons-enriched-uranium-war.html
+
 **Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
 `"I beat the odds," says Ball. `\
 https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
