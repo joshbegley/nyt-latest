@@ -1,3 +1,11 @@
+**February sports card market recap: The biggest sales and trends**\
+`As Honus Wagner dominates the high-end market, Kon Knueppel builds moment at the lower end. `\
+https://nytimes.com/athletic/7096358/2026/03/07/t206-honus-wagner-sales-card-market/
+
+**Ohtani homers again as mighty Japan holds off upset bid from Korea in WBC**\
+`Shohei Ohtani homered for the second straight day in the World Baseball Classic. `\
+https://nytimes.com/athletic/7096328/2026/03/07/shohei-ohtani-home-run-japa-korea/
+
 **Maxx Crosby wanted to be a 'Raider for life,' but then it all fell apart**\
 `Maxx Crosby's commitment to the Raiders and their fans was genuine and powerful. But then the situation in Las Vegas changed.`\
 https://nytimes.com/athletic/7096229/2026/03/07/maxx-crosby-trade-ravens-raiders-analysis-news/
