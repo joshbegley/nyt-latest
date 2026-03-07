@@ -1,3 +1,7 @@
+**Two Toronto-Area Synagogues Are Struck by Gunfire**\
+`The episodes, which happened late Friday and early Saturday, came after a third synagogue was damaged by gunfire on Monday, official said.`\
+https://nytimes.com/2026/03/07/world/canada/toronto-synagogue-shootings-canada.html
+
 **Evgeni Malkin drama has overshadowed the trade deadline and, perhaps, the season**\
 `There are always two sides to the story when analyzing Malkin, and they are always every bit as confounding as the man himself.`\
 https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-trade-deadline/

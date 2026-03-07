@@ -1,3 +1,7 @@
+**Two Toronto-Area Synagogues Are Struck by Gunfire**\
+`The episodes, which happened late Friday and early Saturday, came after a third synagogue was damaged by gunfire on Monday, official said.`\
+https://nytimes.com/2026/03/07/world/canada/toronto-synagogue-shootings-canada.html
+
 **Evgeni Malkin drama has overshadowed the trade deadline and, perhaps, the season**\
 `There are always two sides to the story when analyzing Malkin, and they are always every bit as confounding as the man himself.`\
 https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/world/asia/pakistan-trump-us-iran-war.html
 **ICE Arrests Slowed as Trump Backed Off After Minneapolis**\
 `The drop in arrests reflects a retreat, at least for now, from some of the administration’s most aggressive immigration enforcement tactics.`\
 https://nytimes.com/2026/03/07/us/politics/ice-arrests-slowdown.html
-
-**Caitlin Clark preparing for Team USA debut, feels 'even better' than start of last season**\
-`Clark says her ultimate Team USA goal is to play on the Olympics squad. "Getting to put on the jersey will be super special.”`\
-https://nytimes.com/athletic/7096874/2026/03/07/caitlin-clark-usa-basketball-indiana-fever-health-status/
 
