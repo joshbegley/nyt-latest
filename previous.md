@@ -1,3 +1,7 @@
+**49ers re-signing kicker Eddy Piñeiro: source**\
+`Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
+https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/
+
 **Tatjana Wood, Award-Winning Comic Book Colorist, Dies at 99**\
 `She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
 https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097492/2026/03/07/antoine-griezmann-orlando-city-a
 **What we’re seeing at the WBC: A walk-off and the return of dugout espressos**\
 `Japan honors Yu Darvish before surviving a scare from Korea; Canada may have a path to the quarterfinals`\
 https://nytimes.com/athletic/7097515/2026/03/07/wbc-walkoff-italy-dugout-espressos/
-
-**Netherlands' Ozzie Albies hits first walk-off home run in WBC history**\
-`Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
-https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
 

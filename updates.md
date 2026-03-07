@@ -1,3 +1,7 @@
+**49ers re-signing kicker Eddy Piñeiro: source**\
+`Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
+https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/
+
 **'They have trust in us': Bruins united in playoff push after trade deadline**\
 `Unlike this time last year, the Bruins' roster will not undergo significant change for the rest of the regular season.`\
 https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
