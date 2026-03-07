@@ -1,3 +1,19 @@
+**The Briefing: England 2-0 Iceland - James brings the joy, crucial save from Hampton**\
+`England were given a stubborn test by a compact Icelandic defence that at times frustrated the European champions`\
+https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
+
+**Amid political tensions, Team Venezuela shines in WBC opener**\
+`Team Venezuela is finding joy in Miami after numerous anxieties surrounded the group in the lead-up to the World Baseball Classic.`\
+https://nytimes.com/athletic/7095210/2026/03/07/venezuela-world-baseball-classic/
+
+**Iranian president’s apology showcases rifts among the country’s leaders.**\
+`By Leily Nikounazar and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/iranian-president-apology
+
+**Miami (Ohio) is a perfect college basketball team causing an insufferable debate**\
+`A wretched discourse from college football has crossed into basketball: Is a non-power team deserving of a shot on the sport's main stage?`\
+https://nytimes.com/athletic/7096775/2026/03/07/miami-ohio-undefeated-season-ncaa-tournament-debate/
+
 **Immigration Agents Detain a Reporter in Nashville**\
 `The detention of Estefany Maria Rodriguez Florez, who had sought asylum and is married to an American citizen, raised fears that she had been targeted for her reporting.`\
 https://nytimes.com/2026/03/07/us/immigration-ice-nashville-reporter-detained-tn-estefany-rodriguez-florez.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/07/dining/vodka-sauce-tomato-soup-is-exactly-as-lusc
 **Map shows the continuing challenges for U.S. forces and international energy supplies.**\
 `By Christoph Koettl and Malika Khurana`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/map-shows-the-continuing-challenges-for-us-forces-and-international-energy-supplies
-
-**Arteta says multiple Arsenal players 'carrying issues' after win at Mansfield**\
-`Leandro Trossard and Riccardo Calafiori were two established players who did start in the 2-1 win but were forced off with knocks.`\
-https://nytimes.com/athletic/7096714/2026/03/07/arsenal-injury-updates-arteta-fa-cup/
-
-**St. Bonaventure coach Mark Schmidt expected to retire after 19 seasons: Sources**\
-`St. Bonaventure's general manager Adrian Wojnarowski, the longtime ESPN insider, is expected to play a key role in the hiring process.`\
-https://nytimes.com/athletic/7096706/2026/03/07/st-bonaventure-basketball-coach-mark-schmidt-retirement/
-
-**Gravenberch signs new six-year Liverpool contract**\
-`Gravenberch has made 123 appearances for the club since arriving from Bayern Munich for £34million in the summer of 2023.`\
-https://nytimes.com/athletic/7096662/2026/03/07/ryan-gravenberch-new-liverpool-contract/
-
-**With Jayson Tatum, the Celtics have defied the NBA’s laws of physics**\
-`Jayson Tatum's Achilles tear was supposed to break the Celtics franchise. His return 10 months later showed it has only strengthened it.`\
-https://nytimes.com/athletic/7096084/2026/03/07/jayson-tatum-return-achilles-boston-celtics/
 
