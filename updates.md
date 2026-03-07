@@ -1,3 +1,7 @@
+**Gas Prices Continue to Surge in U.S., Rising 14% in a Week**\
+`Soaring oil prices suggest that more increases could be in store for American drivers. Diesel, jet fuel, and other refined products are also becoming much more expensive.`\
+https://nytimes.com/2026/03/07/business/gasoline-prices.html
+
 **And Givenchy Created Woman**\
 `Or Sarah Burton, the brand’s creative director, did, in all her multiple incarnations. Rick Owens took Marlene Dietrich punk.`\
 https://nytimes.com/2026/03/07/style/givenchy-sarah-burton-fall-2026.html
