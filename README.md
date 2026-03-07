@@ -1,3 +1,7 @@
+**February sports card market recap: The biggest sales and trends**\
+`As Honus Wagner dominates the high-end market, Kon Knueppel builds moment at the lower end. `\
+https://nytimes.com/athletic/7096358/2026/03/07/t206-honus-wagner-sales-card-market/
+
 **Ohtani homers again as mighty Japan holds off upset bid from Korea in WBC**\
 `Shohei Ohtani homered for the second straight day in the World Baseball Classic. `\
 https://nytimes.com/athletic/7096328/2026/03/07/shohei-ohtani-home-run-japa-korea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095398/2026/03/07/colin-rea-cubs-spring-training-r
 **U.S. sled hockey, already a Paralympic dynasty, starts quest for fifth straight gold**\
 `"It would make us pretty much infamous in any sport," goalie Griffin LaMarre says of Team USA's pursuit of yet another sled hockey gold.`\
 https://nytimes.com/athletic/7095382/2026/03/07/paralympics-team-usa-sled-hockey-josh-pauls-gold-medal-streak/
-
-**Ten years sober, Montee Ball is making sure young athletes don't fall the way he did**\
-`"I beat the odds," says Ball. `\
-https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-broncos-sobriety-hall-of-fame/
 
