@@ -1,3 +1,11 @@
+**Los Angeles Marathon Runners Can Get a Finisher Medal After Only 18 Miles**\
+`The decision to award medals to runners who do not complete the entire 26.2-mile race comes as temperatures are set to reach into the 80s on Sunday. Some marathoners disagreed with the change.`\
+https://nytimes.com/2026/03/07/us/los-angeles-marathon-medals.html
+
+**The Briefing: Wrexham 2 Chelsea 4 - VAR woe for hosts, superb Doyle flick, lucky escape for Blues?**\
+`Chelsea are into the FA Cup quarter-finals, but only after enduring a mighty scare from 10-men Wrexham in a six-goal thriller`\
+https://nytimes.com/athletic/7086797/2026/03/07/wrexham-2-chelsea-4-var/
+
 **How to watch Islanders vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097476/2026/03/07/islanders-vs-sharks-stream-how-to-watch-march-7/
