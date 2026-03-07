@@ -1,3 +1,7 @@
+**Winnipeg Jets trade deadline was a step toward sensible but there's more to be done**\
+`The Jets still have a long way to go to restore faith in the Hellebuyck contender window.`\
+https://nytimes.com/athletic/7095189/2026/03/06/winnipeg-jets-trade-deadline-cheveldayoff-schenn-stanley-contenders/
+
 **The reality of the NHL trade deadline and how it should shape Canucks' rebuild**\
 `More than anything else, the trade deadline is a process test, and Vancouver can learn from how Friday played out.`\
 https://nytimes.com/athletic/7095416/2026/03/06/vancouver-canucks-nhl-trade-deadline-2026/
@@ -34,8 +38,4 @@ https://nytimes.com/video/us/politics/100000010759061/jesse-jackson-memorial-us-
 **Trump Echoes F.D.R. and Grant in Calling for ‘Unconditional Surrender’**\
 `President Trump demanded that Iran capitulate in the war with the United States, invoking a phrase made famous by statesmen and generals.`\
 https://nytimes.com/2026/03/06/world/middleeast/trump-iran-war-unconditional-surrender.html
-
-**The Government’s A.I. Alignment Problem**\
-`The Pentagon’s attack on Anthropic is a signal of government-sanctioned suppression, Trump’s former A.I. adviser Dean Ball argues on “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010747012/the-governments-ai-alignment-problem.html
 
