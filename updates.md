@@ -1,3 +1,15 @@
+**Tatjana Wood, Award-Winning Comic Book Colorist, Dies at 99**\
+`She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
+https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
+
+**‘They have trust in us’: Bruins united in playoff push after trade deadline**\
+`Unlike this time last year, the Bruins roster will not undergo significant change for the rest of the regular season.`\
+https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
+
+**Bryce Harper hopes MLB players can participate in 2028 Olympics**\
+`“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
+https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
+
 **The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
 `Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
 https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
