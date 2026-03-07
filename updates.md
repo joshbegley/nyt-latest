@@ -1,3 +1,15 @@
+**Colts trade LB Zaire Franklin to Packers for DT Colby Wooden: Sources**\
+`Franklin is a former Pro Bowler, while Wooden is coming off his most productive season.`\
+https://nytimes.com/athletic/7097462/2026/03/07/colts-trade-zaire-franklin-packers-colby-wooden/
+
+**Hurley ejected as UConn loses at Marquette, putting No. 1 seed in jeopardy**\
+`Hurley lost it on officials and was tossed after a no-call went against UConn guard Silas Demary Jr.`\
+https://nytimes.com/athletic/7097301/2026/03/07/dan-hurley-ejected-uconn-marquette-loss/
+
+**Women's conference tournament takeaways: UConn opens postseason with promising performance**\
+`UConn's quest for another unbeaten national championship season began in earnest Saturday at the Big East tournament.`\
+https://nytimes.com/athletic/7096770/2026/03/07/womens-conference-tournament-uconn-big-east/
+
 **Los Angeles Marathon Runners Can Get a Finisher Medal After Only 18 Miles**\
 `The decision to award medals to runners who do not complete the entire 26.2-mile race comes as temperatures are set to reach into the 80s on Sunday. Some marathoners disagreed with the change.`\
 https://nytimes.com/2026/03/07/us/los-angeles-marathon-medals.html

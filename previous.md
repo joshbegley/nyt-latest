@@ -1,3 +1,15 @@
+**Colts trade LB Zaire Franklin to Packers for DT Colby Wooden: Sources**\
+`Franklin is a former Pro Bowler, while Wooden is coming off his most productive season.`\
+https://nytimes.com/athletic/7097462/2026/03/07/colts-trade-zaire-franklin-packers-colby-wooden/
+
+**Hurley ejected as UConn loses at Marquette, putting No. 1 seed in jeopardy**\
+`Hurley lost it on officials and was tossed after a no-call went against UConn guard Silas Demary Jr.`\
+https://nytimes.com/athletic/7097301/2026/03/07/dan-hurley-ejected-uconn-marquette-loss/
+
+**Women's conference tournament takeaways: UConn opens postseason with promising performance**\
+`UConn's quest for another unbeaten national championship season began in earnest Saturday at the Big East tournament.`\
+https://nytimes.com/athletic/7096770/2026/03/07/womens-conference-tournament-uconn-big-east/
+
 **Los Angeles Marathon Runners Can Get a Finisher Medal After Only 18 Miles**\
 `The decision to award medals to runners who do not complete the entire 26.2-mile race comes as temperatures are set to reach into the 80s on Sunday. Some marathoners disagreed with the change.`\
 https://nytimes.com/2026/03/07/us/los-angeles-marathon-medals.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7097446/2026/03/07/senators-vs-kraken-stream-how-to
 **How to watch Morehead State vs. Tennessee State men's basketball: OVC Tournament Time, TV, streaming**\
 `Find out how to watch the Morehead State Eagles play the Tennessee State Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097442/2026/03/07/morehead-state-vs-tennessee-state-stream-how-to-watch-march-7/
-
-**How to watch Warriors vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097440/2026/03/07/warriors-vs-thunder-stream-how-to-watch-march-7/
-
-**How to watch Elon vs. William & Mary men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Elon Phoenix play the William & Mary Tribe, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097438/2026/03/07/elon-vs-william-mary-stream-how-to-watch-march-7/
-
-**How to watch Longwood vs. Radford women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the Longwood Lancers play the Radford Highlanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097437/2026/03/07/longwood-vs-radford-stream-how-to-watch-march-7/
 
