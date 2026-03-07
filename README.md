@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/07/world/europe/russia-ukraine-kharkiv-zelensky-airstrike.html
 
 **Russia wins first medals of Winter Paralympics in 12 years**\
-`Varvara Voronchikhina came third in the downhill women’s standing as Aleksei Bugaev made the podium in the men’s visually impaired race.`\
+`Varvara Voronchikhina came third in the downhill women’s standing as Aleksei Bugaev made the podium in the men’s standing race.`\
 https://nytimes.com/athletic/7096275/2026/03/07/russia-medals-winter-paralympics/
 
 **Hanging Up**\
