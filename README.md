@@ -1,3 +1,7 @@
+**Maxx Crosby wanted to be a 'Raider for life,' but then it all fell apart**\
+`Maxx Crosby's commitment to the Raiders and their fans was genuine and powerful. But then the situation in Las Vegas changed.`\
+https://nytimes.com/athletic/7096229/2026/03/07/maxx-crosby-trade-ravens-raiders-analysis-news/
+
 **Blues GM Doug Armstrong on deals that didn’t develop, no-trade clauses, speculation about his future**\
 `Armstrong says no-trade clauses can't stop a team from assessing players' trade value. "You have to explore everything."`\
 https://nytimes.com/athletic/7095203/2026/03/07/blues-doug-armstrong-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7088167/2026/03/07/montee-ball-wisconsin-denver-bro
 **The Pulse: The case for Miami (Ohio)**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7096096/2026/03/07/the-case-for-miami-ohio-plus-a-doozy-of-an-nfl-trade/
-
-**How Logan Webb sealed his decision to play for Team USA on a country singer's tour bus**\
-`A pre-show hang in November with David Ross, Pat McAfee and ERNEST in Nashville ended up doubling as a recruiting pitch to the Giants ace.`\
-https://nytimes.com/athletic/7096338/2026/03/07/logan-webb-team-usa-world-baseball-classic-ernest/
 
