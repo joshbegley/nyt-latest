@@ -1,3 +1,7 @@
+**Ian Huntley, Whose Murder of Schoolgirls Appalled Britain, Dies After Prison Attack**\
+`The 2002 deaths of Holly Wells and Jessica Chapman, and the manhunt that led to a local school caretaker, shook the U.K.`\
+https://nytimes.com/2026/03/07/world/europe/ian-huntley-dead-soham-murders-uk.html
+
 **Edu set to leave Nottingham Forest just eight months after appointment**\
 `The Brazilian was appointed in the position in July 2025 having previously been the sporting director at Arsenal.`\
 https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
@@ -10,9 +14,9 @@ https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampto
 `Team Venezuela is finding joy in Miami after numerous anxieties surrounded the group in the lead-up to the World Baseball Classic.`\
 https://nytimes.com/athletic/7095210/2026/03/07/venezuela-world-baseball-classic/
 
-**Iranian president’s apology showcases rifts among the country’s leaders.**\
-`By Leily Nikounazar and Aaron Boxerman`\
-https://nytimes.com/2026/03/07/world/middleeast/iranian-president-apology.html
+**Iranian President’s Apology Showcases Leadership Rifts**\
+`Masoud Pezeshkian, the Iranian president, apologized for the waves of strikes hitting Gulf states, then hours later claimed Iran had not attacked its “friendly and neighboring countries” in this war.`\
+https://nytimes.com/2026/03/07/world/middleeast/iran-president-pezeshkian-gulf-apology-war.html
 
 **Miami (Ohio) is a perfect college basketball team causing an insufferable debate**\
 `A wretched discourse from college football has crossed into basketball: Is a non-power team deserving of a shot on the sport's main stage?`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/a-us-int
 **A Maestro’s Fall From Grace Is a Cautionary Tale Worth Heeding**\
 `Andris Nelsons’s abrupt departure from the Boston Symphony Orchestra shouldn’t be surprising to those who have witnessed his artistic decline.`\
 https://nytimes.com/2026/03/07/arts/music/andris-nelsons-boston-symphony-orchestra.html
-
-**Vodka Sauce Tomato Soup Is Exactly as Luscious as It Sounds**\
-`With serious tomato flavor from roasted canned and cherry tomatoes as well as caramelized tomato paste.`\
-https://nytimes.com/2026/03/07/dining/vodka-sauce-tomato-soup-is-exactly-as-luscious-as-it-sounds.html
 
