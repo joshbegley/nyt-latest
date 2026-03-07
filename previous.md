@@ -1,9 +1,21 @@
+**How to watch North Dakota vs. St. Thomas men's basketball: Summit League Tournament Time, TV, streaming**\
+`Find out how to watch the North Dakota Fightin' Hawks play the Saint Thomas Tommies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097392/2026/03/07/north-dakota-vs-st-thomas-stream-how-to-watch-march-7/
+
+**How to watch Sacramento State vs. Idaho men's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Sacramento State Hornets play the Idaho Vandals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097386/2026/03/07/sacramento-state-vs-idaho-stream-how-to-watch-march-7/
+
+**How to watch Georgia Southern vs. Coastal Carolina men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Georgia Southern Eagles play the Coastal Carolina Chanticleers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097373/2026/03/07/georgia-southern-vs-coastal-carolina-stream-how-to-watch-march-7/
+
 **How to watch Arizona vs. Colorado men's basketball: Time, TV, streaming**\
 `Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097366/2026/03/07/arizona-vs-colorado-stream-how-to-watch-march-7/
 
 **Braves still 'stunned' by Jurickson Profar suspension, Walt Weiss says**\
-`The Braves' manager spoke to the team about how Profar's suspension could provide unexpected opportunities for players to shine.`\
+`Atlanta's manager spoke to the team about how Profar's 162-game suspension could provide unexpected opportunities for players to shine.`\
 https://nytimes.com/athletic/7097306/2026/03/07/braves-jurkickson-profar-suspension-walt-weiss/
 
 **How to watch Auburn vs. Alabama men's basketball: Time, TV, streaming**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals
 **Thaddeus Mosley, Sculptor Who Found Fame in His Last Decade, Dies at 99**\
 `A self-taught artist, he turned reclaimed wood into striking abstract works influenced by Brancusi, Noguchi and African art.`\
 https://nytimes.com/2026/03/07/arts/thaddeus-mosley-dead.html
-
-**Blackhawks broadcaster Troy Murray leaves legacy of laughter, unfillable void**\
-`Murray continued to call games throughout his debilitating cancer treatment until last season, when it all became too much.`\
-https://nytimes.com/athletic/7097227/2026/03/07/blackhawks-broadcaster-troy-murray-dies/
-
-**Deadly Clashes in Lebanon as Israel Renews Search for Missing Airman**\
-`Dozens were killed in the Bekaa Valley overnight, the Lebanese health authorities said, amid airstrikes and intense violence in the town of Nabi Sheet.`\
-https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
-
-**Bills, center Connor McGovern agree to four-year, $52 million deal: Sources**\
-`McGovern would have been a hot commodity on the open market.`\
-https://nytimes.com/athletic/7097254/2026/03/07/connor-mcgovern-bills-nfl-free-agency-2026/
 

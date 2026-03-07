@@ -1,40 +1,40 @@
-**How to watch North Dakota vs. St. Thomas men's basketball: Summit League Tournament Time, TV, streaming**\
-`Find out how to watch the North Dakota Fightin' Hawks play the Saint Thomas Tommies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097392/2026/03/07/north-dakota-vs-st-thomas-stream-how-to-watch-march-7/
+**How to watch Mount St. Mary's vs. Siena men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Mount St. Mary's Mountaineers play the Siena Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097459/2026/03/07/mount-st-mary-s-vs-siena-stream-how-to-watch-march-7/
 
-**How to watch Sacramento State vs. Idaho men's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Sacramento State Hornets play the Idaho Vandals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097386/2026/03/07/sacramento-state-vs-idaho-stream-how-to-watch-march-7/
+**How to watch Hurricanes vs. Flames: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097455/2026/03/07/hurricanes-vs-flames-stream-how-to-watch-march-7/
 
-**How to watch Georgia Southern vs. Coastal Carolina men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia Southern Eagles play the Coastal Carolina Chanticleers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097373/2026/03/07/georgia-southern-vs-coastal-carolina-stream-how-to-watch-march-7/
+**How to watch Senators vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097446/2026/03/07/senators-vs-kraken-stream-how-to-watch-march-7/
 
-**How to watch Arizona vs. Colorado men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097366/2026/03/07/arizona-vs-colorado-stream-how-to-watch-march-7/
+**How to watch Morehead State vs. Tennessee State men's basketball: OVC Tournament Time, TV, streaming**\
+`Find out how to watch the Morehead State Eagles play the Tennessee State Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097442/2026/03/07/morehead-state-vs-tennessee-state-stream-how-to-watch-march-7/
 
-**Braves still 'stunned' by Jurickson Profar suspension, Walt Weiss says**\
-`Atlanta's manager spoke to the team about how Profar's 162-game suspension could provide unexpected opportunities for players to shine.`\
-https://nytimes.com/athletic/7097306/2026/03/07/braves-jurkickson-profar-suspension-walt-weiss/
+**How to watch Warriors vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097440/2026/03/07/warriors-vs-thunder-stream-how-to-watch-march-7/
 
-**How to watch Auburn vs. Alabama men's basketball: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097342/2026/03/07/auburn-vs-alabama-stream-how-to-watch-march-7/
+**How to watch Elon vs. William & Mary men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Elon Phoenix play the William & Mary Tribe, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097438/2026/03/07/elon-vs-william-mary-stream-how-to-watch-march-7/
 
-**Eagles, DT Jordan Davis agree to 3-year, $78M extension: Sources**\
-`The new deal includes $65 million in guaranteed money, and it keeps Davis under contract with the Eagles through 2029.`\
-https://nytimes.com/athletic/7097278/2026/03/07/eagles-jordan-davis-contract-extension/
+**How to watch Longwood vs. Radford women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Longwood Lancers play the Radford Highlanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097437/2026/03/07/longwood-vs-radford-stream-how-to-watch-march-7/
 
-**When DOGE Unleashed ChatGPT on the Humanities**\
-`Documents reveal how A.I. was used to cancel most previously approved grants by the National Endowment for the Humanities as the agency embraced President Trump’s “America First” agenda.`\
-https://nytimes.com/2026/03/07/arts/humanities-endowment-doge-trump.html
+**How to watch Texas Tech vs. BYU men's basketball: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097426/2026/03/07/texas-tech-vs-byu-stream-how-to-watch-march-7/
 
-**Russia is back and winning medals as Paralympics open under political tension**\
-`The 2026 Paralympics have begun under political tension as Russia's return has sparked controversy — and already resulted in medals.`\
-https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals-ukraine/
+**How to watch Utah State vs. Grand Canyon women's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097421/2026/03/07/utah-state-vs-grand-canyon-stream-how-to-watch-march-7/
 
-**Thaddeus Mosley, Sculptor Who Found Fame in His Last Decade, Dies at 99**\
-`A self-taught artist, he turned reclaimed wood into striking abstract works influenced by Brancusi, Noguchi and African art.`\
-https://nytimes.com/2026/03/07/arts/thaddeus-mosley-dead.html
+**How to watch St. John's vs. Seton Hall women's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the St. John's Red Storm play the Seton Hall Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097417/2026/03/07/st-john-s-vs-seton-hall-stream-how-to-watch-march-7/
 
