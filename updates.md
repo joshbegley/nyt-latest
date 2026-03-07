@@ -1,3 +1,7 @@
+**Russell storms to Australian GP pole as Mercedes dominates qualifying for 2026 F1 opener**\
+`George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
+https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
+
 **Michael McCarron delivers in Wild debut with 2 points, game-winner: Takeaways**\
 `McCarron became the 33rd player in Wild history to score in his debut with the team as the Minnesota Wild swept the season series.`\
 https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
