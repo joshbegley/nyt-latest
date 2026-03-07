@@ -1,3 +1,11 @@
+**Satellite images show U.S. and Israeli targets in Iran.**\
+`By Adam Goldman, Samuel Granados, Ronen Bergman and Eric Schmitt`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-show-us-and-israeli-targets-in-iran
+
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
+https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **Ticket punched: LIU first team to make men's NCAA Tournament**\
 `LIU earned the bid for winning an NEC semifinal game because Mercyhurst, not eligible for the postseason, won the other semifinal.`\
 https://nytimes.com/athletic/7097527/2026/03/07/liu-march-madness-bid-wagner-nec-basketball/

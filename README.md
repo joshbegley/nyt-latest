@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7097492/2026/03/07/antoine-griezmann-orlando-city-a
 `Japan honors Yu Darvish before surviving a scare from Korea; Canada may have a path to the quarterfinals`\
 https://nytimes.com/athletic/7097515/2026/03/07/wbc-walkoff-italy-dugout-espressos/
 
-**Netherlands' Ozzie Albies hit first walk-off home run in WBC history**\
+**Netherlands' Ozzie Albies hits first walk-off home run in WBC history**\
 `Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
 https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
 
