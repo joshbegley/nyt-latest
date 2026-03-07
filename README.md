@@ -1,3 +1,7 @@
+**'Respect the wind': Every tennis player's least-favorite opponent rules over Indian Wells**\
+`In gusty conditions in the California desert, players had to find their rhythm as the wind wreaked havoc.`\
+https://nytimes.com/athletic/6182622/2026/03/07/tennis-wind-indian-wells-weather-conditions/
+
 **Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
 `The writer and activist on how political change happens and taking the long view.`\
 https://nytimes.com/2026/03/07/magazine/rebecca-solnit-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/world/europe/russia-iran-oil-exports.html
 **How War in the Middle East Could Sow Hunger**\
 `The Persian Gulf is a major source of fertilizers, making the conflict disruptive to the global production of food.`\
 https://nytimes.com/2026/03/07/business/middle-east-war-fertilizer-supplies.html
-
-**How Talarico Won Texas Democrats With Love, Luck and a Little Restraint**\
-`A carefully disciplined campaign that capitalized on viral media, months of organizing and strong outreach to Latino voters helped propel James Talarico to the center of Texas politics.`\
-https://nytimes.com/2026/03/07/us/politics/how-talarico-won.html
 

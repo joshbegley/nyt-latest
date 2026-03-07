@@ -1,3 +1,7 @@
+**Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
+`The writer and activist on how political change happens and taking the long view.`\
+https://nytimes.com/2026/03/07/magazine/rebecca-solnit-interview.html
+
 **Trump Set to Witness Return of Bodies of U.S. Service Members**\
 `President Trump is scheduled to travel Saturday to Dover Air Force Base in Delaware in the wake of the deaths of six service members.`\
 https://nytimes.com/2026/03/07/us/politics/trump-dover-dignified-transfer-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/business/middle-east-war-fertilizer-supplies.html
 **How Talarico Won Texas Democrats With Love, Luck and a Little Restraint**\
 `A carefully disciplined campaign that capitalized on viral media, months of organizing and strong outreach to Latino voters helped propel James Talarico to the center of Texas politics.`\
 https://nytimes.com/2026/03/07/us/politics/how-talarico-won.html
-
-**One tennis star's journey from Dubai back home — after a title win amid explosions**\
-`How one tennis player — and his family and doubles partner — experienced the military strikes in Dubai, and how they returned home.`\
-https://nytimes.com/athletic/7095181/2026/03/07/tennis-dubai-strikes-impact-harri-heliovaara-flights-tournaments/
 

@@ -1,3 +1,7 @@
+**Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
+`The writer and activist on how political change happens and taking the long view.`\
+https://nytimes.com/2026/03/07/magazine/rebecca-solnit-interview.html
+
 **Trump Set to Witness Return of Bodies of U.S. Service Members**\
 `President Trump is scheduled to travel Saturday to Dover Air Force Base in Delaware in the wake of the deaths of six service members.`\
 https://nytimes.com/2026/03/07/us/politics/trump-dover-dignified-transfer-iran.html
