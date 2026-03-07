@@ -1,5 +1,5 @@
 **Verstappen escapes injury in Melbourne Q1 crash**\
-`Max Verstappen revealed he needed to have his hands X-rayed after he had significant crash during qualifying for the Australian Grand...`\
+`Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
 https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
 
 **'It's constant feedback': What it's like guiding your sibling in Alpine skiing at the Paralympics**\
