@@ -1,3 +1,11 @@
+**The New York Times in Print for Saturday, March 7, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/07/todays-new-york-times
+
+**Miami (Ohio) escapes Ohio in overtime to complete perfect regular season**\
+`Miami wouldn’t be denied despite three technical fouls, going to a fourth overtime this season and allowing Ohio to attempt the final shot.`\
+https://nytimes.com/athletic/7095967/2026/03/07/miami-red-hawks-undefeated-regular-season-ot-win/
+
 **We Taste-Tested 59 Types of Sardines. These Are the Best.**\
 `Text by Kathleen Squires`\
 https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
