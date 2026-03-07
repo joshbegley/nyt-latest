@@ -1,3 +1,7 @@
+**Miami (Ohio) escapes Ohio in overtime to complete perfect regular season**\
+`Miami wouldn’t be denied despite three technical fouls, going to a fourth overtime this season and allowing Ohio to attempt the final shot.`\
+https://nytimes.com/athletic/7095967/2026/03/07/miami-red-hawks-undefeated-regular-season-ot-win/
+
 **We Taste-Tested 59 Types of Sardines. These Are the Best.**\
 `Text by Kathleen Squires`\
 https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086174/2026/03/07/business-football-league-one-ft-
 **Welcome to Wrexham, from The Athletic's dedicated club correspondent**\
 `Richard Sutcliffe has covered Wrexham AFC since 2023, and has learned plenty in that time`\
 https://nytimes.com/athletic/7082970/2026/03/07/welcome-to-wrexham-athletic/
-
-**Surfers in Munich (Yes, Munich) Just Want Their Wave Back**\
-`For decades, enthusiasts rode the cresting Eisbach creek in the southern German city, some 200 miles from the nearest coast. But the wave has vanished, prompting arguments about how to restore it.`\
-https://nytimes.com/2026/03/07/world/europe/munich-surfing-wave.html
 

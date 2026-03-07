@@ -1,3 +1,7 @@
+**We Taste-Tested 59 Types of Sardines. These Are the Best.**\
+`Text by Kathleen Squires`\
+https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
+
 **Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
 `In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
 https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/

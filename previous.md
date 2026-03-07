@@ -1,3 +1,7 @@
+**We Taste-Tested 59 Types of Sardines. These Are the Best.**\
+`Text by Kathleen Squires`\
+https://nytimes.com/card/2026/03/07/smarter-living/wirecutter/
+
 **Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
 `In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
 https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7082970/2026/03/07/welcome-to-wrexham-athletic/
 **Surfers in Munich (Yes, Munich) Just Want Their Wave Back**\
 `For decades, enthusiasts rode the cresting Eisbach creek in the southern German city, some 200 miles from the nearest coast. But the wave has vanished, prompting arguments about how to restore it.`\
 https://nytimes.com/2026/03/07/world/europe/munich-surfing-wave.html
-
-**For Xi, Trump’s Embrace of War Proves China Needs More Power**\
-`China is learning lessons from the war in Iran. Chief among them, the United States may pose an even greater threat than Beijing thought.`\
-https://nytimes.com/2026/03/07/world/asia/china-iran-power.html
 
