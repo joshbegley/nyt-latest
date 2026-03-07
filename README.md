@@ -1,3 +1,15 @@
+**Talk of the Devils: Does it matter if only a few Manchester United players go to the World Cup?**\
+`In this week's Talk of the Devils column we ask the team how much the World Cup matters to Manchester United... and their players`\
+https://nytimes.com/athletic/7094037/2026/03/07/manchester-united-world-cup-players/
+
+**The making of Castellanos, the 'X-factor' forward driving West Ham's survival bid**\
+`The Premier League club first considered signing the Argentine forward in 2022. Now they have him, he is showing why they admired him`\
+https://nytimes.com/athletic/6961322/2026/03/07/taty-castellanos-west-ham-making-of/
+
+**Newcastle's goalkeeper situation is shrouded in uncertainty. Eddie Howe has a decision to make**\
+`Nick Pope appears to have been replaced by Aaron Ramsdale, but for how long and in which competitions? `\
+https://nytimes.com/athletic/7086190/2026/03/07/pope-ramsdale-newcastle-premier-league-champions-league-fa-cup/
+
 **Tottenham decided not to spend big in January. Now it may cost them far more**\
 `Johan Lange claimed there were ‘very few players’ who could make a difference at Spurs ‘now or in the future’. But is that really the case?`\
 https://nytimes.com/athletic/7093275/2026/03/07/tottenham-premier-league-relegation-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/07/world/europe/munich-surfing-wave.html
 **For Xi, Trump’s Embrace of War Proves China Needs More Power**\
 `China is learning lessons from the war in Iran. Chief among them, the United States may pose an even greater threat than Beijing thought.`\
 https://nytimes.com/2026/03/07/world/asia/china-iran-power.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 7, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7095971/2026/03/07/connections-sports-edition-hints-answers-march-7-2026/
-
-**Peter Claffey, A Knight of the Seven Kingdoms' Dunk, and rugby: 'It was his dream to play for Ireland'**\
-`Before he found global fame playing Ser Duncan the Tall, the actor was an Ireland Under-20 rugby international`\
-https://nytimes.com/athletic/7089718/2026/03/07/peter-claffey-dunk-ser-duncan-rugby/
-
-**Quote of the Day: A Globe-Trotting U.S. Citizen Landed in a Venezuelan Hell**\
-`Quotation of the Day for Saturday, March 7, 2026.`\
-https://nytimes.com/2026/03/06/pageoneplus/quote-of-the-day-a-globe-trotting-us-citizen-landed-in-a-venezuelan-hell.html
 
