@@ -1,3 +1,19 @@
+**Young New Yorkers Decided the Revolution Will Have Roommates**\
+`Mayor Zohran Mamdani’s focus on freezing the rent as part of his affordability platform has unleashed a new political force of younger renters.`\
+https://nytimes.com/2026/03/07/nyregion/rent-ripoff-hearing-mamdani.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/07/crosswords/spelling-bee-forum.html
+
+**Forget Florida. They Got Older and Moved to New York.**\
+`A growing number of older transplants have been undeterred by the city’s high costs, and are connecting with young neighbors over brunches, birthday parties and running clubs.`\
+https://nytimes.com/2026/03/07/nyregion/older-adults-nyc-move.html
+
+**Historic District Rules May Keep NoHo Parking Lot From Becoming Housing**\
+`Some residents in the Manhattan neighborhood are fighting the construction of two apartment towers, which could rise up to 19 stories on the site of a parking lot.`\
+https://nytimes.com/2026/03/07/nyregion/noho-manhattan-parking-lot-housing.html
+
 **Rob Edwards and his Wolves players must now prolong the delicate truce at Molineux**\
 `The effective end of Wolves' campaign brought polite applause from home fans. Recent results have given some optimism in a sorry season`\
 https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans-reaction/

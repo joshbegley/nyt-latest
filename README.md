@@ -1,3 +1,11 @@
+**How to watch Austin Peay vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Austin Peay Governors play the Stetson Hatters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096173/2026/03/07/austin-peay-vs-stetson-stream-how-to-watch-march-7/
+
+**How to watch Davidson vs. Rhode Island women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Davidson Wildcats play the Rhode Island Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096171/2026/03/07/davidson-vs-rhode-island-stream-how-to-watch-march-7/
+
 **Young New Yorkers Decided the Revolution Will Have Roommates**\
 `Mayor Zohran Mamdani’s focus on freezing the rent as part of his affordability platform has unleashed a new political force of younger renters.`\
 https://nytimes.com/2026/03/07/nyregion/rent-ripoff-hearing-mamdani.html
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans
 https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-game-winner-takeaways/
 
 **Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
-`The calls for more starts for the 17-year-old winger will only increase after his impressive display in the FA Cup win over Wolves`\
+`The calls for more starts for the 17-year-old winger will only increase after his impressive display in Friday's FA Cup win at Wolves`\
 https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
 
 **Here’s the latest.**\
 `By Farnaz Fassihi, Liam Stack and Max Kim`\
 https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/heres-the-latest
-
-**Live Updates: New Wave of Airstrikes Batters Tehran**\
-`The Israeli military said Saturday that it had launched more strikes on Iran’s capital. Some hit near the Mehrabad Airport. Footage shared on state media showed explosions and columns of smoke.`\
-https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon
-
-**Russell storms to Australian GP pole as Mercedes dominates qualifying for 2026 F1 opener**\
-`George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
-https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
 
