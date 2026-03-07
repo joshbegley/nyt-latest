@@ -1,3 +1,7 @@
+**What Clothes Feel New Now?**\
+`In Paris, Loewe and Polo bring some much needed color and uplift.`\
+https://nytimes.com/2026/03/07/style/what-clothes-feel-new-now.html
+
 **Ian Huntley, Whose Murder of Schoolgirls Appalled Britain, Dies After Prison Attack**\
 `The 2002 deaths of Holly Wells and Jessica Chapman, and the manhunt that led to a local school caretaker, shook the U.K.`\
 https://nytimes.com/2026/03/07/world/europe/ian-huntley-dead-soham-murders-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096747/2026/03/07/wrexham-chelsea-ryan-reynolds-ro
 **A U.S. intelligence assessment in February found that an attack on Iran was unlikely to result in regime change.**\
 `By Julian E. Barnes`\
 https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/a-us-intelligence-assessment-in-february-found-that-an-attack-on-iran-was-unlikely-to-result-in-regime-change
-
-**A Maestro’s Fall From Grace Is a Cautionary Tale Worth Heeding**\
-`Andris Nelsons’s abrupt departure from the Boston Symphony Orchestra shouldn’t be surprising to those who have witnessed his artistic decline.`\
-https://nytimes.com/2026/03/07/arts/music/andris-nelsons-boston-symphony-orchestra.html
 
