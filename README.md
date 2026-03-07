@@ -1,3 +1,7 @@
+**Darrell Issa, Vulnerable California Republican, Drops Re-election Bid**\
+`Mr. Issa faced a challenging fight for another term in the House under a newly drawn congressional map.`\
+https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
+
 **Canadiens took a big swing at the deadline and missed, but the swing still told a story**\
 `The Canadiens had the luxury of putting all their eggs in a big basket at the deadline, but that luxury won't last forever.`\
 https://nytimes.com/athletic/7095678/2026/03/06/canadiens-nhl-trade-deadline-kent-hughes-roster-upgrade-inaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095607/2026/03/06/vanderbilt-ole-miss-shea-ralph-e
 **San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
 `This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
 https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
-
-**At trade deadline, Jarmo Kekäläinen behaved like Sabres are a legit contender**\
-`Buffalo's additions are a sign the Sabres aren’t content just getting to the playoffs. They want to be prepared once they get there.`\
-https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadline-2026-jarmo-kekalainen/
 
