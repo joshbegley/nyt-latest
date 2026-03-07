@@ -1,3 +1,23 @@
+**Mamdani Says His Wife’s Views on Gaza Are No One’s Business**\
+`Rama Duwaji, Mr. Mamdani’s wife, had liked Instagram posts that supported the Hamas-led attack on Israel on Oct. 7, 2023.`\
+https://nytimes.com/2026/03/06/nyregion/mamdani-rama-wife-israel.html
+
+**A Sex Scandal and ‘Mein Kampf’ Give Democrats Hope in West Texas Race**\
+`What had been a safe G.O.P. seat was looking more attainable for Democrats after Representative Tony Gonzales bowed out in favor of a hard-right candidate.`\
+https://nytimes.com/2026/03/06/us/politics/texas-democrats-brandon-herrera-youtube.html
+
+**Russia Gets Silent Treatment in Paralympics Return**\
+`Russia’s flag was paraded at the opening ceremony of the Paralympics for the first time since 2014 prompting a boycott by several nations led by Ukraine.`\
+https://nytimes.com/2026/03/06/world/europe/2026-paralympics-russia-doping-ukraine-boycott.html
+
+**Senior U.N. official warns of a brewing humanitarian crisis in the Middle East.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/06/world/iran-war-trump-israel-lebanon/developing-humanitarian-crisis-in-the-mideast
+
+**Kristi Noem Survived Many Crises. Then She Crossed a Trump Red Line.**\
+`President Trump, who values loyalty, has at times tried to distance himself from his administration’s own actions when they become politically toxic.`\
+https://nytimes.com/2026/03/06/us/politics/trump-noem.html
+
 **Siegel: Selling was the easy part. Building the Leafs back up is the real challenge**\
 `The Leafs now face a far more daunting task of asking and answering difficult questions heading into the offseason.`\
 https://nytimes.com/athletic/7094997/2026/03/06/maple-leafs-trade-deadline-treliving-rebuild-retool-future/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7095106/2026/03/06/blue-jackets-conor-garland-nhl-t
 **Whistleblower accused Aspiration of helping Clippers evade salary cap for Kawhi: Report**\
 `A 2023 SEC whistleblower account alleged that Aspiration helped the Clippers evade the cap to pay Kawhi Leonard "an incentivized bonus."`\
 https://nytimes.com/athletic/7095329/2026/03/06/nba-clippers-kawhi-leonard-aspiration-investigation-whistleblower/
-
-**Inside the Wild's trade deadline: Folignos united, what Brink brings and building playoff depth**\
-`They didn't land a big-name center, but the Wild were optimistic after showing restraint at the trade deadline and addressing areas of need.`\
-https://nytimes.com/athletic/7095271/2026/03/06/wild-trade-deadline-insider/
-
-**Anaheim Ducks 2026 trade deadline report card: Grading GM Pat Verbeek’s moves**\
-`The Ducks made one of their biggest deadline moves ever, for John Carlson.`\
-https://nytimes.com/athletic/7095256/2026/03/06/anaheim-ducks-2026-nhl-trade-deadline-grades/
-
-**Flyers ease logjam at one position, worsen it at another. That's fine with Briere**\
-`Daniel Briere also said he got trade offers for Rasmus Ristolainen, but "nothing that made more sense to trade him, for what he brings.”`\
-https://nytimes.com/athletic/7095261/2026/03/06/flyers-nhl-trade-deadline-jiricek-defense-ristolainen-brink/
-
-**How the War in Iran Is Disrupting the World’s Oil**\
-`Our business reporter Peter Eavis looks at the global implications of the Strait of Hormuz, the narrow waterway to the south of Iran. He analyzes ship activity in the strait, comparing it before and after the United States and Israel initiated attacks on Iran.`\
-https://nytimes.com/video/world/middleeast/100000010750140/how-the-war-in-iran-is-disrupting-the-worlds-oil.html
-
-**Iran War Poses Test for Justice Dept. After Firings Deplete National Security Ranks**\
-`Firings, resignations and diversions to the president’s priorities have left elite counterterrorism and counterintelligence units stretched thin, current and former officials say.`\
-https://nytimes.com/2026/03/06/us/politics/trump-iran-war-doj-dhs-firings.html
 
