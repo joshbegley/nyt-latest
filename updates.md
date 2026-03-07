@@ -1,3 +1,7 @@
+**Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
+`At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
+https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html
+
 **Cowboys place second-round tender on kicker Brandon Aubrey**\
 `The move was expected as Aubrey told reporters last week that the Cowboys had discussed the tender with him.`\
 https://nytimes.com/athletic/7097191/2026/03/07/cowboys-second-round-tender-brandon-aubrey/

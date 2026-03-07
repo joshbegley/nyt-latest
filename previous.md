@@ -1,3 +1,7 @@
+**Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
+`At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
+https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html
+
 **Cowboys place second-round tender on kicker Brandon Aubrey**\
 `The move was expected as Aubrey told reporters last week that the Cowboys had discussed the tender with him.`\
 https://nytimes.com/athletic/7097191/2026/03/07/cowboys-second-round-tender-brandon-aubrey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097137/2026/03/07/flyers-vs-penguins-stream-how-to
 **How to watch 76ers vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097135/2026/03/07/76ers-vs-hawks-stream-how-to-watch-march-7/
-
-**How to watch Northern Arizona vs. Idaho State men's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Northern Arizona Lumberjacks play the Idaho State Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097125/2026/03/07/northern-arizona-vs-idaho-state-stream-how-to-watch-march-7/
 
