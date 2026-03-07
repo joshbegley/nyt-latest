@@ -1,3 +1,19 @@
+**Gravenberch signs new six-year Liverpool contract**\
+`Gravenberch has made 123 appearances for the club since arriving from Bayern Munich for £34million in the summer of 2023.`\
+https://nytimes.com/athletic/7096662/2026/03/07/ryan-gravenberch-new-liverpool-contract/
+
+**With Jayson Tatum, the Celtics have defied the NBA’s laws of physics**\
+`Jayson Tatum's Achilles tear was supposed to break the Celtics franchise. His return 10 months later showed it has only strengthened it.`\
+https://nytimes.com/athletic/7096084/2026/03/07/jayson-tatum-return-achilles-boston-celtics/
+
+**Pie-deas for Pi Day**\
+`March 14 — that is, 3.14 — is a great day for butterscotch banana cream pie, lemon meringue pie and chocolate cream pie with Oreo crust.`\
+https://nytimes.com/2026/03/07/dining/pie-deas-for-pi-day.html
+
+**Ravens' uncharacteristic trade for Maxx Crosby suggests they know what's at stake**\
+`Acquiring Crosby is arguably the boldest and biggest trade in Ravens franchise history. `\
+https://nytimes.com/athletic/7096130/2026/03/07/ravens-trade-maxx-crosby-raiders/
+
 **How to watch Magic vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096628/2026/03/07/magic-vs-timberwolves-stream-how-to-watch-march-7/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7096614/2026/03/07/montana-vs-northern-arizona-stre
 **How to watch Michigan vs. Iowa women's basketball: Big Ten Tournament Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096601/2026/03/07/michigan-vs-iowa-stream-how-to-watch-march-7/
-
-**How to watch Colgate vs. Bucknell women's basketball: Patriot Tournament Time, TV, streaming**\
-`Find out how to watch the Colgate Raiders play the Bucknell Bison, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096602/2026/03/07/colgate-vs-bucknell-stream-how-to-watch-march-7/
-
-**How to watch Drake vs. UIC men's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Drake Bulldogs play the UIC Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096598/2026/03/07/drake-vs-uic-stream-how-to-watch-march-7/
-
-**How to watch Wisconsin vs. Purdue men's basketball: Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096596/2026/03/07/wisconsin-vs-purdue-stream-how-to-watch-march-7/
-
-**How to watch UL Monroe vs. Arkansas State women's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the UL Monroe Warhawks play the Arkansas State Red Wolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096593/2026/03/07/ul-monroe-vs-arkansas-state-stream-how-to-watch-march-7/
 
