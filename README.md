@@ -1,3 +1,11 @@
+**Trump's college sports roundtable: Two hours of talk, with few solutions**\
+`President promises an executive order to fix college sports, while the SCORE Act receives a boost. Here's a breakdown of the meeting.`\
+https://nytimes.com/athletic/7095330/2026/03/06/trump-saving-college-sports-roundtable-executive-order-score-act/
+
+**USL Championship players open season with 'display of unity' over CBA deadlock**\
+`Players from Lexington SC and Louisville City stood in silence for 60 seconds after kickoff as the sold-out crowd cheered.`\
+https://nytimes.com/athletic/7095840/2026/03/06/usl-championship-players-silent-protest-cba-deadlock/
+
 **Maxx Crosby trade grades: Ravens add defensive pillar, Raiders' teardown is complete**\
 `It's yet another bold move for the Ravens, who are remaking the franchise after missing the playoffs in 2025.`\
 https://nytimes.com/athletic/7095895/2026/03/06/maxx-crosby-raiders-ravens-trade-grades/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7095722/2026/03/06/joseph-contreras-17-year-old-wbc
 **Jets' trade deadline was a step toward sensible, but there's more to be done**\
 `The Jets still have a long way to go to restore faith in the Hellebuyck contender window.`\
 https://nytimes.com/athletic/7095189/2026/03/06/winnipeg-jets-trade-deadline-cheveldayoff-schenn-stanley-contenders/
-
-**The reality of the NHL trade deadline and how it should shape Canucks' rebuild**\
-`More than anything else, the trade deadline is a process test, and Vancouver can learn from how Friday played out.`\
-https://nytimes.com/athletic/7095416/2026/03/06/vancouver-canucks-nhl-trade-deadline-2026/
-
-**Trump Maintains That U.S. Has Ample Weapons as Iran War Depletes Stocks**\
-`After meeting with defense contractors at the White House, President Trump said the companies were all committed to increasing production.`\
-https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
 
