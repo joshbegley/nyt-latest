@@ -1,3 +1,7 @@
+**Siegel: Selling was the easy part. Building the Leafs back up is the real challenge**\
+`The Leafs now face a far more daunting task of asking and answering difficult questions heading into the offseason.`\
+https://nytimes.com/athletic/7094997/2026/03/06/maple-leafs-trade-deadline-treliving-rebuild-retool-future/
+
 **Maple Leafs GM Brad Treliving on the trade deadline: What he said, what it means**\
 `Leafs general manager Brad Treliving met with the media Friday for what was maybe his most sombre availability since coming to Toronto.`\
 https://nytimes.com/athletic/7095288/2026/03/06/maple-leafs-trade-deadline-treliving-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010750140/how-the-war-in-iran-i
 **Iran War Poses Test for Justice Dept. After Firings Deplete National Security Ranks**\
 `Firings, resignations and diversions to the president’s priorities have left elite counterterrorism and counterintelligence units stretched thin, current and former officials say.`\
 https://nytimes.com/2026/03/06/us/politics/trump-iran-war-doj-dhs-firings.html
-
-**Bears trading for Patriots center Garrett Bradbury: Sources**\
-`The Bears moved quickly to fill their need at center after the unexpected retirement of Pro Bowler Drew Dalman earlier this week.`\
-https://nytimes.com/athletic/7095316/2026/03/06/garrett-bradbury-traded-bears-patriots-nfl/
 
