@@ -1,40 +1,40 @@
-**Stroll to race in F1 Australian Grand Prix despite failing to set qualifying lap time**\
-`Stroll failed to set a qualifying lap time, and Aston Martin needed to request for the stewards to allow him to start Sunday’s F1 race.`\
-https://nytimes.com/athletic/7096211/2026/03/07/lance-stroll-f1-australian-grand-prix/
+**Trump Set to Witness Return of Bodies of U.S. Service Members**\
+`President Trump is scheduled to travel Saturday to Dover Air Force Base in Delaware in the wake of the deaths of six service members.`\
+https://nytimes.com/2026/03/07/us/politics/trump-dover-dignified-transfer-iran.html
 
-**Verstappen escapes injury in Melbourne Q1 crash**\
-`Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
-https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
+**Europe Didn’t Want War With Iran. But So Far, It Can’t Stay Out of It.**\
+`From London to Rome and beyond, leaders are facing diplomatic headwinds and criticism at home as they take part in a conflict they did not seek.`\
+https://nytimes.com/2026/03/07/world/europe/europe-iran-trump-war-dilemma.html
 
-**'It's constant feedback': What it's like guiding your sibling in Alpine skiing at the Paralympics**\
-`For some Paralympian siblings, focusing on their communication and feedback with one another is the key to success.`\
-https://nytimes.com/athletic/7086605/2026/03/07/paralympics-downhill-skiing-guides-siblings/
+**Epstein Doctor Steps Away From Elite Health Clinics**\
+`Dr. Bernard Kruger once gave a private E.R. membership to Jeffrey Epstein and unnamed “girls.”`\
+https://nytimes.com/2026/03/07/us/epstein-doctors-bernard-kruger.html
 
-**Gas Prices Continue to Surge in U.S., Rising 14% in a Week**\
-`Soaring oil prices suggest that more increases could be in store for American drivers. Diesel, jet fuel, and other refined products are also becoming much more expensive.`\
-https://nytimes.com/2026/03/07/business/gasoline-prices.html
+**Celebrate the 1,000th Connections Puzzle**\
+`Learn about how the game’s editor makes the boards.`\
+https://nytimes.com/2026/03/07/crosswords/connections-1000.html
 
-**And Givenchy Created Woman**\
-`Or Sarah Burton, the brand’s creative director, did, in all her multiple incarnations. Rick Owens took Marlene Dietrich punk.`\
-https://nytimes.com/2026/03/07/style/givenchy-sarah-burton-fall-2026.html
+**Economic Warning Signs Pile Up for Republicans Ahead of Midterms**\
+`With employers cutting jobs and gas prices rising amid the war in Iran, Democrats see an opportunity to press their advantage.`\
+https://nytimes.com/2026/03/07/us/politics/economy-midterms-republicans.html
 
-**How to watch Austin Peay vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
-`Find out how to watch the Austin Peay Governors play the Stetson Hatters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096173/2026/03/07/austin-peay-vs-stetson-stream-how-to-watch-march-7/
+**How Good Intentions Helped Pave Trump’s Road to Iran**\
+`Humanitarians proposed a loophole in international law. Decades later, Trump is jumping through it.`\
+https://nytimes.com/2026/03/07/world/middleeast/how-good-intentions-helped-pave-trumps-road-to-iran.html
 
-**How to watch Davidson vs. Rhode Island women's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Davidson Wildcats play the Rhode Island Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096171/2026/03/07/davidson-vs-rhode-island-stream-how-to-watch-march-7/
+**Russia Revels in a Sudden Reversal in Fortunes as Oil and Gas Prices Soar**\
+`President Vladimir V. Putin threatened to cut off remaining gas supplies to Europe as the Iran war drives a surge in energy costs.`\
+https://nytimes.com/2026/03/07/world/europe/russia-iran-oil-exports.html
 
-**Young New Yorkers Decided the Revolution Will Have Roommates**\
-`Mayor Zohran Mamdani’s focus on freezing the rent as part of his affordability platform has unleashed a new political force of younger renters.`\
-https://nytimes.com/2026/03/07/nyregion/rent-ripoff-hearing-mamdani.html
+**How War in the Middle East Could Sow Hunger**\
+`The Persian Gulf is a major source of fertilizers, making the conflict disruptive to the global production of food.`\
+https://nytimes.com/2026/03/07/business/middle-east-war-fertilizer-supplies.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/07/crosswords/spelling-bee-forum.html
+**How Talarico Won Texas Democrats With Love, Luck and a Little Restraint**\
+`A carefully disciplined campaign that capitalized on viral media, months of organizing and strong outreach to Latino voters helped propel James Talarico to the center of Texas politics.`\
+https://nytimes.com/2026/03/07/us/politics/how-talarico-won.html
 
-**Forget Florida. They Got Older and Moved to New York.**\
-`A growing number of older transplants have been undeterred by the city’s high costs, and are connecting with young neighbors over brunches, birthday parties and running clubs.`\
-https://nytimes.com/2026/03/07/nyregion/older-adults-nyc-move.html
+**One tennis star's journey from Dubai back home — after a title win amid explosions**\
+`How one tennis player — and his family and doubles partner — experienced the military strikes in Dubai, and how they returned home.`\
+https://nytimes.com/athletic/7095181/2026/03/07/tennis-dubai-strikes-impact-harri-heliovaara-flights-tournaments/
 
