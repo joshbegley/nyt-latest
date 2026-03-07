@@ -1,3 +1,7 @@
+**And Givenchy Created Woman**\
+`Or Sarah Burton, the brand’s creative director, did, in all her multiple incarnations. Rick Owens took Marlene Dietrich punk.`\
+https://nytimes.com/2026/03/07/style/givenchy-sarah-burton-fall-2026.html
+
 **How to watch Austin Peay vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Austin Peay Governors play the Stetson Hatters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096173/2026/03/07/austin-peay-vs-stetson-stream-how-to-watch-march-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7095808/2026/03/07/michael-mccarron-wild-knights-ga
 **Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
 `The calls for more starts for the 17-year-old winger will only increase after his impressive display in Friday's FA Cup win at Wolves`\
 https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
-
-**Here’s the latest.**\
-`By Farnaz Fassihi, Liam Stack and Max Kim`\
-https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/heres-the-latest
 

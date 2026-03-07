@@ -1,3 +1,15 @@
+**How to watch Austin Peay vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Austin Peay Governors play the Stetson Hatters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096173/2026/03/07/austin-peay-vs-stetson-stream-how-to-watch-march-7/
+
+**How to watch Davidson vs. Rhode Island women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Davidson Wildcats play the Rhode Island Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096171/2026/03/07/davidson-vs-rhode-island-stream-how-to-watch-march-7/
+
+**Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
+`The calls for more starts for the 17-year-old winger will only increase after his impressive display in Friday's FA Cup win at Wolves`\
+https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
+
 **Young New Yorkers Decided the Revolution Will Have Roommates**\
 `Mayor Zohran Mamdani’s focus on freezing the rent as part of his affordability platform has unleashed a new political force of younger renters.`\
 https://nytimes.com/2026/03/07/nyregion/rent-ripoff-hearing-mamdani.html
