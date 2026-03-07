@@ -1,3 +1,7 @@
+**Stroll to race in F1 Australian Grand Prix despite failing to set qualifying lap time**\
+`Stroll failed to set a qualifying lap time, and Aston Martin needed to request for the stewards to allow him to start Sunday’s F1 race.`\
+https://nytimes.com/athletic/7096211/2026/03/07/lance-stroll-f1-australian-grand-prix/
+
 **Verstappen escapes injury in Melbourne Q1 crash**\
 `Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
 https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
