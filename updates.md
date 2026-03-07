@@ -1,3 +1,15 @@
+**Blue Jackets hold onto UFAs, add Conor Garland's scoring punch for playoff drive**\
+`Blue Jackets GM Don Waddell aimed to not only put his team in a position to make the playoffs, but also have a chance to succeed.`\
+https://nytimes.com/athletic/7095106/2026/03/06/blue-jackets-conor-garland-nhl-trade-deadline/
+
+**Whistleblower accused Aspiration of helping Clippers evade salary cap for Kawhi: Report**\
+`A 2023 SEC whistleblower account alleged that Aspiration helped the Clippers evade the cap to pay Kawhi Leonard "an incentivized bonus."`\
+https://nytimes.com/athletic/7095329/2026/03/06/nba-clippers-kawhi-leonard-aspiration-investigation-whistleblower/
+
+**Alan Trustman, Who Wrote ‘Bullitt’ and ‘Thomas Crown Affair,’ Dies at 95**\
+`In a wide-ranging career, he was a Boston lawyer, a Hollywood screenwriter and a Swiss currency trader.`\
+https://nytimes.com/2026/03/06/movies/alan-trustman-dead.html
+
 **Inside the Wild's trade deadline: Folignos united, what Brink brings and building playoff depth**\
 `They didn't land a big-name center, but the Wild were optimistic after showing restraint at the trade deadline and addressing areas of need.`\
 https://nytimes.com/athletic/7095271/2026/03/06/wild-trade-deadline-insider/
