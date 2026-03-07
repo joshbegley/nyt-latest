@@ -1,3 +1,19 @@
+**How to watch Washington State vs. Portland women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the Portland Pilots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096529/2026/03/07/washington-state-vs-portland-stream-how-to-watch-march-7/
+
+**How to watch North Carolina vs. Louisville women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096510/2026/03/07/north-carolina-vs-louisville-stream-how-to-watch-march-7/
+
+**The Briefing: Mansfield 1 Arsenal 2 - How did history makers Dowman and Salmon do? Madueke brings up century**\
+`Arsenal's quest for a quadruple is still on but they were pushed all the way by third-tier Mansfield  - The Athletic analyses the action`\
+https://nytimes.com/athletic/7086503/2026/03/07/mansfield-1-arsenal-2-madueke-eze-dowman-salmon-arteta/
+
+**What we’re seeing at the WBC: A ballpark proposal, an upset threat and more**\
+`Team Venezuela's Javier Sanoja sent a prescient Tweet years ago and Chinese Taipei fans stick until the end`\
+https://nytimes.com/athletic/7096362/2026/03/07/world-baseball-classic-proposal/
+
 **OG Anunoby, vital on defense and dangerous on offense, can be Knicks' third star**\
 `Anunoby can do things no one else on the Knicks can, thanks to his versatility on both ends of the floor. `\
 https://nytimes.com/athletic/7096074/2026/03/07/og-anunoby-knicks-denver-nuggets/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7096229/2026/03/07/maxx-crosby-trade-ravens-raiders
 **Blues GM Doug Armstrong on deals that didn’t develop, no-trade clauses, his future**\
 `Armstrong says no-trade clauses can't stop a team from assessing players' trade value. "You have to explore everything."`\
 https://nytimes.com/athletic/7095203/2026/03/07/blues-doug-armstrong-trade-deadline/
-
-**Nerve damage and a battery shortage: What's going on at Aston Martin?**\
-`Aston Martin's 2026 to this point nightmarish. Now it goes into the Australian GP unsure it will finish more than a few laps`\
-https://nytimes.com/athletic/7096255/2026/03/07/aston-martin-f1-engine-australian-gp/
-
-**Undrafted Parks Harber and Bo Davidson, a one-time softball ringer, are on the right path now**\
-`Both players went undrafted. Now they're highly ranked power-hitting prospects who could arrive in San Francisco at some point this season.`\
-https://nytimes.com/athletic/7095588/2026/03/07/sf-giants-prospects-parks-harber-bo-davidson/
-
-**Stock watch: Where every Oilers prospect stands after 2026 trade deadline**\
-`The 2025-26 season has been a wild ride for Edmonton Oilers prospects across the hockey world.`\
-https://nytimes.com/athletic/7088507/2026/03/07/edmonton-oilers-prospects-nhl-trade-deadline-2026/
-
-**Big Tech’s Uncertain Future in the Persian Gulf**\
-`The expanding war in the Middle East has added new risks to the trillions of dollars in investments that tech companies have planned in the region.`\
-https://nytimes.com/2026/03/07/business/dealbook/iran-gulf-tech-investments.html
 
