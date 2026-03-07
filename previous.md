@@ -1,3 +1,7 @@
+**Cowboys place second-round tender on kicker Brandon Aubrey**\
+`The move was expected as Aubrey told reporters last week that the Cowboys had discussed the tender with him.`\
+https://nytimes.com/athletic/7097191/2026/03/07/cowboys-second-round-tender-brandon-aubrey/
+
 **Rory McIlroy withdraws from Arnold Palmer Invitational with back injury**\
 `The surprise move comes a week before McIlroy will attempt to defend his Players Championship title and a month before his Masters defense.`\
 https://nytimes.com/athletic/7097207/2026/03/07/rory-mcilroy-arnold-palmer-invitational-back-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097135/2026/03/07/76ers-vs-hawks-stream-how-to-wat
 **How to watch Northern Arizona vs. Idaho State men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Northern Arizona Lumberjacks play the Idaho State Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097125/2026/03/07/northern-arizona-vs-idaho-state-stream-how-to-watch-march-7/
-
-**How to watch Canadiens vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097121/2026/03/07/canadiens-vs-kings-stream-how-to-watch-march-7/
 
