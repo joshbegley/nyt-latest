@@ -1,3 +1,7 @@
+**And Givenchy Created Woman**\
+`Or Sarah Burton, the brand’s creative director, did, in all her multiple incarnations. Rick Owens took Marlene Dietrich punk.`\
+https://nytimes.com/2026/03/07/style/givenchy-sarah-burton-fall-2026.html
+
 **How to watch Austin Peay vs. Stetson women's basketball: ASUN Tournament Time, TV, streaming**\
 `Find out how to watch the Austin Peay Governors play the Stetson Hatters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096173/2026/03/07/austin-peay-vs-stetson-stream-how-to-watch-march-7/
