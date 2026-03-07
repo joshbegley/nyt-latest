@@ -1,3 +1,7 @@
+**Ducks look to make postseason splash with 'huge addition' of John Carlson**\
+`Ducks GM Pat Verbeek said trading for the veteran defenseman would "give them a chance to make the playoffs and do well in the playoffs."`\
+https://nytimes.com/athletic/7096064/2026/03/07/anaheim-ducks-john-carlson-trade-outlook/
+
 **Inter Miami owner says he pays Messi '$70 million to $80 million a year'**\
 `The 38-year-old's deal includes an ownership stake in the club, which significantly enhances the value of his contract.`\
 https://nytimes.com/athletic/7096739/2026/03/07/lionel-messi-inter-miami-salary/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096775/2026/03/07/miami-ohio-undefeated-season-nca
 **Immigration Agents Detain a Reporter in Nashville**\
 `The detention of Estefany Maria Rodriguez Florez, who had sought asylum and is married to an American citizen, raised fears that she had been targeted for her reporting.`\
 https://nytimes.com/2026/03/07/us/immigration-ice-nashville-reporter-detained-tn-estefany-rodriguez-florez.html
-
-**Wrexham co-owners Ryan Reynolds and Rob Mac arrive for FA Cup game against Chelsea**\
-`Wrexham are bidding to reach the quarter-finals for only the fourth time in their history, and the first time since 1997.`\
-https://nytimes.com/athletic/7096747/2026/03/07/wrexham-chelsea-ryan-reynolds-rob-mac/
 

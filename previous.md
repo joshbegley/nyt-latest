@@ -1,3 +1,7 @@
+**Inter Miami owner says he pays Messi '$70 million to $80 million a year'**\
+`The 38-year-old's deal includes an ownership stake in the club, which significantly enhances the value of his contract.`\
+https://nytimes.com/athletic/7096739/2026/03/07/lionel-messi-inter-miami-salary/
+
 **What Clothes Feel New Now?**\
 `In Paris, Loewe and Polo bring some much needed color and uplift.`\
 https://nytimes.com/2026/03/07/style/what-clothes-feel-new-now.html
@@ -10,8 +14,8 @@ https://nytimes.com/2026/03/07/world/europe/ian-huntley-dead-soham-murders-uk.ht
 `The Brazilian was appointed in the position in July 2025 having previously been the sporting director at Arsenal.`\
 https://nytimes.com/athletic/6943190/2026/03/07/edu-nottingham-forest-exit/
 
-**The Briefing: England 2-0 Iceland - James brings the joy, crucial save from Hampton**\
-`England were given a stubborn test by a compact Icelandic defence that at times frustrated the European champions`\
+**The Briefing: England 2 Iceland 0 - James brings the joy, crucial save from Hampton**\
+`Back-to-back European champions given a tough and sometimes frustrating test by a compact defence in latest World Cup qualifier`\
 https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
 
 **Amid political tensions, Team Venezuela shines in WBC opener**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/us/immigration-ice-nashville-reporter-detained-tn
 **Wrexham co-owners Ryan Reynolds and Rob Mac arrive for FA Cup game against Chelsea**\
 `Wrexham are bidding to reach the quarter-finals for only the fourth time in their history, and the first time since 1997.`\
 https://nytimes.com/athletic/7096747/2026/03/07/wrexham-chelsea-ryan-reynolds-rob-mac/
-
-**A U.S. intelligence assessment in February found that an attack on Iran was unlikely to result in regime change.**\
-`By Julian E. Barnes`\
-https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/a-us-intelligence-assessment-in-february-found-that-an-attack-on-iran-was-unlikely-to-result-in-regime-change
 

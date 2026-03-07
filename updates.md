@@ -1,3 +1,11 @@
+**Inter Miami owner says he pays Messi '$70 million to $80 million a year'**\
+`The 38-year-old's deal includes an ownership stake in the club, which significantly enhances the value of his contract.`\
+https://nytimes.com/athletic/7096739/2026/03/07/lionel-messi-inter-miami-salary/
+
+**The Briefing: England 2 Iceland 0 - James brings the joy, crucial save from Hampton**\
+`Back-to-back European champions given a tough and sometimes frustrating test by a compact defence in latest World Cup qualifier`\
+https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
+
 **What Clothes Feel New Now?**\
 `In Paris, Loewe and Polo bring some much needed color and uplift.`\
 https://nytimes.com/2026/03/07/style/what-clothes-feel-new-now.html
