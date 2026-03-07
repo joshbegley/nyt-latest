@@ -1,3 +1,7 @@
+**Ducks look to make postseason splash with 'huge addition' of John Carlson**\
+`Ducks GM Pat Verbeek said trading for the veteran defenseman would "give them a chance to make the playoffs and do well in the playoffs."`\
+https://nytimes.com/athletic/7096064/2026/03/07/anaheim-ducks-john-carlson-trade-outlook/
+
 **Inter Miami owner says he pays Messi '$70 million to $80 million a year'**\
 `The 38-year-old's deal includes an ownership stake in the club, which significantly enhances the value of his contract.`\
 https://nytimes.com/athletic/7096739/2026/03/07/lionel-messi-inter-miami-salary/
