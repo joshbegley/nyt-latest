@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
+`Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
+https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
+
 **Satellite images show U.S. and Israeli targets in Iran.**\
 `By Adam Goldman, Samuel Granados, Ronen Bergman and Eric Schmitt`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-show-us-and-israeli-targets-in-iran
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097462/2026/03/07/colts-trade-zaire-franklin-packe
 **Hurley ejected as UConn loses at Marquette, putting No. 1 seed in jeopardy**\
 `Hurley lost it on officials and was tossed after a no-call went against UConn guard Silas Demary Jr.`\
 https://nytimes.com/athletic/7097301/2026/03/07/dan-hurley-ejected-uconn-marquette-loss/
-
-**Women's conference tournament takeaways: UConn opens postseason with promising performance**\
-`UConn's quest for another unbeaten national championship season began in earnest Saturday at the Big East tournament.`\
-https://nytimes.com/athletic/7096770/2026/03/07/womens-conference-tournament-uconn-big-east/
 

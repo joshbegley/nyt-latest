@@ -1,3 +1,15 @@
+**Tatjana Wood, Award-Winning Comic Book Colorist, Dies at 99**\
+`She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
+https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
+
+**‘They have trust in us’: Bruins united in playoff push after trade deadline**\
+`Unlike this time last year, the Bruins roster will not undergo significant change for the rest of the regular season.`\
+https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
+
+**Bryce Harper hopes MLB players can participate in 2028 Olympics**\
+`“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
+https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
+
 **The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
 `Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
 https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7097515/2026/03/07/wbc-walkoff-italy-dugout-espress
 **Netherlands' Ozzie Albies hits first walk-off home run in WBC history**\
 `Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
 https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
-
-**In War’s First Week, a Punishing Military Campaign With No Coherent Endgame**\
-`The U.S. and Israel have pounded Iran’s leadership and undercut its defense capabilities, but President Trump has offered wildly different explanations for what he hopes to achieve.`\
-https://nytimes.com/2026/03/07/us/politics/iran-war-first-week.html
-
-**Colts trade LB Zaire Franklin to Packers for DT Colby Wooden: Sources**\
-`Franklin is a former Pro Bowler, while Wooden is coming off his most productive season.`\
-https://nytimes.com/athletic/7097462/2026/03/07/colts-trade-zaire-franklin-packers-colby-wooden/
-
-**Hurley ejected as UConn loses at Marquette, putting No. 1 seed in jeopardy**\
-`Hurley lost it on officials and was tossed after a no-call went against UConn guard Silas Demary Jr.`\
-https://nytimes.com/athletic/7097301/2026/03/07/dan-hurley-ejected-uconn-marquette-loss/
 

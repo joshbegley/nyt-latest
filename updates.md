@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 1 Man City 3 - Did Savinho mean it? Why was Pep fuming? Is Newcastle's season on the brink?**\
+`Marmoush continued his remarkable scoring record against Newcastle as City picked off their opponents to reach the FA Cup quarter-finals`\
+https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmoush-pep-reaction/
+
 **Netherlands' Ozzie Albies hits first walk-off home run in WBC history**\
 `Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
 https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
