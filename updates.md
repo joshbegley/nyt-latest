@@ -1,3 +1,8 @@
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **White House posts bombing videos interspersed with MLB, NFL highlights**\
 `The clips mix videos of explosions with home runs hit by former sluggers and violent hits in pro and college football games.`\
 https://nytimes.com/athletic/7095448/2026/03/06/white-house-post-bombing-videos-mlb-nfl/
