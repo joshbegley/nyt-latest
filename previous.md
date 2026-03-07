@@ -1,3 +1,11 @@
+**Pakistan Praised Trump. Now It Risks Being Caught Up in His War.**\
+`U.S. and Israeli strikes on Iran have set off a crippling energy crisis and sparked deadly protests in one of the world’s most populous Muslim nations.`\
+https://nytimes.com/2026/03/07/world/asia/pakistan-trump-us-iran-war.html
+
+**ICE Arrests Slowed as Trump Backed Off After Minneapolis**\
+`The drop in arrests reflects a retreat, at least for now, from some of the administration’s most aggressive immigration enforcement tactics.`\
+https://nytimes.com/2026/03/07/us/politics/ice-arrests-slowdown.html
+
 **Caitlin Clark preparing for Team USA debut, feels 'even better' than start of last season**\
 `Clark says her ultimate Team USA goal is to play on the Olympics squad. "Getting to put on the jersey will be super special.”`\
 https://nytimes.com/athletic/7096874/2026/03/07/caitlin-clark-usa-basketball-indiana-fever-health-status/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097118/2026/03/07/jazz-vs-bucks-stream-how-to-watc
 **How to watch Clippers vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Clippers play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097114/2026/03/07/clippers-vs-grizzlies-stream-how-to-watch-march-7/
-
-**How to watch Predators vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097112/2026/03/07/predators-vs-sabres-stream-how-to-watch-march-7/
-
-**How to watch Colorado vs. West Virginia women's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Colorado Buffaloes play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097100/2026/03/07/colorado-vs-west-virginia-stream-how-to-watch-march-7/
 
