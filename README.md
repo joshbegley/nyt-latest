@@ -1,3 +1,11 @@
+**Russia is back and winning medals as Paralympics open under political tension**\
+`The 2026 Paralympics have begun under political tension as Russia's return has sparked controversy — and already resulted in medals.`\
+https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals-ukraine/
+
+**Thaddeus Mosley, Sculptor Who Found Fame in His Last Decade, Dies at 99**\
+`A self-taught artist, he turned reclaimed wood into striking abstract works influenced by Brancusi, Noguchi and African art.`\
+https://nytimes.com/2026/03/07/arts/thaddeus-mosley-dead.html
+
 **Blackhawks broadcaster Troy Murray leaves legacy of laughter, unfillable void**\
 `Murray continued to call games throughout his debilitating cancer treatment until last season, when it all became too much.`\
 https://nytimes.com/athletic/7097227/2026/03/07/blackhawks-broadcaster-troy-murray-dies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097218/2026/03/07/gavin-mckenna-preliminary-hearin
 **Communities Survey Devastation After Tornadoes in Michigan and Oklahoma**\
 `At least six people were dead and well over a dozen injured between the two states after a series of tornadoes on Friday.`\
 https://nytimes.com/2026/03/07/us/tornado-michigan-oklahoma-storms-weather.html
-
-**Cowboys place second-round tender on kicker Brandon Aubrey**\
-`The move was expected as Aubrey told reporters last week that the Cowboys had discussed the tender with him.`\
-https://nytimes.com/athletic/7097191/2026/03/07/cowboys-second-round-tender-brandon-aubrey/
-
-**Rory McIlroy withdraws from Arnold Palmer Invitational with back injury**\
-`The surprise move comes a week before McIlroy will attempt to defend his Players Championship title and a month before his Masters defense.`\
-https://nytimes.com/athletic/7097207/2026/03/07/rory-mcilroy-arnold-palmer-invitational-back-injury/
 
