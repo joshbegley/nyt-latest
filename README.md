@@ -1,3 +1,7 @@
+**White House posts bombing videos interspersed with MLB, NFL highlights**\
+`The clips mix videos of explosions with home runs hit by former sluggers and violent hits in pro and college football games.`\
+https://nytimes.com/athletic/7095448/2026/03/06/white-house-post-bombing-videos-mlb-nfl/
+
 **Energy**\
 `Fritz Juhnke’s first Saturday puzzle for The New York Times requires some agility.`\
 https://nytimes.com/2026/03/06/crosswords/daily-puzzle-2026-03-07.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/03/06/crosswords/daily-puzzle-2026-03-07.html
 `The 17-year-old Team Brazil righty, son of former MLB pitcher Jose Contreras, got out of a huge jam against Team USA's star-studded lineup.`\
 https://nytimes.com/athletic/7095722/2026/03/06/joseph-contreras-17-year-old-wbc-usa-brazil/
 
-**Winnipeg Jets trade deadline was a step toward sensible but there's more to be done**\
+**Jets' trade deadline was a step toward sensible, but there's more to be done**\
 `The Jets still have a long way to go to restore faith in the Hellebuyck contender window.`\
 https://nytimes.com/athletic/7095189/2026/03/06/winnipeg-jets-trade-deadline-cheveldayoff-schenn-stanley-contenders/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/06/us/politics/darrell-issa-california-retire.html
 **Canadiens took a big swing at the deadline and missed, but the swing still told a story**\
 `The Canadiens had the luxury of putting all their eggs in a big basket at the deadline, but that luxury won't last forever.`\
 https://nytimes.com/athletic/7095678/2026/03/06/canadiens-nhl-trade-deadline-kent-hughes-roster-upgrade-inaction/
-
-**The Pentagon’s Attack on Anthropic Is Political**\
-`What happens when the A.I. tools helping to run the country stop sharing the government’s goals? The former Trump A.I. adviser Dean Ball joins “The Ezra Klein Show” to discuss the looming threat of institutional misalignment.`\
-https://nytimes.com/video/opinion/100000010747018/the-pentagons-attack-on-anthropic-is-political.html
 

@@ -1,3 +1,16 @@
+**Energy**\
+`Fritz Juhnke’s first Saturday puzzle for The New York Times requires some agility.`\
+https://nytimes.com/2026/03/06/crosswords/daily-puzzle-2026-03-07.html
+
+**Before he faced Aaron Judge, Joseph Contreras had to finish his high school classwork**\
+`The 17-year-old Team Brazil righty, son of former MLB pitcher Jose Contreras, got out of a huge jam against Team USA's star-studded lineup.`\
+https://nytimes.com/athletic/7095722/2026/03/06/joseph-contreras-17-year-old-wbc-usa-brazil/
+
+**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
+`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
+`\
+https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
+
 **Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
 `Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
 `\
