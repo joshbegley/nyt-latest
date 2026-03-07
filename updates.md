@@ -1,3 +1,7 @@
+**Appeals Court Upholds Protected Status for 350,000 Haitians**\
+`The D.C. Circuit ruled against the Trump administration, ensuring Haitians can remain in the United States and keep working while the underlying lawsuit proceeds.`\
+https://nytimes.com/2026/03/06/us/haiti-tps-appeals-court.html
+
 **State Department Bypasses Congress to Send Israel More Than 20,000 Bombs**\
 `The sale had been under informal review in Congress, but the State Department declared an emergency because of the war in Iran.`\
 https://nytimes.com/2026/03/06/us/politics/state-department-bomb-sale-israel.html
