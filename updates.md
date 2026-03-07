@@ -1,3 +1,19 @@
+**How to watch Washington State vs. Portland women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the Portland Pilots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096529/2026/03/07/washington-state-vs-portland-stream-how-to-watch-march-7/
+
+**How to watch North Carolina vs. Louisville women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096510/2026/03/07/north-carolina-vs-louisville-stream-how-to-watch-march-7/
+
+**The Briefing: Mansfield 1 Arsenal 2 - How did history makers Dowman and Salmon do? Madueke brings up century**\
+`Arsenal's quest for a quadruple is still on but they were pushed all the way by third-tier Mansfield  - The Athletic analyses the action`\
+https://nytimes.com/athletic/7086503/2026/03/07/mansfield-1-arsenal-2-madueke-eze-dowman-salmon-arteta/
+
+**What we’re seeing at the WBC: A ballpark proposal, an upset threat and more**\
+`Team Venezuela's Javier Sanoja sent a prescient Tweet years ago and Chinese Taipei fans stick until the end`\
+https://nytimes.com/athletic/7096362/2026/03/07/world-baseball-classic-proposal/
+
 **OG Anunoby, vital on defense and dangerous on offense, can be Knicks' third star**\
 `Anunoby can do things no one else on the Knicks can, thanks to his versatility on both ends of the floor. `\
 https://nytimes.com/athletic/7096074/2026/03/07/og-anunoby-knicks-denver-nuggets/
