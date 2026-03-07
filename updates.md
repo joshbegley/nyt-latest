@@ -1,3 +1,19 @@
+**The Briefing: England 2-0 Iceland - James brings the joy, crucial save from Hampton**\
+`England were given a stubborn test by a compact Icelandic defence that at times frustrated the European champions`\
+https://nytimes.com/athletic/7096761/2026/03/07/england-2-iceland-0-james-hampton/
+
+**Amid political tensions, Team Venezuela shines in WBC opener**\
+`Team Venezuela is finding joy in Miami after numerous anxieties surrounded the group in the lead-up to the World Baseball Classic.`\
+https://nytimes.com/athletic/7095210/2026/03/07/venezuela-world-baseball-classic/
+
+**Iranian president’s apology showcases rifts among the country’s leaders.**\
+`By Leily Nikounazar and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/iranian-president-apology
+
+**Miami (Ohio) is a perfect college basketball team causing an insufferable debate**\
+`A wretched discourse from college football has crossed into basketball: Is a non-power team deserving of a shot on the sport's main stage?`\
+https://nytimes.com/athletic/7096775/2026/03/07/miami-ohio-undefeated-season-ncaa-tournament-debate/
+
 **Immigration Agents Detain a Reporter in Nashville**\
 `The detention of Estefany Maria Rodriguez Florez, who had sought asylum and is married to an American citizen, raised fears that she had been targeted for her reporting.`\
 https://nytimes.com/2026/03/07/us/immigration-ice-nashville-reporter-detained-tn-estefany-rodriguez-florez.html
