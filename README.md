@@ -1,40 +1,40 @@
-**How to watch Houston vs. Oklahoma State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Houston Cougars play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096288/2026/03/07/houston-vs-oklahoma-state-stream-how-to-watch-march-7/
+**How to watch American vs. Boston University women's basketball: Patriot Tournament Time, TV, streaming**\
+`Find out how to watch the American Eagles play the Boston University Terriers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096319/2026/03/07/american-vs-boston-university-stream-how-to-watch-march-7/
 
-**How to watch Campbell vs. Stony Brook men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Campbell Fighting Camels play the Stony Brook Seawolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096286/2026/03/07/campbell-vs-stony-brook-stream-how-to-watch-march-7/
+**How to watch Central Arkansas vs. Jacksonville women's basketball: ASUN Tournament Time, TV, streaming**\
+`Find out how to watch the Central Arkansas Sugar Bears play the Jacksonville Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096317/2026/03/07/central-arkansas-vs-jacksonville-stream-how-to-watch-march-7/
 
-**How to watch Kansas State vs. Kansas men's basketball: Time, TV, streaming**\
-`Find out how to watch the Kansas State Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096283/2026/03/07/kansas-state-vs-kansas-stream-how-to-watch-march-7/
+**How to watch Notre Dame vs. Duke women's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Notre Dame Fighting Irish play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096315/2026/03/07/notre-dame-vs-duke-stream-how-to-watch-march-7/
 
-**How to watch Louisville vs. Miami (FL) men's basketball: Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096281/2026/03/07/louisville-vs-miami-fl-stream-how-to-watch-march-7/
+**How to watch Wagner vs. LIU men's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Wagner Seahawks play the Long Island Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096313/2026/03/07/wagner-vs-liu-stream-how-to-watch-march-7/
 
-**How to watch UConn vs. Marquette men's basketball: Time, TV, streaming**\
-`Find out how to watch the UConn Huskies play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096277/2026/03/07/uconn-vs-marquette-stream-how-to-watch-march-7/
+**How to watch Bryant vs. Vermont men's basketball: America East Tournament Time, TV, streaming**\
+`Find out how to watch the Bryant Bulldogs play the Vermont Catamounts, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096311/2026/03/07/bryant-vs-vermont-stream-how-to-watch-march-7/
 
-**How to watch Arkansas vs. Missouri men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096274/2026/03/07/arkansas-vs-missouri-stream-how-to-watch-march-7/
+**How to watch Richmond vs. George Mason women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Richmond Spiders play the George Mason Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096309/2026/03/07/richmond-vs-george-mason-stream-how-to-watch-march-7/
 
-**How to watch St. Thomas vs. North Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Thomas Tommies play the North Dakota State Bison, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096272/2026/03/07/st-thomas-vs-north-dakota-state-stream-how-to-watch-march-7/
+**How to watch Yale vs. Princeton women's basketball: Time, TV, streaming**\
+`Find out how to watch the Yale Bulldogs play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096307/2026/03/07/yale-vs-princeton-stream-how-to-watch-march-7/
 
-**How to watch Ohio State vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096270/2026/03/07/ohio-state-vs-ucla-stream-how-to-watch-march-7/
+**How to watch Virginia Tech vs. Virginia men's basketball: Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096304/2026/03/07/virginia-tech-vs-virginia-stream-how-to-watch-march-7/
 
-**How to watch Arizona State vs. Iowa State men's basketball: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096268/2026/03/07/arizona-state-vs-iowa-state-stream-how-to-watch-march-7/
+**How to watch Vanderbilt vs. Tennessee men's basketball: Time, TV, streaming**\
+`Find out how to watch the Vanderbilt Commodores play the Tennessee Volunteers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096302/2026/03/07/vanderbilt-vs-tennessee-stream-how-to-watch-march-7/
 
-**How to watch New Hampshire vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the New Hampshire Wildcats play the UMBC Retrievers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096265/2026/03/07/new-hampshire-vs-umbc-stream-how-to-watch-march-7/
+**How to watch Citadel vs. East Tennessee State men's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Citadel Bulldogs play the East Tennessee State Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096300/2026/03/07/citadel-vs-east-tennessee-state-stream-how-to-watch-march-7/
 
