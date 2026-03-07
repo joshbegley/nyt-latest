@@ -1,3 +1,7 @@
+**Maxx Crosby trade grades: Ravens add defensive pillar, Raiders' teardown is complete**\
+`It's yet another bold move for the Ravens, who are remaking the franchise after missing the playoffs in 2025.`\
+https://nytimes.com/athletic/7095895/2026/03/06/maxx-crosby-raiders-ravens-trade-grades/
+
 **Iran’s Navy Is Weakened but U.S. Still Faces Challenges in Strait of Hormuz**\
 `U.S. strikes have heavily targeted Iran’s large ships and bases, but its Revolutionary Guard navy is a more nimble force.`\
 https://nytimes.com/2026/03/06/world/middleeast/iran-navy-strait-of-hormuz-satellite-images.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/7095416/2026/03/06/vancouver-canucks-nhl-trade-dead
 **Trump Maintains That U.S. Has Ample Weapons as Iran War Depletes Stocks**\
 `After meeting with defense contractors at the White House, President Trump said the companies were all committed to increasing production.`\
 https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
-
-**Raiders trading Maxx Crosby to Ravens for 2 first-round picks: Sources**\
-`Crosby, 28, has long said he wanted "to be a Raider for life," but his relationship with the team seemed to sour late in the 2025 season.
-`\
-https://nytimes.com/athletic/7084730/2026/03/06/maxx-crosby-traded-raiders-ravens-nfl/
 
