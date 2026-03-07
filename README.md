@@ -1,3 +1,15 @@
+**Blackhawks broadcaster Troy Murray leaves legacy of laughter, unfillable void**\
+`Murray continued to call games throughout his debilitating cancer treatment until last season, when it all became too much.`\
+https://nytimes.com/athletic/7097227/2026/03/07/blackhawks-broadcaster-troy-murray-dies/
+
+**Israel Renews Search for Missing Airman Amid Clashes in Lebanon’s Bekaa Valley**\
+`Dozens were killed in the Bekaa Valley overnight, the Lebanese health authorities said, amid airstrikes and intense violence in the town of Nabi Sheet.`\
+https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
+
+**Bills, center Connor McGovern agree to four-year, $52 million deal: Sources**\
+`McGovern would have been a hot commodity on the open market.`\
+https://nytimes.com/athletic/7097254/2026/03/07/connor-mcgovern-bills-nfl-free-agency-2026/
+
 **Two Toronto-Area Synagogues Are Struck by Gunfire**\
 `The episodes, which happened late Friday and early Saturday, came after a third synagogue was damaged by gunfire on Monday, officials said.`\
 https://nytimes.com/2026/03/07/world/canada/toronto-synagogue-shootings-canada.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7097191/2026/03/07/cowboys-second-round-tender-bran
 **Rory McIlroy withdraws from Arnold Palmer Invitational with back injury**\
 `The surprise move comes a week before McIlroy will attempt to defend his Players Championship title and a month before his Masters defense.`\
 https://nytimes.com/athletic/7097207/2026/03/07/rory-mcilroy-arnold-palmer-invitational-back-injury/
-
-**After whirlwind day, Bobby Brink debuts for his beloved Wild: 'It's good to be home'**\
-`Brink is the latest Minnesota-born player to come to the Wild. Like the rest of them, he was told to focus on winning, not a homecoming.`\
-https://nytimes.com/athletic/7096817/2026/03/07/bobby-brink-wild-flyers-trade-homecoming/
-
-**Pakistan Praised Trump. Now It Risks Being Caught Up in His War.**\
-`U.S. and Israeli strikes on Iran have set off a crippling energy crisis and sparked deadly protests in one of the world’s most populous Muslim nations.`\
-https://nytimes.com/2026/03/07/world/asia/pakistan-trump-us-iran-war.html
-
-**ICE Arrests Slowed as Trump Backed Off After Minneapolis**\
-`The drop in arrests reflects a retreat, at least for now, from some of the administration’s most aggressive immigration enforcement tactics.`\
-https://nytimes.com/2026/03/07/us/politics/ice-arrests-slowdown.html
 
