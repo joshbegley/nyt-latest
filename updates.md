@@ -1,3 +1,7 @@
+**Olympic medallist Kerley banned for two years on whereabouts failure charge**\
+`The 30-year-old sprinter was found to be "negligent and, to a certain extent, reckless" in not adhering to anti-doping regulations.`\
+https://nytimes.com/athletic/7096233/2026/03/07/fred-kerley-banned-athletics-whereabouts-failure/
+
 **Inside Real Madrid: How key will Valverde's Celta winner be for Arbeloa? Trent's mistake, Man City next**\
 `Fede Valverde scored a last-gasp winner against Celta Vigo to ease the pressure on Alvaro Arbeloa and lift the mood around the Bernabeu`\
 https://nytimes.com/athletic/7096163/2026/03/07/inside-real-madrid-arbeloa-valverde-trent/
