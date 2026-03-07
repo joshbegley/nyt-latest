@@ -1,40 +1,40 @@
-**Olympic medallist Kerley banned for two years on whereabouts failure charge**\
-`The 30-year-old sprinter was found to be "negligent and, to a certain extent, reckless" in not adhering to anti-doping regulations.`\
-https://nytimes.com/athletic/7096233/2026/03/07/fred-kerley-banned-athletics-whereabouts-failure/
+**Red Wings' deadline day goes from fireworks to angst in a matter of hours**\
+`Steve Yzerman entered new territory by trading his first-round pick for Justin Faulk. But the Red Wings' day turned after that. `\
+https://nytimes.com/athletic/7095874/2026/03/07/detroit-red-wings-trade-deadline-steve-yzerman-dylan-larkin/
 
-**Inside Real Madrid: How key will Valverde's Celta winner be for Arbeloa? Trent's mistake, Man City next**\
-`Fede Valverde scored a last-gasp winner against Celta Vigo to ease the pressure on Alvaro Arbeloa and lift the mood around the Bernabeu`\
-https://nytimes.com/athletic/7096163/2026/03/07/inside-real-madrid-arbeloa-valverde-trent/
+**Where do the Blackhawks stand after the 2026 trade deadline? 12 thoughts**\
+`GM Kyle Davidson spoke about the future of the Blackhawks captaincy, prospects who might turn pro and the plan for the draft-pick stockpile.`\
+https://nytimes.com/athletic/7095587/2026/03/07/blackhawks-trade-deadline-foligno-captain-davidson-prospects/
 
-**Predicting the fates of the Giants' 27 free agents**\
-`Who's likely staying and who's likely on the way out with free agency a few days away.`\
-https://nytimes.com/athletic/7095495/2026/03/07/new-york-giants-free-agent-predictions/
+**Why Drury is taking a big gamble by holding Vincent Trocheck**\
+`The Rangers may be able to get good value for Trocheck in the summer, but there's no guarantee the return will match Friday's offers.`\
+https://nytimes.com/athletic/7095616/2026/03/07/new-york-rangers-trocheck-trade-deadline-chris-drury-offseason-draft/
 
-**I played only one game in the NBA. This is my one regret**\
-`Ryan Robertson, who played college basketball at Kansas, played one game for the Sacramento Kings. He wishes he did one thing differently.`\
-https://nytimes.com/athletic/7093460/2026/03/07/ryan-robertson-nba-one-game-lesson/
+**Let's pause to remember Rondale Moore, another life gone too soon**\
+`Strong bodies. Fragile lives. It has been a devastating year for the NFL and college football, with nearly a dozen high-profile deaths.`\
+https://nytimes.com/athletic/7093708/2026/03/07/rondale-moore-death-obit-cardinals-purdue-vikings/
 
-**'Respect the wind': Every tennis player's least-favorite opponent rules over Indian Wells**\
-`In gusty conditions in the California desert, players had to find their rhythm as the wind wreaked havoc.`\
-https://nytimes.com/athletic/6182622/2026/03/07/tennis-wind-indian-wells-weather-conditions/
+**Mercedes’ dominated Australia qualifying. Its rivals fear F1 2026 is already over**\
+`Mercedes' gap over the rest of the field in Australian GP qualifying have rivals fearing the season's contest is already over`\
+https://nytimes.com/athletic/7096230/2026/03/07/mercedes-2026-f1-car-advantage/
 
-**Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
-`The writer and activist on how political change happens and taking the long view.`\
-https://nytimes.com/2026/03/07/magazine/rebecca-solnit-interview.html
+**Maple Leafs prospect watch: Who will we see fill now-open forward spots?**\
+`Nicolas Roy, Bobby McMann and Scott Laughton are gone. Which Marlies could get an opportunity down the stretch?`\
+https://nytimes.com/athletic/7095375/2026/03/07/maple-leafs-prospects-trade-deadline-2026/
 
-**Trump Set to Witness Return of Bodies of U.S. Service Members**\
-`President Trump is scheduled to travel Saturday to Dover Air Force Base in Delaware in the wake of the deaths of six service members.`\
-https://nytimes.com/2026/03/07/us/politics/trump-dover-dignified-transfer-iran.html
+**Mirtle: NHL's odd trade deadline showcases league's changing of the guard**\
+`It was a relatively dull deadline, but the playoffs should be anything but, with so many new teams trying to topple the old standbys.`\
+https://nytimes.com/athletic/7095764/2026/03/07/nhl-trade-deadline-changing-of-guard/
 
-**Europe Didn’t Want War With Iran. But So Far, It Can’t Stay Out of It.**\
-`From London to Rome and beyond, leaders are facing diplomatic headwinds and criticism at home as they take part in a conflict they did not seek.`\
-https://nytimes.com/2026/03/07/world/europe/europe-iran-trump-war-dilemma.html
+**Grading every NHL team's trade deadline moves (or lack thereof)**\
+`Which teams accomplished their goals, and which left their fan bases fuming? We grade all 32 clubs on their performance at the deadline.`\
+https://nytimes.com/athletic/7095504/2026/03/07/nhl-trade-deadline-2026-team-grades/
 
-**Epstein Doctor Steps Away From Elite Health Clinics**\
-`Dr. Bernard Kruger once gave a private E.R. membership to Jeffrey Epstein and unnamed “girls.”`\
-https://nytimes.com/2026/03/07/us/epstein-doctors-bernard-kruger.html
+**My Sister’s Crime Shattered Our Family. Do I Have to Help Her?**\
+`If I refuse, her future looks shakier. If I help, my family may never forgive me.`\
+https://nytimes.com/2026/03/07/magazine/sisters-crime-family-ethics.html
 
-**Celebrate the 1,000th Connections Puzzle**\
-`Learn about how the game’s editor makes the boards.`\
-https://nytimes.com/2026/03/07/crosswords/connections-1000.html
+**Inside the Blue Jays' next wave of rotation depth**\
+`Grant Rogers, CJ Van Eyk and other emerging pitchers could earn a spot in the majors this season. `\
+https://nytimes.com/athletic/7094299/2026/03/07/blue-jays-pitching-depth/
 
