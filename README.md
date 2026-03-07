@@ -1,3 +1,11 @@
+**How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
+
+**How to watch Mammoth vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097800/2026/03/07/mammoth-vs-blue-jackets-stream-how-to-watch-march-7/
+
 **Americans Struggle to Evacuate the Middle East a Week After Strikes**\
 `One week into the U.S.-Israeli war with Iran, thousands of Americans remain stranded. Despite official promises of help, many say they’ve been left to navigate closed airports, canceled flights and uncertainty on their own.`\
 https://nytimes.com/video/world/middleeast/100000010759942/middle-east-americans-stranded-airlines.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agen
 **Tatjana Wood, Award-Winning Comic Book Colorist, Dies at 99**\
 `She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
 https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
-
-**'They have trust in us': Bruins united in playoff push after trade deadline**\
-`Unlike this time last year, the Bruins' roster will not undergo significant change for the rest of the regular season.`\
-https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
-
-**Bryce Harper wants MLB players in 2028 Olympics. Could it actually happen?**\
-`“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
-https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
 
