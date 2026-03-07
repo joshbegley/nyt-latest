@@ -1,3 +1,19 @@
+**Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
+`The calls for more starts for the 17-year-old winger will only increase after his impressive display in the FA Cup win over Wolves`\
+https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
+
+**Here’s the latest.**\
+`By Farnaz Fassihi, Liam Stack and Max Kim`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: New Wave of Airstrikes Batters Tehran**\
+`The Israeli military said Saturday that it had launched more strikes on Iran’s capital. Some hit near the Mehrabad Airport. Footage shared on state media showed explosions and columns of smoke.`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon
+
+**Qualifying recap from the 2026 F1 Australian Grand Prix**\
+`George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
+https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
+
 **The New York Times in Print for Saturday, March 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/07/todays-new-york-times

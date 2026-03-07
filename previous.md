@@ -1,3 +1,19 @@
+**Rio Ngumoha made Liverpool play better. Arne Slot now has a decision to make**\
+`The calls for more starts for the 17-year-old winger will only increase after his impressive display in the FA Cup win over Wolves`\
+https://nytimes.com/athletic/7094436/2026/03/07/rio-ngumoha-liverpool-arne-slot-wolves/
+
+**Here’s the latest.**\
+`By Farnaz Fassihi, Liam Stack and Max Kim`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: New Wave of Airstrikes Batters Tehran**\
+`The Israeli military said Saturday that it had launched more strikes on Iran’s capital. Some hit near the Mehrabad Airport. Footage shared on state media showed explosions and columns of smoke.`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon
+
+**Qualifying recap from the 2026 F1 Australian Grand Prix**\
+`George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
+https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-qualifying-results/
+
 **The New York Times in Print for Saturday, March 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/07/todays-new-york-times
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6961322/2026/03/07/taty-castellanos-west-ham-making
 **Newcastle's goalkeeper situation is shrouded in uncertainty. Eddie Howe has a decision to make**\
 `Nick Pope appears to have been replaced by Aaron Ramsdale, but for how long and in which competitions? `\
 https://nytimes.com/athletic/7086190/2026/03/07/pope-ramsdale-newcastle-premier-league-champions-league-fa-cup/
-
-**Tottenham decided not to spend big in January. Now it may cost them far more**\
-`Johan Lange claimed there were ‘very few players’ who could make a difference at Spurs ‘now or in the future’. But is that really the case?`\
-https://nytimes.com/athletic/7093275/2026/03/07/tottenham-premier-league-relegation-transfers/
-
-**How Wrexham can beat Chelsea: Chaos at corners and wing-back width**\
-`Chelsea are one of the worst teams in Europe at defending set pieces, while attacking set pieces is one of Wrexham's biggest strengths...`\
-https://nytimes.com/athletic/7090389/2026/03/07/how-wrexham-can-beat-chelsea-tactics/
-
-**How every Premier League team struggle: What is your club’s 'same-old story’?**\
-`After Arne Slot lamented a familiar end to Liverpool's game on Tuesday our writers run through their club's 'Here we go again!' scenario`\
-https://nytimes.com/athletic/7093038/2026/03/07/premier-league-same-old-story-woe/
-
-**Business of Football: Premier League's 'worrying concentration of talent', EFL's prized assets**\
-`A look back at the can't-miss croissant on the sports conference circuit, and why Bradford City and Wigan Athletic might be attractive buys`\
-https://nytimes.com/athletic/7086174/2026/03/07/business-football-league-one-ft-wimbledon/
 
