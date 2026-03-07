@@ -1,3 +1,15 @@
+**Ticket punched: LIU first team to make men's NCAA Tournament**\
+`LIU earned the bid for winning an NEC semifinal game because Mercyhurst, not eligible for the postseason, won the other semifinal.`\
+https://nytimes.com/athletic/7097527/2026/03/07/liu-march-madness-bid-wagner-nec-basketball/
+
+**Atletico football director says Griezmann will stay at the club despite Orlando City talks**\
+`Orlando City have been in advanced discussions to sign the 34-year-old forward and hold his MLS discovery rights.`\
+https://nytimes.com/athletic/7097492/2026/03/07/antoine-griezmann-orlando-city-atletico-transfer-latest/
+
+**What we’re seeing at the WBC: A walk-off and the return of dugout espressos**\
+`Japan honors Yu Darvish before surviving a scare from Korea; Canada may have a path to the quarterfinals`\
+https://nytimes.com/athletic/7097515/2026/03/07/wbc-walkoff-italy-dugout-espressos/
+
 **Netherlands' Ozzie Albies hit first walk-off home run in WBC history**\
 `Team Netherlands was down to its last strike earlier in the ninth inning against Team Nicaragua, which has never won a WBC game.`\
 https://nytimes.com/athletic/7097528/2026/03/07/ozzie-albies-first-walk-off-home-run-wbc-netherlands-nicaragua/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/07/us/los-angeles-marathon-medals.html
 **The Briefing: Wrexham 2 Chelsea 4 - VAR woe for hosts, superb Doyle flick, lucky escape for Blues?**\
 `Chelsea are into the FA Cup quarter-finals, but only after enduring a mighty scare against 10-man Wrexham in a six-goal thriller`\
 https://nytimes.com/athletic/7086797/2026/03/07/wrexham-2-chelsea-4-var/
-
-**How to watch Islanders vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097476/2026/03/07/islanders-vs-sharks-stream-how-to-watch-march-7/
-
-**How to watch Mount St. Mary's vs. Siena men's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Mount St. Mary's Mountaineers play the Siena Saints, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097459/2026/03/07/mount-st-mary-s-vs-siena-stream-how-to-watch-march-7/
-
-**How to watch Hurricanes vs. Flames: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097455/2026/03/07/hurricanes-vs-flames-stream-how-to-watch-march-7/
 
