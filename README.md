@@ -22,7 +22,7 @@ https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
 `Unlike this time last year, the Bruins' roster will not undergo significant change for the rest of the regular season.`\
 https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
 
-**Bryce Harper hopes MLB players can participate in 2028 Olympics**\
+**Bryce Harper wants MLB players in 2028 Olympics. Could it actually happen?**\
 `“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
 https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
 
