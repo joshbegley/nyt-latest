@@ -1,3 +1,15 @@
+**San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
+`This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
+https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
+
+**At trade deadline, Jarmo Kekäläinen behaved like Sabres are a legit contender**\
+`Buffalo's additions are a sign the Sabres aren’t content just getting to the playoffs. They want to be prepared once they get there.`\
+https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadline-2026-jarmo-kekalainen/
+
+**Drury debriefs Rangers deadline: Holding Trocheck, moving Othmann, more**\
+`The Rangers GM and president of hockey operations didn't make any major moves as the trade deadline came to a close.`\
+https://nytimes.com/athletic/7095339/2026/03/06/rangers-chris-drury-trade-deadline-trocheck-othman-fox-comments/
+
 **Mamdani Says His Wife’s Views on Gaza Are No One’s Business**\
 `Rama Duwaji, Mr. Mamdani’s wife, had liked Instagram posts that supported the Hamas-led attack on Israel on Oct. 7, 2023.`\
 https://nytimes.com/2026/03/06/nyregion/mamdani-rama-wife-israel.html
