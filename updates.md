@@ -1,3 +1,7 @@
+**State Department Bypasses Congress to Send Israel More Than 20,000 Bombs**\
+`The sale had been under informal review in Congress, but the State Department declared an emergency because of the war in Iran.`\
+https://nytimes.com/2026/03/06/us/politics/state-department-bomb-sale-israel.html
+
 **Trump's college sports roundtable: Two hours of talk, with few solutions**\
 `President promises an executive order to fix college sports, while the SCORE Act receives a boost. Here's a breakdown of the meeting.`\
 https://nytimes.com/athletic/7095330/2026/03/06/trump-saving-college-sports-roundtable-executive-order-score-act/
