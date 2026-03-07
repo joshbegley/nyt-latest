@@ -1,40 +1,40 @@
-**Red Wings' deadline day goes from fireworks to angst in a matter of hours**\
-`Steve Yzerman entered new territory by trading his first-round pick for Justin Faulk. But the Red Wings' day turned after that. `\
-https://nytimes.com/athletic/7095874/2026/03/07/detroit-red-wings-trade-deadline-steve-yzerman-dylan-larkin/
+**How to watch Houston vs. Oklahoma State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Houston Cougars play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096288/2026/03/07/houston-vs-oklahoma-state-stream-how-to-watch-march-7/
 
-**Where do the Blackhawks stand after the 2026 trade deadline? 12 thoughts**\
-`GM Kyle Davidson spoke about the future of the Blackhawks captaincy, prospects who might turn pro and the plan for the draft-pick stockpile.`\
-https://nytimes.com/athletic/7095587/2026/03/07/blackhawks-trade-deadline-foligno-captain-davidson-prospects/
+**How to watch Campbell vs. Stony Brook men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Campbell Fighting Camels play the Stony Brook Seawolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096286/2026/03/07/campbell-vs-stony-brook-stream-how-to-watch-march-7/
 
-**Why Drury is taking a big gamble by holding Vincent Trocheck**\
-`The Rangers may be able to get good value for Trocheck in the summer, but there's no guarantee the return will match Friday's offers.`\
-https://nytimes.com/athletic/7095616/2026/03/07/new-york-rangers-trocheck-trade-deadline-chris-drury-offseason-draft/
+**How to watch Kansas State vs. Kansas men's basketball: Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the Kansas Jayhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096283/2026/03/07/kansas-state-vs-kansas-stream-how-to-watch-march-7/
 
-**Let's pause to remember Rondale Moore, another life gone too soon**\
-`Strong bodies. Fragile lives. It has been a devastating year for the NFL and college football, with nearly a dozen high-profile deaths.`\
-https://nytimes.com/athletic/7093708/2026/03/07/rondale-moore-death-obit-cardinals-purdue-vikings/
+**How to watch Louisville vs. Miami (FL) men's basketball: Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096281/2026/03/07/louisville-vs-miami-fl-stream-how-to-watch-march-7/
 
-**Mercedes’ dominated Australia qualifying. Its rivals fear F1 2026 is already over**\
-`Mercedes' gap over the rest of the field in Australian GP qualifying have rivals fearing the season's contest is already over`\
-https://nytimes.com/athletic/7096230/2026/03/07/mercedes-2026-f1-car-advantage/
+**How to watch UConn vs. Marquette men's basketball: Time, TV, streaming**\
+`Find out how to watch the UConn Huskies play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096277/2026/03/07/uconn-vs-marquette-stream-how-to-watch-march-7/
 
-**Maple Leafs prospect watch: Who will we see fill now-open forward spots?**\
-`Nicolas Roy, Bobby McMann and Scott Laughton are gone. Which Marlies could get an opportunity down the stretch?`\
-https://nytimes.com/athletic/7095375/2026/03/07/maple-leafs-prospects-trade-deadline-2026/
+**How to watch Arkansas vs. Missouri men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096274/2026/03/07/arkansas-vs-missouri-stream-how-to-watch-march-7/
 
-**Mirtle: NHL's odd trade deadline showcases league's changing of the guard**\
-`It was a relatively dull deadline, but the playoffs should be anything but, with so many new teams trying to topple the old standbys.`\
-https://nytimes.com/athletic/7095764/2026/03/07/nhl-trade-deadline-changing-of-guard/
+**How to watch St. Thomas vs. North Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
+`Find out how to watch the Saint Thomas Tommies play the North Dakota State Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096272/2026/03/07/st-thomas-vs-north-dakota-state-stream-how-to-watch-march-7/
 
-**Grading every NHL team's trade deadline moves (or lack thereof)**\
-`Which teams accomplished their goals, and which left their fan bases fuming? We grade all 32 clubs on their performance at the deadline.`\
-https://nytimes.com/athletic/7095504/2026/03/07/nhl-trade-deadline-2026-team-grades/
+**How to watch Ohio State vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096270/2026/03/07/ohio-state-vs-ucla-stream-how-to-watch-march-7/
 
-**My Sister’s Crime Shattered Our Family. Do I Have to Help Her?**\
-`If I refuse, her future looks shakier. If I help, my family may never forgive me.`\
-https://nytimes.com/2026/03/07/magazine/sisters-crime-family-ethics.html
+**How to watch Arizona State vs. Iowa State men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Iowa State Cyclones, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096268/2026/03/07/arizona-state-vs-iowa-state-stream-how-to-watch-march-7/
 
-**Inside the Blue Jays' next wave of rotation depth**\
-`Grant Rogers, CJ Van Eyk and other emerging pitchers could earn a spot in the majors this season. `\
-https://nytimes.com/athletic/7094299/2026/03/07/blue-jays-pitching-depth/
+**How to watch New Hampshire vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
+`Find out how to watch the New Hampshire Wildcats play the UMBC Retrievers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7096265/2026/03/07/new-hampshire-vs-umbc-stream-how-to-watch-march-7/
 
