@@ -1,3 +1,7 @@
+**How to watch Islanders vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097476/2026/03/07/islanders-vs-sharks-stream-how-to-watch-march-7/
+
 **How to watch Mount St. Mary's vs. Siena men's basketball: MAAC Tournament Time, TV, streaming**\
 `Find out how to watch the Mount St. Mary's Mountaineers play the Siena Saints, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097459/2026/03/07/mount-st-mary-s-vs-siena-stream-how-to-watch-march-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097426/2026/03/07/texas-tech-vs-byu-stream-how-to-
 **How to watch Utah State vs. Grand Canyon women's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097421/2026/03/07/utah-state-vs-grand-canyon-stream-how-to-watch-march-7/
-
-**How to watch St. John's vs. Seton Hall women's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the St. John's Red Storm play the Seton Hall Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097417/2026/03/07/st-john-s-vs-seton-hall-stream-how-to-watch-march-7/
 
