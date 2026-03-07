@@ -1,3 +1,7 @@
+**San Jose Sharks 2026 trade deadline report card: Grading GM Mike Grier's moves**\
+`This was a quiet deadline for the Sharks, but it didn’t need to be loud.`\
+https://nytimes.com/athletic/7095594/2026/03/06/sharks-2026-nhl-trade-deadline-grades/
+
 **At trade deadline, Jarmo Kekäläinen behaved like Sabres are a legit contender**\
 `Buffalo's additions are a sign the Sabres aren’t content just getting to the playoffs. They want to be prepared once they get there.`\
 https://nytimes.com/athletic/7095476/2026/03/06/buffalo-sabres-nhl-trade-deadline-2026-jarmo-kekalainen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7094997/2026/03/06/maple-leafs-trade-deadline-treli
 **Maple Leafs GM Brad Treliving on the trade deadline: What he said, what it means**\
 `Leafs general manager Brad Treliving met with the media Friday for what was maybe his most sombre availability since coming to Toronto.`\
 https://nytimes.com/athletic/7095288/2026/03/06/maple-leafs-trade-deadline-treliving-comments/
-
-**How to watch San Diego vs. Seattle U men's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the San Diego Toreros play the Seattle U Redhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7095488/2026/03/06/san-diego-vs-seattle-u-stream-how-to-watch-march-6/
 
