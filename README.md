@@ -1,3 +1,15 @@
+**How to watch Arizona vs. Colorado men's basketball: Time, TV, streaming**\
+`Find out how to watch the Arizona Wildcats play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097366/2026/03/07/arizona-vs-colorado-stream-how-to-watch-march-7/
+
+**Braves still 'stunned' by Jurickson Profar suspension, Walt Weiss says**\
+`The Braves' manager spoke to the team about how Profar's suspension could provide unexpected opportunities for players to shine.`\
+https://nytimes.com/athletic/7097306/2026/03/07/braves-jurkickson-profar-suspension-walt-weiss/
+
+**How to watch Auburn vs. Alabama men's basketball: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7097342/2026/03/07/auburn-vs-alabama-stream-how-to-watch-march-7/
+
 **Eagles, DT Jordan Davis agree to 3-year, $78M extension: Sources**\
 `The new deal includes $65 million in guaranteed money, and it keeps Davis under contract with the Eagles through 2029.`\
 https://nytimes.com/athletic/7097278/2026/03/07/eagles-jordan-davis-contract-extension/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
 **Bills, center Connor McGovern agree to four-year, $52 million deal: Sources**\
 `McGovern would have been a hot commodity on the open market.`\
 https://nytimes.com/athletic/7097254/2026/03/07/connor-mcgovern-bills-nfl-free-agency-2026/
-
-**Two Toronto-Area Synagogues Are Struck by Gunfire**\
-`The episodes, which happened late Friday and early Saturday, came after a third synagogue was damaged by gunfire on Monday, officials said.`\
-https://nytimes.com/2026/03/07/world/canada/toronto-synagogue-shootings-canada.html
-
-**Evgeni Malkin drama has overshadowed the trade deadline and, perhaps, the season**\
-`There are always two sides to the story when analyzing Malkin, and they are always every bit as confounding as the man himself.`\
-https://nytimes.com/athletic/7096708/2026/03/07/penguins-evgeni-malkin-drama-trade-deadline/
-
-**Tarik Skubal says he didn't receive long-term offer from Tigers during offseason**\
-`Skubal, who won the American League Cy Young Award in 2024 and 2025, earned a record $32 million in arbitration.`\
-https://nytimes.com/athletic/7097152/2026/03/07/tarik-skubal-detroit-tigers-extension-offer/
 
