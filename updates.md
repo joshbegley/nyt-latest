@@ -1,3 +1,7 @@
+**Alyssa Thompson goal secures USWNT’s eighth SheBelieves Cup victory over Colombia**\
+`The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
+https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
+
 **How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
