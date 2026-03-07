@@ -1,3 +1,11 @@
+**Los Angeles Marathon Runners Can Get a Finisher Medal After Only 18 Miles**\
+`The decision to award medals to runners who do not complete the entire 26.2-mile race comes as temperatures are set to reach into the 80s on Sunday. Some marathoners disagreed with the change.`\
+https://nytimes.com/2026/03/07/us/los-angeles-marathon-medals.html
+
+**The Briefing: Wrexham 2 Chelsea 4 - VAR woe for hosts, superb Doyle flick, lucky escape for Blues?**\
+`Chelsea are into the FA Cup quarter-finals, but only after enduring a mighty scare from 10-men Wrexham in a six-goal thriller`\
+https://nytimes.com/athletic/7086797/2026/03/07/wrexham-2-chelsea-4-var/
+
 **How to watch Islanders vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097476/2026/03/07/islanders-vs-sharks-stream-how-to-watch-march-7/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097438/2026/03/07/elon-vs-william-mary-stream-how-
 **How to watch Longwood vs. Radford women's basketball: Big South Tournament Time, TV, streaming**\
 `Find out how to watch the Longwood Lancers play the Radford Highlanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097437/2026/03/07/longwood-vs-radford-stream-how-to-watch-march-7/
-
-**How to watch Texas Tech vs. BYU men's basketball: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097426/2026/03/07/texas-tech-vs-byu-stream-how-to-watch-march-7/
-
-**How to watch Utah State vs. Grand Canyon women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Utah State Aggies play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097421/2026/03/07/utah-state-vs-grand-canyon-stream-how-to-watch-march-7/
 
