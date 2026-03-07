@@ -1,3 +1,7 @@
+**Verstappen escapes injury in Melbourne Q1 crash**\
+`Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
+https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
+
 **'It's constant feedback': What it's like guiding your sibling in Alpine skiing at the Paralympics**\
 `For some Paralympian siblings, focusing on their communication and feedback with one another is the key to success.`\
 https://nytimes.com/athletic/7086605/2026/03/07/paralympics-downhill-skiing-guides-siblings/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/nyregion/older-adults-nyc-move.html
 **Historic District Rules May Keep NoHo Parking Lot From Becoming Housing**\
 `Some residents in the Manhattan neighborhood are fighting the construction of two apartment towers, which could rise up to 19 stories on the site of a parking lot.`\
 https://nytimes.com/2026/03/07/nyregion/noho-manhattan-parking-lot-housing.html
-
-**Rob Edwards and his Wolves players must now prolong the delicate truce at Molineux**\
-`The effective end of Wolves' campaign brought polite applause from home fans. Recent results have given some optimism in a sorry season`\
-https://nytimes.com/athletic/7095388/2026/03/07/wolves-molineux-rob-edwards-fans-reaction/
 

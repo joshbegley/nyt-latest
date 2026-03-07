@@ -1,3 +1,7 @@
+**Verstappen escapes injury in Melbourne Q1 crash**\
+`Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
+https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
+
 **'It's constant feedback': What it's like guiding your sibling in Alpine skiing at the Paralympics**\
 `For some Paralympian siblings, focusing on their communication and feedback with one another is the key to success.`\
 https://nytimes.com/athletic/7086605/2026/03/07/paralympics-downhill-skiing-guides-siblings/

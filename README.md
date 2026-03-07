@@ -1,3 +1,7 @@
+**Stroll to race in F1 Australian Grand Prix despite failing to set qualifying lap time**\
+`Stroll failed to set a qualifying lap time, and Aston Martin needed to request for the stewards to allow him to start Sunday’s F1 race.`\
+https://nytimes.com/athletic/7096211/2026/03/07/lance-stroll-f1-australian-grand-prix/
+
 **Verstappen escapes injury in Melbourne Q1 crash**\
 `Max Verstappen had to be sent to have his hands x-ray after his crash in 2026 F1 Australian GP qualifying`\
 https://nytimes.com/athletic/7096203/2026/03/07/max-verstappen-australian-gp-qualifying-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/crosswords/spelling-bee-forum.html
 **Forget Florida. They Got Older and Moved to New York.**\
 `A growing number of older transplants have been undeterred by the city’s high costs, and are connecting with young neighbors over brunches, birthday parties and running clubs.`\
 https://nytimes.com/2026/03/07/nyregion/older-adults-nyc-move.html
-
-**Historic District Rules May Keep NoHo Parking Lot From Becoming Housing**\
-`Some residents in the Manhattan neighborhood are fighting the construction of two apartment towers, which could rise up to 19 stories on the site of a parking lot.`\
-https://nytimes.com/2026/03/07/nyregion/noho-manhattan-parking-lot-housing.html
 
