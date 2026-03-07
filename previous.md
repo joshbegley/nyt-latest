@@ -1,3 +1,7 @@
+**Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
+`After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
+https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
+
 **Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
 `At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
 https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
@@ -18,7 +22,7 @@ https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
 `Unlike this time last year, the Bruins' roster will not undergo significant change for the rest of the regular season.`\
 https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
 
-**Bryce Harper hopes MLB players can participate in 2028 Olympics**\
+**Bryce Harper wants MLB players in 2028 Olympics. Could it actually happen?**\
 `“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
 https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
 https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
-
-**Ticket punched: LIU first team to make men's NCAA Tournament**\
-`LIU earned the bid for winning an NEC semifinal game because Mercyhurst, not eligible for the postseason, won the other semifinal.`\
-https://nytimes.com/athletic/7097527/2026/03/07/liu-march-madness-bid-wagner-nec-basketball/
 

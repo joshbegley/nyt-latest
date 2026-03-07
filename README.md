@@ -1,3 +1,7 @@
+**Join Together**\
+`Kelly Richardson’s puzzle is a celebration for solvers.`\
+https://nytimes.com/2026/03/07/crosswords/daily-puzzle-2026-03-08.html
+
 **Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
 `After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
 https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7086798/2026/03/07/newcastle-man-city-savinho-marmo
 **Satellite images show U.S. and Israeli targets in Iran.**\
 `By Adam Goldman, Samuel Granados, Ronen Bergman and Eric Schmitt`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-show-us-and-israeli-targets-in-iran
-
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
-https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
 

@@ -1,3 +1,11 @@
+**Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
+`After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
+https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
+
+**Bryce Harper wants MLB players in 2028 Olympics. Could it actually happen?**\
+`“Obviously the WBC is great, but it's not the Olympics,” Harper said.`\
+https://nytimes.com/athletic/7097497/2026/03/07/bryce-harper-mlb-2028-olympics/
+
 **Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
 `At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
 https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
