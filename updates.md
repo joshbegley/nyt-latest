@@ -1,3 +1,11 @@
+**When DOGE Unleashed ChatGPT on the Humanities**\
+`Documents reveal how A.I. was used to cancel most previously approved grants by the National Endowment for the Humanities as the agency embraced President Trump’s “America First” agenda.`\
+https://nytimes.com/2026/03/07/arts/humanities-endowment-doge-trump.html
+
+**Deadly Clashes in Lebanon as Israel Renews Search for Missing Airman**\
+`Dozens were killed in the Bekaa Valley overnight, the Lebanese health authorities said, amid airstrikes and intense violence in the town of Nabi Sheet.`\
+https://nytimes.com/2026/03/07/world/middleeast/lebanon-nabi-sheet-ron-arad.html
+
 **Russia is back and winning medals as Paralympics open under political tension**\
 `The 2026 Paralympics have begun under political tension as Russia's return has sparked controversy — and already resulted in medals.`\
 https://nytimes.com/athletic/7096538/2026/03/07/russia-paralympics-return-medals-ukraine/
