@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7096084/2026/03/07/jayson-tatum-return-achilles-bos
 https://nytimes.com/2026/03/07/dining/pie-deas-for-pi-day.html
 
 **Ravens' uncharacteristic trade for Maxx Crosby suggests they know what's at stake**\
-`Acquiring Crosby is arguably the boldest and biggest trade in Ravens franchise history. `\
+`The move to acquire Crosby shows Baltimore is operating with a greater sense of urgency this offseason. `\
 https://nytimes.com/athletic/7096130/2026/03/07/ravens-trade-maxx-crosby-raiders/
 
 **How to watch Magic vs. Timberwolves: Time, TV, streaming**\

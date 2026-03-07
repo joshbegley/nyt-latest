@@ -1,3 +1,7 @@
+**Ravens' uncharacteristic trade for Maxx Crosby suggests they know what's at stake**\
+`The move to acquire Crosby shows Baltimore is operating with a greater sense of urgency this offseason. `\
+https://nytimes.com/athletic/7096130/2026/03/07/ravens-trade-maxx-crosby-raiders/
+
 **Gravenberch signs new six-year Liverpool contract**\
 `Gravenberch has made 123 appearances for the club since arriving from Bayern Munich for £34million in the summer of 2023.`\
 https://nytimes.com/athletic/7096662/2026/03/07/ryan-gravenberch-new-liverpool-contract/
