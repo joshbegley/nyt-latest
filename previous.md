@@ -2,8 +2,8 @@
 `She was part of the acclaimed creative teams on comic book series for DC Comics, including Swamp Thing, which she called “Shvampy” in her German accent.`\
 https://nytimes.com/2026/03/07/arts/tatjana-wood-dead.html
 
-**‘They have trust in us’: Bruins united in playoff push after trade deadline**\
-`Unlike this time last year, the Bruins roster will not undergo significant change for the rest of the regular season.`\
+**'They have trust in us': Bruins united in playoff push after trade deadline**\
+`Unlike this time last year, the Bruins' roster will not undergo significant change for the rest of the regular season.`\
 https://nytimes.com/athletic/7097536/2026/03/07/bruins-nhl-trade-deadline-roster/
 
 **Bryce Harper hopes MLB players can participate in 2028 Olympics**\
