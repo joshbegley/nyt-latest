@@ -1,3 +1,15 @@
+**A U.S. intelligence assessment in February found that an attack on Iran was unlikely to result in regime change.**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2026/03/07/world/iran-war-trump-israel-lebanon/a-us-intelligence-assessment-in-february-found-that-an-attack-on-iran-was-unlikely-to-result-in-regime-change
+
+**A Maestro’s Fall From Grace Is a Cautionary Tale Worth Heeding**\
+`Andris Nelsons’s abrupt departure from the Boston Symphony Orchestra shouldn’t be surprising to those who have witnessed his artistic decline.`\
+https://nytimes.com/2026/03/07/arts/music/andris-nelsons-boston-symphony-orchestra.html
+
+**Vodka Sauce Tomato Soup Is Exactly as Luscious as It Sounds**\
+`With serious tomato flavor from roasted canned and cherry tomatoes as well as caramelized tomato paste.`\
+https://nytimes.com/2026/03/07/dining/vodka-sauce-tomato-soup-is-exactly-as-luscious-as-it-sounds.html
+
 **Map shows the continuing challenges for U.S. forces and international energy supplies.**\
 `By Christoph Koettl and Malika Khurana`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/map-shows-the-continuing-challenges-for-us-forces-and-international-energy-supplies
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/07/dining/pie-deas-for-pi-day.html
 **Ravens' uncharacteristic trade for Maxx Crosby suggests they know what's at stake**\
 `The move to acquire Crosby shows Baltimore is operating with a greater sense of urgency this offseason. `\
 https://nytimes.com/athletic/7096130/2026/03/07/ravens-trade-maxx-crosby-raiders/
-
-**How to watch Magic vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096628/2026/03/07/magic-vs-timberwolves-stream-how-to-watch-march-7/
-
-**How to watch Maine vs. NJIT men's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the Maine Black Bears play the NJIT Highlanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096626/2026/03/07/maine-vs-njit-stream-how-to-watch-march-7/
-
-**How to watch Florida vs. Kentucky men's basketball: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096621/2026/03/07/florida-vs-kentucky-stream-how-to-watch-march-7/
 

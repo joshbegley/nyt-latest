@@ -1,3 +1,7 @@
+**Map shows the continuing challenges for U.S. forces and international energy supplies.**\
+`By Christoph Koettl and Malika Khurana`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/map-shows-the-continuing-challenges-for-us-forces-and-international-energy-supplies
+
 **Arteta says multiple Arsenal players 'carrying issues' after win at Mansfield**\
 `Leandro Trossard and Riccardo Calafiori were two established players who did start in the 2-1 win but were forced off with knocks.`\
 https://nytimes.com/athletic/7096714/2026/03/07/arsenal-injury-updates-arteta-fa-cup/
