@@ -1,3 +1,7 @@
+**Qualifying recap from the 2026 F1 Australian Grand Prix**\
+`George Russell swept to the first pole of the 2026 Formula 1 season with a dominant display for Mercedes in Australian GP qualifying`\
+https://nytimes.com/athletic/7096113/2026/03/07/2026-australian-grand-prix-results/
+
 **The New York Times in Print for Saturday, March 7, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/07/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090389/2026/03/07/how-wrexham-can-beat-chelsea-tac
 **How every Premier League team struggle: What is your club’s 'same-old story’?**\
 `After Arne Slot lamented a familiar end to Liverpool's game on Tuesday our writers run through their club's 'Here we go again!' scenario`\
 https://nytimes.com/athletic/7093038/2026/03/07/premier-league-same-old-story-woe/
-
-**Business of Football: Premier League's 'worrying concentration of talent', EFL's prized assets**\
-`A look back at the can't-miss croissant on the sports conference circuit, and why Bradford City and Wigan Athletic might be attractive buys`\
-https://nytimes.com/athletic/7086174/2026/03/07/business-football-league-one-ft-wimbledon/
 
