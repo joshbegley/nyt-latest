@@ -1,3 +1,11 @@
+**Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
+`At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
+https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
+
+**U.S.-Israeli Bombing Campaign Targets Tehran as Iran Retaliates**\
+`Airstrikes continued to pound Tehran on Saturday as President Trump posted on social media that Iran “will be hit very hard.” Iran has countered with retaliatory strikes, targeting United States and Israeli interests in several Persian Gulf countries.`\
+https://nytimes.com/video/world/middleeast/100000010761139/us-israeli-bombing-campaign-targets-tehran-as-iran-retaliates.html
+
 **49ers re-signing kicker Eddy Piñeiro: source**\
 `Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
 https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/

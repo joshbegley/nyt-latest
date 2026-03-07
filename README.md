@@ -1,3 +1,7 @@
+**Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
+`After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
+https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
+
 **Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
 `At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
 https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/satellite-images-
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
 https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
-
-**Ticket punched: LIU first team to make men's NCAA Tournament**\
-`LIU earned the bid for winning an NEC semifinal game because Mercyhurst, not eligible for the postseason, won the other semifinal.`\
-https://nytimes.com/athletic/7097527/2026/03/07/liu-march-madness-bid-wagner-nec-basketball/
 

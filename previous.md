@@ -1,3 +1,11 @@
+**Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
+`At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
+https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
+
+**U.S.-Israeli Bombing Campaign Targets Tehran as Iran Retaliates**\
+`Airstrikes continued to pound Tehran on Saturday as President Trump posted on social media that Iran “will be hit very hard.” Iran has countered with retaliatory strikes, targeting United States and Israeli interests in several Persian Gulf countries.`\
+https://nytimes.com/video/world/middleeast/100000010761139/us-israeli-bombing-campaign-targets-tehran-as-iran-retaliates.html
+
 **49ers re-signing kicker Eddy Piñeiro: source**\
 `Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
 https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097219/2026/03/07/march-madness-2026-mens-ncaa-tou
 **Ticket punched: LIU first team to make men's NCAA Tournament**\
 `LIU earned the bid for winning an NEC semifinal game because Mercyhurst, not eligible for the postseason, won the other semifinal.`\
 https://nytimes.com/athletic/7097527/2026/03/07/liu-march-madness-bid-wagner-nec-basketball/
-
-**Atletico football director says Griezmann will stay at the club despite Orlando City talks**\
-`Orlando City have been in advanced discussions to sign the 34-year-old forward and hold his MLS discovery rights.`\
-https://nytimes.com/athletic/7097492/2026/03/07/antoine-griezmann-orlando-city-atletico-transfer-latest/
-
-**What we’re seeing at the WBC: A walk-off and the return of dugout espressos**\
-`Japan honors Yu Darvish before surviving a scare from Korea; Canada may have a path to the quarterfinals`\
-https://nytimes.com/athletic/7097515/2026/03/07/wbc-walkoff-italy-dugout-espressos/
 
