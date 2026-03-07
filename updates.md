@@ -1,3 +1,11 @@
+**Trump Calls On Private Companies to Take On a Bigger Role in Cyber**\
+`In his National Cybersecurity Strategy, President Trump sought an expanded role for private firms in cyberwarfare. He did not take on China or Russia in the document.`\
+https://nytimes.com/2026/03/06/us/politics/trump-cybersecurity-strategy.html
+
+**Airstrikes hit Tehran’s Mehrabad Airport.**\
+`By Martín González Gómez`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airstrikes-hit-tehrans-mehrabad-airport
+
 **Appeals Court Upholds Protected Status for 350,000 Haitians**\
 `The D.C. Circuit ruled against the Trump administration, ensuring Haitians can remain in the United States and keep working while the underlying lawsuit proceeds.`\
 https://nytimes.com/2026/03/06/us/haiti-tps-appeals-court.html

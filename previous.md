@@ -1,3 +1,11 @@
+**Trump Calls On Private Companies to Take On a Bigger Role in Cyber**\
+`In his National Cybersecurity Strategy, President Trump sought an expanded role for private firms in cyberwarfare. He did not take on China or Russia in the document.`\
+https://nytimes.com/2026/03/06/us/politics/trump-cybersecurity-strategy.html
+
+**Airstrikes hit Tehran’s Mehrabad Airport.**\
+`By Martín González Gómez`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/airstrikes-hit-tehrans-mehrabad-airport
+
 **Appeals Court Upholds Protected Status for 350,000 Haitians**\
 `The D.C. Circuit ruled against the Trump administration, ensuring Haitians can remain in the United States and keep working while the underlying lawsuit proceeds.`\
 https://nytimes.com/2026/03/06/us/haiti-tps-appeals-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7095715/2026/03/06/jayson-tatum-returns-celtics-mav
 **This is what happened on March 6.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-6
-
-**White House posts bombing videos interspersed with MLB, NFL highlights**\
-`The clips mix videos of explosions with home runs hit by former sluggers and violent hits in pro and college football games.`\
-https://nytimes.com/athletic/7095448/2026/03/06/white-house-post-bombing-videos-mlb-nfl/
-
-**Energy**\
-`Fritz Juhnke’s first Saturday puzzle for The New York Times requires some agility.`\
-https://nytimes.com/2026/03/06/crosswords/daily-puzzle-2026-03-07.html
 
