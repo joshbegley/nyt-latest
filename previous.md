@@ -1,3 +1,7 @@
+**The Pulse: The case for Miami (Ohio)**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7096096/2026/03/07/the-case-for-miami-ohio-plus-a-doozy-of-an-nfl-trade/
+
 **How Logan Webb sealed his decision to play for Team USA on a country singer's tour bus**\
 `A pre-show hang in November with David Ross, Pat McAfee and ERNEST in Nashville ended up doubling as a recruiting pitch to the Giants ace.`\
 https://nytimes.com/athletic/7096338/2026/03/07/logan-webb-team-usa-world-baseball-classic-ernest/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/opinion/iran-war-trump.html
 **Trump’s Iran War and the Shadow of Iraq**\
 `The desire for a revolutionary presidency gives hubris a lot of space to work.`\
 https://nytimes.com/2026/03/07/opinion/trump-iran-george-w-bush-iraq.html
-
-**What Does School Choice Really Mean?**\
-`Readers respond to a guest essay that argued that more school vouchers would improve public education.`\
-https://nytimes.com/2026/03/07/opinion/school-choice.html
 
