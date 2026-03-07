@@ -1,3 +1,7 @@
+**St. Bonaventure coach Mark Schmidt expected to retire after 19 seasons: Sources**\
+`St. Bonaventure's general manager Adrian Wojnarowski, the longtime ESPN insider, is expected to play a key role in the hiring process.`\
+https://nytimes.com/athletic/7096706/2026/03/07/st-bonaventure-basketball-coach-mark-schmidt-retirement/
+
 **Gravenberch signs new six-year Liverpool contract**\
 `Gravenberch has made 123 appearances for the club since arriving from Bayern Munich for £34million in the summer of 2023.`\
 https://nytimes.com/athletic/7096662/2026/03/07/ryan-gravenberch-new-liverpool-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7096616/2026/03/07/mount-st-mary-s-vs-merrimack-str
 **How to watch Montana vs. Northern Arizona women's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Montana Lady Griz play the Northern Arizona Lumberjacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7096614/2026/03/07/montana-vs-northern-arizona-stream-how-to-watch-march-7/
-
-**How to watch Michigan vs. Iowa women's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7096601/2026/03/07/michigan-vs-iowa-stream-how-to-watch-march-7/
 

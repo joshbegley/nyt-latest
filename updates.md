@@ -1,3 +1,7 @@
+**St. Bonaventure coach Mark Schmidt expected to retire after 19 seasons: Sources**\
+`St. Bonaventure's general manager Adrian Wojnarowski, the longtime ESPN insider, is expected to play a key role in the hiring process.`\
+https://nytimes.com/athletic/7096706/2026/03/07/st-bonaventure-basketball-coach-mark-schmidt-retirement/
+
 **Ravens' uncharacteristic trade for Maxx Crosby suggests they know what's at stake**\
 `The move to acquire Crosby shows Baltimore is operating with a greater sense of urgency this offseason. `\
 https://nytimes.com/athletic/7096130/2026/03/07/ravens-trade-maxx-crosby-raiders/
