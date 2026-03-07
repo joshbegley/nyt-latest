@@ -1,3 +1,7 @@
+**The reality of the NHL trade deadline and how it should shape Canucks' rebuild**\
+`More than anything else, the trade deadline is a process test, and Vancouver can learn from how Friday played out.`\
+https://nytimes.com/athletic/7095416/2026/03/06/vancouver-canucks-nhl-trade-deadline-2026/
+
 **Trump Maintains That U.S. Has Ample Weapons as Iran War Depletes Stocks**\
 `After meeting with defense contractors at the White House, President Trump said the companies were all committed to increasing production.`\
 https://nytimes.com/2026/03/06/us/politics/trump-us-weapons-stocks.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/06/world/middleeast/trump-iran-war-unconditional-sur
 **The Government’s A.I. Alignment Problem**\
 `The Pentagon’s attack on Anthropic is a signal of government-sanctioned suppression, Trump’s former A.I. adviser Dean Ball argues on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010747012/the-governments-ai-alignment-problem.html
-
-**Malkin suspended 5 games for slashing Buffalo's Rasmus Dahlin**\
-`The Penguins are now missing two of their best players for a daunting run of games, with their playoff berth potentially in jeopardy.`\
-https://nytimes.com/athletic/7095132/2026/03/06/evgeni-malkin-suspension-penguins-slashing-dahlin-dubas/
 
