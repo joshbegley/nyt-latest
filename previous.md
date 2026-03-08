@@ -1,3 +1,11 @@
+**Have a Montana License Plate in California? Officials Have an Eye on You.**\
+`Since 2018, Californians have bought luxury vehicles worth over $20 million in sales-tax-free Montana, exploiting a loophole that avoided millions of dollars in levies, an investigation revealed.`\
+https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
+
+**Cardinals, James Conner rework contract as running back looks to rebound from foot injury**\
+`Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
+https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/
+
 **Pentagon Announces Seventh U.S. Death in War With Iran**\
 `The service member killed was not publicly identified, but U.S. Central Command said the death was caused by injuries after an attack on a Saudi military base.`\
 https://nytimes.com/2026/03/08/world/middleeast/american-soldier-killed-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/08/business/chris-wright-strait-of-hormuz.html
 **Park Service Warns of Quicksand at a Recreation Area in Arizona and Utah**\
 `The service issued the alert for the Glen Canyon National Recreation Area, which covers more than 1.25 million acres across Arizona and Utah.`\
 https://nytimes.com/2026/03/08/us/quicksand-warning-glen-canyon-national-park.html
-
-**U.S. Continues Airstrikes Against a Wide Array of Targets in Iran**\
-`A senior U.S. military official said those targets included missile launchers and air-defense sites.`\
-https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html
-
-**How to watch Magic vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-watch-march-8/
 
