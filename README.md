@@ -2,7 +2,7 @@
 `Since 2018, Californians have bought luxury vehicles worth over $20 million in sales-tax-free Montana, exploiting a loophole that avoided millions of dollars in levies, an investigation revealed.`\
 https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
 
-**Cardinals, James Conner rework contract as running back looks to rebound from foot injury**\
+**Cardinals, James Conner rework contract as running back looks to rebound from foot injury: Source**\
 `Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
 https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/
 
