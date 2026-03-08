@@ -1,3 +1,11 @@
+**Oscar Piastri crashed out of Australian Grand Prix before race start**\
+`Australia’s hope for a first home Formula 1 podium — or even a win — goes on.`\
+https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crashed-out-of-australian-grand-prix-before-race-start/
+
+**Puerto Rico's Darell Hernaiz walks off 10-inning thriller over Panama**\
+`Hernaiz's homer was the second walk-off win of the day after Ozzie Albies made history with the first walk-off homer in WBC history. `\
+https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darell-hernaiz-walkoff/
+
 **Main card revealed for UFC's Freedom Fights 250 at White House**\
 `Ilia Topuria vs. Justin Gaethje and Alex Pereira vs. Ciryl Gane are the two title bouts scheduled for the June 14 UFC event.`\
 https://nytimes.com/athletic/7097875/2026/03/07/ufc-white-house-card-announcement-details/
