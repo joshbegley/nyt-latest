@@ -1,3 +1,8 @@
+**Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
+`Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
+`\
+https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
+
 **Oscar Piastri crashed out of Australian Grand Prix before race start**\
 `Australia’s hope for a first home Formula 1 podium — or even a win — goes on.`\
 https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crashed-out-of-australian-grand-prix-before-race-start/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-numb
 **Duke's win over UNC comes at a cost as Caleb Foster's injury sparks concern**\
 `The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
-
-**Iran Could Retrieve Uranium at Site U.S. Bombed Last Year, Officials Say**\
-`The fate of the highly enriched uranium and the options for securing it have become critical issues for the Trump administration.`\
-https://nytimes.com/2026/03/07/us/politics/iran-nuclear-site-uranium-intel.html
 
