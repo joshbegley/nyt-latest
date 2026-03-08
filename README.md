@@ -1,3 +1,7 @@
+**Wrexham's preparations for Chelsea were near faultless - they just need to get used to VAR**\
+`Wrexham did not enjoy their first taste of VAR, but it will be something they quickly need to adjust to should they be promoted again`\
+https://nytimes.com/athletic/7089411/2026/03/08/wrexham-chelsea-var/
+
 **What I think Jets will do in free agency (and why you shouldn't expect a spending spree)**\
 `A look at who the Jets are most likely to target when the free-agent negotiating window opens on Monday.`\
 https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-targets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099114/2026/03/08/san-francisco-vs-santa-clara-str
 **How to watch Montana vs. Montana State women's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Montana Lady Griz play the Montana State Bobcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099110/2026/03/08/montana-vs-montana-state-stream-how-to-watch-march-8/
-
-**How to watch Boise State vs. New Mexico women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Boise State Broncos play the New Mexico Lobos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099107/2026/03/08/boise-state-vs-new-mexico-stream-how-to-watch-march-8/
 
