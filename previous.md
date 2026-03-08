@@ -1,3 +1,7 @@
+**As F1 drivers continue to criticize their new cars, paddock politics is at play**\
+`Many F1 drivers continued to criticize the new 2026 cars after the Australian GP. But there is a split on what works and what does not`\
+https://nytimes.com/athletic/7098741/2026/03/08/f1-new-cars-driver-criticism/
+
 **Strade Bianche: Tadej Pogacar solo lands fourth title, women's race goes off course, Paul Seixas justifies hype**\
 `Analysis of a typically dusty and memorable day of WorldTour racing on Tuscany's white roads`\
 https://nytimes.com/athletic/7098632/2026/03/08/strade-bianche-pogacar-seixas-elise-chabbey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098287/2026/03/08/duke-unc-rivalry-cameron-indoor-
 **'We stopped respecting the game': Skidding Pistons drop third straight**\
 `"We have to play to our identity every single night," Pistons coach J.B. Bickerstaff said after his team blew a 23-point lead to the Nets.`\
 https://nytimes.com/athletic/7098702/2026/03/08/pistons-third-straight-loss-nets/
-
-**Vital desalination plants in Iran and Bahrain are attacked.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/desalination-plants-iran-bahrain
 
