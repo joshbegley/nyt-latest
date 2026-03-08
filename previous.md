@@ -1,3 +1,7 @@
+**Artemi Panarin switches jersey number, ending saga with Kings mascot**\
+`Panarin wore No. 72 alongside Bailey the Lion after gifting the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
+https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
+
 **Duke downs Caleb Wilson-less UNC in K-Ville, suffers own injuries**\
 `The No. 1 Blue Devils exacted revenge with a resounding 76-61 win after falling to No. 17 UNC by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warri
 **Iran’s De Facto Leader Says Iran Will Not Surrender or Stop Its Attacks**\
 `Ali Larijani, the head of Iran’s Supreme National Security Council and a close confidant of Ayatollah Ali Khamenei, said Iran was determined to avenge the killing of the leader.`\
 https://nytimes.com/2026/03/07/world/middleeast/larijani-iran-war.html
-
-**Women's tennis tour denies data breach after player shares threats sent to personal phone**\
-`Panna Udvardy is the second WTA player to detail receiving menacing communications on her personal device in a few days.`\
-https://nytimes.com/athletic/7097217/2026/03/07/tennis-abuse-threats-betting-wta/
 

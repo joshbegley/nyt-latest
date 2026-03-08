@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
 
 **Duke downs Caleb Wilson-less UNC in K-Ville, suffers own injuries**\
-`The No. 1 Blue Devils exacted revenge with a resounding 76-61 win after falling to No. 17 UNC by 3 points earlier in the season.`\
+`The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
 
 **Iran Could Retrieve Uranium at Site U.S. Bombed Last Year, Officials Say**\
