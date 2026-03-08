@@ -6,7 +6,7 @@ https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
 `Six writers weigh in on what’s next for the country and its citizens as the war continues.`\
 https://nytimes.com/interactive/2026/03/08/opinion/iran-war-ayatollah.html
 
-**In My Grief I Am Held by the Land**\
+**The Badlands Hold Me as I Grieve**\
 `I imagine the birds I see are the family members I’ve lost.`\
 https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
 
