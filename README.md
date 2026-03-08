@@ -1,3 +1,15 @@
+**How to watch Idaho vs. Montana State men's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Montana State Bobcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099454/2026/03/08/idaho-vs-montana-state-stream-how-to-watch-march-8/
+
+**How to watch Fairfield vs. Siena men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Fairfield Stags play the Siena Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099447/2026/03/08/fairfield-vs-siena-stream-how-to-watch-march-8/
+
+**How to watch San Francisco vs. Oregon State men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the San Francisco Dons play the Oregon State Beavers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099424/2026/03/08/san-francisco-vs-oregon-state-stream-how-to-watch-march-8/
+
 **How to watch Fresno State vs. UNLV women's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Fresno State Bulldogs play the UNLV Lady Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099417/2026/03/08/fresno-state-vs-unlv-stream-how-to-watch-march-8/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-invest
 **Country Joe McDonald, Whose Antiwar Song Became an Anthem, Dies at 84**\
 `One of the starring acts at Woodstock, he and his band, the Fish, came out of the Bay Area’s psychedelic rock scene. He went on to a long career as a solo artist.`\
 https://nytimes.com/2026/03/08/arts/music/country-joe-mcdonald-dead.html
-
-**India dominate T20 World Cup final with 96-run win over New Zealand**\
-`Sanju Samson and Jasprit Bumrah again starred for India as they won their second consecutive T20 World Cup.`\
-https://nytimes.com/athletic/7099217/2026/03/08/india-t20-world-cup-final-new-zealand/
-
-**Israeli Settlers Kill 3 Palestinians in a Weekend of West Bank Violence**\
-`A rise in settler attacks is terrorizing Palestinians in the occupied territory, at a time when global attention is focused on the U.S.-Israeli war with Iran.`\
-https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-israeli-settlers.html
-
-**What Would It Take for Fashion to Shock You?**\
-`Amid complaints that Big Fashion has become bland and boring, some intrepid spirits are keeping it weird.`\
-https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
 
