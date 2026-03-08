@@ -1,3 +1,11 @@
+**How to watch William & Mary vs. Hofstra men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the William & Mary Tribe play the Hofstra Pride, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099457/2026/03/08/william-mary-vs-hofstra-stream-how-to-watch-march-8/
+
+**U.S. Military Warns Civilians in Iran to Stay Home Amid Continuing Airstrikes**\
+`The message was posted online in Persian and Arabic, though it’s unclear how many people will receive it in a country with limited internet access.`\
+https://nytimes.com/2026/03/08/us/iran-us-warning-centcom-civilians.html
+
 **How to watch Idaho vs. Montana State men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Montana State Bobcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099454/2026/03/08/idaho-vs-montana-state-stream-how-to-watch-march-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099370/2026/03/08/amelia-aplin-oxford-women-death/
 **Boston College fires coach Earl Grant after 5 seasons**\
 `The Eagles never finished higher than 10th in the ACC standings under Grant and made just one postseason appearance, a trip to the NIT.`\
 https://nytimes.com/athletic/7082392/2026/03/08/earl-grant-boston-college-fired/
-
-**American tennis player confirms split with coach under WTA Tour misconduct investigation**\
-`Peyton Stearns declined to “dive in” to why she and Rafael Font de Mora are no longer working together.`\
-https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-investigation-peyton-stearns/
-
-**Country Joe McDonald, Whose Antiwar Song Became an Anthem, Dies at 84**\
-`One of the starring acts at Woodstock, he and his band, the Fish, came out of the Bay Area’s psychedelic rock scene. He went on to a long career as a solo artist.`\
-https://nytimes.com/2026/03/08/arts/music/country-joe-mcdonald-dead.html
 
