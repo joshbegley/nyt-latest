@@ -1,3 +1,7 @@
+**‘Hoppers’ Ends Pixar’s Box Office Cold Streak for Originals**\
+`The animated film was No. 1 at the domestic box office, with about $46 million in ticket sales. On the downside, “The Bride!” appeared dead on arrival.`\
+https://nytimes.com/2026/03/08/business/hoppers-the-bride-box-office.html
+
 **Oxford United announce death of academy player Amelia Aplin, aged 15**\
 `Aplin collapsed during a match on Saturday, the club said.`\
 https://nytimes.com/athletic/7099370/2026/03/08/amelia-aplin-oxford-women-death/
