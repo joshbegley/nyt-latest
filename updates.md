@@ -1,3 +1,11 @@
+**Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
+`Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
+https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
+
+**Khalil Mack returning to Chargers, looking for elusive playoff win: Source**\
+`Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
+https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
+
 **Kristaps Porziņģis returns to Warriors' lineup after six-game absence**\
 `Porziņģis was all smiles in the locker room prior to Saturday’s game — feeling relief that he was healthy enough to be back on the floor.`\
 https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warriors-illness-nba/
