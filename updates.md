@@ -1,3 +1,7 @@
+**Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
+`The Rangers center, who had been bracing for the possibility that he might be traded, returned to the ice with New York Saturday.`\
+https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
+
 **Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
 `Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
 https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
