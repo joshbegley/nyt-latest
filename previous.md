@@ -1,3 +1,31 @@
+**Tyrese Maxey's pending MRI for right hand injury could seal 76ers' fate as playoffs near**\
+`If they can't get healthy, the 76ers don't have much of a chance to come away with a top-six seeding.`\
+https://nytimes.com/athletic/7098105/2026/03/08/tyrese-maxey-injury-mri-right-hand-76ers-nba/
+
+**Quote of the Day: Retiring Move? Baby Boomers Pick New York.**\
+`Quotation of the Day for Sunday, March 8, 2026.`\
+https://nytimes.com/2026/03/08/pageoneplus/quote-of-the-day-retiring-move-baby-boomers-pick-new-york.html
+
+**In Russia’s Former Capital, Restoring the Past to Survive the Present**\
+`With political activism off-limits, residents of St. Petersburg are finding purpose and community in the “politics of small deeds,” repairing and cleaning architectural treasures.`\
+https://nytimes.com/2026/03/08/world/europe/st-petersburg-restoration-activism.html
+
+**He Wrote Judy Blume’s Life Story. She Won’t Talk About It.**\
+`Mark Oppenheimer had many conversations with his subject for his new book. Then the relationship took a turn.`\
+https://nytimes.com/2026/03/08/books/review/judy-blume-biography-mark-oppenheimer.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 8, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7098302/2026/03/08/connections-sports-edition-hints-answers-march-8-2026/
+
+**Napheesa Collier on Unrivaled and WNBA's future on this week's 'The Athletic Show'**\
+`Collier shares details on why and how the league was formed, and how the league structure could offer a blueprint to improve women’s sports.`\
+https://nytimes.com/athletic/7091722/2026/03/08/napheesa-collier-talks-unrivaled-and-wnbas-future-on-this-weeks-the-athletic-show/
+
+**Corrections: March 8, 2026**\
+`Corrections that appeared in print on Sunday, March 8, 2026.`\
+https://nytimes.com/2026/03/08/pageoneplus/corrections-march-8-2026.html
+
 **Rapper Backed by Gen Z Is Set for Landslide Win in Nepal Election**\
 `Balendra Shah, the onetime rap artist and former mayor of the country’s capital, is on course to become the country’s next prime minister.`\
 https://nytimes.com/2026/03/07/world/asia/nepal-election-rapper-balen-genz.html
@@ -10,32 +38,4 @@ https://nytimes.com/athletic/7098220/2026/03/07/maple-leafs-lightning-tickets-fa
 `Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
 `\
 https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
-
-**Oscar Piastri crashes out of Australian Grand Prix before race starts**\
-`Australia’s hope for a first home Formula 1 podium — or even a win — goes on.`\
-https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crash-australian-grand-prix/
-
-**Main card revealed for UFC's Freedom Fights 250 at White House**\
-`Ilia Topuria vs. Justin Gaethje and Alex Pereira vs. Ciryl Gane are the two title bouts scheduled for the June 14 UFC event.`\
-https://nytimes.com/athletic/7097875/2026/03/07/ufc-white-house-card-announcement-details/
-
-**Puerto Rico's Darell Hernaiz walks off 10-inning thriller over Panama**\
-`Hernaiz's homer was the second walk-off win of the day after Ozzie Albies made history with the first walk-off homer in WBC history. `\
-https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darell-hernaiz-walkoff/
-
-**In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
-`The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
-https://nytimes.com/athletic/7098016/2026/03/07/tarik-skubal-wbc-team-usa-start/
-
-**Desmond Bane fueling Magic surge from Play-In territory into playoff picture**\
-`This is the Desmond Bane the Magic traded for in June, the one with the boxer's build who scraps for everything he can get.`\
-https://nytimes.com/athletic/7097723/2026/03/07/desmond-bane-stats-magic-play-in-eastern-conference/
-
-**Joe Gibbs Racing hired private investigator to follow Chris Gabehart, Spire owner**\
-`The licensed investigator photographed and videoed Gabehart and Dickerson meeting for lunch while Gabehart was seeking to leave JGR.`\
-https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-lawsuit-private-investigator-spire/
-
-**Judge Voids Mass Layoffs at Voice of America**\
-`The ruling, which said that Kari Lake’s appointment to oversee V.O.A.’s parent agency was invalid, was a major rejection of President Trump’s attempts to dismantle the government-funded news group.`\
-https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
 

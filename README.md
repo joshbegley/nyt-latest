@@ -1,3 +1,27 @@
+**Penguins' shootout futility strikes again in loss to Flyers**\
+`The Penguins lost in a shootout — again — to the Flyers, 4-3, on Saturday at PPG Paints Arena. `\
+https://nytimes.com/athletic/7098126/2026/03/08/penguins-flyers-shootout-loss/
+
+**How Italy won the 2006 World Cup: Six forwards, Pirlo's passing and the brilliance of Cannavaro**\
+`Michael Cox's history of World Cup winners reaches 2006, and a fourth title for the Italians`\
+https://nytimes.com/athletic/7093496/2026/03/08/how-italy-won-the-2006-world-cup/
+
+**Max Dowman stars and makes history on Arsenal return. Can he help ease tension in title race?**\
+`The chance to show more of his carefree, youthful exuberance could be exactly what Arsenal need to relieve some of the tension in the run-in`\
+https://nytimes.com/athletic/7096624/2026/03/08/max-dowman-arsenal-mansfield-history-fa-cup/
+
+**'We're hating every second of it': what it feels like to watch football history made — against your team**\
+`Wycombe were 2-0 up with 87 minutes on the clock against Bolton on Saturday. Somehow, they left the stadium with no points`\
+https://nytimes.com/athletic/7097178/2026/03/08/bolton-wycombe-comeback-pain/
+
+**What we learnt from England's first steps on the road to the 2027 World Cup**\
+`The European champions have their eyes on the greatest prize of all and kicked off their qualifying campaign this week with two wins`\
+https://nytimes.com/athletic/7097070/2026/03/08/england-world-cup-qualifying-wiegman-bronze/
+
+**Will Osula and the story of his Man Utd trophy: 'He was a bit like a mini Cristiano Ronaldo'**\
+`A post on social media showing Osula holding a trophy after a Soccer Schools competition went viral after his late winning goal`\
+https://nytimes.com/athletic/7094012/2026/03/08/william-osula-newcastle-manchester-united-trophy/
+
 **Tyrese Maxey's pending MRI for right hand injury could seal 76ers' fate as playoffs near**\
 `If they can't get healthy, the 76ers don't have much of a chance to come away with a top-six seeding.`\
 https://nytimes.com/athletic/7098105/2026/03/08/tyrese-maxey-injury-mri-right-hand-76ers-nba/
@@ -13,29 +37,4 @@ https://nytimes.com/2026/03/08/world/europe/st-petersburg-restoration-activism.h
 **He Wrote Judy Blume’s Life Story. She Won’t Talk About It.**\
 `Mark Oppenheimer had many conversations with his subject for his new book. Then the relationship took a turn.`\
 https://nytimes.com/2026/03/08/books/review/judy-blume-biography-mark-oppenheimer.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 8, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7098302/2026/03/08/connections-sports-edition-hints-answers-march-8-2026/
-
-**Napheesa Collier on Unrivaled and WNBA's future on this week's 'The Athletic Show'**\
-`Collier shares details on why and how the league was formed, and how the league structure could offer a blueprint to improve women’s sports.`\
-https://nytimes.com/athletic/7091722/2026/03/08/napheesa-collier-talks-unrivaled-and-wnbas-future-on-this-weeks-the-athletic-show/
-
-**Corrections: March 8, 2026**\
-`Corrections that appeared in print on Sunday, March 8, 2026.`\
-https://nytimes.com/2026/03/08/pageoneplus/corrections-march-8-2026.html
-
-**Rapper Backed by Gen Z Is Set for Landslide Win in Nepal Election**\
-`Balendra Shah, the onetime rap artist and former mayor of the country’s capital, is on course to become the country’s next prime minister.`\
-https://nytimes.com/2026/03/07/world/asia/nepal-election-rapper-balen-genz.html
-
-**Amid Maple Leafs' slump, the real story is the empty seats, boos and uncertainty**\
-`Toronto's 5-2 loss to the Lightning was the team’s seventh in a row, and with no announced direction forward, the fan base is in limbo.`\
-https://nytimes.com/athletic/7098220/2026/03/07/maple-leafs-lightning-tickets-fans-nhl/
-
-**Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
-`Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
-`\
-https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
 
