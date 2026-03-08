@@ -1,3 +1,7 @@
+**'We stopped respecting the game': Skidding Pistons drop third straight**\
+`"We have to play to our identity every single night," Pistons coach J.B. Bickerstaff said after his team blew a 23-point lead to the Nets.`\
+https://nytimes.com/athletic/7098702/2026/03/08/pistons-third-straight-loss-nets/
+
 **Vital desalination plants in Iran and Bahrain are attacked.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/desalination-plants-iran-bahrain

@@ -1,3 +1,7 @@
+**'We stopped respecting the game': Skidding Pistons drop third straight**\
+`"We have to play to our identity every single night," Pistons coach J.B. Bickerstaff said after his team blew a 23-point lead to the Nets.`\
+https://nytimes.com/athletic/7098702/2026/03/08/pistons-third-straight-loss-nets/
+
 **Vital desalination plants in Iran and Bahrain are attacked.**\
 `By Vivian Nereim`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/desalination-plants-iran-bahrain
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098753/2026/03/08/air-force-vs-san-diego-state-str
 **How to watch Portland vs. Oregon State women's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Portland Pilots play the Oregon State Beavers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098752/2026/03/08/portland-vs-oregon-state-stream-how-to-watch-march-8/
-
-**How to watch Iowa vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7098749/2026/03/08/iowa-vs-ucla-stream-how-to-watch-march-8/
 
