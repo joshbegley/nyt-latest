@@ -1,3 +1,7 @@
+**Brandt to leave Dortmund in the summer after seven years at the club**\
+`Dortmund CEO for sport Lars Ricken confirmed that the player and club have been unable to agree on an extension.`\
+https://nytimes.com/athletic/7098568/2026/03/08/julian-brandt-dortmund-transfer-exit/
+
 **College hoops observations: Florida passes UConn, Purdue's slide and more**\
 `Plus, the fourth 30-point comeback in NCAA history and a bad day for bubble teams. `\
 https://nytimes.com/athletic/7097922/2026/03/08/florida-uconn-purdue-college-basketball-byu/
