@@ -1,3 +1,7 @@
+**This is what happened on March 8.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-8
+
 **Who Is Mojtaba Khamenei, Iran’s New Supreme Leader?**\
 `The selection of a son of Ayatollah Ali Khamenei, who was killed in a strike on his compound at the start of the war, could anger Iranians seeking change.`\
 https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-supreme-leader.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099800/2026/03/08/pacific-vs-santa-clara-stream-ho
 **Sizing Up Iran’s Elite Guards**\
 `Many see the Islamic Revolutionary Guards Corps as the main barrier to regime change, or any change at all, in Iran.`\
 https://nytimes.com/2026/03/08/world/iran-revolutionary-guards-corps-nepal-election.html
-
-**How to watch Grand Canyon vs. Colorado State women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Grand Canyon Antelopes play the Colorado State Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099787/2026/03/08/grand-canyon-vs-colorado-state-stream-how-to-watch-march-8/
 
