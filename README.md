@@ -1,3 +1,7 @@
+**Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
+`The Rangers center, who had been bracing for the possibility that he might be traded, returned to the ice with New York Saturday.`\
+https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
+
 **Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
 `Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
 https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieve
 **How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
-
-**How to watch Mammoth vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097800/2026/03/07/mammoth-vs-blue-jackets-stream-how-to-watch-march-7/
 
