@@ -1,3 +1,7 @@
+**Canadiens needed to shore up details on road trip. They return with the same task**\
+`Montreal's road trip demonstrated that this young team has a lot of learning left to do if it wants to make noise in the playoffs.`\
+https://nytimes.com/athletic/7098386/2026/03/08/canadiens-needed-to-firm-up-details-on-california-trip-they-return-with-the-same-task/
+
 **A very different F1, plus Skubal lets it rip at WBC**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7098385/2026/03/08/f1-is-back-and-its-a-whole-new-experience-for-the-drivers/
