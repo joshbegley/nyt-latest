@@ -2,7 +2,7 @@
 `The fate of the highly enriched uranium and the options for securing it have become critical issues for the Trump administration.`\
 https://nytimes.com/2026/03/07/us/politics/iran-nuclear-site-uranium-intel.html
 
-**Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space**\
+**Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space: Sources**\
 `Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
 https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
 
@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-tra
 `Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
 https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
 
-**Khalil Mack returning to Chargers, looking for elusive playoff win: Source**\
+**Khalil Mack returning to Chargers, looking for elusive playoff win**\
 `Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
 https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
 

@@ -1,3 +1,7 @@
+**Iran Could Retrieve Uranium at Site U.S. Bombed Last Year, Officials Say**\
+`The fate of the highly enriched uranium and the options for securing it have become critical issues for the Trump administration.`\
+https://nytimes.com/2026/03/07/us/politics/iran-nuclear-site-uranium-intel.html
+
 **Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space**\
 `Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
 https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097217/2026/03/07/tennis-abuse-threats-betting-wta
 **Maxx Crosby posts farewell to Raiders organization: 'I feel like I let y'all down'**\
 `Now headed to the Baltimore Ravens in a trade, Crosby said, "I feel like I left everything I had on the table" for the Raiders.`\
 https://nytimes.com/athletic/7097626/2026/03/07/ravens-maxx-crosby-raiders-farewell/
-
-**Quarterback Tyler Huntley returning to Ravens on two-year deal: Source**\
-`Huntley has started 16 games throughout his six-year career and has a 7-9 record. `\
-https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-agency-2026/
 
