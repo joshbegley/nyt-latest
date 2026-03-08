@@ -1,3 +1,15 @@
+**How to watch Michigan State vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099049/2026/03/08/michigan-state-vs-michigan-stream-how-to-watch-march-8/
+
+**How to watch Marist vs. Merrimack men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Marist Red Foxes play the Merrimack Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099046/2026/03/08/marist-vs-merrimack-stream-how-to-watch-march-8/
+
+**How to watch Southern Miss vs. Troy men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Miss Golden Eagles play the Troy Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099037/2026/03/08/southern-miss-vs-troy-stream-how-to-watch-march-8/
+
 **Spring Ahead**\
 `Recipes to cook this weekend for weekday meals: Quinoa salad with chicken, almonds and avocado; mustard-braised pork; baked salmon and dill rice.`\
 https://nytimes.com/2026/03/08/dining/spring-ahead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7097467/2026/03/08/bills-trade-dj-moore-josh-allen-
 **From a missed meeting to a polite rejection: Inside Blues' nixed Parayko deal**\
 `Defenseman Colton Parayko exercised his right to nix a trade to Buffalo last week, then took The Athletic behind the scenes of his decision.`\
 https://nytimes.com/athletic/7097684/2026/03/08/colton-parayko-trade-blues-sabres/
-
-**Explosion Damages U.S. Embassy in Oslo, Police Say**\
-`A motive for the explosion was unclear as of Sunday morning, but the police were investigating and said it appeared to be a “targeted attack.”`\
-https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
-
-**What we’re seeing at the WBC: Art, an emperor and drama with a deluge in San Juan**\
-`A traveling artist, talented drummers and a typical Caribbean rain storm dotted the day's events at the World Baseball Classic.`\
-https://nytimes.com/athletic/7098652/2026/03/08/wbc-art-emperor-rain-delay/
-
-**As F1 drivers continue to criticize their new cars, paddock politics is at play**\
-`Many F1 drivers continued to criticize the new 2026 cars after the Australian GP. But there is a split on what works and what does not`\
-https://nytimes.com/athletic/7098741/2026/03/08/f1-new-cars-driver-criticism/
 
