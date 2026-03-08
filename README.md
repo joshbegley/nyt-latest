@@ -1,3 +1,7 @@
+**Spring Ahead**\
+`Recipes to cook this weekend for weekday meals: Quinoa salad with chicken, almonds and avocado; mustard-braised pork; baked salmon and dill rice.`\
+https://nytimes.com/2026/03/08/dining/spring-ahead.html
+
 **Why Fulham were denied comedic goal in FA Cup loss to Southampton**\
 `Rodrigo Muniz thought he had given Fulham the lead after Southampton's Daniel Peretz hit a goal kick against his own team-mate.`\
 https://nytimes.com/athletic/7098888/2026/03/08/fulham-southampton-goal-disallowed-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098652/2026/03/08/wbc-art-emperor-rain-delay/
 **As F1 drivers continue to criticize their new cars, paddock politics is at play**\
 `Many F1 drivers continued to criticize the new 2026 cars after the Australian GP. But there is a split on what works and what does not`\
 https://nytimes.com/athletic/7098741/2026/03/08/f1-new-cars-driver-criticism/
-
-**Strade Bianche: Tadej Pogacar solo lands fourth title, women's race goes off course, Paul Seixas justifies hype**\
-`Analysis of a typically dusty and memorable day of WorldTour racing on Tuscany's white roads`\
-https://nytimes.com/athletic/7098632/2026/03/08/strade-bianche-pogacar-seixas-elise-chabbey/
 

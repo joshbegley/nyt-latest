@@ -1,6 +1,10 @@
+**Why Fulham were denied comedic goal in FA Cup loss to Southampton**\
+`Rodrigo Muniz thought he had given Fulham the lead after Southampton's Daniel Peretz hit a goal kick against his own team-mate.`\
+https://nytimes.com/athletic/7098888/2026/03/08/fulham-southampton-goal-disallowed-fa-cup/
+
 **U.S. Embassy in Baghdad Targeted as Iraq Gets Drawn Deeper Into Regional War**\
 `Iraq is caught between two allies as the Trump administration pressures Iraqi leaders to distance themselves from Iran.`\
-https://nytimes.com/2026/03/08/world/middleeast/us-embassy-in-baghdad-targeted-iran-war.html
+https://nytimes.com/2026/03/08/world/middleeast/us-embassy-baghdad-iraq-iran-war.html
 
 **Iran Says It’s Close to Naming a New Supreme Leader**\
 `Iranian state media reported that the country’s top clerics have identified who will replace Ayatollah Ali Khamenei. They have not released his name.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098741/2026/03/08/f1-new-cars-driver-criticism/
 **Strade Bianche: Tadej Pogacar solo lands fourth title, women's race goes off course, Paul Seixas justifies hype**\
 `Analysis of a typically dusty and memorable day of WorldTour racing on Tuscany's white roads`\
 https://nytimes.com/athletic/7098632/2026/03/08/strade-bianche-pogacar-seixas-elise-chabbey/
-
-**Kiplimo reclaims half marathon world record**\
-`Kiplimo ran 57:20 run in Lisbon, Portugal.`\
-https://nytimes.com/athletic/7098797/2026/03/08/jacob-kiplimo-half-marathon-record/
 
