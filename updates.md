@@ -1,3 +1,11 @@
+**Main card revealed for UFC's Freedom Fights 250 at White House**\
+`Ilia Topuria vs. Justin Gaethje and Alex Pereira vs. Ciryl Gane are the two title bouts scheduled for the June 14 UFC event.`\
+https://nytimes.com/athletic/7097875/2026/03/07/ufc-white-house-card-announcement-details/
+
+**Puerto Rico's Darell Hernáiz walks off 10-inning thriller over Panama**\
+`Hernáiz's homer was the second walk-off win of the day after Ozzie Albies made history with the first walk-off homer in WBC history. `\
+https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darell-hernaiz-walkoff/
+
 **Puerto Rico's Darrell Hernáiz walks off 10-inning thriller with home run over Panama**\
 `Hernáiz's homer was the second walk-off win of the day after Albies made history with the first walk-off homer in WBC history. `\
 https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darrell-hernaiz-walkoff/

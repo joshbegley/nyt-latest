@@ -1,6 +1,10 @@
-**Puerto Rico's Darrell Hernáiz walks off 10-inning thriller with home run over Panama**\
-`Hernáiz's homer was the second walk-off win of the day after Albies made history with the first walk-off homer in WBC history. `\
-https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darrell-hernaiz-walkoff/
+**Main card revealed for UFC's Freedom Fights 250 at White House**\
+`Ilia Topuria vs. Justin Gaethje and Alex Pereira vs. Ciryl Gane are the two title bouts scheduled for the June 14 UFC event.`\
+https://nytimes.com/athletic/7097875/2026/03/07/ufc-white-house-card-announcement-details/
+
+**Puerto Rico's Darell Hernáiz walks off 10-inning thriller over Panama**\
+`Hernáiz's homer was the second walk-off win of the day after Ozzie Albies made history with the first walk-off homer in WBC history. `\
+https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darell-hernaiz-walkoff/
 
 **In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
 `The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/us/politics/iran-nuclear-site-uranium-intel.html
 **Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space: Sources**\
 `Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
 https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
-
-**Israel Strikes Oil Facilities in Iran**\
-`Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
-https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
 
