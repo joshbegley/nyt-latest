@@ -1,3 +1,7 @@
+**Port Vale reach FA Cup quarter-finals for first time in 72 years with Sunderland win**\
+`Ben Waine's first-half goal was the difference between the two sides.`\
+https://nytimes.com/athletic/7099192/2026/03/08/port-vale-sunderland-fa-cup/
+
 **Wrexham's preparations for Chelsea were near faultless - they just need to get used to VAR**\
 `Wrexham did not enjoy their first taste of VAR, but it will be something they quickly need to adjust to should they be promoted again`\
 https://nytimes.com/athletic/7089411/2026/03/08/wrexham-chelsea-var/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099124/2026/03/08/blackhawks-vs-stars-stream-how-t
 **How to watch San Francisco vs. Santa Clara women's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the San Francisco Dons play the Santa Clara Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099114/2026/03/08/san-francisco-vs-santa-clara-stream-how-to-watch-march-8/
-
-**How to watch Montana vs. Montana State women's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Montana Lady Griz play the Montana State Bobcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099110/2026/03/08/montana-vs-montana-state-stream-how-to-watch-march-8/
 
