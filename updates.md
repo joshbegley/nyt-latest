@@ -1,3 +1,11 @@
+**U.S. Embassy in Baghdad Targeted as Iraq Gets Drawn Deeper Into Regional War**\
+`Iraq is caught between two allies as the Trump administration pressures Iraqi leaders to distance themselves from Iran.`\
+https://nytimes.com/2026/03/08/world/middleeast/us-embassy-in-baghdad-targeted-iran-war.html
+
+**Iran Says It’s Close to Naming a New Supreme Leader**\
+`Iranian state media reported that the country’s top clerics have identified who will replace Ayatollah Ali Khamenei. They have not released his name.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-new-supreme-leader.html
+
 **Five NHL players score goals in their first games with new teams after trade deadline**\
 `Four of those players were traded on Friday and scored with their new teams the following night after long days that featured travel delays.`\
 https://nytimes.com/athletic/7098906/2026/03/08/nhl-trade-deadline-players-first-goal-teams/

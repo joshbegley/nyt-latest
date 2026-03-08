@@ -1,3 +1,11 @@
+**U.S. Embassy in Baghdad Targeted as Iraq Gets Drawn Deeper Into Regional War**\
+`Iraq is caught between two allies as the Trump administration pressures Iraqi leaders to distance themselves from Iran.`\
+https://nytimes.com/2026/03/08/world/middleeast/us-embassy-in-baghdad-targeted-iran-war.html
+
+**Iran Says It’s Close to Naming a New Supreme Leader**\
+`Iranian state media reported that the country’s top clerics have identified who will replace Ayatollah Ali Khamenei. They have not released his name.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-new-supreme-leader.html
+
 **Five NHL players score goals in their first games with new teams after trade deadline**\
 `Four of those players were traded on Friday and scored with their new teams the following night after long days that featured travel delays.`\
 https://nytimes.com/athletic/7098906/2026/03/08/nhl-trade-deadline-players-first-goal-teams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7098632/2026/03/08/strade-bianche-pogacar-seixas-el
 **Kiplimo reclaims half marathon world record**\
 `Kiplimo ran 57:20 run in Lisbon, Portugal.`\
 https://nytimes.com/athletic/7098797/2026/03/08/jacob-kiplimo-half-marathon-record/
-
-**Grok posts about Hillsborough, Munich and Jota deleted after Liverpool and Man United complaints**\
-`Grok responded to users with a series of 'appalling' posts, including accusing Liverpool fans of causing the deadly crush at Hillsborough`\
-https://nytimes.com/athletic/7098659/2026/03/08/man-united-liverpool-grok-hillsborough-munich-jota-posts/
-
-**Andy Pages aims to move on from miserable October, become more 'complete' hitter**\
-`Pages made a spectacular catch in Game 7 of the World Series but had one of the worst offensive slumps in playoff history. `\
-https://nytimes.com/athletic/7098006/2026/03/08/dodgers-andy-pages-postseason/
 
