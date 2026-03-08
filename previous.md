@@ -1,3 +1,11 @@
+**A Beirut Hotel Sheltering the Displaced Comes Under Fire**\
+`A Christian hotel owner opened her doors to Shia Muslims fleeing Israel’s bombardment of the southern outskirts of Beirut. Then a missile struck the hotel, killing her 34-year-old receptionist.`\
+https://nytimes.com/video/world/middleeast/100000010755971/israel-strikes-beirut-hotel-lebanon.html
+
+**Police investigating 'shameful' pitch invasion following Old Firm derby**\
+`"Officers and members of the public have been injured in this despicable display," Police Scotland said in a statement.`\
+https://nytimes.com/athletic/7099576/2026/03/08/rangers-celtic-ibrox-flares-pitch-invasion/
+
 **Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
 `Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
 https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099561/2026/03/08/hornets-vs-suns-stream-how-to-wa
 **Leeds reach FA Cup quarter-finals with win over Norwich**\
 `Daniel Farke's side were convincing 3-0 winners over his former team.`\
 https://nytimes.com/athletic/7099285/2026/03/08/leeds-norwich-fa-cup/
-
-**How to watch Northwestern State vs. Nicholls State men's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the Northwestern State Demons play the Nicholls State Colonels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099554/2026/03/08/northwestern-state-vs-nicholls-state-stream-how-to-watch-march-8/
-
-**How to watch Oilers vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099547/2026/03/08/oilers-vs-golden-knights-stream-how-to-watch-march-8/
 

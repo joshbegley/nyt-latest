@@ -1,3 +1,11 @@
+**A Beirut Hotel Sheltering the Displaced Comes Under Fire**\
+`A Christian hotel owner opened her doors to Shia Muslims fleeing Israel’s bombardment of the southern outskirts of Beirut. Then a missile struck the hotel, killing her 34-year-old receptionist.`\
+https://nytimes.com/video/world/middleeast/100000010755971/israel-strikes-beirut-hotel-lebanon.html
+
+**Police investigating 'shameful' pitch invasion following Old Firm derby**\
+`"Officers and members of the public have been injured in this despicable display," Police Scotland said in a statement.`\
+https://nytimes.com/athletic/7099576/2026/03/08/rangers-celtic-ibrox-flares-pitch-invasion/
+
 **Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
 `Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
 https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/

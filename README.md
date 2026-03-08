@@ -1,3 +1,11 @@
+**Eagles thoughts: Why a Jordan Davis contract extension, what it means for Jalen Carter**\
+`The Eagles' challenge is in trying to keep all of their high-end defensive talent.`\
+https://nytimes.com/athletic/7099397/2026/03/08/eagles-jordan-davis-contract-extension-jalen-carter/
+
+**USMNT's Dest suffers thigh injury but aiming to return before World Cup**\
+`Dest said he is "convinced" he will be back playing before the end of the domestic season with Dutch club PSV.`\
+https://nytimes.com/athletic/7099593/2026/03/08/sergino-dest-injury-usmnt-world-cup/
+
 **A Beirut Hotel Sheltering the Displaced Comes Under Fire**\
 `A Christian hotel owner opened her doors to Shia Muslims fleeing Israel’s bombardment of the southern outskirts of Beirut. Then a missile struck the hotel, killing her 34-year-old receptionist.`\
 https://nytimes.com/video/world/middleeast/100000010755971/israel-strikes-beirut-hotel-lebanon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-wat
 **Thousands Waited for Hours in Security Lines at Airports in New Orleans and Houston**\
 `Screening delays created lines that stretched around William P. Hobby and Louis Armstrong airports, causing many to miss flights at the start of spring break season.`\
 https://nytimes.com/2026/03/08/us/airports-delays-security-lines-new-orleans-and-houston.html
-
-**How to watch Hornets vs. Suns: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the Phoenix Suns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099561/2026/03/08/hornets-vs-suns-stream-how-to-watch-march-8/
-
-**Leeds reach FA Cup quarter-finals with win over Norwich**\
-`Daniel Farke's side were convincing 3-0 winners over his former team.`\
-https://nytimes.com/athletic/7099285/2026/03/08/leeds-norwich-fa-cup/
 
