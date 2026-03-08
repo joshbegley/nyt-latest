@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
 
+**Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
+`Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
+`\
+https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
+
 **Amid Maple Leafs' slump, the real story is the empty seats, boos and uncertainty**\
 `Toronto's 5-2 loss to the Lightning was the team’s seventh in a row, and with no announced direction forward, the fan base is in limbo.`\
 https://nytimes.com/athletic/7098220/2026/03/07/maple-leafs-lightning-tickets-fans-nhl/
