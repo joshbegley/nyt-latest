@@ -3,9 +3,9 @@
 `\
 https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
 
-**Oscar Piastri crashed out of Australian Grand Prix before race start**\
+**Oscar Piastri crashes out of Australian Grand Prix before race starts**\
 `Australia’s hope for a first home Formula 1 podium — or even a win — goes on.`\
-https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crashed-out-of-australian-grand-prix-before-race-start/
+https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crash-australian-grand-prix/
 
 **Main card revealed for UFC's Freedom Fights 250 at White House**\
 `Ilia Topuria vs. Justin Gaethje and Alex Pereira vs. Ciryl Gane are the two title bouts scheduled for the June 14 UFC event.`\
