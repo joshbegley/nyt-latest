@@ -1,9 +1,13 @@
+**Judge Voids Mass Layoffs at Voice of America**\
+`The ruling is a major rejection of President Trump’s attempts to dismantle the government-funded news group and influence its editorial decisions.`\
+https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
+
 **Artemi Panarin switches jersey number, ending saga with Kings mascot**\
-`Panarin wore No. 72 alongside Bailey the Lion after gifting the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
+`Panarin wore No. 72 alongside Bailey the Lion after giving the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
 https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
 
 **Duke downs Caleb Wilson-less UNC in K-Ville, suffers own injuries**\
-`The No. 1 Blue Devils exacted revenge with a resounding 76-61 win after falling to No. 17 UNC by 3 points earlier in the season.`\
+`The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
 
 **Iran Could Retrieve Uranium at Site U.S. Bombed Last Year, Officials Say**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-ag
 **Kristaps Porziņģis returns to Warriors' lineup after six-game absence**\
 `Porziņģis was all smiles in the locker room prior to Saturday’s game — feeling relief that he was healthy enough to be back on the floor.`\
 https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warriors-illness-nba/
-
-**Iran’s De Facto Leader Says Iran Will Not Surrender or Stop Its Attacks**\
-`Ali Larijani, the head of Iran’s Supreme National Security Council and a close confidant of Ayatollah Ali Khamenei, said Iran was determined to avenge the killing of the leader.`\
-https://nytimes.com/2026/03/07/world/middleeast/larijani-iran-war.html
 

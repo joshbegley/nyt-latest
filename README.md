@@ -1,3 +1,7 @@
+**Joe Gibbs Racing hired private investigator to follow Chris Gabehart, Spire owner**\
+`The licensed investigator photographed and videoed Gabehart and Dickerson meeting for lunch while Gabehart was seeking to leave JGR.`\
+https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-lawsuit-private-investigator-spire/
+
 **Judge Voids Mass Layoffs at Voice of America**\
 `The ruling is a major rejection of President Trump’s attempts to dismantle the government-funded news group and influence its editorial decisions.`\
 https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
@@ -6,7 +10,7 @@ https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
 `Panarin wore No. 72 alongside Bailey the Lion after giving the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
 https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
 
-**Duke downs Caleb Wilson-less UNC in K-Ville, suffers own injuries**\
+**Duke downs Caleb Wilson-less UNC, but loses Caleb Foster to injury**\
 `The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
 **Khalil Mack returning to Chargers, looking for elusive playoff win**\
 `Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
 https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
-
-**Kristaps Porziņģis returns to Warriors' lineup after six-game absence**\
-`Porziņģis was all smiles in the locker room prior to Saturday’s game — feeling relief that he was healthy enough to be back on the floor.`\
-https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warriors-illness-nba/
 
