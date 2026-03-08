@@ -1,3 +1,19 @@
+**Robertson: Focus 'never' left Liverpool after Tottenham January approach**\
+`Robertson is out of contract at Liverpool at the end of the season and says he was "never not committed" to the club.`\
+https://nytimes.com/athletic/7098684/2026/03/08/andy-robertson-liverpool-tottenham-future/
+
+**The F1 wind tunnel engineer who went from 'Drive to Survive' viewer to Williams employee**\
+`Christina Sullivan was aiming for a career in film production. "Drive to Survive" brought her back to engineering and an F1 job at Williams`\
+https://nytimes.com/athletic/7095460/2026/03/08/f1-drive-to-survive-engineer/
+
+**History Makers**\
+`On this International Women’s Day, we’re writing about a project to unearth stories of remarkable women.`\
+https://nytimes.com/2026/03/08/briefing/women-history-makers.html
+
+**Rosenthal: As Skubal weighs sticking around, his decision shouldn't be criticized**\
+`The back-to-back AL Cy Young winner had intended to only make one WBC start, but seems to be reconsidering that plan.`\
+https://nytimes.com/athletic/7098671/2026/03/08/tarik-skubal-world-baseball-classic-team-usa-detroit-tigers/
+
 **Canadiens needed to shore up details on road trip. They return with the same task**\
 `Montreal's road trip demonstrated that this young team has a lot of learning left to do if it wants to make noise in the playoffs.`\
 https://nytimes.com/athletic/7098386/2026/03/08/canadiens-needed-to-firm-up-details-on-california-trip-they-return-with-the-same-task/

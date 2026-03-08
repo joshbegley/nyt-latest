@@ -1,3 +1,7 @@
+**On ‘S.N.L.’, Pete Hegseth Says Iran ‘Isn’t a War, It’s a Situationship’**\
+`Colin Jost added to his airtime playing Hegseth, the defense secretary, in the opening of a “Saturday Night Live” broadcast hosted by Ryan Gosling.`\
+https://nytimes.com/2026/03/08/arts/television/snl-ryan-gosling-harry-styles-iran-war.html
+
 **Robertson: Focus 'never' left Liverpool after Tottenham January approach**\
 `Robertson is out of contract at Liverpool at the end of the season and says he was "never not committed" to the club.`\
 https://nytimes.com/athletic/7098684/2026/03/08/andy-robertson-liverpool-tottenham-future/
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/7098671/2026/03/08/tarik-skubal-world-baseball-clas
 
 **Canadiens needed to shore up details on road trip. They return with the same task**\
 `Montreal's road trip demonstrated that this young team has a lot of learning left to do if it wants to make noise in the playoffs.`\
-https://nytimes.com/athletic/7098386/2026/03/08/canadiens-needed-to-firm-up-details-on-california-trip-they-return-with-the-same-task/
+https://nytimes.com/athletic/7098386/2026/03/08/canadiens-trade-deadline-kings/
 
 **A very different F1, plus Skubal lets it rip at WBC**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098098/2026/03/08/world-baseball-classic-2028-olym
 **Flyers post-deadline depth chart: Still searching for a center; where might Martone fit?**\
 `The Flyers’ roster didn’t change much on trade deadline day but the overall depth chart has certainly shifted since the start of the season.`\
 https://nytimes.com/athletic/7097702/2026/03/08/flyers-trade-deadline-depth-chart-martone/
-
-**Gui Santos on his NBA journey to the Warriors: ‘Everything I did was worth it’**\
-`The 23-year-old opens up about what it's like to be the only Brazilian in the league, how he fell in love with basketball and more. `\
-https://nytimes.com/athletic/7087217/2026/03/08/gui-santos-golden-state-warriors-nba-brazil/
 
