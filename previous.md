@@ -1,3 +1,7 @@
+**Israel Strikes Oil Facilities in Iran**\
+`Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
+https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
+
 **Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
 `The Rangers center, who had been bracing for the possibility that he might be traded, returned to the ice with New York Saturday.`\
 https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-ag
 **Alyssa Thompson's goal secures win over Colombia, USWNT’s eighth SheBelieves Cup victory**\
 `The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
 https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
-
-**How to watch Seattle U vs. Pacific men's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Seattle U Redhawks play the Pacific Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-to-watch-march-7/
 

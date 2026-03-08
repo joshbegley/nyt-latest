@@ -1,3 +1,7 @@
+**Israel Strikes Oil Facilities in Iran**\
+`Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
+https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
+
 **Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
 `The Rangers center, who had been bracing for the possibility that he might be traded, returned to the ice with New York Saturday.`\
 https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
