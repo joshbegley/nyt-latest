@@ -1,3 +1,11 @@
+**Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
+`Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
+https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
+
+**Khalil Mack returning to Chargers, looking for elusive playoff win: Source**\
+`Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
+https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
+
 **Kristaps Porziņģis returns to Warriors' lineup after six-game absence**\
 `Porziņģis was all smiles in the locker room prior to Saturday’s game — feeling relief that he was healthy enough to be back on the floor.`\
 https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warriors-illness-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7097840/2026/03/07/seattle-u-vs-pacific-stream-how-
 **How to watch Mammoth vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7097800/2026/03/07/mammoth-vs-blue-jackets-stream-how-to-watch-march-7/
-
-**Americans Struggle to Evacuate the Middle East a Week After Strikes**\
-`One week into the U.S.-Israeli war with Iran, thousands of Americans remain stranded. Despite official promises of help, many say they’ve been left to navigate closed airports, canceled flights and uncertainty on their own.`\
-https://nytimes.com/video/world/middleeast/100000010759942/middle-east-americans-stranded-airlines.html
-
-**This is what happened on March 7.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-7
 
