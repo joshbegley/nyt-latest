@@ -1,3 +1,7 @@
+**F1 Australian Grand Prix briefing: George Russell wins as Ferrari's strategy backfires**\
+`George Russell had to work for it, but he and Mercedes sent a message with a season opening F1 win in the 2026 Australian Grand Prix`\
+https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
+
 **The New York Times in Print for Sunday, March 8, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
