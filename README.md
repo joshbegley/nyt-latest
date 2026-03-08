@@ -1,3 +1,7 @@
+**Puerto Rico's Darrell Hernáiz walks off 10-inning thriller with home run over Panama**\
+`Hernáiz's homer was the second walk-off win of the day after Albies made history with the first walk-off homer in WBC history. `\
+https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darrell-hernaiz-walkoff/
+
 **In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
 `The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
 https://nytimes.com/athletic/7098016/2026/03/07/tarik-skubal-wbc-team-usa-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructure
 **Israel Strikes Oil Facilities in Iran**\
 `Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
 https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
-
-**Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
-`The Rangers center, who had been bracing for the possibility he might be traded, returned to the ice with New York on Saturday.`\
-https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
 
