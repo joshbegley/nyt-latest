@@ -1,41 +1,40 @@
-**The New York Times International Edition in Print for Monday, March 9, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/08/todays-new-york-times-international-edition
+**College hoops observations: Florida passes UConn, Purdue's slide and more**\
+`Plus, the fourth 30-point comeback in NCAA history and a bad day for bubble teams. `\
+https://nytimes.com/athletic/7097922/2026/03/08/florida-uconn-purdue-college-basketball-byu/
 
-**A Loose Band of Emerging Powers Is Divided Over Iran**\
-`Brazil, China and Russia all denounced the U.S.-Israeli attacks, but other nations in the BRICS group haven’t, even though Iran is a fellow member.`\
-https://nytimes.com/2026/03/08/world/middleeast/brics-iran-allies-us-israel-war.html
+**Two Gordie Howes and a late 2-goal rally, but Blue Jackets fall to Mammoth in OT**\
+`Two goals 30 seconds apart late in the third period allowed the Blue Jackets to force overtime and earn a point against the Mammoth.`\
+https://nytimes.com/athletic/7098153/2026/03/08/blue-jackets-mammoth-ot-gordie-howe-hat-tricks/
 
-**Iran’s Revolutionary Guards: The Spine of a Militarized State**\
-`With their pervasive military, political and economic clout, the Guards are often considered the main impediment to regime change, or any change, in Iran.`\
-https://nytimes.com/2026/03/08/us/iran-islamic-revolutionary-guards-corps.html
+**NBA Draft sleepers: Another Santa Clara surprise, plus 9 more to watch this March Madness**\
+`The 2026 draft class is so loaded that NBA-caliber prospects will get passed over. But keep an eye on these under-the-radar guys. `\
+https://nytimes.com/athletic/7089044/2026/03/08/nba-draft-sleepers-2026-allen-graves-stanford-march-madness/
 
-**ICE Detention of Teen Musicians Roils Texas Mariachi Community**\
-`Two brothers who were recognized by their congresswoman last year, along with their parents and younger brother, are facing deportation.`\
-https://nytimes.com/2026/03/08/us/teen-mariachi-musicians-detained-ice-texas.html
+**James Talarico Is a Christian X-Ray**\
+`The Democratic senate candidate in Texas is teaching us about what faith really means.`\
+https://nytimes.com/2026/03/08/opinion/james-talarico-christian-democrat-texas-primary.html
 
-**A Republican’s Stand Against the Iran War Stirs Up a Heated Kentucky Primary**\
-`Representative Thomas Massie’s race against a rival backed by President Trump is shaping up as a key midterm testing ground for G.O.P. attitudes on the war.`\
-https://nytimes.com/2026/03/08/us/politics/massie-republicans-trump-iran-war-midterms.html
+**Minnesota gave up on Rob Dillingham. Can he revive his career with the Bulls?**\
+`Dillingham was the No. 8 pick in 2024, but the contending Wolves didn't have time to develop the 21-year-old point guard.`\
+https://nytimes.com/athletic/7089532/2026/03/08/rob-dillingham-bulls-timberwolves-nba-billy-donovan/
 
-**Ramadan During a War**\
-`Missiles are falling across the Middle East, where millions of people are fasting. I’ve been thinking about that incongruity.`\
-https://nytimes.com/2026/03/08/briefing/ramadan-war-iran-middle-east.html
+**The Popcorn Resistance of ‘One Battle After Another’**\
+`My parents were radical. Paul Thomas Anderson’s film is anything but.`\
+https://nytimes.com/2026/03/08/opinion/one-battle-after-another-weathermen.html
 
-**A bizarre match point, missing balls and pressure in tennis: Four days at Indian Wells**\
-`A series of strange happenings in the desert helped define the first few days of the tournament.`\
-https://nytimes.com/athletic/7097913/2026/03/08/tennis-indian-wells-recap-best-matches-results/
+**The Future We Feared Is Already Here**\
+`The showdown between the Pentagon and Anthropic is a window into how unprepared we are for the questions we are facing.`\
+https://nytimes.com/2026/03/08/opinion/ai-anthropic-claude-pentagon-hegseth-amodei.html
 
-**‘New Michelangelos’ and the ‘Dan Brown Approach’ to Art History**\
-`Works newly attributed to the Renaissance artist had exciting stories behind them. But experts say they are unlikely to be by his hand.`\
-https://nytimes.com/2026/03/08/arts/new-michelangelos-and-the-dan-brown-approach-to-art-history.html
+**Oscars 2026: Who Will Win, and Who Should Win?**\
+`Our critic on the remarkable movies and performances you don’t want to miss.`\
+https://nytimes.com/2026/03/08/podcasts/the-daily/oscars-2026-who-will-win-and-who-should-win.html
 
-**Is the key to Shota Imanaga's 2026 success really as simple as getting his velocity back?**\
-`The Cubs believe if Imanaga gets healthy and corrects his mechanics, his fastball will return to its former glory.
-`\
-https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
+**Wordle Review No. 1,724**\
+`Scroll down for hints and conversation about the puzzle for Monday, March 9, 2026.`\
+https://nytimes.com/2026/03/08/crosswords/wordle-review-1724.html
 
-**How Trump’s War in Iran Has Echoes of Putin and Ukraine**\
-`The many similarities between the White House’s justification for war in Iran and Russia’s messaging on Ukraine underscore the risks of a vaguely defined, open-ended war.`\
-https://nytimes.com/2026/03/08/us/politics/trump-russia-ukraine-iran-war.html
+**Was Tyra Banks the Villain? Or Were We?**\
+`A fashion insider and two culture writers dissect “America’s Next Top Model.”`\
+https://nytimes.com/2026/03/08/opinion/americas-next-top-model-tyra-banks.html
 
