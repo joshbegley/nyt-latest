@@ -1,40 +1,40 @@
-**On ‘S.N.L.’, Pete Hegseth Says Iran ‘Isn’t a War, It’s a Situationship’**\
-`Colin Jost added to his airtime playing Hegseth, the defense secretary, in the opening of a “Saturday Night Live” broadcast hosted by Ryan Gosling.`\
-https://nytimes.com/2026/03/08/arts/television/snl-ryan-gosling-harry-styles-iran-war.html
+**How to watch Creighton vs. UConn women's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098776/2026/03/08/creighton-vs-uconn-stream-how-to-watch-march-8/
 
-**Robertson: Focus 'never' left Liverpool after Tottenham January approach**\
-`Robertson is out of contract at Liverpool at the end of the season and says he was "never not committed" to the club.`\
-https://nytimes.com/athletic/7098684/2026/03/08/andy-robertson-liverpool-tottenham-future/
+**How to watch Western Carolina vs. East Tennessee State men's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Western Carolina Catamounts play the East Tennessee State Buccaneers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098766/2026/03/08/western-carolina-vs-east-tennessee-state-stream-how-to-watch-march-8/
 
-**The F1 wind tunnel engineer who went from 'Drive to Survive' viewer to Williams employee**\
-`Christina Sullivan was aiming for a career in film production. "Drive to Survive" brought her back to engineering and an F1 job at Williams`\
-https://nytimes.com/athletic/7095460/2026/03/08/f1-drive-to-survive-engineer/
+**How to watch South Dakota State vs. North Dakota State women's basketball: Summit Tournament Time, TV, streaming**\
+`Find out how to watch the South Dakota State Jackrabbits play the North Dakota State Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098762/2026/03/08/south-dakota-state-vs-north-dakota-state-stream-how-to-watch-march-8/
 
-**History Makers**\
-`On this International Women’s Day, we’re writing about a project to unearth stories of remarkable women.`\
-https://nytimes.com/2026/03/08/briefing/women-history-makers.html
+**How to watch Drexel vs. Monmouth men's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Drexel Dragons play the Monmouth Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098760/2026/03/08/drexel-vs-monmouth-stream-how-to-watch-march-8/
 
-**Rosenthal: As Skubal weighs sticking around, his decision shouldn't be criticized**\
-`The back-to-back AL Cy Young winner had intended to only make one WBC start, but seems to be reconsidering that plan.`\
-https://nytimes.com/athletic/7098671/2026/03/08/tarik-skubal-world-baseball-classic-team-usa-detroit-tigers/
+**How to watch George Mason vs. Rhode Island women's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the George Mason Patriots play the Rhode Island Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098758/2026/03/08/george-mason-vs-rhode-island-stream-how-to-watch-march-8/
 
-**Canadiens needed to shore up details on road trip. They return with the same task**\
-`Montreal's road trip demonstrated that this young team has a lot of learning left to do if it wants to make noise in the playoffs.`\
-https://nytimes.com/athletic/7098386/2026/03/08/canadiens-trade-deadline-kings/
+**How to watch Air Force vs. San Diego State women's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Air Force Falcons play the San Diego State Aztecs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098753/2026/03/08/air-force-vs-san-diego-state-stream-how-to-watch-march-8/
 
-**A very different F1, plus Skubal lets it rip at WBC**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7098385/2026/03/08/f1-is-back-and-its-a-whole-new-experience-for-the-drivers/
+**How to watch Portland vs. Oregon State women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Portland Pilots play the Oregon State Beavers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098752/2026/03/08/portland-vs-oregon-state-stream-how-to-watch-march-8/
 
-**Painter's pickup game with Scherzer, Crawford's improved defense, Miller update: Phillies notes**\
-`Andrew Painter recalls the time he had to guard Max Scherzer in basketball. "I was 19. ... This guy’s making $43 million this year."`\
-https://nytimes.com/athletic/7097641/2026/03/08/phillies-notes-andrew-painter-justin-crawford-defense-aidan-miller/
+**How to watch Iowa vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098749/2026/03/08/iowa-vs-ucla-stream-how-to-watch-march-8/
 
-**For Venezuela, the Dominican and others, the WBC is their only shot at Olympic qualification**\
-`The WBC will be the only chance for the Americas teams to qualify for the six-team Olympic field at Dodger Stadium in 2028. `\
-https://nytimes.com/athletic/7098098/2026/03/08/world-baseball-classic-2028-olympics-qualifier-americas-teams/
+**How to watch Texas vs. South Carolina women's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098747/2026/03/08/texas-vs-south-carolina-stream-how-to-watch-march-8/
 
-**Flyers post-deadline depth chart: Still searching for a center; where might Martone fit?**\
-`The Flyers’ roster didn’t change much on trade deadline day but the overall depth chart has certainly shifted since the start of the season.`\
-https://nytimes.com/athletic/7097702/2026/03/08/flyers-trade-deadline-depth-chart-martone/
+**How to watch Northern Kentucky vs. Green Bay men's basketball: Horizon League Tournament Time, TV, streaming**\
+`Find out how to watch the Northern Kentucky Norse play the Green Bay Phoenix, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098743/2026/03/08/northern-kentucky-vs-green-bay-stream-how-to-watch-march-8/
 
