@@ -1,3 +1,5 @@
+
+
 **U.S. Authorities Are Investigating Device Thrown Near Gracie Mansion**\
 `The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
 https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
