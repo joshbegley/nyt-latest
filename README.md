@@ -1,3 +1,27 @@
+**How to watch Magic vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-watch-march-8/
+
+**Thousands Waited for Hours in Security Lines at Airports in New Orleans and Houston**\
+`Screening delays created lines that stretched around William P. Hobby and Louis Armstrong airports, causing many to miss flights at the start of spring break season.`\
+https://nytimes.com/2026/03/08/us/airports-delays-security-lines-new-orleans-and-houston.html
+
+**How to watch Hornets vs. Suns: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Phoenix Suns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099561/2026/03/08/hornets-vs-suns-stream-how-to-watch-march-8/
+
+**Leeds reach FA Cup quarter-finals with win over Norwich**\
+`Daniel Farke's side were convincing 3-0 winners over his former team.`\
+https://nytimes.com/athletic/7099285/2026/03/08/leeds-norwich-fa-cup/
+
+**How to watch Northwestern State vs. Nicholls State men's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Northwestern State Demons play the Nicholls State Colonels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099554/2026/03/08/northwestern-state-vs-nicholls-state-stream-how-to-watch-march-8/
+
+**How to watch Oilers vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099547/2026/03/08/oilers-vs-golden-knights-stream-how-to-watch-march-8/
+
 **Airports Struggle to Staff T.S.A. During Partial Government Shutdown**\
 `Screening delays come as spring break travel is ramping up and as Transportation Security Administration workers are going without pay for the second time in six months because of the partial government shutdown.`\
 https://nytimes.com/video/us/100000010762228/airport-lines-tsa-new-orleans.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7099529/2026/03/08/georgia-southern-vs-marshall-str
 **After brutal T20 World Cup final win, can anyone compete with India on this stage?**\
 `They are peerless. It is a positive and maybe a negative in terms of whether anyone can stop them. But they are mightily impressive to watch`\
 https://nytimes.com/athletic/7092973/2026/03/08/t20-world-cup-final-india-dominance/
-
-**How to watch Blues vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099524/2026/03/08/blues-vs-ducks-stream-how-to-watch-march-8/
-
-**How to watch Rockets vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Houston Rockets play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099522/2026/03/08/rockets-vs-spurs-stream-how-to-watch-march-8/
-
-**How to watch Pacers vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099519/2026/03/08/pacers-vs-trail-blazers-stream-how-to-watch-march-8/
-
-**How to watch Idaho State vs. Portland State men's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Idaho State Bengals play the Portland State Vikings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099508/2026/03/08/idaho-state-vs-portland-state-stream-how-to-watch-march-8/
-
-**How to watch Bulls vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099502/2026/03/08/bulls-vs-kings-stream-how-to-watch-march-8/
-
-**How to watch North Dakota vs. North Dakota State men's basketball: Summit League Tournament Time, TV, streaming**\
-`Find out how to watch the North Dakota Fightin' Hawks play the North Dakota State Bison, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099477/2026/03/08/north-dakota-vs-north-dakota-state-stream-how-to-watch-march-8/
 
