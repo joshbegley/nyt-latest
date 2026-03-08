@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
 
+**Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
+`Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
+`\
+https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
+
 **Oscar Piastri crashed out of Australian Grand Prix before race start**\
 `Australia’s hope for a first home Formula 1 podium — or even a win — goes on.`\
 https://nytimes.com/athletic/7098216/2026/03/07/oscar-piastri-crashed-out-of-australian-grand-prix-before-race-start/
