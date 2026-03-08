@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, March 9, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/08/todays-new-york-times-international-edition
+
 **A Loose Band of Emerging Powers Is Divided Over Iran**\
 `Brazil, China and Russia all denounced the U.S.-Israeli attacks, but other nations in the BRICS group haven’t, even though Iran is a fellow member.`\
 https://nytimes.com/2026/03/08/world/middleeast/brics-iran-allies-us-israel-war.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-veloc
 **How Trump’s War in Iran Has Echoes of Putin and Ukraine**\
 `The many similarities between the White House’s justification for war in Iran and Russia’s messaging on Ukraine underscore the risks of a vaguely defined, open-ended war.`\
 https://nytimes.com/2026/03/08/us/politics/trump-russia-ukraine-iran-war.html
-
-**Violence on the Campaign Trail Rattles Colombia Ahead of Elections**\
-`Politicians in Colombia have increasingly become targets of violence. A rise in kidnappings, death threats and assassinations has shaken the country ahead of the vote.`\
-https://nytimes.com/2026/03/08/world/americas/colombia-elections-politicial-violence-kidnapping-assassination.html
 
