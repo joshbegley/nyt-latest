@@ -18,6 +18,11 @@ https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-veloc
 `\
 https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
 
+**Is the key to Shota Imanaga's 2026 success really as simple as getting his velocity back?**\
+`The Cubs believe if Imanaga gets healthy and corrects his mechanics, his fastball will return to its former glory.
+`\
+https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
+
 **The New York Times International Edition in Print for Monday, March 9, 2026**\
 ``\
 https://nytimes.com/issue/todaysinyt/2026/03/08/todays-new-york-times-international-edition
