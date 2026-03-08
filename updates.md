@@ -1,3 +1,7 @@
+**U.S. Authorities Are Investigating Device Thrown Near Gracie Mansion**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
+https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
+
 **Pentagon Announces Death of Seventh U.S. Service Member in War With Iran**\
 `Another American service member died in the war with Iran, the Pentagon said on Sunday, bringing the number of American troops killed in the conflict to seven.`\
 https://nytimes.com/video/world/middleeast/100000010762409/pentagon-announces-death-of-seventh-us-service-member-in-war-with-iran.html
