@@ -1,3 +1,23 @@
+**Sizing Up Iran’s Elite Guards**\
+`Many see the Islamic Revolutionary Guards Corps as the main barrier to regime change, or any change at all, in Iran.`\
+https://nytimes.com/2026/03/08/world/iran-revolutionary-guards-corps-nepal-election.html
+
+**How to watch Grand Canyon vs. Colorado State women's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Grand Canyon Antelopes play the Colorado State Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099787/2026/03/08/grand-canyon-vs-colorado-state-stream-how-to-watch-march-8/
+
+**Iran’s New Leader, Ayatollah Khamenei’s Son, Is a Mysterious Figure**\
+`The succession of the slain leader’s son is seen as a signal of the Islamic Republic’s defiance of Israel and the United States, and of continuity during crisis.`\
+https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-leader.html
+
+**76ers' Tyrese Maxey out next two games with sprained finger**\
+`The 76ers said Maxey will undergo additional testing and consultation to determine a treatment plan.`\
+https://nytimes.com/athletic/7099568/2026/03/08/tyrese-maxey-76ers-finger-injury-update/
+
+**State Dept. Said to Order Diplomats in Saudi Arabia to Leave**\
+`The ordered departure of U.S. employees in the kingdom indicates that senior diplomats are bracing for a possible surge in violence in the war with Iran, officials say.`\
+https://nytimes.com/2026/03/08/world/middleeast/state-department-diplomats-saudi-arabia-departure.html
+
 **What we’re seeing at the WBC: Juan Soto walks off the D.R. into a mercy rule win**\
 `The Mets star hit the last of the Dominican Republic's four homers Sunday, plus more from every pool site at the World Baseball Classic.`\
 https://nytimes.com/athletic/7099653/2026/03/08/wbc-juan-soto-walkoff-win/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
 **Cardinals, James Conner rework contract as RB looks to rebound from foot injury: Source**\
 `Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
 https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/
-
-**Pentagon Announces Seventh U.S. Death in War With Iran**\
-`The service member killed was not publicly identified, but U.S. Central Command said the death was caused by injuries after an attack on a Saudi military base.`\
-https://nytimes.com/2026/03/08/world/middleeast/american-soldier-killed-iran-war.html
-
-**Eagles thoughts: Why a Jordan Davis contract extension, what it means for Jalen Carter**\
-`The Eagles' challenge is in trying to keep all of their high-end defensive talent.`\
-https://nytimes.com/athletic/7099397/2026/03/08/eagles-jordan-davis-contract-extension-jalen-carter/
-
-**USMNT's Dest suffers thigh injury but aiming to return before World Cup**\
-`Dest said he is "convinced" he will be back playing before the end of the domestic season with Dutch club PSV.`\
-https://nytimes.com/athletic/7099593/2026/03/08/sergino-dest-injury-usmnt-world-cup/
-
-**A Beirut Hotel Sheltering the Displaced Comes Under Fire**\
-`A Christian hotel owner opened her doors to Shia Muslims fleeing Israel’s bombardment of the southern outskirts of Beirut. Then a missile struck the hotel, killing her 34-year-old receptionist.`\
-https://nytimes.com/video/world/middleeast/100000010755971/israel-strikes-beirut-hotel-lebanon.html
-
-**Police investigating 'shameful' pitch invasion following Old Firm derby**\
-`"Officers and members of the public have been injured in this despicable display," Police Scotland said in a statement.`\
-https://nytimes.com/athletic/7099576/2026/03/08/rangers-celtic-ibrox-flares-pitch-invasion/
 
