@@ -1,3 +1,11 @@
+**A Loose Band of Emerging Powers Is Divided Over Iran**\
+`Brazil, China and Russia all denounced the U.S.-Israeli attacks, but other nations in the BRICS group haven’t, even though Iran is a fellow member.`\
+https://nytimes.com/2026/03/08/world/middleeast/brics-iran-allies-us-israel-war.html
+
+**Iran’s Revolutionary Guards: The Spine of a Militarized State**\
+`With their pervasive military, political and economic clout, the Guards are often considered the main impediment to regime change, or any change, in Iran.`\
+https://nytimes.com/2026/03/08/us/iran-islamic-revolutionary-guards-corps.html
+
 **ICE Detention of Teen Musicians Roils Texas Mariachi Community**\
 `Two brothers who were recognized by their congresswoman last year, along with their parents and younger brother, are facing deportation.`\
 https://nytimes.com/2026/03/08/us/teen-mariachi-musicians-detained-ice-texas.html
@@ -30,12 +38,4 @@ https://nytimes.com/2026/03/08/us/politics/trump-russia-ukraine-iran-war.html
 **Violence on the Campaign Trail Rattles Colombia Ahead of Elections**\
 `Politicians in Colombia have increasingly become targets of violence. A rise in kidnappings, death threats and assassinations has shaken the country ahead of the vote.`\
 https://nytimes.com/2026/03/08/world/americas/colombia-elections-politicial-violence-kidnapping-assassination.html
-
-**‘Rooster’ Review: Steve Carell Goes to School**\
-`In HBO’s new Sunday night comedy, the star of “The Office” plays a best-selling novelist caught up in campus politics.`\
-https://nytimes.com/2026/03/08/arts/television/rooster-review-steve-carell.html
-
-**In a Screen-Dazzled World, a Theater Critic Has the Antidote**\
-`The Times’s new chief theater critic is taking up the mantle as the industry moves over rocky ground.`\
-https://nytimes.com/2026/03/08/insider/theater-critic-broadway-helen-shaw.html
 

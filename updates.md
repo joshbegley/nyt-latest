@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
 
+**Is the key to Shota Imanaga's 2026 success really as simple as getting his velocity back?**\
+`The Cubs believe if Imanaga gets healthy and corrects his mechanics, his fastball will return to its former glory.
+`\
+https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
+
 **ICE Detention of Teen Musicians Roils Texas Mariachi Community**\
 `Two brothers who were recognized by their congresswoman last year, along with their parents and younger brother, are facing deportation.`\
 https://nytimes.com/2026/03/08/us/teen-mariachi-musicians-detained-ice-texas.html
