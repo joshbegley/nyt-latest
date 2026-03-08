@@ -1,3 +1,7 @@
+**Amid Maple Leafs' slump, the real story is the empty seats, boos and uncertainty**\
+`Toronto's 5-2 loss to the Lightning was the team’s seventh in a row, and with no announced direction forward, the fan base is in limbo.`\
+https://nytimes.com/athletic/7098220/2026/03/07/maple-leafs-lightning-tickets-fans-nhl/
+
 **Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
 `Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
 **Artemi Panarin switches jersey number, ending saga with Kings mascot**\
 `Panarin wore No. 72 alongside Bailey the Lion after giving the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
 https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
-
-**Duke's win over UNC comes at a cost as Caleb Foster's injury sparks concern**\
-`The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
-https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
 
