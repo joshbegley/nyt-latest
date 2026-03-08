@@ -1,3 +1,7 @@
+**‘Hoppers’ Ends Pixar’s Box Office Cold Streak for Originals**\
+`The animated film was No. 1 at the domestic box office, with about $46 million in ticket sales. On the downside, “The Bride!” appeared dead on arrival.`\
+https://nytimes.com/2026/03/08/business/hoppers-the-bride-box-office.html
+
 **Oxford United announce death of academy player Amelia Aplin, aged 15**\
 `Aplin collapsed during a match on Saturday, the club said.`\
 https://nytimes.com/athletic/7099370/2026/03/08/amelia-aplin-oxford-women-death/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-prev
 **Broncos bringing back inside linebacker Justin Strnad: What's next at the position?**\
 `Strnad, who has produced 7.5 sacks the past two seasons, has agreed to a 3-year deal and could take over a starting role in Denver defense.`\
 https://nytimes.com/athletic/7099284/2026/03/08/broncos-justin-strnad-linebacker-returning/
-
-**RHP Zack Littell, Nationals agree on free-agent contract: Source**\
-`The 30-year-old right-hander was 10-8 with a 3.81 ERA in 32 starts overall last season between Cincinnati and Tampa Bay.`\
-https://nytimes.com/athletic/6837036/2026/03/08/mlb-free-agency-zack-littell-nationals/
 

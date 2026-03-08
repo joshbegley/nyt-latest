@@ -1,3 +1,15 @@
+**Oxford United announce death of academy player Amelia Aplin, aged 15**\
+`Aplin collapsed during a match on Saturday, the club said.`\
+https://nytimes.com/athletic/7099370/2026/03/08/amelia-aplin-oxford-women-death/
+
+**Boston College fires coach Earl Grant after 5 seasons**\
+`The Eagles never finished higher than 10th in the ACC standings under Grant and made just one postseason appearance, a trip to the NIT.`\
+https://nytimes.com/athletic/7082392/2026/03/08/earl-grant-boston-college-fired/
+
+**American tennis player confirms split with coach under WTA Tour misconduct investigation**\
+`Peyton Stearns declined to “dive in” to why she and Rafael Font de Mora are no longer working together.`\
+https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-investigation-peyton-stearns/
+
 **American tennis player confirms split with coach under WTA Tour misconduct investigation**\
 `The American declined to “dive in” to why she and Font de Mora are no longer working together.`\
 https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-investigation-peyton-stearns/
