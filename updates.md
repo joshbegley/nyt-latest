@@ -1,3 +1,11 @@
+**Oslo Police Investigate Explosion Outside U.S. Embassy**\
+`A motive for the explosion was unclear as of Sunday morning, but the police said it appeared to be a “targeted attack.”`\
+https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
+
+**What we’re seeing at the WBC: Art, an emperor and drama with a deluge in San Juan**\
+`A traveling artist, talented drummers and a typical Caribbean rain storm dotted the day's events at the World Baseball Classic.`\
+https://nytimes.com/athletic/7098652/2026/03/08/wbc-art-emperor-rain-delay/
+
 **As F1 drivers continue to criticize their new cars, paddock politics is at play**\
 `Many F1 drivers continued to criticize the new 2026 cars after the Australian GP. But there is a split on what works and what does not`\
 https://nytimes.com/athletic/7098741/2026/03/08/f1-new-cars-driver-criticism/
