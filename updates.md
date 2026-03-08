@@ -1,3 +1,15 @@
+**Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space: Sources**\
+`Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
+https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
+
+**Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
+`The Rangers center, who had been bracing for the possibility he might be traded, returned to the ice with New York on Saturday.`\
+https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
+
+**Khalil Mack returning to Chargers, looking for elusive playoff win**\
+`Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
+https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
+
 **Iran Could Retrieve Uranium at Site U.S. Bombed Last Year, Officials Say**\
 `The fate of the highly enriched uranium and the options for securing it have become critical issues for the Trump administration.`\
 https://nytimes.com/2026/03/07/us/politics/iran-nuclear-site-uranium-intel.html
