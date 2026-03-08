@@ -1,3 +1,7 @@
+**Duke downs Caleb Wilson-less UNC in K-Ville, suffers own injuries**\
+`The No. 1 Blue Devils exacted revenge with a resounding 76-61 win after falling to No. 17 UNC by 3 points earlier in the season.`\
+https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
+
 **Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space: Sources**\
 `Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
 https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
