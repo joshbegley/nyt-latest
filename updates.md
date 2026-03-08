@@ -1,3 +1,12 @@
+**Rapper Backed by Gen Z Is Set for Landslide Win in Nepal Election**\
+`Balendra Shah, the onetime rap artist and former mayor of the country’s capital, is on course to become the country’s next prime minister.`\
+https://nytimes.com/2026/03/07/world/asia/nepal-election-rapper-balen-genz.html
+
+**Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
+`Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
+`\
+https://nytimes.com/athletic/7098140/2026/03/07/sabres-sam-carrick-tage-thompson/
+
 **Sabres thoughts: Sam Carrick's role, Tage Thompson's gift and a looming showdown**\
 `Thompson extended his point streak to 10 games as the Sabres held off the Predators for a 3-2 win, their sixth in row.
 `\
