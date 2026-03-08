@@ -1,3 +1,15 @@
+**How to watch Idaho State vs. Portland State men's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Idaho State Bengals play the Portland State Vikings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099508/2026/03/08/idaho-state-vs-portland-state-stream-how-to-watch-march-8/
+
+**How to watch Bulls vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099502/2026/03/08/bulls-vs-kings-stream-how-to-watch-march-8/
+
+**How to watch North Dakota vs. North Dakota State men's basketball: Summit League Tournament Time, TV, streaming**\
+`Find out how to watch the North Dakota Fightin' Hawks play the North Dakota State Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099477/2026/03/08/north-dakota-vs-north-dakota-state-stream-how-to-watch-march-8/
+
 **How to watch William & Mary vs. Hofstra men's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the William & Mary Tribe play the Hofstra Pride, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099457/2026/03/08/william-mary-vs-hofstra-stream-how-to-watch-march-8/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7099417/2026/03/08/fresno-state-vs-unlv-stream-how-
 **Lebanese Villagers Bury Hezbollah Fighters, Praising Their Defiance of Israel**\
 `After a fierce ground fight between Israeli forces and Iran-backed Hezbollah, the village of Nabi Sheet mourned its dead. “We are not here to bow,” said one villager. “We will not kneel.”`\
 https://nytimes.com/2026/03/08/world/middleeast/lebanon-hezbollah-fighters-israel.html
-
-**‘Hoppers’ Ends Pixar’s Box Office Cold Streak for Originals**\
-`The animated film was No. 1 at the domestic box office, with about $46 million in ticket sales. On the downside, “The Bride!” appeared dead on arrival.`\
-https://nytimes.com/2026/03/08/business/hoppers-the-bride-box-office.html
-
-**Oxford United announce death of academy player Amelia Aplin, aged 15**\
-`Aplin collapsed during a match on Saturday, the club said.`\
-https://nytimes.com/athletic/7099370/2026/03/08/amelia-aplin-oxford-women-death/
-
-**Boston College fires coach Earl Grant after 5 seasons**\
-`The Eagles never finished higher than 10th in the ACC standings under Grant and made just one postseason appearance, a trip to the NIT.`\
-https://nytimes.com/athletic/7082392/2026/03/08/earl-grant-boston-college-fired/
 
