@@ -1,3 +1,7 @@
+**From a missed meeting to a polite rejection: Inside Blues' nixed Parayko deal**\
+`Defenseman Colton Parayko exercised his right to nix a trade to Buffalo last week, then took The Athletic behind the scenes of his decision.`\
+https://nytimes.com/athletic/7097684/2026/03/08/colton-parayko-trade-blues-sabres/
+
 **Oslo Police Investigate Explosion Outside U.S. Embassy**\
 `A motive for the explosion was unclear as of Sunday morning, but the police said it appeared to be a “targeted attack.”`\
 https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097311/2026/03/08/padres-roster-projection-2-ferna
 **Are Declining Birthrates Really a Problem?**\
 `What do declining birthrates really mean for the future? Readers respond to a front-page news article.`\
 https://nytimes.com/2026/03/08/opinion/declining-birthrates.html
-
-**Emma Hayes' rebuild of the USWNT is taking shape - and already reaping rewards already**\
-`In regaining the SheBelieves crown, the rapidly changing USWNT laid down a marker and put a smile on their manager's face`\
-https://nytimes.com/athletic/7097978/2026/03/08/emma-hayes-uswnt-shebelieves-rebuild/
 
