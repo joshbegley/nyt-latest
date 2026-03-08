@@ -1,9 +1,13 @@
+**What Would It Take for Fashion to Shock You?**\
+`Amid complaints that Big Fashion has become bland and boring, some intrepid spirits are keeping it weird.`\
+https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
+
 **A position-by-position preview of the Giants' free agency needs and potential targets**\
 `A deeper look at what the Giants need — and where they might spend — when free agency opens.`\
 https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
 
 **Broncos bringing back inside linebacker Justin Strnad: What's next at the position?**\
-`Strnad, who has produced 7.5 sacks the past two seasons, has agreed to a 3-year deal and could take over a starting role in Denver defense`\
+`Strnad, who has produced 7.5 sacks the past two seasons, has agreed to a 3-year deal and could take over a starting role in Denver defense.`\
 https://nytimes.com/athletic/7099284/2026/03/08/broncos-justin-strnad-linebacker-returning/
 
 **RHP Zack Littell, Nationals agree on free-agent contract: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to
 **How to watch Radford vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
 `Find out how to watch the Radford Highlanders play the High Point Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099139/2026/03/08/radford-vs-high-point-stream-how-to-watch-march-8/
-
-**How to watch Iowa vs. Nebraska men's basketball: Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099136/2026/03/08/iowa-vs-nebraska-stream-how-to-watch-march-8/
 

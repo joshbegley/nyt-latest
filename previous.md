@@ -1,3 +1,11 @@
+**A position-by-position preview of the Giants' free agency needs and potential targets**\
+`A deeper look at what the Giants need — and where they might spend — when free agency opens.`\
+https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
+
+**Broncos bringing back inside linebacker Justin Strnad: What's next at the position?**\
+`Strnad, who has produced 7.5 sacks the past two seasons, has agreed to a 3-year deal and could take over a starting role in Denver defense`\
+https://nytimes.com/athletic/7099284/2026/03/08/broncos-justin-strnad-linebacker-returning/
+
 **RHP Zack Littell, Nationals agree on free-agent contract: Source**\
 `The 30-year-old right-hander was 10-8 with a 3.81 ERA in 32 starts overall last season between Cincinnati and Tampa Bay.`\
 https://nytimes.com/athletic/6837036/2026/03/08/mlb-free-agency-zack-littell-nationals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099139/2026/03/08/radford-vs-high-point-stream-how
 **How to watch Iowa vs. Nebraska men's basketball: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099136/2026/03/08/iowa-vs-nebraska-stream-how-to-watch-march-8/
-
-**How to watch West Virginia vs. TCU women's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the West Virginia Mountaineers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099134/2026/03/08/west-virginia-vs-tcu-stream-how-to-watch-march-8/
-
-**How to watch Towson vs. Charleston (SC) men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Towson Tigers play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099126/2026/03/08/towson-vs-charleston-sc-stream-how-to-watch-march-8/
 
