@@ -2,8 +2,8 @@
 `Defenseman Colton Parayko exercised his right to nix a trade to Buffalo last week, then took The Athletic behind the scenes of his decision.`\
 https://nytimes.com/athletic/7097684/2026/03/08/colton-parayko-trade-blues-sabres/
 
-**Oslo Police Investigate Explosion Outside U.S. Embassy**\
-`A motive for the explosion was unclear as of Sunday morning, but the police said it appeared to be a “targeted attack.”`\
+**Explosion Damages U.S. Embassy in Oslo, Police Say**\
+`A motive for the explosion was unclear as of Sunday morning, but the police were investigating and said it appeared to be a “targeted attack.”`\
 https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
 
 **What we’re seeing at the WBC: Art, an emperor and drama with a deluge in San Juan**\

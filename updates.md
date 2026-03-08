@@ -1,3 +1,7 @@
+**Explosion Damages U.S. Embassy in Oslo, Police Say**\
+`A motive for the explosion was unclear as of Sunday morning, but the police were investigating and said it appeared to be a “targeted attack.”`\
+https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
+
 **From a missed meeting to a polite rejection: Inside Blues' nixed Parayko deal**\
 `Defenseman Colton Parayko exercised his right to nix a trade to Buffalo last week, then took The Athletic behind the scenes of his decision.`\
 https://nytimes.com/athletic/7097684/2026/03/08/colton-parayko-trade-blues-sabres/

@@ -1,3 +1,7 @@
+**Bills new receiver: What are they getting in DJ Moore and what should they expect?**\
+`The Bills had a big need at wide receiver before they acquired Moore.`\
+https://nytimes.com/athletic/7097467/2026/03/08/bills-trade-dj-moore-josh-allen-offense/
+
 **From a missed meeting to a polite rejection: Inside Blues' nixed Parayko deal**\
 `Defenseman Colton Parayko exercised his right to nix a trade to Buffalo last week, then took The Athletic behind the scenes of his decision.`\
 https://nytimes.com/athletic/7097684/2026/03/08/colton-parayko-trade-blues-sabres/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098006/2026/03/08/dodgers-andy-pages-postseason/
 **Padres roster projection 2.0: Where will Fernando Tatis Jr. bat in the lineup?**\
 `“I don’t care where I hit,” Tatis said. “I’m just a good baseball player, and I can do everything on the field."`\
 https://nytimes.com/athletic/7097311/2026/03/08/padres-roster-projection-2-fernando-tatis-jr-lineup/
-
-**Are Declining Birthrates Really a Problem?**\
-`What do declining birthrates really mean for the future? Readers respond to a front-page news article.`\
-https://nytimes.com/2026/03/08/opinion/declining-birthrates.html
 
