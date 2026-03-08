@@ -1,3 +1,11 @@
+**Women's tennis tour denies data breach after player shares threats sent to personal phone**\
+`Panna Udvardy is the second WTA player to detail receiving menacing communications on her personal device in a few days.`\
+https://nytimes.com/athletic/7097217/2026/03/07/tennis-abuse-threats-betting-wta/
+
+**Maxx Crosby posts farewell to Raiders organization: 'I feel like I let y'all down'**\
+`Now headed to the Baltimore Ravens in a trade, Crosby said, "I feel like I left everything I had on the table" for the Raiders.`\
+https://nytimes.com/athletic/7097626/2026/03/07/ravens-maxx-crosby-raiders-farewell/
+
 **Quarterback Tyler Huntley returning to Ravens on two-year deal: Source**\
 `Huntley has started 16 games throughout his six-year career and has a 7-9 record. `\
 https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-agency-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/07/crosswords/daily-puzzle-2026-03-08.html
 **Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
 `After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
 https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
-
-**Trump Assembles a New Coalition to ‘Eradicate’ Cartels**\
-`At a gathering in Florida, the president asked the leaders of a dozen Latin American nations to help the U.S. military crush armed trafficking groups.`\
-https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-cartels.html
-
-**U.S.-Israeli Bombing Campaign Targets Tehran as Iran Retaliates**\
-`Airstrikes continued to pound Tehran on Saturday as President Trump posted on social media that Iran “will be hit very hard.” Iran has countered with retaliatory strikes, targeting United States and Israeli interests in several Persian Gulf countries.`\
-https://nytimes.com/video/world/middleeast/100000010761139/us-israeli-bombing-campaign-targets-tehran-as-iran-retaliates.html
 

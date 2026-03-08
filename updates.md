@@ -1,3 +1,7 @@
+**Alyssa Thompson's goal secures win over Colombia, USWNT’s eighth SheBelieves Cup victory**\
+`The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
+https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
+
 **Alyssa Thompson's goal secures USWNT’s eighth SheBelieves Cup victory over Colombia**\
 `The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
 https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
