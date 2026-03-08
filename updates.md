@@ -1,3 +1,7 @@
+**Cardinals, James Conner rework contract as RB looks to rebound from foot injury: Source**\
+`Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
+https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/
+
 **A preview of The Athletic's live coverage this week**\
 `The Athletic's live coverage this week includes NFL free agency, the World Baseball Classic, Champions League knockout games and much more`\
 https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selection-sunday/
