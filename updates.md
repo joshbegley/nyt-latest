@@ -1,3 +1,7 @@
+**I’ll Buy That: The Joy of Having Fun With Fashion**\
+`Loewe was a hoot. Junya Watanabe, a sartorial satire. And wait until I tell you about the Schiaparelli kitten heels.`\
+https://nytimes.com/2026/03/08/style/loewe-junya-watanabe-schiaparelli-fall-2026.html
+
 **Australian GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after F1's 2026 Australian GP?`\
 https://nytimes.com/athletic/7098458/2026/03/08/george-russell-australian-gp-f1-mailbag/
