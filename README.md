@@ -1,3 +1,15 @@
+**Here is the latest.**\
+`By Eric Schmitt, Farnaz Fassihi, Eve Sampson and Yan Zhuang`\
+https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-the-latest
+
+**Live Updates: U.S.-Israeli Strikes Grow as Fuel Depots Burn in Tehran**\
+`The Israeli military struck several Iranian fuel sites, rocking Tehran and the neighboring city of Karaj with explosions. Iran’s de facto leader vowed to seek vengeance for the killing of the nation’s supreme leader.`\
+https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
+
+**F1 Australian Grand Prix briefing: George Russell wins as Mercedes flex in Melbourne**\
+`George Russell had to work for it, but he and Mercedes sent a message with a season opening win `\
+https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
+
 **Penguins' shootout futility strikes again in loss to Flyers**\
 `The Penguins lost in a shootout — again — to the Flyers, 4-3, on Saturday at PPG Paints Arena. `\
 https://nytimes.com/athletic/7098126/2026/03/08/penguins-flyers-shootout-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7094012/2026/03/08/william-osula-newcastle-manchest
 **Tyrese Maxey's pending MRI for right hand injury could seal 76ers' fate as playoffs near**\
 `If they can't get healthy, the 76ers don't have much of a chance to come away with a top-six seeding.`\
 https://nytimes.com/athletic/7098105/2026/03/08/tyrese-maxey-injury-mri-right-hand-76ers-nba/
-
-**Quote of the Day: Retiring Move? Baby Boomers Pick New York.**\
-`Quotation of the Day for Sunday, March 8, 2026.`\
-https://nytimes.com/2026/03/08/pageoneplus/quote-of-the-day-retiring-move-baby-boomers-pick-new-york.html
-
-**In Russia’s Former Capital, Restoring the Past to Survive the Present**\
-`With political activism off-limits, residents of St. Petersburg are finding purpose and community in the “politics of small deeds,” repairing and cleaning architectural treasures.`\
-https://nytimes.com/2026/03/08/world/europe/st-petersburg-restoration-activism.html
-
-**He Wrote Judy Blume’s Life Story. She Won’t Talk About It.**\
-`Mark Oppenheimer had many conversations with his subject for his new book. Then the relationship took a turn.`\
-https://nytimes.com/2026/03/08/books/review/judy-blume-biography-mark-oppenheimer.html
 
