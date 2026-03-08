@@ -1,3 +1,7 @@
+**Puerto Rico's Darrell Hernáiz walks off 10-inning thriller with home run over Panama**\
+`Hernáiz's homer was the second walk-off win of the day after Albies made history with the first walk-off homer in WBC history. `\
+https://nytimes.com/athletic/7098138/2026/03/07/puerto-rico-panama-darrell-hernaiz-walkoff/
+
 **In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
 `The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
 https://nytimes.com/athletic/7098016/2026/03/07/tarik-skubal-wbc-team-usa-start/
