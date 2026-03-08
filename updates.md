@@ -1,3 +1,11 @@
+**This is what happened on March 8.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-8
+
+**U.S. Authorities Are Investigating Device Thrown Near Gracie Mansion**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, people with knowledge of the investigation said.`\
+https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
+
 **Who Is Mojtaba Khamenei, Iran’s New Supreme Leader?**\
 `The selection of a son of Ayatollah Ali Khamenei, who was killed in a strike on his compound at the start of the war, could anger Iranians seeking change.`\
 https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-supreme-leader.html
