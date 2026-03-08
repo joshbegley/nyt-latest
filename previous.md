@@ -1,3 +1,7 @@
+**U.S. Continues Airstrikes Against a Wide Array of Targets in Iran**\
+`A senior U.S. military official said those targets included missile launchers and air-defense sites.`\
+https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html
+
 **How to watch Magic vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-watch-march-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099545/2026/03/08/lightning-vs-sabres-stream-how-t
 **How to watch Georgia Southern vs. Marshall men's basketball: Sun Belt Tournament Time, TV, streaming**\
 `Find out how to watch the Georgia Southern Eagles play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099529/2026/03/08/georgia-southern-vs-marshall-stream-how-to-watch-march-8/
-
-**After brutal T20 World Cup final win, can anyone compete with India on this stage?**\
-`They are peerless. It is a positive and maybe a negative in terms of whether anyone can stop them. But they are mightily impressive to watch`\
-https://nytimes.com/athletic/7092973/2026/03/08/t20-world-cup-final-india-dominance/
 

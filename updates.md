@@ -1,3 +1,7 @@
+**U.S. Continues Airstrikes Against a Wide Array of Targets in Iran**\
+`A senior U.S. military official said those targets included missile launchers and air-defense sites.`\
+https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html
+
 **How to watch Magic vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-watch-march-8/
