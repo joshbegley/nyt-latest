@@ -1,3 +1,15 @@
+**How to watch Michigan State vs. Michigan men's basketball: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099049/2026/03/08/michigan-state-vs-michigan-stream-how-to-watch-march-8/
+
+**How to watch Marist vs. Merrimack men's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Marist Red Foxes play the Merrimack Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099046/2026/03/08/marist-vs-merrimack-stream-how-to-watch-march-8/
+
+**How to watch Southern Miss vs. Troy men's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Miss Golden Eagles play the Troy Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099037/2026/03/08/southern-miss-vs-troy-stream-how-to-watch-march-8/
+
 **Spring Ahead**\
 `Recipes to cook this weekend for weekday meals: Quinoa salad with chicken, almonds and avocado; mustard-braised pork; baked salmon and dill rice.`\
 https://nytimes.com/2026/03/08/dining/spring-ahead.html
