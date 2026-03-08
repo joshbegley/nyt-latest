@@ -1,3 +1,11 @@
+**Women's tennis tour denies data breach after player shares threats sent to personal phone**\
+`Panna Udvardy is the second WTA player to detail receiving menacing communications on her personal device in a few days.`\
+https://nytimes.com/athletic/7097217/2026/03/07/tennis-abuse-threats-betting-wta/
+
+**Maxx Crosby posts farewell to Raiders organization: 'I feel like I let y'all down'**\
+`Now headed to the Baltimore Ravens in a trade, Crosby said, "I feel like I left everything I had on the table" for the Raiders.`\
+https://nytimes.com/athletic/7097626/2026/03/07/ravens-maxx-crosby-raiders-farewell/
+
 **Alyssa Thompson's goal secures win over Colombia, USWNT’s eighth SheBelieves Cup victory**\
 `The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
 https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
