@@ -1,7 +1,3 @@
-**Quarterback Tyler Huntley returning to Ravens on two-year deal: Source**\
-`Huntley has started 16 games throughout his six-year career and has a 7-9 record. `\
-https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-agency-2026/
-
 **Alyssa Thompson goal secures USWNT’s eighth SheBelieves Cup victory over Colombia**\
 `The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
 https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
@@ -37,4 +33,8 @@ https://nytimes.com/2026/03/07/world/americas/trump-latin-american-coalition-car
 **U.S.-Israeli Bombing Campaign Targets Tehran as Iran Retaliates**\
 `Airstrikes continued to pound Tehran on Saturday as President Trump posted on social media that Iran “will be hit very hard.” Iran has countered with retaliatory strikes, targeting United States and Israeli interests in several Persian Gulf countries.`\
 https://nytimes.com/video/world/middleeast/100000010761139/us-israeli-bombing-campaign-targets-tehran-as-iran-retaliates.html
+
+**49ers re-signing kicker Eddy Piñeiro: source**\
+`Piñeiro made 28 of 29 field goal attempts for the 49ers in 2025, with his only miss hitting the center of the crossbar from 60 yards.`\
+https://nytimes.com/athletic/7096946/2026/03/07/eddy-pineiro-49ers-nfl-free-agency/
 
