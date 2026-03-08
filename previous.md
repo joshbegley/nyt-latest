@@ -1,3 +1,7 @@
+**What we’re seeing at the WBC: Juan Soto walks off the D.R. into a mercy rule win**\
+`The Mets star hit the last of the Dominican Republic's four homers Sunday, plus more from every pool site at the World Baseball Classic.`\
+https://nytimes.com/athletic/7099653/2026/03/08/wbc-juan-soto-walkoff-win/
+
 **A preview of The Athletic's live coverage this week**\
 `The Athletic's live coverage this week includes NFL free agency, the World Baseball Classic, Champions League knockout games and much more`\
 https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selection-sunday/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010755971/israel-strikes-beirut
 **Police investigating 'shameful' pitch invasion following Old Firm derby**\
 `"Officers and members of the public have been injured in this despicable display," Police Scotland said in a statement.`\
 https://nytimes.com/athletic/7099576/2026/03/08/rangers-celtic-ibrox-flares-pitch-invasion/
-
-**Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
-`Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
-https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/
 
