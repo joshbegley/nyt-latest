@@ -1,3 +1,7 @@
+**Pentagon Announces Seventh U.S. Death in War With Iran**\
+`The service member killed was not publicly identified, but U.S. Central Command said the death was caused by injuries after an attack on a Saudi military base.`\
+https://nytimes.com/2026/03/08/world/middleeast/american-soldier-killed-iran-war.html
+
 **Eagles thoughts: Why a Jordan Davis contract extension, what it means for Jalen Carter**\
 `The Eagles' challenge is in trying to keep all of their high-end defensive talent.`\
 https://nytimes.com/athletic/7099397/2026/03/08/eagles-jordan-davis-contract-extension-jalen-carter/

@@ -1,3 +1,7 @@
+**Pentagon Announces Seventh U.S. Death in War With Iran**\
+`The service member killed was not publicly identified, but U.S. Central Command said the death was caused by injuries after an attack on a Saudi military base.`\
+https://nytimes.com/2026/03/08/world/middleeast/american-soldier-killed-iran-war.html
+
 **Eagles thoughts: Why a Jordan Davis contract extension, what it means for Jalen Carter**\
 `The Eagles' challenge is in trying to keep all of their high-end defensive talent.`\
 https://nytimes.com/athletic/7099397/2026/03/08/eagles-jordan-davis-contract-extension-jalen-carter/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html
 **How to watch Magic vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099566/2026/03/08/magic-vs-bucks-stream-how-to-watch-march-8/
-
-**Thousands Waited for Hours in Security Lines at Airports in New Orleans and Houston**\
-`Screening delays created lines that stretched around William P. Hobby and Louis Armstrong airports, causing many to miss flights at the start of spring break season.`\
-https://nytimes.com/2026/03/08/us/airports-delays-security-lines-new-orleans-and-houston.html
 
