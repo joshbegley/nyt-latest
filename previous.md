@@ -1,3 +1,11 @@
+**Commanders free agency: Five players to watch as Washington tries to rebuild**\
+`The Commanders need to add speed across the board, provide more playmakers around Jayden Daniels and rebuild a lagging defense.`\
+https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-rashid-shaheed-isaiah-likely/
+
+**How to watch Pacific vs. Santa Clara men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Pacific Tigers play the Santa Clara Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099800/2026/03/08/pacific-vs-santa-clara-stream-how-to-watch-march-8/
+
 **Sizing Up Iran’s Elite Guards**\
 `Many see the Islamic Revolutionary Guards Corps as the main barrier to regime change, or any change at all, in Iran.`\
 https://nytimes.com/2026/03/08/world/iran-revolutionary-guards-corps-nepal-election.html
@@ -7,7 +15,7 @@ https://nytimes.com/2026/03/08/world/iran-revolutionary-guards-corps-nepal-elect
 https://nytimes.com/athletic/7099787/2026/03/08/grand-canyon-vs-colorado-state-stream-how-to-watch-march-8/
 
 **Iran’s New Leader, Ayatollah Khamenei’s Son, Is a Mysterious Figure**\
-`The succession of the slain leader’s son is seen as a signal of the Islamic Republic’s defiance of Israel and the United States, and of continuity during crisis.`\
+`The succession of the slain leader’s son is seen as a signal of the Islamic republic’s defiance of Israel and the United States, and of continuity during crisis.`\
 https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-leader.html
 
 **76ers' Tyrese Maxey out next two games with sprained finger**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selecti
 **Women's conference tournament takeaways: UCLA's making a case for No. 1 overall seed**\
 `UCLA claimed the Big Ten championship in dominating fashion. `\
 https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
-
-**Have a Montana License Plate in California? Officials Have an Eye on You.**\
-`Since 2018, Californians have bought luxury vehicles worth over $20 million in sales-tax-free Montana, exploiting a loophole that avoided millions of dollars in levies, an investigation revealed.`\
-https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
-
-**Cardinals, James Conner rework contract as RB looks to rebound from foot injury: Source**\
-`Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
-https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/
 
