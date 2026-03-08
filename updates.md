@@ -1,3 +1,19 @@
+**How to watch JMU vs. Georgia Southern women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Georgia Southern Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098602/2026/03/08/jmu-vs-georgia-southern-stream-how-to-watch-march-8/
+
+**How to watch Colgate vs. Lehigh men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the Colgate Raiders play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098600/2026/03/08/colgate-vs-lehigh-stream-how-to-watch-march-8/
+
+**How to watch Samford vs. Chattanooga women's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Samford Bulldogs play the Chattanooga Mocs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098598/2026/03/08/samford-vs-chattanooga-stream-how-to-watch-march-8/
+
+**How to watch Celtics vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098596/2026/03/08/celtics-vs-cavaliers-stream-how-to-watch-march-8/
+
 **Brandt to leave Dortmund in the summer after seven years at the club**\
 `Dortmund CEO for sport Lars Ricken confirmed that the player and club have been unable to agree on an extension.`\
 https://nytimes.com/athletic/7098568/2026/03/08/julian-brandt-dortmund-transfer-exit/

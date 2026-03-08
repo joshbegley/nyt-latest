@@ -1,3 +1,19 @@
+**How to watch JMU vs. Georgia Southern women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Georgia Southern Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098602/2026/03/08/jmu-vs-georgia-southern-stream-how-to-watch-march-8/
+
+**How to watch Colgate vs. Lehigh men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the Colgate Raiders play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098600/2026/03/08/colgate-vs-lehigh-stream-how-to-watch-march-8/
+
+**How to watch Samford vs. Chattanooga women's basketball: SoCon Tournament Time, TV, streaming**\
+`Find out how to watch the Samford Bulldogs play the Chattanooga Mocs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098598/2026/03/08/samford-vs-chattanooga-stream-how-to-watch-march-8/
+
+**How to watch Celtics vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098596/2026/03/08/celtics-vs-cavaliers-stream-how-to-watch-march-8/
+
 **Brandt to leave Dortmund in the summer after seven years at the club**\
 `Dortmund CEO for sport Lars Ricken confirmed that the player and club have been unable to agree on an extension.`\
 https://nytimes.com/athletic/7098568/2026/03/08/julian-brandt-dortmund-transfer-exit/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/08/opinion/james-talarico-christian-democrat-texas-p
 **Minnesota gave up on Rob Dillingham. Can he revive his career with the Bulls?**\
 `Dillingham was the No. 8 pick in 2024, but the contending Wolves didn't have time to develop the 21-year-old point guard.`\
 https://nytimes.com/athletic/7089532/2026/03/08/rob-dillingham-bulls-timberwolves-nba-billy-donovan/
-
-**The Popcorn Resistance of ‘One Battle After Another’**\
-`My parents were radical. Paul Thomas Anderson’s film is anything but.`\
-https://nytimes.com/2026/03/08/opinion/one-battle-after-another-weathermen.html
-
-**The Future We Feared Is Already Here**\
-`The showdown between the Pentagon and Anthropic is a window into how unprepared we are for the questions we are facing.`\
-https://nytimes.com/2026/03/08/opinion/ai-anthropic-claude-pentagon-hegseth-amodei.html
-
-**Oscars 2026: Who Will Win, and Who Should Win?**\
-`Our critic on the remarkable movies and performances you don’t want to miss.`\
-https://nytimes.com/2026/03/08/podcasts/the-daily/oscars-2026-who-will-win-and-who-should-win.html
-
-**Wordle Review No. 1,724**\
-`Scroll down for hints and conversation about the puzzle for Monday, March 9, 2026.`\
-https://nytimes.com/2026/03/08/crosswords/wordle-review-1724.html
 
