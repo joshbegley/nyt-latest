@@ -1,3 +1,11 @@
+**RHP Zack Littell, Nationals agree on free-agent contract: Source**\
+`The 30-year-old right-hander was 10-8 with a 3.81 ERA in 32 starts overall last season between Cincinnati and Tampa Bay.`\
+https://nytimes.com/athletic/6837036/2026/03/08/mlb-free-agency-zack-littell-nationals/
+
+**Israel Strikes Energy Infrastructure Crucial to Iran’s Well-Being**\
+`Continued attacks could make the Iranian government and the country as a whole more vulnerable.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-energy-infrastructure.html
+
 **Port Vale reach FA Cup quarter-finals for first time in 72 years with Sunderland win**\
 `Ben Waine's first-half goal was the difference between the two sides.`\
 https://nytimes.com/athletic/7099192/2026/03/08/port-vale-sunderland-fa-cup/
