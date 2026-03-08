@@ -1,3 +1,19 @@
+**How to watch Bruins vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to-watch-march-8/
+
+**How to watch Radford vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
+`Find out how to watch the Radford Highlanders play the High Point Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099139/2026/03/08/radford-vs-high-point-stream-how-to-watch-march-8/
+
+**How to watch Iowa vs. Nebraska men's basketball: Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099136/2026/03/08/iowa-vs-nebraska-stream-how-to-watch-march-8/
+
+**How to watch West Virginia vs. TCU women's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099134/2026/03/08/west-virginia-vs-tcu-stream-how-to-watch-march-8/
+
 **How to watch Towson vs. Charleston (SC) men's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Towson Tigers play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099126/2026/03/08/towson-vs-charleston-sc-stream-how-to-watch-march-8/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7099107/2026/03/08/boise-state-vs-new-mexico-stream
 **How to watch Red Wings vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099096/2026/03/08/red-wings-vs-devils-stream-how-to-watch-march-8/
-
-**How to watch Wizards vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099093/2026/03/08/wizards-vs-pelicans-stream-how-to-watch-march-8/
-
-**How to watch Seton Hall vs. Villanova women's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Seton Hall Pirates play the Villanova Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099089/2026/03/08/seton-hall-vs-villanova-stream-how-to-watch-march-8/
-
-**Georgia Tech fires Damon Stoudamire after 3 seasons**\
-`Stoudamire, who went 42-55 in Atlanta, was a strong recruiter, but he was never able to put it all together for the Yellow Jackets.`\
-https://nytimes.com/athletic/7096932/2026/03/08/georgia-tech-damon-stoudamire-fired-basketball-coach-candidates/
-
-**How to watch Pistons vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Detroit Pistons play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099084/2026/03/08/pistons-vs-heat-stream-how-to-watch-march-8/
 
