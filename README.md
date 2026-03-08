@@ -1,3 +1,7 @@
+**RHP Zack Littell, Nationals agree on free-agent contract: Source**\
+`The 30-year-old right-hander was 10-8 with a 3.81 ERA in 32 starts overall last season between Cincinnati and Tampa Bay.`\
+https://nytimes.com/athletic/6837036/2026/03/08/mlb-free-agency-zack-littell-nationals/
+
 **Israel Strikes Energy Infrastructure Crucial to Iran’s Well-Being**\
 `Continued attacks could make the Iranian government and the country as a whole more vulnerable.`\
 https://nytimes.com/2026/03/08/world/middleeast/iran-energy-infrastructure.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099134/2026/03/08/west-virginia-vs-tcu-stream-how-
 **How to watch Towson vs. Charleston (SC) men's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Towson Tigers play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099126/2026/03/08/towson-vs-charleston-sc-stream-how-to-watch-march-8/
-
-**How to watch Blackhawks vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099124/2026/03/08/blackhawks-vs-stars-stream-how-to-watch-march-8/
 
