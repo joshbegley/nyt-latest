@@ -1,3 +1,7 @@
+**Israel Strikes Energy Infrastructure Crucial to Iran’s Well-Being**\
+`Continued attacks could make the Iranian government and the country as a whole more vulnerable.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-energy-infrastructure.html
+
 **Port Vale reach FA Cup quarter-finals for first time in 72 years with Sunderland win**\
 `Ben Waine's first-half goal was the difference between the two sides.`\
 https://nytimes.com/athletic/7099192/2026/03/08/port-vale-sunderland-fa-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099126/2026/03/08/towson-vs-charleston-sc-stream-h
 **How to watch Blackhawks vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099124/2026/03/08/blackhawks-vs-stars-stream-how-to-watch-march-8/
-
-**How to watch San Francisco vs. Santa Clara women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the San Francisco Dons play the Santa Clara Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099114/2026/03/08/san-francisco-vs-santa-clara-stream-how-to-watch-march-8/
 
