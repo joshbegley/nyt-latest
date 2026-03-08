@@ -1,3 +1,19 @@
+**A Year After His Arrest, Mahmoud Khalil Lives in Limbo and in Fear**\
+`President Trump made Mr. Khalil the face of his crackdown on pro-Palestinian protests. Mr. Khalil is now living with uncertainty as the courts consider his deportation.`\
+https://nytimes.com/2026/03/08/nyregion/khalil-mahmoud-immigration-columbia.html
+
+**‘As I Entered Her Dimly Lit Living Room, I Stopped in My Tracks’**\
+`A good deed leads to a stranger’s apartment, a dim view of February and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/08/nyregion/metropolitan-diary.html
+
+**Lucky, Heroic, Profane: The Story of N.Y.P.D. Shield No. 13558**\
+`A history of New York, as told through a single badge and the seven policemen who wore it.`\
+https://nytimes.com/2026/03/08/nyregion/nypd-shield-history.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/08/crosswords/spelling-bee-forum.html
+
 **The Badlands Hold Me as I Grieve**\
 `I imagine the birds I see are the family members I’ve lost.`\
 https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
