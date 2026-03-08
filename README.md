@@ -1,3 +1,11 @@
+**Travis Kelce expected to return to play for 14th season: Sources**\
+`Kelce has spent his entire NFL career with the Chiefs.`\
+https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
+
+**Ken Griffey Jr., Dusty Baker share spotlight, honor Roberto Clemente in MLB Network feature**\
+`Griffey visted the Team Nicaragua manager as a WBC ambassador: "I love Dusty. He's what baseball's all about."`\
+https://nytimes.com/athletic/7099640/2026/03/08/ken-griffey-dusty-baker-wbc-mlb-network/
+
 **Commanders free agency: Five players to watch as Washington tries to rebuild**\
 `The Commanders need to add speed across the board, provide more playmakers around Jayden Daniels and rebuild a lagging defense.`\
 https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-rashid-shaheed-isaiah-likely/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/state-department-diplomats-saudi
 **What we’re seeing at the WBC: Juan Soto walks off the D.R. into a mercy rule win**\
 `The Mets star hit the last of the Dominican Republic's four homers Sunday, plus more from every pool site at the World Baseball Classic.`\
 https://nytimes.com/athletic/7099653/2026/03/08/wbc-juan-soto-walkoff-win/
-
-**A preview of The Athletic's live coverage this week**\
-`The Athletic's live coverage this week includes NFL free agency, the World Baseball Classic, Champions League knockout games and much more`\
-https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selection-sunday/
-
-**Women's conference tournament takeaways: UCLA's making a case for No. 1 overall seed**\
-`UCLA claimed the Big Ten championship in dominating fashion. `\
-https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
 
