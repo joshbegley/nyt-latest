@@ -1,5 +1,5 @@
 **Women's conference tournament takeaways: Duke ties ACC record, makes claim for No. 2 seed**\
-`More teams are punching their tickets to the NCAA Tournament on Sunday as the major conference&#8217;s compete for championships.`\
+`UCLA claimed the Big Ten championship in dominating fashion. `\
 https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
 
 **Have a Montana License Plate in California? Officials Have an Eye on You.**\
