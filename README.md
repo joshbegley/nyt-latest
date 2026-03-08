@@ -27,7 +27,7 @@ https://nytimes.com/athletic/7099572/2026/03/08/wild-wallstedt-sturm-penalty-kil
 https://nytimes.com/video/world/middleeast/100000010762409/pentagon-announces-death-of-seventh-us-service-member-in-war-with-iran.html
 
 **Oil Prices Surge Above $100 a Barrel for the First Time in Almost Four Years**\
-`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies.`\
+`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies. Stock futures fell about 1.5 percent.`\
 https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
 
 **This is what happened on March 8.**\
