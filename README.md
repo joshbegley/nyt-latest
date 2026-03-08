@@ -1,3 +1,19 @@
+**A Year After His Arrest, Mahmoud Khalil Lives in Limbo and in Fear**\
+`President Trump made Mr. Khalil the face of his crackdown on pro-Palestinian protests. Mr. Khalil is now living with uncertainty as the courts consider his deportation.`\
+https://nytimes.com/2026/03/08/nyregion/khalil-mahmoud-immigration-columbia.html
+
+**‘As I Entered Her Dimly Lit Living Room, I Stopped in My Tracks’**\
+`A good deed leads to a stranger’s apartment, a dim view of February and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/08/nyregion/metropolitan-diary.html
+
+**Lucky, Heroic, Profane: The Story of N.Y.P.D. Shield No. 13558**\
+`A history of New York, as told through a single badge and the seven policemen who wore it.`\
+https://nytimes.com/2026/03/08/nyregion/nypd-shield-history.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/08/crosswords/spelling-bee-forum.html
+
 **The New York Times in Print for Sunday, March 8, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
 **F1 Australian Grand Prix briefing: George Russell wins as Ferrari's strategy backfires**\
 `George Russell had to work for it, but he and Mercedes sent a message with a season opening F1 win in the 2026 Australian Grand Prix`\
 https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
-
-**Penguins' shootout futility strikes again in loss to Flyers**\
-`The Penguins lost in a shootout — again — to the Flyers, 4-3, on Saturday at PPG Paints Arena. `\
-https://nytimes.com/athletic/7098126/2026/03/08/penguins-flyers-shootout-loss/
-
-**How Italy won the 2006 World Cup: Six forwards, Pirlo's passing and the brilliance of Cannavaro**\
-`Michael Cox's history of World Cup winners reaches 2006, and a fourth title for the Italians`\
-https://nytimes.com/athletic/7093496/2026/03/08/how-italy-won-the-2006-world-cup/
-
-**Max Dowman stars and makes history on Arsenal return. Can he help ease tension in title race?**\
-`The chance to show more of his carefree, youthful exuberance could be exactly what Arsenal need to relieve some of the tension in the run-in`\
-https://nytimes.com/athletic/7096624/2026/03/08/max-dowman-arsenal-mansfield-history-fa-cup/
-
-**'We're hating every second of it': What it feels like to watch football history made — against your team**\
-`Wycombe were 2-0 up with 87 minutes on the clock against Bolton on Saturday. Somehow, they left the stadium with no points`\
-https://nytimes.com/athletic/7097178/2026/03/08/bolton-wycombe-comeback-pain/
 
