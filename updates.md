@@ -1,3 +1,7 @@
+**Port Vale reach FA Cup quarter-finals for first time in 72 years with Sunderland win**\
+`Ben Waine's first-half goal was the difference between the two sides.`\
+https://nytimes.com/athletic/7099192/2026/03/08/port-vale-sunderland-fa-cup/
+
 **Wrexham's preparations for Chelsea were near faultless - they just need to get used to VAR**\
 `Wrexham did not enjoy their first taste of VAR, but it will be something they quickly need to adjust to should they be promoted again`\
 https://nytimes.com/athletic/7089411/2026/03/08/wrexham-chelsea-var/
