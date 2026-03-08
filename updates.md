@@ -1,3 +1,7 @@
+**Bills new receiver: What are they getting in DJ Moore and what should they expect?**\
+`The Bills had a big need at wide receiver before they acquired Moore.`\
+https://nytimes.com/athletic/7097467/2026/03/08/bills-trade-dj-moore-josh-allen-offense/
+
 **Explosion Damages U.S. Embassy in Oslo, Police Say**\
 `A motive for the explosion was unclear as of Sunday morning, but the police were investigating and said it appeared to be a “targeted attack.”`\
 https://nytimes.com/2026/03/08/world/europe/explosion-us-embassy-oslo.html
