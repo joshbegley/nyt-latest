@@ -1,3 +1,7 @@
+**Chelsea and a need for control**\
+`Chelsea can still make this season a success but it won't be if they keep making the same mistakes - they must see out games better`\
+https://nytimes.com/athletic/7098398/2026/03/08/chelsea-liam-rosenior-control-wrexham/
+
 **I’ll Buy That: The Joy of Having Fun With Fashion**\
 `Loewe was a hoot. Junya Watanabe, a sartorial satire. And wait until I tell you about the Schiaparelli kitten heels.`\
 https://nytimes.com/2026/03/08/style/loewe-junya-watanabe-schiaparelli-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
 **What Will Iran’s Future Hold?**\
 `Six writers weigh in on what’s next for the country and its citizens as the war continues.`\
 https://nytimes.com/interactive/2026/03/08/opinion/iran-war-ayatollah.html
-
-**The Badlands Hold Me as I Grieve**\
-`I imagine the birds I see are the family members I’ve lost.`\
-https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
 

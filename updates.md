@@ -1,3 +1,7 @@
+**Chelsea and a need for control**\
+`Chelsea can still make this season a success but it won't be if they keep making the same mistakes - they must see out games better`\
+https://nytimes.com/athletic/7098398/2026/03/08/chelsea-liam-rosenior-control-wrexham/
+
 **I’ll Buy That: The Joy of Having Fun With Fashion**\
 `Loewe was a hoot. Junya Watanabe, a sartorial satire. And wait until I tell you about the Schiaparelli kitten heels.`\
 https://nytimes.com/2026/03/08/style/loewe-junya-watanabe-schiaparelli-fall-2026.html
