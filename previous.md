@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7093496/2026/03/08/how-italy-won-the-2006-world-cup
 `The chance to show more of his carefree, youthful exuberance could be exactly what Arsenal need to relieve some of the tension in the run-in`\
 https://nytimes.com/athletic/7096624/2026/03/08/max-dowman-arsenal-mansfield-history-fa-cup/
 
-**'We're hating every second of it': what it feels like to watch football history made — against your team**\
+**'We're hating every second of it': What it feels like to watch football history made — against your team**\
 `Wycombe were 2-0 up with 87 minutes on the clock against Bolton on Saturday. Somehow, they left the stadium with no points`\
 https://nytimes.com/athletic/7097178/2026/03/08/bolton-wycombe-comeback-pain/
 
