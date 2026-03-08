@@ -1,3 +1,11 @@
+**Spring Ahead**\
+`Recipes to cook this weekend for weekday meals: Quinoa salad with chicken, almonds and avocado; mustard-braised pork; baked salmon and dill rice.`\
+https://nytimes.com/2026/03/08/dining/spring-ahead.html
+
+**Five NHL players score goals in their first games with new teams after trade deadline**\
+`Four of those players were traded on Friday and scored with their new teams the following night after long days that included travel delays.`\
+https://nytimes.com/athletic/7098906/2026/03/08/nhl-trade-deadline-players-first-goal-teams/
+
 **Why Fulham were denied comedic goal in FA Cup loss to Southampton**\
 `Rodrigo Muniz thought he had given Fulham the lead after Southampton's Daniel Peretz hit a goal kick against his own team-mate.`\
 https://nytimes.com/athletic/7098888/2026/03/08/fulham-southampton-goal-disallowed-fa-cup/
