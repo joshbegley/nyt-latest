@@ -1,3 +1,11 @@
+**Travis Kelce expected to return to play for 14th season: Sources**\
+`Kelce has spent his entire NFL career with the Chiefs.`\
+https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
+
+**Ken Griffey Jr., Dusty Baker share spotlight, honor Roberto Clemente in MLB Network feature**\
+`Griffey visted the Team Nicaragua manager as a WBC ambassador: "I love Dusty. He's what baseball's all about."`\
+https://nytimes.com/athletic/7099640/2026/03/08/ken-griffey-dusty-baker-wbc-mlb-network/
+
 **Commanders free agency: Five players to watch as Washington tries to rebuild**\
 `The Commanders need to add speed across the board, provide more playmakers around Jayden Daniels and rebuild a lagging defense.`\
 https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-rashid-shaheed-isaiah-likely/
