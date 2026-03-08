@@ -1,3 +1,11 @@
+**Joe Gibbs Racing hired private investigator to follow Chris Gabehart, Spire owner**\
+`The licensed investigator photographed and videoed Gabehart and Dickerson meeting for lunch while Gabehart was seeking to leave JGR.`\
+https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-lawsuit-private-investigator-spire/
+
+**Duke's win over UNC comes at a cost as Caleb Foster's injury sparks concern**\
+`The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
+https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
+
 **Judge Voids Mass Layoffs at Voice of America**\
 `The ruling is a major rejection of President Trump’s attempts to dismantle the government-funded news group and influence its editorial decisions.`\
 https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
