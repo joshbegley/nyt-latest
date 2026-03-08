@@ -1,3 +1,15 @@
+**Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
+`Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
+https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/
+
+**Energy Secretary Says Tankers Could Start Moving Soon**\
+`“We’re not too long, I think, before you will see more regular resumption of ship traffic through the Strait of Hormuz,” Chris Wright said on CNN on Sunday.`\
+https://nytimes.com/2026/03/08/business/chris-wright-strait-of-hormuz.html
+
+**Park Service Warns of Quicksand at a Recreation Area in Arizona and Utah**\
+`The service issued the alert for the Glen Canyon National Recreation Area, which covers more than 1.25 million acres across Arizona and Utah.`\
+https://nytimes.com/2026/03/08/us/quicksand-warning-glen-canyon-national-park.html
+
 **U.S. Continues Airstrikes Against a Wide Array of Targets in Iran**\
 `A senior U.S. military official said those targets included missile launchers and air-defense sites.`\
 https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html

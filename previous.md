@@ -1,3 +1,15 @@
+**Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
+`Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
+https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/
+
+**Energy Secretary Says Tankers Could Start Moving Soon**\
+`“We’re not too long, I think, before you will see more regular resumption of ship traffic through the Strait of Hormuz,” Chris Wright said on CNN on Sunday.`\
+https://nytimes.com/2026/03/08/business/chris-wright-strait-of-hormuz.html
+
+**Park Service Warns of Quicksand at a Recreation Area in Arizona and Utah**\
+`The service issued the alert for the Glen Canyon National Recreation Area, which covers more than 1.25 million acres across Arizona and Utah.`\
+https://nytimes.com/2026/03/08/us/quicksand-warning-glen-canyon-national-park.html
+
 **U.S. Continues Airstrikes Against a Wide Array of Targets in Iran**\
 `A senior U.S. military official said those targets included missile launchers and air-defense sites.`\
 https://nytimes.com/2026/03/08/us/politics/airstrikes-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7099554/2026/03/08/northwestern-state-vs-nicholls-s
 **How to watch Oilers vs. Golden Knights: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Vegas Golden Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099547/2026/03/08/oilers-vs-golden-knights-stream-how-to-watch-march-8/
-
-**Airports Struggle to Staff T.S.A. During Partial Government Shutdown**\
-`Screening delays come as spring break travel is ramping up and as Transportation Security Administration workers are going without pay for the second time in six months because of the partial government shutdown.`\
-https://nytimes.com/video/us/100000010762228/airport-lines-tsa-new-orleans.html
-
-**How to watch Lightning vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099545/2026/03/08/lightning-vs-sabres-stream-how-to-watch-march-8/
-
-**How to watch Georgia Southern vs. Marshall men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia Southern Eagles play the Marshall Thundering Herd, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099529/2026/03/08/georgia-southern-vs-marshall-stream-how-to-watch-march-8/
 
