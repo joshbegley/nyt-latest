@@ -1,3 +1,15 @@
+**Chicken Noodle Scoop**\
+`Christina Iverson and Andrea Carla Michaels team up for a fourth collaboration.`\
+https://nytimes.com/2026/03/08/crosswords/daily-puzzle-2026-03-09.html
+
+**Iran Has a New Supreme Leader. What Does That Mean?**\
+`Mojtaba Khamenei takes on a role that makes him not only Iran’s spiritual leader but also the highest authority in the land.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-supreme-leader-khamenei.html
+
+**Travis Kelce expected to return for 14th NFL season — but with what team?**\
+`Kelce has spent his entire NFL career with the Chiefs.`\
+https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
+
 **U.S. Authorities Are Said to Be Leading Investigation Into Gracie Bomb**\
 `The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
 https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html

@@ -1,8 +1,16 @@
+**Chicken Noodle Scoop**\
+`Christina Iverson and Andrea Carla Michaels team up for a fourth collaboration.`\
+https://nytimes.com/2026/03/08/crosswords/daily-puzzle-2026-03-09.html
+
+**Iran Has a New Supreme Leader. What Does That Mean?**\
+`Mojtaba Khamenei takes on a role that makes him not only Iran’s spiritual leader but also the highest authority in the land.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-supreme-leader-khamenei.html
+
 **U.S. Authorities Are Said to Be Leading Investigation Into Gracie Bomb**\
 `The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
 https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
 
-**Travis Kelce expected to return to play for 14th season: Sources**\
+**Travis Kelce expected to return for 14th NFL season — but with what team?**\
 `Kelce has spent his entire NFL career with the Chiefs.`\
 https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099787/2026/03/08/grand-canyon-vs-colorado-state-s
 **Iran’s New Leader, Ayatollah Khamenei’s Son, Is a Mysterious Figure**\
 `The succession of the slain leader’s son is seen as a signal of the Islamic republic’s defiance of Israel and the United States, and of continuity during crisis.`\
 https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-leader.html
-
-**76ers' Tyrese Maxey out next two games with sprained finger**\
-`The 76ers said Maxey will undergo additional testing and consultation to determine a treatment plan.`\
-https://nytimes.com/athletic/7099568/2026/03/08/tyrese-maxey-76ers-finger-injury-update/
-
-**State Dept. Said to Order Diplomats in Saudi Arabia to Leave**\
-`The ordered departure of U.S. employees in the kingdom indicates that senior diplomats are bracing for a possible surge in violence in the war with Iran, officials say.`\
-https://nytimes.com/2026/03/08/world/middleeast/state-department-diplomats-saudi-arabia-departure.html
 
