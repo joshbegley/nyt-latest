@@ -1,3 +1,7 @@
+**Wrexham, a club intimately connected to their town and the fans**\
+`There was no Hollywood ending this time for Wrexham against the Premier League giants - but the occasion felt too authentic for that`\
+https://nytimes.com/athletic/7098079/2026/03/08/wrexham-chelsea-pushed-premier-league/
+
 **A Year After His Arrest, Mahmoud Khalil Lives in Limbo and in Fear**\
 `President Trump made Mr. Khalil the face of his crackdown on pro-Palestinian protests. Mr. Khalil is now living with uncertainty as the courts consider his deportation.`\
 https://nytimes.com/2026/03/08/nyregion/khalil-mahmoud-immigration-columbia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-
 **Live Updates: U.S.-Israeli Strikes Grow as Fuel Depots Burn in Tehran**\
 `The Israeli military struck several Iranian fuel sites, rocking Tehran and the neighboring city of Karaj with explosions. Iran’s de facto leader vowed to seek vengeance for the killing of the nation’s supreme leader.`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
-
-**F1 Australian Grand Prix briefing: George Russell wins as Ferrari's strategy backfires**\
-`George Russell had to work for it, but he and Mercedes sent a message with a season opening F1 win in the 2026 Australian Grand Prix`\
-https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
 
