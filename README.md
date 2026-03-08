@@ -1,3 +1,7 @@
+**In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
+`The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
+https://nytimes.com/athletic/7098016/2026/03/07/tarik-skubal-wbc-team-usa-start/
+
 **Desmond Bane fueling Magic surge from Play-In territory into playoff picture**\
 `This is the Desmond Bane the Magic traded for in June, the one with the boxer's build who scraps for everything he can get.`\
 https://nytimes.com/athletic/7097723/2026/03/07/desmond-bane-stats-magic-play-in-eastern-conference/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
 **Vincent Trocheck on staying with Rangers past the trade deadline: 'It is what it is'**\
 `The Rangers center, who had been bracing for the possibility he might be traded, returned to the ice with New York on Saturday.`\
 https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-trade-deadline/
-
-**Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
-`Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
-https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
 
