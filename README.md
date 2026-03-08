@@ -2,7 +2,7 @@
 `The Athletic's live coverage this week includes NFL free agency, the World Baseball Classic, Champions League knockout games and much more`\
 https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selection-sunday/
 
-**Women's conference tournament takeaways: Duke ties ACC record, makes claim for No. 2 seed**\
+**Women's conference tournament takeaways: UCLA's making a case for No. 1 overall seed**\
 `UCLA claimed the Big Ten championship in dominating fashion. `\
 https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
 
