@@ -1,3 +1,7 @@
+**Israeli Settlers Kill 3 Palestinians in a Weekend of West Bank Violence**\
+`A rise in settler attacks is terrorizing Palestinians in the occupied territory, at a time when global attention is focused on the U.S.-Israeli war with Iran.`\
+https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-israeli-settlers.html
+
 **What Would It Take for Fashion to Shock You?**\
 `Amid complaints that Big Fashion has become bland and boring, some intrepid spirits are keeping it weird.`\
 https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-target
 **How to watch Bruins vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to-watch-march-8/
-
-**How to watch Radford vs. High Point women's basketball: Big South Tournament Time, TV, streaming**\
-`Find out how to watch the Radford Highlanders play the High Point Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099139/2026/03/08/radford-vs-high-point-stream-how-to-watch-march-8/
 
