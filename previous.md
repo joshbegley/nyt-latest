@@ -1,3 +1,11 @@
+**Cadillac beat expectations for its F1 debut, but it knows ‘the honeymoon's over’**\
+`CEO Dan Towriss agrees with his drivers that the hard work starts now after a retirement and P15 finish in Melbourne`\
+https://nytimes.com/athletic/7100041/2026/03/08/cadillac-f1-first-race-australia-honeymoon-is-over/
+
+**Here’s What Happened in the Conflict on Sunday**\
+`Iran named Mojtaba Khamenei, a son of Ayatollah Ali Khamenei, as his father’s successor. The Pentagon announced the death of a seventh U.S. service member.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-war-mojtaba-khamenei.html
+
 **Akshay Bhatia reels in Daniel Berger for dramatic Arnold Palmer Invitational win**\
 `Bhatia came from five shots behind in the final round to force a playoff and claim his third PGA Tour victory.`\
 https://nytimes.com/athletic/7099957/2026/03/08/akshay-bhatia-wins-arnold-palmer-invitational-pga-tour/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/7099572/2026/03/08/wild-wallstedt-sturm-penalty-kil
 https://nytimes.com/video/world/middleeast/100000010762409/pentagon-announces-death-of-seventh-us-service-member-in-war-with-iran.html
 
 **Oil Prices Surge Above $100 a Barrel for the First Time in Almost Four Years**\
-`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies.`\
+`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies. Stock futures fell about 1.5 percent.`\
 https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
 
 **This is what happened on March 8.**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happ
 **Who Is Mojtaba Khamenei, Iran’s New Supreme Leader?**\
 `The selection of a son of Ayatollah Ali Khamenei, who was killed in a strike on his compound at the start of the war, could anger Iranians seeking change.`\
 https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-supreme-leader.html
-
-**Chicken Noodle Scoop**\
-`Christina Iverson and Andrea Carla Michaels team up for a fourth collaboration.`\
-https://nytimes.com/2026/03/08/crosswords/daily-puzzle-2026-03-09.html
-
-**Iran Has a New Supreme Leader. What Does That Mean?**\
-`Mojtaba Khamenei takes on a role that makes him not only Iran’s spiritual leader but also the highest authority in the land.`\
-https://nytimes.com/2026/03/08/world/middleeast/iran-supreme-leader-khamenei.html
 
