@@ -1,3 +1,7 @@
+**Robertson: Focus 'never' left Liverpool after Tottenham January approach**\
+`Robertson is out of contract at Liverpool at the end of the season and says he was "never not committed" to the club.`\
+https://nytimes.com/athletic/7098684/2026/03/08/andy-robertson-liverpool-tottenham-future/
+
 **The F1 wind tunnel engineer who went from 'Drive to Survive' viewer to Williams employee**\
 `Christina Sullivan was aiming for a career in film production. "Drive to Survive" brought her back to engineering and an F1 job at Williams`\
 https://nytimes.com/athletic/7095460/2026/03/08/f1-drive-to-survive-engineer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097702/2026/03/08/flyers-trade-deadline-depth-char
 **Gui Santos on his NBA journey to the Warriors: ‘Everything I did was worth it’**\
 `The 23-year-old opens up about what it's like to be the only Brazilian in the league, how he fell in love with basketball and more. `\
 https://nytimes.com/athletic/7087217/2026/03/08/gui-santos-golden-state-warriors-nba-brazil/
-
-**'Big sad for me': Athletes adjusting to late changes at Paralympic snowboard park after injuries**\
-`Late changes were made at the Cortina Para Snowboard Park cross course after Friday’s training session had to be canceled due to injury.`\
-https://nytimes.com/athletic/7097287/2026/03/08/paralympics-snowboard-park-athletes-injuries-issues/
 
