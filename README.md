@@ -1,3 +1,7 @@
+**U.S. Authorities Are Said to Be Leading Investigation Into Gracie Bomb**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
+https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
+
 **Travis Kelce expected to return to play for 14th season: Sources**\
 `Kelce has spent his entire NFL career with the Chiefs.`\
 https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099568/2026/03/08/tyrese-maxey-76ers-finger-injury
 **State Dept. Said to Order Diplomats in Saudi Arabia to Leave**\
 `The ordered departure of U.S. employees in the kingdom indicates that senior diplomats are bracing for a possible surge in violence in the war with Iran, officials say.`\
 https://nytimes.com/2026/03/08/world/middleeast/state-department-diplomats-saudi-arabia-departure.html
-
-**What we’re seeing at the WBC: Juan Soto walks off the D.R. into a mercy rule win**\
-`The Mets star hit the last of the Dominican Republic's four homers Sunday, plus more from every pool site at the World Baseball Classic.`\
-https://nytimes.com/athletic/7099653/2026/03/08/wbc-juan-soto-walkoff-win/
 
