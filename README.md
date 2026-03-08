@@ -19,7 +19,7 @@ https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
 
 **F1 Australian Grand Prix briefing: George Russell wins as Ferrari's strategy backfires**\
-`George Russell had to work for it, but he and Mercedes sent a message with a season opening win `\
+`George Russell had to work for it, but he and Mercedes sent a message with a season opening F1 win in the 2026 Australian Grand Prix`\
 https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
 
 **Penguins' shootout futility strikes again in loss to Flyers**\
