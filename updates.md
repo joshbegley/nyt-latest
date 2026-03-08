@@ -1,3 +1,7 @@
+**What I think Jets will do in free agency (and why you shouldn't expect a spending spree)**\
+`A look at who the Jets are most likely to target when the free-agent negotiating window opens on Monday.`\
+https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-targets/
+
 **How to watch Bruins vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to-watch-march-8/

@@ -1,3 +1,7 @@
+**What I think Jets will do in free agency (and why you shouldn't expect a spending spree)**\
+`A look at who the Jets are most likely to target when the free-agent negotiating window opens on Monday.`\
+https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-targets/
+
 **How to watch Bruins vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to-watch-march-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099110/2026/03/08/montana-vs-montana-state-stream-
 **How to watch Boise State vs. New Mexico women's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Boise State Broncos play the New Mexico Lobos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099107/2026/03/08/boise-state-vs-new-mexico-stream-how-to-watch-march-8/
-
-**How to watch Red Wings vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099096/2026/03/08/red-wings-vs-devils-stream-how-to-watch-march-8/
 
