@@ -1,3 +1,7 @@
+**A position-by-position preview of the Giants' free agency needs, potential targets**\
+`A deeper look at what the Giants need — and where they might spend — when NFL free agency opens.`\
+https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
+
 **Lebanese Villagers Bury Hezbollah Fighters, Praising Their Defiance of Israel**\
 `After a fierce ground fight between Israeli forces and Iran-backed Hezbollah, the village of Nabi Sheet mourned its dead. “We are not here to bow,” said one villager. “We will not kneel.”`\
 https://nytimes.com/2026/03/08/world/middleeast/lebanon-hezbollah-fighters-israel.html

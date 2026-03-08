@@ -1,3 +1,7 @@
+**How to watch Fresno State vs. UNLV women's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Fresno State Bulldogs play the UNLV Lady Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7099417/2026/03/08/fresno-state-vs-unlv-stream-how-to-watch-march-8/
+
 **Lebanese Villagers Bury Hezbollah Fighters, Praising Their Defiance of Israel**\
 `After a fierce ground fight between Israeli forces and Iran-backed Hezbollah, the village of Nabi Sheet mourned its dead. “We are not here to bow,” said one villager. “We will not kneel.”`\
 https://nytimes.com/2026/03/08/world/middleeast/lebanon-hezbollah-fighters-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-is
 **What Would It Take for Fashion to Shock You?**\
 `Amid complaints that Big Fashion has become bland and boring, some intrepid spirits are keeping it weird.`\
 https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
-
-**A position-by-position preview of the Giants' free agency needs, potential targets**\
-`A deeper look at what the Giants need — and where they might spend — when NFL free agency opens.`\
-https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
 

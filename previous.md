@@ -34,7 +34,7 @@ https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-is
 `Amid complaints that Big Fashion has become bland and boring, some intrepid spirits are keeping it weird.`\
 https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
 
-**A position-by-position preview of the Giants' free agency needs and potential targets**\
-`A deeper look at what the Giants need — and where they might spend — when free agency opens.`\
+**A position-by-position preview of the Giants' free agency needs, potential targets**\
+`A deeper look at what the Giants need — and where they might spend — when NFL free agency opens.`\
 https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
 
