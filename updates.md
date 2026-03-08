@@ -1,3 +1,7 @@
+**Australian GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after F1's 2026 Australian GP?`\
+https://nytimes.com/athletic/7098458/2026/03/08/george-russell-australian-gp-f1-mailbag/
+
 **Wrexham, a club intimately connected to their town and the fans**\
 `There was no Hollywood ending this time for Wrexham against the Premier League giants - but the occasion felt too authentic for that`\
 https://nytimes.com/athletic/7098079/2026/03/08/wrexham-chelsea-pushed-premier-league/
