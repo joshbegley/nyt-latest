@@ -1,3 +1,7 @@
+**Wrexham's preparations for Chelsea were near faultless - they just need to get used to VAR**\
+`Wrexham did not enjoy their first taste of VAR, but it will be something they quickly need to adjust to should they be promoted again`\
+https://nytimes.com/athletic/7089411/2026/03/08/wrexham-chelsea-var/
+
 **What I think Jets will do in free agency (and why you shouldn't expect a spending spree)**\
 `A look at who the Jets are most likely to target when the free-agent negotiating window opens on Monday.`\
 https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-targets/
