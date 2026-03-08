@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
 `Panarin wore No. 72 alongside Bailey the Lion after giving the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
 https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
 
-**Duke downs Caleb Wilson-less UNC, but loses Caleb Foster to injury**\
+**Duke's win over UNC comes at a cost as Caleb Foster's injury sparks concern**\
 `The No. 1 Blue Devils exacted revenge with a 76-61 win over No. 17 UNC after falling to the Tar Heels by 3 points earlier in the season.`\
 https://nytimes.com/athletic/7097868/2026/03/07/duke-unc-rivalry-2026/
 
