@@ -1,3 +1,7 @@
+**Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space**\
+`Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
+https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
+
 **Israel Strikes Oil Facilities in Iran**\
 `Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
 https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html

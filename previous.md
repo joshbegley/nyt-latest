@@ -1,3 +1,7 @@
+**Vikings to restructure T.J. Hockenson's contract, save $5 million in cap space**\
+`Restructuring Hockenson's contract is the beginning of the Vikings' quest to shed $43 million in cap space.`\
+https://nytimes.com/athletic/7097877/2026/03/07/tj-hockenson-vikings-restructured-contract-nfl/
+
 **Israel Strikes Oil Facilities in Iran**\
 `Huge flames erupted into the sky over Tehran and a nearby city on Saturday.`\
 https://nytimes.com/2026/03/07/world/middleeast/israel-iran-oil-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097626/2026/03/07/ravens-maxx-crosby-raiders-farew
 **Quarterback Tyler Huntley returning to Ravens on two-year deal: Source**\
 `Huntley has started 16 games throughout his six-year career and has a 7-9 record. `\
 https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-agency-2026/
-
-**Alyssa Thompson's goal secures win over Colombia, USWNT’s eighth SheBelieves Cup victory**\
-`The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
-https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
 
