@@ -1,3 +1,7 @@
+**Women's conference tournament takeaways: Duke ties ACC record, makes claim for No. 2 seed**\
+`More teams are punching their tickets to the NCAA Tournament on Sunday as the major conference&#8217;s compete for championships.`\
+https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
+
 **Have a Montana License Plate in California? Officials Have an Eye on You.**\
 `Since 2018, Californians have bought luxury vehicles worth over $20 million in sales-tax-free Montana, exploiting a loophole that avoided millions of dollars in levies, an investigation revealed.`\
 https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-n
 **Energy Secretary Says Tankers Could Start Moving Soon**\
 `“We’re not too long, I think, before you will see more regular resumption of ship traffic through the Strait of Hormuz,” Chris Wright said on CNN on Sunday.`\
 https://nytimes.com/2026/03/08/business/chris-wright-strait-of-hormuz.html
-
-**Park Service Warns of Quicksand at a Recreation Area in Arizona and Utah**\
-`The service issued the alert for the Glen Canyon National Recreation Area, which covers more than 1.25 million acres across Arizona and Utah.`\
-https://nytimes.com/2026/03/08/us/quicksand-warning-glen-canyon-national-park.html
 
