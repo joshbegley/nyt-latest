@@ -1,3 +1,7 @@
+**Rapper Backed by Gen Z Is Set for Landslide Win in Nepal Election**\
+`Balendra Shah, the onetime rap artist and former mayor of the country’s capital, is on course to become the country’s next prime minister.`\
+https://nytimes.com/2026/03/07/world/asia/nepal-election-rapper-balen-genz.html
+
 **Amid Maple Leafs' slump, the real story is the empty seats, boos and uncertainty**\
 `Toronto's 5-2 loss to the Lightning was the team’s seventh in a row, and with no announced direction forward, the fan base is in limbo.`\
 https://nytimes.com/athletic/7098220/2026/03/07/maple-leafs-lightning-tickets-fans-nhl/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-
 **Judge Voids Mass Layoffs at Voice of America**\
 `The ruling, which said that Kari Lake’s appointment to oversee V.O.A.’s parent agency was invalid, was a major rejection of President Trump’s attempts to dismantle the government-funded news group.`\
 https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
-
-**Artemi Panarin switches jersey number, ending saga with Kings mascot**\
-`Panarin wore No. 72 alongside Bailey the Lion after giving the mascot a Rolex watch but switched to No. 10 after Corey Perry was traded.`\
-https://nytimes.com/athletic/7097960/2026/03/07/artemi-panarin-trade-jersey-number-drama-kings-nhl/
 
