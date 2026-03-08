@@ -1,3 +1,7 @@
+**Kristaps Porziņģis returns to Warriors' lineup after six-game absence**\
+`Porziņģis was all smiles in the locker room prior to Saturday’s game — feeling relief that he was healthy enough to be back on the floor.`\
+https://nytimes.com/athletic/7097876/2026/03/07/kristaps-porzingis-returns-warriors-illness-nba/
+
 **Iran’s De Facto Leader Says Iran Will Not Surrender or Stop Its Attacks**\
 `Ali Larijani, the head of Iran’s Supreme National Security Council and a close confidant of Ayatollah Ali Khamenei, said Iran was determined to avenge the killing of the leader.`\
 https://nytimes.com/2026/03/07/world/middleeast/larijani-iran-war.html
