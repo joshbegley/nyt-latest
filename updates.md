@@ -1,3 +1,15 @@
+**American tennis player confirms split with coach under WTA Tour misconduct investigation**\
+`The American declined to “dive in” to why she and Font de Mora are no longer working together.`\
+https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-investigation-peyton-stearns/
+
+**Country Joe McDonald, Whose Antiwar Song Became an Anthem, Dies at 84**\
+`One of the starring acts at Woodstock, he and his band, the Fish, came out of the Bay Area’s psychedelic rock scene. He went on to a long career as a solo artist.`\
+https://nytimes.com/2026/03/08/arts/music/country-joe-mcdonald-dead.html
+
+**India dominate T20 World Cup final with 96-run win over New Zealand**\
+`Sanju Samson and Jasprit Bumrah again starred for India as they won their second consecutive T20 World Cup.`\
+https://nytimes.com/athletic/7099217/2026/03/08/india-t20-world-cup-final-new-zealand/
+
 **Israeli Settlers Kill 3 Palestinians in a Weekend of West Bank Violence**\
 `A rise in settler attacks is terrorizing Palestinians in the occupied territory, at a time when global attention is focused on the U.S.-Israeli war with Iran.`\
 https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-israeli-settlers.html

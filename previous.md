@@ -1,3 +1,15 @@
+**American tennis player confirms split with coach under WTA Tour misconduct investigation**\
+`The American declined to “dive in” to why she and Font de Mora are no longer working together.`\
+https://nytimes.com/athletic/7098223/2026/03/08/tennis-coach-font-de-mora-investigation-peyton-stearns/
+
+**Country Joe McDonald, Whose Antiwar Song Became an Anthem, Dies at 84**\
+`One of the starring acts at Woodstock, he and his band, the Fish, came out of the Bay Area’s psychedelic rock scene. He went on to a long career as a solo artist.`\
+https://nytimes.com/2026/03/08/arts/music/country-joe-mcdonald-dead.html
+
+**India dominate T20 World Cup final with 96-run win over New Zealand**\
+`Sanju Samson and Jasprit Bumrah again starred for India as they won their second consecutive T20 World Cup.`\
+https://nytimes.com/athletic/7099217/2026/03/08/india-t20-world-cup-final-new-zealand/
+
 **Israeli Settlers Kill 3 Palestinians in a Weekend of West Bank Violence**\
 `A rise in settler attacks is terrorizing Palestinians in the occupied territory, at a time when global attention is focused on the U.S.-Israeli war with Iran.`\
 https://nytimes.com/2026/03/08/world/middleeast/palestinians-killed-west-bank-israeli-settlers.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/iran-energy-infrastructure.html
 **Port Vale reach FA Cup quarter-finals for first time in 72 years with Sunderland win**\
 `Ben Waine's first-half goal was the difference between the two sides.`\
 https://nytimes.com/athletic/7099192/2026/03/08/port-vale-sunderland-fa-cup/
-
-**Wrexham's preparations for Chelsea were near faultless - they just need to get used to VAR**\
-`Wrexham did not enjoy their first taste of VAR, but it will be something they quickly need to adjust to should they be promoted again`\
-https://nytimes.com/athletic/7089411/2026/03/08/wrexham-chelsea-var/
-
-**What I think Jets will do in free agency (and why you shouldn't expect a spending spree)**\
-`A look at who the Jets are most likely to target when the free-agent negotiating window opens on Monday.`\
-https://nytimes.com/athletic/7099158/2026/03/08/new-york-jets-free-agency-targets/
-
-**How to watch Bruins vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099146/2026/03/08/bruins-vs-penguins-stream-how-to-watch-march-8/
 
