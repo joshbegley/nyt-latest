@@ -1,9 +1,13 @@
+**Desmond Bane fueling Magic surge from Play-In territory into playoff picture**\
+`This is the Desmond Bane the Magic traded for in June, the one with the boxer's build who scraps for everything he can get.`\
+https://nytimes.com/athletic/7097723/2026/03/07/desmond-bane-stats-magic-play-in-eastern-conference/
+
 **Joe Gibbs Racing hired private investigator to follow Chris Gabehart, Spire owner**\
 `The licensed investigator photographed and videoed Gabehart and Dickerson meeting for lunch while Gabehart was seeking to leave JGR.`\
 https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-lawsuit-private-investigator-spire/
 
 **Judge Voids Mass Layoffs at Voice of America**\
-`The ruling is a major rejection of President Trump’s attempts to dismantle the government-funded news group and influence its editorial decisions.`\
+`The ruling, which said that Kari Lake’s appointment to oversee V.O.A.’s parent agency was invalid, was a major rejection of President Trump’s attempts to dismantle the government-funded news group.`\
 https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
 
 **Artemi Panarin switches jersey number, ending saga with Kings mascot**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7097781/2026/03/07/vincent-trocheck-rangers-nhl-tra
 **Smoking Jars of Metal and Fuses Thrown at Protest Near Mayor’s House**\
 `Six people were arrested after anti-Islamic protesters led by the right-wing activist Jake Lang clashed with counterprotesters near Gracie Mansion.`\
 https://nytimes.com/2026/03/07/nyregion/gracie-mansion-protests.html
-
-**Khalil Mack returning to Chargers, looking for elusive playoff win**\
-`Mack has reached the playoffs six times with the Chargers, Bears and Raiders but lost in the wild-card round each time.`\
-https://nytimes.com/athletic/7090580/2026/03/07/khalil-mack-chargers-nfl-free-agency-2026/
 

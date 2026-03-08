@@ -1,3 +1,11 @@
+**Desmond Bane fueling Magic surge from Play-In territory into playoff picture**\
+`This is the Desmond Bane the Magic traded for in June, the one with the boxer's build who scraps for everything he can get.`\
+https://nytimes.com/athletic/7097723/2026/03/07/desmond-bane-stats-magic-play-in-eastern-conference/
+
+**Judge Voids Mass Layoffs at Voice of America**\
+`The ruling, which said that Kari Lake’s appointment to oversee V.O.A.’s parent agency was invalid, was a major rejection of President Trump’s attempts to dismantle the government-funded news group.`\
+https://nytimes.com/2026/03/07/us/politics/judge-kari-lake-voa-layoffs.html
+
 **Joe Gibbs Racing hired private investigator to follow Chris Gabehart, Spire owner**\
 `The licensed investigator photographed and videoed Gabehart and Dickerson meeting for lunch while Gabehart was seeking to leave JGR.`\
 https://nytimes.com/athletic/7097932/2026/03/07/joe-gibbs-racing-chris-gabehart-lawsuit-private-investigator-spire/
