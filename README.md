@@ -6,7 +6,7 @@ https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-
 `The Israeli military struck several Iranian fuel sites, rocking Tehran and the neighboring city of Karaj with explosions. Iran’s de facto leader vowed to seek vengeance for the killing of the nation’s supreme leader.`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
 
-**F1 Australian Grand Prix briefing: George Russell wins as Mercedes flex in Melbourne**\
+**F1 Australian Grand Prix briefing: George Russell wins as Ferrari's strategy backfires**\
 `George Russell had to work for it, but he and Mercedes sent a message with a season opening win `\
 https://nytimes.com/athletic/7098260/2026/03/08/f1-australian-grand-prix-race-briefing/
 
