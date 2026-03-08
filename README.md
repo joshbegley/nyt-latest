@@ -1,3 +1,7 @@
+**Brandt to leave Dortmund in the summer after seven years at the club**\
+`Dortmund CEO for sport Lars Ricken confirmed that the player and club have been unable to agree on an extension.`\
+https://nytimes.com/athletic/7098568/2026/03/08/julian-brandt-dortmund-transfer-exit/
+
 **College hoops observations: Florida passes UConn, Purdue's slide and more**\
 `Plus, the fourth 30-point comeback in NCAA history and a bad day for bubble teams. `\
 https://nytimes.com/athletic/7097922/2026/03/08/florida-uconn-purdue-college-basketball-byu/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/podcasts/the-daily/oscars-2026-who-will-win-and-w
 **Wordle Review No. 1,724**\
 `Scroll down for hints and conversation about the puzzle for Monday, March 9, 2026.`\
 https://nytimes.com/2026/03/08/crosswords/wordle-review-1724.html
-
-**Was Tyra Banks the Villain? Or Were We?**\
-`A fashion insider and two culture writers dissect “America’s Next Top Model.”`\
-https://nytimes.com/2026/03/08/opinion/americas-next-top-model-tyra-banks.html
 
