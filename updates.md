@@ -1,3 +1,7 @@
+**In perhaps his only WBC start, Skubal earns respect of Team USA teammates**\
+`The Tigers ace did not definitively say he was done for the WBC during a live television interview on Fox.`\
+https://nytimes.com/athletic/7098016/2026/03/07/tarik-skubal-wbc-team-usa-start/
+
 **Desmond Bane fueling Magic surge from Play-In territory into playoff picture**\
 `This is the Desmond Bane the Magic traded for in June, the one with the boxer's build who scraps for everything he can get.`\
 https://nytimes.com/athletic/7097723/2026/03/07/desmond-bane-stats-magic-play-in-eastern-conference/
