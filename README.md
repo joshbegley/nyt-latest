@@ -1,3 +1,7 @@
+**Commanders free agency: Five players to watch as Washington tries to rebuild**\
+`The Commanders need to add speed across the board, provide more playmakers around Jayden Daniels and rebuild a lagging defense.`\
+https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-rashid-shaheed-isaiah-likely/
+
 **How to watch Pacific vs. Santa Clara men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Pacific Tigers play the Santa Clara Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099800/2026/03/08/pacific-vs-santa-clara-stream-how-to-watch-march-8/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selecti
 **Women's conference tournament takeaways: UCLA's making a case for No. 1 overall seed**\
 `UCLA claimed the Big Ten championship in dominating fashion. `\
 https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
-
-**Have a Montana License Plate in California? Officials Have an Eye on You.**\
-`Since 2018, Californians have bought luxury vehicles worth over $20 million in sales-tax-free Montana, exploiting a loophole that avoided millions of dollars in levies, an investigation revealed.`\
-https://nytimes.com/2026/03/08/us/montana-loophole-cars-california.html
 
