@@ -1,3 +1,11 @@
+**Pentagon Announces Death of Seventh U.S. Service Member in War With Iran**\
+`Another American service member died in the war with Iran, the Pentagon said on Sunday, bringing the number of American troops killed in the conflict to seven.`\
+https://nytimes.com/video/world/middleeast/100000010762409/pentagon-announces-death-of-seventh-us-service-member-in-war-with-iran.html
+
+**Oil Prices Surge Above $100 a Barrel for the First Time in Almost Four Years**\
+`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies.`\
+https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
+
 **Oil Prices Surge Above $100 a Barrel as Concerns About Supplies Grow**\
 `It was the first time in almost four years that oil had passed that mark.`\
 https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
