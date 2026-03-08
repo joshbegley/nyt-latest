@@ -10,8 +10,8 @@ https://nytimes.com/2026/03/08/crosswords/daily-puzzle-2026-03-09.html
 `Mojtaba Khamenei takes on a role that makes him not only Iran’s spiritual leader but also the highest authority in the land.`\
 https://nytimes.com/2026/03/08/world/middleeast/iran-supreme-leader-khamenei.html
 
-**U.S. Authorities Begin Investigation Into Explosive Device at Gracie**\
-`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
+**U.S. Authorities Are Investigating Device Thrown Near Gracie Mansion**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, people with knowledge of the investigation said.`\
 https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
 
 **Travis Kelce expected to return for 14th NFL season — but with what team?**\

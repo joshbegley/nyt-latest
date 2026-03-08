@@ -1,3 +1,11 @@
+**Who Is Mojtaba Khamenei, Iran’s New Supreme Leader?**\
+`The selection of a son of Ayatollah Ali Khamenei, who was killed in a strike on his compound at the start of the war, could anger Iranians seeking change.`\
+https://nytimes.com/2026/03/08/world/middleeast/mojtaba-khamenei-iran-supreme-leader.html
+
+**U.S. Authorities Begin Investigation Into Explosive Device at Gracie**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
+https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
+
 **Chicken Noodle Scoop**\
 `Christina Iverson and Andrea Carla Michaels team up for a fourth collaboration.`\
 https://nytimes.com/2026/03/08/crosswords/daily-puzzle-2026-03-09.html
