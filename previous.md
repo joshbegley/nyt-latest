@@ -1,3 +1,7 @@
+**Iran’s De Facto Leader Says Iran Will Not Surrender or Stop Its Attacks**\
+`Ali Larijani, the head of Iran’s Supreme National Security Council and a close confidant of Ayatollah Ali Khamenei, said Iran was determined to avenge the killing of the leader.`\
+https://nytimes.com/2026/03/07/world/middleeast/larijani-iran-war.html
+
 **Women's tennis tour denies data breach after player shares threats sent to personal phone**\
 `Panna Udvardy is the second WTA player to detail receiving menacing communications on her personal device in a few days.`\
 https://nytimes.com/athletic/7097217/2026/03/07/tennis-abuse-threats-betting-wta/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happ
 **Join Together**\
 `Kelly Richardson’s puzzle is a celebration for solvers.`\
 https://nytimes.com/2026/03/07/crosswords/daily-puzzle-2026-03-08.html
-
-**Confident Kodai Senga looks strong in first start: 'I still have a lot to prove'**\
-`After injuries and issues with mechanics limited the Mets starter in 2024 and 2025, Senga was impressive in his Grapefruit League debut.`\
-https://nytimes.com/athletic/7097535/2026/03/07/mlb-mets-kodai-senga-first-start/
 
