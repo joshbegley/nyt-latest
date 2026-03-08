@@ -1,3 +1,7 @@
+**Women's conference tournament takeaways: Duke ties ACC record, makes claim for No. 2 seed**\
+`UCLA claimed the Big Ten championship in dominating fashion. `\
+https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
+
 **Cardinals, James Conner rework contract as running back looks to rebound from foot injury: Source**\
 `Conner was a two-time 1,000-yard rusher with the Cardinals but missed most of last season after injuring his foot in Week 3.`\
 https://nytimes.com/athletic/7091635/2026/03/08/james-conner-nfl-free-agency-2026/

@@ -1,3 +1,7 @@
+**A preview of The Athletic's live coverage this week**\
+`The Athletic's live coverage this week includes NFL free agency, the World Baseball Classic, Champions League knockout games and much more`\
+https://nytimes.com/athletic/7099634/2026/03/08/nfl-wbc-champions-league-selection-sunday/
+
 **Women's conference tournament takeaways: Duke ties ACC record, makes claim for No. 2 seed**\
 `UCLA claimed the Big Ten championship in dominating fashion. `\
 https://nytimes.com/athletic/7099652/2026/03/08/womens-conference-tournament-basketball-duke-acc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099576/2026/03/08/rangers-celtic-ibrox-flares-pitc
 **Atletico Madrid and Peaky Blinders join forces: An unusual partnership explained**\
 `Atletico will stage a Peaky Blinders-themed publicity stunt as part of a partnership with Netflix for their home game against Getafe`\
 https://nytimes.com/athletic/7093909/2026/03/08/atletico-madrid-peaky-blinders-netflix-partnership/
-
-**Energy Secretary Says Tankers Could Start Moving Soon**\
-`“We’re not too long, I think, before you will see more regular resumption of ship traffic through the Strait of Hormuz,” Chris Wright said on CNN on Sunday.`\
-https://nytimes.com/2026/03/08/business/chris-wright-strait-of-hormuz.html
 
