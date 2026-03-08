@@ -2,7 +2,7 @@
 `Huntley has started 16 games throughout his six-year career and has a 7-9 record. `\
 https://nytimes.com/athletic/7090440/2026/03/07/tyler-huntley-ravens-nfl-free-agency-2026/
 
-**Alyssa Thompson goal secures USWNT’s eighth SheBelieves Cup victory over Colombia**\
+**Alyssa Thompson's goal secures USWNT’s eighth SheBelieves Cup victory over Colombia**\
 `The 21-year old's sole goal of the tournament sealed the team's title win over Colombia. `\
 https://nytimes.com/athletic/7097680/2026/03/07/alyssa-thompson-uswnt-shebelieves-cup-victory/
 
