@@ -1,3 +1,11 @@
+**Vital desalination plants in Iran and Bahrain are attacked.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/desalination-plants-iran-bahrain
+
+**How to watch Knicks vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098783/2026/03/08/knicks-vs-lakers-stream-how-to-watch-march-8/
+
 **How to watch Creighton vs. UConn women's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098776/2026/03/08/creighton-vs-uconn-stream-how-to-watch-march-8/

@@ -1,3 +1,11 @@
+**Vital desalination plants in Iran and Bahrain are attacked.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/desalination-plants-iran-bahrain
+
+**How to watch Knicks vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the New York Knicks play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7098783/2026/03/08/knicks-vs-lakers-stream-how-to-watch-march-8/
+
 **How to watch Creighton vs. UConn women's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Creighton Bluejays play the UConn Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098776/2026/03/08/creighton-vs-uconn-stream-how-to-watch-march-8/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7098752/2026/03/08/portland-vs-oregon-state-stream-
 **How to watch Iowa vs. UCLA women's basketball: Big Ten Tournament Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the UCLA Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098749/2026/03/08/iowa-vs-ucla-stream-how-to-watch-march-8/
-
-**How to watch Texas vs. South Carolina women's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Texas Longhorns play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7098747/2026/03/08/texas-vs-south-carolina-stream-how-to-watch-march-8/
-
-**How to watch Northern Kentucky vs. Green Bay men's basketball: Horizon League Tournament Time, TV, streaming**\
-`Find out how to watch the Northern Kentucky Norse play the Green Bay Phoenix, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7098743/2026/03/08/northern-kentucky-vs-green-bay-stream-how-to-watch-march-8/
 
