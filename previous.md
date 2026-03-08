@@ -1,3 +1,7 @@
+**Lebanese Villagers Bury Hezbollah Fighters, Praising Their Defiance of Israel**\
+`After a fierce ground fight between Israeli forces and Iran-backed Hezbollah, the village of Nabi Sheet mourned its dead. “We are not here to bow,” said one villager. “We will not kneel.”`\
+https://nytimes.com/2026/03/08/world/middleeast/lebanon-hezbollah-fighters-israel.html
+
 **‘Hoppers’ Ends Pixar’s Box Office Cold Streak for Originals**\
 `The animated film was No. 1 at the domestic box office, with about $46 million in ticket sales. On the downside, “The Bride!” appeared dead on arrival.`\
 https://nytimes.com/2026/03/08/business/hoppers-the-bride-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/style/indie-fashion-paris-fashion-week.html
 **A position-by-position preview of the Giants' free agency needs and potential targets**\
 `A deeper look at what the Giants need — and where they might spend — when free agency opens.`\
 https://nytimes.com/athletic/7097993/2026/03/08/new-york-giants-free-agency-preview/
-
-**Broncos bringing back inside linebacker Justin Strnad: What's next at the position?**\
-`Strnad, who has produced 7.5 sacks the past two seasons, has agreed to a 3-year deal and could take over a starting role in Denver defense.`\
-https://nytimes.com/athletic/7099284/2026/03/08/broncos-justin-strnad-linebacker-returning/
 
