@@ -1,3 +1,7 @@
+**A very different F1, plus Skubal lets it rip at WBC**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7098385/2026/03/08/f1-is-back-and-its-a-whole-new-experience-for-the-drivers/
+
 **Painter's pickup game with Scherzer, Crawford's improved defense, Miller update: Phillies notes**\
 `Andrew Painter recalls the time he had to guard Max Scherzer in basketball. "I was 19. ... This guy’s making $43 million this year."`\
 https://nytimes.com/athletic/7097641/2026/03/08/phillies-notes-andrew-painter-justin-crawford-defense-aidan-miller/

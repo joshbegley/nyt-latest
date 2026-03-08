@@ -1,3 +1,7 @@
+**A very different F1, plus Skubal lets it rip at WBC**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7098385/2026/03/08/f1-is-back-and-its-a-whole-new-experience-for-the-drivers/
+
 **Painter's pickup game with Scherzer, Crawford's improved defense, Miller update: Phillies notes**\
 `Andrew Painter recalls the time he had to guard Max Scherzer in basketball. "I was 19. ... This guy’s making $43 million this year."`\
 https://nytimes.com/athletic/7097641/2026/03/08/phillies-notes-andrew-painter-justin-crawford-defense-aidan-miller/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098626/2026/03/08/louisville-vs-duke-stream-how-to
 **How to watch Wild vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098623/2026/03/08/wild-vs-avalanche-stream-how-to-watch-march-8/
-
-**How to watch Iona vs. Quinnipiac women's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Iona Gaels play the Quinnipiac Bobcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7098621/2026/03/08/iona-vs-quinnipiac-stream-how-to-watch-march-8/
 
