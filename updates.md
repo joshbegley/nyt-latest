@@ -1,3 +1,16 @@
+**A Loose Band of Emerging Powers Is Divided Over Iran**\
+`Brazil, China and Russia all denounced the U.S.-Israeli attacks, but other nations in the BRICS group haven’t, even though Iran is a fellow member.`\
+https://nytimes.com/2026/03/08/world/middleeast/brics-iran-allies-us-israel-war.html
+
+**Iran’s Revolutionary Guards: The Spine of a Militarized State**\
+`With their pervasive military, political and economic clout, the Guards are often considered the main impediment to regime change, or any change, in Iran.`\
+https://nytimes.com/2026/03/08/us/iran-islamic-revolutionary-guards-corps.html
+
+**Is the key to Shota Imanaga's 2026 success really as simple as getting his velocity back?**\
+`The Cubs believe if Imanaga gets healthy and corrects his mechanics, his fastball will return to its former glory.
+`\
+https://nytimes.com/athletic/7097637/2026/03/08/cubs-shota-imanaga-success-velocity-spring-training/
+
 **Is the key to Shota Imanaga's 2026 success really as simple as getting his velocity back?**\
 `The Cubs believe if Imanaga gets healthy and corrects his mechanics, his fastball will return to its former glory.
 `\
