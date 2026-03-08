@@ -1,3 +1,11 @@
+**On ‘S.N.L.’, Pete Hegseth Says Iran ‘Isn’t a War, It’s a Situationship’**\
+`Colin Jost added to his airtime playing Hegseth, the defense secretary, in the opening of a “Saturday Night Live” broadcast hosted by Ryan Gosling.`\
+https://nytimes.com/2026/03/08/arts/television/snl-ryan-gosling-harry-styles-iran-war.html
+
+**Canadiens needed to shore up details on road trip. They return with the same task**\
+`Montreal's road trip demonstrated that this young team has a lot of learning left to do if it wants to make noise in the playoffs.`\
+https://nytimes.com/athletic/7098386/2026/03/08/canadiens-trade-deadline-kings/
+
 **Robertson: Focus 'never' left Liverpool after Tottenham January approach**\
 `Robertson is out of contract at Liverpool at the end of the season and says he was "never not committed" to the club.`\
 https://nytimes.com/athletic/7098684/2026/03/08/andy-robertson-liverpool-tottenham-future/
