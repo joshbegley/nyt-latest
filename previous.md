@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, March 8, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
+
+**What Will Iran’s Future Hold?**\
+`Six writers weigh in on what’s next for the country and its citizens as the war continues.`\
+https://nytimes.com/interactive/2026/03/08/opinion/iran-war-ayatollah.html
+
+**In My Grief I Am Held by the Land**\
+`I imagine the birds I see are the family members I’ve lost.`\
+https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
+
 **Here is the latest.**\
 `By Eric Schmitt, Farnaz Fassihi, Eve Sampson and Yan Zhuang`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7096624/2026/03/08/max-dowman-arsenal-mansfield-his
 **'We're hating every second of it': What it feels like to watch football history made — against your team**\
 `Wycombe were 2-0 up with 87 minutes on the clock against Bolton on Saturday. Somehow, they left the stadium with no points`\
 https://nytimes.com/athletic/7097178/2026/03/08/bolton-wycombe-comeback-pain/
-
-**What we learnt from England's first steps on the road to the 2027 World Cup**\
-`The European champions have their eyes on the greatest prize of all and kicked off their qualifying campaign this week with two wins`\
-https://nytimes.com/athletic/7097070/2026/03/08/england-world-cup-qualifying-wiegman-bronze/
-
-**Will Osula and the story of his Man Utd trophy: 'He was a bit like a mini Cristiano Ronaldo'**\
-`A post on social media showing Osula holding a trophy after a Soccer Schools competition went viral after his late winning goal`\
-https://nytimes.com/athletic/7094012/2026/03/08/william-osula-newcastle-manchester-united-trophy/
-
-**Tyrese Maxey's pending MRI for right hand injury could seal 76ers' fate as playoffs near**\
-`If they can't get healthy, the 76ers don't have much of a chance to come away with a top-six seeding.`\
-https://nytimes.com/athletic/7098105/2026/03/08/tyrese-maxey-injury-mri-right-hand-76ers-nba/
 

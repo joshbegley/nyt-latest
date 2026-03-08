@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, March 8, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/08/todays-new-york-times
+
+**What Will Iran’s Future Hold?**\
+`Six writers weigh in on what’s next for the country and its citizens as the war continues.`\
+https://nytimes.com/interactive/2026/03/08/opinion/iran-war-ayatollah.html
+
+**In My Grief I Am Held by the Land**\
+`I imagine the birds I see are the family members I’ve lost.`\
+https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
+
 **'We're hating every second of it': What it feels like to watch football history made — against your team**\
 `Wycombe were 2-0 up with 87 minutes on the clock against Bolton on Saturday. Somehow, they left the stadium with no points`\
 https://nytimes.com/athletic/7097178/2026/03/08/bolton-wycombe-comeback-pain/
