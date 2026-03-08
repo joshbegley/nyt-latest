@@ -1,3 +1,7 @@
+**Wrexham, a club intimately connected to their town and the fans**\
+`There was no Hollywood ending this time for Wrexham against the Premier League giants - but the occasion felt too authentic for that`\
+https://nytimes.com/athletic/7098079/2026/03/08/wrexham-chelsea-pushed-premier-league/
+
 **A Year After His Arrest, Mahmoud Khalil Lives in Limbo and in Fear**\
 `President Trump made Mr. Khalil the face of his crackdown on pro-Palestinian protests. Mr. Khalil is now living with uncertainty as the courts consider his deportation.`\
 https://nytimes.com/2026/03/08/nyregion/khalil-mahmoud-immigration-columbia.html

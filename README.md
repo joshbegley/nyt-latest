@@ -1,3 +1,7 @@
+**Australian GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after F1's 2026 Australian GP?`\
+https://nytimes.com/athletic/7098458/2026/03/08/george-russell-australian-gp-f1-mailbag/
+
 **Wrexham, a club intimately connected to their town and the fans**\
 `There was no Hollywood ending this time for Wrexham against the Premier League giants - but the occasion felt too authentic for that`\
 https://nytimes.com/athletic/7098079/2026/03/08/wrexham-chelsea-pushed-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/opinion/birding-photography-loss.html
 **Here is the latest.**\
 `By Eric Schmitt, Farnaz Fassihi, Eve Sampson and Yan Zhuang`\
 https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon/here-is-the-latest
-
-**Live Updates: U.S.-Israeli Strikes Grow as Fuel Depots Burn in Tehran**\
-`The Israeli military struck several Iranian fuel sites, rocking Tehran and the neighboring city of Karaj with explosions. Iran’s de facto leader vowed to seek vengeance for the killing of the nation’s supreme leader.`\
-https://nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon
 
