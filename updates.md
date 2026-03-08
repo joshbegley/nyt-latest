@@ -1,3 +1,7 @@
+**Mercedes dominated the Australian GP. But now its rivals have hope of a 2026 title fight**\
+`Mercedes scored a 1-2 victory in the F1 2026 season opener. But its rivals now have hope its not as far ahead as they feared`\
+https://nytimes.com/athletic/7098578/2026/03/08/mercedes-f1-australian-gp-win/
+
 **How to watch Winthrop vs. High Point men's basketball: Big South Tournament Time, TV, streaming**\
 `Find out how to watch the Winthrop Eagles play the High Point Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7098627/2026/03/08/winthrop-vs-high-point-stream-how-to-watch-march-8/
