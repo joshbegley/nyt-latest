@@ -1,3 +1,7 @@
+**U.S. Authorities Are Said to Be Leading Investigation Into Gracie Bomb**\
+`The device that emitted smoke during a protest near Gracie Mansion Saturday was designed to be deadly, a person with knowledge of the investigation said.`\
+https://nytimes.com/2026/03/08/nyregion/gracie-mansion-bomb-investigation.html
+
 **Travis Kelce expected to return to play for 14th season: Sources**\
 `Kelce has spent his entire NFL career with the Chiefs.`\
 https://nytimes.com/athletic/7099714/2026/03/08/travis-kelce-return-14th-season-chiefs/
