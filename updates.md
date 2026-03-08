@@ -1,3 +1,7 @@
+**Oil Prices Surge Above $100 a Barrel as Concerns About Supplies Grow**\
+`It was the first time in almost four years that oil had passed that mark.`\
+https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
+
 **This is what happened on March 8.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-8

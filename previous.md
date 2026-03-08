@@ -1,3 +1,7 @@
+**Oil Prices Surge Above $100 a Barrel as Concerns About Supplies Grow**\
+`It was the first time in almost four years that oil had passed that mark.`\
+https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
+
 **This is what happened on March 8.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-8
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-ra
 **How to watch Pacific vs. Santa Clara men's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Pacific Tigers play the Santa Clara Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7099800/2026/03/08/pacific-vs-santa-clara-stream-how-to-watch-march-8/
-
-**Sizing Up Iran’s Elite Guards**\
-`Many see the Islamic Revolutionary Guards Corps as the main barrier to regime change, or any change at all, in Iran.`\
-https://nytimes.com/2026/03/08/world/iran-revolutionary-guards-corps-nepal-election.html
 

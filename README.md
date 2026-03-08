@@ -1,5 +1,9 @@
-**Oil Prices Surge Above $100 a Barrel as Concerns About Supplies Grow**\
-`It was the first time in almost four years that oil had passed that mark.`\
+**Pentagon Announces Death of Seventh U.S. Service Member in War With Iran**\
+`Another American service member died in the war with Iran, the Pentagon said on Sunday, bringing the number of American troops killed in the conflict to seven.`\
+https://nytimes.com/video/world/middleeast/100000010762409/pentagon-announces-death-of-seventh-us-service-member-in-war-with-iran.html
+
+**Oil Prices Surge Above $100 a Barrel for the First Time in Almost Four Years**\
+`The jump was a sign of growing concern that the war in the Middle East will take a toll on energy supplies.`\
 https://nytimes.com/2026/03/08/business/energy-environment/oil-prices-iran-100-dollars-barrel.html
 
 **This is what happened on March 8.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099640/2026/03/08/ken-griffey-dusty-baker-wbc-mlb-
 **Commanders free agency: Five players to watch as Washington tries to rebuild**\
 `The Commanders need to add speed across the board, provide more playmakers around Jayden Daniels and rebuild a lagging defense.`\
 https://nytimes.com/athletic/7099621/2026/03/08/commanders-free-agent-targets-rashid-shaheed-isaiah-likely/
-
-**How to watch Pacific vs. Santa Clara men's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Pacific Tigers play the Santa Clara Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7099800/2026/03/08/pacific-vs-santa-clara-stream-how-to-watch-march-8/
 
