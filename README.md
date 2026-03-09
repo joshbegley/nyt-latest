@@ -1,3 +1,7 @@
+**Comeback win of the season sends the Penguins on the road in style**\
+`The Penguins roared back to stun the Bruins in an unlikely overtime thriller, consolidating their hold on a divisional spot.`\
+https://nytimes.com/athletic/7100117/2026/03/08/penguins-comeback-win-mantha-novak-silovs-bruins/
+
 **A Warm Day Arrives and New Yorkers Rush Into Spring’s Embrace**\
 `After a frigid, snowy, seemingly interminable winter, the first taste of mild air had people shedding layers and flocking to parks.`\
 https://nytimes.com/2026/03/08/nyregion/nyc-warm-weather-spring.html
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-reco
 https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
 
 **Lightning, Sabres put up their dukes in Atlantic Division showdown**\
-`Through two periods, Tampa Bay and Buffalo combined for 98 penalty minutes Sunday.`\
+`The final tally was 17 penalties and 57 minutes for the Lightning, 11 penalties and 45 minutes for the Sabres.`\
 https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
 
 **Veteran TE Adam Trautman returning to Broncos as position takes shape: Source**\
 `Trautman, a familiar figure for Sean Payton, has led the Broncos in snaps at tight end the past three seasons.`\
 https://nytimes.com/athletic/7100070/2026/03/08/adam-trautman-broncos-tight-end-nfl-free-agency/
-
-**White House Removes Republican Member of N.T.S.B.**\
-`J. Todd Inman, who was prominent in the investigation of the midair collision in Washington last year, said no reason was given for his firing two years into his term on the transportation safety board.`\
-https://nytimes.com/2026/03/08/us/politics/todd-inman-fired-national-transportation-safety-board.html
 
