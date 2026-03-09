@@ -1,3 +1,15 @@
+**After Global Economy Shudders, Trump Zigzags on Whether War Will End Soon**\
+`Oil prices and stocks initially swung wildly, and Iran’s foreign minister promised “surprises,” calling the strikes against his country “Operation Epic Mistake.”`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-war-israel-us.html
+
+**Phillies, Jesús Luzardo agree to five-year, $135 million extension**\
+`Luzardo's new deal begins in 2027 and takes him through 2031. He was slated to become a free agent after this season.`\
+https://nytimes.com/athletic/7102926/2026/03/09/jesus-luzardo-phillies-extension-contract/
+
+**Short of Ending Iran Conflict, Trump Has Limited Tools to Lower Oil Prices**\
+`While officials look for ways to ease oil shocks, experts say higher prices will likely persist until traffic through the Strait of Hormuz returns.`\
+https://nytimes.com/2026/03/09/climate/gasoline-oil-prices-iran.html
+
 **Seahawks bringing back WR Rashid Shaheed on 3-year deal: Sources**\
 `Shaheed scored three return touchdowns, including one in the playoffs, after joining the Seahawks via trade in October.`\
 https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free-agency-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/09/us/politics/iran-war-midterm-election-economy.htm
 **Iran War Sends Tremors Through the Global Economy**\
 `Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
-
-**Shoppers Gone Feral**\
-`Customers withstood gate-keeping, bomb threats and heartbreakingly low inventory as a new era of Chanel hit stores during Paris Fashion Week.`\
-https://nytimes.com/2026/03/09/style/chanel-shopping-blazy-paris-fashion-week.html
-
-**Fashionable Wall Street Bros Set Off a Social Media Storm**\
-`They said yes to an Interview magazine fashion shoot. Then came the haters.`\
-https://nytimes.com/2026/03/09/style/finance-bros-wall-street-fashion.html
-
-**Broncos releasing LB Dre Greenlaw after one season in Denver: Source**\
-`Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
-https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
 

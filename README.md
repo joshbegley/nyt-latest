@@ -1,3 +1,11 @@
+**Linebacker Nakobe Dean agrees to three-year deal with Raiders**\
+`Dean rebounded from a devastating knee injury that occurred in 2024.`\
+https://nytimes.com/athletic/7102874/2026/03/09/nakobe-dean-raiders-nfl-free-agency-2026/
+
+**SEC prepared to create own rules if necessary, commissioner Greg Sankey says**\
+`Sankey says his preference is for the SEC not to “go our own way,” but also says “we can't go on as we are.”`\
+https://nytimes.com/athletic/7102691/2026/03/09/sec-commissioner-greg-sankey-ncaa-policy/
+
 **After Global Economy Shudders, Trump Zigzags on Whether War Will End Soon**\
 `Oil prices and stocks initially swung wildly, and Iran’s foreign minister promised “surprises,” calling the strikes against his country “Operation Epic Mistake.”`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-war-israel-us.html
@@ -15,7 +23,7 @@ https://nytimes.com/2026/03/09/climate/gasoline-oil-prices-iran.html
 https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free-agency-2026/
 
 **Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch till November'**\
-`“I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
+`"I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
 https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
 
 **Meteorite Crashes Through Roof in Germany After Fiery Light Show**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
 **Monti Rock III, Gleefully Untalented ‘Tonight Show’ Favorite, Dies at 86**\
 `He couldn’t sing, dance or tell funny stories. But Johnny Carson loved him and his persona: a D-list star clinging to celebrity.`\
 https://nytimes.com/2026/03/09/arts/television/monti-rock-iii-dead.html
-
-**The Iran War (for Now) Dominates the Midterm Conversation**\
-`Democrats are focused on the economy, while Republicans wish they were focused on the economy.`\
-https://nytimes.com/2026/03/09/us/politics/iran-war-midterm-election-economy.html
-
-**Iran War Sends Tremors Through the Global Economy**\
-`Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
 

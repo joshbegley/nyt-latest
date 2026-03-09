@@ -1,3 +1,15 @@
+**After Global Economy Shudders, Trump Zigzags on Whether War Will End Soon**\
+`Oil prices and stocks initially swung wildly, and Iran’s foreign minister promised “surprises,” calling the strikes against his country “Operation Epic Mistake.”`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-war-israel-us.html
+
+**Phillies, Jesús Luzardo agree to five-year, $135 million extension**\
+`Luzardo's new deal begins in 2027 and takes him through 2031. He was slated to become a free agent after this season.`\
+https://nytimes.com/athletic/7102926/2026/03/09/jesus-luzardo-phillies-extension-contract/
+
+**Short of Ending Iran Conflict, Trump Has Limited Tools to Lower Oil Prices**\
+`While officials look for ways to ease oil shocks, experts say higher prices will likely persist until traffic through the Strait of Hormuz returns.`\
+https://nytimes.com/2026/03/09/climate/gasoline-oil-prices-iran.html
+
 **Seahawks bringing back WR Rashid Shaheed on 3-year deal: Sources**\
 `Shaheed scored three return touchdowns, including one in the playoffs, after joining the Seahawks via trade in October.`\
 https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free-agency-2026/
