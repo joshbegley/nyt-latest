@@ -1,3 +1,11 @@
+**Iraq coach asks FIFA to delay World Cup play-off game due to Middle East conflict**\
+`Iraq is set to play either Bolivia or Suriname  in the inter-confederation play-offs on March 31.`\
+https://nytimes.com/athletic/7100711/2026/03/09/iraq-world-cup-playoff-fifa-middle-east/
+
+**Russia wins first winter Paralympic gold medal for 12 years**\
+`Varvara Voronchikhina, one of six Russian athletes competing at the 2026 Games, took victory in the women's standing super-G.`\
+https://nytimes.com/athletic/7100741/2026/03/09/russia-winter-paralympics-gold-medal/
+
 **Fear and Hope for Iranians Trapped Between Bombs and Defiant Rulers**\
 `Many in Iran feel helpless in the face of their entrenched system, and some are becoming increasingly embittered by the fierce American and Israeli bombardment.`\
 https://nytimes.com/2026/03/09/world/europe/iranians-destruction-bombs-despair.html
