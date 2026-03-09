@@ -1,3 +1,11 @@
+**With Lots of Rumors and Little Information, Other Cities Prepare for ICE**\
+`After the sprawling and chaotic federal immigration crackdown in Minnesota, jurisdictions in other states have been bracing for a range of scenarios.`\
+https://nytimes.com/2026/03/09/us/ice-immigration-crackdown-minnesota-ohio.html
+
+**At a cemetery in Tehran, fresh graves and angry slogans.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/09/world/iran-war-israel-trump-oil/at-a-cemetery-in-tehran-fresh-graves-and-angry-slogans
+
 **Raiders agree to free-agent deal with ex-Vikings WR Jalen Nailor: Sources**\
 `The Vikings wanted to keep receiver Nailor, but with the team facing a salary-cap crunch, he was always likely to get more money elsewhere.`\
 https://nytimes.com/athletic/7087363/2026/03/09/jalen-nailor-raiders-nfl-free-agency-2026/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7085779/2026/03/09/nwsl-boston-legacy-team-influenc
 **Cardinals agree to free-agent deal with former Falcons RB Tyler Allgeier**\
 `Tyler Allgeier, who ran for 2,876 yards and 18 touchdowns in four seasons with the Falcons, has signed a free-agent deal with the Cardinals.`\
 https://nytimes.com/athletic/7084005/2026/03/09/tyler-allgeier-cardinals-nfl-free-agency-2026/
-
-**Raiders, center Tyler Linderbaum agree to three-year deal worth $81 million: Sources**\
-`Linderbaum was the top offensive lineman available and a three-time Pro Bowl center. `\
-https://nytimes.com/athletic/7084554/2026/03/09/tyler-linderbaum-raiders-nfl-free-agency-2026/
-
-**Coby Bryant agrees to free-agent deal with Bears: Sources**\
-`Bryant, a reliable starter for the Super Bowl champion Seahawks, should be a versatile player in Dennis Allen's defense.`\
-https://nytimes.com/athletic/7101940/2026/03/09/coby-bryant-bears-nfl-free-agency-2026/
 

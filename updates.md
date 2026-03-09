@@ -1,3 +1,19 @@
+**Raiders agree to free-agent deal with ex-Vikings WR Jalen Nailor: Sources**\
+`The Vikings wanted to keep receiver Nailor, but with the team facing a salary-cap crunch, he was always likely to get more money elsewhere.`\
+https://nytimes.com/athletic/7087363/2026/03/09/jalen-nailor-raiders-nfl-free-agency-2026/
+
+**Titans, QB Mitchell Trubisky agree to two-year deal: Reports**\
+`The 2017 No. 2 pick will play for his fourth team after backing up Josh Allen in Buffalo the last two seasons.`\
+https://nytimes.com/athletic/7093900/2026/03/09/mitchell-tribusky-titans-nfl-free-agency-2026/
+
+**Lions agree to 3-year deal with center Cade Mays: Source**\
+`The Lions have some rebuilding to do on their offensive line and finding a starting center was a priority.`\
+https://nytimes.com/athletic/7101932/2026/03/09/cade-mays-lions-nfl-free-agency-2026/
+
+**WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
+`Robinson, 25, caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
+https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/
+
 **WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
 `Robinson caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
 https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/

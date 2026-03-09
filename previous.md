@@ -1,5 +1,17 @@
+**Raiders agree to free-agent deal with ex-Vikings WR Jalen Nailor: Sources**\
+`The Vikings wanted to keep receiver Nailor, but with the team facing a salary-cap crunch, he was always likely to get more money elsewhere.`\
+https://nytimes.com/athletic/7087363/2026/03/09/jalen-nailor-raiders-nfl-free-agency-2026/
+
+**Titans, QB Mitchell Trubisky agree to two-year deal: Reports**\
+`The 2017 No. 2 pick will play for his fourth team after backing up Josh Allen in Buffalo the last two seasons.`\
+https://nytimes.com/athletic/7093900/2026/03/09/mitchell-tribusky-titans-nfl-free-agency-2026/
+
+**Lions agree to 3-year deal with center Cade Mays: Source**\
+`The Lions have some rebuilding to do on their offensive line and finding a starting center was a priority.`\
+https://nytimes.com/athletic/7101932/2026/03/09/cade-mays-lions-nfl-free-agency-2026/
+
 **WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
-`Robinson caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
+`Robinson, 25, caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
 https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/
 
 **Travis Etienne Jr. agrees to free-agent deal with Saints: Source**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7084554/2026/03/09/tyler-linderbaum-raiders-nfl-fre
 **Coby Bryant agrees to free-agent deal with Bears: Sources**\
 `Bryant, a reliable starter for the Super Bowl champion Seahawks, should be a versatile player in Dennis Allen's defense.`\
 https://nytimes.com/athletic/7101940/2026/03/09/coby-bryant-bears-nfl-free-agency-2026/
-
-**F.B.I. Subpoenas Records in Arizona in Expansion of 2020 Voting Inquiry**\
-`The subpoena was issued in recent days to the Arizona State Senate, which oversaw a sprawling but controversial audit of the vote result in Maricopa County.`\
-https://nytimes.com/2026/03/09/nyregion/fbi-subpoena-arizona-maricopa-county-election.html
-
-**Read the charges in the Gracie Mansion attack.**\
-`Federal prosecutors in Manhattan have charged Emir Balat and Ibrahim Kayumi with attempting to support ISIS and use of a weapon of mass destruction.`\
-https://nytimes.com/interactive/2026/03/09/nyregion/gracie-mansion-charges.html
-
-**Fears of a ‘Quagmire’ in Trump’s War on Iran**\
-`As Iran chooses another hard-line leader, readers express anxiety about the war and its consequences.`\
-https://nytimes.com/2026/03/09/opinion/letters/trump-us-iran-war.html
 
