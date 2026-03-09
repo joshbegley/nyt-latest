@@ -1,3 +1,11 @@
+**Trump’s War Becomes World’s Latest Economic Hazard**\
+`The president insists conflict with Iran will be brief, but world leaders are preparing for severe economic blowback.`\
+https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.html
+
+**AP men's hoops Top 25: Duke holds at No. 1, Illinois, Virginia enter top 10**\
+`Duke, Michigan, Arizona and Florida are the top four teams in the AP poll — and the likely NCAA Tournament No. 1 seeds.`\
+https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-arizona-virginia/
+
 **‘Let’s Go for a Walk’: Three Dance Artists Strip Down Movement**\
 `At the Dance Reflections festival, Nacera Belaza, Anne Teresa De Keersmaeker and Noé Soulier all attempted some form of going back to basics. Results varied.`\
 https://nytimes.com/2026/03/09/arts/dance/nacera-belaza-noe-soulier-anne-teresa-de-keersmaeker-dance-reflections.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7101825/2026/03/09/world-baseball-classic-olympics-
 **Ravens agree to 3-year deal with G John Simpson: Source**\
 `Simpson has started all 51 regular-season games over the last three years with the Ravens and Jets. `\
 https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-agency-2026/
-
-**Bernard Lafayette Jr., 85, Dies; Civil Rights Leader Helped Plan Selma March**\
-`A close associate of Martin Luther King Jr. and John Lewis, he was involved in many of the key moments of the Black freedom struggle in the 1960s.`\
-https://nytimes.com/2026/03/09/us/bernard-lafayette-jr-dead.html
-
-**Commanders, LT Laremy Tunsil agree to 2-year extension: Source**\
-`The Commanders traded for Tunsil last year, believing his play would fortify their offensive line.`\
-https://nytimes.com/athletic/7101752/2026/03/09/laremy-tunsil-commanders-contract-extension/
 

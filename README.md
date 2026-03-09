@@ -1,8 +1,12 @@
+**Judge Halts Trump Administration Move to Restrict Immigration Appeals**\
+`The ruling is part of a broader dispute between the independent federal judiciary and the executive branch’s immigration court system.`\
+https://nytimes.com/2026/03/09/us/politics/judge-trump-immigration-appeals.html
+
 **Trump’s War Becomes World’s Latest Economic Hazard**\
 `The president insists conflict with Iran will be brief, but world leaders are preparing for severe economic blowback.`\
 https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.html
 
-**AP men's hoops Top 25: Duke holds at No. 1, Illinois, Virginia enter top 10**\
+**AP men's hoops Top 25: Duke holds at No. 1; Illinois, Virginia enter top 10**\
 `Duke, Michigan, Arizona and Florida are the top four teams in the AP poll — and the likely NCAA Tournament No. 1 seeds.`\
 https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-arizona-virginia/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/09/business/ariel-emanuel-agents-podcasts.html
 **The Windup: WBC, it's a celebration 🎵**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7101825/2026/03/09/world-baseball-classic-olympics-the-windup/
-
-**Ravens agree to 3-year deal with G John Simpson: Source**\
-`Simpson has started all 51 regular-season games over the last three years with the Ravens and Jets. `\
-https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-agency-2026/
 

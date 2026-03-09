@@ -1,3 +1,11 @@
+**Trump’s War Becomes World’s Latest Economic Hazard**\
+`The president insists conflict with Iran will be brief, but world leaders are preparing for severe economic blowback.`\
+https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.html
+
+**AP men's hoops Top 25: Duke holds at No. 1, Illinois, Virginia enter top 10**\
+`Duke, Michigan, Arizona and Florida are the top four teams in the AP poll — and the likely NCAA Tournament No. 1 seeds.`\
+https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-arizona-virginia/
+
 **Commanders, LT Laremy Tunsil agree to 2-year extension: Source**\
 `The Commanders traded for Tunsil last year, believing his play would fortify their offensive line.`\
 https://nytimes.com/athletic/7101752/2026/03/09/laremy-tunsil-commanders-contract-extension/
