@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi and Yan Zhuang`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
+
 **Word of the Day: clandestine**\
 `This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/09/learning/word-of-the-day-clandestine.html
