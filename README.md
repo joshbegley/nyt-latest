@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-reco
 https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
 
 **Lightning, Sabres put up their dukes in Atlantic Division showdown**\
-`After a penalty-filled first period, two fights broke out early in the second. Tampa Bay and Buffalo have combined for 98 penalty minutes.`\
+`After two periods and the score tied at 4-4, Tampa Bay and Buffalo have combined for 98 penalty minutes on Sunday.`\
 https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
 
 **Veteran TE Adam Trautman returning to Broncos as position takes shape: Source**\

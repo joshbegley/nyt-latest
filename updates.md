@@ -1,3 +1,11 @@
+**Iran Chooses New Supreme Leader**\
+`Iran named Mojtaba Khamenei, the son of Ayatollah Ali Khamenei, who was killed in recent U.S.-Israeli strikes, as its next supreme leader.`\
+https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran-supreme-leader.html
+
+**Lightning, Sabres put up their dukes in Atlantic Division showdown**\
+`After a penalty-filled first period, two fights broke out early in the second. Tampa Bay and Buffalo have combined for 98 penalty minutes.`\
+https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
+
 **Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
 `The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
 https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/

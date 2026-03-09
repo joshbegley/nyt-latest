@@ -1,3 +1,7 @@
+**Iran Chooses New Supreme Leader**\
+`Iran named Mojtaba Khamenei, the son of Ayatollah Ali Khamenei, who was killed in recent U.S.-Israeli strikes, as its next supreme leader.`\
+https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran-supreme-leader.html
+
 **Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
 `The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
 https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-reco
 https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
 
 **Lightning, Sabres put up their dukes in Atlantic Division showdown**\
-`After a penalty-filled first period, two fights broke out in the first six seconds of the second.`\
+`After a penalty-filled first period, two fights broke out early in the second. Tampa Bay and Buffalo have combined for 98 penalty minutes.`\
 https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
 
 **Veteran TE Adam Trautman returning to Broncos as position takes shape: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100041/2026/03/08/cadillac-f1-first-race-australia
 **Here’s What Happened in the Conflict on Sunday**\
 `Iran named Mojtaba Khamenei, a son of Ayatollah Ali Khamenei, as his father’s successor. The Pentagon announced the death of a seventh U.S. service member.`\
 https://nytimes.com/2026/03/08/world/middleeast/iran-war-mojtaba-khamenei.html
-
-**Akshay Bhatia reels in Daniel Berger for dramatic Arnold Palmer Invitational win**\
-`Bhatia came from five shots behind in the final round to force a playoff and claim his third PGA Tour victory.`\
-https://nytimes.com/athletic/7099957/2026/03/08/akshay-bhatia-wins-arnold-palmer-invitational-pga-tour/
 
