@@ -1,3 +1,15 @@
+**Can You Identify These Lengthy Novels From Their Descriptions?**\
+`Try this short quiz on very long books.`\
+https://nytimes.com/interactive/2026/03/09/books/review/giant-novels-quiz.html
+
+**Jets agree to trade for Dolphins safety Minkah Fitzpatrick: Sources**\
+`Fitzpatrick joins a Jets secondary that failed to record an interception in 2025.`\
+https://nytimes.com/athletic/7101175/2026/03/09/jets-minkah-fitzpatrick-trade-defense/
+
+**Inside Barcelona: Did Joan Laporta really block Lionel Messi's return?**\
+`Barcelona's presidential elections are heating up, and Messi is — indirectly — a key protagonist in the outcome of next week's vote`\
+https://nytimes.com/athletic/7100847/2026/03/09/barcelona-messi-laporta-champions-league-newcastle/
+
 **Fantasy trends and hidden gems: NHL trade deadline fallout **\
 `Shayna Goldman breaks down the fantasy hockey impact of the biggest deals made ahead of the NHL trade deadline.`\
 https://nytimes.com/athletic/7099683/2026/03/09/fantasy-hockey-nhl-trade-deadline-spin-trends-gems-fallout/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruz
 **British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
 `Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
 https://nytimes.com/2026/03/09/world/europe/king-charles-iran-war-uk-us-trump.html
-
-**Five Iran Women soccer players defect with help of Australian police**\
-`Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
-https://nytimes.com/athletic/7100902/2026/03/09/iran-soccer-defect-australia-asian-cup/
-
-**What we’re seeing in the WBC: An Armani jacket and a case of double vision**\
-`Logan Allen faced off against.....Logan Allen? Plus more dispatches from each pool site at the World Baseball Classic.`\
-https://nytimes.com/athletic/7100780/2026/03/09/wbc-armani-jacket-double-vision/
-
-**Israeli Forces Raid New Areas in Southern Lebanon**\
-`Israeli fighter jets also bombarded the southern outskirts of Beirut, the Lebanese capital, as part of its escalating military campaign against Hezbollah.`\
-https://nytimes.com/2026/03/09/world/middleeast/israeli-forces-raid-southern-lebanon.html
 
