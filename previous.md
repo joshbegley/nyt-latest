@@ -1,3 +1,7 @@
+**The Hidden Factor Behind Your Home Insurance Cost: Your Credit History**\
+`In many states, homeowners with   excellent credit scores are charged less for home insurance than those with worse scores, even if they live in a disaster-prone area.`\
+https://nytimes.com/interactive/2026/03/09/climate/home-insurance-credit-scores.html
+
 **Fire Breaks Out Near Glasgow Central Station**\
 `Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close through Monday morning, the authorities said.`\
 https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/7090942/2026/03/09/alex-highsmith-steelers/
 **How Fred Warner confuses QBs pre-snap: Watch him break down film**\
 `Ever wonder what makes Fred Warner such a tenacious player? He peeled back the curtain and talked us through it.`\
 https://nytimes.com/athletic/7084391/2026/03/09/how-fred-warner-confuses-quarterbacks-pre-snap/
-
-**Is the Trial of Erdogan’s Top Rival More About Corruption or Politics?**\
-`Prosecutors accuse the former Istanbul mayor Ekrem Imamoglu of leading a criminal scheme. His supporters say Turkey’s president is trying to eliminate a political foe.`\
-https://nytimes.com/2026/03/09/world/middleeast/turkey-erdogan-mayor-ekrem-imamoglu.html
 

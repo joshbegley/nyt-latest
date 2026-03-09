@@ -1,3 +1,7 @@
+**The Hidden Factor Behind Your Home Insurance Cost: Your Credit History**\
+`In many states, homeowners with   excellent credit scores are charged less for home insurance than those with worse scores, even if they live in a disaster-prone area.`\
+https://nytimes.com/interactive/2026/03/09/climate/home-insurance-credit-scores.html
+
 **Fire Breaks Out Near Glasgow Central Station**\
 `Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close through Monday morning, the authorities said.`\
 https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html
