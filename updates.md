@@ -1,3 +1,15 @@
+**Lawmakers Pressure Hochul to Raise Taxes in New York**\
+`The State Assembly and Senate are each calling for the state to raise taxes, piggybacking on a push by Mayor Zohran Mamdani of New York City.`\
+https://nytimes.com/2026/03/09/nyregion/tax-the-rich-albany.html
+
+**Panthers reach 1-year deal with Kenny Pickett to be backup QB: Source**\
+`The Panthers have been looking to get younger and more athletic at the QB2 spot behind Bryce Young.`\
+https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-agency-2026/
+
+**Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Source**\
+`Seumalo was a Pro Bowl selection in 2024.`\
+https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
+
 **Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Reports**\
 `Seumalo was a Pro Bowl selection in 2024.`\
 https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/

@@ -1,4 +1,12 @@
-**Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Reports**\
+**Lawmakers Pressure Hochul to Raise Taxes in New York**\
+`The State Assembly and Senate are each calling for the state to raise taxes, piggybacking on a push by Mayor Zohran Mamdani of New York City.`\
+https://nytimes.com/2026/03/09/nyregion/tax-the-rich-albany.html
+
+**Panthers reach 1-year deal with Kenny Pickett to be backup QB: Source**\
+`The Panthers have been looking to get younger and more athletic at the QB2 spot behind Bryce Young.`\
+https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-agency-2026/
+
+**Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Source**\
 `Seumalo was a Pro Bowl selection in 2024.`\
 https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free
 **Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch till November'**\
 `"I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
 https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
-
-**Meteorite Crashes Through Roof in Germany After Fiery Light Show**\
-`The fireball from space was spotted by a network of sky-watching cameras in Belgium, France, Luxembourg, the Netherlands and Germany.`\
-https://nytimes.com/2026/03/09/science/meteorite-europe-crash-germany-roof.html
-
-**Trade Your Smartphone for an ’80s-Style Digital Watch**\
-`These retro selections may have some new tricks, but they keep things comparatively simple.`\
-https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
 
