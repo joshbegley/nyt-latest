@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/09/crosswords/spelling-bee-forum.html
+
 **Word of the Day: clandestine**\
 `This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/09/learning/word-of-the-day-clandestine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089549/2026/03/09/footballer-muscle-adama-traore/
 **Edu arrival was Forest's most calamitous recent decision - it’s hard to see how it could have gone worse**\
 `The Brazilian was supposed to take Forest forward but they have gone rapidly backwards, and it could still get worse...`\
 https://nytimes.com/athletic/7098712/2026/03/09/edu-appointment-forest-exit/
-
-**Chelsea's centre-circle ritual that is winding up opposition players, fans and even pundits**\
-`Chelsea have been doing their huddle over the match ball since the game at Napoli in January but only now is it provoking a response...`\
-https://nytimes.com/athletic/7098878/2026/03/09/chelsea-centre-circle-ritual-huddle/
 

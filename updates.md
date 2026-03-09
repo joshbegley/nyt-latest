@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/09/crosswords/spelling-bee-forum.html
+
 **Here’s the latest.**\
 `By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
