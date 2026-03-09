@@ -1,4 +1,8 @@
-**Kenneth Walker III is 4th Super Bowl MVP to change teams: Here's how others fared**\
+**NFL announces 2026 compensatory draft picks: Eagles, Ravens, Steelers receive 4 each**\
+`The NFL announced the 33 compensatory draft picks that have been awarded for the 2026 NFL Draft.`\
+https://nytimes.com/athletic/7088842/2026/03/09/nfl-draft-2026-comp-picks-steelers-ravens-vikings/
+
+**Kenneth Walker is 4th to change teams after winning SB MVP: Here's how others fared**\
 `Seahawks running back has agreed to a deal with the Chiefs, joining a short list of players to make a move after winning Super Bowl MVP.`\
 https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
 
@@ -30,8 +34,4 @@ https://nytimes.com/2026/03/09/world/middleeast/iran-war-oman-evacuations.html
 `<p>The NHL trade deadline has come and gone and the Winnipeg Jets are in the midst of their longest homestand of the season — and making a late push for the playoffs. What’s on your mind? Drop you questions here and Murat will answer them later this week.</p>
 `\
 https://nytimes.com/athletic/7102422/2026/03/09/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-6/
-
-**Bengals, S Bryan Cook agree to three-year deal: Reports**\
-`The former Bearcat and Mt. Healthy High School product is set to return to Cincinnati to anchor the secondary.`\
-https://nytimes.com/athletic/7102434/2026/03/09/bryan-cook-bengals-nfl-free-agency-2026/
 
