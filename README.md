@@ -1,6 +1,10 @@
+**'It's turned into MMA!': how a Brazil final descended into anarchy — and 23 red cards**\
+`There were kicks, stamps and punches thrown in a violent brawl involving Hulk, Brazil internationals and a former West Brom player`\
+https://nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruzeiro-atletico-mineiro/
+
 **British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
 `Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
-https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/british-lawmaker-wants-king-charles-to-cancel-his-us-trip-over-iran-war
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/king-charles-iran-war-uk-us-trump
 
 **Five Iran Women soccer players defect with help of Australian police**\
 `Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7091448/2026/03/09/best-available-nfl-free-agents-2
 **Trial of Erdogan’s Top Rival Begins in Turkey**\
 `Ekrem Imamoglu, the former mayor of Istanbul who stands accused of corruption, clashed with the judge and criticized the trial as baseless.`\
 https://nytimes.com/2026/03/09/world/middleeast/turkey-trial-imamoglu-erdogan.html
-
-**Here is the latest.**\
-`By Chelsia Rose Marcius and Yan Zhuang`\
-https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc/here-is-the-latest
 
