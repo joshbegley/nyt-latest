@@ -1,3 +1,8 @@
+**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
+`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
+`\
+https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
+
 **How to watch Nicholls vs. Incarnate Word women's basketball: Southland Tournament Time, TV, streaming**\
 `Find out how to watch the Nicholls Colonels play the Incarnate Word Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100956/2026/03/09/nicholls-vs-incarnate-word-stream-how-to-watch-march-9/
