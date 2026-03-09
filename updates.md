@@ -1,3 +1,7 @@
+**Safety Reed Blankenship agrees to three-year deal with Texans**\
+`Blankenship was undrafted and became a four-year starter.`\
+https://nytimes.com/athletic/7102997/2026/03/09/reed-blankenship-texans-nfl-free-agency-2026/
+
 **Lawmakers Pressure Hochul to Raise Taxes in New York**\
 `The State Assembly and Senate are each calling for the state to raise taxes, piggybacking on a push by Mayor Zohran Mamdani of New York City.`\
 https://nytimes.com/2026/03/09/nyregion/tax-the-rich-albany.html
