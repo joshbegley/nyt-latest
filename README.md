@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: Iran Names Khamenei’s Son Supreme Leader**\
+`Top clerics said Mojtaba Khamenei will succeed his slain father, Ayatollah Ali Khamenei. The Israeli military said it was attacking Tehran and Beirut early Monday, and Iran said it had launched missiles toward Israel.`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon
+
+**Surging Oil Prices Tank Stocks in Asia**\
+`Asian markets tumbled on Monday as Middle East tensions and spiking oil prices sparked a mass exit from the region’s previously booming stocks.`\
+https://nytimes.com/2026/03/09/business/stocks-iran-oil.html
+
 **Lewandowski talks longevity: 'I thought because I was skinny I could eat whatever I wanted'**\
 `The 37-year-old is in his 16th season at the elite level and is still as prolific as ever. How does he do it? He explains his secrets...`\
 https://nytimes.com/athletic/7087130/2026/03/09/robert-lewandowski-interview-barcelona-longevity/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6993583/2026/03/09/fabian-hurzeler-brighton-touchli
 **The 10 cleverest corners from this Premier League season so far - Arsenal, Manchester United and plenty of Fulham**\
 `To narrow down the selection from more than 2,500 to 140, only those that resulted in a goal were in contention...`\
 https://nytimes.com/athletic/7082954/2026/03/09/premier-league-corner-analysis-arsenal-man-united/
-
-**Former Liverpool defender Kabak interview: 'I think big things are still ahead of me'**\
-`Ozan Kabak has reflected on his time with Liverpool, his goalscoring form and his future`\
-https://nytimes.com/athletic/7093131/2026/03/09/liverpool-ozan-kabak-interview/
-
-**How Wrexham got close to a famous upset against Chelsea: Dynamism, aggression, and leaving Sanchez**\
-`Chelsea's head coach praised their Championship opponents, and rightly so — this is how Phil Parkinson's side impressed`\
-https://nytimes.com/athletic/7098819/2026/03/09/wrexham-chelsea-fa-cup-sanchez/
-
-**The New York Times in Print for Monday, March 9, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/09/todays-new-york-times
 
