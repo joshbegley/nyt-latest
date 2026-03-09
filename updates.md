@@ -1,3 +1,15 @@
+**FA Cup quarter-final draw: Man City host Liverpool, Chelsea to play Port Vale**\
+`The quarter-final ties will be played over the weekend of April 4-5.`\
+https://nytimes.com/athletic/7101450/2026/03/09/fa-cup-quarter-final-draw-2026/
+
+**The Consumer Backlash to OpenAI**\
+`After a rival A.I. company, Anthropic, lost a contract with the Pentagon over a disagreement on A.I. safety, OpenAI stepped in. This move has angered users, but will public outcry change anything?`\
+https://nytimes.com/video/podcasts/100000010764288/the-consumer-backlash-to-openai.html
+
+**Insider Trading in Prediction Markets**\
+`Platforms like Polymarket and Kalshi that allow users to bet on nearly anything have exploded in popularity, but how to police insider trading when every event becomes fair game for betting?`\
+https://nytimes.com/video/podcasts/100000010764343/insider-trading-in-prediction-markets.html
+
 **Iran’s Choice of New Leader Signals Defiance to Foes**\
 `Supreme Leader Mojtaba Khamenei could prove to be even more radical than his father and predecessor, Ayatollah Ali Khamenei, who was killed by the U.S. and Israel at the start of the war.`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-new-supreme-leader-mojtaba-khamenei.html
