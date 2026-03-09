@@ -1,3 +1,7 @@
+**Australia Urged to Protect Members of the Iranian Women’s Soccer Team**\
+`The athletes, who are set to head home, were called ‘traitors’ by Iran’s state media after they didn’t sing their national anthem during a match in Australia.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-women-soccer-football-team-australia.html
+
 **How to watch Bethune-Cookman vs. Texas Southern women's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Bethune-Cookman Wildcats play the Texas Southern Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100730/2026/03/09/bethune-cookman-vs-texas-southern-stream-how-to-watch-march-9/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/opinion/kristi-noem-trump.html
 **Markwayne Mullin, Once a Political Outsider, Moves All the Way In**\
 `The Oklahoma senator whom President Trump chose to run the Department of Homeland Security has risen in Washington by styling himself as a MAGA warrior and Trump loyalist.`\
 https://nytimes.com/2026/03/09/us/politics/markwayne-mullin-homeland-security-trump.html
-
-**How Did the Naked Dressing Trend Start?**\
-`Barely-there gowns are more popular than ever, but they aren’t necessarily new. Our critic traces the look across time.`\
-https://nytimes.com/2026/03/09/fashion/naked-dressing-red-carpet.html
 
