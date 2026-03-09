@@ -1,3 +1,8 @@
+**The Bounce: Victor Wembanyama should be in the dunk contest**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7101331/2026/03/09/jayson-tatum-return-celtics-stock-report-the-bounce/
+
 **Man City's Rodri avoids ban over referee comments, fined £80k**\
 `The 29-year-old had said that refereeing decisions during City's draw against Tottenham Hotspur in February were "not fair".`\
 https://nytimes.com/athletic/7101302/2026/03/09/rodri-manchester-city-referee-fa-fine/
