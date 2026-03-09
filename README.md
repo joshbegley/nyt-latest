@@ -11,7 +11,7 @@ https://nytimes.com/athletic/7089634/2026/03/09/aston-villa-buendia-bailey/
 https://nytimes.com/athletic/7093388/2026/03/09/newcaste-eddie-howe-barcelona-champions-league/
 
 **Here’s the latest.**\
-`By Farnaz Fassihi`\
+`By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
 
 **Live Updates: Iran Names Khamenei’s Son Supreme Leader**\
