@@ -1,3 +1,7 @@
+**Panthers reach 1-year deal with Kenny Pickett to be backup QB: Source**\
+`Pickett will replace Andy Dalton, who spent three seasons at Carolina as the team's backup quarterback.`\
+https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-agency-2026/
+
 **Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Reports**\
 `Seumalo was a Pro Bowl selection in 2024.`\
 https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-ba
 **Meteorite Crashes Through Roof in Germany After Fiery Light Show**\
 `The fireball from space was spotted by a network of sky-watching cameras in Belgium, France, Luxembourg, the Netherlands and Germany.`\
 https://nytimes.com/2026/03/09/science/meteorite-europe-crash-germany-roof.html
-
-**Trade Your Smartphone for an ’80s-Style Digital Watch**\
-`These retro selections may have some new tricks, but they keep things comparatively simple.`\
-https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
 
