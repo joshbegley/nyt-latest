@@ -1,3 +1,15 @@
+**Democrats Seize on Oil Price Surge, as Trump Downplays It**\
+`The global oil benchmark topped $100 a barrel late Sunday, putting Republicans on the defensive on an issue at the center of this year’s midterm elections.`\
+https://nytimes.com/2026/03/08/world/middleeast/democrats-republicans-trump-oil-prices-midterms.html
+
+**U.S. Carries Out Another Boat Strike, Killing Six**\
+`The attack, in the eastern Pacific, was part of a continuing campaign by the U.S. Southern Command to target people suspected of smuggling drugs, and raised the overall death toll to at least 156.`\
+https://nytimes.com/2026/03/08/us/politics/boat-strike-eastern-pacific-six-killed.html
+
+**Coco Gauff retires injured for only second time in her career against Alex Eala at Indian Wells**\
+`Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
+https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-alex-eala-injury/
+
 **Woman Shoots at Rihanna’s Mansion Near Beverly Hills**\
 `No injuries were reported and a woman about the age of 30 was taken into custody, the Los Angeles Police Department said.`\
 https://nytimes.com/2026/03/08/arts/music/rihanna-house-shooting-beverly-hills.html

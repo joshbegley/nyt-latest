@@ -1,3 +1,7 @@
+**In reversal, Bills trade CB Taron Johnson to Raiders as part of pick swap: Source**\
+`Johnson had been announced as a release Friday after eight seasons in Buffalo. Now he is Las Vegas bound.`\
+https://nytimes.com/athletic/7100301/2026/03/08/bills-raiders-taron-johnson-trade-nfl-free-agency/
+
 **Democrats Seize on Oil Price Surge, as Trump Downplays It**\
 `The global oil benchmark topped $100 a barrel late Sunday, putting Republicans on the defensive on an issue at the center of this year’s midterm elections.`\
 https://nytimes.com/2026/03/08/world/middleeast/democrats-republicans-trump-oil-prices-midterms.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/nyregion/nyc-warm-weather-spring.html
 **Trent McDuffie, Rams agree on four-year, $124 million extension: Sources**\
 `McDuffie's new deal, which will begin in 2027, will make him the highest-paid cornerback in the NFL at an average of $31 million per year.`\
 https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
-
-**Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
-`Expert analysis from NASCAR's fourth race of the season, the Straight Talk Wireless 500 near Phoenix.`\
-https://nytimes.com/athletic/7100103/2026/03/08/ryan-blaney-phoenix-penske-nascar/
 
