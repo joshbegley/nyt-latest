@@ -1,3 +1,15 @@
+**Wasserman’s Name Is Erased From the Company He Founded**\
+`The sports and marketing agency founded by Casey Wasserman dropped his name in the latest fallout from the Epstein files.`\
+https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
+
+**War in Middle East Drives Oil Prices to Highest Level Since Pandemic**\
+`Oil prices surged well above $110 a barrel on Monday, its highest level since the pandemic, reflecting global fears of a prolonged Middle East conflict.`\
+https://nytimes.com/video/world/middleeast/100000010763137/iran-mideast-conflict-oil-prices.html
+
+**49ers, Mike Evans agree to deal, ending 12-year run with Buccaneers**\
+`Evans, a six-time Pro Bowler, set an NFL record with 11 straight 1,000-yard seasons to start his career.`\
+https://nytimes.com/athletic/7087020/2026/03/09/mike-evans-49ers-nfl-free-agency-2026/
+
 **Projecting winners for college basketball conference tourneys: Big Ten, Big 12, ACC and more**\
 `Austin Mock's model projects the second week of conference tournaments, which features all the major conferences.`\
 https://nytimes.com/athletic/7101943/2026/03/09/mens-college-basketball-projections-best-bets-major-conference-tournaments/
@@ -21,20 +33,4 @@ https://nytimes.com/2026/03/09/us/ice-immigration-crackdown-minnesota-ohio.html
 **At a cemetery in Tehran, fresh graves and angry slogans.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/03/09/world/iran-war-israel-trump-oil/at-a-cemetery-in-tehran-fresh-graves-and-angry-slogans
-
-**Raiders agree to free-agent deal with ex-Vikings WR Jalen Nailor: Sources**\
-`The Vikings wanted to keep receiver Nailor, but with the team facing a salary-cap crunch, he was always likely to get more money elsewhere.`\
-https://nytimes.com/athletic/7087363/2026/03/09/jalen-nailor-raiders-nfl-free-agency-2026/
-
-**Titans, QB Mitchell Trubisky agree to two-year deal: Reports**\
-`The 2017 No. 2 pick will play for his fourth team after backing up Josh Allen in Buffalo the last two seasons.`\
-https://nytimes.com/athletic/7093900/2026/03/09/mitchell-tribusky-titans-nfl-free-agency-2026/
-
-**Lions agree to 3-year deal with center Cade Mays: Source**\
-`The Lions have some rebuilding to do on their offensive line and finding a starting center was a priority.`\
-https://nytimes.com/athletic/7101932/2026/03/09/cade-mays-lions-nfl-free-agency-2026/
-
-**WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
-`Robinson, 25, caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
-https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/
 

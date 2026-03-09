@@ -1,3 +1,7 @@
+**Bears agree to deal with free-agent linebacker Devin Bush: Reports**\
+`Bush, a 2019 first-round pick, is coming off a career year in which he had 125 tackles, three interceptions and two sacks. `\
+https://nytimes.com/athletic/7099080/2026/03/09/devin-bush-bears-nfl-free-agency-2026/
+
 **Wasserman’s Name Is Erased From the Company He Founded**\
 `The sports and marketing agency founded by Casey Wasserman dropped his name in the latest fallout from the Epstein files.`\
 https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/podcasts/100000010763452/why-toccara-made-such-an-impa
 **With Lots of Rumors and Little Information, Other Cities Prepare for ICE**\
 `After the sprawling and chaotic federal immigration crackdown in Minnesota, jurisdictions in other states have been bracing for a range of scenarios.`\
 https://nytimes.com/2026/03/09/us/ice-immigration-crackdown-minnesota-ohio.html
-
-**At a cemetery in Tehran, fresh graves and angry slogans.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/03/09/world/iran-war-israel-trump-oil/at-a-cemetery-in-tehran-fresh-graves-and-angry-slogans
 
