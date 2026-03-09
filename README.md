@@ -1,3 +1,11 @@
+**The Consumer Backlash to OpenAI**\
+`After a rival A.I. company, Anthropic, lost a contract with the Pentagon over a disagreement on A.I. safety, OpenAI stepped in. This move has angered users, but will public outcry change anything?`\
+https://nytimes.com/video/podcasts/100000010764288/the-consumer-backlash-to-openai.html
+
+**Insider Trading in Prediction Markets**\
+`Platforms like Polymarket and Kalshi that allow users to bet on nearly anything have exploded in popularity, but how to police insider trading when every event becomes fair game for betting?`\
+https://nytimes.com/video/podcasts/100000010764343/insider-trading-in-prediction-markets.html
+
 **Iran’s Choice of New Leader Signals Defiance to Foes**\
 `Supreme Leader Mojtaba Khamenei could prove to be even more radical than his father and predecessor, Ayatollah Ali Khamenei, who was killed by the U.S. and Israel at the start of the war.`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-new-supreme-leader-mojtaba-khamenei.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
 **War in Middle East Drives Oil Prices to Highest Level Since Pandemic**\
 `Oil prices surged well above $110 a barrel on Monday, its highest level since the pandemic, reflecting global fears of a prolonged Middle East conflict.`\
 https://nytimes.com/video/world/middleeast/iran-mideast-conflict-oil-prices.html
-
-**49ers, Mike Evans agree to deal, ending 12-year run with Buccaneers**\
-`Evans, a six-time Pro Bowler, set an NFL record with 11 straight 1,000-yard seasons to start his career.`\
-https://nytimes.com/athletic/7087020/2026/03/09/mike-evans-49ers-nfl-free-agency-2026/
 
