@@ -1,3 +1,7 @@
+**Coby Bryant agrees to free-agent deal with Bears: Sources**\
+`Bryant, a reliable starter for the Super Bowl champion Seahawks, should be a versatile player in Dennis Allen's defense.`\
+https://nytimes.com/athletic/7101940/2026/03/09/coby-bryant-bears-nfl-free-agency-2026/
+
 **F.B.I. Subpoenas Records in Arizona in Expansion of 2020 Voting Inquiry**\
 `The subpoena was issued in recent days to the Arizona State Senate, which oversaw a sprawling but controversial audit of the vote result in Maricopa County.`\
 https://nytimes.com/2026/03/09/nyregion/fbi-subpoena-arizona-maricopa-county-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-a
 **‘Let’s Go for a Walk’: Three Dance Artists Strip Down Movement**\
 `At the Dance Reflections festival, Nacera Belaza, Anne Teresa De Keersmaeker and Noé Soulier all attempted some form of going back to basics. Results varied.`\
 https://nytimes.com/2026/03/09/arts/dance/nacera-belaza-noe-soulier-anne-teresa-de-keersmaeker-dance-reflections.html
-
-**As Kari Lake Sought to Shutter Voice of America, Parent Agency Rebuffed Auditors**\
-`A new report says the lack of information provided for a required annual examination was so “pervasive” that auditors declined to opine on the agency’s financial numbers.`\
-https://nytimes.com/2026/03/09/us/politics/voice-of-america-audit.html
 

@@ -1,3 +1,11 @@
+**Cardinals agree to free-agent deal with former Falcons RB Tyler Allgeier**\
+`Tyler Allgeier, who ran for 2,876 yards and 18 touchdowns in four seasons with the Falcons, has signed a free-agent deal with the Cardinals.`\
+https://nytimes.com/athletic/7084005/2026/03/09/tyler-allgeier-cardinals-nfl-free-agency-2026/
+
+**Raiders, center Tyler Linderbaum agree to three-year deal worth $81 million: Sources**\
+`Linderbaum was the top offensive lineman available and a three-time Pro Bowl center. `\
+https://nytimes.com/athletic/7084554/2026/03/09/tyler-linderbaum-raiders-nfl-free-agency-2026/
+
 **Coby Bryant agrees to free-agent deal with Bears: Sources**\
 `Bryant, a reliable starter for the Super Bowl champion Seahawks, should be a versatile player in Dennis Allen's defense.`\
 https://nytimes.com/athletic/7101940/2026/03/09/coby-bryant-bears-nfl-free-agency-2026/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.h
 **AP men's hoops Top 25: Duke holds at No. 1; Illinois, Virginia enter top 10**\
 `Duke, Michigan, Arizona and Florida are the top four teams in the AP poll — and the likely NCAA Tournament No. 1 seeds.`\
 https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-arizona-virginia/
-
-**‘Let’s Go for a Walk’: Three Dance Artists Strip Down Movement**\
-`At the Dance Reflections festival, Nacera Belaza, Anne Teresa De Keersmaeker and Noé Soulier all attempted some form of going back to basics. Results varied.`\
-https://nytimes.com/2026/03/09/arts/dance/nacera-belaza-noe-soulier-anne-teresa-de-keersmaeker-dance-reflections.html
 

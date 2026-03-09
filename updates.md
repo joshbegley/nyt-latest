@@ -1,3 +1,7 @@
+**Coby Bryant agrees to free-agent deal with Bears: Sources**\
+`Bryant, a reliable starter for the Super Bowl champion Seahawks, should be a versatile player in Dennis Allen's defense.`\
+https://nytimes.com/athletic/7101940/2026/03/09/coby-bryant-bears-nfl-free-agency-2026/
+
 **F.B.I. Subpoenas Records in Arizona in Expansion of 2020 Voting Inquiry**\
 `The subpoena was issued in recent days to the Arizona State Senate, which oversaw a sprawling but controversial audit of the vote result in Maricopa County.`\
 https://nytimes.com/2026/03/09/nyregion/fbi-subpoena-arizona-maricopa-county-election.html
