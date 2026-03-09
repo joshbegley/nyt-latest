@@ -1,3 +1,7 @@
+**Lightning, Sabres put up their dukes in Atlantic Division showdown**\
+`Through two periods, Tampa Bay and Buffalo combined for 98 penalty minutes Sunday.`\
+https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
+
 **Trent McDuffie, Rams agree on four-year, $124 million extension: Sources**\
 `McDuffie's new deal, which will begin in 2027, will make him the highest-paid cornerback in the NFL at an average of $31 million per year.`\
 https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
