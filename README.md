@@ -1,3 +1,7 @@
+**The Far-Right Influencer Jake Lang has a History of Attracting Violence**\
+`Mr. Lang, whose protest at Gracie Mansion on Saturday led to a bomb being thrown outside of Mayor Zohran Mamdani’s new home, previously drew counterprotesters to a demonstration in Minneapolis.`\
+https://nytimes.com/2026/03/09/nyregion/jake-lang-protest-manhattan-minnesota.html
+
 **USMNT Tracker: Balogun, Pepi and Wright all score as competition for places hots up**\
 `Three striking options for Mauricio Pochettino are in fine form ahead of the World Cup, and Christian Pulisic is approaching his best again`\
 https://nytimes.com/athletic/7101226/2026/03/09/balogun-pepi-wright-usmnt-no-9/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101463/2026/03/09/sabres-lightning-nhl-score-highl
 **An Amish Avatar and an A.I. Monk Are Pitching Supplements on Social Media**\
 `Influencers have long hawked supplements on platforms like Instagram and TikTok. Increasingly, the influencers are fake.`\
 https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-media-supplements.html
-
-**Amazon Veteran to Lead Simon & Schuster**\
-`Greg Greeley, who once ran Amazon’s books and media business, will succeed Jonathan Karp as chief executive at one of the largest book publishers in the U.S.`\
-https://nytimes.com/2026/03/09/books/simon-schuster-greg-greeley.html
 

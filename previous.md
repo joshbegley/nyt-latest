@@ -1,3 +1,15 @@
+**USMNT Tracker: Balogun, Pepi and Wright all score as competition for places hots up**\
+`Three striking options for Mauricio Pochettino are in fine form ahead of the World Cup, and Christian Pulisic is approaching his best again`\
+https://nytimes.com/athletic/7101226/2026/03/09/balogun-pepi-wright-usmnt-no-9/
+
+**Got Mavericks questions? Submit to Christian Clark for the latest mailbag**\
+`The Dallas Mavericks are in free fall.`\
+https://nytimes.com/athletic/7100461/2026/03/09/mavericks-mailbag-regular-season-nba/
+
+**Colman McCarthy, Journalist Who Waged Peace in the Classroom, Dies at 87**\
+`For decades, he wrote a syndicated column in The Washington Post promoting nonviolence. That became the subject of a course he taught for nearly 40 years.`\
+https://nytimes.com/2026/03/09/business/media/colman-mccarthy-dead.html
+
 **Ohio State University President Resigns Over ‘Inappropriate Relationship’**\
 `The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
 https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-
 **Amazon Veteran to Lead Simon & Schuster**\
 `Greg Greeley, who once ran Amazon’s books and media business, will succeed Jonathan Karp as chief executive at one of the largest book publishers in the U.S.`\
 https://nytimes.com/2026/03/09/books/simon-schuster-greg-greeley.html
-
-**Wide receiver Alec Pierce returning to Colts: 'I knew where my heart was'**\
-`Pierce led the NFL in yards per reception the last two seasons and routinely makes contested catches downfield.`\
-https://nytimes.com/athletic/7083700/2026/03/09/alec-pierce-nfl-free-agency-2026/
-
-**How The Times Reports on the War in Iran and Beyond**\
-`Staying safe and corroborating facts are among the challenges for journalists working under intense pressure around the clock and the world.`\
-https://nytimes.com/2026/03/09/insider/07iran-israel-united-states-war.html
-
-**Rutgers to hire LSU assistant Gary Redus II as head coach**\
-`Redus is known for his strong recruiting at LSU.`\
-https://nytimes.com/athletic/7101566/2026/03/09/rutgers-lsu-hire-gary-redus/
 

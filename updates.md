@@ -1,3 +1,15 @@
+**USMNT Tracker: Balogun, Pepi and Wright all score as competition for places hots up**\
+`Three striking options for Mauricio Pochettino are in fine form ahead of the World Cup, and Christian Pulisic is approaching his best again`\
+https://nytimes.com/athletic/7101226/2026/03/09/balogun-pepi-wright-usmnt-no-9/
+
+**Got Mavericks questions? Submit to Christian Clark for the latest mailbag**\
+`The Dallas Mavericks are in free fall.`\
+https://nytimes.com/athletic/7100461/2026/03/09/mavericks-mailbag-regular-season-nba/
+
+**Colman McCarthy, Journalist Who Waged Peace in the Classroom, Dies at 87**\
+`For decades, he wrote a syndicated column in The Washington Post promoting nonviolence. That became the subject of a course he taught for nearly 40 years.`\
+https://nytimes.com/2026/03/09/business/media/colman-mccarthy-dead.html
+
 **Ohio State University President Resigns Over ‘Inappropriate Relationship’**\
 `The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
 https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
