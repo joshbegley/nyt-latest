@@ -1,3 +1,7 @@
+**British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
+`Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/british-lawmaker-wants-king-charles-to-cancel-his-us-trip-over-iran-war
+
 **Five Iran Women soccer players defect with help of Australian police**\
 `Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
 https://nytimes.com/athletic/7100902/2026/03/09/iran-soccer-defect-australia-asian-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/world/middleeast/turkey-trial-imamoglu-erdogan.ht
 **Here is the latest.**\
 `By Chelsia Rose Marcius and Yan Zhuang`\
 https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc/here-is-the-latest
-
-**Live Updates: N.Y. Police Commissioner Says Gracie Mansion Incident Inspired by Islamic State**\
-`Police Commissioner Jessica Tisch said that three improvised explosive devices were found, including one that was found in a vehicle on Sunday. No one was injured in the incident on Saturday.`\
-https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc
 

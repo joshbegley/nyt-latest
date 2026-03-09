@@ -1,3 +1,11 @@
+**Five Iran Women soccer players defect with help of Australian police**\
+`Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
+https://nytimes.com/athletic/7100902/2026/03/09/iran-soccer-defect-australia-asian-cup/
+
+**Live Updates: N.Y. Police Commissioner Says Gracie Mansion Incident Inspired by Islamic State**\
+`Police Commissioner Jessica Tisch said that three improvised explosive devices were found, including one that was found in a vehicle on Sunday. No one was injured in the incident on Saturday.`\
+https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc
+
 **What we’re seeing in the WBC: An Armani jacket and a case of double vision**\
 `Logan Allen faced off against.....Logan Allen? Plus more dispatches from each pool site at the World Baseball Classic.`\
 https://nytimes.com/athletic/7100780/2026/03/09/wbc-armani-jacket-double-vision/
