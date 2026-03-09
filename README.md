@@ -1,3 +1,7 @@
+**Homes Searched in Pennsylvania After Bomb Near N.Y.C. Mayor’s House**\
+`Federal authorities conducted searches a day after a homemade bomb was thrown outside Gracie Mansion, Mayor Zohran Mamdani’s official residence.`\
+https://nytimes.com/2026/03/09/nyregion/gracie-mansion-bomb-mamdani-pennsylvania.html
+
 **The War’s Effect on the Supermarket**\
 `We examine the Middle East’s role in food production.`\
 https://nytimes.com/2026/03/09/briefing/the-wars-effect-on-the-supermarket.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100377/2026/03/09/womens-college-basketball-power-
 **The NHL trade deadline may not have delivered, but it sets up a potentially explosive summer**\
 `Anyone with term who didn't move Friday will be looking to the future, as will McDavid, Matthews, Kucherov, Brady Tkachuk, Robertson, more.`\
 https://nytimes.com/athletic/7099395/2026/03/09/nhl-trades-josi-mcdavid-tkachuk-matthews/
-
-**Payton Tolle impressing, Kristian Campbell's camp, trade talks and more: Red Sox mailbag**\
-`Can the Red Sox contend without a true power bat? Improved pitching and a stronger infield defense may just keep them competitive.`\
-https://nytimes.com/athletic/7099613/2026/03/09/red-sox-mailbag-payton-tolle-kristian-campbell-mlb/
 
