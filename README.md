@@ -1,3 +1,7 @@
+**Let's appreciate SGA as he nears Wilt's consecutive 20-point game record**\
+`Plus, Kon Knueppel is breaking precedent with his Rookie of the Year case, and the Warriors' Kristaps Porziņģis conundrum.`\
+https://nytimes.com/athletic/7100624/2026/03/09/shai-gilgeous-alexander-record-wilt-kon-knueppel/
+
 **Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
 `From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
 https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7100517/2026/03/09/jordan-poole-washington-wizards-
 `A spike in oil prices has roiled stocks and bonds again and threatens to accelerate inflation — adding pressure on the White House.`\
 https://nytimes.com/2026/03/09/business/dealbook/markets-trump-iran.html
 
-**Dolphins to release QB Tua Tagovailoa, eat record $99.2M in dead money: Source**\
+**Dolphins to release QB Tua Tagovailoa, eat record $99.2M in dead money**\
 `The Dolphins previously made Tagovailoa one of the highest-paid quarterbacks in NFL history, but his run in Miami is now over.`\
 https://nytimes.com/athletic/7057582/2026/03/09/tua-tagovailoa-released-contract-miami-dolphins-cap-space/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100972/2026/03/09/cleveland-state-vs-youngstown-st
 **Champions League round of 16 analysed: Madrid-City (again), Club World Cup final rematch**\
 `A mouthwatering set of last-16 ties await. Our writers tell you what to expect`\
 https://nytimes.com/athletic/7100738/2026/03/09/champions-league-round-of-16-analysed/
-
-**How to watch Alcorn State vs. Alabama State men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Alcorn State Braves play the Alabama State Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7100965/2026/03/09/alcorn-state-vs-alabama-state-stream-how-to-watch-march-9/
 

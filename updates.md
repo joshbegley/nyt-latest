@@ -1,3 +1,7 @@
+**Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
+`From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
+https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/
+
 **Jordan Poole left a legacy with the Wizards. Just ask his former teammates.**\
 `To many players on Washington's roster, Poole, now with the New Orleans Pelicans meant a lot as a mentor and as a friend.`\
 https://nytimes.com/athletic/7100517/2026/03/09/jordan-poole-washington-wizards-legacy-pelicans/

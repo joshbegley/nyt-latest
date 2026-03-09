@@ -1,3 +1,7 @@
+**Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
+`From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
+https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/
+
 **Jordan Poole left a legacy with the Wizards. Just ask his former teammates.**\
 `To many players on Washington's roster, Poole, now with the New Orleans Pelicans meant a lot as a mentor and as a friend.`\
 https://nytimes.com/athletic/7100517/2026/03/09/jordan-poole-washington-wizards-legacy-pelicans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100738/2026/03/09/champions-league-round-of-16-ana
 **How to watch Alcorn State vs. Alabama State men's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Alcorn State Braves play the Alabama State Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100965/2026/03/09/alcorn-state-vs-alabama-state-stream-how-to-watch-march-9/
-
-**How to watch Nicholls vs. Incarnate Word women's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the Nicholls Colonels play the Incarnate Word Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7100956/2026/03/09/nicholls-vs-incarnate-word-stream-how-to-watch-march-9/
 
