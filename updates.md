@@ -1,3 +1,7 @@
+**The Pulse: A showdown, tonight**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7100019/2026/03/09/usa-mexico-wbc-the-pulse/
+
 **Red Wings pass first test without Larkin, Faulk debuts: 5 thoughts**\
 `In their first full game without their captain, the Red Wings put up a strong all-around showing to pick up a 3-0 win in New Jersey.`\
 https://nytimes.com/athletic/7100330/2026/03/09/red-wings-shutout-seider-faulk-debut-shine-devils/
