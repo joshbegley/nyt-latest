@@ -1,3 +1,11 @@
+**NBA cancels Hawks' planned 'Magic City' promotion**\
+`The team originally announced plans to honor Magic City last month.`\
+https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-night-promotion/
+
+**Australia Grants Humanitarian Visas to 5 Members of Iranian Women’s Soccer Team**\
+`Concern for the safety of the players, in Australia for a tournament, had grown after Iranian state media criticized them for not singing the national anthem at a match.`\
+https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
+
 **Broncos, LB Alex Singleton agree to new two-year, $15.5 million deal: Source**\
 `Denver locks down one of its key defensive cogs, avoids losing a top tackler in free agency.`\
 https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/

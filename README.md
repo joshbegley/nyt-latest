@@ -1,3 +1,11 @@
+**Two Men Face Terrorism Charges in Bomb Attack at Gracie Mansion**\
+`Federal prosecutors charged two men with attempting to support the Islamic State after they attempted to set off homemade explosives at Gracie Mansion on Saturday. The bombs did not detonate and no one was injured.`\
+https://nytimes.com/video/nyregion/100000010763567/bomb-attack-mamdani-gracie-mansion-terrorism.html
+
+**Travis Kelce, Chiefs working to finalize 1-year deal worth up to $15 million: Sources**\
+`Kelce finished fourth among all NFL tight ends with 851 receiving yards in 2025, showing renewed burst after extra conditioning work.`\
+https://nytimes.com/athletic/6951456/2026/03/09/chiefs-travis-kelce-returning-2026/
+
 **NBA cancels Hawks' planned 'Magic City' promotion**\
 `The team originally announced plans to honor Magic City last month.`\
 https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-night-promotion/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-nig
 https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/
 
 **Australia Grants Humanitarian Visas to 5 Members of Iranian Women’s Soccer Team**\
-`Concern for the safety of the players, in Australia for a tournament, had grown after Iranian state media criticized them for not singing the national anthem at a match.`\
+`Concern for the safety of the players had grown after Iranian state media criticized them for not singing the national anthem at a match in Australia.`\
 https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
 
 **Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102543/2026/03/09/ncaa-college-basketball-gambling
 **Panama's Jonathan Araúz has altercation with manager José Mayorga during WBC loss**\
 `Araúz yelled at his manager as he came off the field following a ninth-inning at-bat and had to be physically restrained.`\
 https://nytimes.com/athletic/7102530/2026/03/09/panama-jonathan-arauz-jose-mayorga-altercation-wbc/
-
-**Tarik Skubal will return to Tigers camp after Team USA's game with Mexico**\
-`The reigning AL Cy Young winner will stick to his original plan of only making one start for Team USA during the World Baseball Classic.`\
-https://nytimes.com/athletic/7102262/2026/03/09/tarik-skubal-world-baseball-classic-detroit-tigers-usa/
-
-**Michael Pittman Jr. trade grades: Steelers take advantage of Colts salary dump**\
-`Pittsburgh was able to add a starting receiver after Indianapolis invested heavily in Alec Pierce.`\
-https://nytimes.com/athletic/7102633/2026/03/09/michael-pittman-jr-steelers-colts-trade-grades/
 
