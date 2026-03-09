@@ -1,3 +1,11 @@
+**Let's appreciate SGA as he nears Wilt's consecutive 20-point game record**\
+`Plus, Kon Knueppel is breaking precedent with his Rookie of the Year case, and the Warriors' Kristaps Porziņģis conundrum.`\
+https://nytimes.com/athletic/7100624/2026/03/09/shai-gilgeous-alexander-record-wilt-kon-knueppel/
+
+**Dolphins to release QB Tua Tagovailoa, eat record $99.2M in dead money**\
+`The Dolphins previously made Tagovailoa one of the highest-paid quarterbacks in NFL history, but his run in Miami is now over.`\
+https://nytimes.com/athletic/7057582/2026/03/09/tua-tagovailoa-released-contract-miami-dolphins-cap-space/
+
 **Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
 `From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
 https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/

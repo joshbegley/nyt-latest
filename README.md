@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7100976/2026/03/09/jmu-vs-troy-stream-how-to-watch-
 https://nytimes.com/athletic/7100972/2026/03/09/cleveland-state-vs-youngstown-state-stream-how-to-watch-march-9/
 
 **Champions League round of 16 analysed: Madrid-City (again), Club World Cup final rematch**\
-`A mouthwatering set of last-16 ties await. Our writers tell you what to expect`\
+`A brilliant set of last-16 ties await. Our writers tell you what to expect`\
 https://nytimes.com/athletic/7100738/2026/03/09/champions-league-round-of-16-analysed/
 
