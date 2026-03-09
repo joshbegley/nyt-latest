@@ -1,8 +1,12 @@
+**NBA cancels Hawks' planned 'Magic City' promotion**\
+`The team originally announced plans to honor Magic City last month.`\
+https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-night-promotion/
+
 **Broncos, LB Alex Singleton agree to new two-year, $15.5 million deal: Source**\
 `Denver locks down one of its key defensive cogs, avoids losing a top tackler in free agency.`\
 https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/
 
-**Australia Grants Refugee Status to 5 Members of Iranian Women’s Soccer Team**\
+**Australia Grants Humanitarian Visas to 5 Members of Iranian Women’s Soccer Team**\
 `Concern for the safety of the players, in Australia for a tournament, had grown after Iranian state media criticized them for not singing the national anthem at a match.`\
 https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102262/2026/03/09/tarik-skubal-world-baseball-clas
 **Michael Pittman Jr. trade grades: Steelers take advantage of Colts salary dump**\
 `Pittsburgh was able to add a starting receiver after Indianapolis invested heavily in Alec Pierce.`\
 https://nytimes.com/athletic/7102633/2026/03/09/michael-pittman-jr-steelers-colts-trade-grades/
-
-**Ukraine Lends a Hand**\
-`Countries targeted by Iranian drones are eager to tap into Ukrainian expertise to shoot them down.`\
-https://nytimes.com/2026/03/09/world/ukraine-iran-drones-war-oil-khamenei.html
 

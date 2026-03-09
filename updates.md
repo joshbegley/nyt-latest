@@ -1,3 +1,19 @@
+**Broncos, LB Alex Singleton agree to new two-year, $15.5 million deal: Source**\
+`Denver locks down one of its key defensive cogs, avoids losing a top tackler in free agency.`\
+https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/
+
+**Australia Grants Refugee Status to 5 Members of Iranian Women’s Soccer Team**\
+`Concern for the safety of the players, in Australia for a tournament, had grown after Iranian state media criticized them for not singing the national anthem at a match.`\
+https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
+
+**Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
+`Spinning all the NFL offseason player movement of consequence for fantasy football 2026, including Kenneth Walker, Travis Etienne and more.`\
+https://nytimes.com/athletic/7101829/2026/03/09/fantasy-football-2026-offseason-moves/
+
+**What we're seeing at the WBC: A surprise retirement; a living legend celebrates Team DR win**\
+`Ten teams have been eliminated from contention so far, while Japan, Korea, DR and Venezuela have all booked their spot in the QF.`\
+https://nytimes.com/athletic/7102592/2026/03/09/wbc-juan-marichal-teheran-espino/
+
 **Giants are re-signing free-agent OT Jermaine Eluemunor to 3-year deal: Sources**\
 `Eluemunor topped 1,000 offensive snaps for the first time in his career in 2025.`\
 https://nytimes.com/athletic/7094820/2026/03/09/jermaine-eluemunor-giants-nfl-free-agency-2026/
