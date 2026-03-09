@@ -1,3 +1,19 @@
+**A Big Night Light in the Sky? Start-Up Wants to Launch a Space Mirror.**\
+`The company is seeking F.C.C. approval to test an idea to reflect sunlight to Earth at night, possibly powering solar panels. Critics say it could be bad for people and wildlife.`\
+https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
+
+**Explosion Damages Synagogue in Belgium**\
+`Officials described the blast, which caused no injuries, as an antisemitic act, but the exact circumstances were still under investigation.`\
+https://nytimes.com/2026/03/09/world/europe/explosion-synagogue-belgium.html
+
+**The Athletic college baseball Top 25: USC's hot start continues; LSU, Florida tumble**\
+`USC, one of two undefeated teams, jumped from No. 24 to No. 17 after sweeping Illinois to open Big Ten play.`\
+https://nytimes.com/athletic/7100820/2026/03/09/college-baseball-ranking-usc-lsu-florida/
+
+**Francis Ngannou added to MVP's Rousey-Carano card in May**\
+`Having never relinquished his belt in competition, Ngannou is widely recognized as the lineal heavyweight champion of mixed martial arts.`\
+https://nytimes.com/athletic/7101105/2026/03/09/francis-ngannou-mma-return-rousey-mvp/
+
 **Can You Identify These Lengthy Novels From Their Descriptions?**\
 `Try this short quiz on very long books.`\
 https://nytimes.com/interactive/2026/03/09/books/review/giant-novels-quiz.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7101075/2026/03/09/alvaro-carreras-real-madrid-inju
 **Dozens Wounded in Bahrain as Arab States Condemn Iranian Strikes**\
 `Key U.S. allies in the Persian Gulf have stepped up their criticism of Iran after facing a barrage of missiles and drone attacks over the past week.`\
 https://nytimes.com/2026/03/09/world/middleeast/bahrain-iran-strikes.html
-
-**NFL free agency grades 2026: The good, bad and ugly of key deals**\
-`As players agree to free-agent deals, we'll be grading all of the signings from The Athletic's list of the top 150 players available. `\
-https://nytimes.com/athletic/7093735/2026/03/09/nfl-free-agency-grades-2026/
-
-**Packers agree to trade DE Rashan Gary to Cowboys for 2027 Day 3 pick: Sources**\
-`Gary, 28, was a 2019 first-round pick and the Packers’ longest-tenured player.`\
-https://nytimes.com/athletic/7101149/2026/03/09/cowboys-rashan-gary-trade-draft-pick/
-
-**'It's turned into MMA!': how a Brazil final descended into anarchy — and 23 red cards**\
-`There were kicks, stamps and punches thrown in a violent brawl involving Hulk, Brazil internationals and a former West Brom player`\
-https://nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruzeiro-atletico-mineiro/
-
-**British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
-`Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
-https://nytimes.com/2026/03/09/world/europe/king-charles-iran-war-uk-us-trump.html
 
