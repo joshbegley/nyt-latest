@@ -1,3 +1,7 @@
+**Quote of the Day: Met Opera’s Fervent Hunt for Funding**\
+`Quotation of the Day for Monday, March 9, 2026.`\
+https://nytimes.com/2026/03/08/pageoneplus/quote-of-the-day-met-operas-fervent-hunt-for-funding.html
+
 **Swept by its rival, Michigan State knows its season is riding on Jeremy Fears**\
 `The Spartans are going to go as far as Jeremy Fears can take them, and Tom Izzo seems to know it.`\
 https://nytimes.com/athletic/7099976/2026/03/08/michigan-msu-basketball-score-highlights/

@@ -1,40 +1,40 @@
-**Quote of the Day: Met Opera’s Fervent Hunt for Funding**\
-`Quotation of the Day for Monday, March 9, 2026.`\
-https://nytimes.com/2026/03/08/pageoneplus/quote-of-the-day-met-operas-fervent-hunt-for-funding.html
+**What makes Tetairoa McMillan reliable on fourth down? Watch him analyze film**\
+`Tetairoa McMillan was one of the most-targeted wide receivers on third and fourth down as a rookie. But that trust doesn't happen overnight.`\
+https://nytimes.com/athletic/7090777/2026/03/09/tetairoa-mcmillan-panthers/
 
-**Large Fire in Glasgow Forces Closure of Major Train Station**\
-`The blaze that started near Scotland’s busiest station was under control, but officials said they expected train service to be disrupted through Monday.`\
-https://nytimes.com/2026/03/08/world/europe/glasgow-central-train-station-fire.html
+**On the Road With Zelensky, Weathered, Weary and Fighting On**\
+`Ukraine’s leader, Volodymyr Zelensky, traveled east to visit frontline troops trying to stave off Russian attacks, and invited reporters for The New York Times to go with him.`\
+https://nytimes.com/2026/03/09/world/europe/ukraine-zelensky-frontline-tour.html
 
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
-https://nytimes.com/athletic/7097219/2026/03/08/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+**D'Andre Swift only needs 'a little space' to make magic: Watch him analyze film**\
+`What's so special about it D'Andre Swift in Ben Johnson's offense? He reviewed some of his own film to break it down.`\
+https://nytimes.com/athletic/7087926/2026/03/09/dandre-swift-bears/
 
-**Swept by its rival, Michigan State knows its season is riding on Jeremy Fears**\
-`The Spartans are going to go as far as Jeremy Fears can take them, and Tom Izzo seems to know it.`\
-https://nytimes.com/athletic/7099976/2026/03/08/michigan-msu-basketball-score-highlights/
+**Ukraine Sent Drone Experts to Protect U.S. Bases in Jordan, Zelensky Says**\
+`As the war in Iran spreads, Kyiv is eagerly offering its hard-won expertise and advanced technology to counter Iranian drones.`\
+https://nytimes.com/2026/03/09/world/middleeast/ukraine-shahed-drone-middle-east.html
 
-**In reversal, Bills trade CB Taron Johnson to Raiders as part of pick swap: Source**\
-`Johnson had been announced as a release Friday after eight seasons in Buffalo. Now he is Las Vegas bound.`\
-https://nytimes.com/athletic/7100301/2026/03/08/bills-raiders-taron-johnson-trade-nfl-free-agency/
+**Watch Alex Highsmith break down one of his signature moves on film**\
+`To Alex Highsmith, there are two main steps that he relies on when he hits the field. Fortunately for us, spilled all the details.`\
+https://nytimes.com/athletic/7090942/2026/03/09/alex-highsmith-steelers/
 
-**Democrats Seize on Oil Price Surge, as Trump Downplays It**\
-`The global oil benchmark topped $100 a barrel late Sunday, putting Republicans on the defensive on an issue at the center of this year’s midterm elections.`\
-https://nytimes.com/2026/03/08/world/middleeast/democrats-republicans-trump-oil-prices-midterms.html
+**How Fred Warner confuses QBs pre-snap: Watch him break down film**\
+`Ever wonder what makes Fred Warner such a tenacious player? He peeled back the curtain and talked us through it.`\
+https://nytimes.com/athletic/7084391/2026/03/09/how-fred-warner-confuses-quarterbacks-pre-snap/
 
-**U.S. Carries Out Another Boat Strike, Killing Six**\
-`The attack, in the eastern Pacific, was part of a continuing campaign by the U.S. Southern Command to target people suspected of smuggling drugs, and raised the overall death toll to at least 156.`\
-https://nytimes.com/2026/03/08/us/politics/boat-strike-eastern-pacific-six-killed.html
+**Is the Trial of Erdogan’s Top Rival More About Corruption or Politics?**\
+`Prosecutors accuse the former Istanbul mayor Ekrem Imamoglu of leading a criminal scheme. His supporters say Turkey’s president is trying to eliminate a political foe.`\
+https://nytimes.com/2026/03/09/world/middleeast/turkey-erdogan-mayor-ekrem-imamoglu.html
 
-**Woman Shoots at Rihanna’s Mansion Near Beverly Hills**\
-`No injuries were reported and a woman about the age of 30 was taken into custody, the Los Angeles Police Department said.`\
-https://nytimes.com/2026/03/08/arts/music/rihanna-house-shooting-beverly-hills.html
+**Garett Bolles: 'I am the best LT in football.' Watch him prove why using film**\
+`So, what does it take to be the best left tackle in football? Garett Bolles broke down his own film to spell out four critical steps.`\
+https://nytimes.com/athletic/7087553/2026/03/09/garett-bolles-broncos/
 
-**Coco Gauff felt like arm 'was on fire' before retiring injured against Alex Eala at Indian Wells**\
-`Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
-https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-alex-eala-injury/
+**The Suburb That Won’t Sleep**\
+`Food is bringing thousands of people together to an unexpected place: a plaza west of Toronto. Some fear it’s tearing a neighborhood apart.`\
+https://nytimes.com/2026/03/09/world/canada/mississauga-toronto-ridgeway-immigration.html
 
-**Michael Jordan's first Sports Illustrated cover sells for record $229,360**\
-`Here is why your 1983 Sports Illustrated copy of Jordan's first appearance on the magazine's cover is probably not worth as much.`\
-https://nytimes.com/athletic/7099964/2026/03/08/michael-jordan-sports-illustrated-record-sale/
+**What Brock Purdy learns from pre-snap motion: Watch him analyze film**\
+`Like most quarterbacks, Brock Purdy's brain is moving a mile a minute at the line of scrimmage. But what is he most focused on?`\
+https://nytimes.com/athletic/7087214/2026/03/09/brock-purdy-george-kittle/
 
