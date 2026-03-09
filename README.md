@@ -1,3 +1,11 @@
+**Andrew Kurka is going for Paralympic gold. After, his Alaska bed and breakfast awaits**\
+`The para Alpine skier is back for one more medal shot. His true calling is back home in the wilderness of Alaska.`\
+https://nytimes.com/athletic/7099582/2026/03/09/andrew-kurka-paralympics-alaska-alpine-skiing-bed-and-breakfast/
+
+**The art of the perfect shot in wheelchair curling, where there's no 'cheating' (sweeping)**\
+`Paralympic curlers don't get the benefit of sweeping to make their shots perfect. Here's how they lock in on a "far more skillful" endeavor.`\
+https://nytimes.com/athletic/7099622/2026/03/09/paralympics-wheelchair-curling-shot-sweeping/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/09/crosswords/spelling-bee-forum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/business/stocks-iran-oil.html
 **Lewandowski talks longevity: 'I thought because I was skinny I could eat whatever I wanted'**\
 `The 37-year-old is in his 16th season at the elite level and is still as prolific as ever. How does he do it? He explains his secrets...`\
 https://nytimes.com/athletic/7087130/2026/03/09/robert-lewandowski-interview-barcelona-longevity/
-
-**Can footballers ever be too muscly?**\
-`Adama Traore being told to stay away from the gym has sparked the debate over how much muscle a player should have`\
-https://nytimes.com/athletic/7089549/2026/03/09/footballer-muscle-adama-traore/
-
-**Edu arrival was Forest's most calamitous recent decision - it’s hard to see how it could have gone worse**\
-`The Brazilian was supposed to take Forest forward but they have gone rapidly backwards, and it could still get worse...`\
-https://nytimes.com/athletic/7098712/2026/03/09/edu-appointment-forest-exit/
 
