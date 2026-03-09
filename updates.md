@@ -1,3 +1,7 @@
+**U.S. Gasoline Prices, Rising Again, Are Now Up 17% Since Conflict Started**\
+`Interruptions in oil supplies in the Middle East, source of much of the world’s energy, are trickling down to what American drivers pay when they fill up.`\
+https://nytimes.com/2026/03/09/business/gasoline-prices-iran.html
+
 **The Former Coal Miner in the Middle of the A.I. Data Center Boom**\
 `Josh Payne, the chief executive of Nscale, raised $2 billion from investors. Sheryl Sandberg, the former Facebook executive, is joining his board.`\
 https://nytimes.com/2026/03/09/business/nscale-ai-data-center-boom.html
