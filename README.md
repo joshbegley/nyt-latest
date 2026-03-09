@@ -1,3 +1,7 @@
+**Quote of the Day: Met Opera’s Fervent Hunt for Funding**\
+`Quotation of the Day for Monday, March 9, 2026.`\
+https://nytimes.com/2026/03/08/pageoneplus/quote-of-the-day-met-operas-fervent-hunt-for-funding.html
+
 **Large Fire in Glasgow Forces Closure of Major Train Station**\
 `The blaze that started near Scotland’s busiest station was under control, but officials said they expected train service to be disrupted through Monday.`\
 https://nytimes.com/2026/03/08/world/europe/glasgow-central-train-station-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-a
 **Michael Jordan's first Sports Illustrated cover sells for record $229,360**\
 `Here is why your 1983 Sports Illustrated copy of Jordan's first appearance on the magazine's cover is probably not worth as much.`\
 https://nytimes.com/athletic/7099964/2026/03/08/michael-jordan-sports-illustrated-record-sale/
-
-**U.S. Tomahawk Hit Naval Base Beside Iranian School, Video Shows**\
-`The evidence contradicts President Trump’s claim that Iran was responsible for a strike at the school that killed 175 people, most of them children.`\
-https://nytimes.com/2026/03/08/world/middleeast/iran-minab-school-strike.html
 
