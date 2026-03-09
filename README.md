@@ -1,3 +1,11 @@
+**Napheesa Collier on Unrivaled, and CBA negotiations**\
+`Plus, the future of women’s professional basketball.`\
+https://nytimes.com/2026/03/09/podcasts/napheesa-collier-unrivaled-cba-negotiations.html
+
+**Why some tennis stars go without a coach: 'You have to realize the weight of your decisions'**\
+`Tennis players going without a coach is far more common — and complicated — than fans might think.`\
+https://nytimes.com/athletic/7097878/2026/03/09/tennis-players-no-coach-relationship-raducanu-federer/
+
 **USWNT 2027 World Cup roster predictions 2.0: What changed with SheBelieves Cup win?**\
 `U.S. coach Emma Hayes has just six international windows left before she must select a roster for the 2027 FIFA Women's World Cup.`\
 https://nytimes.com/athletic/7100049/2026/03/09/uswnt-2027-world-cup-roster-predictions-shebelieves-cup-win/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/books/review/saba-sams-gunk.html
 **Trump Is Making the U.S. More Vulnerable to Oil Shocks**\
 `America is a big oil producer. But its overreliance on crude — and the president’s efforts to keep it that way — mean times like these can hurt.`\
 https://nytimes.com/2026/03/09/opinion/iran-war-trump-oil-prices.html
-
-**Scientists Get a Glimpse to How New Pandemics Are Made**\
-`Researchers have devised a new tool for discerning between naturally occurring viral outbreaks and those resulting from lab accidents.`\
-https://nytimes.com/2026/03/09/science/covid-coronavirus-evolution.html
-
-**Conjuring a ‘Crazy Steep’ Hillside Refuge in Park City, Utah**\
-`A couple who wanted deeper roots in their favorite vacation spot ended up building a daring mountain house that fulfilled all their dreams.`\
-https://nytimes.com/2026/03/09/realestate/park-city-utah-hillside-house.html
 
