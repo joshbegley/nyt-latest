@@ -1,3 +1,7 @@
+**Minkah Fitzpatrick trade grades: New leader for Jets defense, Dolphins pay for past mistakes**\
+`The veteran safety, a former All-Pro, is the kind of locker-room presence the young Jets need.`\
+https://nytimes.com/athletic/7101280/2026/03/09/minkah-fitzpatrick-jets-dolphins-trade-grades/
+
 **How ICE Plans to Put 8,500 Immigrants in This Warehouse**\
 `Experts say the initial designs raise health, safety and security concerns.`\
 https://nytimes.com/interactive/2026/03/09/us/politics/ice-georgia-immigration-social-circle-warehouse.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/world/middleeast/turkey-iranian-missile-nato.html
 **A Big Night Light in the Sky? Start-Up Wants to Launch a Space Mirror.**\
 `The company is seeking F.C.C. approval to test an idea to reflect sunlight to Earth at night, possibly powering solar panels. Critics say it could be bad for people and wildlife.`\
 https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
-
-**Explosion Damages Synagogue in Belgium**\
-`Officials described the blast, which caused no injuries, as an antisemitic act, but the exact circumstances were still under investigation.`\
-https://nytimes.com/2026/03/09/world/europe/explosion-synagogue-belgium.html
 
