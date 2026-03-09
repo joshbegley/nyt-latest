@@ -1,3 +1,7 @@
+**Champions League round of 16 analysed: Madrid-City (again), Club World Cup final rematch**\
+`A brilliant set of last-16 ties await. Our writers tell you what to expect`\
+https://nytimes.com/athletic/7100738/2026/03/09/champions-league-round-of-16-analysed/
+
 **Let's appreciate SGA as he nears Wilt's consecutive 20-point game record**\
 `Plus, Kon Knueppel is breaking precedent with his Rookie of the Year case, and the Warriors' Kristaps Porziņģis conundrum.`\
 https://nytimes.com/athletic/7100624/2026/03/09/shai-gilgeous-alexander-record-wilt-kon-knueppel/
