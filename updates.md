@@ -1,3 +1,11 @@
+**'It's turned into MMA!': how a Brazil final descended into anarchy — and 23 red cards**\
+`There were kicks, stamps and punches thrown in a violent brawl involving Hulk, Brazil internationals and a former West Brom player`\
+https://nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruzeiro-atletico-mineiro/
+
+**British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
+`Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/king-charles-iran-war-uk-us-trump
+
 **Five Iran Women soccer players defect with help of Australian police**\
 `Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
 https://nytimes.com/athletic/7100902/2026/03/09/iran-soccer-defect-australia-asian-cup/

@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruz
 
 **British Lawmaker Wants King Charles to Cancel His U.S. Trip Over Iran War**\
 `Ed Davey, the leader of the Liberal Democrats in Britain, said President Trump does not deserve the “diplomatic coup” of hosting the king for a state visit.`\
-https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/king-charles-iran-war-uk-us-trump
+https://nytimes.com/2026/03/09/world/europe/king-charles-iran-war-uk-us-trump.html
 
 **Five Iran Women soccer players defect with help of Australian police**\
 `Sources say the individuals are in a safe house managed by the Australian Federal Police.`\
