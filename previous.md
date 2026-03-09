@@ -1,3 +1,7 @@
+**Woman Shoots at Rihanna’s Mansion Near Beverly Hills**\
+`No injuries were reported and a woman about the age of 30 was taken into custody, the Los Angeles Police Department said.`\
+https://nytimes.com/2026/03/08/arts/music/rihanna-house-shooting-beverly-hills.html
+
 **Coco Gauff retires injured against Alex Eala at Indian Wells**\
 `Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
 https://nytimes.com/athletic/7100302/2026/03/08/coco-gauff-retires-injured-against-alex-eala-at-indian-wells/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/us/combat-deaths-families-pain.html
 **Iran Chooses New Supreme Leader**\
 `Iran named Mojtaba Khamenei, the son of Ayatollah Ali Khamenei, who was killed in recent U.S.-Israeli strikes, as its next supreme leader.`\
 https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran-supreme-leader.html
-
-**Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
-`The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
-https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/
 
