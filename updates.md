@@ -1,3 +1,11 @@
+**New Lawsuit Challenges Rubio’s Threats Against Foreign Tech Regulators**\
+`A lawsuit filed on Monday argues that a State Department’s decision to withhold visas from experts who have pushed for stronger social media regulations is illegal.`\
+https://nytimes.com/2026/03/09/us/politics/lawsuit-rubio-social-media.html
+
+**The Giants' red-hot Cactus League start is bleeding into the World Baseball Classic**\
+`The Giants are 13-2 this spring. The record may be meaningless but some of the individual performances are well worth keeping track of.`\
+https://nytimes.com/athletic/7100685/2026/03/09/sf-giants-cactus-league-wbc-updates/
+
 **Trump Threatens to Crowd Out Republicans’ Midterm Message**\
 `As the G.O.P. gathered in Miami for a party retreat where lawmakers hoped to focus on the economy, the president was threatening to block his own party’s legislative agenda.`\
 https://nytimes.com/2026/03/09/us/politics/trump-republicans-midterms.html

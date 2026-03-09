@@ -1,3 +1,11 @@
+**New Lawsuit Challenges Rubio’s Threats Against Foreign Tech Regulators**\
+`A lawsuit filed on Monday argues that a State Department’s decision to withhold visas from experts who have pushed for stronger social media regulations is illegal.`\
+https://nytimes.com/2026/03/09/us/politics/lawsuit-rubio-social-media.html
+
+**The Giants' red-hot Cactus League start is bleeding into the World Baseball Classic**\
+`The Giants are 13-2 this spring. The record may be meaningless but some of the individual performances are well worth keeping track of.`\
+https://nytimes.com/athletic/7100685/2026/03/09/sf-giants-cactus-league-wbc-updates/
+
 **Trump Threatens to Crowd Out Republicans’ Midterm Message**\
 `As the G.O.P. gathered in Miami for a party retreat where lawmakers hoped to focus on the economy, the president was threatening to block his own party’s legislative agenda.`\
 https://nytimes.com/2026/03/09/us/politics/trump-republicans-midterms.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7101532/2026/03/09/lafayette-vs-army-stream-how-to-
 **How to watch Eastern Washington vs. Northern Colorado women's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Eastern Washington Eagles play the Northern Colorado Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7101524/2026/03/09/eastern-washington-vs-northern-colorado-stream-how-to-watch-march-9/
-
-**How to watch Villanova vs. UConn women's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Villanova Wildcats play the UConn Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101522/2026/03/09/villanova-vs-uconn-stream-how-to-watch-march-9/
-
-**How to watch Rangers vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101518/2026/03/09/rangers-vs-flyers-stream-how-to-watch-march-9/
 
