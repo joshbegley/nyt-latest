@@ -2,8 +2,8 @@
 `After a frigid, snowy, seemingly interminable winter, the first taste of mild air had people shedding layers and flocking to parks.`\
 https://nytimes.com/2026/03/08/nyregion/nyc-warm-weather-spring.html
 
-**Trent McDuffie, Rams agree on four-year, $124M extension: Sources**\
-`The new contract will begin in 2027, as he will finish out his rookie contract with a fifth-year option season this year.`\
+**Trent McDuffie, Rams agree on four-year, $124 million extension: Sources**\
+`McDuffie's new deal, which will begin in 2027, will make him the highest-paid cornerback in the NFL at an average of $31 million per year.`\
 https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
 
 **Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
