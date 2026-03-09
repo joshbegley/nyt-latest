@@ -1,3 +1,7 @@
+**Giants are re-signing free-agent OT Jermaine Eluemunor to 3-year deal: Sources**\
+`Eluemunor topped 1,000 offensive snaps for the first time in his career in 2025.`\
+https://nytimes.com/athletic/7094820/2026/03/09/jermaine-eluemunor-giants-nfl-free-agency-2026/
+
 **Trainer pleads guilty to role in college basketball point-shaving scheme**\
 `Jalen Smith was alleged to have helped perpetrate a sprawling scheme involving at least 17 schools.`\
 https://nytimes.com/athletic/7102543/2026/03/09/ncaa-college-basketball-gambling-investigation-guilty-plea/

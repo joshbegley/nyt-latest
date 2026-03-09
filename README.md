@@ -1,3 +1,11 @@
+**Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
+`Spinning all the NFL offseason player movement of consequence for fantasy football 2026, including Kenneth Walker, Travis Etienne and more.`\
+https://nytimes.com/athletic/7101829/2026/03/09/fantasy-football-2026-offseason-moves/
+
+**What we're seeing at the WBC: A surprise retirement; a living legend celebrates Team DR win**\
+`Ten teams have been eliminated from contention so far, while Japan, Korea, DR and Venezuela have all booked their spot in the QF.`\
+https://nytimes.com/athletic/7102592/2026/03/09/wbc-juan-marichal-teheran-espino/
+
 **Giants are re-signing free-agent OT Jermaine Eluemunor to 3-year deal: Sources**\
 `Eluemunor topped 1,000 offensive snaps for the first time in his career in 2025.`\
 https://nytimes.com/athletic/7094820/2026/03/09/jermaine-eluemunor-giants-nfl-free-agency-2026/
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/09/opinion/iran-israel-united-states-bombing.html
 **Cowboys agree to 3-year deal with safety Jalen Thompson**\
 `Thompson is a rangy free safety and is expected to start alongside Malik Hooker in the secondary.`\
 https://nytimes.com/athletic/7102533/2026/03/09/jalen-thompson-cowboys-nfl-free-agency-2026/
-
-**Karen Petrou, Influential Fiscal Policy Analyst and Critic, Dies at 72**\
-`Her insights on financial regulations and monetary policy guided big banks and Washington policymakers.`\
-https://nytimes.com/2026/03/09/business/karen-petrou-dead.html
 
