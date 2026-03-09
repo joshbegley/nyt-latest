@@ -1,3 +1,15 @@
+**Trump Threatens to Crowd Out Republicans’ Midterm Message**\
+`As the G.O.P. gathered in Miami for a party retreat where lawmakers hoped to focus on the economy, the president was threatening to block his own party’s legislative agenda.`\
+https://nytimes.com/2026/03/09/us/politics/trump-republicans-midterms.html
+
+**How to watch Fairfield vs. Quinnipiac women's basketball: MAAC Tournament Time, TV, streaming**\
+`Find out how to watch the Fairfield Stags play the Quinnipiac Bobcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7101547/2026/03/09/fairfield-vs-quinnipiac-stream-how-to-watch-march-9/
+
+**How to watch 76ers vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7101544/2026/03/09/76ers-vs-cavaliers-stream-how-to-watch-march-9/
+
 **How to watch Binghamton vs. Maine women's basketball: America East Tournament Time, TV, streaming**\
 `Find out how to watch the Binghamton Bearcats play the Maine Black Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7101540/2026/03/09/binghamton-vs-maine-stream-how-to-watch-march-9/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7101522/2026/03/09/villanova-vs-uconn-stream-how-to
 **How to watch Rangers vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7101518/2026/03/09/rangers-vs-flyers-stream-how-to-watch-march-9/
-
-**How to watch Georgia Southern vs. Troy men's basketball: Sun Belt Tournament Time, TV, streaming**\
-`Find out how to watch the Georgia Southern Eagles play the Troy Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101499/2026/03/09/georgia-southern-vs-troy-stream-how-to-watch-march-9/
-
-**How to watch Boston University vs. Navy women's basketball: Patriot Tournament Time, TV, streaming**\
-`Find out how to watch the Boston University Terriers play the Navy Midshipmen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101495/2026/03/09/boston-university-vs-navy-stream-how-to-watch-march-9/
-
-**How to watch UMBC vs. Vermont women's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the UMBC Retrievers play the Vermont Catamounts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101486/2026/03/09/umbc-vs-vermont-stream-how-to-watch-march-9/
 
