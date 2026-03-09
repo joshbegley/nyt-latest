@@ -1,3 +1,7 @@
+**FA Cup quarter-final draw: Man City host Liverpool, Chelsea to play Port Vale**\
+`The quarter-final ties will be played over the weekend of April 4-5.`\
+https://nytimes.com/athletic/7101450/2026/03/09/fa-cup-quarter-final-draw-2026/
+
 **The Consumer Backlash to OpenAI**\
 `After a rival A.I. company, Anthropic, lost a contract with the Pentagon over a disagreement on A.I. safety, OpenAI stepped in. This move has angered users, but will public outcry change anything?`\
 https://nytimes.com/video/podcasts/100000010764288/the-consumer-backlash-to-openai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099080/2026/03/09/devin-bush-bears-nfl-free-agency
 **Wasserman’s Name Is Erased From the Company He Founded**\
 `The sports and marketing agency founded by Casey Wasserman dropped his name in the latest fallout from the Epstein files.`\
 https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
-
-**War in Middle East Drives Oil Prices to Highest Level Since Pandemic**\
-`Oil prices surged well above $110 a barrel on Monday, its highest level since the pandemic, reflecting global fears of a prolonged Middle East conflict.`\
-https://nytimes.com/video/world/middleeast/iran-mideast-conflict-oil-prices.html
 
