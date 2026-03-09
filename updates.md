@@ -1,3 +1,11 @@
+**Large Fire in Glasgow Forces Closure of Major Train Station**\
+`The blaze that started near Scotland’s busiest station was under control, but officials said they expected train service to be disrupted through Monday.`\
+https://nytimes.com/2026/03/08/world/europe/glasgow-central-train-station-fire.html
+
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
+https://nytimes.com/athletic/7097219/2026/03/08/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **Coco Gauff felt like arm 'was on fire' before retiring injured against Alex Eala at Indian Wells**\
 `Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
 https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-alex-eala-injury/

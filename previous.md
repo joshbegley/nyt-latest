@@ -1,3 +1,11 @@
+**Large Fire in Glasgow Forces Closure of Major Train Station**\
+`The blaze that started near Scotland’s busiest station was under control, but officials said they expected train service to be disrupted through Monday.`\
+https://nytimes.com/2026/03/08/world/europe/glasgow-central-train-station-fire.html
+
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
+https://nytimes.com/athletic/7097219/2026/03/08/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **In reversal, Bills trade CB Taron Johnson to Raiders as part of pick swap: Source**\
 `Johnson had been announced as a release Friday after eight seasons in Buffalo. Now he is Las Vegas bound.`\
 https://nytimes.com/athletic/7100301/2026/03/08/bills-raiders-taron-johnson-trade-nfl-free-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/iran-minab-school-strike.html
 **Comeback win of the season sends the Penguins on the road in style**\
 `The Penguins roared back to stun the Bruins in an unlikely overtime thriller, consolidating their hold on a divisional spot.`\
 https://nytimes.com/athletic/7100117/2026/03/08/penguins-comeback-win-mantha-novak-silovs-bruins/
-
-**A Warm Day Arrives and New Yorkers Rush Into Spring’s Embrace**\
-`After a frigid, snowy, seemingly interminable winter, the first taste of mild air had people shedding layers and flocking to parks.`\
-https://nytimes.com/2026/03/08/nyregion/nyc-warm-weather-spring.html
-
-**Trent McDuffie, Rams agree on four-year, $124 million extension: Sources**\
-`McDuffie's new deal, which will begin in 2027, will make him the highest-paid cornerback in the NFL at an average of $31 million per year.`\
-https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
 
