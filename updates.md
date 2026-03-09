@@ -1,3 +1,7 @@
+**Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
+`The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
+https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/
+
 **Georgia Teacher Is Killed After Teenagers’ Prank Goes Wrong**\
 `Teenagers tossed toilet paper on trees outside the house of a teacher. The teacher came outside, tripped and was run over by a pickup driven by one of the pranksters, officials said.`\
 https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
