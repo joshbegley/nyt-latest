@@ -1,3 +1,11 @@
+**The Windup: WBC, it's a celebration 🎵**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7101825/2026/03/09/world-baseball-classic-olympics-the-windup/
+
+**Ravens agree to 3-year deal with G John Simpson: Sources**\
+`Simpson has started all 51 regular-season games over the last three years with the Ravens and Jets. `\
+https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-agency-2026/
+
 **Bernard Lafayette Jr., 85, Dies; Civil Rights Leader Helped Plan Selma March**\
 `A close associate of Martin Luther King Jr. and John Lewis, he was involved in many of the key moments of the Black freedom struggle in the 1960s.`\
 https://nytimes.com/2026/03/09/us/bernard-lafayette-jr-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7088257/2026/03/09/malik-willis-dolphins-nfl-free-a
 **First, They Were Just Fishing. Then the Ice Started Moving.**\
 `Nearly two dozen people in Canada were stranded on ice that separated from shore. “We honestly thought we were doomed,” one fisherman said.`\
 https://nytimes.com/2026/03/09/world/canada/fishermen-ice-shelf-rescue-canada.html
-
-**More Strong Storms Expected After Deadly Midwest Tornadoes**\
-`More than 70 million people are expected to be at some risk for severe weather on Tuesday.`\
-https://nytimes.com/2026/03/09/weather/tornado-forecast-midwest-michigan-chicago.html
-
-**Video Captures Apparent Strike Near Boys’ School in Iran**\
-`A communications tower seemed to be the intended target, according to satellite imagery analysis. Iranian state media reported that a boy had been killed in the explosion.`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-video-explosion-boys-school.html
 
