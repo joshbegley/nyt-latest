@@ -1,3 +1,7 @@
+**A Warm Day Arrives and New Yorkers Rush Into Spring’s Embrace**\
+`After a frigid, snowy, seemingly interminable winter, the first taste of mild air had people shedding layers and flocking to parks.`\
+https://nytimes.com/2026/03/08/nyregion/nyc-warm-weather-spring.html
+
 **Trent McDuffie, Rams agree on four-year, $124M extension: Sources**\
 `The new contract will begin in 2027, as he will finish out his rookie contract with a fifth-year option season this year.`\
 https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100070/2026/03/08/adam-trautman-broncos-tight-end-
 **White House Removes Republican Member of N.T.S.B.**\
 `J. Todd Inman, who was prominent in the investigation of the midair collision in Washington last year, said no reason was given for his firing two years into his term on the transportation safety board.`\
 https://nytimes.com/2026/03/08/us/politics/todd-inman-fired-national-transportation-safety-board.html
-
-**Iran’s Security Establishment Celebrates Mojtaba Khamenei’s Selection**\
-`Opponents of the government, however, worried the new supreme leader, a son of the recently killed Ayatollah Ali Khamenei, would rule with an iron fist like his father.`\
-https://nytimes.com/2026/03/08/world/middleeast/iran-mojtaba-khamenei-supreme-leader-reactions.html
 
