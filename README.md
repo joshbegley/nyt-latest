@@ -1,3 +1,7 @@
+**Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Reports**\
+`Seumalo was a Pro Bowl selection in 2024.`\
+https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
+
 **Linebacker Nakobe Dean agrees to three-year deal with Raiders**\
 `Dean rebounded from a devastating knee injury that occurred in 2024.`\
 https://nytimes.com/athletic/7102874/2026/03/09/nakobe-dean-raiders-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/science/meteorite-europe-crash-germany-roof.html
 **Trade Your Smartphone for an ’80s-Style Digital Watch**\
 `These retro selections may have some new tricks, but they keep things comparatively simple.`\
 https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
-
-**Monti Rock III, Gleefully Untalented ‘Tonight Show’ Favorite, Dies at 86**\
-`He couldn’t sing, dance or tell funny stories. But Johnny Carson loved him and his persona: a D-list star clinging to celebrity.`\
-https://nytimes.com/2026/03/09/arts/television/monti-rock-iii-dead.html
 
