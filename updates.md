@@ -1,3 +1,19 @@
+**Ryan Walker aims to forge ahead as Giants' closer, with an assist from Sergio Romo**\
+`As a spring training guest instructor, Romo spoke with Walker about how to handle failure and how to adjust when the league adjusts to you.`\
+https://nytimes.com/athletic/7100298/2026/03/09/sf-giants-ryan-walker-sergio-romo-closer/
+
+**Ari Emanuel Made His Name as a Talent Agent. Now He’s the Talent.**\
+`Hollywood’s archetypical agent has been showing a very different side of himself as a host of a video podcast called “Rushmore.”`\
+https://nytimes.com/2026/03/09/business/ariel-emanuel-agents-podcasts.html
+
+**The Windup: WBC, it's a celebration 🎵**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7101825/2026/03/09/world-baseball-classic-olympics-the-windup/
+
+**Ravens agree to 3-year deal with G John Simpson: Source**\
+`Simpson has started all 51 regular-season games over the last three years with the Ravens and Jets. `\
+https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-agency-2026/
+
 **Bernard Lafayette Jr., 85, Dies; Civil Rights Leader Helped Plan Selma March**\
 `A close associate of Martin Luther King Jr. and John Lewis, he was involved in many of the key moments of the Black freedom struggle in the 1960s.`\
 https://nytimes.com/2026/03/09/us/bernard-lafayette-jr-dead.html
