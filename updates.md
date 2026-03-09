@@ -1,3 +1,15 @@
+**What we’re seeing in the WBC: An Armani jacket and a case of double vision**\
+`Logan Allen faced off against.....Logan Allen? Plus more dispatches from each pool site at the World Baseball Classic.`\
+https://nytimes.com/athletic/7100780/2026/03/09/wbc-armani-jacket-double-vision/
+
+**Israeli Forces Raid New Areas in Southern Lebanon**\
+`Israeli fighter jets also bombarded the southern outskirts of Beirut, the Lebanese capital, as part of its escalating military campaign against Hezbollah.`\
+https://nytimes.com/2026/03/09/world/middleeast/israeli-forces-raid-new-areas-in-southern-lebanon.html
+
+**Live Updates: N.Y. Police Commissioner Says Gracie Mansion Incident Inspired by Islamic State**\
+`Mayor Zohran Mamdani was set to speak on Monday after an improvised explosive device was thrown near the mayor’s official residence. No one was injured in the incident on Saturday.`\
+https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc
+
 **No Corrections: March 9, 2026**\
 `No corrections appeared in print on Monday, March 9, 2026.`\
 https://nytimes.com/2026/03/09/pageoneplus/no-corrections-march-9-2026.html
