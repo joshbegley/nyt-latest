@@ -1,8 +1,12 @@
+**Broncos releasing LB Dre Greenlaw after one season in Denver: Report**\
+`Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
+https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
+
 **How Americans Are Feeling the Economic Effects of the War With Iran**\
 `Gas prices are rising, with the cost of food likely to follow. If the conflict drags on, the fallout for consumers could worsen, experts warned.`\
 https://nytimes.com/2026/03/09/business/iran-oil-prices-economic-impact.html
 
-**Alexander Brothers Found Guilty of Sex Trafficking**\
+**Alexander Brothers Found Guilty of All Counts in Sex Trafficking Trial**\
 `The verdict comes more than a month after the trial began in Federal District Court in Manhattan where the jury heard weeks of emotional and often graphic testimony.`\
 https://nytimes.com/2026/03/09/nyregion/verdict-alexander-brothers-sex-trafficking.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia
 **Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
 `Spinning all the NFL offseason player movement of consequence for fantasy football 2026, including Kenneth Walker, Travis Etienne and more.`\
 https://nytimes.com/athletic/7101829/2026/03/09/fantasy-football-2026-offseason-moves/
-
-**What we're seeing at the WBC: A surprise retirement; a living legend celebrates Team DR win**\
-`Ten teams have been eliminated from contention so far, while Japan, Korea, DR and Venezuela have all booked their spot in the QF.`\
-https://nytimes.com/athletic/7102592/2026/03/09/wbc-juan-marichal-teheran-espino/
 

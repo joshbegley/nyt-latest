@@ -1,3 +1,7 @@
+**Fashionable Wall Street Bros Set Off a Social Media Storm**\
+`They said yes to an Interview magazine fashion shoot. Then came the haters.`\
+https://nytimes.com/2026/03/09/style/fashionable-wall-street-bros-set-off-a-social-media-storm.html
+
 **Broncos releasing LB Dre Greenlaw after one season in Denver: Report**\
 `Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
 https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-
 **Australia Grants Humanitarian Visas to 5 Members of Iranian Women’s Soccer Team**\
 `Concern for the safety of the players had grown after Iranian state media criticized them for not singing the national anthem at a match in Australia.`\
 https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
-
-**Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
-`Spinning all the NFL offseason player movement of consequence for fantasy football 2026, including Kenneth Walker, Travis Etienne and more.`\
-https://nytimes.com/athletic/7101829/2026/03/09/fantasy-football-2026-offseason-moves/
 
