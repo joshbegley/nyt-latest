@@ -1,3 +1,7 @@
+**Coco Gauff retires injured against Alex Eala at Indian Wells**\
+`Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
+https://nytimes.com/athletic/7100302/2026/03/08/coco-gauff-retires-injured-against-alex-eala-at-indian-wells/
+
 **Michael Jordan's first Sports Illustrated cover sells for record $229,360**\
 `Here is why your 1983 Sports Illustrated copy of Jordan's first appearance on the magazine's cover is probably not worth as much.`\
 https://nytimes.com/athletic/7099964/2026/03/08/michael-jordan-sports-illustrated-record-sale/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran
 **Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
 `The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
 https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/
-
-**Georgia Teacher Is Killed After Teenagers’ Prank Goes Wrong**\
-`The teacher’s family “supports getting the charges dropped for all involved,” after a planned toilet-paper prank became a fatal car accident.`\
-https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
 

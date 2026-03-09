@@ -1,3 +1,7 @@
+**Coco Gauff retires injured against Alex Eala at Indian Wells**\
+`Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
+https://nytimes.com/athletic/7100302/2026/03/08/coco-gauff-retires-injured-against-alex-eala-at-indian-wells/
+
 **Michael Jordan's first Sports Illustrated cover sells for record $229,360**\
 `Here is why your 1983 Sports Illustrated copy of Jordan's first appearance on the magazine's cover is probably not worth as much.`\
 https://nytimes.com/athletic/7099964/2026/03/08/michael-jordan-sports-illustrated-record-sale/
