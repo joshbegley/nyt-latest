@@ -1,3 +1,11 @@
+**G7 Countries Hold Off on Releasing Emergency Oil Supplies**\
+`Finance ministers for the seven industrialized countries met on Monday and said they would consider releasing oil from reserves but were not ready to do so now.`\
+https://nytimes.com/2026/03/09/business/energy-environment/iran-g7-oil-reserves.html
+
+**Game of the year? 10 more thoughts on Sabres' unforgettable win over Lightning**\
+`This was one of those games that people in attendance will remember for the rest of their lives.`\
+https://nytimes.com/athletic/7101463/2026/03/09/sabres-lightning-nhl-score-highlights-fights/
+
 **An Amish Avatar and an A.I. Monk Are Pitching Supplements on Social Media**\
 `Influencers have long hawked supplements on platforms like Instagram and TikTok. Increasingly, the influencers are fake.`\
 https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-media-supplements.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/us/supreme-court-rap-lyrics-death-penalty.html
 **New Lawsuit Challenges Rubio’s Threats Against Foreign Tech Regulators**\
 `A lawsuit filed on Monday argues that a State Department’s decision to withhold visas from experts who have pushed for stronger social media regulations is illegal.`\
 https://nytimes.com/2026/03/09/us/politics/lawsuit-rubio-social-media.html
-
-**The Giants' red-hot Cactus League start is bleeding into the World Baseball Classic**\
-`The Giants are 13-2 this spring. The record may be meaningless but some of the individual performances are well worth keeping track of.`\
-https://nytimes.com/athletic/7100685/2026/03/09/sf-giants-cactus-league-wbc-updates/
-
-**Trump Threatens to Crowd Out Republicans’ Midterm Message**\
-`As the G.O.P. gathered in Miami for a party retreat where lawmakers hoped to focus on the economy, the president was threatening to block his own party’s legislative agenda.`\
-https://nytimes.com/2026/03/09/us/politics/trump-republicans-midterms.html
 
