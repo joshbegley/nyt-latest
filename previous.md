@@ -1,3 +1,23 @@
+**Inside Nazem Kadri's return to the Avalanche and the trade that made it happen**\
+`From nervous golf to a crowd so loud it was hard to focus in his second Avalanche debut, Kadri had an unforgettable journey back to Denver.`\
+https://nytimes.com/athletic/7100480/2026/03/09/nazem-kadri-colorado-avalanche-trade-calgary-flames-behind-the-scenes/
+
+**Darlings of the WBC, Team Czechia hopes for one more miracle in Japan before time runs out**\
+`Team Czechia has won hearts with its underdog status and scrappy play in the WBC. Now they are seeking to topple a world power.`\
+https://nytimes.com/athletic/7099696/2026/03/09/wbc-team-czechia-underdogs-japan/
+
+**Film Club: ‘Grab Your Calculators. We’re Going to Jail.’**\
+`A Times Opinion video argues that criminal justice fees act as predatory taxes, creating crushing debt for the poor and destabilizing society.`\
+https://nytimes.com/2026/03/09/learning/film-club-grab-your-calculators-were-going-to-jail.html
+
+**The New York Times International Edition in Print for Tuesday, March 10, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/09/todays-new-york-times-international-edition
+
+**Australia Urged to Protect Members of the Iranian Women’s Soccer Team**\
+`The athletes, who are set to head home, were called ‘traitors’ by Iran’s state media after they didn’t sing their national anthem during a match in Australia.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-women-soccer-football-team-australia.html
+
 **How to watch Bethune-Cookman vs. Texas Southern women's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Bethune-Cookman Wildcats play the Texas Southern Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100730/2026/03/09/bethune-cookman-vs-texas-southern-stream-how-to-watch-march-9/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/09/podcasts/napheesa-collier-unrivaled-cba-negotiati
 **Why some tennis stars go without a coach: 'You have to realize the weight of your decisions'**\
 `Tennis players going without a coach is far more common — and complicated — than fans might think.`\
 https://nytimes.com/athletic/7097878/2026/03/09/tennis-players-no-coach-relationship-raducanu-federer/
-
-**USWNT 2027 World Cup roster predictions 2.0: What changed with SheBelieves Cup win?**\
-`U.S. coach Emma Hayes has just six international windows left before she must select a roster for the 2027 FIFA Women's World Cup.`\
-https://nytimes.com/athletic/7100049/2026/03/09/uswnt-2027-world-cup-roster-predictions-shebelieves-cup-win/
-
-**What You See From the 36th Floor of This Observation Deck**\
-`Starting in June, the Municipal Building in Lower Manhattan will offer free visits to its cupola.`\
-https://nytimes.com/2026/03/09/nyregion/municipal-building-cupola-view.html
-
-**We Are Being Governed by Unserious People**\
-`Kristi Noem epitomizes the incompetence of this White House`\
-https://nytimes.com/2026/03/09/opinion/kristi-noem-trump.html
-
-**Markwayne Mullin, Once a Political Outsider, Moves All the Way In**\
-`The Oklahoma senator whom President Trump chose to run the Department of Homeland Security has risen in Washington by styling himself as a MAGA warrior and Trump loyalist.`\
-https://nytimes.com/2026/03/09/us/politics/markwayne-mullin-homeland-security-trump.html
-
-**How Did the Naked Dressing Trend Start?**\
-`Barely-there gowns are more popular than ever, but they aren’t necessarily new. Our critic traces the look across time.`\
-https://nytimes.com/2026/03/09/fashion/naked-dressing-red-carpet.html
 
