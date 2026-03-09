@@ -1,3 +1,11 @@
+**Comeback win of the season sends the Penguins on the road in style**\
+`The Penguins roared back to stun the Bruins in an unlikely overtime thriller, consolidating their hold on a divisional spot.`\
+https://nytimes.com/athletic/7100117/2026/03/08/penguins-comeback-win-mantha-novak-silovs-bruins/
+
+**Lightning, Sabres put up their dukes in Atlantic Division showdown**\
+`The final tally was 17 penalties and 57 minutes for the Lightning, 11 penalties and 45 minutes for the Sabres.`\
+https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
+
 **Lightning, Sabres put up their dukes in Atlantic Division showdown**\
 `Through two periods, Tampa Bay and Buffalo combined for 98 penalty minutes Sunday.`\
 https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
