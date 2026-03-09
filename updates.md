@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
+
+**Live Updates: Iran Names Khamenei’s Son Supreme Leader**\
+`Top clerics said Mojtaba Khamenei will succeed his slain father, Ayatollah Ali Khamenei. The Israeli military said it was attacking Tehran and Beirut early Monday, and Iran said it had launched missiles toward Israel.`\
+https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon
+
+**Surging Oil Prices Tank Stocks in Asia**\
+`Asian markets tumbled on Monday as Middle East tensions and spiking oil prices sparked a mass exit from the region’s previously booming stocks.`\
+https://nytimes.com/2026/03/09/business/stocks-iran-oil.html
+
 **Lewandowski talks longevity: 'I thought because I was skinny I could eat whatever I wanted'**\
 `The 37-year-old is in his 16th season at the elite level and is still as prolific as ever. How does he do it? He explains his secrets...`\
 https://nytimes.com/athletic/7087130/2026/03/09/robert-lewandowski-interview-barcelona-longevity/
