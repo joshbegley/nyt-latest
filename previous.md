@@ -1,3 +1,15 @@
+**‘Let’s Go for a Walk’: Three Dance Artists Strip Down Movement**\
+`At the Dance Reflections festival, Nacera Belaza, Anne Teresa De Keersmaeker and Noé Soulier all attempted some form of going back to basics. Results varied.`\
+https://nytimes.com/2026/03/09/arts/dance/nacera-belaza-noe-soulier-anne-teresa-de-keersmaeker-dance-reflections.html
+
+**As Kari Lake Sought to Shutter Voice of America, Parent Agency Rebuffed Auditors**\
+`A new report says the lack of information provided for a required annual examination was so “pervasive” that auditors declined to opine on the agency’s financial numbers.`\
+https://nytimes.com/2026/03/09/us/politics/voice-of-america-audit.html
+
+**RB Kenneth Gainwell agrees to deal to join Buccaneers: Sources**\
+`After signing a one-year deal last spring, Gainwell led the Steelers in receptions and posted career highs in almost every category in 2025.`\
+https://nytimes.com/athletic/7088647/2026/03/09/kenneth-gainwell-buccaneers-nfl-free-agency-2026/
+
 **Ryan Walker aims to forge ahead as Giants' closer, with an assist from Sergio Romo**\
 `As a spring training guest instructor, Romo spoke with Walker about how to handle failure and how to adjust when the league adjusts to you.`\
 https://nytimes.com/athletic/7100298/2026/03/09/sf-giants-ryan-walker-sergio-romo-closer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7101752/2026/03/09/laremy-tunsil-commanders-contrac
 **Blue Jackets Monday gathering: Trade brings a welcome change for Conor Garland**\
 `"It's fun being back in a playoff race," Garland said after coming over from the Vancouver Canucks.`\
 https://nytimes.com/athletic/7098921/2026/03/09/blue-jackets-conor-garland-notebook/
-
-**Patriots, edge rusher Dre'Mont Jones agree to free-agent deal: Sources**\
-`Adding Jones, 29, on a reported three-year, $39.5 million deal brings pass-rush help and size on the edge, something the Pats have lacked.`\
-https://nytimes.com/athletic/7101658/2026/03/09/dremont-jones-patriots-nfl-free-agency-2026/
-
-**Tight end Isaiah Likely agrees to 3-year deal with Giants: Sources**\
-`Likely has 15 receiving touchdowns in his four-year career, which is second most by a Ravens player since the 2022 season. `\
-https://nytimes.com/athletic/7090486/2026/03/09/isaiah-likely-giants-nfl-free-agency-2026/
-
-**Steelers to acquire WR Michael Pittman Jr. in trade with Colts: Sources**\
-`Pittman led the Colts in receptions last season.`\
-https://nytimes.com/athletic/7101767/2026/03/09/michael-pittman-jr-steelers-nfl-free-agency-2026/
 
