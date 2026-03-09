@@ -1,3 +1,7 @@
+**In reversal, Bills trade CB Taron Johnson to Raiders as part of pick swap: Source**\
+`Johnson had been announced as a release Friday after eight seasons in Buffalo. Now he is Las Vegas bound.`\
+https://nytimes.com/athletic/7100301/2026/03/08/bills-raiders-taron-johnson-trade-nfl-free-agency/
+
 **Democrats Seize on Oil Price Surge, as Trump Downplays It**\
 `The global oil benchmark topped $100 a barrel late Sunday, putting Republicans on the defensive on an issue at the center of this year’s midterm elections.`\
 https://nytimes.com/2026/03/08/world/middleeast/democrats-republicans-trump-oil-prices-midterms.html
