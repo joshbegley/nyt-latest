@@ -1,3 +1,7 @@
+**The Shape of Things to Come**\
+`At Celine, Michael Rider calls an end to the oversize. At Balenciaga, Pierpaolo Piccioli gets swamped.`\
+https://nytimes.com/2026/03/09/style/celine-balenciaga-fall-2026.html
+
 **U.S. Gasoline Prices, Rising Again, Are Now Up 17% Since Conflict Started**\
 `Interruptions in oil supplies in the Middle East, source of much of the world’s energy, are trickling down to what American drivers pay when they fill up.`\
 https://nytimes.com/2026/03/09/business/gasoline-prices-iran.html
