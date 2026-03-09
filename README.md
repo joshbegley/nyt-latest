@@ -1,3 +1,11 @@
+**Former Liverpool defender Kabak interview: 'I think big things are still ahead of me'**\
+`Ozan Kabak has reflected on his time with Liverpool, his goalscoring form and his future`\
+https://nytimes.com/athletic/7093131/2026/03/09/liverpool-ozan-kabak-interview/
+
+**How Wrexham got close to a famous upset against Chelsea: Dynamism, aggression, and leaving Sanchez**\
+`Chelsea's head coach praised their Championship opponents, and rightly so — this is how Phil Parkinson's side impressed`\
+https://nytimes.com/athletic/7098819/2026/03/09/wrexham-chelsea-fa-cup-sanchez/
+
 **The New York Times in Print for Monday, March 9, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/09/todays-new-york-times
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/7100495/2026/03/09/submit-a-question-for-stewart-ma
 **What makes Tetairoa McMillan reliable on fourth down? Watch him analyze film**\
 `Tetairoa McMillan was one of the most-targeted wide receivers on third and fourth down as a rookie. But that trust doesn't happen overnight.`\
 https://nytimes.com/athletic/7090777/2026/03/09/tetairoa-mcmillan-panthers/
-
-**On the Road With Zelensky, Weathered, Weary and Fighting On**\
-`Ukraine’s leader, Volodymyr Zelensky, traveled east to visit frontline troops trying to stave off Russian attacks, and invited reporters for The New York Times to go with him.`\
-https://nytimes.com/2026/03/09/world/europe/ukraine-zelensky-frontline-tour.html
-
-**D'Andre Swift only needs 'a little space' to make magic: Watch him analyze film**\
-`What's so special about it D'Andre Swift in Ben Johnson's offense? He reviewed some of his own film to break it down.`\
-https://nytimes.com/athletic/7087926/2026/03/09/dandre-swift-bears/
 
