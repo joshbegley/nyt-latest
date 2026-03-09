@@ -1,40 +1,40 @@
-**Iraq coach asks FIFA to delay World Cup play-off game due to Middle East conflict**\
-`Iraq is set to play either Bolivia or Suriname  in the inter-confederation play-offs on March 31.`\
-https://nytimes.com/athletic/7100711/2026/03/09/iraq-world-cup-playoff-fifa-middle-east/
+**Red Wings pass first test without Larkin, Faulk debuts: 5 thoughts**\
+`In their first full game without their captain, the Red Wings put up a strong all-around showing to pick up a 3-0 win in New Jersey.`\
+https://nytimes.com/athletic/7100330/2026/03/09/red-wings-shutout-seider-faulk-debut-shine-devils/
 
-**Russia wins first winter Paralympic gold medal for 12 years**\
-`Varvara Voronchikhina, one of six Russian athletes competing at the 2026 Games, took victory in the women's standing super-G.`\
-https://nytimes.com/athletic/7100741/2026/03/09/russia-winter-paralympics-gold-medal/
+**Should Bucks hope for lottery balls? Are the Hornets for real? An East Play-In roundtable**\
+`Meanwhile, the Heat try to become a playoff nightmare for a higher seed once again, while the Magic try to avoid a disastrous season.`\
+https://nytimes.com/athletic/7094581/2026/03/09/hornets-bucks-eastern-conference-play-in-nba-lottery/
 
-**Fear and Hope for Iranians Trapped Between Bombs and Defiant Rulers**\
-`Many in Iran feel helpless in the face of their entrenched system, and some are becoming increasingly embittered by the fierce American and Israeli bombardment.`\
-https://nytimes.com/2026/03/09/world/europe/iranians-destruction-bombs-despair.html
+**NHL prospect pool rankings 2026: Scott Wheeler evaluates all 32 farm systems**\
+`Welcome to the 2026 edition of Scott Wheeler's ranking of the NHL's 32 prospect pools.`\
+https://nytimes.com/athletic/6807398/2026/03/09/nhl-prospect-pool-rankings-2026-wheeler/
 
-**Inside Nazem Kadri's return to the Avalanche and the trade that made it happen**\
-`From nervous golf to a crowd so loud it was hard to focus in his second Avalanche debut, Kadri had an unforgettable journey back to Denver.`\
-https://nytimes.com/athletic/7100480/2026/03/09/nazem-kadri-colorado-avalanche-trade-calgary-flames-behind-the-scenes/
+**Women's basketball power rankings: If LSU can't beat South Carolina, is it a tournament threat?**\
+`Is the Big Ten's depth beneficial for the tournament? Will playing at home boost West Virginia?`\
+https://nytimes.com/athletic/7100377/2026/03/09/womens-college-basketball-power-rankings-lsu-tournament/
 
-**Darlings of the WBC, Team Czechia hopes for one more miracle in Japan before time runs out**\
-`Team Czechia has won hearts with its underdog status and scrappy play in the WBC. Now they are seeking to topple a world power.`\
-https://nytimes.com/athletic/7099696/2026/03/09/wbc-team-czechia-underdogs-japan/
+**The NHL trade deadline may not have delivered, but it sets up a potentially explosive summer**\
+`Anyone with term who didn't move Friday will be looking to the future, as will McDavid, Matthews, Kucherov, Brady Tkachuk, Robertson, more.`\
+https://nytimes.com/athletic/7099395/2026/03/09/nhl-trades-josi-mcdavid-tkachuk-matthews/
 
-**Film Club: ‘Grab Your Calculators. We’re Going to Jail.’**\
-`A Times Opinion video argues that criminal justice fees act as predatory taxes, creating crushing debt for the poor and destabilizing society.`\
-https://nytimes.com/2026/03/09/learning/film-club-grab-your-calculators-were-going-to-jail.html
+**Payton Tolle impressing, Kristian Campbell's camp, trade talks and more: Red Sox mailbag**\
+`Can the Red Sox contend without a true power bat? Improved pitching and a stronger infield defense may just keep them competitive.`\
+https://nytimes.com/athletic/7099613/2026/03/09/red-sox-mailbag-payton-tolle-kristian-campbell-mlb/
 
-**The New York Times International Edition in Print for Tuesday, March 10, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/09/todays-new-york-times-international-edition
+**FIFA, Australian government hold urgent talks over Iran women's team's future**\
+`Sources with knowledge of discussions stated that there are currently no flights for the team booked back to Iran.`\
+https://nytimes.com/athletic/7100720/2026/03/09/iran-women-australia-asian-cup/
 
-**Australia Urged to Protect Members of the Iranian Women’s Soccer Team**\
-`The athletes, who are set to head home, were called ‘traitors’ by Iran’s state media after they didn’t sing their national anthem during a match in Australia.`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-women-soccer-football-team-australia.html
+**This Week in Mets: Highlighting New York's spring standouts**\
+`Plus, a look at Juan Soto's keen eye at the plate: How will that play into MLB's new challenge system?`\
+https://nytimes.com/athletic/7099701/2026/03/09/this-week-in-mets-spring-standouts/
 
-**How to watch Bethune-Cookman vs. Texas Southern women's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Bethune-Cookman Wildcats play the Texas Southern Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7100730/2026/03/09/bethune-cookman-vs-texas-southern-stream-how-to-watch-march-9/
+**He's Notre Dame's QB of the future. And he's showing up a year early**\
+`Notre Dame has never had a player reclassify to enroll in college a year early, but QB Teddy Jarrard is well-prepared to be the first.`\
+https://nytimes.com/athletic/7086396/2026/03/09/teddy-jarrard-notre-dame-quarterback-reclassification/
 
-**How to watch East Texas A&M vs. Northwestern State women's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the East Texas A&M Lions play the Northwestern State Lady Demons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7100728/2026/03/09/east-texas-a-m-vs-northwestern-state-stream-how-to-watch-march-9/
+**Canadiens weekly notebook: A trade deadline post-mortem; blue-line imbalance needs to change**\
+`Also in this week's Canadiens notebook, Patrik Laine's additional trade protection and a very familiar goal from Juraj Slafkovský.`\
+https://nytimes.com/athletic/7100553/2026/03/09/canadiens-notebook-trade-deadline-post-mortem/
 
