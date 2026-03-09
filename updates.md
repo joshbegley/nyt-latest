@@ -1,3 +1,11 @@
+**RB Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
+`Dowdle rushed for 1,076 yards and six touchdowns on 236 carries for Carolina last season.`\
+https://nytimes.com/athletic/7094596/2026/03/09/rico-dowdle-steelers-nfl-free-agency-2026/
+
+**How to watch Santa Clara vs. Saint Mary's (CA) men's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Santa Clara Broncos play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103092/2026/03/09/santa-clara-vs-saint-mary-s-ca-stream-how-to-watch-march-9/
+
 **Safety Reed Blankenship agrees to three-year deal with Texans**\
 `Blankenship was undrafted and became a four-year starter.`\
 https://nytimes.com/athletic/7102997/2026/03/09/reed-blankenship-texans-nfl-free-agency-2026/
