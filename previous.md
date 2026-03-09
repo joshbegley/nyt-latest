@@ -1,41 +1,40 @@
+**Jordan Poole left a legacy with the Wizards. Just ask his former teammates.**\
+`To many players on Washington's roster, Poole, now with the New Orleans Pelicans meant a lot as a mentor and as a friend.`\
+https://nytimes.com/athletic/7100517/2026/03/09/jordan-poole-washington-wizards-legacy-pelicans/
+
+**Investors and Trump Face an Iran Dilemma**\
+`A spike in oil prices has roiled stocks and bonds again and threatens to accelerate inflation — adding pressure on the White House.`\
+https://nytimes.com/2026/03/09/business/dealbook/markets-trump-iran.html
+
+**Dolphins to release QB Tua Tagovailoa, eat record $99.2M in dead money: Source**\
+`The Dolphins previously made Tagovailoa one of the highest-paid quarterbacks in NFL history, but his run in Miami is now over.`\
+https://nytimes.com/athletic/7057582/2026/03/09/tua-tagovailoa-released-contract-miami-dolphins-cap-space/
+
+**How to watch Sacramento State vs. Idaho State women's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Sacramento State Hornets play the Idaho State Bengals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100981/2026/03/09/sacramento-state-vs-idaho-state-stream-how-to-watch-march-9/
+
+**How to watch Oregon State vs. Loyola Marymount women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Oregon State Beavers play the Loyola Marymount Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100978/2026/03/09/oregon-state-vs-loyola-marymount-stream-how-to-watch-march-9/
+
+**How to watch JMU vs. Troy women's basketball: Sun Belt Tournament Time, TV, streaming**\
+`Find out how to watch the James Madison Dukes play the Troy Trojans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100976/2026/03/09/jmu-vs-troy-stream-how-to-watch-march-9/
+
+**How to watch Cleveland State vs. Youngstown State women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Cleveland State Vikings play the Youngstown State Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100972/2026/03/09/cleveland-state-vs-youngstown-state-stream-how-to-watch-march-9/
+
+**Champions League round of 16 analysed: Madrid-City (again), Club World Cup final rematch**\
+`A mouthwatering set of last-16 ties await. Our writers tell you what to expect`\
+https://nytimes.com/athletic/7100738/2026/03/09/champions-league-round-of-16-analysed/
+
+**How to watch Alcorn State vs. Alabama State men's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Alcorn State Braves play the Alabama State Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100965/2026/03/09/alcorn-state-vs-alabama-state-stream-how-to-watch-march-9/
+
 **How to watch Nicholls vs. Incarnate Word women's basketball: Southland Tournament Time, TV, streaming**\
 `Find out how to watch the Nicholls Colonels play the Incarnate Word Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100956/2026/03/09/nicholls-vs-incarnate-word-stream-how-to-watch-march-9/
-
-**American runner wins L.A. Marathon by closest margin in history**\
-`Nathan Martin, a high school coach, chased down Michael Kimani Kamau to finish in a time of 2:11:17 on Sunday. `\
-https://nytimes.com/athletic/7100863/2026/03/09/la-marathon-nathan-martin-history-sprint/
-
-**Italian football is painfully slow but curiously enjoyable**\
-`Serie A now seems to exist in its own slow-motion bubble compared to other major leagues`\
-https://nytimes.com/athletic/7100835/2026/03/09/italian-football-tactics/
-
-**Men's NCAA Tournament bubble watch: Does anyone want the final at-large spots?**\
-`Most of the bubble belly-flopped on the regular season's final weekend. What does it mean for Championship Week?`\
-https://nytimes.com/athletic/7099615/2026/03/09/mens-ncaa-tournament-bubble-watch-championship-week/
-
-**Abramovich warns government he will fight any attempt to confiscate Chelsea sale proceeds**\
-`The £2.35billion ($3.1bn) generated from the sale of Chelsea in May 2022 remains frozen in a UK bank account.`\
-https://nytimes.com/athletic/7100772/2026/03/09/roman-abramovich-ukraine-funds-uk-government/
-
-**Antonelli did enough in Australia to show he is a title contender**\
-`George Russell won the opening F1 race of the 2026 season, but his young teammate Kimi Antonelli impressed too`\
-https://nytimes.com/athletic/7099918/2026/03/09/kimi-antonelli-f1-australian-gp-mercedes/
-
-**How to watch the Los Angeles Dodgers: Local TV, national broadcasts for reigning champs**\
-`The Dodgers are pursuing a World Series three-peat. Here's how to watch all 162 regular-season games this year. `\
-https://nytimes.com/athletic/7067123/2026/03/09/los-angeles-dodgers-ohtani-how-to-watch-2026/
-
-**Trump Administration Live Updates: U.S. Says Boat Strike in the Pacific Kills 6**\
-``\
-https://nytimes.com/live/2026/03/09/us/trump-news
-
-**Burrow, Hurts to join Brady, Daniels in Fanatics Flag Football Classic**\
-`Tom Brady, Jalen Hurts, Joe Burrow, and Jayden Daniels will captain teams facing the U.S. flag football squad.`\
-https://nytimes.com/athletic/7100403/2026/03/09/fanatics-flag-football-classic-brady-paul-team-usa/
-
-**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
-`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
-`\
-https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
 
