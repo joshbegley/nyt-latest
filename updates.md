@@ -1,3 +1,7 @@
+**Homes Searched in Pennsylvania After Bomb Near N.Y.C. Mayor’s House**\
+`Federal authorities conducted searches a day after a homemade bomb was thrown outside Gracie Mansion, Mayor Zohran Mamdani’s official residence.`\
+https://nytimes.com/2026/03/09/nyregion/gracie-mansion-bomb-mamdani-pennsylvania.html
+
 **The War’s Effect on the Supermarket**\
 `We examine the Middle East’s role in food production.`\
 https://nytimes.com/2026/03/09/briefing/the-wars-effect-on-the-supermarket.html
