@@ -1,3 +1,7 @@
+**The Shape of Things to Come**\
+`At Celine, Michael Rider calls an end to the oversize. At Balenciaga, Pierpaolo Piccioli gets swamped.`\
+https://nytimes.com/2026/03/09/style/celine-balenciaga-fall-2026.html
+
 **U.S. Gasoline Prices, Rising Again, Are Now Up 17% Since Conflict Started**\
 `Interruptions in oil supplies in the Middle East, source of much of the world’s energy, are trickling down to what American drivers pay when they fill up.`\
 https://nytimes.com/2026/03/09/business/gasoline-prices-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7093388/2026/03/09/newcaste-eddie-howe-barcelona-ch
 **Here’s the latest.**\
 `By Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
-
-**Live Updates: Iran Names Khamenei’s Son Supreme Leader**\
-`Top clerics said Mojtaba Khamenei will succeed his slain father, Ayatollah Ali Khamenei. The Israeli military said it was attacking Tehran and Beirut early Monday, and Iran said it had launched missiles toward Israel.`\
-https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon
 
