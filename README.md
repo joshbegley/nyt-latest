@@ -1,3 +1,7 @@
+**A Big Night Light in the Sky? Start-Up Wants to Launch a Space Mirror.**\
+`The company is seeking F.C.C. approval to test an idea to reflect sunlight to Earth at night, possibly powering solar panels. Critics say it could be bad for people and wildlife.`\
+https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
+
 **Explosion Damages Synagogue in Belgium**\
 `Officials described the blast, which caused no injuries, as an antisemitic act, but the exact circumstances were still under investigation.`\
 https://nytimes.com/2026/03/09/world/europe/explosion-synagogue-belgium.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101075/2026/03/09/alvaro-carreras-real-madrid-inju
 **Dozens Wounded in Bahrain as Arab States Condemn Iranian Strikes**\
 `Key U.S. allies in the Persian Gulf have stepped up their criticism of Iran after facing a barrage of missiles and drone attacks over the past week.`\
 https://nytimes.com/2026/03/09/world/middleeast/bahrain-iran-strikes.html
-
-**NFL free agency grades 2026: The good, bad and ugly of key deals**\
-`As players agree to free-agent deals, we'll be grading all of the signings from The Athletic's list of the top 150 players available. `\
-https://nytimes.com/athletic/7093735/2026/03/09/nfl-free-agency-grades-2026/
 
