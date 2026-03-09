@@ -1,3 +1,8 @@
+**The Bounce: Victor Wembanyama should be in the dunk contest**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7101331/2026/03/09/jayson-tatum-return-celtics-stock-report-the-bounce/
+
 **NBA Power Rankings: Spurs, Knicks, Celtics get A's for season's third quarter**\
 `This segment of the season is the most volatile from a roster standpoint due to the trade deadline.`\
 https://nytimes.com/athletic/7100970/2026/03/09/nba-power-rankings-spurs-knicks-celtics/
