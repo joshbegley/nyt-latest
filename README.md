@@ -1,3 +1,7 @@
+**Trade Your Smartphone for an ’80s-Style Digital Watch**\
+`These retro selections may have some new tricks, but they keep things comparatively simple.`\
+https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
+
 **Monti Rock III, Gleefully Untalented ‘Tonight Show’ Favorite, Dies at 86**\
 `He couldn’t sing, dance or tell funny stories. But Johnny Carson loved him and his persona: a D-list star clinging to celebrity.`\
 https://nytimes.com/2026/03/09/arts/television/monti-rock-iii-dead.html
@@ -16,9 +20,9 @@ https://nytimes.com/2026/03/09/style/chanel-shopping-blazy-paris-fashion-week.ht
 
 **Fashionable Wall Street Bros Set Off a Social Media Storm**\
 `They said yes to an Interview magazine fashion shoot. Then came the haters.`\
-https://nytimes.com/2026/03/09/style/fashionable-wall-street-bros-set-off-a-social-media-storm.html
+https://nytimes.com/2026/03/09/style/finance-bros-wall-street-fashion.html
 
-**Broncos releasing LB Dre Greenlaw after one season in Denver: Report**\
+**Broncos releasing LB Dre Greenlaw after one season in Denver: Source**\
 `Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
 https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/nyregion/verdict-alexander-brothers-sex-trafficki
 **Australia Offers Five Humanitarian Visas to Iran’s Woman’s Soccer Team**\
 `Prime Minister Anthony Albanese of Australia told reporters on Monday that five humanitarian visas were being offered to some members of the Iranian women’s soccer team, after concerns were raised over the women’s safety upon returning to Iran.`\
 https://nytimes.com/video/world/australia/100000010764782/australia-visas-iran-women-soccer-team.html
-
-**Two Men Face Terrorism Charges in Bomb Attack at Gracie Mansion**\
-`Federal prosecutors charged two men with attempting to support the Islamic State after they attempted to set off homemade explosives at Gracie Mansion on Saturday. The bombs did not detonate and no one was injured.`\
-https://nytimes.com/video/nyregion/100000010763567/bomb-attack-mamdani-gracie-mansion-terrorism.html
 

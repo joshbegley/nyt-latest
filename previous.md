@@ -1,3 +1,11 @@
+**Monti Rock III, Gleefully Untalented ‘Tonight Show’ Favorite, Dies at 86**\
+`He couldn’t sing, dance or tell funny stories. But Johnny Carson loved him and his persona: a D-list star clinging to celebrity.`\
+https://nytimes.com/2026/03/09/arts/television/monti-rock-iii-dead.html
+
+**The Iran War (for Now) Dominates the Midterm Conversation**\
+`Democrats are focused on the economy, while Republicans wish they were focused on the economy.`\
+https://nytimes.com/2026/03/09/us/politics/iran-war-midterm-election-economy.html
+
 **Iran War Sends Tremors Through the Global Economy**\
 `Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/australia/100000010764782/australia-visas-iran-w
 **Two Men Face Terrorism Charges in Bomb Attack at Gracie Mansion**\
 `Federal prosecutors charged two men with attempting to support the Islamic State after they attempted to set off homemade explosives at Gracie Mansion on Saturday. The bombs did not detonate and no one was injured.`\
 https://nytimes.com/video/nyregion/100000010763567/bomb-attack-mamdani-gracie-mansion-terrorism.html
-
-**Travis Kelce, Chiefs working to finalize 1-year deal worth up to $15 million: Sources**\
-`Kelce finished fourth among all NFL tight ends with 851 receiving yards in 2025, showing renewed burst after extra conditioning work.`\
-https://nytimes.com/athletic/6951456/2026/03/09/chiefs-travis-kelce-returning-2026/
-
-**NBA cancels Hawks' planned 'Magic City' promotion**\
-`The team originally announced plans to honor Magic City last month.`\
-https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-night-promotion/
 

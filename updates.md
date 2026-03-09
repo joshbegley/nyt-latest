@@ -1,3 +1,11 @@
+**Monti Rock III, Gleefully Untalented ‘Tonight Show’ Favorite, Dies at 86**\
+`He couldn’t sing, dance or tell funny stories. But Johnny Carson loved him and his persona: a D-list star clinging to celebrity.`\
+https://nytimes.com/2026/03/09/arts/television/monti-rock-iii-dead.html
+
+**The Iran War (for Now) Dominates the Midterm Conversation**\
+`Democrats are focused on the economy, while Republicans wish they were focused on the economy.`\
+https://nytimes.com/2026/03/09/us/politics/iran-war-midterm-election-economy.html
+
 **Iran War Sends Tremors Through the Global Economy**\
 `Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
