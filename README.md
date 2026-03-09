@@ -1,3 +1,7 @@
+**Meet NWSL expansion team Boston Legacy**\
+`The Legacy had to overcome early setbacks and a long lead time, but their time in the NWSL is finally here.`\
+https://nytimes.com/athletic/7085779/2026/03/09/nwsl-boston-legacy-team-influence-soccer/
+
 **Cardinals agree to free-agent deal with former Falcons RB Tyler Allgeier**\
 `Tyler Allgeier, who ran for 2,876 yards and 18 touchdowns in four seasons with the Falcons, has signed a free-agent deal with the Cardinals.`\
 https://nytimes.com/athletic/7084005/2026/03/09/tyler-allgeier-cardinals-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/us/politics/judge-trump-immigration-appeals.html
 **Trump’s War Becomes World’s Latest Economic Hazard**\
 `The president insists conflict with Iran will be brief, but world leaders are preparing for severe economic blowback.`\
 https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.html
-
-**AP men's hoops Top 25: Duke holds at No. 1; Illinois, Virginia enter top 10**\
-`Duke, Michigan, Arizona and Florida are the top four teams in the AP poll — and the likely NCAA Tournament No. 1 seeds.`\
-https://nytimes.com/athletic/7101835/2026/03/09/ap-top-25-mens-basketball-duke-arizona-virginia/
 
