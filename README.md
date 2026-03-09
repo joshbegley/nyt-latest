@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2026/03/09/climate/home-insurance-credit-scores.html
 
 **Fire Breaks Out Near Glasgow Central Station**\
-`Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close through Monday morning, the authorities said.`\
+`Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close, the authorities said.`\
 https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html
 
 **Nebraska beats Iowa in overtime to end 4-game skid in rivalry**\
