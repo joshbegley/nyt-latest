@@ -1,3 +1,7 @@
+**U.S. Gasoline Prices, Rising Again, Are Now Up 17% Since Conflict Started**\
+`Interruptions in oil supplies in the Middle East, source of much of the world’s energy, are trickling down to what American drivers pay when they fill up.`\
+https://nytimes.com/2026/03/09/business/gasoline-prices-iran.html
+
 **The Former Coal Miner in the Middle of the A.I. Data Center Boom**\
 `Josh Payne, the chief executive of Nscale, raised $2 billion from investors. Sheryl Sandberg, the former Facebook executive, is joining his board.`\
 https://nytimes.com/2026/03/09/business/nscale-ai-data-center-boom.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-th
 **Live Updates: Iran Names Khamenei’s Son Supreme Leader**\
 `Top clerics said Mojtaba Khamenei will succeed his slain father, Ayatollah Ali Khamenei. The Israeli military said it was attacking Tehran and Beirut early Monday, and Iran said it had launched missiles toward Israel.`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon
-
-**Surging Oil Prices Tank Stocks in Asia**\
-`Asian markets tumbled on Monday as Middle East tensions and spiking oil prices sparked a mass exit from the region’s previously booming stocks.`\
-https://nytimes.com/2026/03/09/business/stocks-iran-oil.html
 
