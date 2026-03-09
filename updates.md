@@ -1,3 +1,7 @@
+**Trent McDuffie, Rams agree on four-year, $124M extension: Sources**\
+`The new contract will begin in 2027, as he will finish out his rookie contract with a fifth-year option season this year.`\
+https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
+
 **Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
 `Expert analysis from NASCAR's fourth race of the season, the Straight Talk Wireless 500 near Phoenix.`\
 https://nytimes.com/athletic/7100103/2026/03/08/ryan-blaney-phoenix-penske-nascar/
