@@ -1,3 +1,7 @@
+**Trump’s Offer to Iran’s Women’s Soccer Team Is an About-Face on Asylum**\
+`The dissonance between President Trump’s hard-line immigration policies and his call to grant asylum to the Iranian athletes was striking.`\
+https://nytimes.com/2026/03/09/us/politics/trumps-offer-to-irans-womens-soccer-team-is-an-about-face-on-asylum.html
+
 **RB Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
 `Dowdle rushed for 1,076 yards and six touchdowns on 236 carries for Carolina last season.`\
 https://nytimes.com/athletic/7094596/2026/03/09/rico-dowdle-steelers-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102691/2026/03/09/sec-commissioner-greg-sankey-nca
 **After Global Economy Shudders, Trump Zigzags on Whether War Will End Soon**\
 `Oil prices and stocks initially swung wildly, and Iran’s foreign minister promised “surprises,” calling the strikes against his country “Operation Epic Mistake.”`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-war-israel-us.html
-
-**Phillies, Jesús Luzardo agree to five-year, $135 million extension**\
-`Luzardo's new deal begins in 2027 and takes him through 2031. He was slated to become a free agent after this season.`\
-https://nytimes.com/athletic/7102926/2026/03/09/jesus-luzardo-phillies-extension-contract/
 
