@@ -1,3 +1,11 @@
+**Broncos, LB Alex Singleton agree to new two-year, $15.5 million deal: Source**\
+`Denver locks down one of its key defensive cogs, avoids losing a top tackler in free agency.`\
+https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/
+
+**Australia Grants Refugee Status to 5 Members of Iranian Women’s Soccer Team**\
+`Concern for the safety of the players, in Australia for a tournament, had grown after Iranian state media criticized them for not singing the national anthem at a match.`\
+https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
+
 **Fantasy football offseason moves: K9 to KC; Travis Etienne signs with Saints**\
 `Spinning all the NFL offseason player movement of consequence for fantasy football 2026, including Kenneth Walker, Travis Etienne and more.`\
 https://nytimes.com/athletic/7101829/2026/03/09/fantasy-football-2026-offseason-moves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102633/2026/03/09/michael-pittman-jr-steelers-colt
 **Ukraine Lends a Hand**\
 `Countries targeted by Iranian drones are eager to tap into Ukrainian expertise to shoot them down.`\
 https://nytimes.com/2026/03/09/world/ukraine-iran-drones-war-oil-khamenei.html
-
-**Bombing Iran to Rubble Won’t Give It Life**\
-`Only when the U.S.-Israeli bombing of Iran comes to a halt, without destroying the state, can the Iranian people sort out their fate.`\
-https://nytimes.com/2026/03/09/opinion/iran-israel-united-states-bombing.html
-
-**Cowboys agree to 3-year deal with safety Jalen Thompson**\
-`Thompson is a rangy free safety and is expected to start alongside Malik Hooker in the secondary.`\
-https://nytimes.com/athletic/7102533/2026/03/09/jalen-thompson-cowboys-nfl-free-agency-2026/
 
