@@ -1,3 +1,7 @@
+**The Former Coal Miner in the Middle of the A.I. Data Center Boom**\
+`Josh Payne, the chief executive of Nscale, raised $2 billion from investors. Sheryl Sandberg, the former Facebook executive, is joining his board.`\
+https://nytimes.com/2026/03/09/business/nscale-ai-data-center-boom.html
+
 **Andrew Kurka is going for Paralympic gold. After, his Alaska bed and breakfast awaits**\
 `The para Alpine skier is back for one more medal shot. His true calling is back home in the wilderness of Alaska.`\
 https://nytimes.com/athletic/7099582/2026/03/09/andrew-kurka-paralympics-alaska-alpine-skiing-bed-and-breakfast/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon
 **Surging Oil Prices Tank Stocks in Asia**\
 `Asian markets tumbled on Monday as Middle East tensions and spiking oil prices sparked a mass exit from the region’s previously booming stocks.`\
 https://nytimes.com/2026/03/09/business/stocks-iran-oil.html
-
-**Lewandowski talks longevity: 'I thought because I was skinny I could eat whatever I wanted'**\
-`The 37-year-old is in his 16th season at the elite level and is still as prolific as ever. How does he do it? He explains his secrets...`\
-https://nytimes.com/athletic/7087130/2026/03/09/robert-lewandowski-interview-barcelona-longevity/
 

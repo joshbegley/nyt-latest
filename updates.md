@@ -1,3 +1,7 @@
+**The Former Coal Miner in the Middle of the A.I. Data Center Boom**\
+`Josh Payne, the chief executive of Nscale, raised $2 billion from investors. Sheryl Sandberg, the former Facebook executive, is joining his board.`\
+https://nytimes.com/2026/03/09/business/nscale-ai-data-center-boom.html
+
 **Andrew Kurka is going for Paralympic gold. After, his Alaska bed and breakfast awaits**\
 `The para Alpine skier is back for one more medal shot. His true calling is back home in the wilderness of Alaska.`\
 https://nytimes.com/athletic/7099582/2026/03/09/andrew-kurka-paralympics-alaska-alpine-skiing-bed-and-breakfast/
