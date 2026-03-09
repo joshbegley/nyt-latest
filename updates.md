@@ -1,3 +1,11 @@
+**NFL announces 2026 compensatory draft picks: Eagles, Ravens, Steelers receive 4 each**\
+`The NFL announced the 33 compensatory draft picks that have been awarded for the 2026 NFL Draft.`\
+https://nytimes.com/athletic/7088842/2026/03/09/nfl-draft-2026-comp-picks-steelers-ravens-vikings/
+
+**Kenneth Walker is 4th to change teams after winning SB MVP: Here's how others fared**\
+`Seahawks running back has agreed to a deal with the Chiefs, joining a short list of players to make a move after winning Super Bowl MVP.`\
+https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
+
 **Kenneth Walker III joins short list of Super Bowl MVPs who changed teams**\
 `Kenneth Walker III joins a short list of Super Bowl MVP's to play for different team the next season.`\
 https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/

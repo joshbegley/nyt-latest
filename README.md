@@ -1,3 +1,19 @@
+**Karen Petrou, Influential Fiscal Policy Analyst and Critic, Dies at 72**\
+`Her insights on financial regulations and monetary policy guided big banks and Washington policymakers.`\
+https://nytimes.com/2026/03/09/business/karen-petrou-dead.html
+
+**F.D.A. Opens Door to More Flavored E-Cigarettes**\
+`The agency is proposing allowing other tastes for vapes, like mint, coffees, spices or tea, to appeal to adults. At the same time, illicit candy-flavored types aimed at teenagers have flooded the market.`\
+https://nytimes.com/2026/03/09/health/fda-e-cigarettes-flavors.html
+
+**USMNT's Pochettino expected to attend Atletico Madrid vs Tottenham**\
+`The 54-year-old USMNT head coach will be an official guest of Atletico, and may have a watching brief over midfielder Johnny Cardoso.`\
+https://nytimes.com/athletic/7102486/2026/03/09/pochettino-usmnt-tottenham-atletico-madrid/
+
+**Tua Tagovailoa to sign with Falcons as former Dolphins starter looks for reset**\
+`Tagovailoa was benched late last season as the Dolphins prepared to move on from the No. 5 pick from the 2020 draft.`\
+https://nytimes.com/athletic/7091521/2026/03/09/tua-tagovailoa-falcons-nfl-free-agency-2026/
+
 **NFL announces 2026 compensatory draft picks: Eagles, Ravens, Steelers receive 4 each**\
 `The NFL announced the 33 compensatory draft picks that have been awarded for the 2026 NFL Draft.`\
 https://nytimes.com/athletic/7088842/2026/03/09/nfl-draft-2026-comp-picks-steelers-ravens-vikings/
@@ -13,25 +29,4 @@ https://nytimes.com/athletic/7099981/2026/03/09/landon-emenalo-michael-seb-chels
 **Edge rusher Odafe Oweh agrees to deal with Commanders**\
 `Oweh was traded from the Ravens to the Chargers last season and responded with 10.5 sacks in L.A., including the playoffs.`\
 https://nytimes.com/athletic/7089631/2026/03/09/odafe-oweh-commanders-nfl-free-agency-2026/
-
-**The Quest to Save One Baby Gorilla From an Uncertain Fate**\
-`Social media is fueling a black market for infant primates like Bili, who was captured in the wild and trafficked.`\
-https://nytimes.com/interactive/2026/03/09/magazine/bili-wildlife-trafficking-illegal-gorilla-trade.html
-
-**Bengals, Boye Mafe agree to 3-year, $60 million deal: Source**\
-`Mafe's numbers dipped in a rotation role in 2025, but he had nine sacks for the Seahawks in 2023.`\
-https://nytimes.com/athletic/7090120/2026/03/09/boye-mafe-bengals-nfl-free-agency-2026/
-
-**Landon Emenalo renews Chelsea contract through to 2031**\
-`The 18-year-old, son of former Chelsea technical director Michael Emenalo, is one of the club’s most highly-regarded academy prospect.`\
-https://nytimes.com/athletic/7102221/2026/03/09/emenalo-chelsea-contract-length/
-
-**Oman Becomes Unlikely Hub for Evacuees Fleeing War in Gulf**\
-`The international airport in Muscat, the Omani capital, has remained open while fighting in the region has escalated.`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-war-oman-evacuations.html
-
-**Submit your questions for Murat Ates’ Winnipeg Jets mailbag**\
-`<p>The NHL trade deadline has come and gone and the Winnipeg Jets are in the midst of their longest homestand of the season — and making a late push for the playoffs. What’s on your mind? Drop you questions here and Murat will answer them later this week.</p>
-`\
-https://nytimes.com/athletic/7102422/2026/03/09/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-6/
 
