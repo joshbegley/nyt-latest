@@ -1,3 +1,19 @@
+**More Strong Storms Expected After Deadly Midwest Tornadoes**\
+`More than 70 million people are expected to be at some risk for severe weather on Tuesday.`\
+https://nytimes.com/2026/03/09/weather/tornado-forecast-midwest-michigan-chicago.html
+
+**Video Captures Apparent Strike Near Boys’ School in Iran**\
+`A communications tower seemed to be the intended target, according to satellite imagery analysis. Iranian state media reported that a boy had been killed in the explosion.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-video-explosion-boys-school.html
+
+**Linebacker Jaelan Phillips agrees to 4-year deal with Panthers**\
+`The Eagles acquired Phillips in a trade last season.`\
+https://nytimes.com/athletic/7090485/2026/03/09/jaelan-phillips-panthers-nfl-free-agency-2026/
+
+**Scoop City: Biggest swing in Ravens history**\
+`Unpacking the Ravens' blockbuster, the best players potentially available at each position and a busy morning in Miami`\
+https://nytimes.com/athletic/7101731/2026/03/09/ravens-trade-maxx-crosby-free-agency-primer/
+
 **Rams agree to sign former Chiefs CB Jaylen Watson: Sources**\
 `Watson was one of just two 2025 cornerbacks who played half their team’s coverage snaps and did not allow a TD, per Pro Football Focus.`\
 https://nytimes.com/athletic/7088038/2026/03/09/jaylen-watson-rams-nfl-free-agency-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/09/business/media/colman-mccarthy-dead.html
 **Ohio State University President Resigns Over ‘Inappropriate Relationship’**\
 `The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
 https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
-
-**Super Bowl MVP Kenneth Walker III agrees to 3-year deal with Chiefs: Sources**\
-`Walker rushed for 161 yards to become the first running back in 28 years to win the Super Bowl MVP.`\
-https://nytimes.com/athletic/7087231/2026/03/09/kenneth-walker-nfl-free-agent-2026/
-
-**IndyCar to race past iconic Washington landmarks in 1.7-mile Freedom 250 course**\
-`IndyCar on Monday unveiled the course for the 1.7-mile, seven-turn course that will twice pass through the National Mall.`\
-https://nytimes.com/athletic/7101412/2026/03/09/indycar-washington-dc-race-course-layout-freedom-250/
-
-**G7 Countries Hold Off on Releasing Emergency Oil Supplies**\
-`Finance ministers for the seven industrialized countries met on Monday and said they would consider releasing oil from reserves but were not ready to do so now.`\
-https://nytimes.com/2026/03/09/business/energy-environment/iran-g7-oil-reserves.html
-
-**Game of the year? 10 more thoughts on Sabres' unforgettable win over Lightning**\
-`This was one of those games that people in attendance will remember for the rest of their lives.`\
-https://nytimes.com/athletic/7101463/2026/03/09/sabres-lightning-nhl-score-highlights-fights/
 

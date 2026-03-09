@@ -1,3 +1,11 @@
+**Rams agree to sign former Chiefs CB Jaylen Watson: Sources**\
+`Watson was one of just two 2025 cornerbacks who played half their team’s coverage snaps and did not allow a TD, per Pro Football Focus.`\
+https://nytimes.com/athletic/7088038/2026/03/09/jaylen-watson-rams-nfl-free-agency-2026/
+
+**The Far-Right Influencer Jake Lang has a History of Attracting Violence**\
+`Mr. Lang, whose protest at Gracie Mansion on Saturday led to a bomb being thrown outside of Mayor Zohran Mamdani’s new home, previously drew counterprotesters to a demonstration in Minneapolis.`\
+https://nytimes.com/2026/03/09/nyregion/jake-lang-protest-manhattan-minnesota.html
+
 **USMNT Tracker: Balogun, Pepi and Wright all score as competition for places hots up**\
 `Three striking options for Mauricio Pochettino are in fine form ahead of the World Cup, and Christian Pulisic is approaching his best again`\
 https://nytimes.com/athletic/7101226/2026/03/09/balogun-pepi-wright-usmnt-no-9/
@@ -14,7 +22,7 @@ https://nytimes.com/2026/03/09/business/media/colman-mccarthy-dead.html
 `The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
 https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
 
-**Super Bowl MVP Kenneth Walker III agrees to deal with Chiefs: Sources**\
+**Super Bowl MVP Kenneth Walker III agrees to 3-year deal with Chiefs: Sources**\
 `Walker rushed for 161 yards to become the first running back in 28 years to win the Super Bowl MVP.`\
 https://nytimes.com/athletic/7087231/2026/03/09/kenneth-walker-nfl-free-agent-2026/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/business/energy-environment/iran-g7-oil-reserves.
 **Game of the year? 10 more thoughts on Sabres' unforgettable win over Lightning**\
 `This was one of those games that people in attendance will remember for the rest of their lives.`\
 https://nytimes.com/athletic/7101463/2026/03/09/sabres-lightning-nhl-score-highlights-fights/
-
-**An Amish Avatar and an A.I. Monk Are Pitching Supplements on Social Media**\
-`Influencers have long hawked supplements on platforms like Instagram and TikTok. Increasingly, the influencers are fake.`\
-https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-media-supplements.html
-
-**Amazon Veteran to Lead Simon & Schuster**\
-`Greg Greeley, who once ran Amazon’s books and media business, will succeed Jonathan Karp as chief executive at one of the largest book publishers in the U.S.`\
-https://nytimes.com/2026/03/09/books/simon-schuster-greg-greeley.html
 
