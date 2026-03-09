@@ -1,3 +1,11 @@
+**Fire Breaks Out Near Glasgow Central Station**\
+`Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close through Monday morning, the authorities said.`\
+https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html
+
+**Nebraska beats Iowa in overtime to end 4-game skid in rivalry**\
+`What began as a contrived rivalry has morphed into a competition defined in large part by disdain.`\
+https://nytimes.com/athletic/7100354/2026/03/09/nebraska-beats-iowa-overtime-four-game-skid-ends/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>March Madness is less than a week away, but we&#8217;re not shutting down the football talk in these parts.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/7084391/2026/03/09/how-fred-warner-confuses-quarter
 **Is the Trial of Erdogan’s Top Rival More About Corruption or Politics?**\
 `Prosecutors accuse the former Istanbul mayor Ekrem Imamoglu of leading a criminal scheme. His supporters say Turkey’s president is trying to eliminate a political foe.`\
 https://nytimes.com/2026/03/09/world/middleeast/turkey-erdogan-mayor-ekrem-imamoglu.html
-
-**Garett Bolles: 'I am the best LT in football.' Watch him prove why using film**\
-`So, what does it take to be the best left tackle in football? Garett Bolles broke down his own film to spell out four critical steps.`\
-https://nytimes.com/athletic/7087553/2026/03/09/garett-bolles-broncos/
-
-**The Suburb That Won’t Sleep**\
-`Food is bringing thousands of people together to an unexpected place: a plaza west of Toronto. Some fear it’s tearing a neighborhood apart.`\
-https://nytimes.com/2026/03/09/world/canada/mississauga-toronto-ridgeway-immigration.html
 
