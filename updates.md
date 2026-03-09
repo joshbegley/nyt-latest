@@ -1,3 +1,7 @@
+**U.S. Tomahawk Hit Naval Base Beside Iranian School, Video Shows**\
+`The evidence contradicts President Trump’s claim that Iran was responsible for a strike at the school that killed 175 people, most of them children.`\
+https://nytimes.com/2026/03/08/world/middleeast/iran-minab-school-strike.html
+
 **Comeback win of the season sends the Penguins on the road in style**\
 `The Penguins roared back to stun the Bruins in an unlikely overtime thriller, consolidating their hold on a divisional spot.`\
 https://nytimes.com/athletic/7100117/2026/03/08/penguins-comeback-win-mantha-novak-silovs-bruins/
