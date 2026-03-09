@@ -1,3 +1,11 @@
+**Fire Breaks Out Near Glasgow Central Station**\
+`Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close through Monday morning, the authorities said.`\
+https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html
+
+**Nebraska beats Iowa in overtime to end 4-game skid in rivalry**\
+`What began as a contrived rivalry has morphed into a competition defined in large part by disdain.`\
+https://nytimes.com/athletic/7100354/2026/03/09/nebraska-beats-iowa-overtime-four-game-skid-ends/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>March Madness is less than a week away, but we&#8217;re not shutting down the football talk in these parts.</p>
 <p>Leave your questions here. Please include your city.</p>
