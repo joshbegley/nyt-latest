@@ -1,3 +1,7 @@
+**Trainer pleads guilty to role in college basketball point-shaving scheme**\
+`Jalen Smith was alleged to have helped perpetrate a sprawling scheme involving at least 17 schools.`\
+https://nytimes.com/athletic/7102543/2026/03/09/ncaa-college-basketball-gambling-investigation-guilty-plea/
+
 **Panama's Jonathan Araúz has altercation with manager José Mayorga during WBC loss**\
 `Araúz yelled at his manager as he came off the field following a ninth-inning at-bat and had to be physically restrained.`\
 https://nytimes.com/athletic/7102530/2026/03/09/panama-jonathan-arauz-jose-mayorga-altercation-wbc/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/09/business/karen-petrou-dead.html
 **F.D.A. Opens Door to More Flavored E-Cigarettes**\
 `The agency is proposing allowing other tastes for vapes, like mint, coffees, spices or tea, to appeal to adults. At the same time, illicit candy-flavored types aimed at teenagers have flooded the market.`\
 https://nytimes.com/2026/03/09/health/fda-e-cigarettes-flavors.html
-
-**USMNT's Pochettino expected to attend Atletico Madrid vs Tottenham**\
-`The 54-year-old USMNT head coach will be an official guest of Atletico, and may have a watching brief over midfielder Johnny Cardoso.`\
-https://nytimes.com/athletic/7102486/2026/03/09/pochettino-usmnt-tottenham-atletico-madrid/
 

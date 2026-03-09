@@ -1,3 +1,7 @@
+**Trainer pleads guilty to role in college basketball point-shaving scheme**\
+`Jalen Smith was alleged to have helped perpetrate a sprawling scheme involving at least 17 schools.`\
+https://nytimes.com/athletic/7102543/2026/03/09/ncaa-college-basketball-gambling-investigation-guilty-plea/
+
 **Panama's Jonathan Araúz has altercation with manager José Mayorga during WBC loss**\
 `Araúz yelled at his manager as he came off the field following a ninth-inning at-bat and had to be physically restrained.`\
 https://nytimes.com/athletic/7102530/2026/03/09/panama-jonathan-arauz-jose-mayorga-altercation-wbc/
