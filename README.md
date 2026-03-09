@@ -1,3 +1,11 @@
+**Here’s What Happened in the Conflict on Monday**\
+`President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
+https://nytimes.com/2026/03/09/world/middleeast/heres-what-happened-in-the-conflict-on-monday.html
+
+**Murder Charge Is Dropped Against Man Who Fired Gun at Chiefs Super Bowl Parade**\
+`Dominic M. Miller, 20, was sentenced to two years in jail as part of a plea agreement related to the 2024 killing of Lisa Lopez-Galvan. He has already served most of his time.`\
+https://nytimes.com/2026/03/09/us/chiefs-super-bowl-parade-shooter-plea-deal.html
+
 **Epstein’s Remote Zorro Ranch Is Searched by New Mexico Investigators**\
 `Some of the disgraced financier’s victims have said they were trafficked at the property south of Santa Fe, where the nearest neighbors are miles away.`\
 https://nytimes.com/2026/03/09/us/epstein-new-mexico-zorro-ranch-search.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-
 **Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Source**\
 `Seumalo was a Pro Bowl selection in 2024.`\
 https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
-
-**Raiders agree to deals with linebackers Nakobe Dean, Quay Walker**\
-`Dean rebounded from a devastating knee injury that occurred in 2024, while Walker played well over four seasons in Green Bay.`\
-https://nytimes.com/athletic/7102874/2026/03/09/nakobe-dean-raiders-nfl-free-agency-2026/
-
-**SEC prepared to create own rules if necessary, commissioner Greg Sankey says**\
-`Sankey says his preference is for the SEC not to “go our own way,” but also says “we can't go on as we are.”`\
-https://nytimes.com/athletic/7102691/2026/03/09/sec-commissioner-greg-sankey-ncaa-policy/
 
