@@ -1,3 +1,15 @@
+**How to watch Nicholls vs. Incarnate Word women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Nicholls Colonels play the Incarnate Word Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100956/2026/03/09/nicholls-vs-incarnate-word-stream-how-to-watch-march-9/
+
+**American runner wins L.A. Marathon by closest margin in history**\
+`Nathan Martin, a high school coach, chased down Michael Kimani Kamau to finish in a time of 2:11:17 on Sunday. `\
+https://nytimes.com/athletic/7100863/2026/03/09/la-marathon-nathan-martin-history-sprint/
+
+**Italian football is painfully slow but curiously enjoyable**\
+`Serie A now seems to exist in its own slow-motion bubble compared to other major leagues`\
+https://nytimes.com/athletic/7100835/2026/03/09/italian-football-tactics/
+
 **Men's NCAA Tournament bubble watch: Does anyone want the final at-large spots?**\
 `Most of the bubble belly-flopped on the regular season's final weekend. What does it mean for Championship Week?`\
 https://nytimes.com/athletic/7099615/2026/03/09/mens-ncaa-tournament-bubble-watch-championship-week/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/7100403/2026/03/09/fanatics-flag-football-classic-b
 `Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
 `\
 https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
-
-**Later WBC round could feature Twins legends Johan Santana, Justin Morneau in different dugouts**\
-`Santana and Morneau haven't coached professionally before, but each jumped at a chance to coach his homeland's team in the WBC.`\
-https://nytimes.com/athletic/7097633/2026/03/09/johan-santana-justin-morneau-world-baseball-classic-coaches/
-
-**Ten Ohio State players I'm watching closely: What will we learn this spring?**\
-`Ohio State has one of the most talented rosters in the country, as usual, but the next month will be pivotal for several rising players.`\
-https://nytimes.com/athletic/7090515/2026/03/09/ohio-state-football-spring-practice-portal-roster/
-
-**Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
-`The writer and activist Rebecca Solnit on how political change happens and taking the long view.`\
-https://nytimes.com/video/podcasts/100000010763063/rebecca-solnit-says-the-lefts-next-hero-is-already-here.html
 

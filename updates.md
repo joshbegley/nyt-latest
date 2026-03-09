@@ -1,3 +1,20 @@
+**How to watch Nicholls vs. Incarnate Word women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Nicholls Colonels play the Incarnate Word Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100956/2026/03/09/nicholls-vs-incarnate-word-stream-how-to-watch-march-9/
+
+**American runner wins L.A. Marathon by closest margin in history**\
+`Nathan Martin, a high school coach, chased down Michael Kimani Kamau to finish in a time of 2:11:17 on Sunday. `\
+https://nytimes.com/athletic/7100863/2026/03/09/la-marathon-nathan-martin-history-sprint/
+
+**Italian football is painfully slow but curiously enjoyable**\
+`Serie A now seems to exist in its own slow-motion bubble compared to other major leagues`\
+https://nytimes.com/athletic/7100835/2026/03/09/italian-football-tactics/
+
+**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
+`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
+`\
+https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
+
 **TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
 `Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
 `\
