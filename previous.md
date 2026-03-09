@@ -1,3 +1,27 @@
+**Men's NCAA Tournament bubble watch: Does anyone want the final at-large spots?**\
+`Most of the bubble belly-flopped on the regular season's final weekend. What does it mean for Championship Week?`\
+https://nytimes.com/athletic/7099615/2026/03/09/mens-ncaa-tournament-bubble-watch-championship-week/
+
+**Abramovich warns government he will fight any attempt to confiscate Chelsea sale proceeds**\
+`The £2.35billion ($3.1bn) generated from the sale of Chelsea in May 2022 remains frozen in a UK bank account.`\
+https://nytimes.com/athletic/7100772/2026/03/09/roman-abramovich-ukraine-funds-uk-government/
+
+**Antonelli did enough in Australia to show he is a title contender**\
+`George Russell won the opening F1 race of the 2026 season, but his young teammate Kimi Antonelli impressed too`\
+https://nytimes.com/athletic/7099918/2026/03/09/kimi-antonelli-f1-australian-gp-mercedes/
+
+**How to watch the Los Angeles Dodgers: Local TV, national broadcasts for reigning champs**\
+`The Dodgers are pursuing a World Series three-peat. Here's how to watch all 162 regular-season games this year. `\
+https://nytimes.com/athletic/7067123/2026/03/09/los-angeles-dodgers-ohtani-how-to-watch-2026/
+
+**Trump Administration Live Updates: U.S. Says Boat Strike in the Pacific Kills 6**\
+``\
+https://nytimes.com/live/2026/03/09/us/trump-news
+
+**Burrow, Hurts to join Brady, Daniels in Fanatics Flag Football Classic**\
+`Tom Brady, Jalen Hurts, Joe Burrow, and Jayden Daniels will captain teams facing the U.S. flag football squad.`\
+https://nytimes.com/athletic/7100403/2026/03/09/fanatics-flag-football-classic-brady-paul-team-usa/
+
 **TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
 `Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
 `\
@@ -14,28 +38,4 @@ https://nytimes.com/athletic/7090515/2026/03/09/ohio-state-football-spring-pract
 **Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
 `The writer and activist Rebecca Solnit on how political change happens and taking the long view.`\
 https://nytimes.com/video/podcasts/100000010763063/rebecca-solnit-says-the-lefts-next-hero-is-already-here.html
-
-**Inside the mind of Yankees' Ben Rice, one of MLB's unluckiest hitters since his debut**\
-`Being unlucky at the plate — based on batted-ball data — has defined Rice's first two seasons. He's trusting the process and aiming higher. `\
-https://nytimes.com/athletic/7090904/2026/03/09/ben-rice-yankees-unlucky-hitter-stats/
-
-**Cubs notes: Jameson Taillon's bounce back at WBC, OF battle, injuries and more**\
-`Taillon was shaky to start spring training, but he pitched well for Team Canada against Panama in the World Baseball Classic.`\
-https://nytimes.com/athletic/7100241/2026/03/09/jameson-taillon-cubs-wbc-start-craig-counsell/
-
-**Brayden Schenn's almost-immediate return to St. Louis will be 'an emotional game'**\
-`Schenn played nine seasons in St. Louis and won a Stanley Cup with the Blues in 2019. He'll be in the other dressing room Tuesday.`\
-https://nytimes.com/athletic/7096840/2026/03/09/brayden-schenn-st-louis-blues-trade-islanders-return/
-
-**Why Toronto would be foolish to lose hope in Matthews: Monday Morning Leafs Report**\
-`It's been a while since the Leafs have seen Auston Matthews at his best. That doesn't mean the situation is hopeless.`\
-https://nytimes.com/athletic/7099355/2026/03/09/maple-leafs-auston-matthews-production-coaching-linemates-power-play/
-
-**How to watch the 2026 New York Yankees: TV, streaming for Aaron Judge and Bronx Bombers**\
-`It's complicated amid regional and national changes, but here's your guide to watching all 162+ Yankees games this season.`\
-https://nytimes.com/athletic/7076718/2026/03/09/new-york-yankees-aaron-judge-how-to-watch/
-
-**Foligno brothers excited to join talents for Wild: 'We don't take this for granted'**\
-`Nick made his debut against the Avalanche, but negotiations are still underway for who has to change his nameplate when Marcus returns.`\
-https://nytimes.com/athletic/7100195/2026/03/09/wild-nick-marcus-foligno-brothers-teammates/
 
