@@ -1,3 +1,23 @@
+**NBA Power Rankings: Spurs, Knicks, Celtics get A's for season's third quarter**\
+`This segment of the season is the most volatile from a roster standpoint due to the trade deadline.`\
+https://nytimes.com/athletic/7100970/2026/03/09/nba-power-rankings-spurs-knicks-celtics/
+
+**Rashan Gary trade grades: Reverberations of the Micah Parsons trade**\
+`The Cowboys bolstered their defensive line via trade (again).`\
+https://nytimes.com/athletic/7101355/2026/03/09/rashan-gary-packers-cowboys-trade-grades/
+
+**After Leaving the Kennedy Center, an Opera Company Shows Signs of Life**\
+`Washington National Opera managed to resume performances within two months of its abrupt departure. But there are still challenges ahead.`\
+https://nytimes.com/2026/03/09/arts/music/washington-national-opera-treemonisha.html
+
+**My Pasta With Garlicky Anchovies and Broccoli Rabe**\
+`By Melissa Clark`\
+https://nytimes.com/2026/03/09/dining/my-pasta-with-garlicky-anchovies-and-broccoli-rabe.html
+
+**What's next for Canucks now that NHL trade deadline has passed?**\
+`There are still levers for a rebuilding team like Vancouver to pull between now and the end of the season.`\
+https://nytimes.com/athletic/7100598/2026/03/09/vancouver-canucks-trades-standings-draft-2026/
+
 **Man City's Rodri avoids ban over referee comments, fined £80k**\
 `The 29-year-old had said that refereeing decisions during City's draw against Tottenham Hotspur in February were "not fair".`\
 https://nytimes.com/athletic/7101302/2026/03/09/rodri-manchester-city-referee-fa-fine/
@@ -18,24 +38,4 @@ https://nytimes.com/athletic/7101331/2026/03/09/jayson-tatum-return-celtics-stoc
 **Harry Styles Dances Himself Clean**\
 `The pop star’s new album revels in the communal experience of clubbing. But his gleaming songs don’t reveal much about the man behind them.`\
 https://nytimes.com/2026/03/09/arts/music/harry-styles-kiss-all-the-time-disco-occasionally-review.html
-
-**Minkah Fitzpatrick trade grades: New leader for Jets defense, Dolphins pay for past mistakes**\
-`The veteran safety, a former All-Pro, is the kind of locker-room presence the young Jets need.`\
-https://nytimes.com/athletic/7101280/2026/03/09/minkah-fitzpatrick-jets-dolphins-trade-grades/
-
-**How ICE Plans to Put 8,500 Immigrants in This Warehouse**\
-`Experts say the initial designs raise health, safety and security concerns.`\
-https://nytimes.com/interactive/2026/03/09/us/politics/ice-georgia-immigration-social-circle-warehouse.html
-
-**Justice Department and Live Nation Reach Settlement Terms in Antitrust Case**\
-`The agreement, which requires a judicial sign-off, would avoid a breakup of the concert giant. But states who joined the suit object to the terms.`\
-https://nytimes.com/2026/03/09/arts/music/live-nation-ticketmaster-antitrust-suit-settled.html
-
-**Pennsylvania State Trooper Is Fatally Shot During a Traffic Stop**\
-`A driver opened fired on Pennsylvania State Police Cpl. Tim O’Connor before killing himself on Sunday night, officials said.`\
-https://nytimes.com/2026/03/09/us/pennsylvania-state-trooper-killed.html
-
-**College baseball week in review: LSU reeling after losses to Northeastern, Sacramento State**\
-`LSU lost two nonconference games all of last season. It lost four in a week to begin this March.`\
-https://nytimes.com/athletic/7101140/2026/03/09/college-baseball-lsu-sacramento-state-high-point-florida/
 

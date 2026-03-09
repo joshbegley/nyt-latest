@@ -1,3 +1,11 @@
+**Coroner to raise concerns to FA over football's cardiac arrest measures**\
+`Valerie Charbit said she would be filing a report citing the circumstances in which Adam Ankers lost his life at the age of 17.`\
+https://nytimes.com/athletic/7101348/2026/03/09/fa-cardiac-arrests-football-coroner/
+
+**Anthropic Sues Pentagon Over ‘Supply Chain Risk’ Label**\
+`The artificial intelligence company filed two lawsuits against the Department of Defense, saying it was being punished on ideological grounds.`\
+https://nytimes.com/2026/03/09/technology/anthropic-sues-pentagon-supply-chain-risk-label.html
+
 **NBA Power Rankings: Spurs, Knicks, Celtics get A's for season's third quarter**\
 `This segment of the season is the most volatile from a roster standpoint due to the trade deadline.`\
 https://nytimes.com/athletic/7100970/2026/03/09/nba-power-rankings-spurs-knicks-celtics/
@@ -29,13 +37,4 @@ https://nytimes.com/2026/03/09/arts/dance/review-othello-lar-lubovitch-american-
 **NBA Rewind: Jayson Tatum changes Eastern Conference playoff calculus**\
 `Plus, who's hot (Spurs, Hawks) and not (Nuggets, Sixers), and a look at the battle for playoff seeding.`\
 https://nytimes.com/athletic/7099276/2026/03/09/nba-rewind-jayson-tatum-return-celtics-playoffs/
-
-**The Bounce: Victor Wembanyama should be in the dunk contest**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7101331/2026/03/09/jayson-tatum-return-celtics-stock-report-the-bounce/
-
-**Harry Styles Dances Himself Clean**\
-`The pop star’s new album revels in the communal experience of clubbing. But his gleaming songs don’t reveal much about the man behind them.`\
-https://nytimes.com/2026/03/09/arts/music/harry-styles-kiss-all-the-time-disco-occasionally-review.html
 
