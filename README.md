@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/08/us/politics/boat-strike-eastern-pacific-six-kille
 `No injuries were reported and a woman about the age of 30 was taken into custody, the Los Angeles Police Department said.`\
 https://nytimes.com/2026/03/08/arts/music/rihanna-house-shooting-beverly-hills.html
 
-**Coco Gauff retires injured for only second time in her career against Alex Eala at Indian Wells**\
+**Coco Gauff felt like arm 'was on fire' before retiring injured against Alex Eala at Indian Wells**\
 `Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
 https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-alex-eala-injury/
 
