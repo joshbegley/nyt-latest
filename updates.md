@@ -1,3 +1,27 @@
+**3 Prosecutors Are Running U.S. Attorney’s Office Unlawfully, Judge Rules**\
+`The ruling, which found that the three-person leadership team in New Jersey’s federal prosecutor’s office was illegal, will again throw the direction of the office into question.`\
+https://nytimes.com/2026/03/09/nyregion/us-attorney-nj-prosecutors.html
+
+**2 Teen Mariachi Musicians Released From ICE Detention**\
+`Representative Joaquin Castro of Texas led a delegation of Democrats to a South Texas detention center to press for the release of the brothers and their family.`\
+https://nytimes.com/2026/03/09/us/politics/mariachi-teens-immigration.html
+
+**Illinois 9th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 9th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-9-polls-2026.html
+
+**Illinois 8th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 8th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-8-polls-2026.html
+
+**Illinois 7th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 7th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-7-polls-2026.html
+
+**Illinois 2nd Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 2nd Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-2-polls-2026.html
+
 **Titans agree to free-agent deal with former Saints CB Alontae Taylor: Sources**\
 `Taylor hasn't missed a game in three seasons, with four interceptions, 41 pass breakups, three forced fumbles and seven sacks.`\
 https://nytimes.com/athletic/7095278/2026/03/09/alontae-taylor-titans-nfl-free-agency-2026/

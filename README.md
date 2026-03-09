@@ -1,3 +1,7 @@
+**Chargers get boost at TE with Charlie Kolar, a blocker with receiving upside**\
+`Kolar is an elite run blocker whose receiving skills were untapped as he played behind Mark Andrews and Isaiah Likely.`\
+https://nytimes.com/athletic/7102253/2026/03/09/charlie-kolar-chargers-nfl-free-agency-2026/
+
 **3 Prosecutors Are Running U.S. Attorney’s Office Unlawfully, Judge Rules**\
 `The ruling, which found that the three-person leadership team in New Jersey’s federal prosecutor’s office was illegal, will again throw the direction of the office into question.`\
 https://nytimes.com/2026/03/09/nyregion/us-attorney-nj-prosecutors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102270/2026/03/09/tremaine-edmunds-giants-free-age
 **Seahawks agree to re-sign CB Josh Jobe for 3 years, $24M: Source**\
 `Once a member of the Seahawks' practice squad, Jobe developed into a reliable starter on a Super Bowl-winning defense.`\
 https://nytimes.com/athletic/7088240/2026/03/09/josh-jobe-seahawks-nfl-free-agency-2026/
-
-**Commanders agree to deal to bring back veteran QB Marcus Mariota: Source**\
-`Mariota spent the past two seasons as a backup to Jayden Daniels in Washington, playing in 14 games in that span. `\
-https://nytimes.com/athletic/7098086/2026/03/09/marcus-mariota-commanders-nfl-free-agency-2026/
 
