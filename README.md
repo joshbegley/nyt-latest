@@ -1,3 +1,15 @@
+**How ICE Plans to Put 8,500 Immigrants in This Warehouse**\
+`Experts say the initial designs raise health, safety and security concerns.`\
+https://nytimes.com/interactive/2026/03/09/us/politics/ice-georgia-immigration-social-circle-warehouse.html
+
+**Justice Department and Live Nation Reach Settlement Terms in Antitrust Case**\
+`The agreement, which requires a judicial sign-off, would avoid a breakup of the concert giant. But states who joined the suit object to the terms.`\
+https://nytimes.com/2026/03/09/arts/music/live-nation-ticketmaster-antitrust-suit-settled.html
+
+**Pennsylvania State Trooper Is Fatally Shot During a Traffic Stop**\
+`A driver opened fired on Pennsylvania State Police Cpl. Tim O’Connor before killing himself on Sunday night, officials said.`\
+https://nytimes.com/2026/03/09/us/pennsylvania-state-trooper-killed.html
+
 **College baseball week in review: LSU reeling after losses to Northeastern, Sacramento State**\
 `LSU lost two nonconference games all of last season. It lost four in a week to begin this March.`\
 https://nytimes.com/athletic/7101140/2026/03/09/college-baseball-lsu-sacramento-state-high-point-florida/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
 **Explosion Damages Synagogue in Belgium**\
 `Officials described the blast, which caused no injuries, as an antisemitic act, but the exact circumstances were still under investigation.`\
 https://nytimes.com/2026/03/09/world/europe/explosion-synagogue-belgium.html
-
-**The Athletic college baseball Top 25: USC's hot start continues; LSU, Florida tumble**\
-`USC, one of two undefeated teams, jumped from No. 24 to No. 17 after sweeping Illinois to open Big Ten play.`\
-https://nytimes.com/athletic/7100820/2026/03/09/college-baseball-ranking-usc-lsu-florida/
-
-**Francis Ngannou added to MVP's Rousey-Carano card in May**\
-`Having never relinquished his belt in competition, Ngannou is widely recognized as the lineal heavyweight champion of mixed martial arts.`\
-https://nytimes.com/athletic/7101105/2026/03/09/francis-ngannou-mma-return-rousey-mvp/
-
-**Can You Identify These Lengthy Novels From Their Descriptions?**\
-`Try this short quiz on very long books.`\
-https://nytimes.com/interactive/2026/03/09/books/review/giant-novels-quiz.html
 
