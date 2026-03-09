@@ -1,3 +1,19 @@
+**Liverpool's Alisson to miss Champions League first leg against Galatasaray**\
+`Liverpool have opted not to risk the 33-year-old Brazilian after he felt some discomfort during training.`\
+https://nytimes.com/athletic/7101225/2026/03/09/liverpool-alisson-injury-update-galatasaray/
+
+**Price Caps, Rationing and Stockpiling: Alarm Swells Over Oil Shortages**\
+`Across Asia, where countries are highly exposed to rising oil and gas costs and tightening supply, governments are acting to mitigate economic harm.`\
+https://nytimes.com/2026/03/09/business/iran-oil-gas-asia.html
+
+**Jalen Green's first season in Phoenix hasn't gone well, but that could be changing**\
+`As the playoffs inch closer, the Suns still work to find chemistry with Green and Green still works to find a rhythm. It’s not ideal.`\
+https://nytimes.com/athletic/7100665/2026/03/09/jalen-green-suns-season-nba/
+
+**Turkey Says NATO Defenses Shot Down a Second Iranian Missile**\
+`It was the second time in six days that Turkey announced the interception of a missile from Iran.`\
+https://nytimes.com/2026/03/09/world/middleeast/turkey-iranian-missile-nato.html
+
 **A Big Night Light in the Sky? Start-Up Wants to Launch a Space Mirror.**\
 `The company is seeking F.C.C. approval to test an idea to reflect sunlight to Earth at night, possibly powering solar panels. Critics say it could be bad for people and wildlife.`\
 https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2026/03/09/books/review/giant-novels-quiz.html
 **Jets agree to trade for Dolphins safety Minkah Fitzpatrick: Sources**\
 `Fitzpatrick joins a Jets secondary that failed to record an interception in 2025.`\
 https://nytimes.com/athletic/7101175/2026/03/09/jets-minkah-fitzpatrick-trade-defense/
-
-**Inside Barcelona: Did Joan Laporta really block Lionel Messi's return?**\
-`Barcelona's presidential elections are heating up, and Messi is — indirectly — a key protagonist in the outcome of next week's vote`\
-https://nytimes.com/athletic/7100847/2026/03/09/barcelona-messi-laporta-champions-league-newcastle/
-
-**Fantasy trends and hidden gems: NHL trade deadline fallout **\
-`Shayna Goldman breaks down the fantasy hockey impact of the biggest deals made ahead of the NHL trade deadline.`\
-https://nytimes.com/athletic/7099683/2026/03/09/fantasy-hockey-nhl-trade-deadline-spin-trends-gems-fallout/
-
-**Madrid to be without left-back Carreras vs. Man City in latest injury blow**\
-`Madrid confirmed on Monday Carreras, 22, had undergone assessments which revealed a muscle injury to his right calf.`\
-https://nytimes.com/athletic/7101075/2026/03/09/alvaro-carreras-real-madrid-injury-update/
-
-**Dozens Wounded in Bahrain as Arab States Condemn Iranian Strikes**\
-`Key U.S. allies in the Persian Gulf have stepped up their criticism of Iran after facing a barrage of missiles and drone attacks over the past week.`\
-https://nytimes.com/2026/03/09/world/middleeast/bahrain-iran-strikes.html
 
