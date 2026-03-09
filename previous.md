@@ -1,3 +1,7 @@
+**Fear and Hope for Iranians Trapped Between Bombs and Defiant Rulers**\
+`Many in Iran feel helpless in the face of their entrenched system, and some are becoming increasingly embittered by the fierce American and Israeli bombardment.`\
+https://nytimes.com/2026/03/09/world/europe/iranians-destruction-bombs-despair.html
+
 **Inside Nazem Kadri's return to the Avalanche and the trade that made it happen**\
 `From nervous golf to a crowd so loud it was hard to focus in his second Avalanche debut, Kadri had an unforgettable journey back to Denver.`\
 https://nytimes.com/athletic/7100480/2026/03/09/nazem-kadri-colorado-avalanche-trade-calgary-flames-behind-the-scenes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100726/2026/03/09/purdue-fort-wayne-vs-green-bay-s
 **Napheesa Collier on Unrivaled, and CBA negotiations**\
 `Plus, the future of women’s professional basketball.`\
 https://nytimes.com/2026/03/09/podcasts/napheesa-collier-unrivaled-cba-negotiations.html
-
-**Why some tennis stars go without a coach: 'You have to realize the weight of your decisions'**\
-`Tennis players going without a coach is far more common — and complicated — than fans might think.`\
-https://nytimes.com/athletic/7097878/2026/03/09/tennis-players-no-coach-relationship-raducanu-federer/
 

@@ -1,3 +1,7 @@
+**Russia wins first winter Paralympic gold medal for 12 years**\
+`Varvara Voronchikhina, one of six Russian athletes competing at the 2026 Games, took victory in the women's standing super-G.`\
+https://nytimes.com/athletic/7100741/2026/03/09/russia-winter-paralympics-gold-medal/
+
 **Fear and Hope for Iranians Trapped Between Bombs and Defiant Rulers**\
 `Many in Iran feel helpless in the face of their entrenched system, and some are becoming increasingly embittered by the fierce American and Israeli bombardment.`\
 https://nytimes.com/2026/03/09/world/europe/iranians-destruction-bombs-despair.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100728/2026/03/09/east-texas-a-m-vs-northwestern-s
 **How to watch Purdue Fort Wayne vs. Green Bay women's basketball: Horizon Tournament Time, TV, streaming**\
 `Find out how to watch the Purdue Fort Wayne Mastodons play the Green Bay Phoenix, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100726/2026/03/09/purdue-fort-wayne-vs-green-bay-stream-how-to-watch-march-9/
-
-**Napheesa Collier on Unrivaled, and CBA negotiations**\
-`Plus, the future of women’s professional basketball.`\
-https://nytimes.com/2026/03/09/podcasts/napheesa-collier-unrivaled-cba-negotiations.html
 

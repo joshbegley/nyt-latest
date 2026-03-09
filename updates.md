@@ -1,3 +1,7 @@
+**Fear and Hope for Iranians Trapped Between Bombs and Defiant Rulers**\
+`Many in Iran feel helpless in the face of their entrenched system, and some are becoming increasingly embittered by the fierce American and Israeli bombardment.`\
+https://nytimes.com/2026/03/09/world/europe/iranians-destruction-bombs-despair.html
+
 **Inside Nazem Kadri's return to the Avalanche and the trade that made it happen**\
 `From nervous golf to a crowd so loud it was hard to focus in his second Avalanche debut, Kadri had an unforgettable journey back to Denver.`\
 https://nytimes.com/athletic/7100480/2026/03/09/nazem-kadri-colorado-avalanche-trade-calgary-flames-behind-the-scenes/
