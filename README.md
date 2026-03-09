@@ -1,3 +1,7 @@
+**Why are Celtics so good? 'Derrick White is a top-five player in this league'**\
+`The Celtics didn’t suddenly become contenders again once Tatum returned. They already were. Derrick White is one of the biggest reasons why.`\
+https://nytimes.com/athletic/7099917/2026/03/08/derrick-white-stats-celtics-record-kenny-atkinson-nba/
+
 **Georgia Teacher Is Killed After Teenagers’ Prank Goes Wrong**\
 `Teenagers tossed toilet paper on trees outside the house of a teacher. The teacher came outside, tripped and was run over by a pickup driven by one of the pranksters, officials said.`\
 https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/iran-war-mojtaba-khamenei.html
 **Akshay Bhatia reels in Daniel Berger for dramatic Arnold Palmer Invitational win**\
 `Bhatia came from five shots behind in the final round to force a playoff and claim his third PGA Tour victory.`\
 https://nytimes.com/athletic/7099957/2026/03/08/akshay-bhatia-wins-arnold-palmer-invitational-pga-tour/
-
-**Techs fly, Yaxel Lendeborg goes off for 27 as Michigan secures sweep of MSU**\
-`This marks the first time since 2018 that Michigan beat the Spartans twice in the same season.`\
-https://nytimes.com/athletic/7099976/2026/03/08/michigan-msu-basketball-score-highlights/
 
