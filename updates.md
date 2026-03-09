@@ -1,3 +1,15 @@
+**How to watch Mississippi Valley State vs. Grambling men's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Mississippi Valley State Delta Devils play the Grambling Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7102248/2026/03/09/mississippi-valley-state-vs-grambling-stream-how-to-watch-march-9/
+
+**How to watch Weber State vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Weber State Wildcats play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7102246/2026/03/09/weber-state-vs-eastern-washington-stream-how-to-watch-march-9/
+
+**Iran Has Made a Choice: Defiance**\
+`Iran’s new supreme leader has been selected not to break with the regime but to preserve it.`\
+https://nytimes.com/2026/03/09/opinion/international-world/iran-supreme-leader-mojtaba-khamenei.html
+
 **FA Cup quarter-final draw: Man City host Liverpool, Chelsea to play Port Vale**\
 `The quarter-final ties will be played over the weekend of April 4-5.`\
 https://nytimes.com/athletic/7101450/2026/03/09/fa-cup-quarter-final-draw-2026/
