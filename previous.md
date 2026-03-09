@@ -1,3 +1,11 @@
+**U.S.-born players savor chance to represent global family, heritage in WBC**\
+`WBC eligibility requirements encourage players to tap into their heritage as a way of getting the best possible rosters for the event.`\
+https://nytimes.com/athletic/7099534/2026/03/09/world-baseball-classic-eligibility/
+
+**MLB Draft scouting notes: Eric Becker, A.J. Gracia and more from Virginia-UNC series**\
+`Virginia has two likely first-round picks on its roster — including a likely top 10 pick — while UNC has several intriguing players, too.`\
+https://nytimes.com/athletic/7100266/2026/03/09/mlb-draft-scouting-eric-becker-aj-gracia/
+
 **The Pulse: A showdown, tonight**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7100019/2026/03/09/usa-mexico-wbc-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7099613/2026/03/09/red-sox-mailbag-payton-tolle-kri
 **FIFA, Australian government hold urgent talks over Iran women's team's future**\
 `Sources with knowledge of discussions stated that there are currently no flights for the team booked back to Iran.`\
 https://nytimes.com/athletic/7100720/2026/03/09/iran-women-australia-asian-cup/
-
-**This Week in Mets: Highlighting New York's spring standouts**\
-`Plus, a look at Juan Soto's keen eye at the plate: How will that play into MLB's new challenge system?`\
-https://nytimes.com/athletic/7099701/2026/03/09/this-week-in-mets-spring-standouts/
-
-**He's Notre Dame's QB of the future. And he's showing up a year early**\
-`Notre Dame has never had a player reclassify to enroll in college a year early, but QB Teddy Jarrard is well-prepared to be the first.`\
-https://nytimes.com/athletic/7086396/2026/03/09/teddy-jarrard-notre-dame-quarterback-reclassification/
 

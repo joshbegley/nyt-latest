@@ -1,3 +1,7 @@
+**The War’s Effect on the Supermarket**\
+`We examine the Middle East’s role in food production.`\
+https://nytimes.com/2026/03/09/briefing/the-wars-effect-on-the-supermarket.html
+
 **U.S.-born players savor chance to represent global family, heritage in WBC**\
 `WBC eligibility requirements encourage players to tap into their heritage as a way of getting the best possible rosters for the event.`\
 https://nytimes.com/athletic/7099534/2026/03/09/world-baseball-classic-eligibility/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099395/2026/03/09/nhl-trades-josi-mcdavid-tkachuk-
 **Payton Tolle impressing, Kristian Campbell's camp, trade talks and more: Red Sox mailbag**\
 `Can the Red Sox contend without a true power bat? Improved pitching and a stronger infield defense may just keep them competitive.`\
 https://nytimes.com/athletic/7099613/2026/03/09/red-sox-mailbag-payton-tolle-kristian-campbell-mlb/
-
-**FIFA, Australian government hold urgent talks over Iran women's team's future**\
-`Sources with knowledge of discussions stated that there are currently no flights for the team booked back to Iran.`\
-https://nytimes.com/athletic/7100720/2026/03/09/iran-women-australia-asian-cup/
 

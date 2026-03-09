@@ -1,3 +1,11 @@
+**U.S.-born players savor chance to represent global family, heritage in WBC**\
+`WBC eligibility requirements encourage players to tap into their heritage as a way of getting the best possible rosters for the event.`\
+https://nytimes.com/athletic/7099534/2026/03/09/world-baseball-classic-eligibility/
+
+**MLB Draft scouting notes: Eric Becker, A.J. Gracia and more from Virginia-UNC series**\
+`Virginia has two likely first-round picks on its roster — including a likely top 10 pick — while UNC has several intriguing players, too.`\
+https://nytimes.com/athletic/7100266/2026/03/09/mlb-draft-scouting-eric-becker-aj-gracia/
+
 **The Pulse: A showdown, tonight**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7100019/2026/03/09/usa-mexico-wbc-the-pulse/
