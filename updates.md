@@ -1,3 +1,15 @@
+**Steelers to acquire WR Michael Pittman Jr. in trade with Colts: Sources**\
+`Pittman led the Colts in receptions last season.`\
+https://nytimes.com/athletic/7101767/2026/03/09/michael-pittman-jr-steelers-nfl-free-agency-2026/
+
+**Malik Willis agrees to free-agent deal with Dolphins as QB gets his starting shot**\
+`Willis' standout Week 17 performance against the Ravens made it clear he deserved a chance to start elsewhere.`\
+https://nytimes.com/athletic/7088257/2026/03/09/malik-willis-dolphins-nfl-free-agency-2026/
+
+**Linebacker Jaelan Phillips agrees to 4-year deal with Panthers: Sources**\
+`The Panthers were looking to improve their pass rush and adding Phillips — No. 3 on our free-agent list — is a big step in that direction.`\
+https://nytimes.com/athletic/7090485/2026/03/09/jaelan-phillips-panthers-nfl-free-agency-2026/
+
 **First, They Were Just Fishing. Then the Ice Started Moving.**\
 `Nearly two dozen people in Canada were stranded on ice that separated from shore. “We honestly thought we were doomed,” one fisherman said.`\
 https://nytimes.com/2026/03/09/world/canada/fishermen-ice-shelf-rescue-canada.html
