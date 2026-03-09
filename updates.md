@@ -1,3 +1,7 @@
+**Word of the Day: clandestine**\
+`This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/09/learning/word-of-the-day-clandestine.html
+
 **Why are Villa still relying on Bailey and Buendia in 2026?**\
 `Forward duo's continued involvement in the first-team picture having come close to leaving emphasises this squad's lack of evolution`\
 https://nytimes.com/athletic/7089634/2026/03/09/aston-villa-buendia-bailey/
