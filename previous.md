@@ -1,3 +1,16 @@
+**Submit your questions for Murat Ates’ Winnipeg Jets mailbag**\
+`<p>The NHL trade deadline has come and gone and the Winnipeg Jets are in the midst of their longest homestand of the season — and making a late push for the playoffs. What’s on your mind? Drop you questions here and Murat will answer them later this week.</p>
+`\
+https://nytimes.com/athletic/7102422/2026/03/09/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-6/
+
+**Bengals, S Bryan Cook agree to three-year deal: Reports**\
+`The former Bearcat and Mount Healthy High School product is set to return to Cincinnati to anchor the secondary.`\
+https://nytimes.com/athletic/7102434/2026/03/09/bryan-cook-bengals-nfl-free-agency-2026/
+
+**Chargers get boost at TE with Charlie Kolar, a blocker with receiving upside**\
+`Kolar is an elite run blocker whose receiving skills were untapped as he played behind Mark Andrews and Isaiah Likely.`\
+https://nytimes.com/athletic/7102253/2026/03/09/charlie-kolar-chargers-nfl-free-agency-2026/
+
 **3 Prosecutors Are Running U.S. Attorney’s Office Unlawfully, Judge Rules**\
 `The ruling, which found that the three-person leadership team in New Jersey’s federal prosecutor’s office was illegal, will again throw the direction of the office into question.`\
 https://nytimes.com/2026/03/09/nyregion/us-attorney-nj-prosecutors.html
@@ -25,16 +38,4 @@ https://nytimes.com/interactive/polls/illinois-us-house-2-polls-2026.html
 **Titans agree to free-agent deal with former Saints CB Alontae Taylor: Sources**\
 `Taylor hasn't missed a game in three seasons, with four interceptions, 41 pass breakups, three forced fumbles and seven sacks.`\
 https://nytimes.com/athletic/7095278/2026/03/09/alontae-taylor-titans-nfl-free-agency-2026/
-
-**Giants agree to free-agent deal with ex-Bears LB Tremaine Edmunds: Sources**\
-`Edmunds is set to step in immediately for John Harbaugh's Giants.`\
-https://nytimes.com/athletic/7102270/2026/03/09/tremaine-edmunds-giants-free-agency-2026/
-
-**Seahawks agree to re-sign CB Josh Jobe for 3 years, $24M: Source**\
-`Once a member of the Seahawks' practice squad, Jobe developed into a reliable starter on a Super Bowl-winning defense.`\
-https://nytimes.com/athletic/7088240/2026/03/09/josh-jobe-seahawks-nfl-free-agency-2026/
-
-**Commanders agree to deal to bring back veteran QB Marcus Mariota: Source**\
-`Mariota spent the past two seasons as a backup to Jayden Daniels in Washington, playing in 14 games in that span. `\
-https://nytimes.com/athletic/7098086/2026/03/09/marcus-mariota-commanders-nfl-free-agency-2026/
 
