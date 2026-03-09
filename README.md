@@ -1,3 +1,11 @@
+**How The Times Reports on the War in Iran and Beyond**\
+`Staying safe and corroborating facts are among the challenges for journalists working under intense pressure around the clock and the world.`\
+https://nytimes.com/2026/03/09/insider/07iran-israel-united-states-war.html
+
+**Rutgers to hire LSU assistant Gary Redus II as head coach**\
+`Redus is known for his strong recruiting at LSU.`\
+https://nytimes.com/athletic/7101566/2026/03/09/rutgers-lsu-hire-gary-redus/
+
 **Montana U.S. Senate Election 2026: Latest Polls**\
 `Track the latest polls in the Montana U.S. Senate election.`\
 https://nytimes.com/interactive/polls/montana-us-senate-election-polls-2026.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7101544/2026/03/09/76ers-vs-cavaliers-stream-how-to
 **How to watch Binghamton vs. Maine women's basketball: America East Tournament Time, TV, streaming**\
 `Find out how to watch the Binghamton Bearcats play the Maine Black Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7101540/2026/03/09/binghamton-vs-maine-stream-how-to-watch-march-9/
-
-**How to watch Santa Clara vs. Gonzaga women's basketball: WCC Tournament Time, TV, streaming**\
-`Find out how to watch the Santa Clara Broncos play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101537/2026/03/09/santa-clara-vs-gonzaga-stream-how-to-watch-march-9/
-
-**How to watch Flames vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101535/2026/03/09/flames-vs-capitals-stream-how-to-watch-march-9/
 
