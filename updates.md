@@ -1,3 +1,7 @@
+**Harry Styles Dances Himself Clean**\
+`The pop star’s new album revels in the communal experience of clubbing. But his gleaming songs don’t reveal much about the man behind them.`\
+https://nytimes.com/2026/03/09/arts/music/harry-styles-kiss-all-the-time-disco-occasionally-review.html
+
 **Minkah Fitzpatrick trade grades: New leader for Jets defense, Dolphins pay for past mistakes**\
 `The veteran safety, a former All-Pro, is the kind of locker-room presence the young Jets need.`\
 https://nytimes.com/athletic/7101280/2026/03/09/minkah-fitzpatrick-jets-dolphins-trade-grades/

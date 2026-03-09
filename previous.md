@@ -1,3 +1,7 @@
+**Harry Styles Dances Himself Clean**\
+`The pop star’s new album revels in the communal experience of clubbing. But his gleaming songs don’t reveal much about the man behind them.`\
+https://nytimes.com/2026/03/09/arts/music/harry-styles-kiss-all-the-time-disco-occasionally-review.html
+
 **Minkah Fitzpatrick trade grades: New leader for Jets defense, Dolphins pay for past mistakes**\
 `The veteran safety, a former All-Pro, is the kind of locker-room presence the young Jets need.`\
 https://nytimes.com/athletic/7101280/2026/03/09/minkah-fitzpatrick-jets-dolphins-trade-grades/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100665/2026/03/09/jalen-green-suns-season-nba/
 **Turkey Says NATO Defenses Shot Down a Second Iranian Missile**\
 `It was the second time in six days that Turkey announced the interception of a missile from Iran.`\
 https://nytimes.com/2026/03/09/world/middleeast/turkey-iranian-missile-nato.html
-
-**A Big Night Light in the Sky? Start-Up Wants to Launch a Space Mirror.**\
-`The company is seeking F.C.C. approval to test an idea to reflect sunlight to Earth at night, possibly powering solar panels. Critics say it could be bad for people and wildlife.`\
-https://nytimes.com/2026/03/09/climate/space-mirror-satellite-solar.html
 
