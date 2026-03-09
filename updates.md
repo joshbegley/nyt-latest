@@ -1,3 +1,7 @@
+**The War’s Effect on the Supermarket**\
+`We examine the Middle East’s role in food production.`\
+https://nytimes.com/2026/03/09/briefing/the-wars-effect-on-the-supermarket.html
+
 **U.S.-born players savor chance to represent global family, heritage in WBC**\
 `WBC eligibility requirements encourage players to tap into their heritage as a way of getting the best possible rosters for the event.`\
 https://nytimes.com/athletic/7099534/2026/03/09/world-baseball-classic-eligibility/
