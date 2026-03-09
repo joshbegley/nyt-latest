@@ -1,3 +1,7 @@
+**What we’re seeing in the WBC: An Armani jacket and a case of double vision**\
+`Logan Allen faced off against.....Logan Allen? Plus more dispatches from each pool site at the World Baseball Classic.`\
+https://nytimes.com/athletic/7100780/2026/03/09/wbc-armani-jacket-double-vision/
+
 **Israeli Forces Raid New Areas in Southern Lebanon**\
 `Israeli fighter jets also bombarded the southern outskirts of Beirut, the Lebanese capital, as part of its escalating military campaign against Hezbollah.`\
 https://nytimes.com/2026/03/09/world/middleeast/israeli-forces-raid-new-areas-in-southern-lebanon.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-n
 **Let's appreciate SGA as he nears Wilt's consecutive 20-point game record**\
 `Plus, Kon Knueppel is breaking precedent with his Rookie of the Year case, and the Warriors' Kristaps Porziņģis conundrum.`\
 https://nytimes.com/athletic/7100624/2026/03/09/shai-gilgeous-alexander-record-wilt-kon-knueppel/
-
-**Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
-`From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
-https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/
 
