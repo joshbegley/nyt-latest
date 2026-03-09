@@ -1,3 +1,27 @@
+**3 Prosecutors Are Running U.S. Attorney’s Office Unlawfully, Judge Rules**\
+`The ruling, which found that the three-person leadership team in New Jersey’s federal prosecutor’s office was illegal, will again throw the direction of the office into question.`\
+https://nytimes.com/2026/03/09/nyregion/us-attorney-nj-prosecutors.html
+
+**2 Teen Mariachi Musicians Released From ICE Detention**\
+`Representative Joaquin Castro of Texas led a delegation of Democrats to a South Texas detention center to press for the release of the brothers and their family.`\
+https://nytimes.com/2026/03/09/us/politics/mariachi-teens-immigration.html
+
+**Illinois 9th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 9th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-9-polls-2026.html
+
+**Illinois 8th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 8th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-8-polls-2026.html
+
+**Illinois 7th Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 7th Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-7-polls-2026.html
+
+**Illinois 2nd Congressional District 2026: Latest Polls**\
+`Track the latest polls in Illinois's 2nd Congressional District.`\
+https://nytimes.com/interactive/polls/illinois-us-house-2-polls-2026.html
+
 **Titans agree to free-agent deal with former Saints CB Alontae Taylor: Sources**\
 `Taylor hasn't missed a game in three seasons, with four interceptions, 41 pass breakups, three forced fumbles and seven sacks.`\
 https://nytimes.com/athletic/7095278/2026/03/09/alontae-taylor-titans-nfl-free-agency-2026/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7088240/2026/03/09/josh-jobe-seahawks-nfl-free-agen
 **Commanders agree to deal to bring back veteran QB Marcus Mariota: Source**\
 `Mariota spent the past two seasons as a backup to Jayden Daniels in Washington, playing in 14 games in that span. `\
 https://nytimes.com/athletic/7098086/2026/03/09/marcus-mariota-commanders-nfl-free-agency-2026/
-
-**Browns agree to sign G Zion Johnson to 3-year deal: Source**\
-`Johnson, 26, is a 2022 first-round pick who has missed just two games in his four-year career. `\
-https://nytimes.com/athletic/7102304/2026/03/09/zion-johnson-browns-nfl-free-agency-2026/
-
-**With five moves on Monday, the Jets re-invented their hapless defense**\
-`Aaron Glenn's unit is now loaded up with veteran leaders.`\
-https://nytimes.com/athletic/7102026/2026/03/09/new-york-jets-free-agent-defensive-signings/
-
-**France Is Sending a Large Naval Force to the Middle East**\
-`President Emmanuel Macron said the warships would help protect France’s allies and French citizens in the region, and could be part of a force to escort ships through the Strait of Hormuz.`\
-https://nytimes.com/2026/03/09/world/middleeast/france-warships-middle-east.html
-
-**How to watch Grizzlies vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7102406/2026/03/09/grizzlies-vs-nets-stream-how-to-watch-march-9/
-
-**How to watch Knicks vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7102403/2026/03/09/knicks-vs-clippers-stream-how-to-watch-march-9/
-
-**How to watch Senators vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7102398/2026/03/09/senators-vs-canucks-stream-how-to-watch-march-9/
 
