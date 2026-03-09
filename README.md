@@ -1,3 +1,11 @@
+**The Quest to Save One Baby Gorilla From an Uncertain Fate**\
+`Social media is fueling a black market for infant primates like Bili, who was captured in the wild and trafficked.`\
+https://nytimes.com/interactive/2026/03/09/magazine/bili-wildlife-trafficking-illegal-gorilla-trade.html
+
+**Bengals, Boye Mafe agree to 3-year, $60 million deal: Source**\
+`Mafe's numbers dipped in a rotation role in 2025, but he had nine sacks for the Seahawks in 2023.`\
+https://nytimes.com/athletic/7090120/2026/03/09/boye-mafe-bengals-nfl-free-agency-2026/
+
 **Landon Emenalo renews Chelsea contract through to 2031**\
 `The 18-year-old, son of former Chelsea technical director Michael Emenalo, is one of the club’s most highly-regarded academy prospect.`\
 https://nytimes.com/athletic/7102221/2026/03/09/emenalo-chelsea-contract-length/
@@ -30,12 +38,4 @@ https://nytimes.com/2026/03/09/us/politics/mariachi-teens-immigration.html
 **Illinois 9th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Illinois's 9th Congressional District.`\
 https://nytimes.com/interactive/polls/illinois-us-house-9-polls-2026.html
-
-**Illinois 8th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Illinois's 8th Congressional District.`\
-https://nytimes.com/interactive/polls/illinois-us-house-8-polls-2026.html
-
-**Illinois 7th Congressional District 2026: Latest Polls**\
-`Track the latest polls in Illinois's 7th Congressional District.`\
-https://nytimes.com/interactive/polls/illinois-us-house-7-polls-2026.html
 

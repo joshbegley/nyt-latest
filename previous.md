@@ -1,3 +1,11 @@
+**Landon Emenalo renews Chelsea contract through to 2031**\
+`The 18-year-old, son of former Chelsea technical director Michael Emenalo, is one of the club’s most highly-regarded academy prospect.`\
+https://nytimes.com/athletic/7102221/2026/03/09/emenalo-chelsea-contract-length/
+
+**Oman Becomes Unlikely Hub for Evacuees Fleeing War in Gulf**\
+`The international airport in Muscat, the Omani capital, has remained open while fighting in the region has escalated.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-war-oman-evacuations.html
+
 **Submit your questions for Murat Ates’ Winnipeg Jets mailbag**\
 `<p>The NHL trade deadline has come and gone and the Winnipeg Jets are in the midst of their longest homestand of the season — and making a late push for the playoffs. What’s on your mind? Drop you questions here and Murat will answer them later this week.</p>
 `\
@@ -30,12 +38,4 @@ https://nytimes.com/interactive/polls/illinois-us-house-8-polls-2026.html
 **Illinois 7th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Illinois's 7th Congressional District.`\
 https://nytimes.com/interactive/polls/illinois-us-house-7-polls-2026.html
-
-**Illinois 2nd Congressional District 2026: Latest Polls**\
-`Track the latest polls in Illinois's 2nd Congressional District.`\
-https://nytimes.com/interactive/polls/illinois-us-house-2-polls-2026.html
-
-**Titans agree to free-agent deal with former Saints CB Alontae Taylor: Sources**\
-`Taylor hasn't missed a game in three seasons, with four interceptions, 41 pass breakups, three forced fumbles and seven sacks.`\
-https://nytimes.com/athletic/7095278/2026/03/09/alontae-taylor-titans-nfl-free-agency-2026/
 
