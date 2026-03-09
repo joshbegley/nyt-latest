@@ -1,3 +1,7 @@
+**The Pulse: A showdown, tonight**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7100019/2026/03/09/usa-mexico-wbc-the-pulse/
+
 **Red Wings pass first test without Larkin, Faulk debuts: 5 thoughts**\
 `In their first full game without their captain, the Red Wings put up a strong all-around showing to pick up a 3-0 win in New Jersey.`\
 https://nytimes.com/athletic/7100330/2026/03/09/red-wings-shutout-seider-faulk-debut-shine-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099701/2026/03/09/this-week-in-mets-spring-standou
 **He's Notre Dame's QB of the future. And he's showing up a year early**\
 `Notre Dame has never had a player reclassify to enroll in college a year early, but QB Teddy Jarrard is well-prepared to be the first.`\
 https://nytimes.com/athletic/7086396/2026/03/09/teddy-jarrard-notre-dame-quarterback-reclassification/
-
-**Canadiens weekly notebook: A trade deadline post-mortem; blue-line imbalance needs to change**\
-`Also in this week's Canadiens notebook, Patrik Laine's additional trade protection and a very familiar goal from Juraj Slafkovský.`\
-https://nytimes.com/athletic/7100553/2026/03/09/canadiens-notebook-trade-deadline-post-mortem/
 
