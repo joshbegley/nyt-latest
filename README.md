@@ -1,3 +1,11 @@
+**Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch til November'**\
+`“I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
+https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
+
+**Meteorite Crashes Through Roof in Germany After Fiery Light Show**\
+`The fireball from space was spotted by a network of sky-watching cameras in Belgium, France, Luxembourg, the Netherlands and Germany.`\
+https://nytimes.com/2026/03/09/science/meteorite-europe-crash-germany-roof.html
+
 **Trade Your Smartphone for an ’80s-Style Digital Watch**\
 `These retro selections may have some new tricks, but they keep things comparatively simple.`\
 https://nytimes.com/2026/03/09/t-magazine/digital-watches-favorites.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
 **How Americans Are Feeling the Economic Effects of the War With Iran**\
 `Gas prices are rising, with the cost of food likely to follow. If the conflict drags on, the fallout for consumers could worsen, experts warned.`\
 https://nytimes.com/2026/03/09/business/iran-oil-prices-economic-impact.html
-
-**Alexander Brothers Found Guilty of All Counts in Sex Trafficking Trial**\
-`The verdict comes more than a month after the trial began in Federal District Court in Manhattan where the jury heard weeks of emotional and often graphic testimony.`\
-https://nytimes.com/2026/03/09/nyregion/verdict-alexander-brothers-sex-trafficking.html
-
-**Australia Offers Five Humanitarian Visas to Iran’s Woman’s Soccer Team**\
-`Prime Minister Anthony Albanese of Australia told reporters on Monday that five humanitarian visas were being offered to some members of the Iranian women’s soccer team, after concerns were raised over the women’s safety upon returning to Iran.`\
-https://nytimes.com/video/world/australia/100000010764782/australia-visas-iran-women-soccer-team.html
 
