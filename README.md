@@ -1,3 +1,11 @@
+**Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
+`Expert analysis from NASCAR's fourth race of the season, the Straight Talk Wireless 500 near Phoenix.`\
+https://nytimes.com/athletic/7100103/2026/03/08/ryan-blaney-phoenix-penske-nascar/
+
+**Pain of Combat Deaths Doesn’t Fade Over Time, Families Say**\
+`The deaths of American troops in the Iran war are resurfacing the hurt felt by families of those lost in previous wars. “I know what they’re feeling — their whole world is falling apart,” one woman said.`\
+https://nytimes.com/2026/03/08/us/combat-deaths-families-pain.html
+
 **Iran Chooses New Supreme Leader**\
 `Iran named Mojtaba Khamenei, the son of Ayatollah Ali Khamenei, who was killed in recent U.S.-Israeli strikes, as its next supreme leader.`\
 https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran-supreme-leader.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/08/world/middleeast/iran-mojtaba-khamenei-supreme-le
 **Despite mother's tears, Jayson Tatum's second game back with Celtics felt 'a lot more normal'**\
 `Celtics coach Joe Mazzulla said he expects 'an easy integration' as the Celtics readjust to life with Tatum.`\
 https://nytimes.com/athletic/7100008/2026/03/08/despite-mothers-tears-jayson-tatums-second-game-back-with-celtics-felt-a-lot-more-normal/
-
-**Cadillac beat expectations for its F1 debut, but it knows ‘the honeymoon's over’**\
-`CEO Dan Towriss agrees with his drivers that the hard work starts now after a retirement and P15 finish in Melbourne`\
-https://nytimes.com/athletic/7100041/2026/03/08/cadillac-f1-first-race-australia-honeymoon-is-over/
-
-**Here’s What Happened in the Conflict on Sunday**\
-`Iran named Mojtaba Khamenei, a son of Ayatollah Ali Khamenei, as his father’s successor. The Pentagon announced the death of a seventh U.S. service member.`\
-https://nytimes.com/2026/03/08/world/middleeast/iran-war-mojtaba-khamenei.html
 

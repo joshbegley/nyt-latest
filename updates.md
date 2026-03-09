@@ -1,3 +1,7 @@
+**Lightning, Sabres put up their dukes in Atlantic Division showdown**\
+`After two periods and the score tied at 4-4, Tampa Bay and Buffalo have combined for 98 penalty minutes on Sunday.`\
+https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
+
 **Iran Chooses New Supreme Leader**\
 `Iran named Mojtaba Khamenei, the son of Ayatollah Ali Khamenei, who was killed in recent U.S.-Israeli strikes, as its next supreme leader.`\
 https://nytimes.com/video/world/middleeast/100000010752285/mojtaba-khamenei-iran-supreme-leader.html
