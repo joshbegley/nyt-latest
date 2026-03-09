@@ -1,3 +1,7 @@
+**Coco Gauff felt like arm 'was on fire' before retiring injured against Alex Eala at Indian Wells**\
+`Gauff struggled with an injury to her left arm toward the end of the opening set and could not continue down 6-2, 2-0.`\
+https://nytimes.com/athletic/7100302/2026/03/08/tennis-coco-gauff-indian-wells-alex-eala-injury/
+
 **In reversal, Bills trade CB Taron Johnson to Raiders as part of pick swap: Source**\
 `Johnson had been announced as a release Friday after eight seasons in Buffalo. Now he is Las Vegas bound.`\
 https://nytimes.com/athletic/7100301/2026/03/08/bills-raiders-taron-johnson-trade-nfl-free-agency/
