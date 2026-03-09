@@ -1,3 +1,11 @@
+**Michael Jordan's first Sports Illustrated cover sells for record $229,360**\
+`Here is why your 1983 Sports Illustrated copy of Jordan's first appearance on the magazine's cover is probably not worth as much.`\
+https://nytimes.com/athletic/7099964/2026/03/08/michael-jordan-sports-illustrated-record-sale/
+
+**Georgia Teacher Is Killed After Teenagers’ Prank Goes Wrong**\
+`The teacher’s family “supports getting the charges dropped for all involved,” after a planned toilet-paper prank became a fatal car accident.`\
+https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
+
 **U.S. Tomahawk Hit Naval Base Beside Iranian School, Video Shows**\
 `The evidence contradicts President Trump’s claim that Iran was responsible for a strike at the school that killed 175 people, most of them children.`\
 https://nytimes.com/2026/03/08/world/middleeast/iran-minab-school-strike.html
