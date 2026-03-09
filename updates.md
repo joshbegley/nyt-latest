@@ -1,3 +1,15 @@
+**Iran War Sends Tremors Through the Global Economy**\
+`Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
+
+**Shoppers Gone Feral**\
+`Customers withstood gate-keeping, bomb threats and heartbreakingly low inventory as a new era of Chanel hit stores during Paris Fashion Week.`\
+https://nytimes.com/2026/03/09/style/chanel-shopping-blazy-paris-fashion-week.html
+
+**Fashionable Wall Street Bros Set Off a Social Media Storm**\
+`They said yes to an Interview magazine fashion shoot. Then came the haters.`\
+https://nytimes.com/2026/03/09/style/fashionable-wall-street-bros-set-off-a-social-media-storm.html
+
 **Broncos releasing LB Dre Greenlaw after one season in Denver: Report**\
 `Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
 https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
