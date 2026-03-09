@@ -1,3 +1,11 @@
+**Seahawks bringing back WR Rashid Shaheed on 3-year deal: Sources**\
+`Shaheed scored three return touchdowns, including one in the playoffs, after joining the Seahawks via trade in October.`\
+https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free-agency-2026/
+
+**Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch till November'**\
+`“I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
+https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
+
 **Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch til November'**\
 `“I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
 https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
