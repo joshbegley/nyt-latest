@@ -1,3 +1,8 @@
+**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
+`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
+`\
+https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
+
 **Later WBC round could feature Twins legends Johan Santana, Justin Morneau in different dugouts**\
 `Santana and Morneau haven't coached professionally before, but each jumped at a chance to coach his homeland's team in the WBC.`\
 https://nytimes.com/athletic/7097633/2026/03/09/johan-santana-justin-morneau-world-baseball-classic-coaches/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7076718/2026/03/09/new-york-yankees-aaron-judge-how
 **Foligno brothers excited to join talents for Wild: 'We don't take this for granted'**\
 `Nick made his debut against the Avalanche, but negotiations are still underway for who has to change his nameplate when Marcus returns.`\
 https://nytimes.com/athletic/7100195/2026/03/09/wild-nick-marcus-foligno-brothers-teammates/
-
-**How Victor Wembanyama normalizes the absurd: 'He's 7-5 with like an 8-foot wingspan'**\
-`Wembanyama had another eye-popping line Sunday, with 29 points, eight rebounds, four blocks and two steals in the Spurs' win over Houston.`\
-https://nytimes.com/athletic/7100314/2026/03/09/victor-wembanyama-stats-spurs-rockets-mvp-candidate/
 

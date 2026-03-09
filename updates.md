@@ -1,3 +1,8 @@
+**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
+`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
+`\
+https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
+
 **Later WBC round could feature Twins legends Johan Santana, Justin Morneau in different dugouts**\
 `Santana and Morneau haven't coached professionally before, but each jumped at a chance to coach his homeland's team in the WBC.`\
 https://nytimes.com/athletic/7097633/2026/03/09/johan-santana-justin-morneau-world-baseball-classic-coaches/
