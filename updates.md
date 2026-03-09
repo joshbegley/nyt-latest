@@ -1,3 +1,11 @@
+**Kenneth Walker III joins short list of Super Bowl MVPs who changed teams**\
+`Kenneth Walker III joins a short list of Super Bowl MVP's to play for different team the next season.`\
+https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
+
+**Landon Emenalo, the Chelsea hopeful with a family connection — and his NBA prospect brother**\
+`Landon Emenalo has signed a second professional contract with Chelsea. His father Michael held a key role at the club`\
+https://nytimes.com/athletic/7099981/2026/03/09/landon-emenalo-michael-seb-chelsea-nba/
+
 **Edge rusher Odafe Oweh agrees to deal with Commanders**\
 `Oweh was traded from the Ravens to the Chargers last season and responded with 10.5 sacks in L.A., including the playoffs.`\
 https://nytimes.com/athletic/7089631/2026/03/09/odafe-oweh-commanders-nfl-free-agency-2026/

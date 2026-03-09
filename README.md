@@ -1,5 +1,5 @@
-**Kenneth Walker III joins short list of Super Bowl MVPs who changed teams**\
-`Kenneth Walker III joins a short list of Super Bowl MVP's to play for different team the next season.`\
+**Kenneth Walker III is 4th Super Bowl MVP to change teams: Here's how others fared**\
+`Seahawks running back has agreed to a deal with the Chiefs, joining a short list of players to make a move after winning Super Bowl MVP.`\
 https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
 
 **Landon Emenalo, the Chelsea hopeful with a family connection — and his NBA prospect brother**\
@@ -34,8 +34,4 @@ https://nytimes.com/athletic/7102422/2026/03/09/submit-your-questions-for-murat-
 **Bengals, S Bryan Cook agree to three-year deal: Reports**\
 `The former Bearcat and Mt. Healthy High School product is set to return to Cincinnati to anchor the secondary.`\
 https://nytimes.com/athletic/7102434/2026/03/09/bryan-cook-bengals-nfl-free-agency-2026/
-
-**Chargers get boost at TE with Charlie Kolar, a blocker with receiving upside**\
-`Kolar is an elite run blocker whose receiving skills were untapped as he played behind Mark Andrews and Isaiah Likely.`\
-https://nytimes.com/athletic/7102253/2026/03/09/charlie-kolar-chargers-nfl-free-agency-2026/
 

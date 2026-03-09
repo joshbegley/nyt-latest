@@ -1,3 +1,11 @@
+**Kenneth Walker III joins short list of Super Bowl MVPs who changed teams**\
+`Kenneth Walker III joins a short list of Super Bowl MVP's to play for different team the next season.`\
+https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
+
+**Landon Emenalo, the Chelsea hopeful with a family connection — and his NBA prospect brother**\
+`Landon Emenalo has signed a second professional contract with Chelsea. His father Michael held a key role at the club`\
+https://nytimes.com/athletic/7099981/2026/03/09/landon-emenalo-michael-seb-chelsea-nba/
+
 **Edge rusher Odafe Oweh agrees to deal with Commanders**\
 `Oweh was traded from the Ravens to the Chargers last season and responded with 10.5 sacks in L.A., including the playoffs.`\
 https://nytimes.com/athletic/7089631/2026/03/09/odafe-oweh-commanders-nfl-free-agency-2026/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7102434/2026/03/09/bryan-cook-bengals-nfl-free-agen
 **Chargers get boost at TE with Charlie Kolar, a blocker with receiving upside**\
 `Kolar is an elite run blocker whose receiving skills were untapped as he played behind Mark Andrews and Isaiah Likely.`\
 https://nytimes.com/athletic/7102253/2026/03/09/charlie-kolar-chargers-nfl-free-agency-2026/
-
-**3 Prosecutors Are Running U.S. Attorney’s Office Unlawfully, Judge Rules**\
-`The ruling, which found that the three-person leadership team in New Jersey’s federal prosecutor’s office was illegal, will again throw the direction of the office into question.`\
-https://nytimes.com/2026/03/09/nyregion/us-attorney-nj-prosecutors.html
-
-**2 Teen Mariachi Musicians Released From ICE Detention**\
-`Representative Joaquin Castro of Texas led a delegation of Democrats to a South Texas detention center to press for the release of the brothers and their family.`\
-https://nytimes.com/2026/03/09/us/politics/mariachi-teens-immigration.html
 
