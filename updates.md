@@ -1,3 +1,23 @@
+**Ohio State University President Resigns Over ‘Inappropriate Relationship’**\
+`The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
+https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
+
+**Super Bowl MVP Kenneth Walker III agrees to deal with Chiefs: Sources**\
+`Walker rushed for 161 yards to become the first running back in 28 years to win the Super Bowl MVP.`\
+https://nytimes.com/athletic/7087231/2026/03/09/kenneth-walker-nfl-free-agent-2026/
+
+**IndyCar to race past iconic Washington landmarks in 1.7-mile Freedom 250 course**\
+`IndyCar on Monday unveiled the course for the 1.7-mile, seven-turn course that will twice pass through the National Mall.`\
+https://nytimes.com/athletic/7101412/2026/03/09/indycar-washington-dc-race-course-layout-freedom-250/
+
+**G7 Countries Hold Off on Releasing Emergency Oil Supplies**\
+`Finance ministers for the seven industrialized countries met on Monday and said they would consider releasing oil from reserves but were not ready to do so now.`\
+https://nytimes.com/2026/03/09/business/energy-environment/iran-g7-oil-reserves.html
+
+**Game of the year? 10 more thoughts on Sabres' unforgettable win over Lightning**\
+`This was one of those games that people in attendance will remember for the rest of their lives.`\
+https://nytimes.com/athletic/7101463/2026/03/09/sabres-lightning-nhl-score-highlights-fights/
+
 **An Amish Avatar and an A.I. Monk Are Pitching Supplements on Social Media**\
 `Influencers have long hawked supplements on platforms like Instagram and TikTok. Increasingly, the influencers are fake.`\
 https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-media-supplements.html
