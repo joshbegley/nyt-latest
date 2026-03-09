@@ -31,10 +31,6 @@ https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-age
 https://nytimes.com/2026/03/09/us/bernard-lafayette-jr-dead.html
 
 **Commanders, LT Laremy Tunsil agree to 2-year extension: Source**\
-`The Commanders traded for Tunsil last year believing his play would fortify their offensive line.`\
+`The Commanders traded for Tunsil last year, believing his play would fortify their offensive line.`\
 https://nytimes.com/athletic/7101752/2026/03/09/laremy-tunsil-commanders-contract-extension/
-
-**Blue Jackets Monday gathering: Trade brings a welcome change for Conor Garland**\
-`"It's fun being back in a playoff race," Garland said after coming over from the Vancouver Canucks.`\
-https://nytimes.com/athletic/7098921/2026/03/09/blue-jackets-conor-garland-notebook/
 

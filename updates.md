@@ -1,3 +1,7 @@
+**Commanders, LT Laremy Tunsil agree to 2-year extension: Source**\
+`The Commanders traded for Tunsil last year, believing his play would fortify their offensive line.`\
+https://nytimes.com/athletic/7101752/2026/03/09/laremy-tunsil-commanders-contract-extension/
+
 **‘Let’s Go for a Walk’: Three Dance Artists Strip Down Movement**\
 `At the Dance Reflections festival, Nacera Belaza, Anne Teresa De Keersmaeker and Noé Soulier all attempted some form of going back to basics. Results varied.`\
 https://nytimes.com/2026/03/09/arts/dance/nacera-belaza-noe-soulier-anne-teresa-de-keersmaeker-dance-reflections.html
