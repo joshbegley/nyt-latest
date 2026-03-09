@@ -1,4 +1,8 @@
-**Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch til November'**\
+**Seahawks bringing back WR Rashid Shaheed on 3-year deal: Sources**\
+`Shaheed scored three return touchdowns, including one in the playoffs, after joining the Seahawks via trade in October.`\
+https://nytimes.com/athletic/7088251/2026/03/09/rashid-shaheed-seahawks-nfl-free-agency-2026/
+
+**Garrett Crochet skipped WBC to refine his delivery: 'The plan is to pitch till November'**\
 `“I wanted to have a normal spring training coming off the highest workload I've ever had," he said. "I don't want to get going too early."`\
 https://nytimes.com/athletic/7102595/2026/03/09/red-sox-garrett-crochet-world-baseball-classic/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/style/finance-bros-wall-street-fashion.html
 **Broncos releasing LB Dre Greenlaw after one season in Denver: Source**\
 `Greenlaw, a big signing last year in free agency, was limited to eight regular-season games because of injury.`\
 https://nytimes.com/athletic/7102783/2026/03/09/broncos-release-dre-greenlaw/
-
-**How Americans Are Feeling the Economic Effects of the War With Iran**\
-`Gas prices are rising, with the cost of food likely to follow. If the conflict drags on, the fallout for consumers could worsen, experts warned.`\
-https://nytimes.com/2026/03/09/business/iran-oil-prices-economic-impact.html
 
