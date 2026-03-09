@@ -1,3 +1,7 @@
+**Later WBC round could feature Twins legends Johan Santana, Justin Morneau in different dugouts**\
+`Santana and Morneau haven't coached professionally before, but each jumped at a chance to coach his homeland's team in the WBC.`\
+https://nytimes.com/athletic/7097633/2026/03/09/johan-santana-justin-morneau-world-baseball-classic-coaches/
+
 **Ten Ohio State players I'm watching closely: What will we learn this spring?**\
 `Ohio State has one of the most talented rosters in the country, as usual, but the next month will be pivotal for several rising players.`\
 https://nytimes.com/athletic/7090515/2026/03/09/ohio-state-football-spring-practice-portal-roster/

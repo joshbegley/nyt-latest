@@ -1,3 +1,7 @@
+**Later WBC round could feature Twins legends Johan Santana, Justin Morneau in different dugouts**\
+`Santana and Morneau haven't coached professionally before, but each jumped at a chance to coach his homeland's team in the WBC.`\
+https://nytimes.com/athletic/7097633/2026/03/09/johan-santana-justin-morneau-world-baseball-classic-coaches/
+
 **Ten Ohio State players I'm watching closely: What will we learn this spring?**\
 `Ohio State has one of the most talented rosters in the country, as usual, but the next month will be pivotal for several rising players.`\
 https://nytimes.com/athletic/7090515/2026/03/09/ohio-state-football-spring-practice-portal-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100195/2026/03/09/wild-nick-marcus-foligno-brother
 **How Victor Wembanyama normalizes the absurd: 'He's 7-5 with like an 8-foot wingspan'**\
 `Wembanyama had another eye-popping line Sunday, with 29 points, eight rebounds, four blocks and two steals in the Spurs' win over Houston.`\
 https://nytimes.com/athletic/7100314/2026/03/09/victor-wembanyama-stats-spurs-rockets-mvp-candidate/
-
-**Gonzaga-Saint Mary's was college hoops' best new rivalry. Conference realignment might take it away**\
-`The Zags and Gaels have met for the conference championship 15 times since 2004, but Gonzaga is headed to the Pac-12 after this season.`\
-https://nytimes.com/athletic/7099003/2026/03/09/gonzaga-saint-marys-basketball-rivalry-wcc-tournament/
 
