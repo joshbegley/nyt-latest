@@ -1,3 +1,7 @@
+**College baseball week in review: LSU reeling after losses to Northeastern, Sacramento State**\
+`LSU lost two nonconference games all of last season. It lost four in a week to begin this March.`\
+https://nytimes.com/athletic/7101140/2026/03/09/college-baseball-lsu-sacramento-state-high-point-florida/
+
 **Liverpool's Alisson to miss Champions League first leg against Galatasaray**\
 `Liverpool have opted not to risk the 33-year-old Brazilian after he felt some discomfort during training.`\
 https://nytimes.com/athletic/7101225/2026/03/09/liverpool-alisson-injury-update-galatasaray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101105/2026/03/09/francis-ngannou-mma-return-rouse
 **Can You Identify These Lengthy Novels From Their Descriptions?**\
 `Try this short quiz on very long books.`\
 https://nytimes.com/interactive/2026/03/09/books/review/giant-novels-quiz.html
-
-**Jets agree to trade for Dolphins safety Minkah Fitzpatrick: Sources**\
-`Fitzpatrick joins a Jets secondary that failed to record an interception in 2025.`\
-https://nytimes.com/athletic/7101175/2026/03/09/jets-minkah-fitzpatrick-trade-defense/
 
