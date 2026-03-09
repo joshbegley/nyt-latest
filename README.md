@@ -1,3 +1,15 @@
+**Titans agree to free-agent deal with former Saints CB Alontae Taylor: Sources**\
+`Taylor hasn't missed a game in three seasons, with four interceptions, 41 pass breakups, three forced fumbles and seven sacks.`\
+https://nytimes.com/athletic/7095278/2026/03/09/alontae-taylor-titans-nfl-free-agency-2026/
+
+**Giants agree to free-agent deal with ex-Bears LB Tremaine Edmunds: Sources**\
+`Edmunds is set to step in immediately for John Harbaugh's Giants.`\
+https://nytimes.com/athletic/7102270/2026/03/09/tremaine-edmunds-giants-free-agency-2026/
+
+**Seahawks agree to re-sign CB Josh Jobe for 3 years, $24M: Source**\
+`Once a member of the Seahawks' practice squad, Jobe developed into a reliable starter on a Super Bowl-winning defense.`\
+https://nytimes.com/athletic/7088240/2026/03/09/josh-jobe-seahawks-nfl-free-agency-2026/
+
 **Commanders agree to deal to bring back veteran QB Marcus Mariota: Source**\
 `Mariota spent the past two seasons as a backup to Jayden Daniels in Washington, playing in 14 games in that span. `\
 https://nytimes.com/athletic/7098086/2026/03/09/marcus-mariota-commanders-nfl-free-agency-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7102403/2026/03/09/knicks-vs-clippers-stream-how-to
 **How to watch Senators vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7102398/2026/03/09/senators-vs-canucks-stream-how-to-watch-march-9/
-
-**U.S. Reaches Tentative Deal Ending Prosecution of Turkish Bank**\
-`Court papers submitted as part of the agreement with Halkbank, which was accused of doing business with Iranian entities, said Turkey’s assistance “was instrumental” in the Israel-Hamas cease-fire.`\
-https://nytimes.com/2026/03/09/us/politics/us-turkey-halkbank-deal.html
-
-**How to watch Nuggets vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7102394/2026/03/09/nuggets-vs-thunder-stream-how-to-watch-march-9/
-
-**How to watch Warriors vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7102395/2026/03/09/warriors-vs-jazz-stream-how-to-watch-march-9/
 
