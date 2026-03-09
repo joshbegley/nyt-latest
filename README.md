@@ -1,3 +1,7 @@
+**First, They Were Just Fishing. Then the Ice Started Moving.**\
+`Nearly two dozen people in Canada were stranded on ice that separated from shore. “We honestly thought we were doomed,” one fisherman said.`\
+https://nytimes.com/2026/03/09/world/canada/fishermen-ice-shelf-rescue-canada.html
+
 **More Strong Storms Expected After Deadly Midwest Tornadoes**\
 `More than 70 million people are expected to be at some risk for severe weather on Tuesday.`\
 https://nytimes.com/2026/03/09/weather/tornado-forecast-midwest-michigan-chicago.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/03/09/weather/tornado-forecast-midwest-michigan-chicago
 https://nytimes.com/2026/03/09/world/middleeast/iran-video-explosion-boys-school.html
 
 **Linebacker Jaelan Phillips agrees to 4-year deal with Panthers**\
-`The Eagles acquired Phillips in a trade last season.`\
+`The Panthers were looking to improve their pass rush and adding Phillips is a big step in that direction.`\
 https://nytimes.com/athletic/7090485/2026/03/09/jaelan-phillips-panthers-nfl-free-agency-2026/
 
 **Scoop City: Biggest swing in Ravens history**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100461/2026/03/09/mavericks-mailbag-regular-season
 **Colman McCarthy, Journalist Who Waged Peace in the Classroom, Dies at 87**\
 `For decades, he wrote a syndicated column in The Washington Post promoting nonviolence. That became the subject of a course he taught for nearly 40 years.`\
 https://nytimes.com/2026/03/09/business/media/colman-mccarthy-dead.html
-
-**Ohio State University President Resigns Over ‘Inappropriate Relationship’**\
-`The president, Walter Carter Jr., said he “made a mistake in allowing inappropriate access to Ohio State leadership.”`\
-https://nytimes.com/2026/03/09/us/ohio-state-president-resigns.html
 
