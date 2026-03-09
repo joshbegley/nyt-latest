@@ -1,3 +1,11 @@
+**Andrew Kurka is going for Paralympic gold. After, his Alaska bed and breakfast awaits**\
+`The para Alpine skier is back for one more medal shot. His true calling is back home in the wilderness of Alaska.`\
+https://nytimes.com/athletic/7099582/2026/03/09/andrew-kurka-paralympics-alaska-alpine-skiing-bed-and-breakfast/
+
+**The art of the perfect shot in wheelchair curling, where there's no 'cheating' (sweeping)**\
+`Paralympic curlers don't get the benefit of sweeping to make their shots perfect. Here's how they lock in on a "far more skillful" endeavor.`\
+https://nytimes.com/athletic/7099622/2026/03/09/paralympics-wheelchair-curling-shot-sweeping/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/09/crosswords/spelling-bee-forum.html
