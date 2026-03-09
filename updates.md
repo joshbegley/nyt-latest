@@ -1,3 +1,23 @@
+**First, They Were Just Fishing. Then the Ice Started Moving.**\
+`Nearly two dozen people in Canada were stranded on ice that separated from shore. “We honestly thought we were doomed,” one fisherman said.`\
+https://nytimes.com/2026/03/09/world/canada/fishermen-ice-shelf-rescue-canada.html
+
+**More Strong Storms Expected After Deadly Midwest Tornadoes**\
+`More than 70 million people are expected to be at some risk for severe weather on Tuesday.`\
+https://nytimes.com/2026/03/09/weather/tornado-forecast-midwest-michigan-chicago.html
+
+**Video Captures Apparent Strike Near Boys’ School in Iran**\
+`A communications tower seemed to be the intended target, according to satellite imagery analysis. Iranian state media reported that a boy had been killed in the explosion.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-video-explosion-boys-school.html
+
+**Linebacker Jaelan Phillips agrees to 4-year deal with Panthers**\
+`The Panthers were looking to improve their pass rush and adding Phillips is a big step in that direction.`\
+https://nytimes.com/athletic/7090485/2026/03/09/jaelan-phillips-panthers-nfl-free-agency-2026/
+
+**Scoop City: Biggest swing in Ravens history**\
+`Unpacking the Ravens' blockbuster, the best players potentially available at each position and a busy morning in Miami`\
+https://nytimes.com/athletic/7101731/2026/03/09/ravens-trade-maxx-crosby-free-agency-primer/
+
 **Rams agree to sign former Chiefs CB Jaylen Watson: Sources**\
 `Watson was one of just two 2025 cornerbacks who played half their team’s coverage snaps and did not allow a TD, per Pro Football Focus.`\
 https://nytimes.com/athletic/7088038/2026/03/09/jaylen-watson-rams-nfl-free-agency-2026/
