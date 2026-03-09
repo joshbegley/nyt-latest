@@ -1,3 +1,23 @@
+**Panama's Jonathan Araúz has altercation with manager José Mayorga during WBC loss**\
+`Araúz yelled at his manager as he came off the field following a ninth-inning at-bat and had to be physically restrained.`\
+https://nytimes.com/athletic/7102530/2026/03/09/panama-jonathan-arauz-jose-mayorga-altercation-wbc/
+
+**Tarik Skubal will return to Tigers camp after Team USA's game with Mexico**\
+`The reigning AL Cy Young winner will stick to his original plan of only making one start for Team USA during the World Baseball Classic.`\
+https://nytimes.com/athletic/7102262/2026/03/09/tarik-skubal-world-baseball-classic-detroit-tigers-usa/
+
+**Michael Pittman Jr. trade grades: Steelers take advantage of Colts salary dump**\
+`Pittsburgh was able to add a starting receiver after Indianapolis invested heavily in Alec Pierce.`\
+https://nytimes.com/athletic/7102633/2026/03/09/michael-pittman-jr-steelers-colts-trade-grades/
+
+**Ukraine Lends a Hand**\
+`Countries targeted by Iranian drones are eager to tap into Ukrainian expertise to shoot them down.`\
+https://nytimes.com/2026/03/09/world/ukraine-iran-drones-war-oil-khamenei.html
+
+**Bombing Iran to Rubble Won’t Give It Life**\
+`Only when the U.S.-Israeli bombing of Iran comes to a halt, without destroying the state, can the Iranian people sort out their fate.`\
+https://nytimes.com/2026/03/09/opinion/iran-israel-united-states-bombing.html
+
 **Cowboys agree to 3-year deal with safety Jalen Thompson**\
 `Thompson is a rangy free safety and is expected to start alongside Malik Hooker in the secondary.`\
 https://nytimes.com/athletic/7102533/2026/03/09/jalen-thompson-cowboys-nfl-free-agency-2026/
@@ -13,20 +33,4 @@ https://nytimes.com/2026/03/09/health/fda-e-cigarettes-flavors.html
 **USMNT's Pochettino expected to attend Atletico Madrid vs Tottenham**\
 `The 54-year-old USMNT head coach will be an official guest of Atletico, and may have a watching brief over midfielder Johnny Cardoso.`\
 https://nytimes.com/athletic/7102486/2026/03/09/pochettino-usmnt-tottenham-atletico-madrid/
-
-**Tua Tagovailoa to sign with Falcons as former Dolphins starter looks for reset**\
-`Tagovailoa was benched late last season as the Dolphins prepared to move on from the No. 5 pick from the 2020 draft.`\
-https://nytimes.com/athletic/7091521/2026/03/09/tua-tagovailoa-falcons-nfl-free-agency-2026/
-
-**NFL announces 2026 compensatory draft picks: Eagles, Ravens, Steelers receive 4 each**\
-`The NFL announced the 33 compensatory draft picks that have been awarded for the 2026 NFL Draft.`\
-https://nytimes.com/athletic/7088842/2026/03/09/nfl-draft-2026-comp-picks-steelers-ravens-vikings/
-
-**Kenneth Walker is 4th to change teams after winning SB MVP: Here's how others fared**\
-`Seahawks running back has agreed to a deal with the Chiefs, joining a short list of players to make a move after winning Super Bowl MVP.`\
-https://nytimes.com/athletic/7102187/2026/03/09/kenneth-walker-super-bowl-mvp-changed-teams/
-
-**Landon Emenalo, the Chelsea hopeful with a family connection — and his NBA prospect brother**\
-`Landon Emenalo has signed a second professional contract with Chelsea. His father Michael held a key role at the club`\
-https://nytimes.com/athletic/7099981/2026/03/09/landon-emenalo-michael-seb-chelsea-nba/
 
