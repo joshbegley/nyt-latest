@@ -1,3 +1,23 @@
+**Former Liverpool defender Kabak interview: 'I think big things are still ahead of me'**\
+`Ozan Kabak has reflected on his time with Liverpool, his goalscoring form and his future`\
+https://nytimes.com/athletic/7093131/2026/03/09/liverpool-ozan-kabak-interview/
+
+**How Wrexham got close to a famous upset against Chelsea: Dynamism, aggression, and leaving Sanchez**\
+`Chelsea's head coach praised their Championship opponents, and rightly so — this is how Phil Parkinson's side impressed`\
+https://nytimes.com/athletic/7098819/2026/03/09/wrexham-chelsea-fa-cup-sanchez/
+
+**The New York Times in Print for Monday, March 9, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/09/todays-new-york-times
+
+**‘Scarpetta,’ Plus 7 Things to Watch on TV This Week**\
+`A new show staring Nicole Kidman premieres, and the 98th Academy Awards air live.`\
+https://nytimes.com/2026/03/09/arts/television/scarpetta-plus-7-things-to-watch-on-tv-this-week.html
+
+**Trump’s War, Americans’ Risk: How the President Betrayed His First Duty**\
+`The Trump administration failed to plan for evacuating either its diplomats or its citizens and did not adequately warn either. `\
+https://nytimes.com/2026/03/09/opinion/iran-war-evacuation-trump.html
+
 **Fire Breaks Out Near Glasgow Central Station**\
 `Firefighters brought a blaze under control after it consumed a building on the same street as Scotland’s busiest station. It forced train service to close, the authorities said.`\
 https://nytimes.com/video/world/europe/100000010762641/glasgow-central-train-station-fire.html

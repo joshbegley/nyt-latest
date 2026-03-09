@@ -1,3 +1,23 @@
+**Former Liverpool defender Kabak interview: 'I think big things are still ahead of me'**\
+`Ozan Kabak has reflected on his time with Liverpool, his goalscoring form and his future`\
+https://nytimes.com/athletic/7093131/2026/03/09/liverpool-ozan-kabak-interview/
+
+**How Wrexham got close to a famous upset against Chelsea: Dynamism, aggression, and leaving Sanchez**\
+`Chelsea's head coach praised their Championship opponents, and rightly so — this is how Phil Parkinson's side impressed`\
+https://nytimes.com/athletic/7098819/2026/03/09/wrexham-chelsea-fa-cup-sanchez/
+
+**The New York Times in Print for Monday, March 9, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/09/todays-new-york-times
+
+**‘Scarpetta,’ Plus 7 Things to Watch on TV This Week**\
+`A new show staring Nicole Kidman premieres, and the 98th Academy Awards air live.`\
+https://nytimes.com/2026/03/09/arts/television/scarpetta-plus-7-things-to-watch-on-tv-this-week.html
+
+**Trump’s War, Americans’ Risk: How the President Betrayed His First Duty**\
+`The Trump administration failed to plan for evacuating either its diplomats or its citizens and did not adequately warn either. `\
+https://nytimes.com/2026/03/09/opinion/iran-war-evacuation-trump.html
+
 **The Hidden Factor Behind Your Home Insurance Cost: Your Credit History**\
 `In many states, homeowners with   excellent credit scores are charged less for home insurance than those with worse scores, even if they live in a disaster-prone area.`\
 https://nytimes.com/interactive/2026/03/09/climate/home-insurance-credit-scores.html
@@ -19,24 +39,4 @@ https://nytimes.com/athletic/7100495/2026/03/09/submit-a-question-for-stewart-ma
 **What makes Tetairoa McMillan reliable on fourth down? Watch him analyze film**\
 `Tetairoa McMillan was one of the most-targeted wide receivers on third and fourth down as a rookie. But that trust doesn't happen overnight.`\
 https://nytimes.com/athletic/7090777/2026/03/09/tetairoa-mcmillan-panthers/
-
-**On the Road With Zelensky, Weathered, Weary and Fighting On**\
-`Ukraine’s leader, Volodymyr Zelensky, traveled east to visit frontline troops trying to stave off Russian attacks, and invited reporters for The New York Times to go with him.`\
-https://nytimes.com/2026/03/09/world/europe/ukraine-zelensky-frontline-tour.html
-
-**D'Andre Swift only needs 'a little space' to make magic: Watch him analyze film**\
-`What's so special about it D'Andre Swift in Ben Johnson's offense? He reviewed some of his own film to break it down.`\
-https://nytimes.com/athletic/7087926/2026/03/09/dandre-swift-bears/
-
-**Ukraine Sent Drone Experts to Protect U.S. Bases in Jordan, Zelensky Says**\
-`As the war in Iran spreads, Kyiv is eagerly offering its hard-won expertise and advanced technology to counter Iranian drones.`\
-https://nytimes.com/2026/03/09/world/middleeast/ukraine-shahed-drone-middle-east.html
-
-**Watch Alex Highsmith break down one of his signature moves on film**\
-`To Alex Highsmith, there are two main steps that he relies on when he hits the field. Fortunately for us, spilled all the details.`\
-https://nytimes.com/athletic/7090942/2026/03/09/alex-highsmith-steelers/
-
-**How Fred Warner confuses QBs pre-snap: Watch him break down film**\
-`Ever wonder what makes Fred Warner such a tenacious player? He peeled back the curtain and talked us through it.`\
-https://nytimes.com/athletic/7084391/2026/03/09/how-fred-warner-confuses-quarterbacks-pre-snap/
 
