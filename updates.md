@@ -1,3 +1,11 @@
+**Amazon Veteran to Lead Simon & Schuster**\
+`Greg Greeley, who once ran Amazon’s books and media business, will succeed Jonathan Karp as chief executive at one of the largest book publishers in the U.S.`\
+https://nytimes.com/2026/03/09/books/simon-schuster-greg-greeley.html
+
+**Wide receiver Alec Pierce returning to Colts: Sources**\
+`Pierce led the NFL in yards per reception the last two seasons and routinely makes contested catches downfield.`\
+https://nytimes.com/athletic/7083700/2026/03/09/alec-pierce-nfl-free-agency-2026/
+
 **How The Times Reports on the War in Iran and Beyond**\
 `Staying safe and corroborating facts are among the challenges for journalists working under intense pressure around the clock and the world.`\
 https://nytimes.com/2026/03/09/insider/07iran-israel-united-states-war.html

@@ -1,8 +1,12 @@
+**An Amish Avatar and an A.I. Monk Are Pitching Supplements on Social Media**\
+`Influencers have long hawked supplements on platforms like Instagram and TikTok. Increasingly, the influencers are fake.`\
+https://nytimes.com/2026/03/09/business/media/fake-ai-generated-accounts-social-media-supplements.html
+
 **Amazon Veteran to Lead Simon & Schuster**\
 `Greg Greeley, who once ran Amazon’s books and media business, will succeed Jonathan Karp as chief executive at one of the largest book publishers in the U.S.`\
 https://nytimes.com/2026/03/09/books/simon-schuster-greg-greeley.html
 
-**Wide receiver Alec Pierce returning to Colts: Sources**\
+**Wide receiver Alec Pierce returning to Colts: 'I knew where my heart was'**\
 `Pierce led the NFL in yards per reception the last two seasons and routinely makes contested catches downfield.`\
 https://nytimes.com/athletic/7083700/2026/03/09/alec-pierce-nfl-free-agency-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100685/2026/03/09/sf-giants-cactus-league-wbc-upda
 **Trump Threatens to Crowd Out Republicans’ Midterm Message**\
 `As the G.O.P. gathered in Miami for a party retreat where lawmakers hoped to focus on the economy, the president was threatening to block his own party’s legislative agenda.`\
 https://nytimes.com/2026/03/09/us/politics/trump-republicans-midterms.html
-
-**How to watch Fairfield vs. Quinnipiac women's basketball: MAAC Tournament Time, TV, streaming**\
-`Find out how to watch the Fairfield Stags play the Quinnipiac Bobcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7101547/2026/03/09/fairfield-vs-quinnipiac-stream-how-to-watch-march-9/
 
