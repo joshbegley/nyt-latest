@@ -1,3 +1,15 @@
+**John Caldwell, Father of Cross-Country Skiing in U.S., Dies at 97**\
+`A former Olympian himself, he wrote the sport’s bible, coached the American team at five Winter Games and helped make Vermont a hub of Nordic sports.`\
+https://nytimes.com/2026/03/09/sports/skiing/john-caldwell-dead.html
+
+**Steelers to sign former Bucs CB Jamel Dean to free-agent deal: Source**\
+`The Steelers also re-signed CB Asante Samuel Jr. on Monday.`\
+https://nytimes.com/athletic/7102147/2026/03/09/jamel-dean-steelers-free-agency-2026/
+
+**Bears agree to deal with free-agent linebacker Devin Bush: Source**\
+`Bush, a 2019 first-round pick, is coming off a career year in which he had 125 tackles, three interceptions and two sacks. `\
+https://nytimes.com/athletic/7099080/2026/03/09/devin-bush-bears-nfl-free-agency-2026/
+
 **Wasserman’s Name Is Erased From the Company He Founded**\
 `The sports and marketing agency founded by Casey Wasserman dropped his name in the latest fallout from the Epstein files.`\
 https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/09/nyregion/gracie-bomb-scene-mamdani.html
 **Bo Gritz, Vietnam Veteran Called a Real-Life Rambo, Dies at 87**\
 `He served in the Special Forces, led a postwar raid to find P.O.W.s and became a voice of the right-wing anti-government fringe.`\
 https://nytimes.com/2026/03/09/obituaries/bo-gritz-dead.html
-
-**Why Toccara Made Such an Impact on ‘America’s Next Top Model’**\
-`Toccara’s confidence and real-woman curves made her a fan favorite on “America’s Next Top Model,” says the writer, editor and stylist Michaela angela Davis on “Cannonball.`\
-https://nytimes.com/video/podcasts/100000010763452/why-toccara-made-such-an-impact-on-americas-next-top-model.html
-
-**With Lots of Rumors and Little Information, Other Cities Prepare for ICE**\
-`After the sprawling and chaotic federal immigration crackdown in Minnesota, jurisdictions in other states have been bracing for a range of scenarios.`\
-https://nytimes.com/2026/03/09/us/ice-immigration-crackdown-minnesota-ohio.html
-
-**At a cemetery in Tehran, fresh graves and angry slogans.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/03/09/world/iran-war-israel-trump-oil/at-a-cemetery-in-tehran-fresh-graves-and-angry-slogans
 

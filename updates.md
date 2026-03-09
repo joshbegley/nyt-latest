@@ -1,3 +1,15 @@
+**John Caldwell, Father of Cross-Country Skiing in U.S., Dies at 97**\
+`A former Olympian himself, he wrote the sport’s bible, coached the American team at five Winter Games and helped make Vermont a hub of Nordic sports.`\
+https://nytimes.com/2026/03/09/sports/skiing/john-caldwell-dead.html
+
+**Steelers to sign former Bucs CB Jamel Dean to free-agent deal: Source**\
+`The Steelers also re-signed CB Asante Samuel Jr. on Monday.`\
+https://nytimes.com/athletic/7102147/2026/03/09/jamel-dean-steelers-free-agency-2026/
+
+**Bears agree to deal with free-agent linebacker Devin Bush: Source**\
+`Bush, a 2019 first-round pick, is coming off a career year in which he had 125 tackles, three interceptions and two sacks. `\
+https://nytimes.com/athletic/7099080/2026/03/09/devin-bush-bears-nfl-free-agency-2026/
+
 **Wasserman’s Name Is Erased From the Company He Founded**\
 `The sports and marketing agency founded by Casey Wasserman dropped his name in the latest fallout from the Epstein files.`\
 https://nytimes.com/2026/03/09/us/casey-wasserman-epstein-company-name.html
