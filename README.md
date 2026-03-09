@@ -1,8 +1,16 @@
+**Ryan Walker aims to forge ahead as Giants' closer, with an assist from Sergio Romo**\
+`As a spring training guest instructor, Romo spoke with Walker about how to handle failure and how to adjust when the league adjusts to you.`\
+https://nytimes.com/athletic/7100298/2026/03/09/sf-giants-ryan-walker-sergio-romo-closer/
+
+**Ari Emanuel Made His Name as a Talent Agent. Now He’s the Talent.**\
+`Hollywood’s archetypical agent has been showing a very different side of himself as a host of a video podcast called “Rushmore.”`\
+https://nytimes.com/2026/03/09/business/ariel-emanuel-agents-podcasts.html
+
 **The Windup: WBC, it's a celebration 🎵**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7101825/2026/03/09/world-baseball-classic-olympics-the-windup/
 
-**Ravens agree to 3-year deal with G John Simpson: Sources**\
+**Ravens agree to 3-year deal with G John Simpson: Source**\
 `Simpson has started all 51 regular-season games over the last three years with the Ravens and Jets. `\
 https://nytimes.com/athletic/7101814/2026/03/09/john-simpson-ravens-nfl-free-agency-2026/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7090486/2026/03/09/isaiah-likely-giants-nfl-free-ag
 **Steelers to acquire WR Michael Pittman Jr. in trade with Colts: Sources**\
 `Pittman led the Colts in receptions last season.`\
 https://nytimes.com/athletic/7101767/2026/03/09/michael-pittman-jr-steelers-nfl-free-agency-2026/
-
-**Malik Willis agrees to free-agent deal with Dolphins as QB gets his starting shot**\
-`Willis' standout Week 17 performance against the Ravens made it clear he deserved a chance to start elsewhere.`\
-https://nytimes.com/athletic/7088257/2026/03/09/malik-willis-dolphins-nfl-free-agency-2026/
-
-**First, They Were Just Fishing. Then the Ice Started Moving.**\
-`Nearly two dozen people in Canada were stranded on ice that separated from shore. “We honestly thought we were doomed,” one fisherman said.`\
-https://nytimes.com/2026/03/09/world/canada/fishermen-ice-shelf-rescue-canada.html
 
