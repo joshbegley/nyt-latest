@@ -1,3 +1,11 @@
+**Why are Villa still relying on Bailey and Buendia in 2026?**\
+`Forward duo's continued involvement in the first-team picture having come close to leaving emphasises this squad's lack of evolution`\
+https://nytimes.com/athletic/7089634/2026/03/09/aston-villa-buendia-bailey/
+
+**Restore Ramsey and rapid front three: what Howe must do for 'biggest game' in Newcastle's history**\
+`Eddie Howe surprised many by hyping up the arrival of Barcelona. The magnitude of the match is lost on nobody on Tyneside and beyond`\
+https://nytimes.com/athletic/7093388/2026/03/09/newcaste-eddie-howe-barcelona-champions-league/
+
 **Here’s the latest.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest

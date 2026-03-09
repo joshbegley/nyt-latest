@@ -1,3 +1,11 @@
+**Why are Villa still relying on Bailey and Buendia in 2026?**\
+`Forward duo's continued involvement in the first-team picture having come close to leaving emphasises this squad's lack of evolution`\
+https://nytimes.com/athletic/7089634/2026/03/09/aston-villa-buendia-bailey/
+
+**Restore Ramsey and rapid front three: what Howe must do for 'biggest game' in Newcastle's history**\
+`Eddie Howe surprised many by hyping up the arrival of Barcelona. The magnitude of the match is lost on nobody on Tyneside and beyond`\
+https://nytimes.com/athletic/7093388/2026/03/09/newcaste-eddie-howe-barcelona-champions-league/
+
 **Here’s the latest.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/09/world/iran-war-trump-israel-lebanon/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7098878/2026/03/09/chelsea-centre-circle-ritual-hud
 **Will Michael Carrick be Manchester United's permanent coach? Exploring the key questions**\
 `What do executives and players think of Carrick's impact? What has he shown on and off the pitch? Does he want it? Who are the alternatives?`\
 https://nytimes.com/athletic/7096150/2026/03/09/michael-carrick-manchester-united-future/
-
-**The furious rage of Fabian Hurzeler**\
-`The Brighton head coach wears his heart on his sleeve during games, but his own lack of discipline might be transmitting on to his players`\
-https://nytimes.com/athletic/6993583/2026/03/09/fabian-hurzeler-brighton-touchline-yellow-discipline/
-
-**The 10 cleverest corners from this Premier League season so far - Arsenal, Manchester United and plenty of Fulham**\
-`To narrow down the selection from more than 2,500 to 140, only those that resulted in a goal were in contention...`\
-https://nytimes.com/athletic/7082954/2026/03/09/premier-league-corner-analysis-arsenal-man-united/
 
