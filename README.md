@@ -1,3 +1,15 @@
+**How to watch Bethune-Cookman vs. Texas Southern women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Bethune-Cookman Wildcats play the Texas Southern Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100730/2026/03/09/bethune-cookman-vs-texas-southern-stream-how-to-watch-march-9/
+
+**How to watch East Texas A&M vs. Northwestern State women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the East Texas A&M Lions play the Northwestern State Lady Demons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100728/2026/03/09/east-texas-a-m-vs-northwestern-state-stream-how-to-watch-march-9/
+
+**How to watch Purdue Fort Wayne vs. Green Bay women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Fort Wayne Mastodons play the Green Bay Phoenix, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7100726/2026/03/09/purdue-fort-wayne-vs-green-bay-stream-how-to-watch-march-9/
+
 **Napheesa Collier on Unrivaled, and CBA negotiations**\
 `Plus, the future of women’s professional basketball.`\
 https://nytimes.com/2026/03/09/podcasts/napheesa-collier-unrivaled-cba-negotiations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/09/us/politics/markwayne-mullin-homeland-security-tr
 **How Did the Naked Dressing Trend Start?**\
 `Barely-there gowns are more popular than ever, but they aren’t necessarily new. Our critic traces the look across time.`\
 https://nytimes.com/2026/03/09/fashion/naked-dressing-red-carpet.html
-
-**Oil Remains Potent Geopolitical Tool, Decades After Energy Crisis**\
-`The war in the Middle East has sent prices soaring, showing how much the world continues to depend on reliable supplies of oil and gas.`\
-https://nytimes.com/2026/03/09/business/energy-environment/oil-gas-iran-war.html
-
-**Slouching Toward Bars, Booze and Babies**\
-`“Gunk,” a novel by Saba Sams, follows a woman through the trials and tenuous jobs of young adulthood.`\
-https://nytimes.com/2026/03/09/books/review/saba-sams-gunk.html
-
-**Trump Is Making the U.S. More Vulnerable to Oil Shocks**\
-`America is a big oil producer. But its overreliance on crude — and the president’s efforts to keep it that way — mean times like these can hurt.`\
-https://nytimes.com/2026/03/09/opinion/iran-war-trump-oil-prices.html
 
