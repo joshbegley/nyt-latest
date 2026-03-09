@@ -1,3 +1,7 @@
+**Israeli Forces Raid New Areas in Southern Lebanon**\
+`Israeli fighter jets also bombarded the southern outskirts of Beirut, the Lebanese capital, as part of its escalating military campaign against Hezbollah.`\
+https://nytimes.com/2026/03/09/world/middleeast/israeli-forces-raid-new-areas-in-southern-lebanon.html
+
 **No Corrections: March 9, 2026**\
 `No corrections appeared in print on Monday, March 9, 2026.`\
 https://nytimes.com/2026/03/09/pageoneplus/no-corrections-march-9-2026.html
@@ -22,7 +26,7 @@ https://nytimes.com/2026/03/09/world/middleeast/turkey-trial-imamoglu-erdogan.ht
 `By Chelsia Rose Marcius and Yan Zhuang`\
 https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc/here-is-the-latest
 
-**Live Updates: Investigators Focus on Pennsylvania Ties of Suspects in Gracie Mansion Incident**\
+**Live Updates: N.Y. Police Commissioner Says Gracie Mansion Incident Inspired by Islamic State**\
 `Mayor Zohran Mamdani was set to speak on Monday after an improvised explosive device was thrown near the mayor’s official residence. No one was injured in the incident on Saturday.`\
 https://nytimes.com/live/2026/03/09/nyregion/gracie-mansion-bomb-investigation-nyc
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100624/2026/03/09/shai-gilgeous-alexander-record-w
 **Bundesliga briefing: Koln’s Dortmund discontent, winless Wolfsburg reshuffle their pack, and VAR unplugged**\
 `From Bayern winning without Kane to late, late goals in Leipzig and Mainz, here is the latest round-up of Bundesliga and 2.Bundesliga action`\
 https://nytimes.com/athletic/7100666/2026/03/09/bundesliga-briefing-dortmund-koln-wolfsburg-var/
-
-**Jordan Poole left a legacy with the Wizards. Just ask his former teammates.**\
-`To many players on Washington's roster, Poole, now with the New Orleans Pelicans meant a lot as a mentor and as a friend.`\
-https://nytimes.com/athletic/7100517/2026/03/09/jordan-poole-washington-wizards-legacy-pelicans/
 
