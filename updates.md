@@ -1,3 +1,7 @@
+**Swept by its rival, Michigan State knows its season is riding on Jeremy Fears**\
+`The Spartans are going to go as far as Jeremy Fears can take them, and Tom Izzo seems to know it.`\
+https://nytimes.com/athletic/7099976/2026/03/08/michigan-msu-basketball-score-highlights/
+
 **Large Fire in Glasgow Forces Closure of Major Train Station**\
 `The blaze that started near Scotland’s busiest station was under control, but officials said they expected train service to be disrupted through Monday.`\
 https://nytimes.com/2026/03/08/world/europe/glasgow-central-train-station-fire.html
