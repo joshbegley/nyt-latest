@@ -1,3 +1,7 @@
+**Cowboys agree to 3-year deal with safety Jalen Thompson**\
+`Thompson is a rangy free safety and is expected to start alongside Malik Hooker in the secondary.`\
+https://nytimes.com/athletic/7102533/2026/03/09/jalen-thompson-cowboys-nfl-free-agency-2026/
+
 **Karen Petrou, Influential Fiscal Policy Analyst and Critic, Dies at 72**\
 `Her insights on financial regulations and monetary policy guided big banks and Washington policymakers.`\
 https://nytimes.com/2026/03/09/business/karen-petrou-dead.html
