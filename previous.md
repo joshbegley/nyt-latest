@@ -1,3 +1,11 @@
+**Ten Ohio State players I'm watching closely: What will we learn this spring?**\
+`Ohio State has one of the most talented rosters in the country, as usual, but the next month will be pivotal for several rising players.`\
+https://nytimes.com/athletic/7090515/2026/03/09/ohio-state-football-spring-practice-portal-roster/
+
+**Rebecca Solnit Says the Left’s Next Hero Is Already Here**\
+`The writer and activist Rebecca Solnit on how political change happens and taking the long view.`\
+https://nytimes.com/video/podcasts/100000010763063/rebecca-solnit-says-the-lefts-next-hero-is-already-here.html
+
 **Inside the mind of Yankees' Ben Rice, one of MLB's unluckiest hitters since his debut**\
 `Being unlucky at the plate — based on batted-ball data — has defined Rice's first two seasons. He's trusting the process and aiming higher. `\
 https://nytimes.com/athletic/7090904/2026/03/09/ben-rice-yankees-unlucky-hitter-stats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7100314/2026/03/09/victor-wembanyama-stats-spurs-ro
 **Gonzaga-Saint Mary's was college hoops' best new rivalry. Conference realignment might take it away**\
 `The Zags and Gaels have met for the conference championship 15 times since 2004, but Gonzaga is headed to the Pac-12 after this season.`\
 https://nytimes.com/athletic/7099003/2026/03/09/gonzaga-saint-marys-basketball-rivalry-wcc-tournament/
-
-**Homes Searched in Pennsylvania After Bomb Near N.Y.C. Mayor’s House**\
-`Federal authorities conducted searches a day after a homemade bomb was thrown outside Gracie Mansion, Mayor Zohran Mamdani’s official residence.`\
-https://nytimes.com/2026/03/09/nyregion/gracie-mansion-bomb-mamdani-pennsylvania.html
-
-**The War’s Effect on the Supermarket**\
-`We examine the Middle East’s role in food production.`\
-https://nytimes.com/2026/03/09/briefing/the-wars-effect-on-the-supermarket.html
 
