@@ -1,3 +1,7 @@
+**Trent McDuffie, Rams agree on four-year, $124M extension: Sources**\
+`The new contract will begin in 2027, as he will finish out his rookie contract with a fifth-year option season this year.`\
+https://nytimes.com/athletic/7100142/2026/03/08/trent-mcduffie-rams-agree-contract-extension-cornerback-nfl/
+
 **Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
 `Expert analysis from NASCAR's fourth race of the season, the Straight Talk Wireless 500 near Phoenix.`\
 https://nytimes.com/athletic/7100103/2026/03/08/ryan-blaney-phoenix-penske-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/08/us/politics/todd-inman-fired-national-transportat
 **Iran’s Security Establishment Celebrates Mojtaba Khamenei’s Selection**\
 `Opponents of the government, however, worried the new supreme leader, a son of the recently killed Ayatollah Ali Khamenei, would rule with an iron fist like his father.`\
 https://nytimes.com/2026/03/08/world/middleeast/iran-mojtaba-khamenei-supreme-leader-reactions.html
-
-**Despite mother's tears, Jayson Tatum's second game back with Celtics felt 'a lot more normal'**\
-`Celtics coach Joe Mazzulla said he expects 'an easy integration' as the Celtics readjust to life with Tatum.`\
-https://nytimes.com/athletic/7100008/2026/03/08/despite-mothers-tears-jayson-tatums-second-game-back-with-celtics-felt-a-lot-more-normal/
 

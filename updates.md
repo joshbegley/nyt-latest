@@ -1,3 +1,11 @@
+**Ryan Blaney delivers his typical NASCAR clinic in Phoenix, ends 23XI win streak**\
+`Expert analysis from NASCAR's fourth race of the season, the Straight Talk Wireless 500 near Phoenix.`\
+https://nytimes.com/athletic/7100103/2026/03/08/ryan-blaney-phoenix-penske-nascar/
+
+**Pain of Combat Deaths Doesn’t Fade Over Time, Families Say**\
+`The deaths of American troops in the Iran war are resurfacing the hurt felt by families of those lost in previous wars. “I know what they’re feeling — their whole world is falling apart,” one woman said.`\
+https://nytimes.com/2026/03/08/us/combat-deaths-families-pain.html
+
 **Lightning, Sabres put up their dukes in Atlantic Division showdown**\
 `After two periods and the score tied at 4-4, Tampa Bay and Buffalo have combined for 98 penalty minutes on Sunday.`\
 https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
