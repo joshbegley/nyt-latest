@@ -1,3 +1,7 @@
+**Word of the Day: clandestine**\
+`This word has appeared in 178 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/09/learning/word-of-the-day-clandestine.html
+
 **Why are Villa still relying on Bailey and Buendia in 2026?**\
 `Forward duo's continued involvement in the first-team picture having come close to leaving emphasises this squad's lack of evolution`\
 https://nytimes.com/athletic/7089634/2026/03/09/aston-villa-buendia-bailey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7098712/2026/03/09/edu-appointment-forest-exit/
 **Chelsea's centre-circle ritual that is winding up opposition players, fans and even pundits**\
 `Chelsea have been doing their huddle over the match ball since the game at Napoli in January but only now is it provoking a response...`\
 https://nytimes.com/athletic/7098878/2026/03/09/chelsea-centre-circle-ritual-huddle/
-
-**Will Michael Carrick be Manchester United's permanent coach? Exploring the key questions**\
-`What do executives and players think of Carrick's impact? What has he shown on and off the pitch? Does he want it? Who are the alternatives?`\
-https://nytimes.com/athletic/7096150/2026/03/09/michael-carrick-manchester-united-future/
 
