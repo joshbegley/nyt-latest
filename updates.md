@@ -1,3 +1,8 @@
+**TAFC: Outcry over Grok posts on stadium tragedies. Plus: Messi's full Inter Miami income revealed**\
+`Today in TAFC: Grok posts about Hillsborough, Munich and Jota deleted after complaints. Plus: Messi income revealed, strange FA Cup goals.
+`\
+https://nytimes.com/athletic/7100710/2026/03/09/grok-stadium-tragedy-posts/
+
 **Men's NCAA Tournament bubble watch: Does anyone want the final at-large spots?**\
 `Most of the bubble belly-flopped on the regular season's final weekend. What does it mean for Championship Week?`\
 https://nytimes.com/athletic/7099615/2026/03/09/mens-ncaa-tournament-bubble-watch-championship-week/
