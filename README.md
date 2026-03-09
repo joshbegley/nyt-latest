@@ -1,3 +1,11 @@
+**Iran War Sends Tremors Through the Global Economy**\
+`Also, a giant mirror could soon be sent into space. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/09/briefing/iran-war-oil-prices-gracie-mansion-attack.html
+
+**Shoppers Gone Feral**\
+`Customers withstood gate-keeping, bomb threats and heartbreakingly low inventory as a new era of Chanel hit stores during Paris Fashion Week.`\
+https://nytimes.com/2026/03/09/style/chanel-shopping-blazy-paris-fashion-week.html
+
 **Fashionable Wall Street Bros Set Off a Social Media Storm**\
 `They said yes to an Interview magazine fashion shoot. Then came the haters.`\
 https://nytimes.com/2026/03/09/style/fashionable-wall-street-bros-set-off-a-social-media-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6951456/2026/03/09/chiefs-travis-kelce-returning-20
 **NBA cancels Hawks' planned 'Magic City' promotion**\
 `The team originally announced plans to honor Magic City last month.`\
 https://nytimes.com/athletic/7102718/2026/03/09/nba-cancels-hawks-magic-city-night-promotion/
-
-**Broncos, LB Alex Singleton agree to new two-year, $15.5 million deal: Source**\
-`Denver locks down one of its key defensive cogs, avoids losing a top tackler in free agency.`\
-https://nytimes.com/athletic/7093578/2026/03/09/broncos-alex-singleton-nfl-free-agency-2026/
-
-**Australia Grants Humanitarian Visas to 5 Members of Iranian Women’s Soccer Team**\
-`Concern for the safety of the players had grown after Iranian state media criticized them for not singing the national anthem at a match in Australia.`\
-https://nytimes.com/2026/03/09/world/australia/iran-soccer-womens-team-australia.html
 
