@@ -1,3 +1,7 @@
+**Iraq coach asks FIFA to delay World Cup play-off game due to Middle East conflict**\
+`Iraq is set to play either Bolivia or Suriname  in the inter-confederation play-offs on March 31.`\
+https://nytimes.com/athletic/7100711/2026/03/09/iraq-world-cup-playoff-fifa-middle-east/
+
 **Russia wins first winter Paralympic gold medal for 12 years**\
 `Varvara Voronchikhina, one of six Russian athletes competing at the 2026 Games, took victory in the women's standing super-G.`\
 https://nytimes.com/athletic/7100741/2026/03/09/russia-winter-paralympics-gold-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100730/2026/03/09/bethune-cookman-vs-texas-souther
 **How to watch East Texas A&M vs. Northwestern State women's basketball: Southland Tournament Time, TV, streaming**\
 `Find out how to watch the East Texas A&M Lions play the Northwestern State Lady Demons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7100728/2026/03/09/east-texas-a-m-vs-northwestern-state-stream-how-to-watch-march-9/
-
-**How to watch Purdue Fort Wayne vs. Green Bay women's basketball: Horizon Tournament Time, TV, streaming**\
-`Find out how to watch the Purdue Fort Wayne Mastodons play the Green Bay Phoenix, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7100726/2026/03/09/purdue-fort-wayne-vs-green-bay-stream-how-to-watch-march-9/
 
