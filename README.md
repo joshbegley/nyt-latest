@@ -1,3 +1,7 @@
+**Landon Emenalo renews Chelsea contract through to 2031**\
+`The 18-year-old, son of former Chelsea technical director Michael Emenalo, is one of the club’s most highly-regarded academy prospect.`\
+https://nytimes.com/athletic/7102221/2026/03/09/emenalo-chelsea-contract-length/
+
 **Oman Becomes Unlikely Hub for Evacuees Fleeing War in Gulf**\
 `The international airport in Muscat, the Omani capital, has remained open while fighting in the region has escalated.`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-war-oman-evacuations.html
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/polls/illinois-us-house-8-polls-2026.html
 **Illinois 7th Congressional District 2026: Latest Polls**\
 `Track the latest polls in Illinois's 7th Congressional District.`\
 https://nytimes.com/interactive/polls/illinois-us-house-7-polls-2026.html
-
-**Illinois 2nd Congressional District 2026: Latest Polls**\
-`Track the latest polls in Illinois's 2nd Congressional District.`\
-https://nytimes.com/interactive/polls/illinois-us-house-2-polls-2026.html
 
