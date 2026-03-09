@@ -1,3 +1,7 @@
+**Epstein’s Remote Zorro Ranch Is Searched by New Mexico Investigators**\
+`Some of the disgraced financier’s victims have said they were trafficked at the property south of Santa Fe, where the nearest neighbors are miles away.`\
+https://nytimes.com/2026/03/09/us/epstein-new-mexico-zorro-ranch-search.html
+
 **Trump’s Offer to Iran’s Women’s Soccer Team Is an About-Face on Asylum**\
 `The dissonance between President Trump’s hard-line immigration policies and his call to grant asylum to the Iranian athletes was striking.`\
 https://nytimes.com/2026/03/09/us/politics/trumps-offer-to-irans-womens-soccer-team-is-an-about-face-on-asylum.html

@@ -30,8 +30,8 @@ https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-
 `Seumalo was a Pro Bowl selection in 2024.`\
 https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
 
-**Linebacker Nakobe Dean agrees to three-year deal with Raiders**\
-`Dean rebounded from a devastating knee injury that occurred in 2024.`\
+**Raiders agree to deals with linebackers Nakobe Dean, Quay Walker**\
+`Dean rebounded from a devastating knee injury that occurred in 2024, while Walker played well over four seasons in Green Bay.`\
 https://nytimes.com/athletic/7102874/2026/03/09/nakobe-dean-raiders-nfl-free-agency-2026/
 
 **SEC prepared to create own rules if necessary, commissioner Greg Sankey says**\

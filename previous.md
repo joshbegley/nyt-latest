@@ -1,3 +1,7 @@
+**Epstein’s Remote Zorro Ranch Is Searched by New Mexico Investigators**\
+`Some of the disgraced financier’s victims have said they were trafficked at the property south of Santa Fe, where the nearest neighbors are miles away.`\
+https://nytimes.com/2026/03/09/us/epstein-new-mexico-zorro-ranch-search.html
+
 **Trump’s Offer to Iran’s Women’s Soccer Team Is an About-Face on Asylum**\
 `The dissonance between President Trump’s hard-line immigration policies and his call to grant asylum to the Iranian athletes was striking.`\
 https://nytimes.com/2026/03/09/us/politics/trumps-offer-to-irans-womens-soccer-team-is-an-about-face-on-asylum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102874/2026/03/09/nakobe-dean-raiders-nfl-free-age
 **SEC prepared to create own rules if necessary, commissioner Greg Sankey says**\
 `Sankey says his preference is for the SEC not to “go our own way,” but also says “we can't go on as we are.”`\
 https://nytimes.com/athletic/7102691/2026/03/09/sec-commissioner-greg-sankey-ncaa-policy/
-
-**After Global Economy Shudders, Trump Zigzags on Whether War Will End Soon**\
-`Oil prices and stocks initially swung wildly, and Iran’s foreign minister promised “surprises,” calling the strikes against his country “Operation Epic Mistake.”`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-war-israel-us.html
 
