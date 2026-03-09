@@ -1,3 +1,19 @@
+**Edge rusher Odafe Oweh agrees to deal with Commanders**\
+`Oweh was traded from the Ravens to the Chargers last season and responded with 10.5 sacks in L.A., including the playoffs.`\
+https://nytimes.com/athletic/7089631/2026/03/09/odafe-oweh-commanders-nfl-free-agency-2026/
+
+**The Quest to Save One Baby Gorilla From an Uncertain Fate**\
+`Social media is fueling a black market for infant primates like Bili, who was captured in the wild and trafficked.`\
+https://nytimes.com/interactive/2026/03/09/magazine/bili-wildlife-trafficking-illegal-gorilla-trade.html
+
+**Bengals, Boye Mafe agree to 3-year, $60 million deal: Source**\
+`Mafe's numbers dipped in a rotation role in 2025, but he had nine sacks for the Seahawks in 2023.`\
+https://nytimes.com/athletic/7090120/2026/03/09/boye-mafe-bengals-nfl-free-agency-2026/
+
+**Bengals, S Bryan Cook agree to three-year deal: Reports**\
+`The former Bearcat and Mt. Healthy High School product is set to return to Cincinnati to anchor the secondary.`\
+https://nytimes.com/athletic/7102434/2026/03/09/bryan-cook-bengals-nfl-free-agency-2026/
+
 **Landon Emenalo renews Chelsea contract through to 2031**\
 `The 18-year-old, son of former Chelsea technical director Michael Emenalo, is one of the club’s most highly-regarded academy prospect.`\
 https://nytimes.com/athletic/7102221/2026/03/09/emenalo-chelsea-contract-length/
