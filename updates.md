@@ -1,3 +1,15 @@
+**Georgia Teacher Is Killed After Teenagers’ Prank Goes Wrong**\
+`Teenagers tossed toilet paper on trees outside the house of a teacher. The teacher came outside, tripped and was run over by a pickup driven by one of the pranksters, officials said.`\
+https://nytimes.com/2026/03/08/us/georgia-teacher-killed-prank.html
+
+**Lightning, Sabres put up their dukes in Atlantic Division showdown**\
+`After a penalty-filled first period, two fights broke out in the first six seconds of the second.`\
+https://nytimes.com/athletic/7100003/2026/03/08/sabres-lightning-penalty-minutes-nhl/
+
+**Veteran TE Adam Trautman returning to Broncos as position takes shape: Source**\
+`Trautman, a familiar figure for Sean Payton, has led the Broncos in snaps at tight end the past three seasons.`\
+https://nytimes.com/athletic/7100070/2026/03/08/adam-trautman-broncos-tight-end-nfl-free-agency/
+
 **White House Removes Republican Member of N.T.S.B.**\
 `J. Todd Inman, who was prominent in the investigation of the midair collision in Washington last year, said no reason was given for his firing two years into his term on the transportation safety board.`\
 https://nytimes.com/2026/03/08/us/politics/todd-inman-fired-national-transportation-safety-board.html
