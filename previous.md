@@ -1,3 +1,15 @@
+**WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
+`Robinson caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
+https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/
+
+**Travis Etienne Jr. agrees to free-agent deal with Saints: Source**\
+`Etienne, 27, rushed for at least 1,000 yards three times in the past four years for the Jaguars.`\
+https://nytimes.com/athletic/7091488/2026/03/09/travis-etienne-saints-nfl-free-agency-2026/
+
+**Tell Us About Your Plans for a Longer Life**\
+`If you are saving money and have a plan for the future, we want to hear how it’s going and any advice you have for others.`\
+https://nytimes.com/2026/03/09/your-money/longer-life-plans.html
+
 **Meet NWSL expansion team Boston Legacy**\
 `The Legacy had to overcome early setbacks and a long lead time, but their time in the NWSL is finally here.`\
 https://nytimes.com/athletic/7085779/2026/03/09/nwsl-boston-legacy-team-influence-soccer/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/03/09/nyregion/gracie-mansion-charges.html
 **Fears of a ‘Quagmire’ in Trump’s War on Iran**\
 `As Iran chooses another hard-line leader, readers express anxiety about the war and its consequences.`\
 https://nytimes.com/2026/03/09/opinion/letters/trump-us-iran-war.html
-
-**Hornets, Heat resolve dispute stemming from Terry Rozier trade: Sources**\
-`The Hornets will send a 2026 second-round pick to Miami, according to a copy of the memo the NBA sent out to teams.`\
-https://nytimes.com/athletic/7101838/2026/03/09/hornets-heat-dispute-terry-rozier-trade/
-
-**Judge Halts Trump Administration Move to Restrict Immigration Appeals**\
-`The ruling is part of a broader dispute between the independent federal judiciary and the executive branch’s immigration court system.`\
-https://nytimes.com/2026/03/09/us/politics/judge-trump-immigration-appeals.html
-
-**Trump’s War Becomes World’s Latest Economic Hazard**\
-`The president insists conflict with Iran will be brief, but world leaders are preparing for severe economic blowback.`\
-https://nytimes.com/2026/03/09/business/economy/trump-iran-oil-economy-fallout.html
 

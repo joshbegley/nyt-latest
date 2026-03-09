@@ -1,3 +1,15 @@
+**WR Wan’Dale Robinson agrees to four-year deal with Titans: Sources**\
+`Robinson caught 92 passes for 1,014 yards and four touchdowns for the Giants in 2025. `\
+https://nytimes.com/athletic/7091618/2026/03/09/wandale-robinson-titans-nfl-free-agency-2026/
+
+**Travis Etienne Jr. agrees to free-agent deal with Saints: Source**\
+`Etienne, 27, rushed for at least 1,000 yards three times in the past four years for the Jaguars.`\
+https://nytimes.com/athletic/7091488/2026/03/09/travis-etienne-saints-nfl-free-agency-2026/
+
+**Tell Us About Your Plans for a Longer Life**\
+`If you are saving money and have a plan for the future, we want to hear how it’s going and any advice you have for others.`\
+https://nytimes.com/2026/03/09/your-money/longer-life-plans.html
+
 **Meet NWSL expansion team Boston Legacy**\
 `The Legacy had to overcome early setbacks and a long lead time, but their time in the NWSL is finally here.`\
 https://nytimes.com/athletic/7085779/2026/03/09/nwsl-boston-legacy-team-influence-soccer/
