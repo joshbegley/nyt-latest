@@ -15,7 +15,7 @@ https://nytimes.com/2026/03/10/world/middleeast/us-iran-war-strikes-pentagon.htm
 https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
 
 **Why did Spurs substitute their goalkeeper after 17 minutes in UCL tie?**\
-`The north London side went 4-0 down in their Champions League tie against Atletico Madrid in 23 minutes on Tuesday.`\
+`The north London side went 4-0 down in 23 minutes during their first leg against Atletico Madrid on Tuesday.`\
 https://nytimes.com/athletic/7105540/2026/03/10/kinsky-tottenham-substitute-goalkeeper-champions-league/
 
 **Imprisoned in Iran, and Under Bombardment**\
