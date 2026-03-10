@@ -1,3 +1,11 @@
+**Bumblebee Queens Can Breathe Underwater**\
+`A new study offers clues as to how the insects survive flooding as they emerge from a hibernation-like phase every winter.`\
+https://nytimes.com/2026/03/10/science/bumlebees-queens-underwater-breathe.html
+
+**By signing Jesús Luzardo, Phillies quadruple down on their rotation**\
+`Wheeler, Nola, Sánchez and now Luzardo. The Phillies, unlike most teams, have embraced expensive, long-term rotation contracts.`\
+https://nytimes.com/athletic/7105787/2026/03/10/phillies-rotation-jesus-luzardo-contract-extension/
+
 **Browns agree to sign G Elgton Jenkins, continue to remake O-line: Source**\
 `The two-time Pro Bowler has spent all seven years of his career as a starter in Green Bay. `\
 https://nytimes.com/athletic/7105805/2026/03/10/elgton-jenkins-browns-nfl-free-agency-2026/
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/7094160/2026/03/10/riq-woolen-eagles-nfl-free-agenc
 **Matt Snell Dies at 84; Carried Jets to Stunning Upset in Super Bowl III**\
 `His pounding runs for the underdog New York team against the Baltimore Colts secured a pivotal win for the American Football League.`\
 https://nytimes.com/2026/03/10/sports/football/matt-snell-dead.html
-
-**Democrats Demand Hegseth and Rubio Testify on Iran War**\
-`Senate Democratic leaders called on President Trump to dispatch the senior cabinet officials to make the case to Congress and the American public for the war in Iran.`\
-https://nytimes.com/2026/03/10/us/politics/democrats-rubio-hegseth-iran.html
-
-**2 Former Police Officers Conspired to Steal From Prostitute, U.S. Says**\
-`The two men pleaded not guilty on Tuesday in federal court to charges that they violated a woman’s civil rights while responding to a complaint about a brothel in a Queens building.`\
-https://nytimes.com/2026/03/10/nyregion/nypd-brothel-officers-arreste.html
 

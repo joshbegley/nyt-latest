@@ -1,3 +1,7 @@
+**Browns agree to sign G Elgton Jenkins, continue to remake O-line: Source**\
+`The two-time Pro Bowler has spent all seven years of his career as a starter in Green Bay. `\
+https://nytimes.com/athletic/7105805/2026/03/10/elgton-jenkins-browns-nfl-free-agency-2026/
+
 **Blue Jays' José Berríos cleared to join Team Puerto Rico in WBC knockout stage**\
 `Berríos, who pitched for Puerto Rico in the last three WBC tournaments, began throwing early this offseason in preparation for another run. `\
 https://nytimes.com/athletic/7105728/2026/03/10/blue-jays-jose-berrios-cleared-to-join-team-puerto-rico-in-wbc-knockout-stage/
