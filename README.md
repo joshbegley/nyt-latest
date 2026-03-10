@@ -1,3 +1,7 @@
+**Oil Falls and Stocks Rise After a Day of Drastic Swings**\
+`The price of oil had spiked to nearly $120 a barrel on Monday, drawing remarks by President Trump that he believed the war on Iran was “very complete.”`\
+https://nytimes.com/2026/03/10/business/stocks-oil-markets-iran.html
+
 **Inside the Winter Paralympic repair shop: Where equipment is fixed and dreams preserved**\
 `With hundreds of para athletes in top-level competition, equipment is bound to need fixing. Enter Ottobock, the Paralympics' repair shop.`\
 https://nytimes.com/athletic/7091210/2026/03/10/winter-paralympics-equipment-repair-shop-ottobock/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/learning/workout-trends.html
 **Cancer Haunts Neighbors of Canada’s Oil Sands Wastelands**\
 `Though high rates of the disease persist among the nearby Indigenous communities, the Canadian government is weighing rules that may allow energy giants to release treated mining waste into the river system.`\
 https://nytimes.com/2026/03/10/health/canada-oil-sands-fort-chipewyan-alberta.html
-
-**iPads in Kindergarten, YouTube on Breaks: The School Screen-Time Battle**\
-`Mounting evidence shows that excessive computer use can harm children, so parents are cutting back at home. Now, the debate has shifted to the classroom.`\
-https://nytimes.com/2026/03/10/nyregion/students-school-screen-time-parents-concern.html
 
