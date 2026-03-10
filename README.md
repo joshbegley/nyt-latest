@@ -1,3 +1,7 @@
+**Democrats Sue to Find Out if Trump Will Send Armed Officers to Election Sites**\
+`In a lawsuit filed Tuesday, the D.N.C. sought to compel the government to say whether it plans to deploy armed federal officers in this year’s elections.`\
+https://nytimes.com/2026/03/10/us/politics/democrats-sue-to-find-out-if-trump-will-send-armed-officers-to-election-sites.html
+
 **Seahawks free-agency reset: Everything we learned from a busy Day 1**\
 `The Seahawks watched plenty of talent walk out the door on Monday, but that wasn't unexpected, and they managed to keep two key pieces.`\
 https://nytimes.com/athletic/7103521/2026/03/10/seahawks-free-agency-news-rashid-shaheed/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102023/2026/03/10/jets-playoffs-chase-nhl-draft-pr
 **Guardians Opening Day roster projection 3.0: Where Chase DeLauter, Nolan Jones fit (or don't)**\
 `The Guardians committed $2 million to Nolan Jones, which shocked, of all people, Nolan Jones after two straight dismal seasons.`\
 https://nytimes.com/athletic/7100205/2026/03/10/guardians-opening-day-roster-projection-nolan-jones-chase-delauter/
-
-**World Cup 2026 stadium guides: Welcome to Seattle Stadium, and get ready to feel the noise**\
-`Here’s everything you need to know about the venue, located in the heart of Seattle and considered by many as the loudest in the country`\
-https://nytimes.com/athletic/7092981/2026/03/10/world-cup-2026-stadium-guides-seattle-lumen-field/
 
