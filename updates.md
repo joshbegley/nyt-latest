@@ -1,3 +1,11 @@
+**Full Time: If U.S. World Cup roster selection were today**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/
+
+**Dan Morgan does it again: Panthers reach deal with top available LB Devin Lloyd**\
+`Lloyd was the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
+https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
+
 **Dan Morgan does it again as Panthers reach deal with top LB available Devin Lloyd**\
 `Lloyd was the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
 https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/

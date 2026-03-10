@@ -1,8 +1,12 @@
+**Full Time: If U.S. World Cup roster selection were today**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/
+
 **Mirra Andreeva curses at crowd as Kateřina Siniaková and title pressure knock her out of Indian Wells**\
 `Andreeva is still 18, but her patterns in defeats have grown more concerning since her title in California 12 months ago.`\
 https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
 
-**Dan Morgan does it again as Panthers reach deal with top LB available Devin Lloyd**\
+**Dan Morgan does it again: Panthers reach deal with top available LB Devin Lloyd**\
 `Lloyd was the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
 https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html
 **Two Supreme Court Justices Debate Handling of Trump Emergency Cases**\
 `In a rare joint appearance, Justices Ketanji Brown Jackson and Brett M. Kavanaugh offered sharply different views on how the court should handle emergency requests.`\
 https://nytimes.com/2026/03/09/us/politics/supreme-court-justices-emergency-cases.html
-
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
-https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
 
