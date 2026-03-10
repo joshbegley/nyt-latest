@@ -7,7 +7,7 @@ https://nytimes.com/interactive/2026/03/10/us/quake-tracker-new-york.html
 https://nytimes.com/2026/03/10/travel/airline-prices-mideast-war.html
 
 **TNT Sports investigating FA Cup outage, no issues expected for Champions League coverage**\
-`What happened in West ham vs Brentford? What has TNT said? What is scheduled to be shown on TNT Sports?`\
+`The stream cut out after the first half and did not appear again until the beginning of extra time, leaving plenty of users frustrated`\
 https://nytimes.com/athletic/7104348/2026/03/10/tnt-sports-outage-fa-cup-champions-league/
 
 **Would-be Cinderella teams dressed for upsets in the 2026 men's NCAA tournament**\
