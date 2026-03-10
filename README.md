@@ -31,7 +31,7 @@ https://nytimes.com/2026/03/09/us/epstein-new-mexico-zorro-ranch-search.html
 https://nytimes.com/2026/03/09/us/politics/iran-womens-soccer-team-asylum-trump.html
 
 **Running back Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
-`Dowdle, who rushed for 1,076 yards and six touchdowns for the Panthers last season, .`\
+`Dowdle, who rushed for 1,076 yards and six touchdowns for the Panthers last season, gives Pittsburgh a big, physical and decisive runner.`\
 https://nytimes.com/athletic/7094596/2026/03/09/rico-dowdle-steelers-nfl-free-agency-2026/
 
 **How to watch Santa Clara vs. Saint Mary's (CA) men's basketball: WCC Tournament Time, TV, streaming**\
