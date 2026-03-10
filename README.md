@@ -1,3 +1,11 @@
+**Paralympian credits ChatGPT for helping him win silver medal**\
+`Ukraine's Maksym Murashkovskyi said that he used AI for his training plan and as a motivating tool.`\
+https://nytimes.com/athletic/7104068/2026/03/10/paralympics-chatgpt-ukraine-biathlon/
+
+**College softball power rankings: With the start of conference action comes chaos**\
+`Tennessee faces its first big test; Oklahoma State has a roller-coaster ride; Oregon, Texas A&M and more. `\
+https://nytimes.com/athletic/7102573/2026/03/10/college-softball-power-rankings-conference-play/
+
 **Democrats Sue to Find Out if Trump Will Send Armed Officers to Election Sites**\
 `In a lawsuit filed Tuesday, the D.N.C. sought to compel the government to say whether it plans to deploy armed federal officers in this year’s elections.`\
 https://nytimes.com/2026/03/10/us/politics/democrats-sue-to-find-out-if-trump-will-send-armed-officers-to-election-sites.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7101783/2026/03/10/barcelona-lamine-yamal-champions
 **Dollar values, tier drops and unicorns: A positional breakdown for fantasy baseball 2026**\
 `Owen Poindexter dives deep into the hitting positions, illustrating the value pockets and highlighting the unique contributors at each spot.`\
 https://nytimes.com/athletic/7090438/2026/03/10/fantasy-baseball-position-tiers-draft-unicorns/
-
-**The 5 storylines to watch as Jets push for the playoffs, putting top pick at risk**\
-`With 20 games left in the regular season, it's unclear where the Jets will finish. Let's break down what matters most this spring.`\
-https://nytimes.com/athletic/7102023/2026/03/10/jets-playoffs-chase-nhl-draft-prospects-ncaa-free-agents/
-
-**Guardians Opening Day roster projection 3.0: Where Chase DeLauter, Nolan Jones fit (or don't)**\
-`The Guardians committed $2 million to Nolan Jones, which shocked, of all people, Nolan Jones after two straight dismal seasons.`\
-https://nytimes.com/athletic/7100205/2026/03/10/guardians-opening-day-roster-projection-nolan-jones-chase-delauter/
 
