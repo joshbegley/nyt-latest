@@ -1,5 +1,5 @@
 **Mirra Andreeva curses at crowd as Kateřina Siniaková and title pressure knock her out of Indian Wells**\
-`Andreeva is still 18, but her patterns in defeats significant and small have grown more concerning since her win at Indian Wells.`\
+`Andreeva is still 18, but her patterns in defeats have grown more concerning since her title in California 12 months ago.`\
 https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
 
 **Panthers agree to deal with Devin Lloyd, the top linebacker available**\
