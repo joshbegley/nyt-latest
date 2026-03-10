@@ -1,3 +1,11 @@
+**Mamdani’s Latest Show of Support for Mahmoud Khalil: A Dinner Invitation**\
+`It appears that a relationship that began with political solidarity over the plight of Palestinians has developed into a friendly connection between the mayor and the activist.`\
+https://nytimes.com/2026/03/10/nyregion/zohran-mamdani-mahmoud-khalil-dinner.html
+
+**Prosecutors drop domestic assault and battery charge against Patriots' Christian Barmore**\
+`Barmore will not face a domestic assault and battery charge after Massachusetts prosecutors said the case was not viable for prosecution.`\
+https://nytimes.com/athletic/7102560/2026/03/10/patriots-christian-barmore-charge-dropped/
+
 **WAC threatens to remove Utah Valley basketball teams from tournaments over exit-fee dispute**\
 `The conference said if Utah Valley hadn’t paid the exit fee by 5 p.m. Tuesday, it would re-bracket the men’s and women’s tournaments.`\
 https://nytimes.com/athletic/7105601/2026/03/10/wac-threatens-remove-uvu-basketball-tournaments-exit-fee/
