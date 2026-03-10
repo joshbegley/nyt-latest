@@ -1,3 +1,11 @@
+**Culture at Columbia Shielded Sexual Assault by Physician, Report Finds**\
+`Two doctors affiliated with the university and NewYork-Presbyterian Hospital stepped down after an external report found that the administrators mishandled allegations of abuse against Robert Hadden.`\
+https://nytimes.com/2026/03/10/nyregion/columbia-hospitals-hadden-resignation.html
+
+**Boeing Says Wiring Issue Will Delay Some 737 Max Deliveries**\
+`The aerospace company said the delay would not prevent it from meeting its 2026 sales goal of about 500 Max jets.`\
+https://nytimes.com/2026/03/10/business/boeing-737-max-delay.html
+
 **Alabama Governor Spares Death Row Inmate Who Didn’t Pull the Trigger**\
 `The move by Gov. Kay Ivey, a Republican, is extremely rare. The inmate, Charles Burton, was scheduled to die even though the gunman’s sentence had been commuted years ago.`\
 https://nytimes.com/2026/03/10/us/alabama-ivey-charles-burton.html

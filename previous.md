@@ -1,3 +1,11 @@
+**Culture at Columbia Shielded Sexual Assault by Physician, Report Finds**\
+`Two doctors affiliated with the university and NewYork-Presbyterian Hospital stepped down after an external report found that the administrators mishandled allegations of abuse against Robert Hadden.`\
+https://nytimes.com/2026/03/10/nyregion/columbia-hospitals-hadden-resignation.html
+
+**Boeing Says Wiring Issue Will Delay Some 737 Max Deliveries**\
+`The aerospace company said the delay would not prevent it from meeting its 2026 sales goal of about 500 Max jets.`\
+https://nytimes.com/2026/03/10/business/boeing-737-max-delay.html
+
 **Alabama Governor Spares Death Row Inmate Who Didn’t Pull the Trigger**\
 `The move by Gov. Kay Ivey, a Republican, is extremely rare. The inmate, Charles Burton, was scheduled to die even though the gunman’s sentence had been commuted years ago.`\
 https://nytimes.com/2026/03/10/us/alabama-ivey-charles-burton.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/style/scarf-anxieties.html
 **Dozens of States Weigh Continuing Live Nation Antitrust Case**\
 `After the Justice Department reached a settlement with the concert giant, the judge overseeing the trial asked the states and the company to do the same.`\
 https://nytimes.com/2026/03/10/arts/music/live-nation-antitrust-states.html
-
-**England's Kyle Walker retires from international football after 96 caps**\
-`Walker, 35, represented his country at five major tournaments and has been described by head coach Thomas Tuchel as an "England great".`\
-https://nytimes.com/athletic/5635789/2026/03/10/kyle-walker-england-retires/
-
-**Brentford owner claims they were close to signing Eze, Olise and Marmoush**\
-`Matthew Benham said that Brentford could have signed Eze for £4million in 2019 while he was at Queens Park Rangers.`\
-https://nytimes.com/athletic/7104456/2026/03/10/eze-olise-marmoush-transfer-brentford-premier-league/
 
