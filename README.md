@@ -6,7 +6,7 @@ https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel/democrats-dem
 `The two men pleaded not guilty on Tuesday in federal court to charges that they violated a woman’s civil rights while responding to a complaint about a brothel in a Queens building.`\
 https://nytimes.com/2026/03/10/nyregion/nypd-brothel-officers-arreste.html
 
-**The Briefing: Newcastle 1 Barcelona 1 - Missed Newcastle oppoortunity? Flick too conservative? Hall vs Yamal?**\
+**The Briefing: Newcastle 1 Barcelona 1 - Hosts miss an opportunity? Flick too conservative? Hall vs Yamal?**\
 `A Lamine Yamal penalty deep into stoppage time denied Newcastle a famous victory over Barcelona`\
 https://nytimes.com/athletic/7096188/2026/03/10/newcastle-1-barcelona-1-briefing/
 
