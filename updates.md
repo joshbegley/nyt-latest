@@ -1,3 +1,15 @@
+**Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
+`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC.`\
+https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
+
+**Lu Dort apologizes to Nikola Jokić after second flagrant foul in 10 days**\
+`Jokić told reporters he didn’t feel Dort crossed the line in this instance, as opposed to ten days prior, when he rushed the Thunder wing.`\
+https://nytimes.com/athletic/7104270/2026/03/10/lu-dort-flagrant-foul-nikola-jokic-apology/
+
+**What we’re seeing at the WBC: A send-off for the Czech electrician who once conquered Ohtani**\
+`A handful of players with their own quirky places in World Baseball Classic history are walking away after the tournament.`\
+https://nytimes.com/athletic/7104011/2026/03/10/world-baseball-classic-puerto-rico-nicaragua-czechia-ohtani/
+
 **The New York Philharmonic’s Season: What We Want to Hear**\
 `A new era for the orchestra begins in September, when Gustavo Dudamel officially becomes its music and artistic director.`\
 https://nytimes.com/2026/03/10/arts/music/new-york-philharmonic-2026-2027-season.html

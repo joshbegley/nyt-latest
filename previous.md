@@ -1,3 +1,11 @@
+**Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
+`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC.`\
+https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
+
+**Lu Dort apologizes to Nikola Jokić after second flagrant foul in 10 days**\
+`Jokić told reporters he didn’t feel Dort crossed the line in this instance, as opposed to ten days prior, when he rushed the Thunder wing.`\
+https://nytimes.com/athletic/7104270/2026/03/10/lu-dort-flagrant-foul-nikola-jokic-apology/
+
 **The New York Philharmonic’s Season: What We Want to Hear**\
 `A new era for the orchestra begins in September, when Gustavo Dudamel officially becomes its music and artistic director.`\
 https://nytimes.com/2026/03/10/arts/music/new-york-philharmonic-2026-2027-season.html
@@ -10,7 +18,7 @@ https://nytimes.com/2026/03/10/business/youtube-deepfakes-detection-tool.html
 `The concrete runway barrier played a key role in a disaster that killed 179 people. An audit revealed officials skimped on construction fees and then falsified records.`\
 https://nytimes.com/2026/03/10/world/asia/jeju-air-crash-wall-airport.html
 
-**What we’re seeing at the WBC: A sendoff for the Czech electrician who once conquered Ohtani**\
+**What we’re seeing at the WBC: A send-off for the Czech electrician who once conquered Ohtani**\
 `A handful of players with their own quirky places in World Baseball Classic history are walking away after the tournament.`\
 https://nytimes.com/athletic/7104011/2026/03/10/world-baseball-classic-puerto-rico-nicaragua-czechia-ohtani/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fig
 **How guidance from Will Smith could help promising Dalton Rushing thrive for Dodgers**\
 `Dalton struggled as a rookie adjusting to limited playing time: "Now I'm hoping for light."`\
 https://nytimes.com/athletic/7101777/2026/03/10/dodgers-catchers-will-smith-dalton-rushing/
-
-**The Race to Stop Wildlife Trafficking in Africa**\
-`In Nigeria, customs officers and conservationists are confronting the grim impacts of the $20 billion trade.`\
-https://nytimes.com/2026/03/10/magazine/wildlife-trafficking-africa.html
-
-**Patriots agree to deal with high-risk, high-reward Jets guard Alijah Vera-Tucker: Source**\
-`Vera-Tucker has played in only 43 of a possible 85 games as a pro. But if he stays healthy, he could make life easier for LT Will Campbell.`\
-https://nytimes.com/athletic/7104205/2026/03/10/alijah-vera-tucker-patriots-nfl-free-agency-2026/
 
