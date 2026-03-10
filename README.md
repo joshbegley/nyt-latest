@@ -22,7 +22,7 @@ https://nytimes.com/athletic/7103448/2026/03/10/mets-roster-projection-bubble-wa
 `The Barcelona Game in the autumn of 1997 was a landmark in Newcastle’s history, and an occasion decorated by the club's Colombian maverick`\
 https://nytimes.com/athletic/7100912/2026/03/10/newcastle-asprilla-barcelona-champions-league/
 
-**Rosenthal: After his defensive showcase against Mexico, Bobby Witt Jr. has Team USA smiling**\
+**Rosenthal: After defensive showcase, Bobby Witt Jr. has Team USA smiling**\
 `'Are you kidding me?' Team USA captain Aaron Judge exclaimed after one of Witt's gems at shortstop. 'Are you kidding me?'`\
 https://nytimes.com/athletic/7104048/2026/03/10/bobby-witt-world-baseball-classic-team-usa/
 
