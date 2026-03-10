@@ -1,3 +1,19 @@
+**Reds' Greene to have surgery on right elbow, may return in July**\
+`Greene, 26, made one spring training start before reporting the pain in his throwing elbow.`\
+https://nytimes.com/athletic/7104522/2026/03/10/reds-hunter-greene-elbow-injury/
+
+**In Ancient Peru, a Parrot Trade That Crossed the Andes**\
+`Scientists studied centuries-old bird feathers from an ancient tomb on the coast, and then traced the origins back to the Amazon.`\
+https://nytimes.com/2026/03/10/science/archaeology-parrots-peru.html
+
+**Scarf Anxieties**\
+`At Loewe and Celine, scarves as poufy as comforters have our critic wondering why fashion designers can’t leave well enough alone.`\
+https://nytimes.com/2026/03/10/style/scarf-anxieties.html
+
+**Dozens of States Weigh Continuing Live Nation Antitrust Case**\
+`After the Justice Department reached a settlement with the concert giant, the judge overseeing the trial asked the states and the company to do the same.`\
+https://nytimes.com/2026/03/10/arts/music/live-nation-antitrust-states.html
+
 **England's Kyle Walker retires from international football after 96 caps**\
 `Walker, 35, represented his country at five major tournaments and has been described by head coach Thomas Tuchel as an "England great".`\
 https://nytimes.com/athletic/5635789/2026/03/10/kyle-walker-england-retires/
@@ -17,20 +33,4 @@ https://nytimes.com/2026/03/10/us/rfk-jr-rotator-cuff-surgery.html
 **How to watch Maple Leafs vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104673/2026/03/10/maple-leafs-vs-canadiens-stream-how-to-watch-march-10/
-
-**How to watch Flames vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104671/2026/03/10/flames-vs-rangers-stream-how-to-watch-march-10/
-
-**How to watch Penguins vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104666/2026/03/10/penguins-vs-hurricanes-stream-how-to-watch-march-10/
-
-**How to watch Blue Jackets vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104664/2026/03/10/blue-jackets-vs-lightning-stream-how-to-watch-march-10/
-
-**How to watch Sharks vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104660/2026/03/10/sharks-vs-sabres-stream-how-to-watch-march-10/
 
