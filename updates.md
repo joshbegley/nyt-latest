@@ -1,3 +1,7 @@
+**Blue Jackets rally late on Marchenko's goal, but suffer another frustrating OT loss**\
+`For the second consecutive game, the Blue Jackets scored four goals and gave up five in an overtime loss to a Western opponent.`\
+https://nytimes.com/athletic/7103071/2026/03/09/blue-jackets-overtime-defense-garland-marchenko-kings/
+
 **UConn wins Big East tournament title by dominating Villanova**\
 `The victory marked the 24th conference title for the Huskies.`\
 https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-championship-villanova/

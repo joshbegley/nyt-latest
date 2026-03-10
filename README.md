@@ -1,3 +1,7 @@
+**Trump Seeks to Calm Energy Markets but Says War Will Go On for Now**\
+`The president said the U.S. could accompany tankers through the Strait of Hormuz if necessary to keep oil flowing. “We’ve already won in many ways, but we haven’t won enough,” he said.`\
+https://nytimes.com/2026/03/09/us/politics/trump-gas-oil-iran.html
+
 **Blue Jackets rally late on Marchenko's goal, but suffer another frustrating OT loss**\
 `For the second consecutive game, the Blue Jackets scored four goals and gave up five in an overtime loss to a Western opponent.`\
 https://nytimes.com/athletic/7103071/2026/03/09/blue-jackets-overtime-defense-garland-marchenko-kings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103224/2026/03/09/warriors-seth-curry-kristaps-por
 **Mamdani Chooses His Words Carefully After Alleged Terror Attack**\
 `Mayor Zohran Mamdani has been spare in his remarks following the attempted bombing at Gracie Mansion and arrests of two men who said they were motivated by ISIS.`\
 https://nytimes.com/2026/03/09/nyregion/mamdani-response-bomb.html
-
-**Lions kick off free agency with the obvious: Prioritizing the offensive line**\
-`The Lions added Cade Mays at center and Larry Borom, a tackle with starting experience who could fill several roles.`\
-https://nytimes.com/athletic/7103218/2026/03/09/lions-free-agency-offensive-line-cade-mays/
 
