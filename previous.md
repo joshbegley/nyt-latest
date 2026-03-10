@@ -1,3 +1,15 @@
+**Giants roster projection 2.0: Trevor McDonald's stock rises, but what about Bryce Eldridge?**\
+`Will Eldridge break camp in San Francisco or Sacramento? How will the Giants' bullpen look on Opening Day?`\
+https://nytimes.com/athletic/7102282/2026/03/10/sf-giants-roster-projection-trevor-mcdonald-bryce-eldridge/
+
+**Shots Fired at U.S. Consulate in Toronto, Police Say**\
+`The police said that there were no injuries. Television footage showed what appeared to be at least two bullet holes at the building’s entrance.`\
+https://nytimes.com/2026/03/10/world/canada/us-consulate-toronto-shots.html
+
+**Champions League last-16 odds: Can the Premier League’s six representatives progress?**\
+`The Athletic runs through the best bets of the matches involving Arsenal, Manchester City, Chelsea, Liverpool, Newcastle and Spurs`\
+https://nytimes.com/athletic/7103968/2026/03/10/champions-league-last-16-odds-premier-league/
+
 **The Barcelona family social club: A special support group has evolved at Spain's champions**\
 `Parents, siblings and other relatives of Barcelona players have developed a tight-knit social group that offers support from the sidelines`\
 https://nytimes.com/athletic/7101783/2026/03/10/barcelona-lamine-yamal-champions-league-travel-family/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7069648/2026/03/10/new-york-mets-soto-bichette-how-
 **Should the Leafs rest star players? A hard sell that might help next season**\
 `As the Leafs ponder the future of the team, shutting down some of their best players for recovery might be the prudent move.`\
 https://nytimes.com/athletic/7102802/2026/03/10/maple-leafs-rest-stars-knies-nylander-matthews-prospects/
-
-**USMNT March roster projection: Our call for Pochettino's picks vs. Belgium, Portugal**\
-`The last camp before Mauricio Pochettino picks his U.S. World Cup roster is nearly here. Who should get a last look before the final cut?`\
-https://nytimes.com/athletic/7103475/2026/03/10/usmnt-march-roster-projection-belgium-portugal-world-cup/
-
-**Years before his retirement, Julio Teheran put Colombia pitchers on the map**\
-`For years, there were no Colombian pitchers to emulate, only shortstops. Julio Teheran's presence in the majors changed that. `\
-https://nytimes.com/athletic/7103036/2026/03/10/mlb-world-baseball-classic-julio-teheran-retirement/
-
-**Sizing up the Red Wings' home stretch: New players' fit, how many points they need**\
-`The Red Wings' lineup looks different than it did a week ago, and every game feels massive. So, what does their playoff path now look like?`\
-https://nytimes.com/athletic/7102586/2026/03/10/detroit-red-wings-playoff-race-faulk-brandsegg-nygard/
 

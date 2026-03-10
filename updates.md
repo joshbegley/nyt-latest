@@ -1,3 +1,15 @@
+**Giants roster projection 2.0: Trevor McDonald's stock rises, but what about Bryce Eldridge?**\
+`Will Eldridge break camp in San Francisco or Sacramento? How will the Giants' bullpen look on Opening Day?`\
+https://nytimes.com/athletic/7102282/2026/03/10/sf-giants-roster-projection-trevor-mcdonald-bryce-eldridge/
+
+**Shots Fired at U.S. Consulate in Toronto, Police Say**\
+`The police said that there were no injuries. Television footage showed what appeared to be at least two bullet holes at the building’s entrance.`\
+https://nytimes.com/2026/03/10/world/canada/us-consulate-toronto-shots.html
+
+**Champions League last-16 odds: Can the Premier League’s six representatives progress?**\
+`The Athletic runs through the best bets of the matches involving Arsenal, Manchester City, Chelsea, Liverpool, Newcastle and Spurs`\
+https://nytimes.com/athletic/7103968/2026/03/10/champions-league-last-16-odds-premier-league/
+
 **The Barcelona family social club: A special support group has evolved at Spain's champions**\
 `Parents, siblings and other relatives of Barcelona players have developed a tight-knit social group that offers support from the sidelines`\
 https://nytimes.com/athletic/7101783/2026/03/10/barcelona-lamine-yamal-champions-league-travel-family/
