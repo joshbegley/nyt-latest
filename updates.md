@@ -1,3 +1,7 @@
+**The Bounce: MJ, Kareem and other legends never approached Wilt's 20-point streak? How?**\
+`Shai Gilgeous-Alexander seems primed to set the record later this week against Boston.`\
+https://nytimes.com/athletic/7104337/2026/03/10/shai-gilgeous-alexander-wilt-chamberlain-record-nba-the-bounce/
+
 **Smartmatic Says It’s a Target of Vindictive Prosecution by Trump**\
 `The voting technology company’s new court filing signals how far-reaching the legal fights over elections will be in 2026.`\
 https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictive-prosecution.html

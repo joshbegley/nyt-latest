@@ -1,3 +1,7 @@
+**The Bounce: MJ, Kareem and other legends never approached Wilt's 20-point streak? How?**\
+`Shai Gilgeous-Alexander seems primed to set the record later this week against Boston.`\
+https://nytimes.com/athletic/7104337/2026/03/10/shai-gilgeous-alexander-wilt-chamberlain-record-nba-the-bounce/
+
 **Smartmatic Says It’s a Target of Vindictive Prosecution by Trump**\
 `The voting technology company’s new court filing signals how far-reaching the legal fights over elections will be in 2026.`\
 https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictive-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/business/energy-environment/jet-fuel-diesel-airli
 **Did Cal Raleigh snub Randy Arozarena? The WBC moment causing a stir**\
 `It’s possible Arozarena wasn't actually angry with his Mariners teammate over a handshake snub Monday night, but it's not clear.`\
 https://nytimes.com/athletic/7104129/2026/03/10/mariners-randy-arozarena-cal-raleigh-handshake-wbc/
-
-**Former Premier League footballer Joey Barton charged after alleged assault**\
-`A man was taken to hospital with injuries to his face and ribs, police said in a statement.`\
-https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fight-golf-club/
 
