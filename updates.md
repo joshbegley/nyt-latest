@@ -1,3 +1,15 @@
+**Tell Us: How Are You Using A.I. for the Tasks of Daily Life?**\
+`We want to hear how artificial intelligence helps you with tasks like meal prep, translation and planning a trip.`\
+https://nytimes.com/2026/03/10/technology/ai-daily-life-callout.html
+
+**Elevated Energy Prices Add to Fed’s Dilemma on Interest Rates**\
+`Investors now expect that the Fed will delay a rate cut until September instead of July, as they had before the war in Iran began.`\
+https://nytimes.com/2026/03/10/business/fed-oil-iran-interest-rates.html
+
+**TNT Sports investigating FA Cup outage, no issues expected for Champions League coverage**\
+`The stream cut out after the first half and did not appear again until the beginning of extra time, leaving plenty of users frustrated`\
+https://nytimes.com/athletic/7104348/2026/03/10/tnt-sports-outage-fa-cup-champions-league/
+
 **Map: 2.3-Magnitude Earthquake Reported North of New York City**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/us/quake-tracker-new-york.html

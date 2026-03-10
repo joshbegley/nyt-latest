@@ -1,3 +1,31 @@
+**The Windup: USA's first win over Mexico in 20 years**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7104398/2026/03/10/usa-mexico-world-baseball-classic-the-windup/
+
+**How to watch Grizzlies vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104527/2026/03/10/grizzlies-vs-76ers-stream-how-to-watch-march-10/
+
+**Noma Loses Sponsors After a Report of Past Abuse by Its Chef**\
+`American Express and Blackbird have pulled out of a series of pop-up dinners in Los Angeles after The Times reported allegations that René Redzepi attacked workers.`\
+https://nytimes.com/2026/03/10/dining/noma-sponsors-american-express-blackbird.html
+
+**NIL or first round? Washington's freshman big man faces interesting NBA Draft choice**\
+`For a player who is a monster on the boards, Steinbach also runs the floor well. He's a first-round talent but could earn more in college.`\
+https://nytimes.com/athletic/7104241/2026/03/10/hannes-steinbach-washington-nba-draft-scouting/
+
+**Fast Chicken Fajitas, Cod With Caper-Orange Sauce**\
+`Recipes with little prep, big payoff.`\
+https://nytimes.com/2026/03/10/dining/fast-chicken-fajitas-cod-with-caper-orange-sauce.html
+
+**‘Scarpetta’ Review: A Forensics Genius Finally Gets a Series**\
+`Nicole Kidman stars in Prime Video’s adaptation of Patricia Cornwell’s long-running series of Kay Scarpetta novels.`\
+https://nytimes.com/2026/03/10/arts/television/scarpetta-review.html
+
+**It’s Trump’s War. We’re Stuck With the Bill.**\
+`What are we getting for all of President Trump’s military spending?`\
+https://nytimes.com/2026/03/10/opinion/trump-iran-venezuela-cuba.html
+
 **Tell Us: How Are You Using A.I. for the Tasks of Daily Life?**\
 `We want to hear how artificial intelligence helps you with tasks like meal prep, translation and planning a trip.`\
 https://nytimes.com/2026/03/10/technology/ai-daily-life-callout.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/10/business/fed-oil-iran-interest-rates.html
 **Map: 2.3-Magnitude Earthquake Reported North of New York City**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/us/quake-tracker-new-york.html
-
-**How Will Rising Oil Prices Affect Airfares? Here’s What to Know.**\
-`The Gulf conflict has led to higher fuel prices, and the cost of operating a plane has sharply increased. For travelers, that likely means higher fares.`\
-https://nytimes.com/2026/03/10/travel/airline-prices-mideast-war.html
-
-**TNT Sports investigating FA Cup outage, no issues expected for Champions League coverage**\
-`The stream cut out after the first half and did not appear again until the beginning of extra time, leaving plenty of users frustrated`\
-https://nytimes.com/athletic/7104348/2026/03/10/tnt-sports-outage-fa-cup-champions-league/
-
-**Would-be Cinderella teams dressed for upsets in the 2026 men's NCAA tournament**\
-`Cinderella is getting ready for the ball. See what uniform she might be wearing this year.`\
-https://nytimes.com/athletic/7103393/2026/03/10/2026-ncaa-basketball-tournament-cinderellas-to-watch/
-
-**2026 NFL Draft order: Updated look at all 257 picks, Rounds 1 through 7**\
-`The NFL released its official order for all seven rounds of the 2026 draft, which will take place April 23-25 in Pittsburgh.`\
-https://nytimes.com/athletic/7104381/2026/03/10/nfl-draft-order-2026-round-by-round/
-
-**The Bounce: MJ, Kareem and other legends never approached Wilt's 20-point streak? How?**\
-`Shai Gilgeous-Alexander seems primed to set the record later this week against Boston.`\
-https://nytimes.com/athletic/7104337/2026/03/10/shai-gilgeous-alexander-wilt-chamberlain-record-nba-the-bounce/
-
-**Smartmatic Says It’s a Target of Vindictive Prosecution by Trump**\
-`The voting technology company’s new court filing signals how far-reaching the legal fights over elections will be in 2026.`\
-https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictive-prosecution.html
-
-**Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
-`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
-https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
 
