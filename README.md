@@ -1,3 +1,7 @@
+**Australia Gives Asylum to Iranian Soccer Players**\
+`The Australian government has pledged to help the women players in Iran’s soccer national team after state media called them “traitors” for refusing to sing the national anthem.`\
+https://nytimes.com/video/world/australia/100000010764895/australia-asylum-iran-women-soccer.html
+
 **Oil Falls and Stocks Rise After a Day of Drastic Swings**\
 `The price of oil had spiked to nearly $120 a barrel on Monday, drawing remarks by President Trump that he believed the war on Iran was “very complete.”`\
 https://nytimes.com/2026/03/10/business/stocks-oil-markets-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/nyregion/ziogas-malliotakis-midterms.html
 **Workout Trends**\
 `What is your workout routine? What workout trends do you follow and how do you learn about them?`\
 https://nytimes.com/2026/03/10/learning/workout-trends.html
-
-**Cancer Haunts Neighbors of Canada’s Oil Sands Wastelands**\
-`Though high rates of the disease persist among the nearby Indigenous communities, the Canadian government is weighing rules that may allow energy giants to release treated mining waste into the river system.`\
-https://nytimes.com/2026/03/10/health/canada-oil-sands-fort-chipewyan-alberta.html
 
