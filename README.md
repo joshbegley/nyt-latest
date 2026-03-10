@@ -1,3 +1,7 @@
+**Blue Jays' José Berríos cleared to join Team Puerto Rico in WBC knockout stage**\
+`Berríos, who pitched for Puerto Rico in the last three WBC tournaments, began throwing early this offseason in preparation for another run. `\
+https://nytimes.com/athletic/7105728/2026/03/10/blue-jays-jose-berrios-cleared-to-join-team-puerto-rico-in-wbc-knockout-stage/
+
 **What should Tottenham do about Igor Tudor? We asked five of our writers**\
 `Tottenham have lost four out of four under Tudor, conceding 14 goals in that time, and there have been no signs of improvement`\
 https://nytimes.com/athletic/7105776/2026/03/10/tottenham-igor-tudor-future-manager/
@@ -21,8 +25,4 @@ https://nytimes.com/2026/03/10/nyregion/nypd-brothel-officers-arreste.html
 **The Briefing: Newcastle 1 Barcelona 1 - Hosts miss an opportunity? Flick too conservative? Hall vs Yamal?**\
 `A Lamine Yamal penalty deep into stoppage time denied Newcastle a famous victory over Barcelona`\
 https://nytimes.com/athletic/7096188/2026/03/10/newcastle-1-barcelona-1-briefing/
-
-**The Briefing: Atletico Madrid 5 Tottenham 2 – A brutal substitution, calamitous defending, what now for Spurs?**\
-`Tottenham Hotspur suffered a heavy defeat in an error-strewn performance in Spain. `\
-https://nytimes.com/athletic/7096187/2026/03/10/atletico-madrid-5-tottenham-2-antonin-kinsky-champions-league/
 
