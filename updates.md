@@ -1,3 +1,15 @@
+**Geno Smith is different now. So are the Jets. Does this reunion make sense?**\
+`Ten years — and one career revival — after his last snap with the Jets, Geno Smith returns to the team that drafted him.`\
+https://nytimes.com/athletic/7105326/2026/03/10/geno-smith-jets-trade-raiders-reunion-nfl/
+
+**'I never felt that pain before in my life' - Arsenal's Havertz on injury anguish**\
+`The 26-year-old Germany international sustained two major injuries last year: a torn hamstring in February and a knee injury in August.`\
+https://nytimes.com/athletic/7105441/2026/03/10/kai-havertz-arsenal-injury-fitness/
+
+**Pentagon Says 140 Service Members Have Been Injured in Iran War**\
+`Eight Americans have been seriously wounded, military officials said, but the bulk of the injured have already returned to duty. Seven Americans have been killed.`\
+https://nytimes.com/2026/03/10/world/middleeast/us-injuries-iran-war.html
+
 **Mosque Blames Islamophobia in Suburbs for Hostility to Its Expansion**\
 `The Hillside Islamic Center is suing town officials in North Hempstead, N.Y., accusing them of bowing to anti-Muslim sentiment.`\
 https://nytimes.com/2026/03/10/nyregion/mosque-long-island-lawsuit.html
