@@ -1,3 +1,7 @@
+**What Do Presidents Call a ‘War’?**\
+`Our reporter Charlie Savage describes the efforts by President Trump’s allies to avoid labeling the war in Iran as a war, and details how Congress came to shrug off its constitutional authority over war-making.`\
+https://nytimes.com/video/us/100000010756750/president-power-start-war-iran.html
+
 **4 Continents in 62 Hours: How One American Got Out of Qatar**\
 `When conflict broke out in the Middle East, thousands of travelers were stranded. We followed a New Orleans doctor on his epic journey to get home.`\
 https://nytimes.com/2026/03/10/travel/canceled-flights-middle-east-iran-war.html
