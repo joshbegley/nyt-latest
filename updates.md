@@ -1,3 +1,15 @@
+**Vote on Your Favorite Miscast Stars in the Movies**\
+`A new Oscar celebrates the process of matching actor and role. But whether a star is hired for artistic or box office reasons, mismatches can be memorable. Here our favorites from recent decades. What do you think?`\
+https://nytimes.com/interactive/2026/03/09/movies/worst-casting-actors-movies.html
+
+**Chiefs free-agency reset: What's left to accomplish after busy Day 1?**\
+`What's next for the Chiefs after agreeing to sign Kenneth Walker III, Travis Kelce and Khyiris Tonga? They could copy a 2023 formula.`\
+https://nytimes.com/athletic/7102973/2026/03/09/chiefs-free-agency-reset-kenneth-walker-iii/
+
+**Shells Fired From Lebanon Land West of Syrian Capital, Country’s Military Says**\
+`The Syrian military accused Hezbollah of targeting Syrian army positions outside of Damascus.`\
+https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.html
+
 **Running back Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
 `Dowdle rushed for 1,076 yards and six touchdowns on 236 carries for Carolina last season.`\
 https://nytimes.com/athletic/7094596/2026/03/09/rico-dowdle-steelers-nfl-free-agency-2026/
