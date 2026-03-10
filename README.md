@@ -1,3 +1,19 @@
+**Map: 6.0-Magnitude Earthquake Shakes Near Naples**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/10/world/europe/quake-tracker-tyrrhenian-sea-naples.html
+
+**'It was mayhem': The day Souness planted a Galatasaray flag in Fenerbahce's pitch**\
+`Reliving one of the most notorious moments in European football history through the eyes of those who were there`\
+https://nytimes.com/athletic/7101425/2026/03/10/graeme-souness-galatasaray-flag-fenerbahce/
+
+**Serie A briefing: All of a sudden, the title race seems on again – can Allegri and Milan defy the odds?**\
+`Completing the double over their city rivals for the first time since 2011 means Milan have cut Inter’s lead at the top to seven points`\
+https://nytimes.com/athletic/7100079/2026/03/10/serie-a-milan-inter-horncastle/
+
+**Atletico Madrid vs Tottenham Hotspur: Which club are the most 'cursed'?**\
+`Do Atletico have the worst luck? Have Spurs been struck by the most misfortune?`\
+https://nytimes.com/athletic/7101737/2026/03/10/atletico-tottenham-champions-league-cursed/
+
 **Row Z: Tottenham vs reality, Arsenal play it safe and could a striker decide a team-mate's future?**\
 `Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7094039/2026/03/10/newcastle-vs-barcelona-sir-bobby
 **Numbers to Know: Champions League Round of 16**\
 `They key statistical storylines as the Champions League reaches a crucial juncture`\
 https://nytimes.com/athletic/7100918/2026/03/10/numbers-to-know-champions-league-round-of-16/
-
-**The New York Times in Print for Tuesday, March 10, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/10/todays-new-york-times
-
-**The Champions League's remaining 16 teams — ranked**\
-`The Champions League round of 16 is upon us. We assess every team left in the competition`\
-https://nytimes.com/athletic/7100860/2026/03/10/champions-league-round-of-16-rankings/
-
-**Former Meta A.I. Chief’s Start-Up Is Valued at $3.5 Billion**\
-`Advanced Machine Intelligence Labs, founded by Yann LeCun and other ex-Meta researchers, has raised more than $1 billion from investors.`\
-https://nytimes.com/2026/03/10/technology/ami-labs-yann-lecun-funding.html
-
-**Fed Up With High Costs, American Theater Takes a Trip to London**\
-`Skyrocketing budgets and falling profitability have driven a new form of offshoring, with U.S. producers staging shows across the Atlantic.`\
-https://nytimes.com/2026/03/10/theater/broadway-theater-london-prices.html
 
