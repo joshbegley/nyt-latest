@@ -1,3 +1,7 @@
+**Word of the Day: embellish**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/10/learning/word-of-the-day-embellish.html
+
 **The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
 `We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
 https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/

@@ -1,3 +1,7 @@
+**Word of the Day: embellish**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/10/learning/word-of-the-day-embellish.html
+
 **Manchester United's lack of width - and how to fix it**\
 `There has been much to admire since Carrick took charge at Old Trafford but there is one area to address - out wide`\
 https://nytimes.com/athletic/7078702/2026/03/10/manchester-united-michael-carrick-problem-width/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101737/2026/03/10/atletico-tottenham-champions-lea
 **Row Z: Tottenham vs reality, Arsenal play it safe and could a striker decide a team-mate's future?**\
 `Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
 https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand/
-
-**How is football refereed differently in the Premier League and Champions League?**\
-`Inconsistency in how games are officiated in Europe and England is a source of huge frustration to supporters`\
-https://nytimes.com/athletic/7101240/2026/03/10/premier-league-champions-league-referees/
 
