@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: President Presses for Broader Version of Voter ID Bill**\
-``\
-https://nytimes.com/live/2026/03/10/us/trump-news
+**Weekly Student News Quiz: Iran, Midterms, Hot Air Balloon**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2026/03/10/learning/09StudentNewsQuiz.html
 
-**San Francisco Giants broadcast guide: TV info for Rafael Devers, Logan Webb and crew**\
-`From the NBC Sports Bay Area games to the national spotlights, here's how to watch Devers and the Giants in 2026.`\
-https://nytimes.com/athletic/7087823/2026/03/10/san-francisco-giants-webb-devers-how-to-watch-2026/
+**How to watch UTEP vs. Jacksonville State women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the UTEP Miners play the Jacksonville State Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104178/2026/03/10/utep-vs-jacksonville-state-stream-how-to-watch-march-10/
 
-**Clippers finally complete the climb back to .500 after a 6-21 start**\
-`The Clippers ended a stretch of 125 days with a losing record Monday night with a win over the Knicks.`\
-https://nytimes.com/athletic/7103822/2026/03/10/clippers-win-500-knicks/
+**Was SGA's record-breaking game against the Nuggets also his best performance ever?**\
+`Gilgeous-Alexander carried a short-handed OKC squad to victory with two clutch shots on the night he broke a Wilt Chamberlain record. `\
+https://nytimes.com/athletic/7103879/2026/03/10/shai-gilgeous-alexander-thunder-record-best-nuggets/
 
-**The Bay Area Considers the Unthinkable: Life Without BART**\
-`The Bay Area Rapid Transit system was once so successful, it could rely mostly on riders to sustain itself. But the pandemic dealt BART an unusually heavy blow.`\
-https://nytimes.com/2026/03/10/us/the-bay-area-considers-the-unthinkable-life-without-bart.html
+**How to watch Sacramento State vs. Idaho women's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Sacramento State Hornets play the Idaho Vandals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104169/2026/03/10/sacramento-state-vs-idaho-stream-how-to-watch-march-10/
 
-**Bubble watch, Mets edition: Projecting the 2026 Opening Day roster**\
-`Will Francisco Lindor be ready? Will Carson Benge make the team? Here's the latest look at how the Mets' roster is shaping up.`\
-https://nytimes.com/athletic/7103448/2026/03/10/mets-roster-projection-bubble-watch/
+**The Sixers are falling in the standings, but they haven't fallen apart yet**\
+`Missing four top players, the 76ers have dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
+https://nytimes.com/athletic/7103625/2026/03/10/sixers-loss-playoffs-injuries-maxey-embiid/
 
-**The night Newcastle and Faustino Asprilla beat Barcelona: 'I swear I’ve never heard noise like that'**\
-`The Barcelona Game in the autumn of 1997 was a landmark in Newcastle’s history, and an occasion decorated by the club's Colombian maverick`\
-https://nytimes.com/athletic/7100912/2026/03/10/newcastle-asprilla-barcelona-champions-league/
+**How to watch Tulane vs. Temple women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Temple Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104154/2026/03/10/tulane-vs-temple-stream-how-to-watch-march-10/
 
-**Rosenthal: After defensive showcase, Bobby Witt Jr. has Team USA smiling**\
-`'Are you kidding me?' Team USA captain Aaron Judge exclaimed after one of Witt's gems at shortstop. 'Are you kidding me?'`\
-https://nytimes.com/athletic/7104048/2026/03/10/bobby-witt-world-baseball-classic-team-usa/
+**How to watch Oregon State vs. Gonzaga women's basketball: WCC Tournament Time, TV, streaming**\
+`Find out how to watch the Oregon State Beavers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104152/2026/03/10/oregon-state-vs-gonzaga-stream-how-to-watch-march-10/
 
-**Paralympian credits ChatGPT for helping him win silver medal**\
-`Ukraine's Maksym Murashkovskyi said that he used AI for his training plan and as a motivating tool.`\
-https://nytimes.com/athletic/7104068/2026/03/10/paralympics-chatgpt-ukraine-biathlon/
+**How to watch Nicholls vs. SFA women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Nicholls Colonels play the Stephen F. Austin Ladyjacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104149/2026/03/10/nicholls-vs-sfa-stream-how-to-watch-march-10/
 
-**College softball power rankings: With the start of conference action comes chaos**\
-`Tennessee faces its first big test; Oklahoma State has a roller-coaster ride; Oregon, Texas A&M and more. `\
-https://nytimes.com/athletic/7102573/2026/03/10/college-softball-power-rankings-conference-play/
+**How to watch Pittsburgh vs. Stanford men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the Stanford Cardinal, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104147/2026/03/10/pittsburgh-vs-stanford-stream-how-to-watch-march-10/
 
-**Democrats Sue to Find Out if Trump Will Send Armed Officers to Election Sites**\
-`In a lawsuit filed Tuesday, the D.N.C. sought to compel the government to say whether it plans to deploy armed federal officers in this year’s elections.`\
-https://nytimes.com/2026/03/10/us/politics/democrats-sue-to-find-out-if-trump-will-send-armed-officers-to-election-sites.html
+**How to watch Alcorn State vs. Prairie View A&M men's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Alcorn State Braves play the Prairie View A&M Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104144/2026/03/10/alcorn-state-vs-prairie-view-a-m-stream-how-to-watch-march-10/
 
