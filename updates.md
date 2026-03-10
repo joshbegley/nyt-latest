@@ -1,3 +1,11 @@
+**Bills sign tight end Dawson Knox to new three-year contract**\
+`Knox's contract needed to be adjusted to create cap space for the Bills.`\
+https://nytimes.com/athletic/7104757/2026/03/10/bills-tight-end-dawson-knox-contract/
+
+**Nearly 700,000 Displaced by War in Lebanon, U.N. Says**\
+`Mass evacuation orders and an intensifying Israeli bombing campaign targeting the Iran-backed militia Hezbollah have caused a humanitarian crisis, aid groups warn.`\
+https://nytimes.com/2026/03/10/world/middleeast/nearly-700000-displaced-by-war-in-lebanon-un-says.html
+
 **‘Nothing Will Remain of Tehran,’ Iranians Say Amid Heavy Bombing**\
 `Some residents described the strikes overnight Monday into Tuesday as among the worst they had experienced since the war started.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-bombing-tehran.html
