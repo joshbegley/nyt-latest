@@ -1,3 +1,7 @@
+**War and the Economy**\
+`We look at the conflict’s global economic impact.`\
+https://nytimes.com/2026/03/10/briefing/war-and-the-economy.html
+
 **NHL post-deadline vibe check: Sizzle in the Central, Kucherov's absurd pace and more**\
 `Plus: Why is Buffalo's defense corps so lopsided, and can the Red Wings finally produce a March worth remembering?`\
 https://nytimes.com/athletic/7102355/2026/03/10/nhl-vibe-check-trade-deadline-kucherov-sabres-kadri-oilers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103743/2026/03/10/blackhawks-win-mammoth-andre-bur
 **Michkov is back on right wing for the Flyers. It’s up to him to make it stick**\
 `The young Russian needs to convince Rick Tocchet that his preferred position is his best spot, even in the coach's system.`\
 https://nytimes.com/athletic/7102807/2026/03/10/flyers-matvei-michkov-tocchet-roster-construction-depth/
-
-**Will Lane Kiffin win a national title at LSU? CFB coaches give their take**\
-`Kiffin was hired to bring LSU back to the sport’s upper echelon. Do other college football coaches think he can do it?`\
-https://nytimes.com/athletic/7102444/2026/03/10/lane-kiffin-national-championship-lsu/
 

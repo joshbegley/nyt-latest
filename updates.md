@@ -1,3 +1,7 @@
+**War and the Economy**\
+`We look at the conflict’s global economic impact.`\
+https://nytimes.com/2026/03/10/briefing/war-and-the-economy.html
+
 **NHL post-deadline vibe check: Sizzle in the Central, Kucherov's absurd pace and more**\
 `Plus: Why is Buffalo's defense corps so lopsided, and can the Red Wings finally produce a March worth remembering?`\
 https://nytimes.com/athletic/7102355/2026/03/10/nhl-vibe-check-trade-deadline-kucherov-sabres-kadri-oilers/
