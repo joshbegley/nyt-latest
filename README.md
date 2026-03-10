@@ -1,3 +1,7 @@
+**England's Kyle Walker retires from international football after 96 caps**\
+`Walker, 35, represented his country at five major tournaments and has been described by head coach Thomas Tuchel as an "England great".`\
+https://nytimes.com/athletic/5635789/2026/03/10/kyle-walker-england-retires/
+
 **Brentford owner claims they were close to signing Eze, Olise and Marmoush**\
 `Matthew Benham said that Brentford could have signed Eze for £4million in 2019 while he was at Queens Park Rangers.`\
 https://nytimes.com/athletic/7104456/2026/03/10/eze-olise-marmoush-transfer-brentford-premier-league/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7104664/2026/03/10/blue-jackets-vs-lightning-stream
 **How to watch Sharks vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104660/2026/03/10/sharks-vs-sabres-stream-how-to-watch-march-10/
-
-**How to watch Monmouth vs. Hofstra men's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Monmouth Hawks play the Hofstra Pride, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104657/2026/03/10/monmouth-vs-hofstra-stream-how-to-watch-march-10/
 
