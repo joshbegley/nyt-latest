@@ -1,32 +1,28 @@
+**How to watch Mavericks vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104912/2026/03/10/mavericks-vs-hawks-stream-how-to-watch-march-10/
+
+**How to watch Raptors vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Toronto Raptors play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104910/2026/03/10/raptors-vs-rockets-stream-how-to-watch-march-10/
+
+**How to watch Pistons vs. Nets: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Brooklyn Nets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104907/2026/03/10/pistons-vs-nets-stream-how-to-watch-march-10/
+
+**How to watch Wizards vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104905/2026/03/10/wizards-vs-heat-stream-how-to-watch-march-10/
+
+**How to watch Celtics vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104901/2026/03/10/celtics-vs-spurs-stream-how-to-watch-march-10/
+
+**A.I. Incites a New Wave of Grieving Parents Fighting for Online Safety**\
+`Blaming chatbots, they are joining an earlier push for better protections by parents who say social media contributed to their children’s deaths.`\
+https://nytimes.com/2026/03/10/technology/ai-social-media-child-safety-parents.html
+
 **How to watch Suns vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104895/2026/03/10/suns-vs-bucks-stream-how-to-watch-march-10/
-
-**Rocco DiSpirito Return With Home-Style Italian at Bar Rocco**\
-`Honey Badger deploys an ambitious menu, Threes Brewing Greenpoint teams up with Grand Army and more restaurant news.`\
-https://nytimes.com/2026/03/10/dining/nyc-restaurant-news.html
-
-**Culture at Columbia Shielded Sexual Assault by Physician, Report Finds**\
-`Two doctors affiliated with the university and NewYork-Presbyterian Hospital stepped down after an external report found that the administrators mishandled allegations of abuse against Robert Hadden.`\
-https://nytimes.com/2026/03/10/nyregion/columbia-hospitals-hadden-resignation.html
-
-**Boeing Says Wiring Issue Will Delay Some 737 Max Deliveries**\
-`The aerospace company said the delay would not prevent it from meeting its 2026 sales goal of about 500 Max jets.`\
-https://nytimes.com/2026/03/10/business/boeing-737-max-delay.html
-
-**Alabama Governor Spares Death Row Inmate Who Didn’t Pull the Trigger**\
-`The move by Gov. Kay Ivey, a Republican, is extremely rare. The inmate, Charles Burton, was scheduled to die even though the gunman’s sentence had been commuted years ago.`\
-https://nytimes.com/2026/03/10/us/alabama-ivey-charles-burton.html
-
-**Bills sign tight end Dawson Knox to new three-year contract**\
-`Knox's contract needed to be adjusted to create cap space for the Bills.`\
-https://nytimes.com/athletic/7104757/2026/03/10/bills-tight-end-dawson-knox-contract/
-
-**Nearly 700,000 Displaced by War in Lebanon, U.N. Says**\
-`Mass evacuation orders and an intensifying Israeli bombing campaign targeting the Iran-backed militia Hezbollah have caused a humanitarian crisis, aid groups warn.`\
-https://nytimes.com/2026/03/10/world/middleeast/nearly-700000-displaced-by-war-in-lebanon-un-says.html
-
-**‘Nothing Will Remain of Tehran,’ Iranians Say Amid Heavy Bombing**\
-`Some residents described the strikes overnight Monday into Tuesday as among the worst they had experienced since the war started.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-bombing-tehran.html
 

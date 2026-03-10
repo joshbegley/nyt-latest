@@ -1,3 +1,7 @@
+**How to watch Suns vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104895/2026/03/10/suns-vs-bucks-stream-how-to-watch-march-10/
+
 **Rocco DiSpirito Return With Home-Style Italian at Bar Rocco**\
 `Honey Badger deploys an ambitious menu, Threes Brewing Greenpoint teams up with Grand Army and more restaurant news.`\
 https://nytimes.com/2026/03/10/dining/nyc-restaurant-news.html
