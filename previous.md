@@ -1,3 +1,11 @@
+**Manchester United's lack of width - and how to fix it**\
+`There has been much to admire since Carrick took charge at Old Trafford but there is one area to address - out wide`\
+https://nytimes.com/athletic/7078702/2026/03/10/manchester-united-michael-carrick-problem-width/
+
+**Lewis Hamilton is having fun again. In Australia there were signs his joy - and pace - is back**\
+`After finishing fourth in Australia, the prospect of Hamilton ending his podium drought this season seems promising. `\
+https://nytimes.com/athletic/7100804/2026/03/10/lewis-hamilton-australian-grand-prix-china-analysis/
+
 **Ndiaye, Garner and how Everton can use undervalued talent to push on**\
 `Ndiaye and Garner have been two of Everton's best players this season — and were signed in a very similar way`\
 https://nytimes.com/athletic/7100952/2026/03/10/everton-iliman-ndiaye-james-garner-transfers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7101240/2026/03/10/premier-league-champions-league-
 **Lucky Arsenal? Analysing historic pathway difficulty in the Champions League**\
 `Mikel Arteta's side have a relatively kind route ahead of them this season – that hasn't always been the case `\
 https://nytimes.com/athletic/7100939/2026/03/10/champions-league-pathway-difficulty-arsenal-liverpool-real-madrid-bayern/
-
-**The best players aged 25 and under still in the Champions League**\
-`From Arsenal's Bukayo Saka to Barcelona's Lamine Yamal, these are The Athletic's young players to watch in the Champions League`\
-https://nytimes.com/athletic/7101134/2026/03/10/champions-league-best-young-players/
-
-**Sir Bobby Robson's legacy at Newcastle and Barca endures - and he continues to change lives**\
-`The former Newcastle and Barca manager built teams in his career and now his foundation continues to do the same as it helps fight cancer.`\
-https://nytimes.com/athletic/7094039/2026/03/10/newcastle-vs-barcelona-sir-bobby-robson/
 

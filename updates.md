@@ -1,3 +1,11 @@
+**Manchester United's lack of width - and how to fix it**\
+`There has been much to admire since Carrick took charge at Old Trafford but there is one area to address - out wide`\
+https://nytimes.com/athletic/7078702/2026/03/10/manchester-united-michael-carrick-problem-width/
+
+**Lewis Hamilton is having fun again. In Australia there were signs his joy - and pace - is back**\
+`After finishing fourth in Australia, the prospect of Hamilton ending his podium drought this season seems promising. `\
+https://nytimes.com/athletic/7100804/2026/03/10/lewis-hamilton-australian-grand-prix-china-analysis/
+
 **Ndiaye, Garner and how Everton can use undervalued talent to push on**\
 `Ndiaye and Garner have been two of Everton's best players this season — and were signed in a very similar way`\
 https://nytimes.com/athletic/7100952/2026/03/10/everton-iliman-ndiaye-james-garner-transfers/
