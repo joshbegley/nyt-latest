@@ -1,3 +1,15 @@
+**Trump Could Restart California Oil Pipeline With Cold War-Era Law, Opinion Says**\
+`The Justice Department said the president has the legal authority to overrule state regulators and reopen an offshore oil pipeline that was shut down after causing a gigantic oil spill.`\
+https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html
+
+**Two Supreme Court Justices Debate Handling of Trump Emergency Cases**\
+`In a rare joint appearance, Justices Ketanji Brown Jackson and Brett M. Kavanaugh offered sharply different views on how the court should handle emergency requests.`\
+https://nytimes.com/2026/03/09/us/politics/supreme-court-justices-emergency-cases.html
+
+**How to smash a tennis racket: Style, control, damage, aggression - and danger**\
+`The racket smash is a staple of tennis, for better or for worse. Here's how players find creative ways to do it.`\
+https://nytimes.com/athletic/5613787/2026/03/09/tennis-racket-smash-penalty-danger/
+
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
 https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
