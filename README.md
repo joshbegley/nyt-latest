@@ -1,3 +1,7 @@
+**Gas Prices Hit $3.54 a Gallon, Up 19% Since Attacks on Iran**\
+`Concern that oil production and shipment from the region will remain limited has lifted the price of crude oil — the largest factor in the cost of a gallon of gas — sharply.`\
+https://nytimes.com/2026/03/10/business/gasoline-price-energy-costs.html
+
 **Here’s the latest.**\
 `By Chris Cameron, Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/nyregion/students-school-screen-time-parents-conc
 **Fiscal Crunch Presents a First Big Policy Challenge for Mikie Sherrill**\
 `Ms. Sherrill will present her first budget as New Jersey governor in Trenton on Tuesday, and with it a robust preview of her policy priorities.`\
 https://nytimes.com/2026/03/10/nyregion/sherrill-deficit-budget-nj.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/10/crosswords/spelling-bee-forum.html
 
