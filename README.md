@@ -1,3 +1,7 @@
+**This is what happened on March 9.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-9
+
 **T20 World Cup: The Athletic's team of the tournament**\
 `The USA's Shadley van Schalkwyk also makes the cut as we break down the stars of the tournament in Sri Lanka and India`\
 https://nytimes.com/athletic/7100646/2026/03/10/t20-world-cup-india-bumrah-samson-team-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/pageoneplus/quote-of-the-day-scientists-get-a-gli
 **Noah Laba continues promising year against a childhood favorite: Rangers observations**\
 `Mika Zibanejad's two goals led the Rangers against the Flyers, but a lot of young talents shone for New York.`\
 https://nytimes.com/athletic/7103665/2026/03/09/rangers-noah-laba-glendening-perreault-lafreniere-flyers/
-
-**Fragments of U.S.-Made Missile Seen in Photos Taken by Iran Near Deadly School Strike**\
-`Iranian state media posted mangled remnants it claims were from the Feb. 28 attack in Minab. An analysis shows they have the markings of a missile made by American manufacturers`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-school-strike-us-missile.html
 
