@@ -1,3 +1,15 @@
+**Who’s in, who’s out, and who’s got work to do to reach the next round of the WBC**\
+`Here’s a look at where the field stands entering the final two days of pool play.`\
+https://nytimes.com/athletic/7103826/2026/03/10/world-baseball-classic-clinching-scenarios/
+
+**The Phillies hear the 'noise' about running it back: Why they think they can make history**\
+`After three disappointing October exits, the Phillies brought back the same core group again to try to win it all. Legacies are on the line.`\
+https://nytimes.com/athletic/7101206/2026/03/10/phillies-world-series-questions-2026-roster/
+
+**Bears free-agency reset: Coby Bryant headlines defensive additions ... so far**\
+`Assessing the comings, goings and roster holes after Day 1 of NFL free agency. Plus, why didn't the Bears get any compensatory picks?`\
+https://nytimes.com/athletic/7103176/2026/03/10/bears-free-agency-reset-coby-bryant/
+
 **Panthers make statement to begin free agency as Dan Morgan goes big on defense — times 2**\
 `Adding Jaelan Phillips and Devin Lloyd was a great way for Morgan and the Panthers to start the offseason.`\
 https://nytimes.com/athletic/7103468/2026/03/10/panthers-free-agency-jaelan-phillips-devin-lloyd/
