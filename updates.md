@@ -1,3 +1,7 @@
+**‘Nothing Will Remain of Tehran,’ Iranians Say Amid Heavy Bombing**\
+`Some residents described the strikes overnight Monday into Tuesday as among the worst they had experienced since the war started.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-bombing-tehran.html
+
 **Reds' Greene to have surgery on right elbow, may return in July**\
 `Greene, 26, made one spring training start before reporting the pain in his throwing elbow.`\
 https://nytimes.com/athletic/7104522/2026/03/10/reds-hunter-greene-elbow-injury/
