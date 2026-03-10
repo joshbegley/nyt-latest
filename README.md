@@ -1,3 +1,7 @@
+**Browns agree to sign G Elgton Jenkins, continue to remake O-line: Source**\
+`The two-time Pro Bowler has spent all seven years of his career as a starter in Green Bay. `\
+https://nytimes.com/athletic/7105805/2026/03/10/elgton-jenkins-browns-nfl-free-agency-2026/
+
 **Blue Jays' José Berríos cleared to join Team Puerto Rico in WBC knockout stage**\
 `Berríos, who pitched for Puerto Rico in the last three WBC tournaments, began throwing early this offseason in preparation for another run. `\
 https://nytimes.com/athletic/7105728/2026/03/10/blue-jays-jose-berrios-cleared-to-join-team-puerto-rico-in-wbc-knockout-stage/
@@ -21,8 +25,4 @@ https://nytimes.com/2026/03/10/us/politics/democrats-rubio-hegseth-iran.html
 **2 Former Police Officers Conspired to Steal From Prostitute, U.S. Says**\
 `The two men pleaded not guilty on Tuesday in federal court to charges that they violated a woman’s civil rights while responding to a complaint about a brothel in a Queens building.`\
 https://nytimes.com/2026/03/10/nyregion/nypd-brothel-officers-arreste.html
-
-**The Briefing: Newcastle 1 Barcelona 1 - Hosts miss an opportunity? Flick too conservative? Hall vs Yamal?**\
-`A Lamine Yamal penalty deep into stoppage time denied Newcastle a famous victory over Barcelona`\
-https://nytimes.com/athletic/7096188/2026/03/10/newcastle-1-barcelona-1-briefing/
 
