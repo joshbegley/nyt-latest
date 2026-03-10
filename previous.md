@@ -1,40 +1,40 @@
-**This is what happened on March 9.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-9
+**Map: 6.0-Magnitude Earthquake Shakes Near Naples**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/10/world/europe/quake-tracker-tyrrhenian-sea-naples.html
 
-**T20 World Cup: The Athletic's team of the tournament**\
-`The USA's Shadley van Schalkwyk also makes the cut as we break down the stars of the tournament in Sri Lanka and India`\
-https://nytimes.com/athletic/7100646/2026/03/10/t20-world-cup-india-bumrah-samson-team-tournament/
+**'It was mayhem': The day Souness planted a Galatasaray flag in Fenerbahce's pitch**\
+`Reliving one of the most notorious moments in European football history through the eyes of those who were there`\
+https://nytimes.com/athletic/7101425/2026/03/10/graeme-souness-galatasaray-flag-fenerbahce/
 
-**Why Evann Guessand could thrive at Crystal Palace despite his Aston Villa toils**\
-`The Ivory Coast international is the closest thing Palace have to the departed Eberechi Eze and is learning the No 10 role at Selhurst Park`\
-https://nytimes.com/athletic/7092126/2026/03/10/guessand-crystal-palace-aston-villa-eze-glasner/
+**Serie A briefing: All of a sudden, the title race seems on again – can Allegri and Milan defy the odds?**\
+`Completing the double over their city rivals for the first time since 2011 means Milan have cut Inter’s lead at the top to seven points`\
+https://nytimes.com/athletic/7100079/2026/03/10/serie-a-milan-inter-horncastle/
 
-**The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
-`We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
-https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/
+**Atletico Madrid vs Tottenham Hotspur: Which club are the most 'cursed'?**\
+`Do Atletico have the worst luck? Have Spurs been struck by the most misfortune?`\
+https://nytimes.com/athletic/7101737/2026/03/10/atletico-tottenham-champions-league-cursed/
 
-**As War Comes to Gulf States, Migrant Workers Pay the Highest Price**\
-`Since the American-Israeli attack on Iran began, at least 11 civilians have been killed in oil-rich Gulf countries. All but one of them were foreign nationals.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-war-migrant-deaths.html
+**Row Z: Tottenham vs reality, Arsenal play it safe and could a striker decide a team-mate's future?**\
+`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
+https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand/
 
-**U.S. Solar Installations Fell in 2025 as Trump Attacked Clean Energy**\
-`More solar energy was added to U.S. grids than any other technology, but the amount installed fell by 14 percent, according to a new report.`\
-https://nytimes.com/2026/03/10/business/energy-environment/donald-trump-solar-energy-batteries.html
+**How is football refereed differently in the Premier League and Champions League?**\
+`Inconsistency in how games are officiated in Europe and England is a source of huge frustration to supporters`\
+https://nytimes.com/athletic/7101240/2026/03/10/premier-league-champions-league-referees/
 
-**Connections: Sports Edition Coach: Hints and answers for March 10, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7103700/2026/03/10/connections-sports-edition-hints-answers-march-10-2026/
+**Lucky Arsenal? Analysing historic pathway difficulty in the Champions League**\
+`Mikel Arteta's side have a relatively kind route ahead of them this season – that hasn't always been the case `\
+https://nytimes.com/athletic/7100939/2026/03/10/champions-league-pathway-difficulty-arsenal-liverpool-real-madrid-bayern/
 
-**Corrections: March 10, 2026**\
-`Corrections that appeared in print on Tuesday, March 10, 2026.`\
-https://nytimes.com/2026/03/10/pageoneplus/corrections-march-10-2026.html
+**The best players aged 25 and under still in the Champions League**\
+`From Arsenal's Bukayo Saka to Barcelona's Lamine Yamal, these are The Athletic's young players to watch in the Champions League`\
+https://nytimes.com/athletic/7101134/2026/03/10/champions-league-best-young-players/
 
-**Quote of the Day: Scientists Get a Glimpse Into How Pandemics Start**\
-`Quotation of the Day for Tuesday, March 10, 2026.`\
-https://nytimes.com/2026/03/09/pageoneplus/quote-of-the-day-scientists-get-a-glimpse-into-how-pandemics-start.html
+**Sir Bobby Robson's legacy at Newcastle and Barca endures - and he continues to change lives**\
+`The former Newcastle and Barca manager built teams in his career and now his foundation continues to do the same as it helps fight cancer.`\
+https://nytimes.com/athletic/7094039/2026/03/10/newcastle-vs-barcelona-sir-bobby-robson/
 
-**Noah Laba continues promising year against a childhood favorite: Rangers observations**\
-`Mika Zibanejad's two goals led the Rangers against the Flyers, but a lot of young talents shone for New York.`\
-https://nytimes.com/athletic/7103665/2026/03/09/rangers-noah-laba-glendening-perreault-lafreniere-flyers/
+**Numbers to Know: Champions League Round of 16**\
+`They key statistical storylines as the Champions League reaches a crucial juncture`\
+https://nytimes.com/athletic/7100918/2026/03/10/numbers-to-know-champions-league-round-of-16/
 
