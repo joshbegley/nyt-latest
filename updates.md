@@ -1,3 +1,11 @@
+**The New York Philharmonic’s Season: What We Want to Hear**\
+`A new era for the orchestra begins in September, when Gustavo Dudamel officially becomes its music and artistic director.`\
+https://nytimes.com/2026/03/10/arts/music/new-york-philharmonic-2026-2027-season.html
+
+**YouTube Adds Tool to Help Public Figures Report Fake Videos**\
+`Social media companies are under pressure to crack down on so-called deepfake videos that use deceptive images of real people.`\
+https://nytimes.com/2026/03/10/business/youtube-deepfakes-detection-tool.html
+
 **Cost-Cutting Led to South Korean Airport’s Deadly Wall, Report Finds**\
 `The concrete runway barrier played a key role in a disaster that killed 179 people. An audit revealed officials skimped on construction fees and then falsified records.`\
 https://nytimes.com/2026/03/10/world/asia/jeju-air-crash-wall-airport.html
