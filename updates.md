@@ -1,3 +1,7 @@
+**Gas Prices Hit $3.54 a Gallon, Up 19% Since Attacks on Iran**\
+`Concern that oil production and shipment from the region will remain limited has lifted the price of crude oil — the largest factor in the cost of a gallon of gas — sharply.`\
+https://nytimes.com/2026/03/10/business/gasoline-price-energy-costs.html
+
 **Here’s the latest.**\
 `By Chris Cameron, Farnaz Fassihi and Yan Zhuang`\
 https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel/heres-the-latest
