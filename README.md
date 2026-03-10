@@ -1,3 +1,11 @@
+**The New York Philharmonic’s Season: What We Want to Hear**\
+`A new era for the orchestra begins in September, when Gustavo Dudamel officially becomes its music and artistic director.`\
+https://nytimes.com/2026/03/10/arts/music/new-york-philharmonic-2026-2027-season.html
+
+**YouTube Adds Tool to Help Public Figures Report Fake Videos**\
+`Social media companies are under pressure to crack down on so-called deepfake videos that use deceptive images of real people.`\
+https://nytimes.com/2026/03/10/business/youtube-deepfakes-detection-tool.html
+
 **Cost-Cutting Led to South Korean Airport’s Deadly Wall, Report Finds**\
 `The concrete runway barrier played a key role in a disaster that killed 179 people. An audit revealed officials skimped on construction fees and then falsified records.`\
 https://nytimes.com/2026/03/10/world/asia/jeju-air-crash-wall-airport.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/magazine/wildlife-trafficking-africa.html
 **Patriots agree to deal with high-risk, high-reward Jets guard Alijah Vera-Tucker: Source**\
 `Vera-Tucker has played in only 43 of a possible 85 games as a pro. But if he stays healthy, he could make life easier for LT Will Campbell.`\
 https://nytimes.com/athletic/7104205/2026/03/10/alijah-vera-tucker-patriots-nfl-free-agency-2026/
-
-**Men Accused of Plotting Haitian President’s Assassination Head to Court**\
-`Four men are accused in South Florida of plotting to kill President Jovenel Moise in 2021. His death plunged Haiti into chaos that continues today.`\
-https://nytimes.com/2026/03/10/world/americas/haiti-president-murder-assassination-trial-miami-florida.html
-
-**Meet NWSL expansion team Denver Summit**\
-`Denver's quick climb to its first NWSL season was aided heavily by its ability to attract hometown talent.`\
-https://nytimes.com/athletic/7085768/2026/03/10/meet-nwsl-expansion-team-denver-summit-hometown/
 
