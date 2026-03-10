@@ -1,3 +1,19 @@
+**War in Iran Could Lead to Food Shortages in Region, Experts Warn**\
+`Some residents of Lebanon, Gaza and Iran are reporting shortages of food, rising food prices and other disruptions to food supplies as the conflict in the Middle East continues.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-food-prices.html
+
+**Cal Raleigh says he has 'no beef' with Randy Arozarena after WBC handshake snub**\
+`Raleigh snubbed his Mariners' teammate Arozarena when the outfielder attempted to shake his hand before his first at-bat on Monday.`\
+https://nytimes.com/athletic/7105569/2026/03/10/cal-raleigh-randy-aronzarena-wbc-handshake-snub-reaction/
+
+**Boots on the Ground — but Whose?**\
+`The Kurds have been let down time and again by the U.S. Here’s why they might still partner with Americans in Iran.`\
+https://nytimes.com/2026/03/10/world/iran-kurds-iraq-lebanon-war.html
+
+**How to Master the Single-Leg Deadlift**\
+`Try this variation of the classic move for better strength and balance.`\
+https://nytimes.com/interactive/2026/03/10/well/move/single-leg-deadlift-technique.html
+
 **How Does This End? Four Scenarios for What Comes Next With Iran.**\
 `The best hope? Weaken the regime’s ability to lash out and resist an uprising.`\
 https://nytimes.com/2026/03/10/opinion/how-does-this-end-four-scenarios-for-what-comes-next-with-iran.html
@@ -9,16 +25,4 @@ https://nytimes.com/2026/03/10/us/politics/us-senate-chatgpt-ai-chatbots.html
 **U.S. Showers Iran With Bombs in Most Intense Strikes of the War, Pentagon Says**\
 `Iranians cowered under the barrage as Pete Hegseth, the U.S. defense secretary, said the U.S. aimed to wipe out Iran’s capacity to obtain nuclear weapons “forever.”`\
 https://nytimes.com/2026/03/10/world/middleeast/us-iran-war-strikes-pentagon.html
-
-**A Family Home in Milan’s Design District**\
-`The husband and wife Mario Milana and Gabriella Campagna walk us through their 4,000-square-foot Milan apartment, which is filled with colorful furniture and prototypes that Milana designed himself.`\
-https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
-
-**Why did Spurs substitute their goalkeeper after 17 minutes in UCL tie?**\
-`The north London side went 4-0 down in 23 minutes during their first leg against Atletico Madrid on Tuesday.`\
-https://nytimes.com/athletic/7105540/2026/03/10/kinsky-tottenham-substitute-goalkeeper-champions-league/
-
-**Imprisoned in Iran, and Under Bombardment**\
-`Iranian detention centers, some holding people swept up in a government crackdown on protests along with other prisoners, have been damaged in the U.S.-Israeli airstrikes.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-prisoners-airstrikes.html
 
