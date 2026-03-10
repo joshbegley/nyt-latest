@@ -1,3 +1,11 @@
+**Bumblebee Queens Can Breathe Underwater**\
+`A new study offers clues as to how the insects survive flooding as they emerge from a hibernation-like phase every winter.`\
+https://nytimes.com/2026/03/10/science/bumlebees-queens-underwater-breathe.html
+
+**By signing Jesús Luzardo, Phillies quadruple down on their rotation**\
+`Wheeler, Nola, Sánchez and now Luzardo. The Phillies, unlike most teams, have embraced expensive, long-term rotation contracts.`\
+https://nytimes.com/athletic/7105787/2026/03/10/phillies-rotation-jesus-luzardo-contract-extension/
+
 **Browns agree to sign G Elgton Jenkins, continue to remake O-line: Source**\
 `The two-time Pro Bowler has spent all seven years of his career as a starter in Green Bay. `\
 https://nytimes.com/athletic/7105805/2026/03/10/elgton-jenkins-browns-nfl-free-agency-2026/
