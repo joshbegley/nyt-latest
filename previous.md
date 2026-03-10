@@ -1,3 +1,11 @@
+**Rising Fuel Costs Pressure Airlines and Truckers**\
+`The price of jet fuel and diesel has surged since the war in Iran began, which could force airlines and trucking companies to pass on higher costs to their customers.`\
+https://nytimes.com/2026/03/10/business/energy-environment/jet-fuel-diesel-airlines-truckers-iran.html
+
+**Did Cal Raleigh snub Randy Arozarena? The WBC moment causing a stir**\
+`It’s possible Arozarena wasn't actually angry with his Mariners teammate over a handshake snub Monday night, but it's not clear.`\
+https://nytimes.com/athletic/7104129/2026/03/10/mariners-randy-arozarena-cal-raleigh-handshake-wbc/
+
 **Former Premier League footballer Joey Barton charged after alleged assault**\
 `A man was taken to hospital with injuries to his face and ribs, police said in a statement.`\
 https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fight-golf-club/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102509/2026/03/10/eagles-free-agency-jaelan-philli
 **After Venice Biennale Fallout, Artist Representing U.S. Signs With Mega-Gallery**\
 `Alma Allen has joined Perrotin, months after two other galleries dropped him over his selection to represent the United States at the “art world Olympics.”`\
 https://nytimes.com/2026/03/10/arts/design/alma-allen-gallery-venice-biennale.html
-
-**Bills free agency reset, Day 1: Dee Alford to join new defense, backup QB a familiar face**\
-`The Bills were relatively quiet on Day 1. `\
-https://nytimes.com/athletic/7103217/2026/03/10/bills-free-agency-signings-dee-alford/
-
-**Forest reduce ticket prices for Europa League game against Midtjylland**\
-`Season ticket holders and club members have been given a £10 discount in response to disappointing sales before the last-16 first leg.`\
-https://nytimes.com/athletic/7104181/2026/03/10/forest-ticket-prices-midtjylland-europa-league/
 
