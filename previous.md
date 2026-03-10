@@ -1,3 +1,7 @@
+**U.S. Showers Iran With Bombs in Most Intense Strikes of the War, Pentagon Says**\
+`Iranians cowered under the barrage as Pete Hegseth, the U.S. defense secretary, said the U.S. aimed to wipe out Iran’s capacity to obtain nuclear weapons “forever.”`\
+https://nytimes.com/2026/03/10/world/middleeast/us-iran-war-strikes-pentagon.html
+
 **A Family Home in Milan’s Design District**\
 `The husband and wife Mario Milana and Gabriella Campagna walk us through their 4,000-square-foot Milan apartment, which is filled with colorful furniture and prototypes that Milana designed himself.`\
 https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
@@ -17,12 +21,4 @@ https://nytimes.com/2026/03/10/magazine/sync-music-songwriters-video.html
 **Nahshon Wright agrees to free-agent deal with Jets: Reports**\
 `Wright had a breakout season with the Bears that included five interceptions, two forced fumbles and three fumble recoveries.`\
 https://nytimes.com/athletic/7086535/2026/03/10/nahshon-wright-nfl-free-agency-2026/
-
-**Chargers free agency reset: More work to do on the interior offensive line**\
-`The Chargers still have a lot of salary cap space. Will they use it to make necessary improvements to their roster? `\
-https://nytimes.com/athletic/7105417/2026/03/10/chargers-free-agency-reset-offensive-line/
-
-**Why Did Trump Start This War?**\
-`Was war in Iran inevitable? A former Trump official Nadia Schadlow argues Iran’s nuclear threat could not be ignored. She makes her case on this episode of “The Ezra Klein Show.”`\
-https://nytimes.com/video/opinion/100000010758678/why-did-trump-start-this-war.html
 

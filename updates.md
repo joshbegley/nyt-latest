@@ -1,3 +1,7 @@
+**U.S. Showers Iran With Bombs in Most Intense Strikes of the War, Pentagon Says**\
+`Iranians cowered under the barrage as Pete Hegseth, the U.S. defense secretary, said the U.S. aimed to wipe out Iran’s capacity to obtain nuclear weapons “forever.”`\
+https://nytimes.com/2026/03/10/world/middleeast/us-iran-war-strikes-pentagon.html
+
 **A Family Home in Milan’s Design District**\
 `The husband and wife Mario Milana and Gabriella Campagna walk us through their 4,000-square-foot Milan apartment, which is filled with colorful furniture and prototypes that Milana designed himself.`\
 https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
