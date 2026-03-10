@@ -1,3 +1,19 @@
+**Meet NWSL expansion team Denver Summit**\
+`Denver's quick climb to its first NWSL season was aided heavily by its ability to attract hometown talent.`\
+https://nytimes.com/athletic/7085768/2026/03/10/meet-nwsl-expansion-team-denver-summit-hometown/
+
+**Eagles free agency reset, Day 1: Goodbye, Jaelan Phillips and other farewells**\
+`Phillips' price got too high for the Eagles to keep him.`\
+https://nytimes.com/athletic/7102509/2026/03/10/eagles-free-agency-jaelan-phillips-nakobe-dean/
+
+**After Venice Biennale Fallout, Artist Representing U.S. Signs With Mega-Gallery**\
+`Alma Allen has joined Perrotin Gallery, months after two galleries dropped him over his selection to represent the United States at the “art world Olympics.”`\
+https://nytimes.com/2026/03/10/arts/after-venice-biennale-fallout-artist-representing-us-signs-with-mega-gallery.html
+
+**Bills free agency reset, Day 1: Dee Alford to join new defense, backup QB a familiar face**\
+`The Bills were relatively quiet on Day 1. `\
+https://nytimes.com/athletic/7103217/2026/03/10/bills-free-agency-signings-dee-alford/
+
 **Forest reduce ticket prices for Europa League game against Midtjylland**\
 `Season ticket holders and club members have been given a £10 discount in response to disappointing sales before the last-16 first leg.`\
 https://nytimes.com/athletic/7104181/2026/03/10/forest-ticket-prices-midtjylland-europa-league/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7104180/2026/03/10/utah-vs-cincinnati-stream-how-to
 **Weekly Student News Quiz: Iran, Midterms, Hot Air Balloon**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/10/learning/09StudentNewsQuiz.html
-
-**How to watch UTEP vs. Jacksonville State women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the UTEP Miners play the Jacksonville State Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104178/2026/03/10/utep-vs-jacksonville-state-stream-how-to-watch-march-10/
-
-**Was SGA's record-tying game against the Nuggets also his best performance ever?**\
-`Gilgeous-Alexander carried a short-handed OKC squad to victory with two clutch shots on the night he tied a Wilt Chamberlain record. `\
-https://nytimes.com/athletic/7103879/2026/03/10/shai-gilgeous-alexander-thunder-record-best-nuggets/
-
-**How to watch Sacramento State vs. Idaho women's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Sacramento State Hornets play the Idaho Vandals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104169/2026/03/10/sacramento-state-vs-idaho-stream-how-to-watch-march-10/
-
-**The Sixers are falling in the standings, but they haven't fallen apart yet**\
-`Missing four top players, Philly has dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
-https://nytimes.com/athletic/7103625/2026/03/10/sixers-loss-playoffs-injuries-maxey-embiid/
 
