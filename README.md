@@ -1,28 +1,28 @@
+**Offensive tackle Braden Smith agrees to free-agent deal with Texans: Sources**\
+`Smith is considered one of the top pass blockers in the NFL thanks to his “outstanding posture, balance and leverage.”`\
+https://nytimes.com/athletic/7085206/2026/03/10/braden-smith-texans-nfl-free-agency-2026/
+
+**Georgia 14th Congressional District Special Election Results**\
+`Get live results and maps from the 2026 Georgia special election.`\
+https://nytimes.com/interactive/2026/us/elections/results-georgia-us-house-14-special.html
+
+**U.S. Threatens Intense Strikes on Iran as War Enters 11th Day**\
+`The U.S. defense secretary Pete Hegseth threatened Iran with the most intense strikes Tuesday as the joint U.S. and Israeli operation entered its 11th day. Iranian officials said they would continue to respond.`\
+https://nytimes.com/video/world/middleeast/100000010765875/iran-war-us-israel-strikes.html
+
+**Mississippi Primary Election Results**\
+`Get live results and maps from the 2026 Mississippi primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-mississippi-primary.html
+
+**Another Burst of Winter Expected Across Eastern Canada**\
+`Canada’s weather service warned that heavy snow, ice and strong winds could make travel difficult in Ottawa and Montreal.`\
+https://nytimes.com/2026/03/10/weather/ontario-quebec-canada-ice-storm.html
+
+**Georgia Election Results**\
+`See results and maps from the March 10 elections in Georgia.`\
+https://nytimes.com/interactive/2026/us/elections/results-georgia-special-march-10.html
+
 **What I learned at Ohio State spring practice: Key absences, rising stars, NFL coordinators**\
 `Takeaways on Ryan Day bringing in Arthur Smith with Matt Patricia, a shorthanded running back group and more as spring football began.`\
 https://nytimes.com/athletic/7104923/2026/03/10/ohio-state-first-spring-football-practice/
-
-**Harry Styles and 8 More Boy Band Stars Who Went Solo**\
-`As the former One Direction singer releases his fourth album, listen back to how Bobby Brown, Ricky Martin and others made their own statements.`\
-https://nytimes.com/2026/03/10/arts/music/amplifier-newsletter-solo-boy-band-stars.html
-
-**Two men to stand trial in Egypt over sports piracy site Streameast**\
-`Streameast sites provided free access to a wide range of sports fixtures including Premier League, Champions League, NFL, NBA and MLB.`\
-https://nytimes.com/athletic/7105002/2026/03/10/sports-streaming-piracy-streameast-trial/
-
-**What Do Presidents Call a ‘War’?**\
-`Our reporter Charlie Savage describes the efforts by President Trump’s allies to avoid labeling the war in Iran as a war, and details how Congress came to shrug off its constitutional authority over war-making.`\
-https://nytimes.com/video/us/100000010756750/president-power-start-war-iran.html
-
-**4 Continents in 62 Hours: How One American Got Out of Qatar**\
-`When conflict broke out in the Middle East, thousands of travelers were stranded. We followed a New Orleans doctor on his epic journey to get home.`\
-https://nytimes.com/2026/03/10/travel/canceled-flights-middle-east-iran-war.html
-
-**Running back Isiah Pacheco agrees to free-agent deal with Lions: Source**\
-`Pacheco was the top rusher for a pair of Chiefs Super Bowl-winning teams before injuries slowed him down the last two seasons.`\
-https://nytimes.com/athletic/7087872/2026/03/10/isiah-pacheco-lions-nfl-free-agency-2026/
-
-**How to watch Mavericks vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Dallas Mavericks play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104912/2026/03/10/mavericks-vs-hawks-stream-how-to-watch-march-10/
 
