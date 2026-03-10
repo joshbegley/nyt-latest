@@ -1,3 +1,7 @@
+**‘Haven’t the Foggiest’**\
+`Grab a snack and solve Daniel Bodily’s latest puzzle.`\
+https://nytimes.com/2026/03/09/crosswords/daily-puzzle-2026-03-10.html
+
 **Trump Seeks to Calm Energy Markets but Says War Will Go On for Now**\
 `The president said the U.S. could accompany tankers through the Strait of Hormuz if necessary to keep oil flowing. “We’ve already won in many ways, but we haven’t won enough,” he said.`\
 https://nytimes.com/2026/03/09/us/politics/trump-gas-oil-iran.html

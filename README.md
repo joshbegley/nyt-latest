@@ -1,3 +1,11 @@
+**Mirra Andreeva curses at crowd as Kateřina Siniaková and title pressure knock her out of Indian Wells**\
+`Andreeva is still 18, but her patterns in defeats significant and small have grown more concerning since her win at Indian Wells.`\
+https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
+
+**Panthers agree to deal with Devin Lloyd, the top linebacker available**\
+`Lloyd is the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
+https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
+
 **‘Haven’t the Foggiest’**\
 `Grab a snack and solve Daniel Bodily’s latest puzzle.`\
 https://nytimes.com/2026/03/09/crosswords/daily-puzzle-2026-03-10.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/us/politics/supreme-court-justices-emergency-case
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
 https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
-
-**Trump’s War in Iran, and Rising Gas Prices, Collide With Midterm Agenda**\
-`The attack on Iran has led to a surge in energy prices at a moment when the cost of living is a major issue heading into the fall elections.`\
-https://nytimes.com/2026/03/09/us/politics/trump-iran-gas-prices-gop-agenda.html
-
-**Warriors' Seth Curry returns vs. Jazz; Kristaps Porziņģis on track for Tuesday vs. Bulls**\
-`Monday's game will mark just the third game Seth Curry has played all season.`\
-https://nytimes.com/athletic/7103224/2026/03/09/warriors-seth-curry-kristaps-porzingis-returning-healthy/
 
