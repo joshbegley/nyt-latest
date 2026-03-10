@@ -1,3 +1,11 @@
+**He Raps, He Rants, He Promises Change. Meet Nepal’s Presumptive New Leader.**\
+`Balendra Shah’s party won a landslide in the election that followed Nepal’s Gen Z revolution. His style is pugnacious.`\
+https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.html
+
+**Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
+`HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right-field seats.`\
+https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
+
 **Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
 `HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right field seats.`\
 https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/

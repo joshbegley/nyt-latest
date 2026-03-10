@@ -1,5 +1,9 @@
+**He Raps, He Rants, He Promises Change. Meet Nepal’s Presumptive New Leader.**\
+`Balendra Shah’s party won a landslide in the election that followed Nepal’s Gen Z revolution. His style is pugnacious.`\
+https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.html
+
 **Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
-`HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right field seats.`\
+`HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right-field seats.`\
 https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
 
 **Full Time: If U.S. World Cup roster selection were today**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-champi
 **Shai Gilgeous-Alexander ties Wilt Chamberlain with 126 consecutive 20-point games**\
 `Gilgeous-Alexander, the reigning MVP, last scored fewer than 20 points in a regular-season game on Oct. 30, 2024.`\
 https://nytimes.com/athletic/7101574/2026/03/09/shai-gilgeous-alexander-wilt-chamberlain-nba-record/
-
-**Trump Could Restart California Oil Pipeline With Cold War-Era Law, Opinion Says**\
-`The Justice Department said the president has the legal authority to overrule state regulators and reopen an offshore oil pipeline that was shut down after causing a gigantic oil spill.`\
-https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html
 
