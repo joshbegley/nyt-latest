@@ -1,3 +1,15 @@
+**Who’s in, who’s out, and who’s got work to do to reach the next round of the WBC**\
+`Here’s a look at where the field stands entering the final two days of pool play.`\
+https://nytimes.com/athletic/7103826/2026/03/10/world-baseball-classic-clinching-scenarios/
+
+**The Phillies hear the 'noise' about running it back: Why they think they can make history**\
+`After three disappointing October exits, the Phillies brought back the same core group again to try to win it all. Legacies are on the line.`\
+https://nytimes.com/athletic/7101206/2026/03/10/phillies-world-series-questions-2026-roster/
+
+**Bears free-agency reset: Coby Bryant headlines defensive additions ... so far**\
+`Assessing the comings, goings and roster holes after Day 1 of NFL free agency. Plus, why didn't the Bears get any compensatory picks?`\
+https://nytimes.com/athletic/7103176/2026/03/10/bears-free-agency-reset-coby-bryant/
+
 **Panthers make statement to begin free agency as Dan Morgan goes big on defense — times 2**\
 `Adding Jaelan Phillips and Devin Lloyd was a great way for Morgan and the Panthers to start the offseason.`\
 https://nytimes.com/athletic/7103468/2026/03/10/panthers-free-agency-jaelan-phillips-devin-lloyd/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7103481/2026/03/10/bengals-free-agency-duke-tobin-c
 **U.S. Orders Diplomats to Leave Consulate in Southern Turkey**\
 `The order came after the interception of two missiles heading toward Turkey, which has a base that hosts U.S. and NATO forces.`\
 https://nytimes.com/2026/03/10/world/middleeast/us-orders-diplomats-to-leave-consulate-in-southern-turkey.html
-
-**Coaches poll: Who was the most underrated college football hire? What's the best job?**\
-`We polled 25 coaches for their reactions to wild college football carousel, the influence of Jimmy Sexton and College GameDay and more.`\
-https://nytimes.com/athletic/7102164/2026/03/10/college-football-coaches-poll-carousel-hires/
-
-**2026 NHL prospect pool rankings: No. 31 Dallas Stars**\
-`After graduating Lian Bichsel to the NHL, there are no guarantees for any of the Stars' top prospects.`\
-https://nytimes.com/athletic/6823796/2026/03/10/dallas-stars-nhl-prospect-rankings-2026/
-
-**Adam Silver, NBA canceling Hawks' 'Magic City Monday' makes plenty of sense**\
-`The league's decision was a reminder that it will choose its image and sponsors everytime.`\
-https://nytimes.com/athletic/7103442/2026/03/10/hawks-magic-city-monday-cancelled-adam-silver/
 
