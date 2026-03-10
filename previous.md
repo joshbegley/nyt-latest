@@ -1,3 +1,11 @@
+**Chanelmania Is Here. What’s Going On?**\
+`To understand the shopping frenzy, look to Matthieu Blazy’s new collection.`\
+https://nytimes.com/2026/03/10/style/chanel-matthieu-blazy-fall-2026.html
+
+**The Rapper Poised to Lead Nepal**\
+`Balendra Shah, commonly known as Balen, led his party to a landslide victory in Nepal’s first election since its youth-led revolution. A former rapper, he is on the brink of becoming the country’s youngest prime minister ever.`\
+https://nytimes.com/video/world/asia/100000010765576/nepal-prime-minister-balendra-shah.html
+
 **Australia Gives Asylum to Iranian Soccer Players**\
 `The Australian government has pledged to help the women players in Iran’s soccer national team after state media called them “traitors” for refusing to sing the national anthem.`\
 https://nytimes.com/video/world/australia/100000010764895/australia-asylum-iran-women-soccer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/us/jetblue-flights-aircraft-grounded-faa.html
 **Who Are the Men Accused of Bringing Homemade Bombs to Gracie Mansion?**\
 `A high school senior and a recent graduate, both from the Philadelphia suburbs, were charged by federal prosecutors with trying to support a terrorist group.`\
 https://nytimes.com/2026/03/10/nyregion/gracie-mansion-bomb-arrests.html
-
-**Can a Populist Democrat Flip New York City’s Only G.O.P. House Seat?**\
-`Allison Ziogas, a first-time candidate, hopes to unseat Representative Nicole Malliotakis by appealing to the district’s union roots.`\
-https://nytimes.com/2026/03/10/nyregion/ziogas-malliotakis-midterms.html
-
-**Workout Trends**\
-`What is your workout routine? What workout trends do you follow and how do you learn about them?`\
-https://nytimes.com/2026/03/10/learning/workout-trends.html
 
