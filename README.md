@@ -1,3 +1,7 @@
+**Rocco DiSpirito Return With Home-Style Italian at Bar Rocco**\
+`Honey Badger deploys an ambitious menu, Threes Brewing Greenpoint teams up with Grand Army and more restaurant news.`\
+https://nytimes.com/2026/03/10/dining/nyc-restaurant-news.html
+
 **Culture at Columbia Shielded Sexual Assault by Physician, Report Finds**\
 `Two doctors affiliated with the university and NewYork-Presbyterian Hospital stepped down after an external report found that the administrators mishandled allegations of abuse against Robert Hadden.`\
 https://nytimes.com/2026/03/10/nyregion/columbia-hospitals-hadden-resignation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/science/archaeology-parrots-peru.html
 **Scarf Anxieties**\
 `At Loewe and Celine, scarves as poufy as comforters have our critic wondering why fashion designers can’t leave well enough alone.`\
 https://nytimes.com/2026/03/10/style/scarf-anxieties.html
-
-**Dozens of States Weigh Continuing Live Nation Antitrust Case**\
-`After the Justice Department reached a settlement with the concert giant, the judge overseeing the trial asked the states and the company to do the same.`\
-https://nytimes.com/2026/03/10/arts/music/live-nation-antitrust-states.html
 
