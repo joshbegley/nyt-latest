@@ -1,3 +1,7 @@
+**Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
+`HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right field seats.`\
+https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
+
 **Full Time: If U.S. World Cup roster selection were today**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/

@@ -1,3 +1,7 @@
+**Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
+`HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right field seats.`\
+https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
+
 **Full Time: If U.S. World Cup roster selection were today**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101574/2026/03/09/shai-gilgeous-alexander-wilt-cha
 **Trump Could Restart California Oil Pipeline With Cold War-Era Law, Opinion Says**\
 `The Justice Department said the president has the legal authority to overrule state regulators and reopen an offshore oil pipeline that was shut down after causing a gigantic oil spill.`\
 https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html
-
-**Two Supreme Court Justices Debate Handling of Trump Emergency Cases**\
-`In a rare joint appearance, Justices Ketanji Brown Jackson and Brett M. Kavanaugh offered sharply different views on how the court should handle emergency requests.`\
-https://nytimes.com/2026/03/09/us/politics/supreme-court-justices-emergency-cases.html
 
