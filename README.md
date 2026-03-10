@@ -1,3 +1,15 @@
+**Vote on Your Favorite Miscast Stars in the Movies**\
+`A new Oscar celebrates the process of matching actor and role. But whether a star is hired for artistic or box office reasons, mismatches can be memorable. Here our favorites from recent decades. What do you think?`\
+https://nytimes.com/interactive/2026/03/09/movies/worst-casting-actors-movies.html
+
+**Chiefs free-agency reset: What's left to accomplish after busy Day 1?**\
+`What's next for the Chiefs after agreeing to sign Kenneth Walker III, Travis Kelce and Khyiris Tonga? They could copy a 2023 formula.`\
+https://nytimes.com/athletic/7102973/2026/03/09/chiefs-free-agency-reset-kenneth-walker-iii/
+
+**Shells Fired From Lebanon Land West of Syrian Capital, Country’s Military Says**\
+`The Syrian military accused Hezbollah of targeting Syrian army positions outside of Damascus.`\
+https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.html
+
 **Here’s What Happened in the Conflict on Monday**\
 `President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
 https://nytimes.com/2026/03/09/world/middleeast/heres-what-happened-in-the-conflict-on-monday.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7103092/2026/03/09/how-to-watch-santa-clara-vs-sain
 **Safety Reed Blankenship agrees to three-year deal with Texans**\
 `Blankenship was undrafted and became a four-year starter.`\
 https://nytimes.com/athletic/7102997/2026/03/09/reed-blankenship-texans-nfl-free-agency-2026/
-
-**Lawmakers Pressure Hochul to Raise Taxes in New York**\
-`The State Assembly and Senate are each calling for the state to raise taxes, piggybacking on a push by Mayor Zohran Mamdani of New York City.`\
-https://nytimes.com/2026/03/09/nyregion/tax-the-rich-albany.html
-
-**Panthers reach 1-year deal with Kenny Pickett to be backup QB: Source**\
-`The Panthers have been looking to get younger and more athletic at the QB2 spot behind Bryce Young.`\
-https://nytimes.com/athletic/7102942/2026/03/09/kenny-pickett-panthers-nfl-free-agency-2026/
-
-**Cardinals to sign Isaac Seumalo, top free-agent guard on the market: Source**\
-`Seumalo was a Pro Bowl selection in 2024.`\
-https://nytimes.com/athletic/7094968/2026/03/09/isaac-seumalo-cardinals-free-agency-2026/
 
