@@ -1,3 +1,7 @@
+**Smartmatic Says It’s a Target of Vindictive Prosecution by Trump**\
+`The voting technology company’s new court filing signals how far-reaching the legal fights over elections will be in 2026.`\
+https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictive-prosecution.html
+
 **Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
 `Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
 https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
