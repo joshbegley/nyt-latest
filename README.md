@@ -1,3 +1,11 @@
+**Trump Could Restart California Oil Pipeline With Cold War-Era Law, Opinion Says**\
+`The Justice Department said the president has the legal authority to overrule state regulators and reopen an offshore oil pipeline that was shut down after causing a gigantic oil spill.`\
+https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html
+
+**Two Supreme Court Justices Debate Handling of Trump Emergency Cases**\
+`In a rare joint appearance, Justices Ketanji Brown Jackson and Brett M. Kavanaugh offered sharply different views on how the court should handle emergency requests.`\
+https://nytimes.com/2026/03/09/us/politics/supreme-court-justices-emergency-cases.html
+
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
 https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
@@ -19,7 +27,7 @@ https://nytimes.com/2026/03/09/nyregion/mamdani-response-bomb.html
 https://nytimes.com/athletic/7103218/2026/03/09/lions-free-agency-offensive-line-cade-mays/
 
 **How to smash a tennis racket: Style, control, damage, aggression - and danger**\
-`The racket smash is a staple of tennis, but at Wimbledon, players can't hit the grass. What creativity emerges from destruction?`\
+`The racket smash is a staple of tennis, for better or for worse. Here's how players find creative ways to do it.`\
 https://nytimes.com/athletic/5613787/2026/03/09/tennis-racket-smash-penalty-danger/
 
 **Trump Again Suggests Without Evidence That Iran Struck Elementary School**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/09/us/politics/trump-iran-missile-school.html
 **Vote on Your Favorite Miscast Stars in the Movies**\
 `A new Oscar celebrates the process of matching actor and role. But whether a star is hired for artistic or box office reasons, mismatches can be memorable. Here our favorites from recent decades. What do you think?`\
 https://nytimes.com/interactive/2026/03/09/movies/worst-casting-actors-movies.html
-
-**Chiefs free-agency reset: What's left to accomplish after busy Day 1?**\
-`What's next for the Chiefs after agreeing to sign Kenneth Walker III, Travis Kelce and Khyiris Tonga? They could copy a 2023 formula.`\
-https://nytimes.com/athletic/7102973/2026/03/09/chiefs-free-agency-reset-kenneth-walker-iii/
-
-**Shells Fired From Lebanon Land West of Syrian Capital, Country’s Military Says**\
-`The Syrian military accused Hezbollah of targeting Syrian army positions outside of Damascus.`\
-https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.html
 
