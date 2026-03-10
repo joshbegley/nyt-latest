@@ -1,3 +1,11 @@
+**This is what happened on March 9.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-9
+
+**T20 World Cup: The Athletic's team of the tournament**\
+`The USA's Shadley van Schalkwyk also makes the cut as we break down the stars of the tournament in Sri Lanka and India`\
+https://nytimes.com/athletic/7100646/2026/03/10/t20-world-cup-india-bumrah-samson-team-tournament/
+
 **Why Evann Guessand could thrive at Crystal Palace despite his Aston Villa toils**\
 `The Ivory Coast international is the closest thing Palace have to the departed Eberechi Eze and is learning the No 10 role at Selhurst Park`\
 https://nytimes.com/athletic/7092126/2026/03/10/guessand-crystal-palace-aston-villa-eze-glasner/
