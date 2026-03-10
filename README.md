@@ -27,7 +27,7 @@ https://nytimes.com/athletic/7103879/2026/03/10/shai-gilgeous-alexander-thunder-
 https://nytimes.com/athletic/7104169/2026/03/10/sacramento-state-vs-idaho-stream-how-to-watch-march-10/
 
 **The Sixers are falling in the standings, but they haven't fallen apart yet**\
-`Missing four top players, the 76ers have dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
+`Missing four top players, Philly has dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
 https://nytimes.com/athletic/7103625/2026/03/10/sixers-loss-playoffs-injuries-maxey-embiid/
 
 **How to watch Tulane vs. Temple women's basketball: AAC Tournament Time, TV, streaming**\

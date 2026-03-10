@@ -1,3 +1,7 @@
+**USA Today Names Jamie Stockwell as Next Top Editor**\
+`Ms. Stockwell, who recently left The Washington Post, is the third person named to the job in the past three years.`\
+https://nytimes.com/2026/03/10/business/media/usa-today-jamie-stockwell-top-editor.html
+
 **Businesses Ask the TACO Question About Iran**\
 `Whether President Trump signaled that he may soon end the military strikes is weighing on the minds of investors, executives and others.`\
 https://nytimes.com/2026/03/10/business/dealbook/trump-iran-taco.html

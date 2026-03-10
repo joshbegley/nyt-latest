@@ -1,3 +1,7 @@
+**USA Today Names Jamie Stockwell as Next Top Editor**\
+`Ms. Stockwell, who recently left The Washington Post, is the third person named to the job in the past three years.`\
+https://nytimes.com/2026/03/10/business/media/usa-today-jamie-stockwell-top-editor.html
+
 **Businesses Ask the TACO Question About Iran**\
 `Whether President Trump signaled that he may soon end the military strikes is weighing on the minds of investors, executives and others.`\
 https://nytimes.com/2026/03/10/business/dealbook/trump-iran-taco.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7104154/2026/03/10/tulane-vs-temple-stream-how-to-w
 **How to watch Oregon State vs. Gonzaga women's basketball: WCC Tournament Time, TV, streaming**\
 `Find out how to watch the Oregon State Beavers play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104152/2026/03/10/oregon-state-vs-gonzaga-stream-how-to-watch-march-10/
-
-**How to watch Nicholls vs. SFA women's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the Nicholls Colonels play the Stephen F. Austin Ladyjacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104149/2026/03/10/nicholls-vs-sfa-stream-how-to-watch-march-10/
 
