@@ -1,28 +1,28 @@
+**Mosque Blames Islamophobia in Suburbs for Hostility to Its Expansion**\
+`The Hillside Islamic Center is suing town officials in North Hempstead, N.Y., accusing them of bowing to anti-Muslim sentiment.`\
+https://nytimes.com/2026/03/10/nyregion/mosque-long-island-lawsuit.html
+
+**The Briefing: Galatasaray 1 Liverpool 0 - Slot's century marred by defensive mistakes and attacking profligacy**\
+`The Turkish team will travel to Anfield next week without their fans following a UEFA ban, but with a lead to defend from the first leg`\
+https://nytimes.com/athletic/7096186/2026/03/10/liverpool-galatasaray-slot-mamardashvili-osimhen-ucl/
+
+**The Pentagon says 140 service members have been injured since the war began, 8 severely.**\
+`By Eric Schmitt and Helene Cooper`\
+https://nytimes.com/2026/03/10/world/middleeast/the-pentagon-says-140-service-members-have-been-injured-since-the-war-began-8-severely.html
+
+**Bill Kurtis to Leave NPR’s ‘Wait Wait … Don’t Tell Me!’**\
+`As the irreverent quiz show’s judge and scorekeeper, Kurtis, a former news anchor known for his rich voice, has helped find comedy in current events since 2014.`\
+https://nytimes.com/2026/03/10/arts/bill-kurtis-retires-npr-wait-wait-dont-tell-me.html
+
+**Giancarlo Esposito Wants to Walk Into a Restaurant and Actually Smell Food**\
+`“If I don’t smell anything, I don’t know that it’s a restaurant,” said the “Breaking Bad” actor and longtime New Yorker.`\
+https://nytimes.com/2026/03/10/dining/giancarlo-esposito-nyc-restaurants.html
+
+**Geno Smith trade grades: Jets reach to the past for their next QB**\
+`Smith reunites with the team that drafted him, while the Raiders get something instead of nothing.`\
+https://nytimes.com/athletic/7105425/2026/03/10/geno-smith-jets-raiders-trade-grades/
+
 **Luke Kornet on spurring 'Magic City Monday' cancellation: 'Needed to be done'**\
 `"Frankly, that feels appropriate,” the Spurs center said of the league's decision, which was announced Tuesday.`\
 https://nytimes.com/athletic/7105289/2026/03/10/luke-kornet-magic-city-cancellation-hawks/
-
-**‘Don’t Worry About It’: NASA Satellite to Burn Up in Fall to Earth**\
-`Most of the Van Allen Probe A, in orbit since 2012, will incinerate in Earth’s atmosphere, NASA said. But some pieces are expected to survive, posing a small risk to people on the ground.`\
-https://nytimes.com/2026/03/10/science/space/nasa-satellite-earth-re-entry.html
-
-**Trump’s Shifting Timeline for How Long the Iran War Will Last**\
-`Now 11 days into an expanding military campaign, President Trump and his officials have given conflicting indications on when the United States intends to end the war.`\
-https://nytimes.com/2026/03/10/us/politics/trump-iran-war-how-long-timeline.html
-
-**How to watch Predators vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105410/2026/03/10/predators-vs-kraken-stream-how-to-watch-march-10/
-
-**How to watch Oilers vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105406/2026/03/10/oilers-vs-avalanche-stream-how-to-watch-march-10/
-
-**How to watch Golden Knights vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105391/2026/03/10/golden-knights-vs-stars-stream-how-to-watch-march-10/
-
-**How to watch Air Force vs. Colorado State women's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Air Force Falcons play the Colorado State Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105380/2026/03/10/air-force-vs-colorado-state-stream-how-to-watch-march-10/
 
