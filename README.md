@@ -1,3 +1,31 @@
+**How to watch Baylor vs. Arizona State men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Baylor Bears play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103938/2026/03/10/baylor-vs-arizona-state-stream-how-to-watch-march-10/
+
+**How to watch Kennesaw State vs. Delaware women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Delaware Fightin' Blue Hens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103936/2026/03/10/kennesaw-state-vs-delaware-stream-how-to-watch-march-10/
+
+**How to watch Florida Atlantic vs. Charlotte women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Florida Atlantic Owls play the Charlotte 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103934/2026/03/10/florida-atlantic-vs-charlotte-stream-how-to-watch-march-10/
+
+**How to watch Bethune-Cookman vs. Florida A&M women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Bethune-Cookman Wildcats play the Florida A&M Rattlers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103932/2026/03/10/bethune-cookman-vs-florida-a-m-stream-how-to-watch-march-10/
+
+**How to watch Northwestern State vs. UT Rio Grande Valley women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Northwestern State Lady Demons play the UT Rio Grande Valley Vaqueros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103929/2026/03/10/northwestern-state-vs-ut-rio-grande-valley-stream-how-to-watch-march-10/
+
+**How to watch Youngstown State vs. Green Bay women's basketball: Horizon Tournament Time, TV, streaming**\
+`Find out how to watch the Youngstown State Penguins play the Green Bay Phoenix, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7103927/2026/03/10/youngstown-state-vs-green-bay-stream-how-to-watch-march-10/
+
+**Indian Wells recap: Why Carlos Alcaraz is tired of playing 'Roger Federer'**\
+`The world No. 1 has acquired yet another key skill, but would rather not have to use it as much as he has in recent tournaments.`\
+https://nytimes.com/athletic/7103855/2026/03/10/tennis-indian-wells-recap-results-atp-wta/
+
 **I Asked a Former Trump Official to Justify This War**\
 `Nadia Schadlow, a deputy national security adviser during Trump’s first term, explains how the U.S.-Israel war with Iran fits in with an “America First” agenda.`\
 https://nytimes.com/2026/03/10/opinion/ezra-klein-podcast-nadia-schadlow.html
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/10/world/middleeast/iran-oil-strikes-health.html
 **War Brings New Water Crises to an Already-Parched Iran**\
 `Iran has accused the United States of bombing a desalination plant on Qeshm Island. The country was already facing a severe water shortage.`\
 https://nytimes.com/2026/03/10/climate/iran-war-water-crisis.html
-
-**New Supreme Leader Inherits Sprawling, Secretive Office That Dominates Iran**\
-`His father, Ayatollah Ali Khamenei, had turned what was traditionally a religious affairs office into a shadowy national security juggernaut.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-supreme-leader-secretive-office.html
-
-**As War Sends Gas Prices Soaring, Americans Wince: ‘Harder to Exist.’**\
-`Shocked by the rapid price increases, many Americans are scrambling to figure out how to stretch their budgets to cover an essential expense.`\
-https://nytimes.com/2026/03/10/us/gas-prices-iran-war-cost-of-living.html
-
-**Who Are the Women Who Have Shaped and Inspired You?**\
-`In honor of Women’s History Month, we invite you to reflect on the lives of notable women and girls in history and today.`\
-https://nytimes.com/2026/03/10/learning/who-are-the-women-who-have-shaped-and-inspired-you.html
-
-**Cowboys haven't 'busted the budget,' but they addressed 2 key positions**\
-`The Cowboys continued strengthening their defensive line by trading for Rashan Gary, while also adding safety Jalen Thompson.`\
-https://nytimes.com/athletic/7103462/2026/03/10/cowboys-free-agency-rashan-gary-jalen-thompson/
-
-**Hot Dogs and Sled Dogs: The Hard-Partying Tradition of ‘Trailgating’**\
-`From Anchorage parks to the birch woods of Willow, Iditarod spectators gather along the route with grills and thermoses to celebrate the 1,000-mile race.`\
-https://nytimes.com/2026/03/10/dining/trailgating.html
-
-**Trump’s Smash-and-Grab Presidency Reaches New Heights**\
-`When disruption becomes destruction.`\
-https://nytimes.com/2026/03/10/opinion/trumps-iran-dirsruption-destruction.html
-
-**Elections in Mississippi and Georgia Will Provide Clues to Both Parties’ Future**\
-`It’s primary day in Mississippi, where a younger Democrat is trying to oust a House veteran, and in Georgia, where Marjorie Taylor Greene’s seat is up for grabs.`\
-https://nytimes.com/2026/03/10/us/politics/mississippi-georgia-elections-what-to-know.html
 
