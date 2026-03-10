@@ -10,9 +10,9 @@ https://nytimes.com/2026/03/09/us/chiefs-super-bowl-parade-shooter-plea-deal.htm
 `Some of the disgraced financier’s victims have said they were trafficked at the property south of Santa Fe, where the nearest neighbors are miles away.`\
 https://nytimes.com/2026/03/09/us/epstein-new-mexico-zorro-ranch-search.html
 
-**Trump’s Offer to Iran’s Women’s Soccer Team Is an About-Face on Asylum**\
-`The dissonance between President Trump’s hard-line immigration policies and his call to grant asylum to the Iranian athletes was striking.`\
-https://nytimes.com/2026/03/09/us/politics/trumps-offer-to-irans-womens-soccer-team-is-an-about-face-on-asylum.html
+**After Turning Away Refugees, Trump Presses to Protect Iranian Soccer Team**\
+`The dissonance between the president’s hard-line immigration policies and his offer of asylum to the athletes was striking. Australia took in five players.`\
+https://nytimes.com/2026/03/09/us/politics/iran-womens-soccer-team-asylum-trump.html
 
 **RB Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
 `Dowdle rushed for 1,076 yards and six touchdowns on 236 carries for Carolina last season.`\

@@ -1,3 +1,7 @@
+**After Turning Away Refugees, Trump Presses to Protect Iranian Soccer Team**\
+`The dissonance between the president’s hard-line immigration policies and his offer of asylum to the athletes was striking. Australia took in five players.`\
+https://nytimes.com/2026/03/09/us/politics/iran-womens-soccer-team-asylum-trump.html
+
 **Here’s What Happened in the Conflict on Monday**\
 `President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
 https://nytimes.com/2026/03/09/world/middleeast/heres-what-happened-in-the-conflict-on-monday.html
