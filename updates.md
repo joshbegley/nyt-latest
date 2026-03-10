@@ -1,3 +1,7 @@
+**Here’s What Happened in the Conflict on Monday**\
+`President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-war-oil-trump.html
+
 **Trump Again Suggests Without Evidence That Iran Struck Elementary School**\
 `After a video showed a Tomahawk missile hitting a naval base next to the school, President Trump claimed Iran possesses such weapons. But the U.S. developed the missile and has sold it only to a few close allies.`\
 https://nytimes.com/2026/03/09/us/politics/trump-iran-missile-school.html

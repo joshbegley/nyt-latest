@@ -16,7 +16,7 @@ https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.htm
 
 **Here’s What Happened in the Conflict on Monday**\
 `President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
-https://nytimes.com/2026/03/09/world/middleeast/heres-what-happened-in-the-conflict-on-monday.html
+https://nytimes.com/2026/03/09/world/middleeast/iran-war-oil-trump.html
 
 **Murder Charge Is Dropped Against Man Who Fired Gun at Chiefs Super Bowl Parade**\
 `Dominic M. Miller, 20, was sentenced to two years in jail as part of a plea agreement related to the 2024 killing of Lisa Lopez-Galvan. He has already served most of his time.`\
