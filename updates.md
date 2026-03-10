@@ -1,3 +1,7 @@
+**The Briefing: Atletico Madrid 5 Tottenham 2 – A brutal substitution, calamitous defending, what now for Spurs?**\
+`Tottenham Hotspur suffered a heavy defeat in an error-strewn performance in Spain. `\
+https://nytimes.com/athletic/7096187/2026/03/10/atletico-madrid-x-tottenham-x-antonin-kinsky-champions-league/
+
 **The Briefing: Newcastle 1 Barcelona 1 - Missed Newcastle oppoortunity? Flick too conservative? Hall vs Yamal?**\
 `A Lamine Yamal penalty deep into stoppage time denied Newcastle a famous victory over Barcelona`\
 https://nytimes.com/athletic/7096188/2026/03/10/newcastle-1-barcelona-1-briefing/
