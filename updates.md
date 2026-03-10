@@ -1,3 +1,11 @@
+**4 Continents in 62 Hours: How One American Got Out of Qatar**\
+`When conflict broke out in the Middle East, thousands of travelers were stranded. We followed an American doctor on his epic journey to get home.`\
+https://nytimes.com/2026/03/10/travel/canceled-flights-middle-east-iran-war.html
+
+**Running back Isiah Pacheco agrees to free-agent deal with Lions: Source**\
+`Pacheco was the top rusher for a pair of Chiefs Super Bowl-winning teams before injuries slowed him down the last two seasons.`\
+https://nytimes.com/athletic/7087872/2026/03/10/isiah-pacheco-lions-nfl-free-agency-2026/
+
 **Running back Isiah Pacheco agrees to free-agent deal with Lions**\
 `Pacheco was the top rusher for a pair of Chiefs Super Bowl-winning teams before injuries slowed him down the last two seasons.`\
 https://nytimes.com/athletic/7087872/2026/03/10/isiah-pacheco-lions-nfl-free-agency-2026/
