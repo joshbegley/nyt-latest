@@ -1,3 +1,7 @@
+**Inside the Winter Paralympic repair shop: Where equipment is fixed and dreams preserved**\
+`With hundreds of para athletes in top-level competition, equipment is bound to need fixing. Enter Ottobock, the Paralympics' repair shop.`\
+https://nytimes.com/athletic/7091210/2026/03/10/winter-paralympics-equipment-repair-shop-ottobock/
+
 **Gas Prices Hit $3.54 a Gallon, Up 19% Since Attacks on Iran**\
 `Concern that oil production and shipment from the region will remain limited has lifted the price of crude oil — the largest factor in the cost of a gallon of gas — sharply.`\
 https://nytimes.com/2026/03/10/business/gasoline-price-energy-costs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/health/canada-oil-sands-fort-chipewyan-alberta.ht
 **iPads in Kindergarten, YouTube on Breaks: The School Screen-Time Battle**\
 `Mounting evidence shows that excessive computer use can harm children, so parents are cutting back at home. Now, the debate has shifted to the classroom.`\
 https://nytimes.com/2026/03/10/nyregion/students-school-screen-time-parents-concern.html
-
-**Fiscal Crunch Presents a First Big Policy Challenge for Mikie Sherrill**\
-`Ms. Sherrill will present her first budget as New Jersey governor in Trenton on Tuesday, and with it a robust preview of her policy priorities.`\
-https://nytimes.com/2026/03/10/nyregion/sherrill-deficit-budget-nj.html
 
