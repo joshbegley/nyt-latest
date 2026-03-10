@@ -1,3 +1,11 @@
+**Paralympian credits ChatGPT for helping him win silver medal**\
+`Ukraine's Maksym Murashkovskyi said that he used AI for his training plan and as a motivating tool.`\
+https://nytimes.com/athletic/7104068/2026/03/10/paralympics-chatgpt-ukraine-biathlon/
+
+**College softball power rankings: With the start of conference action comes chaos**\
+`Tennessee faces its first big test; Oklahoma State has a roller-coaster ride; Oregon, Texas A&M and more. `\
+https://nytimes.com/athletic/7102573/2026/03/10/college-softball-power-rankings-conference-play/
+
 **Democrats Sue to Find Out if Trump Will Send Armed Officers to Election Sites**\
 `In a lawsuit filed Tuesday, the D.N.C. sought to compel the government to say whether it plans to deploy armed federal officers in this year’s elections.`\
 https://nytimes.com/2026/03/10/us/politics/democrats-sue-to-find-out-if-trump-will-send-armed-officers-to-election-sites.html
