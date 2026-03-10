@@ -1,3 +1,7 @@
+**It’s the Music You Hear All Day, Without Ever Noticing**\
+`“Sync music” has become the soundtrack to our lives — whether we realize it or not.`\
+https://nytimes.com/2026/03/10/magazine/sync-music-songwriters-video.html
+
 **Nahshon Wright agrees to free-agent deal with Jets: Reports**\
 `Wright had a breakout season with the Bears that included five interceptions, two forced fumbles and three fumble recoveries.`\
 https://nytimes.com/athletic/7086535/2026/03/10/nahshon-wright-nfl-free-agency-2026/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7105441/2026/03/10/kai-havertz-arsenal-injury-fitne
 **Mosque Blames Islamophobia in Suburbs for Hostility to Its Expansion**\
 `The Hillside Islamic Center is suing town officials in North Hempstead, N.Y., accusing them of bowing to anti-Muslim sentiment.`\
 https://nytimes.com/2026/03/10/nyregion/mosque-long-island-lawsuit.html
-
-**The Briefing: Galatasaray 1 Liverpool 0 – Slot's century marred by defensive mistakes and attacking profligacy**\
-`The Turkish team will travel to Anfield next week without their fans following a UEFA ban, but with a lead to defend from the first leg`\
-https://nytimes.com/athletic/7096186/2026/03/10/liverpool-galatasaray-slot-mamardashvili-osimhen-ucl/
 
