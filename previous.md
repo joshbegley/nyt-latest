@@ -1,3 +1,11 @@
+**Businesses Ask the TACO Question About Iran**\
+`Whether President Trump signaled that he may soon end the military strikes is weighing on the minds of investors, executives and others.`\
+https://nytimes.com/2026/03/10/business/dealbook/trump-iran-taco.html
+
+**How to watch Utah vs. Cincinnati men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Utah Utes play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104180/2026/03/10/utah-vs-cincinnati-stream-how-to-watch-march-10/
+
 **Weekly Student News Quiz: Iran, Midterms, Hot Air Balloon**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/10/learning/09StudentNewsQuiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7104152/2026/03/10/oregon-state-vs-gonzaga-stream-h
 **How to watch Nicholls vs. SFA women's basketball: Southland Tournament Time, TV, streaming**\
 `Find out how to watch the Nicholls Colonels play the Stephen F. Austin Ladyjacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104149/2026/03/10/nicholls-vs-sfa-stream-how-to-watch-march-10/
-
-**How to watch Pittsburgh vs. Stanford men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Panthers play the Stanford Cardinal, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104147/2026/03/10/pittsburgh-vs-stanford-stream-how-to-watch-march-10/
-
-**How to watch Alcorn State vs. Prairie View A&M men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Alcorn State Braves play the Prairie View A&M Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104144/2026/03/10/alcorn-state-vs-prairie-view-a-m-stream-how-to-watch-march-10/
 
