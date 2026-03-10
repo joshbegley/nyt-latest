@@ -1,3 +1,7 @@
+**Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
+`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC.`\
+https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
+
 **Lu Dort apologizes to Nikola Jokić after second flagrant foul in 10 days**\
 `Jokić told reporters he didn’t feel Dort crossed the line in this instance, as opposed to ten days prior, when he rushed the Thunder wing.`\
 https://nytimes.com/athletic/7104270/2026/03/10/lu-dort-flagrant-foul-nikola-jokic-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fig
 **How guidance from Will Smith could help promising Dalton Rushing thrive for Dodgers**\
 `Dalton struggled as a rookie adjusting to limited playing time: "Now I'm hoping for light."`\
 https://nytimes.com/athletic/7101777/2026/03/10/dodgers-catchers-will-smith-dalton-rushing/
-
-**The Race to Stop Wildlife Trafficking in Africa**\
-`In Nigeria, customs officers and conservationists are confronting the grim impacts of the $20 billion trade.`\
-https://nytimes.com/2026/03/10/magazine/wildlife-trafficking-africa.html
 
