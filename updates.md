@@ -1,3 +1,19 @@
+**England's Kyle Walker retires from international football after 96 caps**\
+`Walker, 35, represented his country at five major tournaments and has been described by head coach Thomas Tuchel as an "England great".`\
+https://nytimes.com/athletic/5635789/2026/03/10/kyle-walker-england-retires/
+
+**Brentford owner claims they were close to signing Eze, Olise and Marmoush**\
+`Matthew Benham said that Brentford could have signed Eze for £4million in 2019 while he was at Queens Park Rangers.`\
+https://nytimes.com/athletic/7104456/2026/03/10/eze-olise-marmoush-transfer-brentford-premier-league/
+
+**Until Saturday poll: Kiffin title at LSU?**\
+`This is the polling page for Until Saturday, The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7104682/2026/03/10/until-saturday-newsletter-poll/
+
+**Kennedy to Undergo Rotator Cuff Surgery**\
+`The secretary of health and human services, known for his Make America Healthy Again campaign, is expected to be back at work on Monday.`\
+https://nytimes.com/2026/03/10/us/rfk-jr-rotator-cuff-surgery.html
+
 **Kennedy to Undergo Rotator Cuff Surgery**\
 `The secretary of health and human services, known for his Make America Healthy Again campaign, is expected to be back at work on Monday.`\
 https://nytimes.com/2026/03/10/us/kennedy-to-undergo-rotator-cuff-surgery.html
