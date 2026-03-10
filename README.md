@@ -18,6 +18,10 @@ https://nytimes.com/2026/03/09/nyregion/mamdani-response-bomb.html
 `The Lions added Cade Mays at center and Larry Borom, a tackle with starting experience who could fill several roles.`\
 https://nytimes.com/athletic/7103218/2026/03/09/lions-free-agency-offensive-line-cade-mays/
 
+**How to smash a tennis racket: Style, control, damage, aggression - and danger**\
+`The racket smash is a staple of tennis, but at Wimbledon, players can't hit the grass. What creativity emerges from destruction?`\
+https://nytimes.com/athletic/5613787/2026/03/09/tennis-racket-smash-penalty-danger/
+
 **Trump Again Suggests Without Evidence That Iran Struck Elementary School**\
 `After a video showed a Tomahawk missile hitting a naval base next to the school, President Trump claimed Iran possesses such weapons. But the U.S. developed the missile and has sold it only to a few close allies.`\
 https://nytimes.com/2026/03/09/us/politics/trump-iran-missile-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102973/2026/03/09/chiefs-free-agency-reset-kenneth
 **Shells Fired From Lebanon Land West of Syrian Capital, Country’s Military Says**\
 `The Syrian military accused Hezbollah of targeting Syrian army positions outside of Damascus.`\
 https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.html
-
-**Here’s What Happened in the Conflict on Monday**\
-`President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
-https://nytimes.com/2026/03/09/world/middleeast/iran-war-oil-trump.html
 

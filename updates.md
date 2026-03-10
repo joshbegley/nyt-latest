@@ -1,3 +1,7 @@
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
+https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **Trump’s War in Iran, and Rising Gas Prices, Collide With Midterm Agenda**\
 `The attack on Iran has led to a surge in energy prices at a moment when the cost of living is a major issue heading into the fall elections.`\
 https://nytimes.com/2026/03/09/us/politics/trump-iran-gas-prices-gop-agenda.html
