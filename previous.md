@@ -1,40 +1,40 @@
-**How to watch Syracuse vs. SMU men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the SMU Mustangs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104565/2026/03/10/syracuse-vs-smu-stream-how-to-watch-march-10/
+**How to watch Mississippi Valley State vs. UAPB women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Mississippi Valley State Devilettes play the Arkansas-Pine Bluff Golden Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104590/2026/03/10/mississippi-valley-state-vs-uapb-stream-how-to-watch-march-10/
 
-**NHL post-trade deadline: Playoff races, tank ranks and whatever the Blues are doing**\
-`It can be tough to leave the hot stove behind and face a future without any trades. We can try, though.`\
-https://nytimes.com/athletic/7104467/2026/03/10/nhl-trade-deadline-playoffs-race-red-light/
+**'It's yielding results' - BlueCo's Chelsea approach vindicated, says Feliciano**\
+`Feliciano was speaking a week after Chelsea booked a £342m pre-tax deficit for 2024-25, the highest pre-tax loss in English football.`\
+https://nytimes.com/athletic/7104439/2026/03/10/chelsea-blueco-feliciano/
 
-**U.S. Eases Limits on Russian Energy as Oil Prices Soar**\
-`The volatility in energy markets because of the war in Iran could not come at a better time for President Vladimir V. Putin.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-war-putin-russia-energy-oil-prices.html
+**How to watch Texas A&M-CC vs. SFA men's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Texas A&M-CC Islanders play the Stephen F. Austin Lumberjacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104584/2026/03/10/texas-a-m-cc-vs-sfa-stream-how-to-watch-march-10/
 
-**The Windup: USA's first win over Mexico in 20 years**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7104398/2026/03/10/usa-mexico-world-baseball-classic-the-windup/
+**D.C. Bar Begins Disciplinary Proceedings Against Ed Martin**\
+`A new legal filing accused Mr. Martin, a senior Justice Department official, of an unethical pressure campaign against Georgetown University.`\
+https://nytimes.com/2026/03/10/us/politics/dc-bar-ed-martin-disciplinary-hearing.html
 
-**How to watch Grizzlies vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104527/2026/03/10/grizzlies-vs-76ers-stream-how-to-watch-march-10/
+**How to watch Mercyhurst vs. LIU men's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Mercyhurst Lakers play the Long Island Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104579/2026/03/10/mercyhurst-vs-liu-stream-how-to-watch-march-10/
 
-**Noma Loses Sponsors After a Report of Past Abuse by Its Chef**\
-`American Express and Blackbird have pulled out of a series of pop-up dinners in Los Angeles after The Times reported allegations that René Redzepi attacked workers.`\
-https://nytimes.com/2026/03/10/dining/noma-sponsors-american-express-blackbird.html
+**How to watch UMass-Lowell vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
+`Find out how to watch the UMass-Lowell River Hawks play the UMBC Retrievers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104573/2026/03/10/umass-lowell-vs-umbc-stream-how-to-watch-march-10/
 
-**NIL or first round? Washington's freshman big man faces interesting NBA Draft choice**\
-`For a player who is a monster on the boards, Steinbach also runs the floor well. He's a first-round talent but could earn more in college.`\
-https://nytimes.com/athletic/7104241/2026/03/10/hannes-steinbach-washington-nba-draft-scouting/
+**How to watch Wake Forest vs. Virginia Tech men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Wake Forest Demon Deacons play the Virginia Tech Hokies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104571/2026/03/10/wake-forest-vs-virginia-tech-stream-how-to-watch-march-10/
 
-**Fast Chicken Fajitas, Cod With Caper-Orange Sauce**\
-`Recipes with little prep, big payoff.`\
-https://nytimes.com/2026/03/10/dining/fast-chicken-fajitas-cod-with-caper-orange-sauce.html
+**Review: ‘Tristan und Isolde’ Heralds a New Era at the Met Opera**\
+`Yuval Sharon’s debut production featured an astonishing performance by the soprano Lise Davidsen. It is the event of the season.`\
+https://nytimes.com/2026/03/10/arts/music/tristan-und-isolde-met-opera-review.html
 
-**‘Scarpetta’ Review: A Forensics Genius Finally Gets a Series**\
-`Nicole Kidman stars in Prime Video’s adaptation of Patricia Cornwell’s long-running series of Kay Scarpetta novels.`\
-https://nytimes.com/2026/03/10/arts/television/scarpetta-review.html
+**How to watch Missouri State vs. Florida International men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Missouri State Bears play the Florida International Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104569/2026/03/10/missouri-state-vs-florida-international-stream-how-to-watch-march-10/
 
-**It’s Trump’s War. We’re Stuck With the Bill.**\
-`What are we getting for all of President Trump’s military spending?`\
-https://nytimes.com/2026/03/10/opinion/trump-iran-venezuela-cuba.html
+**How to watch Kansas State vs. BYU men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Kansas State Wildcats play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104567/2026/03/10/kansas-state-vs-byu-stream-how-to-watch-march-10/
 
