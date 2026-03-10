@@ -1,3 +1,7 @@
+**Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
+`Manager Alex Cora has enjoyed watching the veteran starter put in the work and has let him set his own schedule.`\
+https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third-base-bullpen/
+
 **How to watch Idaho vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7106110/2026/03/10/idaho-vs-eastern-washington-stream-how-to-watch-march-10/
@@ -14,15 +18,11 @@ https://nytimes.com/athletic/7106035/2026/03/10/antoine-griezmann-atletico-madri
 `"I don't know how it's going to shake out, to be honest," Boone said when asked about the Yankees' bench situation before Opening Day.`\
 https://nytimes.com/athletic/7105730/2026/03/10/yankees-opening-day-roster-aaron-boone-jasson-dominguez-ben-rice/
 
-**Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in three weeks**\
+**Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in 3 weeks**\
 `Maxey's absence comes at a critical moment, as the 76ers (34-30) jockey for postseason positioning while missing several key contributors.`\
 https://nytimes.com/athletic/7105998/2026/03/10/tyrese-maxey-injury-tendon-three-weeks/
 
 **How could Igor Tudor take off Antonin Kinsky like that? It's another sign of failure**\
 `The 22-year-old goalkeeper was taken off after just 17 minutes of Tottenham's 5-2 Champions League defeat at Atletico Madrid`\
 https://nytimes.com/athletic/7105871/2026/03/10/kinsky-tottenham-champions-league-atletico-tudor/
-
-**Bumblebee Queens Can Breathe Underwater**\
-`A new study offers clues as to how the insects survive flooding as they emerge from a hibernation-like phase every winter.`\
-https://nytimes.com/2026/03/10/science/bumlebees-queens-underwater-breathe.html
 

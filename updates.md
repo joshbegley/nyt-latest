@@ -1,3 +1,11 @@
+**Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
+`Manager Alex Cora has enjoyed watching the veteran starter put in the work and has let him set his own schedule.`\
+https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third-base-bullpen/
+
+**Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in 3 weeks**\
+`Maxey's absence comes at a critical moment, as the 76ers (34-30) jockey for postseason positioning while missing several key contributors.`\
+https://nytimes.com/athletic/7105998/2026/03/10/tyrese-maxey-injury-tendon-three-weeks/
+
 **How to watch Idaho vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7106110/2026/03/10/idaho-vs-eastern-washington-stream-how-to-watch-march-10/
