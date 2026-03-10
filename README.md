@@ -1,3 +1,7 @@
+**Nahshon Wright agrees to free-agent deal with Jets: Reports**\
+`Wright had a breakout season with the Bears that included five interceptions, two forced fumbles and three fumble recoveries.`\
+https://nytimes.com/athletic/7086535/2026/03/10/nahshon-wright-nfl-free-agency-2026/
+
 **Chargers free agency reset: More work to do on the interior offensive line**\
 `The Chargers still have a lot of salary cap space. Will they use it to make necessary improvements to their roster? `\
 https://nytimes.com/athletic/7105417/2026/03/10/chargers-free-agency-reset-offensive-line/
@@ -21,8 +25,4 @@ https://nytimes.com/2026/03/10/nyregion/mosque-long-island-lawsuit.html
 **The Briefing: Galatasaray 1 Liverpool 0 – Slot's century marred by defensive mistakes and attacking profligacy**\
 `The Turkish team will travel to Anfield next week without their fans following a UEFA ban, but with a lead to defend from the first leg`\
 https://nytimes.com/athletic/7096186/2026/03/10/liverpool-galatasaray-slot-mamardashvili-osimhen-ucl/
-
-**Pentagon Says 140 Service Members Have Been Injured in Iran War**\
-`Eight Americans have been seriously wounded, military officials said, but the bulk of the injured have already returned to duty. Seven Americans have been killed.`\
-https://nytimes.com/2026/03/10/world/middleeast/us-injuries-iran-war.html
 
