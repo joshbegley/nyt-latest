@@ -1,3 +1,7 @@
+**The Pulse: The best UConn player ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7101848/2026/03/10/uconn-basketball-sarah-strong-the-pulse/
+
 **Who’s in, who’s out, and who’s got work to do to reach the next round of the WBC**\
 `Here’s a look at where the field stands entering the final two days of pool play.`\
 https://nytimes.com/athletic/7103826/2026/03/10/world-baseball-classic-clinching-scenarios/

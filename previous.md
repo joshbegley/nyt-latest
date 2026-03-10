@@ -1,3 +1,7 @@
+**The Pulse: The best UConn player ever?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7101848/2026/03/10/uconn-basketball-sarah-strong-the-pulse/
+
 **Who’s in, who’s out, and who’s got work to do to reach the next round of the WBC**\
 `Here’s a look at where the field stands entering the final two days of pool play.`\
 https://nytimes.com/athletic/7103826/2026/03/10/world-baseball-classic-clinching-scenarios/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7083624/2026/03/10/2026-nhl-draft-prospects-ranking
 **Bengals, Duke Tobin back up their words in free agency by righting 2025's wrongs**\
 `An aggressive first day of negotiations resulted in agreements with Bryan Cook and Boye Mafe that fill major needs.`\
 https://nytimes.com/athletic/7103481/2026/03/10/bengals-free-agency-duke-tobin-cook-mafe/
-
-**U.S. Orders Diplomats to Leave Consulate in Southern Turkey**\
-`The order came after the interception of two missiles heading toward Turkey, which has a base that hosts U.S. and NATO forces.`\
-https://nytimes.com/2026/03/10/world/middleeast/us-orders-diplomats-to-leave-consulate-in-southern-turkey.html
 
