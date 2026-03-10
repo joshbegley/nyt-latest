@@ -1,3 +1,7 @@
+**Fragments of U.S.-Made Missile Seen in Photos Taken by Iran Near Deadly School Strike**\
+`Iranian state media posted mangled remnants it claims were from the Feb. 28 attack in Minab. An analysis shows they have the markings of a missile made by American manufacturers`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-school-strike-us-missile.html
+
 **He Raps, He Rants, He Promises Change. Meet Nepal’s Presumptive New Leader.**\
 `Balendra Shah’s party won a landslide in the election that followed Nepal’s Gen Z revolution. His style is pugnacious.`\
 https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.html

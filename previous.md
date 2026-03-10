@@ -1,3 +1,7 @@
+**Fragments of U.S.-Made Missile Seen in Photos Taken by Iran Near Deadly School Strike**\
+`Iranian state media posted mangled remnants it claims were from the Feb. 28 attack in Minab. An analysis shows they have the markings of a missile made by American manufacturers`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-school-strike-us-missile.html
+
 **He Raps, He Rants, He Promises Change. Meet Nepal’s Presumptive New Leader.**\
 `Balendra Shah’s party won a landslide in the election that followed Nepal’s Gen Z revolution. His style is pugnacious.`\
 https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103071/2026/03/09/blue-jackets-overtime-defense-ga
 **UConn wins Big East tournament title by dominating Villanova**\
 `The victory marked the 24th conference title for the Huskies.`\
 https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-championship-villanova/
-
-**Shai Gilgeous-Alexander ties Wilt Chamberlain with 126 consecutive 20-point games**\
-`Gilgeous-Alexander, the reigning MVP, last scored fewer than 20 points in a regular-season game on Oct. 30, 2024.`\
-https://nytimes.com/athletic/7101574/2026/03/09/shai-gilgeous-alexander-wilt-chamberlain-nba-record/
 
