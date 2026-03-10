@@ -1,3 +1,7 @@
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`LIU clinched the first automatic bid to the tourney Saturday. Follow here for coverage of all 31 conference championships.`\
+https://nytimes.com/athletic/7097219/2026/03/09/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **Trump’s War in Iran, and Rising Gas Prices, Collide With Midterm Agenda**\
 `The attack on Iran has led to a surge in energy prices at a moment when the cost of living is a major issue heading into the fall elections.`\
 https://nytimes.com/2026/03/09/us/politics/trump-iran-gas-prices-gop-agenda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/world/middleeast/syria-hezbollah-iran-lebanon.htm
 **Here’s What Happened in the Conflict on Monday**\
 `President Trump gave conflicting signals about a possible end to the war with Iran amid wild gyrations in global markets.`\
 https://nytimes.com/2026/03/09/world/middleeast/iran-war-oil-trump.html
-
-**Murder Charge Is Dropped Against Man Who Fired Gun at Chiefs Super Bowl Parade**\
-`Dominic M. Miller, 20, was sentenced to two years in jail as part of a plea agreement related to the 2024 killing of Lisa Lopez-Galvan. He has already served most of his time.`\
-https://nytimes.com/2026/03/09/us/chiefs-super-bowl-parade-shooter-plea-deal.html
 
