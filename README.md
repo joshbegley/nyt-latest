@@ -1,3 +1,11 @@
+**Tell Us: How Are You Using A.I. for the Tasks of Daily Life?**\
+`We want to hear how artificial intelligence helps you with tasks like meal prep, translation and planning a trip.`\
+https://nytimes.com/2026/03/10/technology/ai-daily-life-callout.html
+
+**Elevated Energy Prices Add to Fed’s Dilemma on Interest Rates**\
+`Investors now expect that the Fed will delay a rate cut until September instead of July, as they had before the war in Iran began.`\
+https://nytimes.com/2026/03/10/business/fed-oil-iran-interest-rates.html
+
 **Map: 2.3-Magnitude Earthquake Reported North of New York City**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/us/quake-tracker-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictiv
 **Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
 `Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
 https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
-
-**Lu Dort apologizes to Nikola Jokić after second flagrant foul in 10 days**\
-`Jokić told reporters he didn’t feel Dort crossed the line in this instance, as opposed to ten days prior, when he rushed the Thunder wing.`\
-https://nytimes.com/athletic/7104270/2026/03/10/lu-dort-flagrant-foul-nikola-jokic-apology/
-
-**The New York Philharmonic’s Season: What We Want to Hear**\
-`A new era for the orchestra begins in September, when Gustavo Dudamel officially becomes its music and artistic director.`\
-https://nytimes.com/2026/03/10/arts/music/new-york-philharmonic-2026-2027-season.html
 
