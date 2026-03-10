@@ -1,3 +1,11 @@
+**Men Accused of Plotting Haitian President’s Assassination Head to Court**\
+`Four men are accused in South Florida of plotting to kill President Jovenel Moise in 2021. His death plunged Haiti into chaos that continues today.`\
+https://nytimes.com/2026/03/10/world/americas/haiti-president-murder-assassination-trial-miami-florida.html
+
+**After Venice Biennale Fallout, Artist Representing U.S. Signs With Mega-Gallery**\
+`Alma Allen has joined Perrotin, months after two other galleries dropped him over his selection to represent the United States at the “art world Olympics.”`\
+https://nytimes.com/2026/03/10/arts/after-venice-biennale-fallout-artist-representing-us-signs-with-mega-gallery.html
+
 **Meet NWSL expansion team Denver Summit**\
 `Denver's quick climb to its first NWSL season was aided heavily by its ability to attract hometown talent.`\
 https://nytimes.com/athletic/7085768/2026/03/10/meet-nwsl-expansion-team-denver-summit-hometown/
