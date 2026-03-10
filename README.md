@@ -1,3 +1,7 @@
+**Imprisoned in Iran, and Under Bombardment**\
+`Iranian detention centers, some holding people swept up in a government crackdown on protests along with other prisoners, have been damaged in the U.S.-Israeli airstrikes.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-prisoners-airstrikes.html
+
 **It’s the Music You Hear All Day, Without Ever Noticing**\
 `“Sync music” has become the soundtrack to our lives — whether we realize it or not.`\
 https://nytimes.com/2026/03/10/magazine/sync-music-songwriters-video.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7105326/2026/03/10/geno-smith-jets-trade-raiders-re
 **'I never felt that pain before in my life' - Arsenal's Havertz on injury anguish**\
 `The 26-year-old Germany international sustained two major injuries last year: a torn hamstring in February and a knee injury in August.`\
 https://nytimes.com/athletic/7105441/2026/03/10/kai-havertz-arsenal-injury-fitness/
-
-**Mosque Blames Islamophobia in Suburbs for Hostility to Its Expansion**\
-`The Hillside Islamic Center is suing town officials in North Hempstead, N.Y., accusing them of bowing to anti-Muslim sentiment.`\
-https://nytimes.com/2026/03/10/nyregion/mosque-long-island-lawsuit.html
 
