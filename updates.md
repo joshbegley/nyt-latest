@@ -1,3 +1,7 @@
+**The Sixers are falling in the standings, but they haven't fallen apart yet**\
+`Missing four top players, Philly has dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
+https://nytimes.com/athletic/7103625/2026/03/10/sixers-loss-playoffs-injuries-maxey-embiid/
+
 **USA Today Names Jamie Stockwell as Next Top Editor**\
 `Ms. Stockwell, who recently left The Washington Post, is the third person named to the job in the past three years.`\
 https://nytimes.com/2026/03/10/business/media/usa-today-jamie-stockwell-top-editor.html
