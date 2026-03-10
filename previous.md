@@ -1,3 +1,7 @@
+**Alabama Governor Spares Death Row Inmate Who Didn’t Pull the Trigger**\
+`The move by Gov. Kay Ivey, a Republican, is extremely rare. The inmate, Charles Burton, was scheduled to die even though the gunman’s sentence had been commuted years ago.`\
+https://nytimes.com/2026/03/10/us/alabama-ivey-charles-burton.html
+
 **Bills sign tight end Dawson Knox to new three-year contract**\
 `Knox's contract needed to be adjusted to create cap space for the Bills.`\
 https://nytimes.com/athletic/7104757/2026/03/10/bills-tight-end-dawson-knox-contract/
