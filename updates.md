@@ -1,3 +1,15 @@
+**How to watch Syracuse vs. SMU men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104565/2026/03/10/syracuse-vs-smu-stream-how-to-watch-march-10/
+
+**NHL post-trade deadline: Playoff races, tank ranks and whatever the Blues are doing**\
+`It can be tough to leave the hot stove behind and face a future without any trades. We can try, though.`\
+https://nytimes.com/athletic/7104467/2026/03/10/nhl-trade-deadline-playoffs-race-red-light/
+
+**U.S. Eases Limits on Russian Energy as Oil Prices Soar**\
+`The volatility in energy markets because of the war in Iran could not come at a better time for President Vladimir V. Putin.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-putin-russia-energy-oil-prices.html
+
 **The Windup: USA's first win over Mexico in 20 years**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7104398/2026/03/10/usa-mexico-world-baseball-classic-the-windup/

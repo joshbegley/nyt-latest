@@ -1,3 +1,15 @@
+**How to watch Syracuse vs. SMU men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104565/2026/03/10/syracuse-vs-smu-stream-how-to-watch-march-10/
+
+**NHL post-trade deadline: Playoff races, tank ranks and whatever the Blues are doing**\
+`It can be tough to leave the hot stove behind and face a future without any trades. We can try, though.`\
+https://nytimes.com/athletic/7104467/2026/03/10/nhl-trade-deadline-playoffs-race-red-light/
+
+**U.S. Eases Limits on Russian Energy as Oil Prices Soar**\
+`The volatility in energy markets because of the war in Iran could not come at a better time for President Vladimir V. Putin.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-putin-russia-energy-oil-prices.html
+
 **The Windup: USA's first win over Mexico in 20 years**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7104398/2026/03/10/usa-mexico-world-baseball-classic-the-windup/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/10/arts/television/scarpetta-review.html
 **It’s Trump’s War. We’re Stuck With the Bill.**\
 `What are we getting for all of President Trump’s military spending?`\
 https://nytimes.com/2026/03/10/opinion/trump-iran-venezuela-cuba.html
-
-**Tell Us: How Are You Using A.I. for the Tasks of Daily Life?**\
-`We want to hear how artificial intelligence helps you with tasks like meal prep, translation and planning a trip.`\
-https://nytimes.com/2026/03/10/technology/ai-daily-life-callout.html
-
-**Elevated Energy Prices Add to Fed’s Dilemma on Interest Rates**\
-`Investors now expect that the Fed will delay a rate cut until September instead of July, as they had before the war in Iran began.`\
-https://nytimes.com/2026/03/10/business/fed-oil-iran-interest-rates.html
-
-**Map: 2.3-Magnitude Earthquake Reported North of New York City**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/03/10/us/quake-tracker-new-york.html
 
