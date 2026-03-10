@@ -1,3 +1,15 @@
+**Forest reduce ticket prices for Europa League game against Midtjylland**\
+`Season ticket holders and club members have been given a £10 discount in response to disappointing sales before the last-16 first leg.`\
+https://nytimes.com/athletic/7104181/2026/03/10/forest-ticket-prices-midtjylland-europa-league/
+
+**How good do the Celtics need Jayson Tatum to be? Scouting Boston rookie Hugo Gonzalez**\
+`The Celtics' All-NBA wing has been good in his return from an Achilles injury. But what level of Tatum reasonably gets Boston to the Finals?`\
+https://nytimes.com/athletic/7102545/2026/03/10/jayson-tatum-boston-celtics-hugo-gonzalez/
+
+**Was SGA's record-tying game against the Nuggets also his best performance ever?**\
+`Gilgeous-Alexander carried a short-handed OKC squad to victory with two clutch shots on the night he tied a Wilt Chamberlain record. `\
+https://nytimes.com/athletic/7103879/2026/03/10/shai-gilgeous-alexander-thunder-record-best-nuggets/
+
 **The Sixers are falling in the standings, but they haven't fallen apart yet**\
 `Missing four top players, Philly has dropped to No. 8 in the East standings. Can it regain health and momentum before it's too late?`\
 https://nytimes.com/athletic/7103625/2026/03/10/sixers-loss-playoffs-injuries-maxey-embiid/
