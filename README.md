@@ -1,40 +1,40 @@
-**This is what happened on March 9.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-9
+**Row Z: Tottenham vs reality, Arsenal play it safe and could a striker decide a team-mate's future?**\
+`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
+https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand/
 
-**T20 World Cup: The Athletic's team of the tournament**\
-`The USA's Shadley van Schalkwyk also makes the cut as we break down the stars of the tournament in Sri Lanka and India`\
-https://nytimes.com/athletic/7100646/2026/03/10/t20-world-cup-india-bumrah-samson-team-tournament/
+**How is football refereed differently in the Premier League and Champions League?**\
+`Inconsistency in how games are officiated in Europe and England is a source of huge frustration to supporters`\
+https://nytimes.com/athletic/7101240/2026/03/10/premier-league-champions-league-referees/
 
-**Why Evann Guessand could thrive at Crystal Palace despite his Aston Villa toils**\
-`The Ivory Coast international is the closest thing Palace have to the departed Eberechi Eze and is learning the No 10 role at Selhurst Park`\
-https://nytimes.com/athletic/7092126/2026/03/10/guessand-crystal-palace-aston-villa-eze-glasner/
+**Lucky Arsenal? Analysing historic pathway difficulty in the Champions League**\
+`Mikel Arteta's side have a relatively kind route ahead of them this season – that hasn't always been the case `\
+https://nytimes.com/athletic/7100939/2026/03/10/champions-league-pathway-difficulty-arsenal-liverpool-real-madrid-bayern/
 
-**The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
-`We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
-https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/
+**The best players aged 25 and under still in the Champions League**\
+`From Arsenal's Bukayo Saka to Barcelona's Lamine Yamal, these are The Athletic's young players to watch in the Champions League`\
+https://nytimes.com/athletic/7101134/2026/03/10/champions-league-best-young-players/
 
-**As War Comes to Gulf States, Migrant Workers Pay the Highest Price**\
-`Since the American-Israeli attack on Iran began, at least 11 civilians have been killed in oil-rich Gulf countries. All but one of them were foreign nationals.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-war-migrant-deaths.html
+**Sir Bobby Robson's legacy at Newcastle and Barca endures - and he continues to change lives**\
+`The former Newcastle and Barca manager built teams in his career and now his foundation continues to do the same as it helps fight cancer.`\
+https://nytimes.com/athletic/7094039/2026/03/10/newcastle-vs-barcelona-sir-bobby-robson/
 
-**U.S. Solar Installations Fell in 2025 as Trump Attacked Clean Energy**\
-`More solar energy was added to U.S. grids than any other technology, but the amount installed fell by 14 percent, according to a new report.`\
-https://nytimes.com/2026/03/10/business/energy-environment/donald-trump-solar-energy-batteries.html
+**Numbers to Know: Champions League Round of 16**\
+`They key statistical storylines as the Champions League reaches a crucial juncture`\
+https://nytimes.com/athletic/7100918/2026/03/10/numbers-to-know-champions-league-round-of-16/
 
-**Connections: Sports Edition Coach: Hints and answers for March 10, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7103700/2026/03/10/connections-sports-edition-hints-answers-march-10-2026/
+**The New York Times in Print for Tuesday, March 10, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/10/todays-new-york-times
 
-**Corrections: March 10, 2026**\
-`Corrections that appeared in print on Tuesday, March 10, 2026.`\
-https://nytimes.com/2026/03/10/pageoneplus/corrections-march-10-2026.html
+**The Champions League's remaining 16 teams — ranked**\
+`The Champions League round of 16 is upon us. We assess every team left in the competition`\
+https://nytimes.com/athletic/7100860/2026/03/10/champions-league-round-of-16-rankings/
 
-**Quote of the Day: Scientists Get a Glimpse Into How Pandemics Start**\
-`Quotation of the Day for Tuesday, March 10, 2026.`\
-https://nytimes.com/2026/03/09/pageoneplus/quote-of-the-day-scientists-get-a-glimpse-into-how-pandemics-start.html
+**Former Meta A.I. Chief’s Start-Up Is Valued at $3.5 Billion**\
+`Advanced Machine Intelligence Labs, founded by Yann LeCun and other ex-Meta researchers, has raised more than $1 billion from investors.`\
+https://nytimes.com/2026/03/10/technology/ami-labs-yann-lecun-funding.html
 
-**Noah Laba continues promising year against a childhood favorite: Rangers observations**\
-`Mika Zibanejad's two goals led the Rangers against the Flyers, but a lot of young talents shone for New York.`\
-https://nytimes.com/athletic/7103665/2026/03/09/rangers-noah-laba-glendening-perreault-lafreniere-flyers/
+**Fed Up With High Costs, American Theater Takes a Trip to London**\
+`Skyrocketing budgets and falling profitability have driven a new form of offshoring, with U.S. producers staging shows across the Atlantic.`\
+https://nytimes.com/2026/03/10/theater/broadway-theater-london-prices.html
 
