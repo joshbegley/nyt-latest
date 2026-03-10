@@ -1,3 +1,11 @@
+**Trump Again Suggests Without Evidence That Iran Struck Elementary School**\
+`After a video showed a Tomahawk missile hitting a naval base next to the school, President Trump claimed Iran possesses such weapons. But the U.S. developed the missile and has sold it only to a few close allies.`\
+https://nytimes.com/2026/03/09/us/politics/trump-iran-missile-school.html
+
+**Running back Rico Dowdle agrees to free-agent deal with Steelers: Sources**\
+`Dowdle, who rushed for 1,076 yards and six touchdowns for the Panthers last season, gives Pittsburgh a big, physical and decisive runner.`\
+https://nytimes.com/athletic/7094596/2026/03/09/rico-dowdle-steelers-nfl-free-agency-2026/
+
 **Vote on Your Favorite Miscast Stars in the Movies**\
 `A new Oscar celebrates the process of matching actor and role. But whether a star is hired for artistic or box office reasons, mismatches can be memorable. Here our favorites from recent decades. What do you think?`\
 https://nytimes.com/interactive/2026/03/09/movies/worst-casting-actors-movies.html
