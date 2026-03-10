@@ -1,3 +1,7 @@
+**Kennedy to Undergo Rotator Cuff Surgery**\
+`The secretary of health and human services, known for his Make America Healthy Again campaign, is expected to be back at work on Monday.`\
+https://nytimes.com/2026/03/10/us/kennedy-to-undergo-rotator-cuff-surgery.html
+
 **How to watch Maple Leafs vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104673/2026/03/10/maple-leafs-vs-canadiens-stream-how-to-watch-march-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7104641/2026/03/10/kings-vs-bruins-stream-how-to-wa
 **How to watch Maryland vs. Oregon men's basketball: Big Ten Tournament Time, TV, streaming**\
 `Find out how to watch the Maryland Terrapins play the Oregon Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104630/2026/03/10/maryland-vs-oregon-stream-how-to-watch-march-10/
-
-**How to watch Eastern Washington vs. Montana State women's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Eastern Washington Eagles play the Montana State Bobcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104619/2026/03/10/eastern-washington-vs-montana-state-stream-how-to-watch-march-10/
 
