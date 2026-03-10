@@ -1,3 +1,7 @@
+**Inside the Winter Paralympic repair shop: Where equipment is fixed and dreams preserved**\
+`With hundreds of para athletes in top-level competition, equipment is bound to need fixing. Enter Ottobock, the Paralympics' repair shop.`\
+https://nytimes.com/athletic/7091210/2026/03/10/winter-paralympics-equipment-repair-shop-ottobock/
+
 **Gas Prices Hit $3.54 a Gallon, Up 19% Since Attacks on Iran**\
 `Concern that oil production and shipment from the region will remain limited has lifted the price of crude oil — the largest factor in the cost of a gallon of gas — sharply.`\
 https://nytimes.com/2026/03/10/business/gasoline-price-energy-costs.html
