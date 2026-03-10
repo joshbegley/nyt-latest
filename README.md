@@ -1,3 +1,7 @@
+**Naomi Osaka and Aryna Sabalenka paved contrasting paths to tennis stardom. At Indian Wells, they cross**\
+`Both have four majors and have spent time at world No. 1, but Osaka and Sabalenka have built their worlds in different ways.`\
+https://nytimes.com/athletic/7103702/2026/03/10/tennis-naomi-osaka-aryna-sabalenka-stardom/
+
 **How to watch Baylor vs. Arizona State men's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Baylor Bears play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7103938/2026/03/10/baylor-vs-arizona-state-stream-how-to-watch-march-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/opinion/ezra-klein-podcast-nadia-schadlow.html
 **Black Rain and Health Fears After Strikes on Iran Fuel Depots**\
 `Health experts warn of long-term respiratory and neurological risks as smoke from burning oil spreads across the region.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-oil-strikes-health.html
-
-**War Brings New Water Crises to an Already-Parched Iran**\
-`Iran has accused the United States of bombing a desalination plant on Qeshm Island. The country was already facing a severe water shortage.`\
-https://nytimes.com/2026/03/10/climate/iran-war-water-crisis.html
 
