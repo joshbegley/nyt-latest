@@ -1,28 +1,28 @@
+**How to watch Timberwolves vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105252/2026/03/10/timberwolves-vs-lakers-stream-how-to-watch-march-10/
+
+**Intense Storms in the Midwest Threaten to Bring Tornadoes and Hail on Tuesday**\
+`Forecasters warned that areas around Chicago could experience especially dangerous weather. This type of storm in early March is “uncommon,” one forecaster said.`\
+https://nytimes.com/2026/03/10/weather/chicago-storm-illinois-michigan-indiana-tornado.html
+
+**Tell Us About How You Pursue Happiness**\
+`As America nears its 250th year, we want to hear from you about this particular phrase in the country’s founding document.`\
+https://nytimes.com/2026/03/10/us/pursuit-of-happiness.html
+
+**Luka Dončić fined $50,000 for making 'money' hand gesture toward official**\
+`Dončić has been called for 15 technical fouls this season, one away from a mandatory one-game suspension.`\
+https://nytimes.com/athletic/7105024/2026/03/10/luka-doncic-fine-hand-signal-lakers/
+
+**Linked by name and career, a pair of Logan Allens meet in the World Baseball Classic**\
+`Both Logan Allens have pitched for the Cleveland Guardians, but their careers have taken different paths in recent years.`\
+https://nytimes.com/athletic/7104327/2026/03/10/logan-allen-canada-panama-wbc-guardians/
+
+**Mother of British Columbia Shooting Victim Sues OpenAI**\
+`The company banned the shooter’s ChatGPT account but did not alert the authorities, a move that amounted to fatal negligence, the family claims.`\
+https://nytimes.com/2026/03/10/world/canada/open-ai-british-columbia-shooting.html
+
 **France Steps Up Efforts to Repatriate Citizens Amid Fallout From the War**\
 `France is highlighting its repatriation operations for nationals left stranded by the conflict with Iran.`\
 https://nytimes.com/2026/03/10/world/middleeast/france-repatriation-flights-iran-crisis.html
-
-**Scoop City: 10 takeaways from Day 1 of free agency**\
-`What you should know from the first day of free agency, plus the big names still available`\
-https://nytimes.com/athletic/7105196/2026/03/10/nfl-free-agency-recap-2026/
-
-**Gary Woodland shares battle with PTSD ahead of The Players Championship**\
-`"My belief is that this will be a big relief off my back, and I'll be able to focus my energy where I need to," Woodland said.`\
-https://nytimes.com/athletic/7104976/2026/03/10/gary-woodland-ptsd-brain-surgery-the-players-championship/
-
-**CSC head says 'manufactured NIL' deals are bogging down approval system**\
-`Some CFB deals guaranteed millions of dollars without having yet received approval through NIL Go, the clearinghouse used by the CSC.`\
-https://nytimes.com/athletic/7105088/2026/03/10/college-sports-commission-nil-deals-approval/
-
-**Aluminium, Helium and Sulfur: The Iran War Is Affecting More Than Oil**\
-`Prices of some commodities are already rising, while stockpiles of others could dwindle as the war drags on.`\
-https://nytimes.com/2026/03/10/business/iran-war-impact-helium-urea-sulfur.html
-
-**Hopes for Civility in the Texas Senate Race**\
-`Readers respond to a David French column on James Talarico, a Christian Democrat running for senate in Texas. Also: Good health and common sense; the upside of small talk.`\
-https://nytimes.com/2026/03/10/opinion/talarico-texas-senate.html
-
-**Senate Moves Toward Passing Sweeping Housing Bill, but Challenges Lie Ahead**\
-`The legislation’s progress is all the more surprising because it addresses an issue that is shaping up to be the main battleground of the midterm elections: affordability. The effort could still stall.`\
-https://nytimes.com/2026/03/10/us/politics/senate-housing-bill.html
 
