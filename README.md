@@ -1,3 +1,7 @@
+**Linebacker Leo Chenal agrees to deal with Commanders: Source**\
+`Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls.`\
+https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/
+
 **Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
 `Manager Alex Cora has enjoyed watching the veteran starter put in the work and has let him set his own schedule.`\
 https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third-base-bullpen/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7105730/2026/03/10/yankees-opening-day-roster-aaron
 **Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in 3 weeks**\
 `Maxey's absence comes at a critical moment, as the 76ers (34-30) jockey for postseason positioning while missing several key contributors.`\
 https://nytimes.com/athletic/7105998/2026/03/10/tyrese-maxey-injury-tendon-three-weeks/
-
-**How could Igor Tudor take off Antonin Kinsky like that? It's another sign of failure**\
-`The 22-year-old goalkeeper was taken off after just 17 minutes of Tottenham's 5-2 Champions League defeat at Atletico Madrid`\
-https://nytimes.com/athletic/7105871/2026/03/10/kinsky-tottenham-champions-league-atletico-tudor/
 
