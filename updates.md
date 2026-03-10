@@ -1,3 +1,7 @@
+**West Ham are dreaming of 'miracles' - even if Nuno cannot bear to watch them**\
+`Juggling FA Cup and Premier League survival commitments presents a nice problem after a season of stress`\
+https://nytimes.com/athletic/7102292/2026/03/10/west-ham-brentford-fa-cup/
+
 **Late Night Scolds Trump Over Gasoline Prices**\
 `“You can lie about many things in American life, but one thing you can’t lie about is gas prices,” Late Night host Seth Meyers said. “Everyone sees it.”`\
 https://nytimes.com/2026/03/10/arts/television/late-night-trump-gas.html
