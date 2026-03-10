@@ -1,3 +1,7 @@
+**Rising Fuel Costs Pressure Airlines and Truckers**\
+`The price of jet fuel and diesel has surged since the war in Iran began, which could force airlines and trucking companies to pass on higher costs to their customers.`\
+https://nytimes.com/2026/03/10/business/energy-environment/jet-fuel-diesel-airlines-truckers-iran.html
+
 **Did Cal Raleigh snub Randy Arozarena? The WBC moment causing a stir**\
 `It’s possible Arozarena wasn't actually angry with his Mariners teammate over a handshake snub Monday night, but it's not clear.`\
 https://nytimes.com/athletic/7104129/2026/03/10/mariners-randy-arozarena-cal-raleigh-handshake-wbc/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7102509/2026/03/10/eagles-free-agency-jaelan-philli
 **After Venice Biennale Fallout, Artist Representing U.S. Signs With Mega-Gallery**\
 `Alma Allen has joined Perrotin, months after two other galleries dropped him over his selection to represent the United States at the “art world Olympics.”`\
 https://nytimes.com/2026/03/10/arts/design/alma-allen-gallery-venice-biennale.html
-
-**Bills free agency reset, Day 1: Dee Alford to join new defense, backup QB a familiar face**\
-`The Bills were relatively quiet on Day 1 of negotiating with free agents. `\
-https://nytimes.com/athletic/7103217/2026/03/10/bills-free-agency-signings-dee-alford/
 
