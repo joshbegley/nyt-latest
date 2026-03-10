@@ -1,3 +1,11 @@
+**NHL post-deadline vibe check: Sizzle in the Central, Kucherov's absurd pace and more**\
+`Plus: Why is Buffalo's defense corps so lopsided, and can the Red Wings finally produce a March worth remembering?`\
+https://nytimes.com/athletic/7102355/2026/03/10/nhl-vibe-check-trade-deadline-kucherov-sabres-kadri-oilers/
+
+**Wasserman agency rebrands following outcry over founder's Epstein ties**\
+`The 51-year-old, who chairs the LA28 Olympic Committee, already announced his intention to sell the business last month.`\
+https://nytimes.com/athletic/7103947/2026/03/10/casey-wasserman-agency-rebrand-epstein/
+
 **The Pulse: The best UConn player ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7101848/2026/03/10/uconn-basketball-sarah-strong-the-pulse/

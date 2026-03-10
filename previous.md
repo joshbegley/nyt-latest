@@ -1,3 +1,11 @@
+**NHL post-deadline vibe check: Sizzle in the Central, Kucherov's absurd pace and more**\
+`Plus: Why is Buffalo's defense corps so lopsided, and can the Red Wings finally produce a March worth remembering?`\
+https://nytimes.com/athletic/7102355/2026/03/10/nhl-vibe-check-trade-deadline-kucherov-sabres-kadri-oilers/
+
+**Wasserman agency rebrands following outcry over founder's Epstein ties**\
+`The 51-year-old, who chairs the LA28 Olympic Committee, already announced his intention to sell the business last month.`\
+https://nytimes.com/athletic/7103947/2026/03/10/casey-wasserman-agency-rebrand-epstein/
+
 **The Pulse: The best UConn player ever?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7101848/2026/03/10/uconn-basketball-sarah-strong-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7102807/2026/03/10/flyers-matvei-michkov-tocchet-ro
 **Will Lane Kiffin win a national title at LSU? CFB coaches give their take**\
 `Kiffin was hired to bring LSU back to the sport’s upper echelon. Do other college football coaches think he can do it?`\
 https://nytimes.com/athletic/7102444/2026/03/10/lane-kiffin-national-championship-lsu/
-
-**2026 NHL Draft ranking: Reid, McKenna and Verhoeff top Pronman's list**\
-`Nearing the end of the season, the draft picture is starting to become clearer, with a strong top 10 group of prospects.`\
-https://nytimes.com/athletic/7083624/2026/03/10/2026-nhl-draft-prospects-ranking-mckenna-reid-verhoeff/
-
-**Bengals, Duke Tobin back up their words in free agency by righting 2025's wrongs**\
-`An aggressive first day of negotiations resulted in agreements with Bryan Cook and Boye Mafe that fill major needs.`\
-https://nytimes.com/athletic/7103481/2026/03/10/bengals-free-agency-duke-tobin-cook-mafe/
 
