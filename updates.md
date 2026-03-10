@@ -1,3 +1,7 @@
+**Linebacker Leo Chenal agrees to deal with Commanders: Source**\
+`Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls.`\
+https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/
+
 **Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
 `Manager Alex Cora has enjoyed watching the veteran starter put in the work and has let him set his own schedule.`\
 https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third-base-bullpen/
