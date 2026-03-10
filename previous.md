@@ -19,7 +19,7 @@ https://nytimes.com/athletic/7105677/2026/03/10/tigers-enmanuel-de-jesus-roster-
 https://nytimes.com/athletic/7106035/2026/03/10/antoine-griezmann-atletico-madrid-future-mls-orlando/
 
 **Yankees notes: Aaron Boone has his own roster questions; Jasson Domínguez's change**\
-`"I don't know how it's going to shake out, to be honest," Boone said when asked about the Yankees' bench situation before Opening Day.`\
+`Takeaways from what manager Aaron Boone said about the Yankees' roster questions with two weeks until Opening Day. `\
 https://nytimes.com/athletic/7105730/2026/03/10/yankees-opening-day-roster-aaron-boone-jasson-dominguez-ben-rice/
 
 **Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in 3 weeks**\

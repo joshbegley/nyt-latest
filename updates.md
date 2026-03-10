@@ -1,3 +1,7 @@
+**Yankees notes: Aaron Boone has his own roster questions; Jasson Domínguez's change**\
+`Takeaways from what manager Aaron Boone said about the Yankees' roster questions with two weeks until Opening Day. `\
+https://nytimes.com/athletic/7105730/2026/03/10/yankees-opening-day-roster-aaron-boone-jasson-dominguez-ben-rice/
+
 **Linebacker Leo Chenal agrees to deal with Commanders: Source**\
 `Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls.`\
 https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/

@@ -1,5 +1,13 @@
+**Luka Dončić separates from fiancée, to battle for custody of two daughters**\
+`Dončić’s ex-fiance, Anamaria Goltes, filed a petition seeking child support and attorney fees.`\
+https://nytimes.com/athletic/7106150/2026/03/10/luka-doncic-fiancee-breakup-custody-daughters-lakers/
+
+**Panthers reach 1-year deal with center Luke Fortner: Sources**\
+`Cade Mays reached a deal with the Lions on Monday, so the Panthers quickly turned to Fortner as his likely replacement.`\
+https://nytimes.com/athletic/7106157/2026/03/10/luke-fortner-panthers-nfl-free-agency-2026/
+
 **Linebacker Leo Chenal agrees to deal with Commanders: Source**\
-`Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls.`\
+`Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls during his four seasons.`\
 https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/
 
 **Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/7105677/2026/03/10/tigers-enmanuel-de-jesus-roster-
 **Orlando City target Griezmann confirms he will stay at Atletico until the summer**\
 `"We'll see but the idea is to stay until the end, and then others can speak."`\
 https://nytimes.com/athletic/7106035/2026/03/10/antoine-griezmann-atletico-madrid-future-mls-orlando/
-
-**Yankees notes: Aaron Boone has his own roster questions; Jasson Domínguez's change**\
-`Takeaways from what manager Aaron Boone said about the Yankees' roster questions with two weeks until Opening Day. `\
-https://nytimes.com/athletic/7105730/2026/03/10/yankees-opening-day-roster-aaron-boone-jasson-dominguez-ben-rice/
-
-**Tyrese Maxey's MRI reveals tendon injury to right finger; 76ers to evaluate in 3 weeks**\
-`Maxey's absence comes at a critical moment, as the 76ers (34-30) jockey for postseason positioning while missing several key contributors.`\
-https://nytimes.com/athletic/7105998/2026/03/10/tyrese-maxey-injury-tendon-three-weeks/
 
