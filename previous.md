@@ -1,3 +1,7 @@
+**WAC threatens to remove Utah Valley basketball teams from tournaments over exit-fee dispute**\
+`The conference said if Utah Valley hadn’t paid the exit fee by 5 p.m. Tuesday, it would re-bracket the men’s and women’s tournaments.`\
+https://nytimes.com/athletic/7105601/2026/03/10/wac-threatens-remove-uvu-basketball-tournaments-exit-fee/
+
 **War in Iran Could Lead to Food Shortages in Region, Experts Warn**\
 `Some residents of Lebanon, Gaza and Iran are reporting shortages of food, rising food prices and other disruptions to food supplies as the conflict in the Middle East continues.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-war-food-prices.html
@@ -21,8 +25,4 @@ https://nytimes.com/2026/03/10/opinion/how-does-this-end-four-scenarios-for-what
 **ChatGPT, Other Chatbots Approved for Official Use in the Senate**\
 `New guidelines said Senate aides could use A.I. tools for official work, including research, drafting and editing documents, and preparing briefings and talking points for lawmakers.`\
 https://nytimes.com/2026/03/10/us/politics/us-senate-chatgpt-ai-chatbots.html
-
-**U.S. Showers Iran With Bombs in Most Intense Strikes of the War, Pentagon Says**\
-`Iranians cowered under the barrage as Pete Hegseth, the U.S. defense secretary, said the U.S. aimed to wipe out Iran’s capacity to obtain nuclear weapons “forever.”`\
-https://nytimes.com/2026/03/10/world/middleeast/us-iran-war-strikes-pentagon.html
 
