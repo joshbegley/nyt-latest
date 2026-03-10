@@ -1,28 +1,28 @@
-**How to watch UT Rio Grande Valley vs. McNeese men's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the UT Rio Grande Valley Vaqueros play the McNeese Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105298/2026/03/10/ut-rio-grande-valley-vs-mcneese-stream-how-to-watch-march-10/
+**How to watch Air Force vs. Colorado State women's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Air Force Falcons play the Colorado State Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105380/2026/03/10/air-force-vs-colorado-state-stream-how-to-watch-march-10/
 
-**How to watch Penn State vs. Northwestern men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105296/2026/03/10/penn-state-vs-northwestern-stream-how-to-watch-march-10/
+**How to watch Islanders vs. Blues: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105377/2026/03/10/islanders-vs-blues-stream-how-to-watch-march-10/
 
-**How to watch Bulls vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105277/2026/03/10/bulls-vs-warriors-stream-how-to-watch-march-10/
+**How to watch Mammoth vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105372/2026/03/10/mammoth-vs-wild-stream-how-to-watch-march-10/
 
-**Has the United States-Mexico-Canada Agreement Affected You? We Want to Hear About It.**\
-`The New York Times is looking to talk to people about the impact that the trade deal between the United States, Canada and Mexico has had on them and their businesses.`\
-https://nytimes.com/2026/03/10/business/economy/has-the-united-states-mexico-canada-agreement-affected-you-we-want-to-hear-about-it.html
+**How to watch Ducks vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105359/2026/03/10/ducks-vs-jets-stream-how-to-watch-march-10/
 
-**Man Accused of Killing an N.Y.P.D. Officer in 2024 Goes on Trial**\
-`Guy Rivera is charged with murder in the shooting of Detective Jonathan Diller, 31. The officer’s death became a flashpoint during the presidential race.`\
-https://nytimes.com/2026/03/10/nyregion/nypd-diller-rivera-trial.html
+**How to watch Grambling vs. Jackson State men's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Grambling Tigers play the Jackson State Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105348/2026/03/10/grambling-vs-jackson-state-stream-how-to-watch-march-10/
 
-**How to watch Pacers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Sacramento Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7105266/2026/03/10/pacers-vs-kings-stream-how-to-watch-march-10/
+**How to watch Oklahoma State vs. Colorado men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7105343/2026/03/10/oklahoma-state-vs-colorado-stream-how-to-watch-march-10/
 
-**Intense Storms in the Midwest Threaten to Bring Tornadoes and Hail on Tuesday**\
-`Forecasters warned that areas around Chicago could experience especially dangerous weather. This type of storm in early March is “uncommon,” one forecaster said.`\
-https://nytimes.com/2026/03/10/weather/chicago-storm-illinois-michigan-indiana-tornado.html
+**An Environmental Crisis in Iran**\
+`War is polluting the skies and waterways in Iran, and experts are warning that the conflict’s environmental effects could extend beyond the country.`\
+https://nytimes.com/2026/03/10/climate/an-environmental-crisis-in-iran.html
 
