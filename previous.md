@@ -1,3 +1,31 @@
+**As War Comes to Gulf States, Migrant Workers Pay the Highest Price**\
+`Since the American-Israeli attack on Iran began, at least 11 civilians have been killed in oil-rich Gulf countries. All but one of them were foreign nationals.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-migrant-deaths.html
+
+**U.S. Solar Installations Fell in 2025 as Trump Attacked Clean Energy**\
+`More solar energy was added to U.S. grids than any other technology, but the amount installed fell by 14 percent, according to a new report.`\
+https://nytimes.com/2026/03/10/business/energy-environment/donald-trump-solar-energy-batteries.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 10, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7103700/2026/03/10/connections-sports-edition-hints-answers-march-10-2026/
+
+**Corrections: March 10, 2026**\
+`Corrections that appeared in print on Tuesday, March 10, 2026.`\
+https://nytimes.com/2026/03/10/pageoneplus/corrections-march-10-2026.html
+
+**Quote of the Day: Scientists Get a Glimpse Into How Pandemics Start**\
+`Quotation of the Day for Tuesday, March 10, 2026.`\
+https://nytimes.com/2026/03/09/pageoneplus/quote-of-the-day-scientists-get-a-glimpse-into-how-pandemics-start.html
+
+**Noah Laba continues promising year against a childhood favorite: Rangers observations**\
+`Mika Zibanejad's two goals led the Rangers against the Flyers, but a lot of young talents shone for New York.`\
+https://nytimes.com/athletic/7103665/2026/03/09/rangers-noah-laba-glendening-perreault-lafreniere-flyers/
+
+**Fragments of U.S.-Made Missile Seen in Photos Taken by Iran Near Deadly School Strike**\
+`Iranian state media posted mangled remnants it claims were from the Feb. 28 attack in Minab. An analysis shows they have the markings of a missile made by American manufacturers`\
+https://nytimes.com/2026/03/09/world/middleeast/iran-school-strike-us-missile.html
+
 **He Raps, He Rants, He Promises Change. Meet Nepal’s Presumptive New Leader.**\
 `Balendra Shah’s party won a landslide in the election that followed Nepal’s Gen Z revolution. His style is pugnacious.`\
 https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
 **Full Time: If U.S. World Cup roster selection were today**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/
-
-**Mirra Andreeva curses at crowd as Kateřina Siniaková and title pressure knock her out of Indian Wells**\
-`Andreeva is still 18, but her patterns in defeats have grown more concerning since her title in California 12 months ago.`\
-https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
-
-**Dan Morgan does it again: Panthers reach deal with top available LB Devin Lloyd**\
-`Lloyd was the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
-https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
-
-**‘Haven’t the Foggiest’**\
-`Grab a snack and solve Daniel Bodily’s latest puzzle.`\
-https://nytimes.com/2026/03/09/crosswords/daily-puzzle-2026-03-10.html
-
-**Trump Seeks to Calm Energy Markets but Says War Will Go On for Now**\
-`The president said the U.S. could accompany tankers through the Strait of Hormuz if necessary to keep oil flowing. “We’ve already won in many ways, but we haven’t won enough,” he said.`\
-https://nytimes.com/2026/03/09/us/politics/trump-gas-oil-iran.html
-
-**Blue Jackets rally late on Marchenko's goal, but suffer another frustrating OT loss**\
-`For the second consecutive game, the Blue Jackets scored four goals and gave up five in an overtime loss to a Western opponent.`\
-https://nytimes.com/athletic/7103071/2026/03/09/blue-jackets-overtime-defense-garland-marchenko-kings/
-
-**UConn wins Big East tournament title by dominating Villanova**\
-`The victory marked the 24th conference title for the Huskies.`\
-https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-championship-villanova/
-
-**Shai Gilgeous-Alexander ties Wilt Chamberlain with 126 consecutive 20-point games**\
-`Gilgeous-Alexander, the reigning MVP, last scored fewer than 20 points in a regular-season game on Oct. 30, 2024.`\
-https://nytimes.com/athletic/7101574/2026/03/09/shai-gilgeous-alexander-wilt-chamberlain-nba-record/
 
