@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Chris Cameron, Farnaz Fassihi and Yan Zhuang`\
+https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel/heres-the-latest
+
+**Iran Live Updates: Pakistani Navy Escorts Tankers as Conflict Chokes Off Oil Traffic**\
+`Pakistani warships were traveling alongside the country’s merchant vessels in the Middle East, and President Trump promised to retaliate if Iran continued attacking energy supplies.`\
+https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel
+
+**F.A.A. Briefly Halts JetBlue Departures After System Outage**\
+`The Federal Aviation Administration issued a ground stop for JetBlue flights early Tuesday at the airline’s request. JetBlue later said a “system outage” had been restored and that operations had resumed.`\
+https://nytimes.com/2026/03/10/us/jetblue-flights-aircraft-grounded-faa.html
+
 **Who Are the Men Accused of Bringing Homemade Bombs to Gracie Mansion?**\
 `A high school senior and a recent graduate, both from the Philadelphia suburbs, were charged by federal prosecutors with trying to support a terrorist group.`\
 https://nytimes.com/2026/03/10/nyregion/gracie-mansion-bomb-arrests.html
