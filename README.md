@@ -10,6 +10,10 @@ https://nytimes.com/athletic/7100804/2026/03/10/lewis-hamilton-australian-grand-
 `Ndiaye and Garner have been two of Everton's best players this season — and were signed in a very similar way`\
 https://nytimes.com/athletic/7100952/2026/03/10/everton-iliman-ndiaye-james-garner-transfers/
 
+**The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
+`We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
+https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/
+
 **Map: 6.0-Magnitude Earthquake Shakes Near Naples**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/world/europe/quake-tracker-tyrrhenian-sea-naples.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand
 **How is football refereed differently in the Premier League and Champions League?**\
 `Inconsistency in how games are officiated in Europe and England is a source of huge frustration to supporters`\
 https://nytimes.com/athletic/7101240/2026/03/10/premier-league-champions-league-referees/
-
-**Lucky Arsenal? Analysing historic pathway difficulty in the Champions League**\
-`Mikel Arteta's side have a relatively kind route ahead of them this season – that hasn't always been the case `\
-https://nytimes.com/athletic/7100939/2026/03/10/champions-league-pathway-difficulty-arsenal-liverpool-real-madrid-bayern/
 
