@@ -1,4 +1,12 @@
-**The Briefing: Newcastle 1 Barcelona 1 - Missed Newcastle oppoortunity? Flick too conservative? Hall vs Yamal?**\
+**Democrats Demand Hegseth and Rubio Testify on Iran War**\
+`Senate Democratic leaders called on President Trump to dispatch the senior cabinet officials to make the case to Congress and the American public for the war in Iran.`\
+https://nytimes.com/live/2026/03/10/world/iran-war-trump-us-israel/democrats-demand-hegseth-and-rubio-testify-on-iran-war
+
+**2 Former Police Officers Conspired to Steal From Prostitute, U.S. Says**\
+`The two men pleaded not guilty on Tuesday in federal court to charges that they violated a woman’s civil rights while responding to a complaint about a brothel in a Queens building.`\
+https://nytimes.com/2026/03/10/nyregion/nypd-brothel-officers-arreste.html
+
+**The Briefing: Newcastle 1 Barcelona 1 - Hosts miss an opportunity? Flick too conservative? Hall vs Yamal?**\
 `A Lamine Yamal penalty deep into stoppage time denied Newcastle a famous victory over Barcelona`\
 https://nytimes.com/athletic/7096188/2026/03/10/newcastle-1-barcelona-1-briefing/
 
@@ -17,12 +25,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010763886/youre-overpa
 **Is Your Shoe About to Get a Hole?**\
 `Are your well-loved shoes about to get a hole? Catching a problem early can help you save money on repairs in the long run. Here’s how to know when it’s time to walk your favorite pair to the cobbler.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010763579/is-your-shoe-about-to-get-a-hole.html
-
-**It’s Not Easy Going Back to Blackberry**\
-`Sick of your smartphone? Writer Brenda Stolyar joined the wave of people on social media switching back to BlackBerries in an attempt to curb screen time. Here’s what to consider, from carrier connectivity to downloading apps.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010763534/its-not-easy-going-back-to-blackberry.html
-
-**Which One Is Counterfeit?**\
-`How do you know if the beauty product you bought online is the real deal? Read Wirecutter writer Rose Maura Lorre’s investigation into the murky world of counterfeits.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010763352/which-one-is-counterfeit.html
 
