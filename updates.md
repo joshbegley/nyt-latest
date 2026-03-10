@@ -1,3 +1,11 @@
+**UConn wins Big East tournament title by dominating Villanova**\
+`The victory marked the 24th conference title for the Huskies.`\
+https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-championship-villanova/
+
+**Shai Gilgeous-Alexander ties Wilt Chamberlain with 126 consecutive 20-point games**\
+`Gilgeous-Alexander, the reigning MVP, last scored fewer than 20 points in a regular-season game on Oct. 30, 2024.`\
+https://nytimes.com/athletic/7101574/2026/03/09/shai-gilgeous-alexander-wilt-chamberlain-nba-record/
+
 **Trump Could Restart California Oil Pipeline With Cold War-Era Law, Opinion Says**\
 `The Justice Department said the president has the legal authority to overrule state regulators and reopen an offshore oil pipeline that was shut down after causing a gigantic oil spill.`\
 https://nytimes.com/2026/03/09/us/trump-california-oil-pipeline.html

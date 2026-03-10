@@ -1,3 +1,7 @@
+**Blue Jackets rally late on Marchenko's goal, but suffer another frustrating OT loss**\
+`For the second consecutive game, the Blue Jackets scored four goals and gave up five in an overtime loss to a Western opponent.`\
+https://nytimes.com/athletic/7103071/2026/03/09/blue-jackets-overtime-defense-garland-marchenko-kings/
+
 **UConn wins Big East tournament title by dominating Villanova**\
 `The victory marked the 24th conference title for the Huskies.`\
 https://nytimes.com/athletic/7103422/2026/03/09/uconn-big-east-tournament-championship-villanova/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/nyregion/mamdani-response-bomb.html
 **Lions kick off free agency with the obvious: Prioritizing the offensive line**\
 `The Lions added Cade Mays at center and Larry Borom, a tackle with starting experience who could fill several roles.`\
 https://nytimes.com/athletic/7103218/2026/03/09/lions-free-agency-offensive-line-cade-mays/
-
-**How to smash a tennis racket: Style, control, damage, aggression - and danger**\
-`The racket smash is a staple of tennis, for better or for worse. Here's how players find creative ways to do it.`\
-https://nytimes.com/athletic/5613787/2026/03/09/tennis-racket-smash-penalty-danger/
 
