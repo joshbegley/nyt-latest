@@ -1,3 +1,7 @@
+**Ndiaye, Garner and how Everton can use undervalued talent to push on**\
+`Ndiaye and Garner have been two of Everton's best players this season — and were signed in a very similar way`\
+https://nytimes.com/athletic/7100952/2026/03/10/everton-iliman-ndiaye-james-garner-transfers/
+
 **Map: 6.0-Magnitude Earthquake Shakes Near Naples**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/world/europe/quake-tracker-tyrrhenian-sea-naples.html
