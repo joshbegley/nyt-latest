@@ -1,5 +1,5 @@
 **4 Continents in 62 Hours: How One American Got Out of Qatar**\
-`When conflict broke out in the Middle East, thousands of travelers were stranded. We followed an American doctor on his epic journey to get home.`\
+`When conflict broke out in the Middle East, thousands of travelers were stranded. We followed a New Orleans doctor on his epic journey to get home.`\
 https://nytimes.com/2026/03/10/travel/canceled-flights-middle-east-iran-war.html
 
 **Running back Isiah Pacheco agrees to free-agent deal with Lions: Source**\
