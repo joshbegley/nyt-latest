@@ -1,3 +1,11 @@
+**Cost-Cutting Led to South Korean Airport’s Deadly Wall, Report Finds**\
+`The concrete runway barrier played a key role in a disaster that killed 179 people. An audit revealed officials skimped on construction fees and then falsified records.`\
+https://nytimes.com/2026/03/10/world/asia/jeju-air-crash-wall-airport.html
+
+**What we’re seeing at the WBC: A sendoff for the Czech electrician who once conquered Ohtani**\
+`A handful of players with their own quirky places in World Baseball Classic history are walking away after the tournament.`\
+https://nytimes.com/athletic/7104011/2026/03/10/world-baseball-classic-puerto-rico-nicaragua-czechia-ohtani/
+
 **Rising Fuel Costs Pressure Airlines and Truckers**\
 `The price of jet fuel and diesel has surged since the war in Iran began, which could force airlines and trucking companies to pass on higher costs to their customers.`\
 https://nytimes.com/2026/03/10/business/energy-environment/jet-fuel-diesel-airlines-truckers-iran.html
