@@ -1,3 +1,7 @@
+**How to watch Suns vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7104895/2026/03/10/suns-vs-bucks-stream-how-to-watch-march-10/
+
 **Rocco DiSpirito Return With Home-Style Italian at Bar Rocco**\
 `Honey Badger deploys an ambitious menu, Threes Brewing Greenpoint teams up with Grand Army and more restaurant news.`\
 https://nytimes.com/2026/03/10/dining/nyc-restaurant-news.html
@@ -25,16 +29,4 @@ https://nytimes.com/2026/03/10/world/middleeast/nearly-700000-displaced-by-war-i
 **‘Nothing Will Remain of Tehran,’ Iranians Say Amid Heavy Bombing**\
 `Some residents described the strikes overnight Monday into Tuesday as among the worst they had experienced since the war started.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-bombing-tehran.html
-
-**Reds' Greene to have surgery on right elbow, may return in July**\
-`Greene, 26, made one spring training start before reporting the pain in his throwing elbow.`\
-https://nytimes.com/athletic/7104522/2026/03/10/reds-hunter-greene-elbow-injury/
-
-**In Ancient Peru, a Parrot Trade That Crossed the Andes**\
-`Scientists studied centuries-old bird feathers from an ancient tomb on the coast, and then traced the origins back to the Amazon.`\
-https://nytimes.com/2026/03/10/science/archaeology-parrots-peru.html
-
-**Scarf Anxieties**\
-`At Loewe and Celine, scarves as poufy as comforters have our critic wondering why fashion designers can’t leave well enough alone.`\
-https://nytimes.com/2026/03/10/style/scarf-anxieties.html
 
