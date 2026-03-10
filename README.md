@@ -1,3 +1,11 @@
+**You’re Overpacking Your Freezer**\
+`If you’ve noticed some funky freezer behavior — ice cream pints mysteriously melting, fruit and vegetables sprouting crystals, or ice taking longer to solidify than usual — you might be wondering if you need a whole new appliance.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010763886/youre-overpacking-your-freezer.html
+
+**Is Your Shoe About to Get a Hole?**\
+`Are your well-loved shoes about to get a hole? Catching a problem early can help you save money on repairs in the long run. Here’s how to know when it’s time to walk your favorite pair to the cobbler.`\
+https://nytimes.com/video/smarter-living/wirecutter/100000010763579/is-your-shoe-about-to-get-a-hole.html
+
 **It’s Not Easy Going Back to Blackberry**\
 `Sick of your smartphone? Writer Brenda Stolyar joined the wave of people on social media switching back to BlackBerries in an attempt to curb screen time. Here’s what to consider, from carrier connectivity to downloading apps.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010763534/its-not-easy-going-back-to-blackberry.html
@@ -17,12 +25,4 @@ https://nytimes.com/2026/03/10/us/politics/trump-civilian-deaths-iran-war.html
 **Mamdani’s Latest Show of Support for Mahmoud Khalil: A Dinner Invitation**\
 `It appears that a relationship that began with political solidarity over the plight of Palestinians has developed into a friendly connection between the mayor and the activist.`\
 https://nytimes.com/2026/03/10/nyregion/zohran-mamdani-mahmoud-khalil-dinner.html
-
-**Prosecutors drop domestic assault and battery charge against Patriots' Christian Barmore**\
-`Barmore will not face a domestic assault and battery charge after Massachusetts prosecutors said the case was not viable for prosecution.`\
-https://nytimes.com/athletic/7102560/2026/03/10/patriots-christian-barmore-charge-dropped/
-
-**WAC threatens to remove Utah Valley basketball teams from tournaments over exit-fee dispute**\
-`The conference said if Utah Valley hadn’t paid the exit fee by 5 p.m. Tuesday, it would re-bracket the men’s and women’s tournaments.`\
-https://nytimes.com/athletic/7105601/2026/03/10/wac-threatens-remove-uvu-basketball-tournaments-exit-fee/
 
