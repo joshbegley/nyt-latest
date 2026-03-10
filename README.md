@@ -1,3 +1,7 @@
+**Ndiaye, Garner and how Everton can use undervalued talent to push on**\
+`Ndiaye and Garner have been two of Everton's best players this season — and were signed in a very similar way`\
+https://nytimes.com/athletic/7100952/2026/03/10/everton-iliman-ndiaye-james-garner-transfers/
+
 **Map: 6.0-Magnitude Earthquake Shakes Near Naples**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2026/03/10/world/europe/quake-tracker-tyrrhenian-sea-naples.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101134/2026/03/10/champions-league-best-young-play
 **Sir Bobby Robson's legacy at Newcastle and Barca endures - and he continues to change lives**\
 `The former Newcastle and Barca manager built teams in his career and now his foundation continues to do the same as it helps fight cancer.`\
 https://nytimes.com/athletic/7094039/2026/03/10/newcastle-vs-barcelona-sir-bobby-robson/
-
-**Numbers to Know: Champions League Round of 16**\
-`They key statistical storylines as the Champions League reaches a crucial juncture`\
-https://nytimes.com/athletic/7100918/2026/03/10/numbers-to-know-champions-league-round-of-16/
 
