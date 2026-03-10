@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
 
 **Panthers agree to deal with Devin Lloyd, the top linebacker available**\
-`Lloyd is the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
+`Lloyd was the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
 https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
 
 **‘Haven’t the Foggiest’**\
