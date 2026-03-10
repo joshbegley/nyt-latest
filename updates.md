@@ -1,3 +1,11 @@
+**Mirra Andreeva curses at crowd as Kateřina Siniaková and title pressure knock her out of Indian Wells**\
+`Andreeva is still 18, but her patterns in defeats have grown more concerning since her title in California 12 months ago.`\
+https://nytimes.com/athletic/7103039/2026/03/09/tennis-mirra-andreeva-indian-wells-crowd/
+
+**Panthers agree to deal with Devin Lloyd, the top linebacker available**\
+`Lloyd is the second high-profile defender to reach a deal with Carolina on Monday, joining edge rusher Jaelan Phillips.`\
+https://nytimes.com/athletic/7083934/2026/03/09/devin-lloyd-panthers-nfl-free-agency-2026/
+
 **‘Haven’t the Foggiest’**\
 `Grab a snack and solve Daniel Bodily’s latest puzzle.`\
 https://nytimes.com/2026/03/09/crosswords/daily-puzzle-2026-03-10.html
