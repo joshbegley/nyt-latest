@@ -1,3 +1,7 @@
+**The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
+`We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
+https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/
+
 **As War Comes to Gulf States, Migrant Workers Pay the Highest Price**\
 `Since the American-Israeli attack on Iran began, at least 11 civilians have been killed in oil-rich Gulf countries. All but one of them were foreign nationals.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-war-migrant-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/09/world/asia/balendra-shah-nepal-prime-minister.htm
 **Behind Aaron Judge, Team USA scores first WBC victory over Mexico since 2006**\
 `HOUSTON — He broke character halfway up the first-base line, before the baseball he bludgeoned found a home within some right-field seats.`\
 https://nytimes.com/athletic/7103629/2026/03/09/wbc-usa-mexico-aaron-judge/
-
-**Full Time: If U.S. World Cup roster selection were today**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/7102866/2026/03/09/shebelieves-cup-uswnt-roster-full-time/
 
