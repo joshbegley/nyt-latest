@@ -1,3 +1,15 @@
+**Democrats Sue to Find Out if Trump Will Send Armed Officers to Election Sites**\
+`In a lawsuit filed Tuesday, the D.N.C. sought to compel the government to say whether it plans to deploy armed federal officers in this year’s elections.`\
+https://nytimes.com/2026/03/10/us/politics/democrats-sue-to-find-out-if-trump-will-send-armed-officers-to-election-sites.html
+
+**Seahawks free-agency reset: Everything we learned from a busy Day 1**\
+`The Seahawks watched plenty of talent walk out the door on Monday, but that wasn't unexpected, and they managed to keep two key pieces.`\
+https://nytimes.com/athletic/7103521/2026/03/10/seahawks-free-agency-news-rashid-shaheed/
+
+**49ers free-agency reset: Adding Mike Evans soothes sting from missing out on pass rushers**\
+`The 49ers, who didn't have a clear swing tackle in 2025, signed someone who fits that description in ex-Patriot Vederian Lowe.`\
+https://nytimes.com/athletic/7102694/2026/03/10/49ers-free-agency-news-mike-evans/
+
 **Giants roster projection 2.0: Trevor McDonald's stock rises, but what about Bryce Eldridge?**\
 `Will Eldridge break camp in San Francisco or Sacramento? How will the Giants' bullpen look on Opening Day?`\
 https://nytimes.com/athletic/7102282/2026/03/10/sf-giants-roster-projection-trevor-mcdonald-bryce-eldridge/
