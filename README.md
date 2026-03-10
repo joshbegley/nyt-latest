@@ -1,3 +1,7 @@
+**‘Nothing Will Remain of Tehran,’ Iranians Say Amid Heavy Bombing**\
+`Some residents described the strikes overnight Monday into Tuesday as among the worst they had experienced since the war started.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-bombing-tehran.html
+
 **Reds' Greene to have surgery on right elbow, may return in July**\
 `Greene, 26, made one spring training start before reporting the pain in his throwing elbow.`\
 https://nytimes.com/athletic/7104522/2026/03/10/reds-hunter-greene-elbow-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7104682/2026/03/10/until-saturday-newsletter-poll/
 **Kennedy to Undergo Rotator Cuff Surgery**\
 `The secretary of health and human services, known for his Make America Healthy Again campaign, is expected to be back at work on Monday.`\
 https://nytimes.com/2026/03/10/us/rfk-jr-rotator-cuff-surgery.html
-
-**How to watch Maple Leafs vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104673/2026/03/10/maple-leafs-vs-canadiens-stream-how-to-watch-march-10/
 

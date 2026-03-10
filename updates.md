@@ -1,3 +1,19 @@
+**Reds' Greene to have surgery on right elbow, may return in July**\
+`Greene, 26, made one spring training start before reporting the pain in his throwing elbow.`\
+https://nytimes.com/athletic/7104522/2026/03/10/reds-hunter-greene-elbow-injury/
+
+**In Ancient Peru, a Parrot Trade That Crossed the Andes**\
+`Scientists studied centuries-old bird feathers from an ancient tomb on the coast, and then traced the origins back to the Amazon.`\
+https://nytimes.com/2026/03/10/science/archaeology-parrots-peru.html
+
+**Scarf Anxieties**\
+`At Loewe and Celine, scarves as poufy as comforters have our critic wondering why fashion designers can’t leave well enough alone.`\
+https://nytimes.com/2026/03/10/style/scarf-anxieties.html
+
+**Dozens of States Weigh Continuing Live Nation Antitrust Case**\
+`After the Justice Department reached a settlement with the concert giant, the judge overseeing the trial asked the states and the company to do the same.`\
+https://nytimes.com/2026/03/10/arts/music/live-nation-antitrust-states.html
+
 **England's Kyle Walker retires from international football after 96 caps**\
 `Walker, 35, represented his country at five major tournaments and has been described by head coach Thomas Tuchel as an "England great".`\
 https://nytimes.com/athletic/5635789/2026/03/10/kyle-walker-england-retires/
