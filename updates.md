@@ -1,3 +1,7 @@
+**Blue Jays' José Berríos cleared to join Team Puerto Rico in WBC knockout stage**\
+`Berríos, who pitched for Puerto Rico in the last three WBC tournaments, began throwing early this offseason in preparation for another run. `\
+https://nytimes.com/athletic/7105728/2026/03/10/blue-jays-jose-berrios-cleared-to-join-team-puerto-rico-in-wbc-knockout-stage/
+
 **What should Tottenham do about Igor Tudor? We asked five of our writers**\
 `Tottenham have lost four out of four under Tudor, conceding 14 goals in that time, and there have been no signs of improvement`\
 https://nytimes.com/athletic/7105776/2026/03/10/tottenham-igor-tudor-future-manager/
