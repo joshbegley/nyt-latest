@@ -2,6 +2,10 @@
 `A man was taken to hospital with injuries to his face and ribs, police said in a statement.`\
 https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fight-golf-club/
 
+**How guidance from Will Smith could help promising Dalton Rushing thrive for Dodgers**\
+`Dalton struggled as a rookie adjusting to limited playing time: "Now I'm hoping for light."`\
+https://nytimes.com/athletic/7101777/2026/03/10/dodgers-catchers-will-smith-dalton-rushing/
+
 **The Race to Stop Wildlife Trafficking in Africa**\
 `In Nigeria, customs officers and conservationists are confronting the grim impacts of the $20 billion trade.`\
 https://nytimes.com/2026/03/10/magazine/wildlife-trafficking-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103217/2026/03/10/bills-free-agency-signings-dee-a
 **Forest reduce ticket prices for Europa League game against Midtjylland**\
 `Season ticket holders and club members have been given a £10 discount in response to disappointing sales before the last-16 first leg.`\
 https://nytimes.com/athletic/7104181/2026/03/10/forest-ticket-prices-midtjylland-europa-league/
-
-**How good do the Celtics need Jayson Tatum to be? Scouting Boston rookie Hugo Gonzalez**\
-`The Celtics' All-NBA wing has been good in his return from an Achilles injury. But what level of Tatum reasonably gets Boston to the Finals?`\
-https://nytimes.com/athletic/7102545/2026/03/10/jayson-tatum-boston-celtics-hugo-gonzalez/
 
