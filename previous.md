@@ -1,40 +1,40 @@
-**War and the Economy**\
-`We look at the conflict’s global economic impact.`\
-https://nytimes.com/2026/03/10/briefing/war-and-the-economy.html
+**The 5 storylines to watch as Jets push for the playoffs, putting top pick at risk**\
+`With 20 games left in the regular season, it's unclear where the Jets will finish. Let's break down what matters most this spring.`\
+https://nytimes.com/athletic/7102023/2026/03/10/jets-playoffs-chase-nhl-draft-prospects-ncaa-free-agents/
 
-**NHL post-deadline vibe check: Sizzle in the Central, Kucherov's absurd pace and more**\
-`Plus: Why is Buffalo's defense corps so lopsided, and can the Red Wings finally produce a March worth remembering?`\
-https://nytimes.com/athletic/7102355/2026/03/10/nhl-vibe-check-trade-deadline-kucherov-sabres-kadri-oilers/
+**Guardians Opening Day roster projection 3.0: Where Chase DeLauter, Nolan Jones fit (or don't)**\
+`The Guardians committed $2 million to Nolan Jones, which shocked, of all people, Nolan Jones after two straight dismal seasons.`\
+https://nytimes.com/athletic/7100205/2026/03/10/guardians-opening-day-roster-projection-nolan-jones-chase-delauter/
 
-**Wasserman agency rebrands following outcry over founder's Epstein ties**\
-`The 51-year-old, who chairs the LA28 Olympic Committee, already announced his intention to sell the business last month.`\
-https://nytimes.com/athletic/7103947/2026/03/10/casey-wasserman-agency-rebrand-epstein/
+**World Cup 2026 stadium guides: Welcome to Seattle Stadium, and get ready to feel the noise**\
+`Here’s everything you need to know about the venue, located in the heart of Seattle and considered by many as the loudest in the country`\
+https://nytimes.com/athletic/7092981/2026/03/10/world-cup-2026-stadium-guides-seattle-lumen-field/
 
-**The Pulse: The best UConn player ever?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7101848/2026/03/10/uconn-basketball-sarah-strong-the-pulse/
+**How to watch New York Mets games in 2026: National, regional TV info for Juan Soto's squad**\
+`Here's how to track the refurbished 2026 Mets, from the regional games on SNY to prime time on national TV.`\
+https://nytimes.com/athletic/7069648/2026/03/10/new-york-mets-soto-bichette-how-to-watch/
 
-**Who’s in, who’s out, and who’s got work to do to reach the next round of the WBC**\
-`Here’s a look at where the field stands entering the final two days of pool play.`\
-https://nytimes.com/athletic/7103826/2026/03/10/world-baseball-classic-clinching-scenarios/
+**Should the Leafs rest star players? A hard sell that might help next season**\
+`As the Leafs ponder the future of the team, shutting down some of their best players for recovery might be the prudent move.`\
+https://nytimes.com/athletic/7102802/2026/03/10/maple-leafs-rest-stars-knies-nylander-matthews-prospects/
 
-**The Phillies hear the 'noise' about running it back: Why they think they can make history**\
-`After three disappointing October exits, the Phillies brought back the same core group again to try to win it all. Legacies are on the line.`\
-https://nytimes.com/athletic/7101206/2026/03/10/phillies-world-series-questions-2026-roster/
+**USMNT March roster projection: Our call for Pochettino's picks vs. Belgium, Portugal**\
+`The last camp before Mauricio Pochettino picks his U.S. World Cup roster is nearly here. Who should get a last look before the final cut?`\
+https://nytimes.com/athletic/7103475/2026/03/10/usmnt-march-roster-projection-belgium-portugal-world-cup/
 
-**Bears free-agency reset: Coby Bryant headlines defensive additions ... so far**\
-`Assessing the comings, goings and roster holes after Day 1 of NFL free agency. Plus, why didn't the Bears get any compensatory picks?`\
-https://nytimes.com/athletic/7103176/2026/03/10/bears-free-agency-reset-coby-bryant/
+**Years before his retirement, Julio Teheran put Colombia pitchers on the map**\
+`For years, there were no Colombian pitchers to emulate, only shortstops. Julio Teheran's presence in the majors changed that. `\
+https://nytimes.com/athletic/7103036/2026/03/10/mlb-world-baseball-classic-julio-teheran-retirement/
 
-**Panthers make statement to begin free agency as Dan Morgan goes big on defense — times 2**\
-`Adding Jaelan Phillips and Devin Lloyd was a great way for Morgan and the Panthers to start the offseason.`\
-https://nytimes.com/athletic/7103468/2026/03/10/panthers-free-agency-jaelan-phillips-devin-lloyd/
+**Sizing up the Red Wings' home stretch: New players' fit, how many points they need**\
+`The Red Wings' lineup looks different than it did a week ago, and every game feels massive. So, what does their playoff path now look like?`\
+https://nytimes.com/athletic/7102586/2026/03/10/detroit-red-wings-playoff-race-faulk-brandsegg-nygard/
 
-**André Burakovsky, Frank Nazar find redemption, reward in Blackhawks' OT win over Mammoth**\
-`"It's been hard," Burakovsky said. "It's been hard to find the back of the net." But late in the second period, down a goal, he did.`\
-https://nytimes.com/athletic/7103743/2026/03/10/blackhawks-win-mammoth-andre-burakovsky-frank-nazar/
+**Let's put an argument to rest: Yes, conference tourneys matter to the NCAA Tournament committee**\
+`Almost everything about this week is perfect. But we give too much oxygen to one tired theory.`\
+https://nytimes.com/athletic/7102894/2026/03/10/conference-tourneys-ncaa-tournament-committee-argument/
 
-**Michkov is back on right wing for the Flyers. It’s up to him to make it stick**\
-`The young Russian needs to convince Rick Tocchet that his preferred position is his best spot, even in the coach's system.`\
-https://nytimes.com/athletic/7102807/2026/03/10/flyers-matvei-michkov-tocchet-roster-construction-depth/
+**Why Yankees sent down prospect Spencer Jones after a hot spring start**\
+`The Yankees sent Jones to minor-league camp before Monday's 5-3 loss to the Pittsburgh Pirates, along with Elmer Rodriguez.`\
+https://nytimes.com/athletic/7103528/2026/03/10/spencer-jones-yankees-spring-training-outfield/
 
