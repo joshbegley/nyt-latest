@@ -1,3 +1,7 @@
+**Oil Falls and Stocks Rise After a Day of Drastic Swings**\
+`The price of oil had spiked to nearly $120 a barrel on Monday, drawing remarks by President Trump that he believed the war on Iran was “very complete.”`\
+https://nytimes.com/2026/03/10/business/stocks-oil-markets-iran.html
+
 **Inside the Winter Paralympic repair shop: Where equipment is fixed and dreams preserved**\
 `With hundreds of para athletes in top-level competition, equipment is bound to need fixing. Enter Ottobock, the Paralympics' repair shop.`\
 https://nytimes.com/athletic/7091210/2026/03/10/winter-paralympics-equipment-repair-shop-ottobock/
