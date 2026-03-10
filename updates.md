@@ -1,3 +1,19 @@
+**Meet NWSL expansion team Denver Summit**\
+`Denver's quick climb to its first NWSL season was aided heavily by its ability to attract hometown talent.`\
+https://nytimes.com/athletic/7085768/2026/03/10/meet-nwsl-expansion-team-denver-summit-hometown/
+
+**Eagles free agency reset, Day 1: Goodbye, Jaelan Phillips and other farewells**\
+`Phillips' price got too high for the Eagles to keep him.`\
+https://nytimes.com/athletic/7102509/2026/03/10/eagles-free-agency-jaelan-phillips-nakobe-dean/
+
+**After Venice Biennale Fallout, Artist Representing U.S. Signs With Mega-Gallery**\
+`Alma Allen has joined Perrotin Gallery, months after two galleries dropped him over his selection to represent the United States at the “art world Olympics.”`\
+https://nytimes.com/2026/03/10/arts/after-venice-biennale-fallout-artist-representing-us-signs-with-mega-gallery.html
+
+**Bills free agency reset, Day 1: Dee Alford to join new defense, backup QB a familiar face**\
+`The Bills were relatively quiet on Day 1. `\
+https://nytimes.com/athletic/7103217/2026/03/10/bills-free-agency-signings-dee-alford/
+
 **Forest reduce ticket prices for Europa League game against Midtjylland**\
 `Season ticket holders and club members have been given a £10 discount in response to disappointing sales before the last-16 first leg.`\
 https://nytimes.com/athletic/7104181/2026/03/10/forest-ticket-prices-midtjylland-europa-league/
