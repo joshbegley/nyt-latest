@@ -1,3 +1,7 @@
+**CSC head says 'manufactured NIL' deals are bogging down approval system**\
+`Some CFB deals guaranteed millions of dollars without having yet received approval through NIL Go, the clearinghouse used by the CSC.`\
+https://nytimes.com/athletic/7105088/2026/03/10/college-sports-commission-nil-deals-approval/
+
 **Aluminium, Helium and Sulfur: The Iran War Is Affecting More Than Oil**\
 `Prices of some commodities are already rising, while stockpiles of others could dwindle as the war drags on.`\
 https://nytimes.com/2026/03/10/business/iran-war-impact-helium-urea-sulfur.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7094543/2026/03/10/geno-smith-jets-trade-nfl-free-a
 **One-Pot Cheddar Tomato Mac**\
 `At the happy place where mac and cheese, tomato pasta and tomato soup with grilled cheese meet, you’ll find this dreamy weeknight pasta.`\
 https://nytimes.com/video/dining/100000010765923/one-pot-cheddar-tomato-mac.html
-
-**Red Curry Lentils With Sweet Potatoes and Spinach**\
-`In this vegetarian main inspired by Indian dal, lentils are cooked with an aromatic blend of Thai spices — fresh ginger, turmeric, red curry paste and chile — then simmered in coconut milk until fall-apart tender.`\
-https://nytimes.com/video/dining/100000010765925/red-curry-lentils-with-sweet-potatoes-and-spinach.html
 
