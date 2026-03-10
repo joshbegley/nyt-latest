@@ -1,3 +1,7 @@
+**West Ham are dreaming of 'miracles' - even if Nuno cannot bear to watch them**\
+`Juggling FA Cup and Premier League survival commitments presents a nice problem after a season of stress`\
+https://nytimes.com/athletic/7102292/2026/03/10/west-ham-brentford-fa-cup/
+
 **Late Night Scolds Trump Over Gasoline Prices**\
 `“You can lie about many things in American life, but one thing you can’t lie about is gas prices,” Late Night host Seth Meyers said. “Everyone sees it.”`\
 https://nytimes.com/2026/03/10/arts/television/late-night-trump-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7101425/2026/03/10/graeme-souness-galatasaray-flag-
 **Serie A briefing: All of a sudden, the title race seems on again – can Allegri and Milan defy the odds?**\
 `Completing the double over their city rivals for the first time since 2011 means Milan have cut Inter’s lead at the top to seven points`\
 https://nytimes.com/athletic/7100079/2026/03/10/serie-a-milan-inter-horncastle/
-
-**Atletico Madrid vs Tottenham Hotspur: Which club are the most 'cursed'?**\
-`Do Atletico have the worst luck? Have Spurs been struck by the most misfortune?`\
-https://nytimes.com/athletic/7101737/2026/03/10/atletico-tottenham-champions-league-cursed/
 

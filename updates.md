@@ -1,3 +1,7 @@
+**Late Night Scolds Trump Over Gasoline Prices**\
+`“You can lie about many things in American life, but one thing you can’t lie about is gas prices,” Late Night host Seth Meyers said. “Everyone sees it.”`\
+https://nytimes.com/2026/03/10/arts/television/late-night-trump-gas.html
+
 **Word of the Day: embellish**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/10/learning/word-of-the-day-embellish.html

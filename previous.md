@@ -1,3 +1,7 @@
+**Late Night Scolds Trump Over Gasoline Prices**\
+`“You can lie about many things in American life, but one thing you can’t lie about is gas prices,” Late Night host Seth Meyers said. “Everyone sees it.”`\
+https://nytimes.com/2026/03/10/arts/television/late-night-trump-gas.html
+
 **Word of the Day: embellish**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/10/learning/word-of-the-day-embellish.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100079/2026/03/10/serie-a-milan-inter-horncastle/
 **Atletico Madrid vs Tottenham Hotspur: Which club are the most 'cursed'?**\
 `Do Atletico have the worst luck? Have Spurs been struck by the most misfortune?`\
 https://nytimes.com/athletic/7101737/2026/03/10/atletico-tottenham-champions-league-cursed/
-
-**Row Z: Tottenham vs reality, Arsenal play it safe and could a striker decide a team-mate's future?**\
-`Tim Spiers casts his eye over some of the more unusual stories from the past week in football`\
-https://nytimes.com/athletic/7089538/2026/03/10/row-z-tottenham-arsenal-guessand/
 
