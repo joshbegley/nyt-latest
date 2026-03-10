@@ -1,3 +1,7 @@
+**Australia Gives Asylum to Iranian Soccer Players**\
+`The Australian government has pledged to help the women players in Iran’s soccer national team after state media called them “traitors” for refusing to sing the national anthem.`\
+https://nytimes.com/video/world/australia/100000010764895/australia-asylum-iran-women-soccer.html
+
 **Oil Falls and Stocks Rise After a Day of Drastic Swings**\
 `The price of oil had spiked to nearly $120 a barrel on Monday, drawing remarks by President Trump that he believed the war on Iran was “very complete.”`\
 https://nytimes.com/2026/03/10/business/stocks-oil-markets-iran.html
