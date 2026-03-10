@@ -1,4 +1,8 @@
 **Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
+`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
+https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
+
+**Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
 `Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC.`\
 https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
 

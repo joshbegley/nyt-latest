@@ -1,3 +1,7 @@
+**Smartmatic Says It’s a Target of Vindictive Prosecution by Trump**\
+`The voting technology company’s new court filing signals how far-reaching the legal fights over elections will be in 2026.`\
+https://nytimes.com/2026/03/10/us/politics/smartmatic-trump-indictment-vindictive-prosecution.html
+
 **Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
 `Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
 https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7104129/2026/03/10/mariners-randy-arozarena-cal-ral
 **Former Premier League footballer Joey Barton charged after alleged assault**\
 `A man was taken to hospital with injuries to his face and ribs, police said in a statement.`\
 https://nytimes.com/athletic/7104087/2026/03/10/joey-barton-arrested-charged-fight-golf-club/
-
-**How guidance from Will Smith could help promising Dalton Rushing thrive for Dodgers**\
-`Dalton struggled as a rookie adjusting to limited playing time: "Now I'm hoping for light."`\
-https://nytimes.com/athletic/7101777/2026/03/10/dodgers-catchers-will-smith-dalton-rushing/
 

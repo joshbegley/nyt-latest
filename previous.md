@@ -1,5 +1,5 @@
 **Duke PG Caleb Foster out for 'foreseeable' future with fractured right foot**\
-`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC.`\
+`Foster suffered the injury with under five minutes remaining in the first half Saturday against UNC and underwent surgery Sunday.`\
 https://nytimes.com/athletic/7104332/2026/03/10/duke-basketball-caleb-foster-fractured-foot/
 
 **Lu Dort apologizes to Nikola Jokić after second flagrant foul in 10 days**\
