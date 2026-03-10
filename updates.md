@@ -1,3 +1,7 @@
+**The BookKeeper: Exploring Arsenal's latest finances, wages vs rivals, KSE funding, player sales**\
+`We examine Arsenal accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
+https://nytimes.com/athletic/7081216/2026/03/10/bookkeeper-arsenal-finances-kse-wages/
+
 **Manchester United's lack of width - and how to fix it**\
 `There has been much to admire since Carrick took charge at Old Trafford but there is one area to address - out wide`\
 https://nytimes.com/athletic/7078702/2026/03/10/manchester-united-michael-carrick-problem-width/
