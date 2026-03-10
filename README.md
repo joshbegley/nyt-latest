@@ -1,3 +1,7 @@
+**Running back Isiah Pacheco agrees to free-agent deal with Lions**\
+`Pacheco was the top rusher for a pair of Chiefs Super Bowl-winning teams before injuries slowed him down the last two seasons.`\
+https://nytimes.com/athletic/7087872/2026/03/10/isiah-pacheco-lions-nfl-free-agency-2026/
+
 **How to watch Mavericks vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104912/2026/03/10/mavericks-vs-hawks-stream-how-to-watch-march-10/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7104901/2026/03/10/celtics-vs-spurs-stream-how-to-w
 **A.I. Incites a New Wave of Grieving Parents Fighting for Online Safety**\
 `Blaming chatbots, they are joining an earlier push for better protections by parents who say social media contributed to their children’s deaths.`\
 https://nytimes.com/2026/03/10/technology/ai-social-media-child-safety-parents.html
-
-**How to watch Suns vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7104895/2026/03/10/suns-vs-bucks-stream-how-to-watch-march-10/
 
