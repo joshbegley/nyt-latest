@@ -1,3 +1,11 @@
+**A Family Home in Milan’s Design District**\
+`The husband and wife Mario Milana and Gabriella Campagna walk us through their 4,000-square-foot Milan apartment, which is filled with colorful furniture and prototypes that Milana designed himself.`\
+https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
+
+**Why did Spurs substitute their goalkeeper after 17 minutes in UCL tie?**\
+`The north London side went 4-0 down in their Champions League tie against Atletico Madrid in 23 minutes on Tuesday.`\
+https://nytimes.com/athletic/7105540/2026/03/10/kinsky-tottenham-substitute-goalkeeper-champions-league/
+
 **Imprisoned in Iran, and Under Bombardment**\
 `Iranian detention centers, some holding people swept up in a government crackdown on protests along with other prisoners, have been damaged in the U.S.-Israeli airstrikes.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-prisoners-airstrikes.html

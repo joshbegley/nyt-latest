@@ -1,3 +1,11 @@
+**A Family Home in Milan’s Design District**\
+`The husband and wife Mario Milana and Gabriella Campagna walk us through their 4,000-square-foot Milan apartment, which is filled with colorful furniture and prototypes that Milana designed himself.`\
+https://nytimes.com/video/t-magazine/100000010766501/a-family-home-in-milans-design-district.html
+
+**Why did Spurs substitute their goalkeeper after 17 minutes in UCL tie?**\
+`The north London side went 4-0 down in their Champions League tie against Atletico Madrid in 23 minutes on Tuesday.`\
+https://nytimes.com/athletic/7105540/2026/03/10/kinsky-tottenham-substitute-goalkeeper-champions-league/
+
 **Imprisoned in Iran, and Under Bombardment**\
 `Iranian detention centers, some holding people swept up in a government crackdown on protests along with other prisoners, have been damaged in the U.S.-Israeli airstrikes.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-prisoners-airstrikes.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/7105417/2026/03/10/chargers-free-agency-reset-offen
 **Why Did Trump Start This War?**\
 `Was war in Iran inevitable? A former Trump official Nadia Schadlow argues Iran’s nuclear threat could not be ignored. She makes her case on this episode of “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010758678/why-did-trump-start-this-war.html
-
-**Geno Smith is different now. So are the Jets. Does this reunion make sense?**\
-`Ten years — and one career revival — after his last snap with the Jets, Geno Smith returns to the team that drafted him.`\
-https://nytimes.com/athletic/7105326/2026/03/10/geno-smith-jets-trade-raiders-reunion-nfl/
-
-**'I never felt that pain before in my life' - Arsenal's Havertz on injury anguish**\
-`The 26-year-old Germany international sustained two major injuries last year: a torn hamstring in February and a knee injury in August.`\
-https://nytimes.com/athletic/7105441/2026/03/10/kai-havertz-arsenal-injury-fitness/
 
