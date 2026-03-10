@@ -1,3 +1,11 @@
+**How to watch Idaho vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7106110/2026/03/10/idaho-vs-eastern-washington-stream-how-to-watch-march-10/
+
+**How Enmanuel De Jesus emerged as a serious candidate to make Tigers roster**\
+`After spending two seasons in Korea, De Jesus, 29, is a different pitcher from the lefty who appeared in two games for the Marlins in 2023.`\
+https://nytimes.com/athletic/7105677/2026/03/10/tigers-enmanuel-de-jesus-roster-candidate-venezuela/
+
 **Orlando City target Griezmann confirms he will stay at Atletico until the summer**\
 `"We'll see but the idea is to stay until the end, and then others can speak."`\
 https://nytimes.com/athletic/7106035/2026/03/10/antoine-griezmann-atletico-madrid-future-mls-orlando/
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/7105871/2026/03/10/kinsky-tottenham-champions-leagu
 **Bumblebee Queens Can Breathe Underwater**\
 `A new study offers clues as to how the insects survive flooding as they emerge from a hibernation-like phase every winter.`\
 https://nytimes.com/2026/03/10/science/bumlebees-queens-underwater-breathe.html
-
-**By signing Jesús Luzardo, Phillies quadruple down on their rotation**\
-`Wheeler, Nola, Sánchez and now Luzardo. The Phillies, unlike most teams, have embraced expensive, long-term rotation contracts.`\
-https://nytimes.com/athletic/7105787/2026/03/10/phillies-rotation-jesus-luzardo-contract-extension/
-
-**Browns agree to sign G Elgton Jenkins, continue to remake O-line: Source**\
-`The two-time Pro Bowler has spent all seven years of his career as a starter in Green Bay. `\
-https://nytimes.com/athletic/7105805/2026/03/10/elgton-jenkins-browns-nfl-free-agency-2026/
 
