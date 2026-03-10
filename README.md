@@ -1,4 +1,8 @@
-**Running back Isiah Pacheco agrees to free-agent deal with Lions**\
+**4 Continents in 62 Hours: How One American Got Out of Qatar**\
+`When conflict broke out in the Middle East, thousands of travelers were stranded. We followed an American doctor on his epic journey to get home.`\
+https://nytimes.com/2026/03/10/travel/canceled-flights-middle-east-iran-war.html
+
+**Running back Isiah Pacheco agrees to free-agent deal with Lions: Source**\
 `Pacheco was the top rusher for a pair of Chiefs Super Bowl-winning teams before injuries slowed him down the last two seasons.`\
 https://nytimes.com/athletic/7087872/2026/03/10/isiah-pacheco-lions-nfl-free-agency-2026/
 
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7104905/2026/03/10/wizards-vs-heat-stream-how-to-wa
 **How to watch Celtics vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Boston Celtics play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7104901/2026/03/10/celtics-vs-spurs-stream-how-to-watch-march-10/
-
-**A.I. Incites a New Wave of Grieving Parents Fighting for Online Safety**\
-`Blaming chatbots, they are joining an earlier push for better protections by parents who say social media contributed to their children’s deaths.`\
-https://nytimes.com/2026/03/10/technology/ai-social-media-child-safety-parents.html
 
