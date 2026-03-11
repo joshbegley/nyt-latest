@@ -1,3 +1,7 @@
+**Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
+`His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
+https://nytimes.com/2026/03/11/books/peter-schneider-dead.html
+
 **THE AGELESS ICON: CELEBRATING HAIR AT EVERY AGE**\
 `Did you know your hair ages just like your skin?  Over time, the texture, density, volume and moisture levels of hair gradually change. Yet aging hair has long been misunderstood, without the kind of evolving regimens and targeted solutions we expect from skincare.`\
 https://nytimes.com/paidpost/kerastase/the-ageless-icon-celebrating-hair-at-every-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/middleeast/iran-war-costs-pentagon.html
 **MLB players union continues leadership shuffle, naming new general counsel**\
 `The Major League Baseball Players Association has promoted Jeff Perconte ahead of the expected start of labor negotiations soon. `\
 https://nytimes.com/athletic/7108972/2026/03/11/mlbpa-leadership-new-general-counsel/
-
-**With Kyler Murray plan, Vikings coach Kevin O'Connell is making a brash statement**\
-`O'Connell and Murray could join forces to try to bring out the best in one another, prove their worth and force the NFL to take notice.`\
-https://nytimes.com/athletic/7108529/2026/03/11/kyler-murray-vikings-kevin-oconnell/
 

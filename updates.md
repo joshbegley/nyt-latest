@@ -1,3 +1,7 @@
+**Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
+`His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
+https://nytimes.com/2026/03/11/books/peter-schneider-dead.html
+
 **THE AGELESS ICON: CELEBRATING HAIR AT EVERY AGE**\
 `Did you know your hair ages just like your skin?  Over time, the texture, density, volume and moisture levels of hair gradually change. Yet aging hair has long been misunderstood, without the kind of evolving regimens and targeted solutions we expect from skincare.`\
 https://nytimes.com/paidpost/kerastase/the-ageless-icon-celebrating-hair-at-every-age.html
