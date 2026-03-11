@@ -1,3 +1,15 @@
+**The Pulse: 83 points? Him?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7105594/2026/03/11/bam-adebayo-83-points-the-pulse/
+
+**What do other extensions mean for Mets' Freddy Peralta?**\
+`Jesús Luzardo recently signed a five-year, $135 million extension, providing a glimpse at the market for starting pitchers.`\
+https://nytimes.com/athletic/7104953/2026/03/11/mets-freddy-peralta-extension/
+
+**Arsenal quadruple odds: Can Mikel Arteta's team win all four trophies?**\
+`Mikel Arteta's side are still in contention for the Premier League, Champions League, Carabao Cup and FA Cup`\
+https://nytimes.com/athletic/7107417/2026/03/11/arsenal-quadruple-betting-odds/
+
 **Matt Vasgersian to call MLB's Netflix debut, NBC's Opening Day broadcast**\
 `Vasgersian is expected to be on play-by-play for Netflix's debut when the Yankees face the Giants in San Francisco on Wednesday at 8 p.m.`\
 https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netflix-nbc-peacock-mlb/
