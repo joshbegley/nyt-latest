@@ -1,3 +1,7 @@
+**Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
+`Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round of 16 tie`\
+https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
+
 **Jets agree to terms with ex-Raider Dylan Parham, likely new starter at guard: Source**\
 `After losing two guards in free agency, the Jets turned to Parham, a starter in Vegas since entering the NFL in 2022.`\
 https://nytimes.com/athletic/7109493/2026/03/11/dylan-parham-jets-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7108805/2026/03/11/nfl-accelerator-diversity/
 **Will Trump TACO on Iran?**\
 `It’s a crucial election year and economic and political costs of the war are rising. It won’t be easy for the president to declare victory and walk away.`\
 https://nytimes.com/2026/03/11/world/trump-iran-oil-britain-starmer-mandelson.html
-
-**Starmer Was Warned of ‘Reputational Risk’ of Making Friend of Epstein the Ambassador to U.S.**\
-`Documents released by the U.K. government on Wednesday showed that Prime Minister Keir Starmer was told of Peter Mandelson’s ties to the sex offender Jeffrey Epstein.`\
-https://nytimes.com/2026/03/11/world/europe/mandelson-files-epstein-starmer-us.html
 
