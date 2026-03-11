@@ -1,3 +1,7 @@
+**New Iranian Leader Was Wounded Early in the War, Iranian and Israeli Officials Say**\
+`Officials say Mojtaba Khamanei’s legs were hurt, but the circumstances as well as the extent of his injuries were unclear. He has remained out of view since being named leader three days ago.`\
+https://nytimes.com/2026/03/11/world/middleeast/khamenei-iran-leader-injured.html
+
 **Red Wings suffer costly loss with blown lead, Andrew Copp injury: 5 thoughts**\
 `On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
 https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
