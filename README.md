@@ -1,3 +1,11 @@
+**How to watch Providence vs. Butler men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Providence Friars play the Butler Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107643/2026/03/11/providence-vs-butler-stream-how-to-watch-march-11/
+
+**Nmecha extends Borussia Dortmund contract until 2030**\
+`The midfielder's previous contract was due to expire in 2028.`\
+https://nytimes.com/athletic/7107552/2026/03/11/felix-nmecha-borussia-dortmund-contract/
+
 **Trump Administration Live Updates: Global Entry Program to Be Restored After Shutdown Pause**\
 ``\
 https://nytimes.com/live/2026/03/11/us/trump-news
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum
 **Microsoft Takes a Stand Against the Trump Administration**\
 `The technology giant’s siding with Anthropic in its fight against the Pentagon stands out in an era when big companies have tended to keep quiet.`\
 https://nytimes.com/2026/03/11/business/dealbook/microsoft-anthropic-pentagon.html
-
-**Ukraine Says It Hit Key Russian Electronics Plant; Russia Reports Deaths**\
-`The attack highlighted how Ukraine remains capable of hitting high-value targets inside Russia.`\
-https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-missiles.html
-
-**Savile song shame for English game. Plus: Kinsky howlers as Spurs crumble**\
-`Today in TAFC: The unspoken shame about sex offender chanting blighting English game. Plus: Champions League fallout as Spurs crumble`\
-https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-tottenham/
 
