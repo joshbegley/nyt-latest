@@ -1,3 +1,15 @@
+**Jimmy Savile chants: English football's unspoken shame**\
+`Songs referencing one of the UK's most notorious sex offenders provide a toxic soundtrack to Leeds United matches`\
+https://nytimes.com/athletic/7103942/2026/03/11/jimmy-savile-leeds-chants/
+
+**Leeds urge authorities to treat Jimmy Savile songs as tragedy chants**\
+`Songs referencing Savile, one of the UK’s most notorious sex offenders, have regularly been sung at Leeds matches since his death in 2011.`\
+https://nytimes.com/athletic/7104535/2026/03/11/leeds-jimmy-savile-chants/
+
+**Desperate Spurs now have one task left this season: Survive in the Premier League**\
+`Tottenham would surely trade another sound beating next Wednesday for four points from the next two league games in their relegation battle`\
+https://nytimes.com/athletic/7106584/2026/03/11/tottenham-champions-league-atletico-tudor-relegation/
+
 **Should Parents Be Held Responsible for School Shootings?**\
 `Prosecuting parents for the actions of their children is becoming more common in the push for accountability after mass shootings. Do you support the tactic?`\
 https://nytimes.com/2026/03/11/learning/should-parents-be-held-responsible-for-school-shootings.html
