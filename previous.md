@@ -1,3 +1,7 @@
+**The Weapons of War**\
+`We have a guide to the primary weapons being used in the current conflict.`\
+https://nytimes.com/2026/03/11/briefing/the-weapons-of-war.html
+
 **How would a Robert Thomas trade impact the growth of Blues' young forwards?**\
 `Thomas extended his point-streak to seven games Tuesday and continues to be a key cog in the success of his younger teammates.`\
 https://nytimes.com/athletic/7096888/2026/03/11/blues-robert-thomas-trade-young-forwards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netf
 **Democrats Demand Accountability from Hegseth on Iranian School Strike**\
 `A majority of Senate Democrats called on Secretary of Defense Pete Hegseth to disclose whether the U.S. carried out the deadly attack.`\
 https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-strike.html
-
-**Rangers insider: What's next now that the trade deadline has passed?**\
-`Assessing the team’s priorities heading into the summer after a trade deadline that came and went with fewer fireworks than anticipated.`\
-https://nytimes.com/athletic/7105205/2026/03/11/new-york-rangers-nhl-trade-deadline-offseason/
 

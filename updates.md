@@ -1,3 +1,7 @@
+**The Weapons of War**\
+`We have a guide to the primary weapons being used in the current conflict.`\
+https://nytimes.com/2026/03/11/briefing/the-weapons-of-war.html
+
 **How would a Robert Thomas trade impact the growth of Blues' young forwards?**\
 `Thomas extended his point-streak to seven games Tuesday and continues to be a key cog in the success of his younger teammates.`\
 https://nytimes.com/athletic/7096888/2026/03/11/blues-robert-thomas-trade-young-forwards/
