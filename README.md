@@ -1,3 +1,7 @@
+**How would a Robert Thomas trade impact the growth of Blues' young forwards?**\
+`Thomas extended his point-streak to seven games Tuesday and continues to be a key cog in the success of his younger teammates.`\
+https://nytimes.com/athletic/7096888/2026/03/11/blues-robert-thomas-trade-young-forwards/
+
 **Women's NCAA Tournament Bubble Watch: Will Clemson, Iowa State, Virginia make the field?**\
 `Who's in? Who's out? Conference tournaments this week will shape the selection committee's decisions.`\
 https://nytimes.com/athletic/7106638/2026/03/11/womens-ncaa-tournament-bubble-watch-clemson/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-s
 **Rangers insider: What's next now that the trade deadline has passed?**\
 `Assessing the team’s priorities heading into the summer after a trade deadline that came and went with fewer fireworks than anticipated.`\
 https://nytimes.com/athletic/7105205/2026/03/11/new-york-rangers-nhl-trade-deadline-offseason/
-
-**To build a Final Four contender, Illinois basketball looked 5,000 miles east — to the Balkans**\
-`Illinois has become college basketball's Balkan hub. It was years in the making to get there.`\
-https://nytimes.com/athletic/7105831/2026/03/11/illinois-basketball-balkan-players-brad-underwood/
 
