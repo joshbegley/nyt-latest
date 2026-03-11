@@ -1,3 +1,11 @@
+**He's 52, he made his Paralympic debut in 1988, and he's back for one more ride**\
+`Australian Alpine skier Michael Milton is back competing having initially retired from skiing in 2006 with 11 Paralympic medals to his name.`\
+https://nytimes.com/athletic/7104124/2026/03/11/winter-paralympics-michael-milton-australia-52/
+
+**Declan Farmer, the Tom Brady of U.S. sled hockey, is ready to make more history**\
+`Farmer is one of U.S. sled hockey's most celebrated players and is aiming to guide his country to a fifth-straight Paralympic title. `\
+https://nytimes.com/athletic/7104536/2026/03/11/declan-farmer-us-sled-hockey-paralympics-profile/
+
 **Jimmy Savile chants: English football's unspoken shame**\
 `Songs referencing one of the UK's most notorious sex offenders provide a toxic soundtrack to Leeds United matches`\
 https://nytimes.com/athletic/7103942/2026/03/11/jimmy-savile-leeds-chants/
