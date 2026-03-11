@@ -1,3 +1,7 @@
+**Orlando City parts ways with manager Pareja amid club's Griezmann pursuit**\
+`Orlando City has no points and a league-worst goal differential through three games in MLS this season`\
+https://nytimes.com/athletic/7108871/2026/03/11/oscar-pareja-fired-orlando-city-manager-griezmann-mls/
+
 **Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
 `His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
 https://nytimes.com/2026/03/11/books/peter-schneider-dead.html

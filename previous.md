@@ -1,3 +1,7 @@
+**Orlando City parts ways with manager Pareja amid club's Griezmann pursuit**\
+`Orlando City has no points and a league-worst goal differential through three games in MLS this season`\
+https://nytimes.com/athletic/7108871/2026/03/11/oscar-pareja-fired-orlando-city-manager-griezmann-mls/
+
 **Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
 `His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
 https://nytimes.com/2026/03/11/books/peter-schneider-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109386/2026/03/11/bradley-chubb-bills-nfl-free-age
 **Pentagon Tells Congress First Week of Iran War Cost More Than $11.3 Billion**\
 `In a Capitol Hill briefing, officials gave their most comprehensive assessment of the cost of the first six days of the war, but the number omitted several aspects of the operation.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-war-costs-pentagon.html
-
-**MLB players union continues leadership shuffle, naming new general counsel**\
-`The Major League Baseball Players Association has promoted Jeff Perconte ahead of the expected start of labor negotiations soon. `\
-https://nytimes.com/athletic/7108972/2026/03/11/mlbpa-leadership-new-general-counsel/
 
