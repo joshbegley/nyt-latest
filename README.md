@@ -1,3 +1,11 @@
+**Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
+`The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
+https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
+
+**Angelika Saleh, the Angelika of Angelika Film Center, Dies at 90**\
+`After making the journey from prewar Germany to Madison Avenue opulence, she gave her name to one of New York’s most influential indie cinemas.`\
+https://nytimes.com/2026/03/11/movies/angelika-saleh-dead.html
+
 **Scoop City: Ravens surprise Maxx Crosby trade becomes historic stunner**\
 `This situation is a blend of star power, draft capital, free agency and a reneged deal unlike anything we've seen`\
 https://nytimes.com/athletic/7108727/2026/03/11/ravens-surprise-trade-for-raiders-edge-maxx-crosby-becomes-historic-stunner/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-ag
 **Team USA's Caroline Harvey, Abbey Murphy, Tessa Janecke named Patty Kazmaier Award finalists**\
 `The 2026 Patty Kazmaier Award winner will be announced on March 21, during the NCAA Frozen Four weekend hosted at Penn State.`\
 https://nytimes.com/athletic/7108506/2026/03/11/patty-kazmaier-award-finalists-2026/
-
-**Hawaii Faces Flooding, Fierce Winds and Even Snow from a ‘High-Impact’ Storm**\
-`The storm, called a kona low, is expected to churn slowly across the islands all week.`\
-https://nytimes.com/2026/03/11/weather/hawaii-kona-storm.html
-
-**Ghiroli: Mark DeRosa 'misspoke,' and now Team USA's manager must face more scrutiny**\
-`Video of Mark DeRosa's ill-fated comments was restored to the league's website after it had been taken down.`\
-https://nytimes.com/athletic/7108429/2026/03/11/mark-derosa-team-usa-cover-up/
 
