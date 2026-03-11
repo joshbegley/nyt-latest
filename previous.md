@@ -1,3 +1,7 @@
+**Trump Administration to Restart Global Entry Program**\
+`The program for people traveling internationally, set to come back online at 5 a.m. Wednesday, had been paused amid the shutdown of the Homeland Security Department.`\
+https://nytimes.com/2026/03/10/us/politics/global-entry-dhs-shutdown.html
+
 **Johnson accused of fraud over $500k 'secret' payment from GST**\
 `It was made when Johnson allegedly already knew that insufficient funds were in place to pay competing athletes in his start-up competition.`\
 https://nytimes.com/athletic/7105017/2026/03/10/michael-johnson-grand-slam-track-vendor-fraud/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/world/americas/haiti-moise-assassination-trial.ht
 **In Marjorie Taylor Greene’s District, a Trump-Backed Candidate Advances**\
 `Clayton Fuller will face Shawn Harris, a Democrat, in an April runoff. Mr. Fuller’s win over a flashier Republican showed the power of the president’s support.`\
 https://nytimes.com/2026/03/10/us/georgia-election-marjorie-taylor-greene.html
-
-**Woman Found Innocent After 22 Years in Prison Will Not Be Deported**\
-`Carmen Mejia was cleared of murder in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. Federal officials said she will be allowed to stay in the U.S.`\
-https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
 
