@@ -1,3 +1,11 @@
+**The 366-mile blunder: Barcelona fan travels to the wrong St James Park**\
+`Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
+https://nytimes.com/athletic/7107805/2026/03/11/barcelona-fan-st-james-park-exeter/
+
+**Syracuse men's basketball coaching candidates: Bryan Hodgson, Josh Schertz … or Gerry McNamara?**\
+`Syracuse is mired in a five-year postseason drought, but  one right hire can turn a program around fast in this era of the sport.`\
+https://nytimes.com/athletic/7107785/2026/03/11/syracuse-basketball-coaching-candidates-hodgson-mcnamara-schertz/
+
 **The Bucks' rotations have been in question. What moves can be made in the closing weeks?**\
 `"If you're playing well, you play. Defensively, you have to be good, as well. And if not, you don't play," Bucks coach Doc Rivers said.`\
 https://nytimes.com/athletic/7102014/2026/03/11/bucks-rotations-giannis-doc-rivers-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7107568/2026/03/11/trey-hendrickson-maxx-crosby-rav
 **Overnight talks fail to result in new WNBA collective bargaining agreement: Reports**\
 `The league and players' union met for nearly 10 hours overnight Tuesday and into Wednesday morning, per reports.`\
 https://nytimes.com/athletic/7107636/2026/03/11/wnba-union-collective-bargaining-agreement-overnight-talks/
-
-**Dodgers mailbag: Roki Saski's status, Tommy Edman's health and the Opening Day roster**\
-`How is Sasaki's relationship with the coaches? Do the Dodgers care about 100 wins? Where does River Ryan fit in? It's time for answers. `\
-https://nytimes.com/athletic/7103294/2026/03/11/dodgers-roki-sasaki-opening-day-roster/
-
-**Teens Don’t Need No Thought Control**\
-`The high schoolers fighting back against tech use.`\
-https://nytimes.com/2026/03/11/opinion/teens-tech-skeptics.html
 

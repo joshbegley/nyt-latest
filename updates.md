@@ -1,3 +1,7 @@
+**The Bucks' rotations have been in question. What moves can be made in the closing weeks?**\
+`"If you're playing well, you play. Defensively, you have to be good, as well. And if not, you don't play," Bucks coach Doc Rivers said.`\
+https://nytimes.com/athletic/7102014/2026/03/11/bucks-rotations-giannis-doc-rivers-nba/
+
 **He Escaped Gangs. Now He's Dodging ICE.**\
 `An undocumented teen's harrowing past explains what brought him to America.`\
 https://nytimes.com/interactive/2026/03/11/opinion/ice-honduras-gangs-separation-chapter5.html
