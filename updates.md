@@ -1,3 +1,11 @@
+**FIFA president says he has Trump's assurances Iran will be welcome at World Cup**\
+`Trump said in an interview last week that he didn't care if Iran participated in this summer's competition.`\
+https://nytimes.com/athletic/7107019/2026/03/11/trump-fifa-infantino-iran-welcome-world-cup/
+
+**How the NBA world reacted to Bam Adebayo's 83-point game**\
+`Adebayo's game caught the attention of many around the league.`\
+https://nytimes.com/athletic/7106805/2026/03/11/bam-adebayo-83-point-game-reaction/
+
 **Here’s the latest.**\
 `By John Ismay, Eric Schmitt, Qasim Nauman and Ephrat Livni`\
 https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/heres-the-latest
