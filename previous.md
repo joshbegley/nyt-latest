@@ -1,3 +1,7 @@
+**USMNT to be based at Irvine's Great Park in California for 2026 World Cup**\
+`With all three group games taking place out west, the U.S. will set up shop at Great Park Sports Complex`\
+https://nytimes.com/athletic/7027597/2026/03/10/usmnt-2026-world-cup-training-base-irvine-california/
+
 **Clue Examiner**\
 `Chances are you’ll figure out what John Guzzetta’s puzzle is all about.`\
 https://nytimes.com/2026/03/10/crosswords/daily-puzzle-2026-03-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7105017/2026/03/10/michael-johnson-grand-slam-track
 **How Trump and His Advisers Miscalculated Iran’s Response to War**\
 `In the lead-up to the U.S.-Israeli attack, President Trump downplayed the risks to the energy markets as a short-term concern that should not overshadow the mission to decapitate the Iranian regime.`\
 https://nytimes.com/2026/03/10/us/politics/how-trump-miscalculated-iran-response.html
-
-**Bondi Is Said to Move to Military Housing Because of Threats**\
-`The attorney general relocated from a Washington apartment to a base in the area within the past month, according to people familiar with the situation.`\
-https://nytimes.com/2026/03/10/us/politics/bondi-military-housing-threats.html
 

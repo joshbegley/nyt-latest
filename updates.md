@@ -1,3 +1,7 @@
+**USMNT to be based at Irvine's Great Park in California for 2026 World Cup**\
+`With all three group games taking place out west, the U.S. will set up shop at Great Park Sports Complex`\
+https://nytimes.com/athletic/7027597/2026/03/10/usmnt-2026-world-cup-training-base-irvine-california/
+
 **Clue Examiner**\
 `Chances are you’ll figure out what John Guzzetta’s puzzle is all about.`\
 https://nytimes.com/2026/03/10/crosswords/daily-puzzle-2026-03-11.html

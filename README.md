@@ -1,3 +1,7 @@
+**Cowboys, QB Sam Howell agree on 1-year deal: Source**\
+`Howell joins a crowded Cowboys QB room that includes starter Dak Prescott, backup Joe Milton and Will Grier.`\
+https://nytimes.com/athletic/7106660/2026/03/10/sam-howell-cowboys-nfl-free-agency-2026/
+
 **USMNT to be based at Irvine's Great Park in California for 2026 World Cup**\
 `With all three group games taking place out west, the U.S. will set up shop at Great Park Sports Complex`\
 https://nytimes.com/athletic/7027597/2026/03/10/usmnt-2026-world-cup-training-base-irvine-california/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/us/politics/global-entry-dhs-shutdown.html
 **Michael Johnson accused of fraud over $500k 'secret' payment from GST**\
 `It was made when Johnson allegedly already knew that insufficient funds were in place to pay competing athletes in his start-up competition.`\
 https://nytimes.com/athletic/7105017/2026/03/10/michael-johnson-grand-slam-track-vendor-fraud/
-
-**How Trump and His Advisers Miscalculated Iran’s Response to War**\
-`In the lead-up to the U.S.-Israeli attack, President Trump downplayed the risks to the energy markets as a short-term concern that should not overshadow the mission to decapitate the Iranian regime.`\
-https://nytimes.com/2026/03/10/us/politics/how-trump-miscalculated-iran-response.html
 
