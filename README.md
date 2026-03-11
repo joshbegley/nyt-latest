@@ -1,3 +1,11 @@
+**Republicans Concede They Need a Pivot on Immigration Ahead of Midterms**\
+`In public comments and private meetings at a House G.O.P. retreat, top officials allowed that President Trump’s immigration crackdown had hurt the party and that they needed a course correction on the issue.`\
+https://nytimes.com/2026/03/11/us/politics/house-republicans-immigration-midterms.html
+
+**Trump Wants to Bend Iran. Netanyahu Wants to Break It.**\
+`American goals are starting to conflict with Israel’s.`\
+https://nytimes.com/2026/03/11/opinion/international-world/iran-trump-netanyahu-israel.html
+
 **Daryl Hannah’s Objections to ‘Love Story’**\
 `Readers respond to Daryl Hannah’s guest essay about a TV series’ portrayal of her. Also: Remembering a visit to Iran; an exercise plan for life.`\
 https://nytimes.com/2026/03/11/opinion/daryl-hannahs-objections.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/sports/jan-timman-dead.html
 **NWSL, NWSLPA announce new trading card partnership with Panini**\
 `The NWSL trading card licenses moving to Panini could bring heightened interest and value for the league's collectibles. `\
 https://nytimes.com/athletic/7107987/2026/03/11/panini-nwsl-trading-cards-deal/
-
-**Team Italy standouts Kyle Teel, Sam Antonacci inspire hope for White Sox**\
-`The big hits by Teel and Antonacci against Team USA were further proof that the White Sox could be heading in the right direction.`\
-https://nytimes.com/athletic/7108265/2026/03/11/teel-antonacci-italy-world-baseball-classic-white-sox/
-
-**PGA Tour schedule changes are coming. What to know about Brian Rolapp's vision**\
-`The top-performing players will play on one tour, which Rolapp coined the “first track.”`\
-https://nytimes.com/athletic/7108743/2026/03/11/pga-tour-schedule-changes-brian-rolapp/
 
