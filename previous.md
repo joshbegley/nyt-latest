@@ -1,5 +1,5 @@
 **Grading Panthers' first wave of free agency: High marks for Jaelan Phillips, Devin Lloyd**\
-`Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with their other additions.`\
+`Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with its other additions.`\
 https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jaelan-phillips/
 
 **Initial Military Investigation Faults the U.S. For a School Strike in Iran**\

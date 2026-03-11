@@ -1,3 +1,15 @@
+**Ravens GM Eric DeCosta 'gutted' that trade for Maxx Crosby fell through**\
+`“Nobody’s more upset about this than me," DeCosta said. “And so a regret, a big regret for me, but we will move on." `\
+https://nytimes.com/athletic/7109163/2026/03/11/ravens-eric-decosta-maxx-crosby-trade/
+
+**Ex-Officer Who Took Nude Images From Phones in Traffic Stops Is Sentenced**\
+`The former Missouri police officer, Julian Alcala, was sentenced to two years in prison and now faces civil lawsuits from several of the 20 victims the authorities identified.`\
+https://nytimes.com/2026/03/11/us/missouri-police-nude-photo-sentencing.html
+
+**Ex-Michigan assistant Chris Partridge files lawsuit over 2023 firing**\
+`Partridge was fired amid the NCAA and Big Ten investigations into the Connor Stalions sign-stealing saga at Michigan in 2023.`\
+https://nytimes.com/athletic/7109501/2026/03/11/chris-partridge-michigan-football-lawsuit/
+
 **Grading Panthers' first wave of free agency: High marks for Jaelan Phillips, Devin Lloyd**\
 `Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with its other additions.`\
 https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jaelan-phillips/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7109493/2026/03/11/dylan-parham-jets-free-agency-20
 **At Least Three Ships Struck Around Strait of Hormuz**\
 `At least three ships were hit in and around the Persian Gulf on Wednesday, according to a British maritime monitoring group. Iran appeared to claim responsibility for the attack on the Mayuree Naree.`\
 https://nytimes.com/video/world/middleeast/100000010768971/iran-war-oil-strait-of-hormuz.html
-
-**Rory McIlroy a 'game-time decision' for The Players Championship**\
-`McIlroy, the defending champion, arrived at TPC Sawgrass around 2 p.m. Wednesday.`\
-https://nytimes.com/athletic/7109471/2026/03/11/rory-mcilroy-players-championship-injury-status/
-
-**State of the Blues: Tom Stillman on the trade deadline, Doug Armstrong and what comes next**\
-`Blues chairman Tom Stillman says the reality of the team's 2025-26 season led to veterans being traded and reliance on younger players.`\
-https://nytimes.com/athletic/7109045/2026/03/11/blues-trade-deadline-tom-stillman-interview/
-
-**Stephen Koch, 84, Dies; Champion of a Belatedly Hailed Photographer**\
-`A writer and critic, Mr. Koch struggled for years to shepherd his friend Peter Hujar’s underappreciated, Bohemian-world artwork to posthumous glory.`\
-https://nytimes.com/2026/03/11/arts/stephen-koch-dead.html
 
