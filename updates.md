@@ -1,3 +1,11 @@
+**Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
+`The state’s 2028 primary is likely to be important, and is already on the minds of some Democrats.`\
+https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028.html
+
+**Strong or Weak? How Trump Picks His Battles.**\
+`Despite his tough talk, President Trump has consistently made allowances for countries he sees as powerful or dominant.`\
+https://nytimes.com/2026/03/11/us/politics/trump-adversaries-picking-battles.html
+
 **Ravens GM Eric DeCosta 'gutted' that trade for Maxx Crosby fell through**\
 `“Nobody’s more upset about this than me," DeCosta said. “And so a regret, a big regret for me, but we will move on." `\
 https://nytimes.com/athletic/7109163/2026/03/11/ravens-eric-decosta-maxx-crosby-trade/
