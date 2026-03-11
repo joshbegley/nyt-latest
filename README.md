@@ -26,8 +26,8 @@ https://nytimes.com/2026/03/10/world/americas/haiti-moise-assassination-trial.ht
 `Clayton Fuller will face Shawn Harris, a Democrat, in an April runoff. Mr. Fuller’s win over a flashier Republican showed the power of the president’s support.`\
 https://nytimes.com/2026/03/10/us/georgia-election-marjorie-taylor-greene.html
 
-**Woman Found Innocent After 22 Years in Prison Faces Deportation Threat**\
-`Carmen Mejia was cleared of murder this week in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. She is still in jail on an immigration hold.`\
+**Woman Found Innocent After 22 Years in Prison Will Not Be Deported**\
+`Carmen Mejia was cleared of murder in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. Federal officials said she will be allowed to stay in the U.S.`\
 https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
 
 **Maxx Crosby trade off: Raiders say Ravens pulled out of the deal**\
