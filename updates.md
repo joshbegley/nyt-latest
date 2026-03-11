@@ -1,3 +1,11 @@
+**Off the Runway in Paris**\
+`There’s more to fashion week than runway shows. Here, a short list of some high spots.`\
+https://nytimes.com/2026/03/11/style/paris-fashion-week-off-the-runway.html
+
+**Warriors' Kerr still wants NBA to cut down season; says quality of play would improve**\
+`"I think it would be a more competitive and healthier league if we played fewer games," coach Steve Kerr said this week.`\
+https://nytimes.com/athletic/7107827/2026/03/11/steve-kerr-nba-schedule-cut-games/
+
 **Ravens restructure Lamar Jackson's contract, create salary-cap relief: Source**\
 `Jackson, 29, is entering the fourth season of the five-year, $260 million contract extension he signed with Baltimore in 2023.`\
 https://nytimes.com/athletic/7108061/2026/03/11/ravens-lamar-jackson-contract-restructure/

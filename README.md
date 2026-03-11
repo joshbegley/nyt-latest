@@ -1,40 +1,40 @@
-**Off the Runway in Paris**\
-`There’s more to fashion week than runway shows. Here, a short list of some high spots.`\
-https://nytimes.com/2026/03/11/style/paris-fashion-week-off-the-runway.html
+**How to watch UAPB vs. Alcorn State women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Alcorn State Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108218/2026/03/11/uapb-vs-alcorn-state-stream-how-to-watch-march-11/
 
-**Warriors' Kerr still wants NBA to cut down season; says quality of play would improve**\
-`"I think it would be a more competitive and healthier league if we played fewer games," coach Steve Kerr said this week.`\
-https://nytimes.com/athletic/7107827/2026/03/11/steve-kerr-nba-schedule-cut-games/
+**How to watch UC Riverside vs. UCSB women's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the UC Riverside Highlanders play the UCSB Gauchos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108201/2026/03/11/uc-riverside-vs-ucsb-stream-how-to-watch-march-11/
 
-**Ravens restructure Lamar Jackson's contract, create salary-cap relief: Source**\
-`Jackson, 29, is entering the fourth season of the five-year, $260 million contract extension he signed with Baltimore in 2023.`\
-https://nytimes.com/athletic/7108061/2026/03/11/ravens-lamar-jackson-contract-restructure/
+**With Team USA left to sit and watch, Fox moves Italy-Mexico from Tubi to FS1**\
+`By losing Tuesday, Team USA is left to scoreboard watch while Italy plays Mexico in a game that Fox moved to a more prominent TV platform.`\
+https://nytimes.com/athletic/7107967/2026/03/11/world-baseball-classic-italy-mexico-usa-tubi-fs1/
 
-**Where Censored Words Find a Safe Haven: Inside Minecraft**\
-`The Uncensored Library, a digital project that chronicles attacks on journalistic liberty, is adding a U.S. wing alongside those dedicated to Russia, Saudi Arabia and others.`\
-https://nytimes.com/2026/03/11/arts/minecraft-uncensored-library-united-states.html
+**How to watch Missouri State vs. Liberty men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Missouri State Bears play the Liberty Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108196/2026/03/11/missouri-state-vs-liberty-stream-how-to-watch-march-11/
 
-**Can You Prevent or Reverse Gray Hair?**\
-`It’s a question that has perplexed scientists for decades. Here’s what they have untangled so far.`\
-https://nytimes.com/2026/03/11/well/prevent-gray-hair.html
+**Cherry Karpatka**\
+`Karpatka, also known as Polish Mountain cake, gets its name from the Carpathian Mountains, a 1,500-kilometer range that stretches from the Czech Republic to Romania.`\
+https://nytimes.com/video/dining/100000010767642/cherry-karpatka.html
 
-**This Exact Weather Calls for This Exact Soup**\
-`Spring minestrone with kale and pasta is both buoying and satisfying.`\
-https://nytimes.com/2026/03/11/dining/this-exact-weather-calls-for-this-exact-soup.html
+**How to watch Cal vs. Florida State men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the California Golden Bears play the Florida State Seminoles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108191/2026/03/11/cal-vs-florida-state-stream-how-to-watch-march-11/
 
-**Watch how Bam Adebayo scored 83 points and made unlikely history**\
-`Bam Adebayo's historic night was a culmination of an injured roster, a forgiving opponent and new weapons he's added to his game. `\
-https://nytimes.com/athletic/7107820/2026/03/11/bam-adebayo-83-points-heat-video/
+**Joe Rogan Says Trump’s Supporters Feel ‘Betrayed’ by Iran War**\
+`The influential podcast host described the conflict as a sharp reversal from the policies the president had campaigned on.`\
+https://nytimes.com/2026/03/11/us/politics/rogan-trump-iran-war.html
 
-**My New Favorite Oscar Category: Casting**\
-`This year, the Academy Awards will present an Oscar in a new category, best achievement in casting. On his podcast “Cannonball,” Wesley Morris explains why he’s a fan.`\
-https://nytimes.com/video/podcasts/100000010766224/my-new-favorite-oscar-category-casting.html
+**Back-to-back losses reveal Warriors' thin margin of error, even against tanking teams**\
+`Late errors against the Bulls led to one of the Warriors' worst losses of the season on Tuesday night.`\
+https://nytimes.com/athletic/7107716/2026/03/11/warriors-losses-vs-tanking-teams/
 
-**Did ‘the Resistance’ Help or Hurt the Left?**\
-`“You do not get authoritarians to behave better by being meek and gentle and polite,” the author Rebecca Solnit said on “The Interview.” “You get it by being strong.”`\
-https://nytimes.com/video/podcasts/100000010766058/did-the-resistance-help-or-hurt-the-left.html
+**Did ‘America’s Next Top Model’ Exploit Young Black Women’s Pain?**\
+`When Tyra Banks yelled at Tiffany Richardson, a contestant on “America’s Next Top Model,” the writer, editor and stylist Michaela angela Davis heard something revealing. She explained on “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010768711/did-americas-next-top-model-exploit-young-black-womens-pain.html
 
-**‘Everything We Can Save Is Worth Saving’**\
-`On “The Interview,” the writer Rebecca Solnit shared her perspective on tackling climate change and emphasized that it is not too late to take action.`\
-https://nytimes.com/video/podcasts/100000010766139/everything-we-can-save-is-worth-saving.html
+**Canucks notes: Curtis Douglas, the environmental challenge and Vitaly Pinchuk**\
+`Mercifully, only 18 games remain in what's been a historically dreadful season for the Canucks.`\
+https://nytimes.com/athletic/7107060/2026/03/11/vancouver-canucks-curtis-douglas-free-agents-ncaa-khl/
 
