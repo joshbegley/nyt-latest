@@ -1,3 +1,7 @@
+**Why Lewis O'Brien will be key if Wrexham are to keep their play-offs dream alive**\
+`A home defeat to Hull City on Tuesday night has made Wrexham's top-six position in the Championship more precarious`\
+https://nytimes.com/athletic/7100932/2026/03/11/lewis-obrien-wrexham-championship-promotion-race/
+
 **Raise Taxes on the Rich? These Rich New Yorkers Are All for It.**\
 `Mayor Zohran Mamdani says he wants to raise taxes on New Yorkers who earn more than $1 million per year. Some millionaires actually agree with him.`\
 https://nytimes.com/2026/03/11/nyregion/raise-taxes-on-the-rich-these-rich-new-yorkers-are-all-for-it.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/learning/word-of-the-day-inherent.html
 **Mark DeRosa says he ‘misspoke’ after mistakenly saying Team USA had advanced before upset to Italy**\
 `Earlier, the manager incorrectly stated on TV that his team had already clinched a spot in the quarterfinals before resting its stars.`\
 https://nytimes.com/athletic/7107029/2026/03/11/world-baseball-classic-team-usa-mark-derosa-comments/
-
-**FIFA president says he has Trump's assurances Iran will be welcome at World Cup**\
-`Trump said in an interview last week that he didn't care if Iran participated in this summer's competition.`\
-https://nytimes.com/athletic/7107019/2026/03/11/trump-fifa-infantino-iran-welcome-world-cup/
 
