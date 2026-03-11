@@ -1,3 +1,15 @@
+**Desperate Spurs now have one task left this season: to survive in the Premier League**\
+`Tottenham would surely trade another sound beating next Wednesday for four points in the relegation battle`\
+https://nytimes.com/athletic/7106584/2026/03/11/tottenham-champions-league-atletico-tudor-relegation/
+
+**The BookKeeper: Manchester United's £1bn debt – and what it means for a new stadium one year on**\
+`A significant portion of Manchester United's long-term debt is due for refinancing, this is what their borrowings mean for a £2bn project`\
+https://nytimes.com/athletic/7103917/2026/03/11/manchester-united-debt-interest-stadium/
+
+**Late Night Makes Fun of Pete Hegseth’s Fruit Baskets**\
+`The Pentagon reportedly spent lavishly on doughnuts, ice cream machines and stickers — “and despite all that, nobody came to Pete Hegseth’s birthday party,” Stephen Colbert said.`\
+https://nytimes.com/2026/03/11/arts/television/late-night-pete-hegseth.html
+
 **Word of the Day: inherent**\
 `This word has appeared in 664 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/11/learning/word-of-the-day-inherent.html
@@ -22,19 +34,7 @@ https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/heres-t
 `The war in the Middle East has choked tanker traffic through the Strait of Hormuz, a conduit for a fifth of the world’s oil. There was no sign of hostilities easing on Wednesday.`\
 https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel
 
-**Palace have already lost to AEK Larnaca this season. This is how they avoid a last-16 repeat**\
-`The Cypriot side's low block frustrated Oliver Glasner and company as they prevailed 1-0 at Selhurst Park in October's league-phase game`\
-https://nytimes.com/athletic/7101927/2026/03/11/crystal-palace-larnaca-larsen-guessand-johnson/
-
-**Gabriel Gudmundsson is Leeds' dribbling outlier. Can he now add goals and assists?**\
-`The Swede scored one and made another in the FA Cup on Sunday. Doing the same in the top flight could be big in staving off relegation`\
-https://nytimes.com/athletic/7104667/2026/03/11/gabriel-gudmundsson-leeds-dribbling-analysis/
-
-**How the loss of Boubacar Kamara has influenced Unai Emery's selections - even in defence**\
-`The Villa manager is increasingly opting for Tyrone Mings over Pau Torres to provide on-pitch leadership and nullify the threat of counters`\
-https://nytimes.com/athletic/7101008/2026/03/11/aston-villa-emery-kamara-mings-torres/
-
-**Michael Olise: Bayern Munich's genius at work**\
-`The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
-https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
+**Liverpool cannot afford any mistakes at Anfield after wilting in Istanbul against Galatasaray**\
+`If Liverpool deliver in the second leg when Anfield provides the soundtrack then this night will fade into obscurity. But if they don't...`\
+https://nytimes.com/athletic/7104968/2026/03/11/liverpool-galatasaray-champions-league-mistakes-konate-wirtz/
 
