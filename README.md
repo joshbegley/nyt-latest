@@ -1,3 +1,7 @@
+**Bobby Hurley not expected to return as Arizona State men's basketball coach**\
+`Arizona State suffered a huge loss in the second round of the Big 12 tournament on the heels of a disappointing season.`\
+https://nytimes.com/athletic/7102579/2026/03/11/bobby-hurley-arizona-state-basketball-coaching-change/
+
 **Food Stamp Recipients Sue Over Bans on Sugary Drinks**\
 `In suing to halt restrictions in five states, the plaintiffs argued that the Trump administration violated laws authorizing SNAP and governing changes in policies.`\
 https://nytimes.com/2026/03/11/us/politics/usda-sued-snap-soda-ban.html
@@ -6,8 +10,8 @@ https://nytimes.com/2026/03/11/us/politics/usda-sued-snap-soda-ban.html
 `Thousands of Iranians crowded the streets of Tehran on Wednesday to mourn military commanders killed by U.S. and Israeli strikes.`\
 https://nytimes.com/video/world/middleeast/100000010769155/iran-mourning-military-commanders.html
 
-**Bills to sign Bradley Chubb to 3-year deal worth up to $52.5 million: Sources**\
-`Chubb, 29, a seven-year veteran, will help shore up a position of need in Buffalo.`\
+**Bills signing Bradley Chubb to 3-year deal worth up to $52.5 million: Sources**\
+`Chubb, a seven-year veteran who turns 30 in June, is the latest addition brought in to shore up the Buffalo pass rush.`\
 https://nytimes.com/athletic/7109386/2026/03/11/bradley-chubb-bills-nfl-free-agency-2026/
 
 **Pentagon Tells Congress First Week of Iran War Cost More Than $11.3 Billion**\
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/7108529/2026/03/11/kyler-murray-vikings-kevin-oconn
 `The announcement comes with the City Ground club in the middle of a fight to preserve their Premier League status.`\
 https://nytimes.com/athletic/7083960/2026/03/11/nottingham-forest-season-tickets-freeze/
 
-**Falcons release veteran QB Kirk Cousins**\
+**Falcons release veteran QB Kirk Cousins; could Raiders be interested?**\
 `The Falcons released Cousins on the first day of the new league year, a move that GM Ian Cunningham said two weeks ago would happen.`\
 https://nytimes.com/athletic/7086896/2026/03/11/kirk-cousins-falcons-cut-nfl-free-agency/
 
 **Vikings expected to pursue QB Kyler Murray following his release from Cardinals**\
 `Murray was released after seven years with the Cardinals. The Vikings are now expected to target the No. 1 pick in the 2019 draft.`\
 https://nytimes.com/athletic/7091445/2026/03/11/kyler-murray-vikings-nfl-free-agency-2026/
-
-**ICE Lawyer Who Told Judge She Was Overwhelmed Seeks New Role: Lawmaker**\
-`Julie T. Le, a former government lawyer, described in stark terms how overstretched the legal system had become during the administration’s immigration crackdown in Minnesota. Now, she said, she hopes to fix the “system’s failures” by running for Congress.`\
-https://nytimes.com/2026/03/11/us/ice-lawyer-congress-julie-t-le.html
 

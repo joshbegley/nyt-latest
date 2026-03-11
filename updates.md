@@ -1,3 +1,19 @@
+**Food Stamp Recipients Sue Over Bans on Sugary Drinks**\
+`In suing to halt restrictions in five states, the plaintiffs argued that the Trump administration violated laws authorizing SNAP and governing changes in policies.`\
+https://nytimes.com/2026/03/11/us/politics/usda-sued-snap-soda-ban.html
+
+**Iran Holds Day Of Mourning for Deceased Commanders**\
+`Thousands of Iranians crowded the streets of Tehran on Wednesday to mourn military commanders killed by U.S. and Israeli strikes.`\
+https://nytimes.com/video/world/middleeast/100000010769155/iran-mourning-military-commanders.html
+
+**Bills to sign Bradley Chubb to 3-year deal worth up to $52.5 million: Sources**\
+`Chubb, 29, a seven-year veteran, will help shore up a position of need in Buffalo.`\
+https://nytimes.com/athletic/7109386/2026/03/11/bradley-chubb-bills-nfl-free-agency-2026/
+
+**Pentagon Tells Congress First Week of Iran War Cost More Than $11.3 Billion**\
+`In a Capitol Hill briefing, officials gave their most comprehensive assessment of the cost of the first six days of the war, but the number omitted several aspects of the operation.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-war-costs-pentagon.html
+
 **MLB players union continues leadership shuffle, naming new general counsel**\
 `The Major League Baseball Players Association has promoted Jeff Perconte ahead of the expected start of labor negotiations soon. `\
 https://nytimes.com/athletic/7108972/2026/03/11/mlbpa-leadership-new-general-counsel/
