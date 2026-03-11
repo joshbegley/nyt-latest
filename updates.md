@@ -1,3 +1,11 @@
+**Jaylen Brown ejected vs. Spurs after snapping at referee over no-call**\
+`This marks only the second ejection for Brown in his 10-year NBA career.`\
+https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
+
+**Michael Johnson accused of fraud over $500k 'secret' payment from GST**\
+`It was made when Johnson allegedly already knew that insufficient funds were in place to pay competing athletes in his start-up competition.`\
+https://nytimes.com/athletic/7105017/2026/03/10/michael-johnson-grand-slam-track-vendor-fraud/
+
 **Pope Accepts Resignation of U.S. Bishop Charged With Embezzlement**\
 `Bishop Emanuel Shaleta pleaded not guilty to stealing at least $270,000 from the St. Peter Chaldean Catholic Cathedral in El Cajon, Calif.`\
 https://nytimes.com/2026/03/10/us/pope-leo-bishop-resigns-san-diego.html
