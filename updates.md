@@ -1,3 +1,7 @@
+**The Trump Administration Goes to War, by Any Memes Necessary**\
+`A series of White House social-media videos turn the carnage in Iran into gleeful entertainment.`\
+https://nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html
+
 **Bam Adebayo rode free throws to 83 points but there's little shame in it**\
 `The night he scored 83, Bam Adebayo notched another legacy: NBA free-throw king. It was a testament to this era of basketball.`\
 https://nytimes.com/athletic/7106720/2026/03/11/bam-adebayo-free-throws-83-points/
