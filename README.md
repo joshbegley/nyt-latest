@@ -1,3 +1,11 @@
+**Woman Found Innocent After 22 Years in Prison Faces Deportation Threat**\
+`Carmen Mejia was cleared of murder this week in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. She is still in jail on an immigration hold.`\
+https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
+
+**Maxx Crosby trade is off: Raiders say Ravens pulled out of the deal**\
+`Maxx Crosby will apparently not be joining the Ravens, undoing a trade that sent two first-round picks to Las Vegas.`\
+https://nytimes.com/athletic/7106276/2026/03/10/maxx-crosby-trade-ravens-back-out-raiders/
+
 **Roki Sasaki remains the story of Dodgers camp – even on a back field**\
 `An outing on a back field drew a handful of influential spectators, including Dodgers president of baseball operations Andrew Friedman.`\
 https://nytimes.com/athletic/7106014/2026/03/10/dodgers-roki-sasaki-spring-training-camp/
@@ -17,12 +25,4 @@ https://nytimes.com/2026/03/10/world/middleeast/iran-mines-strait-of-hormuz.html
 **Luka Dončić separates from fiancée, to battle for custody of two daughters**\
 `Dončić’s ex-fiancée, Anamaria Goltes, filed a petition seeking child support and attorney fees.`\
 https://nytimes.com/athletic/7106150/2026/03/10/luka-doncic-fiancee-breakup-custody-daughters-lakers/
-
-**Panthers reach 1-year deal with center Luke Fortner: Sources**\
-`Cade Mays reached a deal with the Lions on Monday, so the Panthers quickly turned to Fortner as his likely replacement.`\
-https://nytimes.com/athletic/7106157/2026/03/10/luke-fortner-panthers-nfl-free-agency-2026/
-
-**Linebacker Leo Chenal agrees to deal with Commanders: Source**\
-`Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls during his four seasons.`\
-https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/
 
