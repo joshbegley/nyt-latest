@@ -1,3 +1,7 @@
+**To Pay the Bills, a Cult Band Becomes a Doors Tribute Act**\
+`With even critically acclaimed bands struggling to make a living, the British group Field Music has come up with a novel way to top up its income.`\
+https://nytimes.com/2026/03/11/arts/music/field-music-the-doors.html
+
 **How to watch Kent State vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
 `Find out how to watch the Kent State Golden Flashes play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107380/2026/03/11/kent-state-vs-miami-oh-stream-how-to-watch-march-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107364/2026/03/11/ut-rio-grande-valley-vs-mcneese-
 **How to watch South Carolina State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the South Carolina State Lady Bulldogs play the Howard Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107362/2026/03/11/south-carolina-state-vs-howard-stream-how-to-watch-march-11/
-
-**How to watch Saint Bonaventure vs. La Salle men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Bonaventure Bonnies play the La Salle Explorers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107358/2026/03/11/saint-bonaventure-vs-la-salle-stream-how-to-watch-march-11/
 
