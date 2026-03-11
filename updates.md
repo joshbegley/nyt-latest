@@ -1,3 +1,15 @@
+**Syracuse fires coach Adrian Autry after 3 years: Source**\
+`Syracuse hasn't been to the NCAA Tournament since 2021, the program's longest drought since the early 1970s.`\
+https://nytimes.com/athletic/7104342/2026/03/11/syracuse-basketball-fires-coach-adrian-autry/
+
+**At Least 3 Ships Are Struck In and Around a Key Oil Passage**\
+`Three vessels were hit on Wednesday, according to a British maritime agency. The Strait of Hormuz is all but closed as war in the Middle East expands.`\
+https://nytimes.com/2026/03/11/world/middleeast/ships-attack-strait-hormuz.html
+
+**How do Newcastle beat Barcelona? Repeat their bold, proactive approach at the Camp Nou**\
+`Eddie Howe's side were denied victory in Tuesday's Champions League last-16 first leg, but their positive approach shows a path to progress`\
+https://nytimes.com/athletic/7107381/2026/03/11/newcastle-barcelona-champions-league-tactics/
+
 **West Ham's Summerville targeting injury return vs. Aston Villa**\
 `The 24-year-old sustained a calf injury in the FA Cup fifth-round win over Brentford.`\
 https://nytimes.com/athletic/7107523/2026/03/11/crysencio-summerville-west-ham-injury-return/
