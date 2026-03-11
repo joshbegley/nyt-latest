@@ -1,3 +1,19 @@
+**Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
+`The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
+https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
+
+**Angelika Saleh, the Angelika of Angelika Film Center, Dies at 90**\
+`After making the journey from prewar Germany to Madison Avenue opulence, she gave her name to one of New York’s most influential indie cinemas.`\
+https://nytimes.com/2026/03/11/movies/angelika-saleh-dead.html
+
+**Scoop City: Ravens surprise Maxx Crosby trade becomes historic stunner**\
+`This situation is a blend of star power, draft capital, free agency and a reneged deal unlike anything we've seen`\
+https://nytimes.com/athletic/7108727/2026/03/11/ravens-surprise-trade-for-raiders-edge-maxx-crosby-becomes-historic-stunner/
+
+**Explaining NFL's new league year: What's legal tampering, when can deals become official?**\
+`The NFL league year begins at 4 p.m. ET Wednesday, when teams are allowed to officially sign players and complete trades.`\
+https://nytimes.com/athletic/7108485/2026/03/11/nfl-new-league-year-tampering-free-agency/
+
 **Lebanese residents left in shock and fear as Israeli strikes reach center of Beirut.**\
 `By Sarah Chaayto and Abdi Latif Dahir`\
 https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/lebanese-residents-left-in-shock-and-fear-as-israeli-strikes-reach-center-of-beirut

@@ -1,3 +1,19 @@
+**Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
+`The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
+https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
+
+**Angelika Saleh, the Angelika of Angelika Film Center, Dies at 90**\
+`After making the journey from prewar Germany to Madison Avenue opulence, she gave her name to one of New York’s most influential indie cinemas.`\
+https://nytimes.com/2026/03/11/movies/angelika-saleh-dead.html
+
+**Scoop City: Ravens surprise Maxx Crosby trade becomes historic stunner**\
+`This situation is a blend of star power, draft capital, free agency and a reneged deal unlike anything we've seen`\
+https://nytimes.com/athletic/7108727/2026/03/11/ravens-surprise-trade-for-raiders-edge-maxx-crosby-becomes-historic-stunner/
+
+**Explaining NFL's new league year: What's legal tampering, when can deals become official?**\
+`The NFL league year begins at 4 p.m. ET Wednesday, when teams are allowed to officially sign players and complete trades.`\
+https://nytimes.com/athletic/7108485/2026/03/11/nfl-new-league-year-tampering-free-agency/
+
 **Lebanese residents left in shock and fear as Israeli strikes reach center of Beirut.**\
 `By Sarah Chaayto and Abdi Latif Dahir`\
 https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/lebanese-residents-left-in-shock-and-fear-as-israeli-strikes-reach-center-of-beirut
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-ag
 **Team USA's Caroline Harvey, Abbey Murphy, Tessa Janecke named Patty Kazmaier Award finalists**\
 `The 2026 Patty Kazmaier Award winner will be announced on March 21, during the NCAA Frozen Four weekend hosted at Penn State.`\
 https://nytimes.com/athletic/7108506/2026/03/11/patty-kazmaier-award-finalists-2026/
-
-**Hawaii Faces Flooding, Fierce Winds and Even Snow from a ‘High-Impact’ Storm**\
-`The storm, called a kona low, is expected to churn slowly across the islands all week.`\
-https://nytimes.com/2026/03/11/weather/hawaii-kona-storm.html
-
-**Ghiroli: Mark DeRosa 'misspoke,' and now Team USA's manager must face more scrutiny**\
-`Video of Mark DeRosa's ill-fated comments was restored to the league's website after it had been taken down.`\
-https://nytimes.com/athletic/7108429/2026/03/11/mark-derosa-team-usa-cover-up/
-
-**Ravens get Trey Hendrickson, but Maxx Crosby trade reversal could damage reputation**\
-`Baltimore's decision to "back out" of the Crosby trade and pivot quickly to Hendrickson could have wide-ranging ramifications. `\
-https://nytimes.com/athletic/7107089/2026/03/11/ravens-maxx-crosby-failed-trade-trey-hendrickson/
-
-**Why the NWSL is entering the 2026 season in its healthiest business position ever**\
-`This week's sports business cheat sheet from The Athletic, including an update on the NBA's "Magic City Monday" mishegas.`\
-https://nytimes.com/athletic/7108524/2026/03/11/nwsl-prime-ion-espn-cbs-cvs-moneycall/
 

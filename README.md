@@ -1,3 +1,7 @@
+**PGA Tour schedule changes are coming. What to know about Brian Rolapp's vision**\
+`The top-performing players will play on one tour, which Rolapp coined the “first track.”`\
+https://nytimes.com/athletic/7108743/2026/03/11/pga-tour-schedule-changes-brian-rolapp/
+
 **Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
 `The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
 https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/americas/us-alex-saab-extradition-maduro-al
 **Dehner Jr.: Bengals' Trey Hendrickson drama doesn’t end, it merely changes shape**\
 `The Bengals got some vindication on how they saw the All-Pro's market, but now they have to figure out how to stop him twice a season.`\
 https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-agency-ravens/
-
-**Team USA's Caroline Harvey, Abbey Murphy, Tessa Janecke named Patty Kazmaier Award finalists**\
-`The 2026 Patty Kazmaier Award winner will be announced on March 21, during the NCAA Frozen Four weekend hosted at Penn State.`\
-https://nytimes.com/athletic/7108506/2026/03/11/patty-kazmaier-award-finalists-2026/
 
