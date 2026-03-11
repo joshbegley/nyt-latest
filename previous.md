@@ -1,3 +1,7 @@
+**Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
+`The Cowboys signed Osa Odighizuwa to a four-year, $80 million contract one year ago.`\
+https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
+
 **Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
 `The state’s 2028 primary is likely to be important, and is already on the minds of some Democrats.`\
 https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099436/2026/03/11/paris-saint-germain-5-chelsea-2-
 **How Trump Turned a Republican Battle Over a Texas Senate Seat Into Leverage**\
 `The president has yet to make an endorsement in the contest between John Cornyn and Ken Paxton as he tries to push the Senate to pass a bill requiring voters to show identification at the polls.`\
 https://nytimes.com/2026/03/11/us/politics/trump-cornyn-paxton-endorsement-texas-senate.html
-
-**Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
-`Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round-of-16 tie`\
-https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
 

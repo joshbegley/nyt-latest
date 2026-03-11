@@ -1,3 +1,7 @@
+**Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
+`The Cowboys signed Osa Odighizuwa to a four-year, $80 million contract one year ago.`\
+https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
+
 **Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
 `The state’s 2028 primary is likely to be important, and is already on the minds of some Democrats.`\
 https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028.html
