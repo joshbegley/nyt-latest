@@ -1,3 +1,11 @@
+**Italy's huge upset win over USA shuffled the odds. Here is the new betting favorite**\
+`Italy shocked Team USA in a win that not even the oddsmakers saw coming. The betting odds are on the move for the World Baseball Classic.`\
+https://nytimes.com/athletic/7107935/2026/03/11/wbc-odds-dominican-republic-now-favored-italy-win-usa/
+
+**Iranian Soccer Squad Member Changes Mind on Asylum Offer**\
+`After seven members of the Iranian women’s soccer delegation were granted asylum by Australia, one changed her mind and decided to return home. The team had protested Iran’s government during an international competition.`\
+https://nytimes.com/video/world/middleeast/100000010768561/iran-womens-soccer-player-asylum-australia.html
+
 **What’s Better Than One Top Oscar Nominee? How About Two?**\
 `Warner Bros. is behind both “One Battle After Another” and “Sinners.” The studio has worked hard to not favor one over the other.`\
 https://nytimes.com/2026/03/11/business/media/sinners-one-battle-warner-oscars.html
