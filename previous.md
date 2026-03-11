@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+`By John Ismay, Eric Schmitt, Qasim Nauman and Ephrat Livni`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/heres-the-latest
+
+**Live Updates: U.S. Says It Hit Iranian Mine-Laying Vessels Near Vital Oil Passage**\
+`The war in the Middle East has choked tanker traffic through the Strait of Hormuz, a conduit for a fifth of the world’s oil. There was no sign of hostilities easing on Wednesday.`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel
+
+**Palace have already lost to AEK Larnaca this season. This is how they avoid a last-16 repeat**\
+`The Cypriot side's low block frustrated Oliver Glasner and company as they prevailed 1-0 at Selhurst Park in October's league-phase game`\
+https://nytimes.com/athletic/7101927/2026/03/11/crystal-palace-larnaca-larsen-guessand-johnson/
+
+**Gabriel Gudmundsson is Leeds' dribbling outlier. Can he now add goals and assists?**\
+`The Swede scored one and made another in the FA Cup on Sunday. Doing the same in the top flight could be big in staving off relegation`\
+https://nytimes.com/athletic/7104667/2026/03/11/gabriel-gudmundsson-leeds-dribbling-analysis/
+
+**How the loss of Boubacar Kamara has influenced Unai Emery's selections - even in defence**\
+`The Villa manager is increasingly opting for Tyrone Mings over Pau Torres to provide on-pitch leadership and nullify the threat of counters`\
+https://nytimes.com/athletic/7101008/2026/03/11/aston-villa-emery-kamara-mings-torres/
+
 **Michael Olise: Bayern Munich's genius at work**\
 `The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
 https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7104126/2026/03/11/ligue-1-psg-farmers-league-franc
 **Rewatching Chelsea-PSG in the Club World Cup final: What we learned and didn't learn**\
 `Chelsea beat PSG in the Club World Cup final last year, but what we learned from that match is different in retrospect `\
 https://nytimes.com/athletic/7104628/2026/03/11/chelsea-psg-club-world-cup-final-rewatch-analysis/
-
-**What watching Man City at Real Madrid over and over again has taught me about this game**\
-`City have visited the Bernabeu five times in the past five seasons. Predicting the outcome of their latest trip tonight is not easy...`\
-https://nytimes.com/athletic/7101821/2026/03/11/manchester-city-real-madrid-bernabeu-analysis/
-
-**The New York Times in Print for Wednesday, March 11, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/11/todays-new-york-times
-
-**Leave the Kurds Out of It**\
-`The United States and Israel have considered using Iranian Kurds as a ground force.`\
-https://nytimes.com/2026/03/11/opinion/iran-kurds-us-israel.html
-
-**At Least 17 U.S. Sites Damaged in War With Iran, Analysis Shows**\
-`A New York Times analysis of satellite imagery and verified videos shows damage to more than a dozen American military sites and installations from Iran’s retaliatory strikes.`\
-https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bases-strikes-map.html
-
-**Italy stuns Team USA in WBC. Here's how the Americans can still advance**\
-`The U.S. couldn't clinch a quarterfinal berth, and now it has to hope for a blowout in the Italy-Mexico game or an Italy win to advance.`\
-https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
 

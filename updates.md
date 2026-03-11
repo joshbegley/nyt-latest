@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+`By John Ismay, Eric Schmitt, Qasim Nauman and Ephrat Livni`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/heres-the-latest
+
+**Live Updates: U.S. Says It Hit Iranian Mine-Laying Vessels Near Vital Oil Passage**\
+`The war in the Middle East has choked tanker traffic through the Strait of Hormuz, a conduit for a fifth of the world’s oil. There was no sign of hostilities easing on Wednesday.`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel
+
+**Palace have already lost to AEK Larnaca this season. This is how they avoid a last-16 repeat**\
+`The Cypriot side's low block frustrated Oliver Glasner and company as they prevailed 1-0 at Selhurst Park in October's league-phase game`\
+https://nytimes.com/athletic/7101927/2026/03/11/crystal-palace-larnaca-larsen-guessand-johnson/
+
+**Gabriel Gudmundsson is Leeds' dribbling outlier. Can he now add goals and assists?**\
+`The Swede scored one and made another in the FA Cup on Sunday. Doing the same in the top flight could be big in staving off relegation`\
+https://nytimes.com/athletic/7104667/2026/03/11/gabriel-gudmundsson-leeds-dribbling-analysis/
+
+**How the loss of Boubacar Kamara has influenced Unai Emery's selections - even in defence**\
+`The Villa manager is increasingly opting for Tyrone Mings over Pau Torres to provide on-pitch leadership and nullify the threat of counters`\
+https://nytimes.com/athletic/7101008/2026/03/11/aston-villa-emery-kamara-mings-torres/
+
 **Italy stuns Team USA in WBC. Here's how the Americans can still advance**\
 `The U.S. couldn't clinch a quarterfinal berth, and now it has to hope for a blowout in the Italy-Mexico game or an Italy win to advance.`\
 https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
