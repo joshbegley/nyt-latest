@@ -1,3 +1,15 @@
+**Cameron Heyward fights back Father Time, gets to new 2-year deal from Steelers: Source**\
+`Heyward will be 37 when he returns for his 16th NFL season.`\
+https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
+
+**Suspect in Rihanna Shooting Is Charged With Attempted Murder**\
+`A woman fired a semiautomatic weapon at Rihanna’s home while she was there with ASAP Rocky and their three children on Sunday, the authorities said.`\
+https://nytimes.com/2026/03/10/arts/music/rihanna-charges-attempted-murder.html
+
+**Bam Adebayo ignites for 31-point first quarter, outscores Wizards as a team**\
+`Adebayo's single-game career high point total was 41 points, set Jan. 23, 2021. He reached 43 points on Tuesday late in the second quarter.`\
+https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
+
 **Trump Administration to Restart Global Entry Program**\
 `The program for people traveling internationally, set to come back online at 5 a.m. Wednesday, had been paused amid the shutdown of the Homeland Security Department.`\
 https://nytimes.com/2026/03/10/us/politics/global-entry-dhs-shutdown.html
