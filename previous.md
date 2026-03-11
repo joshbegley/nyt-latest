@@ -34,7 +34,7 @@ https://nytimes.com/2026/03/11/opinion/iran-kurds-us-israel.html
 `A New York Times analysis of satellite imagery and verified videos shows damage to more than a dozen American military sites and installations from Iran’s retaliatory strikes.`\
 https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bases-strikes-map.html
 
-**After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
-`Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
+**Italy stuns Team USA in WBC. Here's how the Americans can still advance**\
+`The U.S. couldn't clinch a quarterfinal berth, and now it has to hope for a blowout in the Italy-Mexico game or an Italy win to advance.`\
 https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
 

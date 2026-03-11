@@ -1,3 +1,7 @@
+**Italy stuns Team USA in WBC. Here's how the Americans can still advance**\
+`The U.S. couldn't clinch a quarterfinal berth, and now it has to hope for a blowout in the Italy-Mexico game or an Italy win to advance.`\
+https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
+
 **Michael Olise: Bayern Munich's genius at work**\
 `The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
 https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
