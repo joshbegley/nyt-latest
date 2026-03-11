@@ -1,3 +1,23 @@
+**Atlanta, Tata Martino preach process over quick fix for winless, success-starved club**\
+`With no points in three games, the struggles continue for Atlanta United. So how long will it be before the club contends in MLS again?`\
+https://nytimes.com/athletic/7105755/2026/03/11/atlanta-united-tata-martino-mls-almiron/
+
+**Canada's Davies set for a spell on the sidelines with hamstring injury**\
+`The 25-year-old covered his face as he was forced off early in Tuesday's match, raising concerns ahead of this summer's World Cup.`\
+https://nytimes.com/athletic/7065374/2026/03/11/canada-alphonso-davies-hamstring-injury/
+
+**At Least 2 Killed as Tornadoes and Violent Storms Move Across Midwest**\
+`Officials in Illinois and Indiana were assessing damage from the severe weather on Tuesday that might have produced up to a dozen tornadoes.`\
+https://nytimes.com/2026/03/11/us/storm-tornadoes-illinois-indiana.html
+
+**Quentin Tarantino Plans ‘Swashbuckling’ Play for London’s West End**\
+`“The Popinjay Cavalier,” written and directed by Tarantino, will open next year. It is described as a “rambunctious comedy of deception” set in 1830s Europe.`\
+https://nytimes.com/2026/03/11/theater/quentin-tarantino-play-london-west-end.html
+
+**Thune Is in a Vise as Trump and the Far Right Demand a Fight on Voter Bill**\
+`The majority leader is getting pounded for not pushing hard enough, but he says the votes just aren’t there to circumvent the filibuster.`\
+https://nytimes.com/2026/03/11/us/politics/thune-trump-voter-bill-senate.html
+
 **In Show Jumping, Course Designers Challenge Horses and Riders**\
 `Miscommunication between the two can cause fallen poles or even refusals to jump.`\
 https://nytimes.com/2026/03/11/sports/dutch-masters-show-jumping-designers.html

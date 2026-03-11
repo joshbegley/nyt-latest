@@ -8,7 +8,7 @@ https://nytimes.com/athletic/7065374/2026/03/11/canada-alphonso-davies-hamstring
 
 **At Least 2 Killed as Tornadoes and Violent Storms Move Across Midwest**\
 `Officials in Illinois and Indiana were assessing damage from the severe weather on Tuesday that might have produced up to a dozen tornadoes.`\
-https://nytimes.com/2026/03/11/us/storm-tornadoes-illinois-indiana.html
+https://nytimes.com/2026/03/11/us/kankakee-illinois-indiana-tornadoes-storms.html
 
 **Quentin Tarantino Plans ‘Swashbuckling’ Play for London’s West End**\
 `“The Popinjay Cavalier,” written and directed by Tarantino, will open next year. It is described as a “rambunctious comedy of deception” set in 1830s Europe.`\
