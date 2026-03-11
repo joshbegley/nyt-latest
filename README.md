@@ -1,3 +1,7 @@
+**Should Parents Be Held Responsible for School Shootings?**\
+`Prosecuting parents for the actions of their children is becoming more common in the push for accountability after mass shootings. Do you support the tactic?`\
+https://nytimes.com/2026/03/11/learning/should-parents-be-held-responsible-for-school-shootings.html
+
 **Why Lewis O'Brien will be key if Wrexham are to keep their play-offs dream alive**\
 `A home defeat to Hull City on Tuesday night has made Wrexham's top-six position in the Championship more precarious`\
 https://nytimes.com/athletic/7100932/2026/03/11/lewis-obrien-wrexham-championship-promotion-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/arts/television/late-night-pete-hegseth.html
 **Word of the Day: inherent**\
 `This word has appeared in 664 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/11/learning/word-of-the-day-inherent.html
-
-**Mark DeRosa says he ‘misspoke’ after mistakenly saying Team USA had advanced before upset to Italy**\
-`Earlier, the manager incorrectly stated on TV that his team had already clinched a spot in the quarterfinals before resting its stars.`\
-https://nytimes.com/athletic/7107029/2026/03/11/world-baseball-classic-team-usa-mark-derosa-comments/
 
