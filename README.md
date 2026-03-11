@@ -1,40 +1,40 @@
-**What the Patriots' addition of Romeo Doubs means for a potential A.J. Brown trade**\
-`The expected signing of Doubs doesn't mean the Patriots won't still try to trade for Brown. It just gives them more options and leverage.`\
-https://nytimes.com/athletic/7106178/2026/03/11/patriots-aj-brown-trade-romeo-doubs-nfl-free-agency/
+**How to watch Kent State vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Kent State Golden Flashes play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107380/2026/03/11/kent-state-vs-miami-oh-stream-how-to-watch-march-11/
 
-**How Trump’s War With Iran Changed the World in a Week**\
-`The conflict is reshaping travel patterns, energy dependencies, living costs, trade routes and diplomatic alliances.`\
-https://nytimes.com/2026/03/11/world/europe/trump-iran-war-global-impact.html
+**How to watch LSU vs. Kentucky men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107378/2026/03/11/lsu-vs-kentucky-stream-how-to-watch-march-11/
 
-**China’s Military Has Quietly Cut Flying Near Taiwan. But Why?**\
-`For years, China has flown military jets near Taiwan almost daily. Then they suddenly stopped, leaving analysts to wonder why.`\
-https://nytimes.com/2026/03/11/world/asia/taiwan-china-military-planes.html
+**How to watch Florida Atlantic vs. North Texas women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Florida Atlantic Owls play the North Texas Mean Green, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107375/2026/03/11/florida-atlantic-vs-north-texas-stream-how-to-watch-march-11/
 
-**Lily Allen Is on Tour. She Brought Along Some Receipts.**\
-`The designer of Ms. Allen’s “West End Girl” tour talks about the scene with the artist pulling cloth printed with receipts that has become the subject of online speculation.`\
-https://nytimes.com/2026/03/11/style/lily-allen-is-on-tour-she-brought-along-some-receipts.html
+**How to watch Maryland vs. Iowa men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107373/2026/03/11/maryland-vs-iowa-stream-how-to-watch-march-11/
 
-**Why Voters Might Finally Blame Trump for Rising Costs**\
-`Trump’s Iran war will affect more than just gas prices.`\
-https://nytimes.com/2026/03/11/opinion/trump-war-iran-oil-prices.html
+**How to watch Delaware vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Delaware Fightin' Blue Hens play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107370/2026/03/11/delaware-vs-louisiana-tech-stream-how-to-watch-march-11/
 
-**Jessie Buckley Became a Mother for ‘Hamnet.’ Then She Became a Real One. (Encore)**\
-`The Oscar-nominated actress talks about the primal love and grief of motherhood.`\
-https://nytimes.com/2026/03/11/podcasts/modern-love-jessie-buckley-encore.html
+**How to watch Pittsburgh vs. NC State men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Panthers play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107368/2026/03/11/pittsburgh-vs-nc-state-stream-how-to-watch-march-11/
 
-**Strikes on Iran Damage Fabled Heritage Sites, Infuriating Iranians**\
-`Revered cultural icons that have withstood the upheavals of history are being hit hard in the war being waged by Israel and the United States.`\
-https://nytimes.com/2026/03/11/world/middleeast/iram-heritage-sites-damaged.html
+**How to watch Florida A&M vs. Alabama A&M women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Florida A&M Rattlers play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107366/2026/03/11/florida-a-m-vs-alabama-a-m-stream-how-to-watch-march-11/
 
-**A New School Hopes to Train a Younger Generation of Dentists**\
-`New York’s dentists are aging, and a “retirement cliff” has left a shortage of people in the job.`\
-https://nytimes.com/2026/03/11/nyregion/dental-school-yeshiva-nyc.html
+**How to watch UT Rio Grande Valley vs. McNeese women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the UT Rio Grande Valley Vaqueros play the McNeese Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107364/2026/03/11/ut-rio-grande-valley-vs-mcneese-stream-how-to-watch-march-11/
 
-**$900,000 Homes in California, North Carolina and Texas**\
-`A Craftsman in Pasadena, a Spanish Revival in Charlotte and a ranch in Austin.`\
-https://nytimes.com/2026/03/11/realestate/900000-homes-in-california-north-carolina-and-texas.html
+**How to watch South Carolina State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the South Carolina State Lady Bulldogs play the Howard Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107362/2026/03/11/south-carolina-state-vs-howard-stream-how-to-watch-march-11/
 
-**At This Festival, the Dead of Winter Is the Life of the Party**\
-`In the Hudson Valley town of Chatham, N.Y., a weeklong event called “The Dark” took over theaters, bars, a church, a bookshop, a library and even a sauna.`\
-https://nytimes.com/2026/03/11/arts/dark-festival-ps21-chatham-new-york.html
+**How to watch Saint Bonaventure vs. La Salle men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Saint Bonaventure Bonnies play the La Salle Explorers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107358/2026/03/11/saint-bonaventure-vs-la-salle-stream-how-to-watch-march-11/
 

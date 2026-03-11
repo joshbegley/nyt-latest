@@ -1,3 +1,7 @@
+**What the Patriots' addition of Romeo Doubs means for a potential A.J. Brown trade**\
+`The expected signing of Doubs doesn't mean the Patriots won't still try to trade for Brown. It just gives them more options and leverage.`\
+https://nytimes.com/athletic/7106178/2026/03/11/patriots-aj-brown-trade-romeo-doubs-nfl-free-agency/
+
 **How Trump’s War With Iran Changed the World in a Week**\
 `The conflict is reshaping travel patterns, energy dependencies, living costs, trade routes and diplomatic alliances.`\
 https://nytimes.com/2026/03/11/world/europe/trump-iran-war-global-impact.html
