@@ -1,3 +1,7 @@
+**Bennie Thompson Defeats Young Challenger in Mississippi Primary**\
+`The victory by Mr. Thompson, the state’s longest-serving Black Democrat, offers a counterpoint to the broader push nationwide for younger leadership in Congress.`\
+https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.html
+
 **Celtics' Jaylen Brown ejected vs. Spurs, had to be held back after yelling at official**\
 `This marks only the second ejection for Brown in his 10-year NBA career.`\
 https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/world/middleeast/iran-war-israel-middle-east-stri
 **Bam Adebayo ignites for 31-point first quarter, outscores Wizards as a team**\
 `Adebayo's single-game career high point total was 41 points, set Jan. 23, 2021. He reached 43 points on Tuesday late in the second quarter.`\
 https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
-
-**Suspended L.A. Schools Chief Denies Wrongdoing and Says He Hopes to Return**\
-`Through his lawyers, Alberto Carvalho, who was put on leave after the F.B.I. raided his home and office, said that his actions were appropriate but that he would respect the investigative process.`\
-https://nytimes.com/2026/03/10/us/lausd-chief-alberto-carvalho-statement.html
 

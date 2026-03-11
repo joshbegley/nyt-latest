@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown ejected vs. Spurs, had to be held back after yelling at official**\
+`This marks only the second ejection for Brown in his 10-year NBA career.`\
+https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
+
 **Cameron Heyward fights back Father Time, gets to new 2-year deal from Steelers: Source**\
 `Heyward will be 37 when he returns for his 16th NFL season.`\
 https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
