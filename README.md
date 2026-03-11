@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Global Entry Program to Be Restored After Shutdown Pause**\
+``\
+https://nytimes.com/live/2026/03/11/us/trump-news
+
 **F1 mailbag: Can Ferrari seriously fight Mercedes? And what happened to Oscar Piastri?**\
 `The Athletic's Formula 1 experts answer your questions on the 2026 season opener in Australia`\
 https://nytimes.com/athletic/7106278/2026/03/11/f1-mailbag-australian-gp-ferrari-mercedes/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-mis
 **Savile song shame for English game. Plus: Kinsky howlers as Spurs crumble**\
 `Today in TAFC: The unspoken shame about sex offender chanting blighting English game. Plus: Champions League fallout as Spurs crumble`\
 https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-tottenham/
-
-**Bam's 83 now tops Kobe's 81. Was it the right move to keep the Heat star in?**\
-`What Adebayo did Tuesday was remarkable in its own right, but should he have called it a night a little bit sooner?`\
-https://nytimes.com/athletic/7107107/2026/03/11/bam-adebayo-83-points-kobe-bryant-heat-nba/
 
