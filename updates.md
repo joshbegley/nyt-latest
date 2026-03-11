@@ -1,3 +1,7 @@
+**ICE Lawyer Who Told Judge She Was Overwhelmed Seeks New Role: Lawmaker**\
+`Julie T. Le, a former government lawyer, described in stark terms how overstretched the legal system had become during the administration’s immigration crackdown in Minnesota. Now, she said, she hopes to fix the “system’s failures” by running for Congress.`\
+https://nytimes.com/2026/03/11/us/ice-lawyer-congress-julie-t-le.html
+
 **The Briefing: Leverkusen 1 Arsenal 1 - Was late penalty call right? Why did Saka struggle?**\
 `Our writers break down the action from the first leg of the last-16 tie in Leverkusen`\
 https://nytimes.com/athletic/7099435/2026/03/11/leverkusen-arsenal-havertz-saka/

@@ -1,3 +1,7 @@
+**ICE Lawyer Who Told Judge She Was Overwhelmed Seeks New Role: Lawmaker**\
+`Julie T. Le, a former government lawyer, described in stark terms how overstretched the legal system had become during the administration’s immigration crackdown in Minnesota. Now, she said, she hopes to fix the “system’s failures” by running for Congress.`\
+https://nytimes.com/2026/03/11/us/ice-lawyer-congress-julie-t-le.html
+
 **After firing Adrian Autry, Syracuse basketball must invest to build on legacy**\
 `Mired in a five-year NCAA Tournament drought and a coach removed from Jim Boeheim, what is Syracuse basketball now? `\
 https://nytimes.com/athletic/7108963/2026/03/11/syracuse-mens-basketball-fired-adrian-autry/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/us/politics/supreme-court-haitians-deportation.ht
 **How to watch Georgetown vs. DePaul men's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Georgetown Hoyas play the DePaul Blue Demons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109205/2026/03/11/georgetown-vs-depaul-stream-how-to-watch-march-11/
-
-**How to watch Fresno State vs. Colorado State men's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Fresno State Bulldogs play the Colorado State Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109193/2026/03/11/fresno-state-vs-colorado-state-stream-how-to-watch-march-11/
 
