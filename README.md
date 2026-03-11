@@ -1,4 +1,8 @@
-**Ravens pivot from Maxx Crosby fallout, agree to terms with Trey Hendrickson: Source**\
+**West Ham's Summerville targeting injury return vs. Aston Villa**\
+`The 24-year-old sustained a calf injury in the FA Cup fifth-round win over Brentford.`\
+https://nytimes.com/athletic/7107523/2026/03/11/crysencio-summerville-west-ham-injury-return/
+
+**Ravens to sign Trey Hendrickson after backing out of Maxx Crosby trade: Source**\
 `Hendrickson is a four-time Pro Bowler who has had double-digit sacks in four of his past six seasons. `\
 https://nytimes.com/athletic/7107568/2026/03/11/trey-hendrickson-maxx-crosby-ravens-nfl-free-agency-2026/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.
 **Eni Aluko awarded £339,000 after suing Joey Barton for libel: ‘I wanted to create a consequence’**\
 `Ex-England international Aluko tells The Athletic of her wish to make a difference by fighting against online abuse of women and girls`\
 https://nytimes.com/athletic/7107140/2026/03/11/eni-aluko-joey-barton-damages/
-
-**Big 12 tournament's glass court is innovative — but slippery, players say**\
-`Out of eight players polled during Tuesday's Big 12 men's tournament games, six said the glass floor was slippery.`\
-https://nytimes.com/athletic/7106910/2026/03/11/big-12-tournament-glass-court-basketball-reviews/
 
