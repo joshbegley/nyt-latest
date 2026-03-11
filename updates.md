@@ -1,3 +1,23 @@
+**Grading Panthers' first wave of free agency: High marks for Jaelan Phillips, Devin Lloyd**\
+`Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with their other additions.`\
+https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jaelan-phillips/
+
+**Initial Military Investigation Faults the U.S. For a School Strike in Iran**\
+`Also, world leaders agree to tap oil reserves. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/03/11/briefing/iran-school-strike-oil-reserves.html
+
+**The Briefing: Paris Saint-Germain 5 Chelsea 2 - Jorgensen's Kinsky moment and Kvaratskhelia's brilliance**\
+`Late goals from Khvicha Kvaratskhelia handed PSG an advantage ahead of the second leg at Stamford Bridge`\
+https://nytimes.com/athletic/7099436/2026/03/11/paris-saint-germain-5-chelsea-2-briefing/
+
+**How Trump Turned a Republican Battle Over a Texas Senate Seat Into Leverage**\
+`The president has yet to make an endorsement in the contest between John Cornyn and Ken Paxton as he tries to push the Senate to pass a bill requiring voters to show identification at the polls.`\
+https://nytimes.com/2026/03/11/us/politics/trump-cornyn-paxton-endorsement-texas-senate.html
+
+**Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
+`Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round-of-16 tie`\
+https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
+
 **Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
 `Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round of 16 tie`\
 https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
