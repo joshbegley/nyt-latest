@@ -1,3 +1,7 @@
+**Tornadoes Kill At Least Two Across the Midwest**\
+`About a dozen tornadoes ripped through the Midwest and South on Tuesday, killing at least two people. Officials said search-and-rescue operations were still underway.`\
+https://nytimes.com/video/weather/100000010769413/tornado-deaths-indiana-illinois-storm.html
+
 **Wisconsin Supreme Court Election 2026: Latest Polls**\
 `Track the latest polls in the Wisconsin Supreme Court election.`\
 https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109188/2026/03/11/south-carolina-vs-oklahoma-strea
 **How to watch Temple vs. Florida Atlantic men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the Temple Owls play the Florida Atlantic Owls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109186/2026/03/11/temple-vs-florida-atlantic-stream-how-to-watch-march-11/
-
-**How to watch Canadiens vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109180/2026/03/11/canadiens-vs-senators-stream-how-to-watch-march-11/
 

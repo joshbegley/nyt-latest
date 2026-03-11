@@ -1,3 +1,7 @@
+**Wisconsin Supreme Court Election 2026: Latest Polls**\
+`Track the latest polls in the Wisconsin Supreme Court election.`\
+https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-2026.html
+
 **How should fans process Bam Adebayo's 83-point night?**\
 `How should fans contextualize an event as surprising and remarkable as Bam Adebayo scoring 83 points in a game? We asked our writers.`\
 https://nytimes.com/athletic/7108088/2026/03/11/bam-adebayo-fans-react-83-point-game/
