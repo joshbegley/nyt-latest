@@ -1,3 +1,19 @@
+**Iran could boycott World Cup in wake of U.S. attacks, sports minister says**\
+`On Tuesday night, FIFA president Gianni Infantino said he had U.S. President Trump's assurance that Iran will be welcome at the tournament.`\
+https://nytimes.com/athletic/7108180/2026/03/11/iran-world-cup-2026-boycott/
+
+**Historic Slavery Photos Get ‘Final Resting Place’ After Long Fight With Harvard**\
+`The historic images of a father known as Renty and his daughter Delia will be honored today in a ceremony by their new steward, a museum in South Carolina.`\
+https://nytimes.com/2026/03/11/us/renty-slave-photos-harvard-museum.html
+
+**Should I Tell My Estranged Brother About His Biological Father?**\
+`I’m less troubled by my mother’s affair than by her decision to join a genealogy website where this could so easily surface.`\
+https://nytimes.com/2026/03/11/magazine/estranged-brother-biological-father-ethics.html
+
+**Hezbollah-Israel Fighting Spreads to Central Beirut**\
+`At least four people were wounded on Wednesday when an Israeli airstrike hit an apartment building in central Beirut. Israel has been exchanging fire with the Iranian-backed armed group, Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000010768560/hezbollah-israel-conflict-beirut-airstrike.html
+
 **Italy's huge upset win over USA shuffled the odds. Here is the new betting favorite**\
 `Italy shocked Team USA in a win that not even the oddsmakers saw coming. The betting odds are on the move for the World Baseball Classic.`\
 https://nytimes.com/athletic/7107935/2026/03/11/wbc-odds-dominican-republic-now-favored-italy-win-usa/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7108333/2026/03/11/mcneese-vs-sfa-stream-how-to-wat
 **How to watch Ole Miss vs. Texas men's basketball: SEC Tournament Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7108326/2026/03/11/ole-miss-vs-texas-stream-how-to-watch-march-11/
-
-**How to watch Xavier vs. Marquette men's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Xavier Musketeers play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108321/2026/03/11/xavier-vs-marquette-stream-how-to-watch-march-11/
-
-**How to watch Tulane vs. Memphis men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Memphis Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108318/2026/03/11/tulane-vs-memphis-stream-how-to-watch-march-11/
-
-**How to watch BYU vs. West Virginia men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108311/2026/03/11/byu-vs-west-virginia-stream-how-to-watch-march-11/
-
-**How to watch Air Force vs. Nevada men's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Air Force Falcons play the Nevada Wolf Pack, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108306/2026/03/11/air-force-vs-nevada-stream-how-to-watch-march-11/
 
