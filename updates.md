@@ -1,3 +1,7 @@
+**Crosby trade is not the first to fall through. Here are 10 other nixed deals**\
+`Maxx Crosby and other notable times sports figures have gone back from trades or signings`\
+https://nytimes.com/athletic/7108206/2026/03/11/maxx-crosby-nixed-deals-sports-history/
+
 **Tarik Skubal on WBC detractors questioning his patriotism: 'It's just not fair'**\
 `Back in Tigers camp, Skubal pushed back on social media criticism he's faced after his decision to make only one start for Team USA.`\
 https://nytimes.com/athletic/7108759/2026/03/11/tarik-skubal-team-usa-wbc-criticism-tigers/

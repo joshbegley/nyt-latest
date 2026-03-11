@@ -1,3 +1,7 @@
+**Daryl Hannah’s Objections to ‘Love Story’**\
+`Readers respond to Daryl Hannah’s guest essay about a TV series’ portrayal of her. Also: Remembering a visit to Iran; an exercise plan for life.`\
+https://nytimes.com/2026/03/11/opinion/daryl-hannahs-objections.html
+
 **Crosby trade is not the first to fall through. Here are 10 other nixed deals**\
 `Maxx Crosby and other notable times sports figures have gone back from trades or signings`\
 https://nytimes.com/athletic/7108206/2026/03/11/maxx-crosby-nixed-deals-sports-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7108265/2026/03/11/teel-antonacci-italy-world-baseb
 **PGA Tour schedule changes are coming. What to know about Brian Rolapp's vision**\
 `The top-performing players will play on one tour, which Rolapp coined the “first track.”`\
 https://nytimes.com/athletic/7108743/2026/03/11/pga-tour-schedule-changes-brian-rolapp/
-
-**Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
-`The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
-https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
 
