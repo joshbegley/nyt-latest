@@ -1,3 +1,11 @@
+**Johnson accused of fraud over $500k 'secret' payment from GST**\
+`It was made when Johnson allegedly already knew that insufficient funds were in place to pay competing athletes in his start-up competition.`\
+https://nytimes.com/athletic/7105017/2026/03/10/michael-johnson-grand-slam-track-vendor-fraud/
+
+**How Trump and His Advisers Miscalculated Iran’s Response to War**\
+`In the lead-up to the U.S.-Israeli attack, President Trump downplayed the risks to the energy markets as a short-term concern that should not overshadow the mission to decapitate the Iranian regime.`\
+https://nytimes.com/2026/03/10/us/politics/how-trump-miscalculated-iran-response.html
+
 **Bondi Is Said to Move to Military Housing Because of Threats**\
 `The attorney general relocated from a Washington apartment to a base in the area within the past month, according to people familiar with the situation.`\
 https://nytimes.com/2026/03/10/us/politics/bondi-military-housing-threats.html
@@ -6,7 +14,7 @@ https://nytimes.com/2026/03/10/us/politics/bondi-military-housing-threats.html
 `The effects of the war are being felt through the Persian Gulf.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-war-israel-middle-east-strikes.html
 
-**Bam Adebayo ignites for 31-point first quarter, breaks LeBron James' Heat record**\
+**Bam Adebayo ignites for 31-point first quarter, outscores Wizards as a team**\
 `Adebayo's single-game career high point total was 43 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
 https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/us/georgia-election-marjorie-taylor-greene.html
 **Woman Found Innocent After 22 Years in Prison Will Not Be Deported**\
 `Carmen Mejia was cleared of murder in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. Federal officials said she will be allowed to stay in the U.S.`\
 https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
-
-**Maxx Crosby trade off: Raiders say Ravens pulled out of the deal**\
-`Maxx Crosby will not be joining the Ravens, undoing a trade that would have sent two first-round picks to Las Vegas.`\
-https://nytimes.com/athletic/7106276/2026/03/10/maxx-crosby-trade-ravens-back-out-raiders/
-
-**Roki Sasaki remains the story of Dodgers camp – even on a back field**\
-`An outing on a back field drew a handful of influential spectators, including Dodgers president of baseball operations Andrew Friedman.`\
-https://nytimes.com/athletic/7106014/2026/03/10/dodgers-roki-sasaki-spring-training-camp/
 
