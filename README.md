@@ -1,3 +1,7 @@
+**Why is the Knicks' offense regressing? The answer might be on the bench**\
+`New York's offense has taken a bit of a hit as of late. How concerning is it?`\
+https://nytimes.com/athletic/7104693/2026/03/11/knicks-offense-regressing-bench/
+
 **Consumer prices stayed subdued in February.**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/03/11/business/inflation-report-cpi/consumer-prices-stayed-subdued-in-february
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/books/dan-simmons-dead.html
 **The 366-mile blunder: Barcelona fan travels to the wrong St James Park**\
 `A Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
 https://nytimes.com/athletic/7107805/2026/03/11/barcelona-fan-st-james-park-exeter/
-
-**Syracuse men's basketball coaching candidates: Bryan Hodgson, Josh Schertz … or Gerry McNamara?**\
-`Syracuse is mired in a five-year postseason drought, but one right hire can turn a program around fast in this era of the sport.`\
-https://nytimes.com/athletic/7107785/2026/03/11/syracuse-basketball-coaching-candidates-hodgson-mcnamara-schertz/
 
