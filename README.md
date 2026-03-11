@@ -1,3 +1,15 @@
+**Bam Adebayo ignites for 31-point first quarter, breaks LeBron James' Heat record**\
+`Adebayo's single-game career high point total was 41 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
+https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
+
+**Suspended L.A. Schools Chief Denies Wrongdoing and Says He Hopes to Return**\
+`Through his lawyers, Alberto Carvalho, who was put on leave after the F.B.I. raided his home and office, said that his actions were appropriate but that he would respect the investigative process.`\
+https://nytimes.com/2026/03/10/us/lausd-chief-alberto-carvalho-statement.html
+
+**Bills free agency: Who's still available, plus Josh Allen's hand in Connor McGovern deal**\
+`There are still plenty of players the Bills could target.`\
+https://nytimes.com/athletic/7106263/2026/03/10/bills-free-agency-available-josh-allen-connor-mcgovern/
+
 **Widow Gives Harrowing Testimony About Assassination of Haiti’s President**\
 `Martine Moïse was the first witness called in the long-awaited Miami trial of the people accused of plotting the murder of her husband, Jovenel Moïse, in 2021.`\
 https://nytimes.com/2026/03/10/world/americas/haiti-moise-assassination-trial.html
@@ -21,8 +33,4 @@ https://nytimes.com/athletic/7106014/2026/03/10/dodgers-roki-sasaki-spring-train
 **Here’s What Happened in the War in the Middle East on Tuesday**\
 `Trump administration officials cast the president as the sole arbiter on the U.S. war effort. International aid groups were warning of a growing humanitarian crisis in Lebanon, where nearly 700,000 people had been displaced, the U.N. said.`\
 https://nytimes.com/2026/03/10/world/middleeast/iran-war-us-israel-lebanon-recap.html
-
-**2 More People Affiliated With Iranian Women’s Soccer Team Seek Asylum in Australia**\
-`An athlete and a member of the team’s support staff opted not to return to Iran, where state media labeled the women ‘traitors’ for not singing the national anthem. Five others were given visas earlier.`\
-https://nytimes.com/2026/03/10/world/asia/iran-soccer-women-asylum-australia.html
 
