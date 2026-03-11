@@ -1,3 +1,11 @@
+**Bennie Thompson Defeats Young Challenger in Mississippi Primary**\
+`The victory by Mr. Thompson, the state’s longest-serving Black Democrat, offers a counterpoint to the broader push nationwide for younger leadership in Congress.`\
+https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.html
+
+**Cameron Heyward fights back Father Time, gets new 2-year deal from Steelers: Source**\
+`Heyward will be 37 when he returns for his 16th NFL season.`\
+https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
+
 **Celtics' Jaylen Brown ejected vs. Spurs, had to be held back after yelling at official**\
 `This marks only the second ejection for Brown in his 10-year NBA career.`\
 https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
