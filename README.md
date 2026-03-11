@@ -1,3 +1,7 @@
+**Tarik Skubal on WBC detractors questioning his patriotism: 'It's just not fair'**\
+`Back in Tigers camp, Skubal pushed back on criticism he's faced on social media after his decision to make only one start for Team USA. `\
+https://nytimes.com/athletic/7108759/2026/03/11/tarik-skubal-team-usa-wbc-criticism-tigers/
+
 **A Planned Parenthood Clinic, in a Pinch, Turns to Botox**\
 `The move is designed to keep the doors of the clinic open, and is a reflection of the increasingly blurred lines between the beauty industry and health care.`\
 https://nytimes.com/2026/03/11/style/planned-parenthood-botox-california-nevada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-mu
 **Angelika Saleh, the Angelika of Angelika Film Center, Dies at 90**\
 `After making the journey from prewar Germany to Madison Avenue opulence, she gave her name to one of New York’s most influential indie cinemas.`\
 https://nytimes.com/2026/03/11/movies/angelika-saleh-dead.html
-
-**Scoop City: Ravens surprise Maxx Crosby trade becomes historic stunner**\
-`This situation is a blend of star power, draft capital, free agency and a reneged deal unlike anything we've seen`\
-https://nytimes.com/athletic/7108727/2026/03/11/ravens-surprise-trade-for-raiders-edge-maxx-crosby-becomes-historic-stunner/
 
