@@ -1,3 +1,11 @@
+**Dan Simmons, Genre-Leaping Author of ‘The Terror,’ Dies at 77**\
+`He moved easily and prolifically through science fiction, fantasy, horror, thrillers, crime and historical fiction. His book “The Terror” was made into a cable TV series.`\
+https://nytimes.com/2026/03/11/books/dan-simmons-dead.html
+
+**The 366-mile blunder: Barcelona fan travels to the wrong St James Park**\
+`A Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
+https://nytimes.com/athletic/7107805/2026/03/11/barcelona-fan-st-james-park-exeter/
+
 **The 366-mile blunder: Barcelona fan travels to the wrong St James Park**\
 `Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
 https://nytimes.com/athletic/7107805/2026/03/11/barcelona-fan-st-james-park-exeter/

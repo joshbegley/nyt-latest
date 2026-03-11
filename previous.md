@@ -1,5 +1,9 @@
+**Dan Simmons, Genre-Leaping Author of ‘The Terror,’ Dies at 77**\
+`He moved easily and prolifically through science fiction, fantasy, horror, thrillers, crime and historical fiction. His book “The Terror” was made into a cable TV series.`\
+https://nytimes.com/2026/03/11/books/dan-simmons-dead.html
+
 **The 366-mile blunder: Barcelona fan travels to the wrong St James Park**\
-`Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
+`A Spanish supporter accidentally entered Exeter City's home ground into his car's GPS and paid a heavy price`\
 https://nytimes.com/athletic/7107805/2026/03/11/barcelona-fan-st-james-park-exeter/
 
 **Syracuse men's basketball coaching candidates: Bryan Hodgson, Josh Schertz … or Gerry McNamara?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107523/2026/03/11/crysencio-summerville-west-ham-i
 **Ravens to sign Trey Hendrickson after backing out of Maxx Crosby trade: Source**\
 `Hendrickson is a four-time Pro Bowler who has had double-digit sacks in four of his past six seasons. `\
 https://nytimes.com/athletic/7107568/2026/03/11/trey-hendrickson-maxx-crosby-ravens-nfl-free-agency-2026/
-
-**Overnight talks fail to result in new WNBA collective bargaining agreement: Reports**\
-`The league and players' union met for nearly 10 hours overnight Tuesday and into Wednesday morning, per reports.`\
-https://nytimes.com/athletic/7107636/2026/03/11/wnba-union-collective-bargaining-agreement-overnight-talks/
 
