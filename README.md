@@ -1,3 +1,15 @@
+**Dehner Jr.: Bengals' Trey Hendrickson drama doesn’t end, it merely changes shape**\
+`The Bengals got some vindication on how they saw the All-Pro's market, but now they have to figure out how to stop him twice a season.`\
+https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-agency-ravens/
+
+**Team USA's Caroline Harvey, Abbey Murphy, Tessa Janecke named Patty Kazmaier Award finalists**\
+`The 2026 Patty Kazmaier Award winner will be announced on March 21, during the NCAA Frozen Four weekend hosted at Penn State.`\
+https://nytimes.com/athletic/7108506/2026/03/11/patty-kazmaier-award-finalists-2026/
+
+**Hawaii Faces Flooding, Fierce Winds and Even Snow from a ‘High-Impact’ Storm**\
+`The storm, called a kona low, is expected to churn slowly across the islands all week.`\
+https://nytimes.com/2026/03/11/weather/hawaii-kona-storm.html
+
 **Ghiroli: Mark DeRosa 'misspoke,' and now Team USA's manager must face more scrutiny**\
 `Video of Mark DeRosa's ill-fated comments was restored to the league's website after it had been taken down.`\
 https://nytimes.com/athletic/7108429/2026/03/11/mark-derosa-team-usa-cover-up/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/11/books/review/jill-biden-memoir.html
 **V.A. Begins Drive to Put Homeless Veterans Into Guardianship**\
 `A joint effort with the Justice Department creates new authority to compel veterans into institutional or involuntary care.`\
 https://nytimes.com/2026/03/11/us/politics/veterans-homeless-guardianship-trump.html
-
-**Democratic States Sue Over Trump Demand That Colleges Provide Race Data**\
-`The Trump administration wants colleges and universities to share information about the race and gender of applicants to make sure they’re not using racial preferences in admissions.`\
-https://nytimes.com/2026/03/11/us/democratic-states-trump-lawsuit-admissions.html
-
-**How to watch Knicks vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the New York Knicks play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108607/2026/03/11/knicks-vs-jazz-stream-how-to-watch-march-11/
-
-**How to watch Cavaliers vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108604/2026/03/11/cavaliers-vs-magic-stream-how-to-watch-march-11/
 

@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7108429/2026/03/11/mark-derosa-team-usa-cover-up/
 
 **Ravens get Trey Hendrickson, but Maxx Crosby trade reversal could damage reputation**\
-`Baltimore's decision to “back out” of the Crosby trade and pivot quickly to Hendrickson could have wide-ranging ramifications. `\
+`Baltimore's decision to "back out" of the Crosby trade and pivot quickly to Hendrickson could have wide-ranging ramifications. `\
 https://nytimes.com/athletic/7107089/2026/03/11/ravens-maxx-crosby-failed-trade-trey-hendrickson/
 
 **Why the NWSL is entering the 2026 season in its healthiest business position ever**\
