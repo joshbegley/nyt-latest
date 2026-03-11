@@ -1,3 +1,11 @@
+**Utah Mammoth sign Nick Schmaltz to eight-year, $64 million contract extension**\
+`Schmaltz already has set a career high with 24 goals this season.`\
+https://nytimes.com/athletic/7108616/2026/03/11/nick-schmaltz-utah-mammoth-contract/
+
+**Jill Biden Will Publish a Memoir in June**\
+`In “View from the East Wing,” the former first lady will recount her time in the White House and share her views on the 2024 presidential race.`\
+https://nytimes.com/2026/03/11/books/review/jill-biden-memoir.html
+
 **V.A. Begins Drive to Put Homeless Veterans Into Guardianship**\
 `A joint effort with the Justice Department creates new authority to compel veterans into institutional or involuntary care.`\
 https://nytimes.com/2026/03/11/us/politics/veterans-homeless-guardianship-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/science/anthony-james-leggett-dead.html
 **A goalkeeper's view on Kinsky's 17-minute horror show: The shock, the betrayal and the scars it will leave**\
 `This was one of those moments when Kinsky needed support from his manager more than anything else. Instead he got nothing from Igor Tudor`\
 https://nytimes.com/athletic/7107796/2026/03/11/antonin-kinsky-substitution-tottenham-tudor-goalkeeper-view/
-
-**Oregon State tabbing Michigan assistant Joyner as men's hoops coach: Sources**\
-`Joyner will lead Oregon State back into the revamped Pac-12 after the program let go of Wayne Tinkle.`\
-https://nytimes.com/athletic/7108530/2026/03/11/oregon-state-hires-justin-joyner-michigan-basketball/
-
-**Pitt band members' singing distraction during opponents' free throws goes viral**\
-`What started as an attempt to throw of volleyball players during their serves has made its way to the ACC basketball tournament.`\
-https://nytimes.com/athletic/7108392/2026/03/11/pitt-band-viral-acc-free-throw-singing-basketball/
 
