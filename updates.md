@@ -1,3 +1,19 @@
+**After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
+`Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
+https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
+
+**This is what happened on March 10.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-10
+
+**Minnesotan Bobby Brink scores in home debut as Wild finally thump Mammoth: Takeaways**\
+`Minnetonka native Bobby Brink's night looked over almost before it began, but he and the Wild finished with a 5-0 shutout.`\
+https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gustavsson-mammoth/
+
+**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
+`Follow here to learn about the 31 teams earning at-large berths to the 2026 men's NCAA Tournament.`\
+https://nytimes.com/athletic/7097219/2026/03/11/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
+
 **Minnesotan Bobby Brink scores in home debut as Wild finally thump Utah: Takeaways**\
 `Minnetonka native Bobby Brink's night looked over almost before it began, but he and the Wild finished with a 5-0 shutout.`\
 https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gustavsson-mammoth/
