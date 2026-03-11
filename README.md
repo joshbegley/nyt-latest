@@ -1,9 +1,17 @@
+**Widow Gives Harrowing Testimony About Assassination of Haiti’s President**\
+`Martine Moïse was the first witness called in the long-awaited Miami trial of the people accused of plotting the murder of her husband, Jovenel Moïse, in 2021.`\
+https://nytimes.com/2026/03/10/world/americas/haiti-moise-assassination-trial.html
+
+**In Marjorie Taylor Greene’s District, a Trump-Backed Candidate Advances**\
+`Clayton Fuller will face Shawn Harris, a Democrat, in an April runoff. Mr. Fuller’s win over a flashier Republican showed the power of the president’s support.`\
+https://nytimes.com/2026/03/10/us/georgia-election-marjorie-taylor-greene.html
+
 **Woman Found Innocent After 22 Years in Prison Faces Deportation Threat**\
 `Carmen Mejia was cleared of murder this week in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. She is still in jail on an immigration hold.`\
 https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
 
 **Maxx Crosby trade off: Raiders say Ravens pulled out of the deal**\
-`Maxx Crosby will apparently not be joining the Ravens, undoing a trade that sent two first-round picks to Las Vegas.`\
+`Maxx Crosby will not be joining the Ravens, undoing a trade that would have sent two first-round picks to Las Vegas.`\
 https://nytimes.com/athletic/7106276/2026/03/10/maxx-crosby-trade-ravens-back-out-raiders/
 
 **Roki Sasaki remains the story of Dodgers camp – even on a back field**\
@@ -17,12 +25,4 @@ https://nytimes.com/2026/03/10/world/middleeast/iran-war-us-israel-lebanon-recap
 **2 More People Affiliated With Iranian Women’s Soccer Team Seek Asylum in Australia**\
 `An athlete and a member of the team’s support staff opted not to return to Iran, where state media labeled the women ‘traitors’ for not singing the national anthem. Five others were given visas earlier.`\
 https://nytimes.com/2026/03/10/world/asia/iran-soccer-women-asylum-australia.html
-
-**U.S. Forces Attack Iranian Mine-Laying Ships Near the Strait of Hormuz**\
-`A video posted by the U.S. Central Command showed munitions striking nine vessels, most of which were moored at the time. Whether any mines have been laid in Gulf waters was unclear.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-mines-strait-of-hormuz.html
-
-**Luka Dončić separates from fiancée, to battle for custody of two daughters**\
-`Dončić’s ex-fiancée, Anamaria Goltes, filed a petition seeking child support and attorney fees.`\
-https://nytimes.com/athletic/7106150/2026/03/10/luka-doncic-fiancee-breakup-custody-daughters-lakers/
 
