@@ -1,3 +1,7 @@
+**Japan and Germany Say They Will Release Oil**\
+`Officials in Tokyo and Berlin said they planned to release oil from their strategic reserves to address disruptions of oil supplies from the Middle East.`\
+https://nytimes.com/2026/03/11/business/energy-environment/iran-oil-reserves-release.html
+
 **Trump Told Me Iran Is Welcome at World Cup, FIFA Chief Says**\
 `The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could play in this summer’s tournament despite the war in the Middle East.`\
 https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.html

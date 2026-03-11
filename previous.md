@@ -1,3 +1,7 @@
+**Japan and Germany Say They Will Release Oil**\
+`Officials in Tokyo and Berlin said they planned to release oil from their strategic reserves to address disruptions of oil supplies from the Middle East.`\
+https://nytimes.com/2026/03/11/business/energy-environment/iran-oil-reserves-release.html
+
 **Trump Told Me Iran Is Welcome at World Cup, FIFA Chief Says**\
 `The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could play in this summer’s tournament despite the war in the Middle East.`\
 https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107697/2026/03/11/temple-vs-utsa-stream-how-to-wat
 **How to watch Wyoming vs. UNLV men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Wyoming Cowboys play the UNLV Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107690/2026/03/11/wyoming-vs-unlv-stream-how-to-watch-march-11/
-
-**How to watch UNC Wilmington vs. Northeastern women's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the UNC Wilmington Seahawks play the Northeastern Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107688/2026/03/11/unc-wilmington-vs-northeastern-stream-how-to-watch-march-11/
 
