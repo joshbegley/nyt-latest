@@ -1,3 +1,7 @@
+**Why is the Knicks' offense regressing? The answer might be on the bench**\
+`New York's offense has taken a bit of a hit as of late. How concerning is it?`\
+https://nytimes.com/athletic/7104693/2026/03/11/knicks-offense-regressing-bench/
+
 **Consumer prices stayed subdued in February.**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/03/11/business/inflation-report-cpi/consumer-prices-stayed-subdued-in-february
