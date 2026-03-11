@@ -1,3 +1,7 @@
+**The Trump Administration Goes to War, by Any Memes Necessary**\
+`A series of White House social-media videos turn the carnage in Iran into gleeful entertainment.`\
+https://nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html
+
 **Bam Adebayo rode free throws to 83 points but there's little shame in it**\
 `The night he scored 83, Bam Adebayo notched another legacy: NBA free-throw king. It was a testament to this era of basketball.`\
 https://nytimes.com/athletic/7106720/2026/03/11/bam-adebayo-free-throws-83-points/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/arts/music/field-music-the-doors.html
 **How to watch Kent State vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
 `Find out how to watch the Kent State Golden Flashes play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107380/2026/03/11/kent-state-vs-miami-oh-stream-how-to-watch-march-11/
-
-**How to watch LSU vs. Kentucky men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Kentucky Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107378/2026/03/11/lsu-vs-kentucky-stream-how-to-watch-march-11/
 
