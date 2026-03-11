@@ -1,3 +1,7 @@
+**Blown lead, Copp's injury make Red Wings' loss to Florida especially painful**\
+`On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
+https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
+
 **BYU's AJ Dybantsa dazzles in opening round of Big 12 tournament**\
 `Dybantsa's 40 points broke Kevin Durant's record for the most points by a freshman in a Big 12 tournament game.`\
 https://nytimes.com/athletic/7106571/2026/03/10/aj-dybantsa-byu-big-12-tournament-first-round/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.ht
 **Jaylen Brown ejected vs. Spurs after snapping at referee over no-call**\
 `This marks only the second ejection for Brown in his 10-year NBA career.`\
 https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
-
-**Cameron Heyward fights back Father Time, gets new 2-year deal from Steelers: Source**\
-`Heyward will be 37 when he returns for his 16th NFL season.`\
-https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
 
