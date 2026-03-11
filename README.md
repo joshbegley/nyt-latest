@@ -1,3 +1,7 @@
+**What the Patriots' addition of Romeo Doubs means for a potential A.J. Brown trade**\
+`The expected signing of Doubs doesn't mean the Patriots won't still try to trade for Brown. It just gives them more options and leverage.`\
+https://nytimes.com/athletic/7106178/2026/03/11/patriots-aj-brown-trade-romeo-doubs-nfl-free-agency/
+
 **How Trump’s War With Iran Changed the World in a Week**\
 `The conflict is reshaping travel patterns, energy dependencies, living costs, trade routes and diplomatic alliances.`\
 https://nytimes.com/2026/03/11/world/europe/trump-iran-war-global-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/realestate/900000-homes-in-california-north-carol
 **At This Festival, the Dead of Winter Is the Life of the Party**\
 `In the Hudson Valley town of Chatham, N.Y., a weeklong event called “The Dark” took over theaters, bars, a church, a bookshop, a library and even a sauna.`\
 https://nytimes.com/2026/03/11/arts/dark-festival-ps21-chatham-new-york.html
-
-**Iran Shocks Could Spur a Shift to Clean Energy — but Also to Coal**\
-`Environmentalists say the war’s effects on oil and gas prices are an argument for countries to get off fossil fuels. But the reality is likely to be messier.`\
-https://nytimes.com/2026/03/11/climate/iran-war-oil-clean-energy-coal.html
 
