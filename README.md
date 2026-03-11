@@ -1,3 +1,19 @@
+**How to watch CSU Northridge vs. CSU Fullerton women's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the CSU Northridge Matadors play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107660/2026/03/11/csu-northridge-vs-csu-fullerton-stream-how-to-watch-march-11/
+
+**How to watch SMU vs. Louisville men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107656/2026/03/11/smu-vs-louisville-stream-how-to-watch-march-11/
+
+**How to watch Jacksonville State vs. Florida International women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Jacksonville State Gamecocks play the Florida International Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107654/2026/03/11/jacksonville-state-vs-florida-international-stream-how-to-watch-march-11/
+
+**How to watch Mississippi State vs. Auburn men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Auburn Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107649/2026/03/11/mississippi-state-vs-auburn-stream-how-to-watch-march-11/
+
 **How to watch Providence vs. Butler men's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Providence Friars play the Butler Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107643/2026/03/11/providence-vs-butler-stream-how-to-watch-march-11/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7106444/2026/03/11/st-louis-cardinals-mlb-how-to-wa
 **Can Miami (Ohio) go unbeaten? Here's a look at recent teams who came close**\
 `No Division I men's team has gone undefeated since Bob Knight's 1976 Indiana squad. Here's a look some teams who came up short this century.`\
 https://nytimes.com/athletic/7106981/2026/03/11/miami-ohio-undefeated-season-history-march-madness/
-
-**Victor Wembanyama smacked upside the head, ties a career-high in win over Celtics**\
-`Wembanyama took a shot to the nose, then proceeded to tie a career shooting night from 3-point range in a crucial win over Boston.`\
-https://nytimes.com/athletic/7107068/2026/03/11/wembanyama-career-high-win-celtics/
-
-**Why Barcelona chose the 'Hogwarts Hotel' as their Champions League base in Newcastle**\
-`Barcelona's players were taken aback by the interiors and decor of a place that "looked like something from Harry Potter"`\
-https://nytimes.com/athletic/7104989/2026/03/11/barcelona-newcastle-champions-league-hogwarts-hotel/
-
-**The Lakers are buying in and building momentum after win over Timberwolves**\
-`With consecutive wins over the New York Knicks and Minnesota Timberwolves, the Los Angeles Lakers seem to have figured some things out.`\
-https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum-luka-doncic/
-
-**Microsoft Takes a Stand Against the Trump Administration**\
-`The technology giant’s siding with Anthropic in its fight against the Pentagon stands out in an era when big companies have tended to keep quiet.`\
-https://nytimes.com/2026/03/11/business/dealbook/microsoft-anthropic-pentagon.html
 
