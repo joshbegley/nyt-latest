@@ -1,3 +1,7 @@
+**Noma Faces Los Angeles Protest Over Allegations of Past Abuse by Its Chef**\
+`At the vaunted restaurant’s pop-up in the Silver Lake neighborhood, fallout from recent reports continued.`\
+https://nytimes.com/2026/03/11/dining/noma-protests.html
+
 **Looting Lululemon: Thieves Target Athleisure Stores in New York City**\
 `Thousands of dollars’ worth of merchandise was stolen in a series of recent thefts at Lululemon and Alo stores in Manhattan and Brooklyn, the police said.`\
 https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html

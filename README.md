@@ -1,3 +1,11 @@
+**U.N. Security Council Condemns Iran’s Retaliatory Strikes in the Middle East**\
+`In an overwhelming vote, the council backed a resolution condemning Iran. A Russian proposal calling for an end to the war that didn’t assign blame or even name the parties, was rejected.`\
+https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
+
+**Caitlin Clark shines with double-double in Team USA dominating victory**\
+`Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
+https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
+
 **Noma Faces Los Angeles Protest Over Allegations of Past Abuse by Its Chef**\
 `At the vaunted restaurant’s pop-up in the Silver Lake neighborhood, fallout from recent reports continued.`\
 https://nytimes.com/2026/03/11/dining/noma-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109912/2026/03/11/san-jose-state-vs-boise-state-st
 **Chelsea's Neto says he's apologised to PSG ball boy for pushing him**\
 `Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
 https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
-
-**Two People Die After Paid Plasma Donation at Clinics in Canada**\
-`Grifols, a Spanish health care company, operates clinics in Canada that collect blood plasma from donors in exchange for an honorarium.`\
-https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-deaths.html
-
-**Latinos Reshaped Sleepy Hollow. Now They May Reshape the Town Board.**\
-`The Town of Mount Pleasant has settled a lawsuit under New York’s new Voting Rights Act, agreeing to change how its town board is elected.`\
-https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
 

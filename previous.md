@@ -1,3 +1,7 @@
+**Noma Faces Los Angeles Protest Over Allegations of Past Abuse by Its Chef**\
+`At the vaunted restaurant’s pop-up in the Silver Lake neighborhood, fallout from recent reports continued.`\
+https://nytimes.com/2026/03/11/dining/noma-protests.html
+
 **Looting Lululemon: Thieves Target Athleisure Stores in New York City**\
 `Thousands of dollars’ worth of merchandise was stolen in a series of recent thefts at Lululemon and Alo stores in Manhattan and Brooklyn, the police said.`\
 https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-death
 **Latinos Reshaped Sleepy Hollow. Now They May Reshape the Town Board.**\
 `The Town of Mount Pleasant has settled a lawsuit under New York’s new Voting Rights Act, agreeing to change how its town board is elected.`\
 https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
-
-**Here’s What Happened in the War in the Middle East on Wednesday**\
-`Israel and the Iran-backed armed group Hezbollah in Lebanon traded strikes on Wednesday. Three ships were hit near the Strait of Hormuz, a vital oil route.`\
-https://nytimes.com/2026/03/11/world/middleeast/iran-war-middle-east-recap.html
 
