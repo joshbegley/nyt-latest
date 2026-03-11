@@ -1,3 +1,7 @@
+**The Briefing: Leverkusen 1 Arsenal 1 - Was late penalty call right? Why did Saka struggle?**\
+`Our writers break down the action from the first leg of the last-16 tie in Leverkusen`\
+https://nytimes.com/athletic/7099435/2026/03/11/leverkusen-arsenal-havertz-saka/
+
 **After firing Adrian Autry, Syracuse basketball must invest to build on legacy**\
 `Mired in a five-year NCAA Tournament drought and a coach removed from Jim Boeheim, what is Syracuse basketball now? `\
 https://nytimes.com/athletic/7108963/2026/03/11/syracuse-mens-basketball-fired-adrian-autry/
