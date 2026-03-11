@@ -1,3 +1,7 @@
+**Michael Olise: Bayern Munich's genius at work**\
+`The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
+https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
+
 **Kai Havertz, the Arsenal forward with Mikel Arteta's trust**\
 `The German returns to face his boyhood club, Leverkusen, in the Champions League. His role at Arsenal is now more important than ever`\
 https://nytimes.com/athletic/7103967/2026/03/11/kai-havertz-arsenal-mikel-arteta-trust/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bas
 **After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
 `Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
 https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
-
-**This is what happened on March 10.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-10
 
