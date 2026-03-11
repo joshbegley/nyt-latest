@@ -1,3 +1,7 @@
+**My New Favorite Oscar Category: Casting**\
+`This year, the Academy Awards will present an Oscar in a new category, best achievement in casting. On his podcast “Cannonball,” Wesley Morris explains why he’s a fan.`\
+https://nytimes.com/video/podcasts/100000010766224/my-new-favorite-oscar-category-casting.html
+
 **Did ‘the Resistance’ Help or Hurt the Left?**\
 `“You do not get authoritarians to behave better by being meek and gentle and polite,” the author Rebecca Solnit said on “The Interview.” “You get it by being strong.”`\
 https://nytimes.com/video/podcasts/100000010766058/did-the-resistance-help-or-hurt-the-left.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107980/2026/03/11/alex-bowman-nascar-vertigo-missi
 **U.S. at Fault in Strike on School in Iran, Preliminary Inquiry Says**\
 `Outdated targeting data may have resulted in a mistaken missile strike, according to the ongoing military investigation, which undercuts President Trump’s assertion that Iran could be to blame.`\
 https://nytimes.com/2026/03/11/us/politics/iran-school-missile-strike.html
-
-**Who Will Be a Counterweight to Donald Trump?**\
-`The author and activist Rebecca Solnit says on “The Interview” that real change is often rooted in collective effort, not the actions of a single individual.`\
-https://nytimes.com/video/podcasts/100000010768677/who-will-be-a-counterweight-to-donald-trump.html
 
