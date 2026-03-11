@@ -1,3 +1,19 @@
+**What’s Better Than One Top Oscar Nominee? How About Two?**\
+`Warner Bros. is behind both “One Battle After Another” and “Sinners.” The studio has worked hard to not favor one over the other.`\
+https://nytimes.com/2026/03/11/business/media/sinners-one-battle-warner-oscars.html
+
+**Israel sends an extra infantry battalion to Lebanon’s border.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/israel-sends-an-extra-infantry-battalion-to-lebanons-border
+
+**How to watch McNeese vs. SFA men's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the McNeese Cowboys play the Stephen F. Austin Lumberjacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108333/2026/03/11/mcneese-vs-sfa-stream-how-to-watch-march-11/
+
+**How to watch Ole Miss vs. Texas men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108326/2026/03/11/ole-miss-vs-texas-stream-how-to-watch-march-11/
+
 **How to watch Xavier vs. Marquette men's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Xavier Musketeers play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7108321/2026/03/11/xavier-vs-marquette-stream-how-to-watch-march-11/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/11/arts/design/japan-wooden-dolls-crafts.html
 **How to watch Delaware State vs. Morgan State men's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the Delaware State Hornets play the Morgan State Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7108293/2026/03/11/delaware-state-vs-morgan-state-stream-how-to-watch-march-11/
-
-**How to watch Northwestern vs. Indiana men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the Indiana Hoosiers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108283/2026/03/11/northwestern-vs-indiana-stream-how-to-watch-march-11/
-
-**How to watch Utah Tech vs. UT Arlington women's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Utah Tech Trailblazers play the UT Arlington Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108279/2026/03/11/utah-tech-vs-ut-arlington-stream-how-to-watch-march-11/
-
-**QB Daniel Jones, Colts finalizing 2-year deal worth up to $100 million: Sources**\
-`The Colts could have lost Jones and wide receiver Alec Pierce this offseason, but they figured out a way to keep both of them long term.`\
-https://nytimes.com/athletic/7104555/2026/03/11/daniel-jones-colts-nfl-free-agency-2026/
-
-**Iran Has Fired Widely Banned Cluster Munitions at Israel**\
-`Accounts from Israeli officials and footage verified by The New York Times show that Iran has targeted Israel with the weapons. Experts say this has exposed civilians to indiscriminate attacks.`\
-https://nytimes.com/2026/03/11/world/middleeast/iran-israel-cluster-munitions.html
 
