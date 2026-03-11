@@ -1,3 +1,11 @@
+**Palace have already lost to AEK Larnaca this season. This is how they avoid a last-16 repeat**\
+`The Cypriot side's low block frustrated Oliver Glasner and company as they prevailed 1-0 at Selhurst Park in October's league-phase game`\
+https://nytimes.com/athletic/7101927/2026/03/11/crystal-palace-larnaca-larsen-guessand-johnson/
+
+**Gabriel Gudmundsson is Leeds' dribbling outlier. Can he now add goals and assists?**\
+`The Swede scored one and made another in the FA Cup on Sunday. Doing the same in the top flight could be big in staving off relegation`\
+https://nytimes.com/athletic/7104667/2026/03/11/gabriel-gudmundsson-leeds-dribbling-analysis/
+
 **Michael Olise: Bayern Munich's genius at work**\
 `The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
 https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/11/todays-new-york-times
 **Leave the Kurds Out of It**\
 `The United States and Israel have considered using Iranian Kurds as a ground force.`\
 https://nytimes.com/2026/03/11/opinion/iran-kurds-us-israel.html
-
-**At Least 17 U.S. Sites Damaged in War With Iran, Analysis Shows**\
-`A New York Times analysis of satellite imagery and verified videos shows damage to more than a dozen American military sites and installations from Iran’s retaliatory strikes.`\
-https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bases-strikes-map.html
-
-**Italy stuns Team USA in WBC. Here's how the Americans can still advance**\
-`The U.S. couldn't clinch a quarterfinal berth, and now it has to hope for a blowout in the Italy-Mexico game or an Italy win to advance.`\
-https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
 
