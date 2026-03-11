@@ -1,3 +1,7 @@
+**Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
+`Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round of 16 tie`\
+https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
+
 **Jets agree to terms with ex-Raider Dylan Parham, likely new starter at guard: Source**\
 `After losing two guards in free agency, the Jets turned to Parham, a starter in Vegas since entering the NFL in 2022.`\
 https://nytimes.com/athletic/7109493/2026/03/11/dylan-parham-jets-free-agency-2026/
