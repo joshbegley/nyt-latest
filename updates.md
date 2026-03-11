@@ -1,3 +1,7 @@
+**Red Wings suffer costly loss with blown lead, Andrew Copp injury: 5 thoughts**\
+`On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
+https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
+
 **Ukraine Reaches a Milestone: Making ‘China-Free’ Drones**\
 `The country has prioritized self-sufficiency in producing a crucial battlefield weapon, though weaning itself fully off cheaper Chinese components is difficult.`\
 https://nytimes.com/2026/03/11/world/europe/ukraine-drones-china.html

@@ -1,3 +1,7 @@
+**New Iranian Leader Was Wounded Early in the War, Iranian and Israeli Officials Say**\
+`Officials say Mojtaba Khamanei’s legs were hurt, but the circumstances as well as the extent of his injuries were unclear. He has remained out of view since being named leader three days ago.`\
+https://nytimes.com/2026/03/11/world/middleeast/khamenei-iran-leader-injured.html
+
 **Ukraine Reaches a Milestone: Making ‘China-Free’ Drones**\
 `The country has prioritized self-sufficiency in producing a crucial battlefield weapon, though weaning itself fully off cheaper Chinese components is difficult.`\
 https://nytimes.com/2026/03/11/world/europe/ukraine-drones-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7099791/2026/03/10/tennis-ticket-prices-ground-pass
 **Cowboys, QB Sam Howell agree on 1-year deal: Source**\
 `The deal for Howell signals that the Cowboys want last season's backup, Joe Milton, to have competition for the job.`\
 https://nytimes.com/athletic/7106660/2026/03/10/sam-howell-cowboys-nfl-free-agency-2026/
-
-**USMNT to be based at Irvine's Great Park in California for 2026 World Cup**\
-`With all three group games taking place out west, the U.S. will set up shop at Great Park Sports Complex`\
-https://nytimes.com/athletic/7027597/2026/03/10/usmnt-2026-world-cup-training-base-irvine-california/
 

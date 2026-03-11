@@ -14,7 +14,7 @@ https://nytimes.com/2026/03/11/pageoneplus/corrections-march-11-2026.html
 `Quotation of the Day for Wednesday, March 11, 2026.`\
 https://nytimes.com/2026/03/10/pageoneplus/quote-of-the-day-an-ipad-in-kindergarten-class-timeout-say-worried-parents.html
 
-**Blown lead, Copp's injury make Red Wings' loss to Florida especially painful**\
+**Red Wings suffer costly loss with blown lead, Andrew Copp injury: 5 thoughts**\
 `On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
 https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
 
