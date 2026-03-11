@@ -1,3 +1,15 @@
+**How has Sidney Crosby played when he returns from injuries? A look at the trends**\
+`A look at trends when Sidney Crosby returns to the lineup from injury.`\
+https://nytimes.com/athletic/7105009/2026/03/11/sidney-crosby-penguins-return-nhl/
+
+**At Least 2 Killed as Tornadoes and Violent Storms Move Across Midwest**\
+`Officials in Illinois and Indiana were assessing damage from the severe weather on Tuesday that might have produced up to a dozen tornadoes.`\
+https://nytimes.com/2026/03/11/us/kankakee-illinois-indiana-tornadoes-storms.html
+
+**Thune Is in a Vise as Trump and Far Right Demand Fight on Voter Bill**\
+`The majority leader is getting pounded for not pushing hard enough, but he says the votes just aren’t there to circumvent the filibuster.`\
+https://nytimes.com/2026/03/11/us/politics/thune-trump-voter-bill-senate.html
+
 **Atlanta, Tata Martino preach process over quick fix for winless, success-starved club**\
 `With no points in three games, the struggles continue for Atlanta United. So how long will it be before the club contends in MLS again?`\
 https://nytimes.com/athletic/7105755/2026/03/11/atlanta-united-tata-martino-mls-almiron/
