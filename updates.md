@@ -1,3 +1,19 @@
+**Ukraine Says It Hit Key Russian Electronics Plant; Russia Reports Deaths**\
+`The attack highlighted how Ukraine remains capable of hitting high-value targets inside Russia.`\
+https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-missiles.html
+
+**Savile song shame for English game. Plus: Kinsky howlers as Spurs crumble**\
+`Today in TAFC: The unspoken shame about sex offender chanting blighting English game. Plus: Champions League fallout as Spurs crumble`\
+https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-tottenham/
+
+**Bam's 83 now tops Kobe's 81. Was it the right move to keep the Heat star in?**\
+`What Adebayo did Tuesday was remarkable in its own right, but should he have called it a night a little bit sooner?`\
+https://nytimes.com/athletic/7107107/2026/03/11/bam-adebayo-83-points-kobe-bryant-heat-nba/
+
+**'Svendit': Patrick Halgren's Paralympic moment is about more than the medal**\
+`Patrick Halgren has been one of the Games' top showmen. But his Alpine skiing medal came with a bigger message — a tribute to his brother.`\
+https://nytimes.com/athletic/7106256/2026/03/11/paralympics-patrick-halgren-team-usa-svendit-alpine-skiing/
+
 **Rosenthal: As Team USA awaits its World Baseball Classic fate, it should never have come to this**\
 `The greatest U.S. team ever assembled will avoid elimination only if Italy beats Mexico or if Mexico wins by five or more runs on Wednesday.`\
 https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-mark-derosa/
