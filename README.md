@@ -1,3 +1,11 @@
+**Jets agree to terms with ex-Raider Dylan Parham, likely new starter at guard: Source**\
+`After losing two guards in free agency, the Jets turned to Parham, a starter in Vegas since entering the NFL in 2022.`\
+https://nytimes.com/athletic/7109493/2026/03/11/dylan-parham-jets-free-agency-2026/
+
+**At Least Three Ships Struck Around Strait of Hormuz**\
+`At least three ships were hit in and around the Persian Gulf on Wednesday, according to a British maritime monitoring group. Iran appeared to claim responsibility for the attack on the Mayuree Naree.`\
+https://nytimes.com/video/world/middleeast/100000010768971/iran-war-oil-strait-of-hormuz.html
+
 **Rory McIlroy a 'game-time decision' for The Players Championship**\
 `McIlroy, the defending champion, arrived at TPC Sawgrass around 2 p.m. Wednesday.`\
 https://nytimes.com/athletic/7109471/2026/03/11/rory-mcilroy-players-championship-injury-status/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/7109438/2026/03/11/bobby-hurley-asu-mens-basketball
 https://nytimes.com/athletic/7108805/2026/03/11/nfl-accelerator-diversity/
 
 **Will Trump TACO on Iran?**\
-`It’s a crucial election year and economic and political costs of the war are rising. It might be a safe bet that the president will declare victory and walk away.`\
+`It’s a crucial election year and economic and political costs of the war are rising. It won’t be easy for the president to declare victory and walk away.`\
 https://nytimes.com/2026/03/11/world/trump-iran-oil-britain-starmer-mandelson.html
 
 **Starmer Was Warned of ‘Reputational Risk’ of Making Friend of Epstein the Ambassador to U.S.**\
 `Documents released by the U.K. government on Wednesday showed that Prime Minister Keir Starmer was told of Peter Mandelson’s ties to the sex offender Jeffrey Epstein.`\
 https://nytimes.com/2026/03/11/world/europe/mandelson-files-epstein-starmer-us.html
-
-**Orlando City parts ways with manager Pareja amid club's Griezmann pursuit**\
-`Orlando City has no points and a league-worst goal differential through three games in MLS this season`\
-https://nytimes.com/athletic/7108871/2026/03/11/oscar-pareja-fired-orlando-city-manager-griezmann-mls/
-
-**Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
-`His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
-https://nytimes.com/2026/03/11/books/peter-schneider-dead.html
 

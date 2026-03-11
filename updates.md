@@ -1,3 +1,15 @@
+**Rory McIlroy a 'game-time decision' for The Players Championship**\
+`McIlroy, the defending champion, arrived at TPC Sawgrass around 2 p.m. Wednesday.`\
+https://nytimes.com/athletic/7109471/2026/03/11/rory-mcilroy-players-championship-injury-status/
+
+**State of the Blues: Tom Stillman on the trade deadline, Doug Armstrong and what comes next**\
+`Blues chairman Tom Stillman says the reality of the team's 2025-26 season led to veterans being traded and reliance on younger players.`\
+https://nytimes.com/athletic/7109045/2026/03/11/blues-trade-deadline-tom-stillman-interview/
+
+**Stephen Koch, 84, Dies; Champion of a Belatedly Hailed Photographer**\
+`A writer and critic, Mr. Koch struggled for years to shepherd his friend Peter Hujar’s underappreciated, Bohemian-world artwork to posthumous glory.`\
+https://nytimes.com/2026/03/11/arts/stephen-koch-dead.html
+
 **Charlie Kirk’s Group Expands Into High Schools. G.O.P. States Are Helping.**\
 `Turning Point USA, the right-wing campus group, is partnering with Arkansas and Indiana, the latest of several states to have similar arrangements.`\
 https://nytimes.com/2026/03/11/us/politics/turning-point-usa-high-school-clubs-charlie-kirk.html

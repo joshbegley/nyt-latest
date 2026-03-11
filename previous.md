@@ -1,3 +1,15 @@
+**Rory McIlroy a 'game-time decision' for The Players Championship**\
+`McIlroy, the defending champion, arrived at TPC Sawgrass around 2 p.m. Wednesday.`\
+https://nytimes.com/athletic/7109471/2026/03/11/rory-mcilroy-players-championship-injury-status/
+
+**State of the Blues: Tom Stillman on the trade deadline, Doug Armstrong and what comes next**\
+`Blues chairman Tom Stillman says the reality of the team's 2025-26 season led to veterans being traded and reliance on younger players.`\
+https://nytimes.com/athletic/7109045/2026/03/11/blues-trade-deadline-tom-stillman-interview/
+
+**Stephen Koch, 84, Dies; Champion of a Belatedly Hailed Photographer**\
+`A writer and critic, Mr. Koch struggled for years to shepherd his friend Peter Hujar’s underappreciated, Bohemian-world artwork to posthumous glory.`\
+https://nytimes.com/2026/03/11/arts/stephen-koch-dead.html
+
 **Charlie Kirk’s Group Expands Into High Schools. G.O.P. States Are Helping.**\
 `Turning Point USA, the right-wing campus group, is partnering with Arkansas and Indiana, the latest of several states to have similar arrangements.`\
 https://nytimes.com/2026/03/11/us/politics/turning-point-usa-high-school-clubs-charlie-kirk.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7108871/2026/03/11/oscar-pareja-fired-orlando-city-
 **Peter Schneider Dies at 85; His Novels Explored a Divided Germany**\
 `His best-known work, “The Wall Jumper,” proved prescient in its contention that the country would remain split even after reunification.`\
 https://nytimes.com/2026/03/11/books/peter-schneider-dead.html
-
-**THE AGELESS ICON: CELEBRATING HAIR AT EVERY AGE**\
-`Did you know your hair ages just like your skin?  Over time, the texture, density, volume and moisture levels of hair gradually change. Yet aging hair has long been misunderstood, without the kind of evolving regimens and targeted solutions we expect from skincare.`\
-https://nytimes.com/paidpost/kerastase/the-ageless-icon-celebrating-hair-at-every-age.html
-
-**Commanders add Chig Okonkwo and Nick Cross in free agency**\
-`Okonkwo and Cross add to the Commanders’ free-agency haul that now includes seven new players and nine returning veterans.`\
-https://nytimes.com/athletic/7109292/2026/03/11/chig-okonkwo-commanders-nfl-free-agency-2026/
-
-**Turkish Bank Accused of Laundering Billions for Iran Gets a Reprieve**\
-`A judge granted a request for a 90-day pause in the pending criminal case against Halkbank. Now it must pass an independent review to prove that it is no longer evading U.S. sanctions.`\
-https://nytimes.com/2026/03/11/nyregion/halkbank-turkey-sanctions-money-laundering.html
 
