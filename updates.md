@@ -1,3 +1,15 @@
+**NWSL, NWSLPA announce new trading card partnership with Panini**\
+`The NWSL trading card licenses moving to Panini could bring heightened interest and value for the league's collectibles. `\
+https://nytimes.com/athletic/7107987/2026/03/11/panini-nwsl-trading-cards-deal/
+
+**Team Italy standouts Kyle Teel, Sam Antonacci inspire hope for White Sox**\
+`The big hits by Teel and Antonacci against Team USA were further proof that the White Sox could be heading in the right direction.`\
+https://nytimes.com/athletic/7108265/2026/03/11/teel-antonacci-italy-world-baseball-classic-white-sox/
+
+**PGA Tour schedule changes are coming. What to know about Brian Rolapp's vision**\
+`The top-performing players will play on one tour, which Rolapp coined the “first track.”`\
+https://nytimes.com/athletic/7108743/2026/03/11/pga-tour-schedule-changes-brian-rolapp/
+
 **Alphonso Davies' latest injury shows why Canada might have to plan for life without him**\
 `The Bayern Munich left-back has not been ruled out of the World Cup, but Jesse Marsch needs to plan for every eventuality`\
 https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-munich-injury/
