@@ -1,4 +1,8 @@
 **Cowboys, QB Sam Howell agree on 1-year deal: Source**\
+`The deal for Howell signals that the Cowboys want last season's backup, Joe Milton, to have competition for the job.`\
+https://nytimes.com/athletic/7106660/2026/03/10/sam-howell-cowboys-nfl-free-agency-2026/
+
+**Cowboys, QB Sam Howell agree on 1-year deal: Source**\
 `Howell joins a crowded Cowboys QB room that includes starter Dak Prescott, backup Joe Milton and Will Grier.`\
 https://nytimes.com/athletic/7106660/2026/03/10/sam-howell-cowboys-nfl-free-agency-2026/
 
