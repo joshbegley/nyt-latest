@@ -1,3 +1,19 @@
+**Ukraine Reaches a Milestone: Making ‘China-Free’ Drones**\
+`The country has prioritized self-sufficiency in producing a crucial battlefield weapon, though weaning itself fully off cheaper Chinese components is difficult.`\
+https://nytimes.com/2026/03/11/world/europe/ukraine-drones-china.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 11, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7106788/2026/03/11/connections-sports-edition-hints-answers-march-11-2026/
+
+**Corrections: March 11, 2026**\
+`Corrections that appeared in print on Wednesday, March 11, 2026.`\
+https://nytimes.com/2026/03/11/pageoneplus/corrections-march-11-2026.html
+
+**Quote of the Day: An iPad in Kindergarten Class? Timeout, Say Worried Parents.**\
+`Quotation of the Day for Wednesday, March 11, 2026.`\
+https://nytimes.com/2026/03/10/pageoneplus/quote-of-the-day-an-ipad-in-kindergarten-class-timeout-say-worried-parents.html
+
 **Blown lead, Copp's injury make Red Wings' loss to Florida especially painful**\
 `On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
 https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7106660/2026/03/10/sam-howell-cowboys-nfl-free-agen
 **USMNT to be based at Irvine's Great Park in California for 2026 World Cup**\
 `With all three group games taking place out west, the U.S. will set up shop at Great Park Sports Complex`\
 https://nytimes.com/athletic/7027597/2026/03/10/usmnt-2026-world-cup-training-base-irvine-california/
-
-**Clue Examiner**\
-`Chances are you’ll figure out what John Guzzetta’s puzzle is all about.`\
-https://nytimes.com/2026/03/10/crosswords/daily-puzzle-2026-03-11.html
-
-**Pope Accepts Resignation of U.S. Bishop Charged With Embezzlement**\
-`Bishop Emanuel Shaleta pleaded not guilty to stealing at least $270,000 from the St. Peter Chaldean Catholic Cathedral in El Cajon, Calif.`\
-https://nytimes.com/2026/03/10/us/pope-leo-bishop-resigns-san-diego.html
-
-**Bennie Thompson Defeats Young Challenger in Mississippi Primary**\
-`The victory by Mr. Thompson, the state’s longest-serving Black Democrat, offers a counterpoint to the broader push nationwide for younger leadership in Congress.`\
-https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.html
-
-**Jaylen Brown ejected vs. Spurs after snapping at referee over no-call**\
-`This marks only the second ejection for Brown in his 10-year NBA career.`\
-https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
 
