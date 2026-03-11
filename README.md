@@ -1,3 +1,23 @@
+**Ravens restructure Lamar Jackson's contract, create salary-cap relief: Source**\
+`Jackson, 29, is entering the fourth season of the five-year, $260 million contract extension he signed with Baltimore in 2023.`\
+https://nytimes.com/athletic/7108061/2026/03/11/ravens-lamar-jackson-contract-restructure/
+
+**Where Censored Words Find a Safe Haven: Inside Minecraft**\
+`The Uncensored Library, a digital project that chronicles attacks on journalistic liberty, is adding a U.S. wing alongside those dedicated to Russia, Saudi Arabia and others.`\
+https://nytimes.com/2026/03/11/arts/minecraft-uncensored-library-united-states.html
+
+**Can You Prevent or Reverse Gray Hair?**\
+`It’s a question that has perplexed scientists for decades. Here’s what they have untangled so far.`\
+https://nytimes.com/2026/03/11/well/prevent-gray-hair.html
+
+**This Exact Weather Calls for This Exact Soup**\
+`Spring minestrone with kale and pasta is both buoying and satisfying.`\
+https://nytimes.com/2026/03/11/dining/this-exact-weather-calls-for-this-exact-soup.html
+
+**Watch how Bam Adebayo scored 83 points and made unlikely history**\
+`Bam Adebayo's historic night was a culmination of an injured roster, a forgiving opponent and new weapons he's added to his game. `\
+https://nytimes.com/athletic/7107820/2026/03/11/bam-adebayo-83-points-heat-video/
+
 **My New Favorite Oscar Category: Casting**\
 `This year, the Academy Awards will present an Oscar in a new category, best achievement in casting. On his podcast “Cannonball,” Wesley Morris explains why he’s a fan.`\
 https://nytimes.com/video/podcasts/100000010766224/my-new-favorite-oscar-category-casting.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/11/us/politics/trump-epstein-files-fbi-doj.html
 **See where U.S. installations have been damaged in the war with Iran.**\
 `By Bora Erden and Leanne Abraham`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/see-where-us-installations-have-been-damaged-in-the-war-with-iran
-
-**Palace's Mateta 'back' for Conference League tie vs. Larnaca**\
-`Oliver Glasner said the forward started to train with the side on Monday after his knee injury, but would not be able to start.`\
-https://nytimes.com/athletic/7107952/2026/03/11/jean-philippe-mateta-crystal-palace-injury-update/
-
-**NFL exploring new Thanksgiving Eve game as early as this season**\
-`Adding a Wednesday game could be enticing to a streamer or a network and, for the NFL, worth tens of millions of dollars.`\
-https://nytimes.com/athletic/7107984/2026/03/11/nfl-thanksgiving-eve-game-schedule/
-
-**‘Everyone is pissed’: Congresspeople write to FIFA with ticket price, funding concerns**\
-`Dozens of members of the House of Representatives have called on FIFA to lower ticket prices and offer host cities financial relief`\
-https://nytimes.com/athletic/7106777/2026/03/11/usa-politicians-letter-fifa-world-cup-ticket-prices-funding/
-
-**NASCAR driver Alex Bowman to miss second consecutive race due to vertigo**\
-`The Hendrick driver will miss another race after developing symptoms of vertigo two weeks ago in Austin, Texas.`\
-https://nytimes.com/athletic/7107980/2026/03/11/alex-bowman-nascar-vertigo-missing-las-vegas-race/
-
-**U.S. at Fault in Strike on School in Iran, Preliminary Inquiry Says**\
-`Outdated targeting data may have resulted in a mistaken missile strike, according to the ongoing military investigation, which undercuts President Trump’s assertion that Iran could be to blame.`\
-https://nytimes.com/2026/03/11/us/politics/iran-school-missile-strike.html
 
