@@ -1,3 +1,7 @@
+**Ghiroli: Mark DeRosa 'misspoke,' and now Team USA's manager must face more scrutiny**\
+`Video of Mark DeRosa's ill-fated comments was restored to the league's website after it had been taken down.`\
+https://nytimes.com/athletic/7108429/2026/03/11/mark-derosa-team-usa-cover-up/
+
 **Ravens get Trey Hendrickson, but Maxx Crosby trade reversal could damage reputation**\
 `Baltimore's decision to “back out” of the Crosby trade and pivot quickly to Hendrickson could have wide-ranging ramifications. `\
 https://nytimes.com/athletic/7107089/2026/03/11/ravens-maxx-crosby-failed-trade-trey-hendrickson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7108607/2026/03/11/knicks-vs-jazz-stream-how-to-wat
 **How to watch Cavaliers vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Cleveland Cavaliers play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7108604/2026/03/11/cavaliers-vs-magic-stream-how-to-watch-march-11/
-
-**How to watch Raptors vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108599/2026/03/11/raptors-vs-pelicans-stream-how-to-watch-march-11/
 
