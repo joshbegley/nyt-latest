@@ -1,3 +1,11 @@
+**Chelsea's Neto says he's apologised to PSG ball boy for pushing him**\
+`Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
+https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
+
+**Two People Die at Paid Plasma Donation Clinics in Canada**\
+`Grifols, a Spanish health care company, operates clinics in Canada that collect blood plasma from donors in exchange for an honorarium.`\
+https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-deaths.html
+
 **Latinos Reshaped Sleepy Hollow. Now They May Reshape the Town Board.**\
 `The Town of Mount Pleasant has settled a lawsuit under New York’s new Voting Rights Act, agreeing to change how its town board is elected.`\
 https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/us/missouri-police-nude-photo-sentencing.html
 **Ex-Michigan assistant Chris Partridge files lawsuit over 2023 firing**\
 `Partridge was fired amid the NCAA and Big Ten investigations into the Connor Stalions sign-stealing saga at Michigan in 2023.`\
 https://nytimes.com/athletic/7109501/2026/03/11/chris-partridge-michigan-football-lawsuit/
-
-**Grading Panthers' first wave of free agency: High marks for Jaelan Phillips, Devin Lloyd**\
-`Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with its other additions.`\
-https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jaelan-phillips/
-
-**Initial Military Investigation Faults the U.S. For a School Strike in Iran**\
-`Also, world leaders agree to tap oil reserves. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/03/11/briefing/iran-school-strike-oil-reserves.html
 
