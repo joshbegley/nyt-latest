@@ -1,3 +1,11 @@
+**Why the British government is only releasing some of the Mandelson files.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/why-the-british-government-is-only-releasing-some-of-the-mandelson-files
+
+**Was Bam Adebayo chasing stats? Of course, and that's just fine**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7107882/2026/03/11/bam-adebayo-83-points-nba-the-bounce/
+
 **Trump’s Actions in Iran and Venezuela Show Limits of U.S. Sanctions**\
 `America’s vast economic powers are able to wear down an adversary’s economy but are insufficient to topple leaders on their own.`\
 https://nytimes.com/2026/03/11/us/politics/trump-sanctions-iran-venezuela.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/heres-what-
 **Live Updates: U.K. Government Releases Files About Mandelson, Friend of Epstein**\
 `Prime Minister Keir Starmer agreed to publish internal documents on what he knew about Peter Mandelson’s ties to Jeffrey Epstein when he appointed him U.S. ambassador.`\
 https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk
-
-**Seahawks free-agency reset: Riq Woolen gone, contract details on Josh Jobe, Rashid Shaheed**\
-`Woolen did not find a lucrative, multiyear deal on the market, but a return to Seattle probably wouldn't have made sense for either side.`\
-https://nytimes.com/athletic/7106858/2026/03/11/seahawks-free-agent-news-riq-woolen/
-
-**49ers free-agency reset: Two losses, two additions and some D-linemen to target**\
-`Though they are dwindling, the 49ers have a few options if they want to add a veteran defensive lineman in free agency.`\
-https://nytimes.com/athletic/7106369/2026/03/11/49ers-free-agency-news-analysis/
 

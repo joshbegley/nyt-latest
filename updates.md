@@ -1,3 +1,11 @@
+**Trump’s Actions in Iran and Venezuela Show Limits of U.S. Sanctions**\
+`America’s vast economic powers are able to wear down an adversary’s economy but are insufficient to topple leaders on their own.`\
+https://nytimes.com/2026/03/11/us/politics/trump-sanctions-iran-venezuela.html
+
+**Astros closer Josh Hader to miss Opening Day, start season on IL with bicep issue**\
+`Josh Hader reported to camp behind schedule after feeling soreness in his bicep during an offseason bullpen session.`\
+https://nytimes.com/athletic/7107924/2026/03/11/astros-josh-hader-miss-opening-day/
+
 **Why is the Knicks' offense regressing? The answer might be on the bench**\
 `New York's offense has taken a bit of a hit as of late. How concerning is it?`\
 https://nytimes.com/athletic/7104693/2026/03/11/knicks-offense-regressing-bench/
