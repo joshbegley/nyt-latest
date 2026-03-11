@@ -1,3 +1,11 @@
+**Rosenthal: As Team USA awaits its World Baseball Classic fate, it should never have come to this**\
+`The greatest U.S. team ever assembled will avoid elimination only if Italy beats Mexico or if Mexico wins by five or more runs on Wednesday.`\
+https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-mark-derosa/
+
+**A Trump-Xi Summit Nears, but China Doesn’t Know What Trump Wants**\
+`Trump’s agenda for the high-stakes meeting remains unclear to Beijing, Chinese analysts say, while American executives say they haven’t been invited along.`\
+https://nytimes.com/2026/03/11/world/asia/china-us-trump-ceos.html
+
 **Live Updates: Inflation Report Offers Snapshot on Economy Before War With Iran**\
 `Data on consumer prices in February will inform the Federal Reserve’s deliberations over interest rates next week.`\
 https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7105153/2026/03/11/bears-free-agency-grade-nfl/
 **Exclusive: McMann on early goodbyes, the weight of a city and a lost Leafs season**\
 `The Maple Leafs are the only NHL organization McMann has ever known after fighting up from the ECHL. That is, until Friday's trade deadline.`\
 https://nytimes.com/athletic/7106657/2026/03/11/bobby-mcmann-maple-leafs-trade-kraken-behind-the-scenes/
-
-**What to know ahead of the latest inflation report.**\
-`Consumer price data set for release Wednesday was collected before the Iran war, a conflict that has stoked fresh uncertainty about the economic outlook. .`\
-https://nytimes.com/live/2026/03/11/business/inflation-report-cpi/cpi-inflation
-
-**Big East men's basketball tournament: Schedule, bracket and teams to watch**\
-`St. John's and UConn headline the men's Big East tournament, which returns to Madison Square Garden from March 11-14. `\
-https://nytimes.com/athletic/7105504/2026/03/11/big-east-mens-basketball-tournament-2026-how-to-watch/
 

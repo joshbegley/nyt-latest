@@ -1,3 +1,15 @@
+**Savile song shame for English game. Plus: Kinsky howlers as Spurs crumble**\
+`Today in TAFC: The unspoken shame about sex offender chanting blighting English game. Plus: Champions League fallout as Spurs crumble`\
+https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-tottenham/
+
+**Bam's 83 now tops Kobe's 81. Was it the right move to keep the Heat star in?**\
+`What Adebayo did Tuesday was remarkable in its own right, but should he have called it a night a little bit sooner?`\
+https://nytimes.com/athletic/7107107/2026/03/11/bam-adebayo-83-points-kobe-bryant-heat-nba/
+
+**'Svendit': Patrick Halgren's Paralympic moment is about more than the medal**\
+`Patrick Halgren has been one of the Games' top showmen. But his Alpine skiing medal came with a bigger message — a tribute to his brother.`\
+https://nytimes.com/athletic/7106256/2026/03/11/paralympics-patrick-halgren-team-usa-svendit-alpine-skiing/
+
 **Rosenthal: As Team USA awaits its World Baseball Classic fate, it should never have come to this**\
 `The greatest U.S. team ever assembled will avoid elimination only if Italy beats Mexico or if Mexico wins by five or more runs on Wednesday.`\
 https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-mark-derosa/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7104884/2026/03/11/blackhawks-2026-nhl-draft-picks-
 **'They know how good we are': A day in the life of a top mid-major baseball program**\
 `A mid-major program like Troy is always fighting for respect, not to mention quality wins to impress the NCAA selection committee.`\
 https://nytimes.com/athletic/7103862/2026/03/11/troy-trojans-baseball-skylar-meade-vanderbilt/
-
-**The Players Championship: What to know about Scheffler, Bhatia and No. 17**\
-`This is professional golf’s most unpredictable week.`\
-https://nytimes.com/athletic/7105767/2026/03/11/the-players-championship-2026-what-to-know-scheffler-bhatia/
-
-**The Bears are saying a lot by doing little in free agency**\
-`Is Ryan Poles blowing his opportunity to "go for it," or is he a maturing GM showing he knows how to run a team for the long haul?`\
-https://nytimes.com/athletic/7105153/2026/03/11/bears-free-agency-grade-nfl/
-
-**Exclusive: McMann on early goodbyes, the weight of a city and a lost Leafs season**\
-`The Maple Leafs are the only NHL organization McMann has ever known after fighting up from the ECHL. That is, until Friday's trade deadline.`\
-https://nytimes.com/athletic/7106657/2026/03/11/bobby-mcmann-maple-leafs-trade-kraken-behind-the-scenes/
 

@@ -1,3 +1,11 @@
+**Rosenthal: As Team USA awaits its World Baseball Classic fate, it should never have come to this**\
+`The greatest U.S. team ever assembled will avoid elimination only if Italy beats Mexico or if Mexico wins by five or more runs on Wednesday.`\
+https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-mark-derosa/
+
+**A Trump-Xi Summit Nears, but China Doesn’t Know What Trump Wants**\
+`Trump’s agenda for the high-stakes meeting remains unclear to Beijing, Chinese analysts say, while American executives say they haven’t been invited along.`\
+https://nytimes.com/2026/03/11/world/asia/china-us-trump-ceos.html
+
 **Live Updates: Inflation Report Offers Snapshot on Economy Before War With Iran**\
 `Data on consumer prices in February will inform the Federal Reserve’s deliberations over interest rates next week.`\
 https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
