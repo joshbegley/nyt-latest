@@ -1,3 +1,7 @@
+**BYU's AJ Dybantsa dazzles in opening round of Big 12 tournament**\
+`Dybantsa's 40 points broke Kevin Durant's record for the most points by a freshman in a Big 12 tournament game.`\
+https://nytimes.com/athletic/7106571/2026/03/10/aj-dybantsa-byu-big-12-tournament-first-round/
+
 **Scottie Pippen collection auction: Bird jersey draws biggest price**\
 `The sneakers worn by Michael Jordan in the 1992 Olympic Gold Medal Game came up short of expectations. `\
 https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celti
 **Cameron Heyward fights back Father Time, gets new 2-year deal from Steelers: Source**\
 `Heyward will be 37 when he returns for his 16th NFL season.`\
 https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
-
-**Suspect in Rihanna Shooting Is Charged With Attempted Murder**\
-`A woman fired a semiautomatic weapon at Rihanna’s home while she was there with ASAP Rocky and their three children on Sunday, the authorities said.`\
-https://nytimes.com/2026/03/10/arts/music/rihanna-charges-attempted-murder.html
 
