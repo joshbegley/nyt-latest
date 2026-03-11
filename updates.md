@@ -1,3 +1,11 @@
+**Looting Lululemon: Thieves Target Athleisure Stores in New York City**\
+`Thousands of dollars’ worth of merchandise was stolen in a series of recent thefts at Lululemon and Alo stores in Manhattan and Brooklyn, the police said.`\
+https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html
+
+**Countries Scramble to Shore Up Global Oil Supplies as Ships Are Attacked**\
+`The United States and Israel launched more strikes against Iran, where crowds mourned military commanders killed in the war. Israel also bombed targets in Lebanon, where the death toll climbed.`\
+https://nytimes.com/2026/03/11/world/middleeast/oil-ships-lebanon-iran-israel.html
+
 **How to watch Idaho vs. Montana men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Montana Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109984/2026/03/11/idaho-vs-montana-stream-how-to-watch-march-11/
