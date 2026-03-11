@@ -1,4 +1,12 @@
-**Minnesotan Bobby Brink scores in home debut as Wild finally thump Utah: Takeaways**\
+**After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
+`Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
+https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
+
+**This is what happened on March 10.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-10
+
+**Minnesotan Bobby Brink scores in home debut as Wild finally thump Mammoth: Takeaways**\
 `Minnetonka native Bobby Brink's night looked over almost before it began, but he and the Wild finished with a 5-0 shutout.`\
 https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gustavsson-mammoth/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/10/pageoneplus/quote-of-the-day-an-ipad-in-kindergar
 **Red Wings suffer costly loss with blown lead, Andrew Copp injury: 5 thoughts**\
 `On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
 https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
-
-**BYU's AJ Dybantsa dazzles in opening round of Big 12 tournament**\
-`Dybantsa's 40 points broke Kevin Durant's record for the most points by a freshman in a Big 12 tournament game.`\
-https://nytimes.com/athletic/7106571/2026/03/10/aj-dybantsa-byu-big-12-tournament-first-round/
-
-**Scottie Pippen collection auction: Larry Bird jersey draws biggest price**\
-`The sneakers worn by Michael Jordan in the 1992 Olympic gold medal game came up short of expectations. `\
-https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
 

@@ -1,3 +1,11 @@
+**Minnesotan Bobby Brink scores in home debut as Wild finally thump Utah: Takeaways**\
+`Minnetonka native Bobby Brink's night looked over almost before it began, but he and the Wild finished with a 5-0 shutout.`\
+https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gustavsson-mammoth/
+
+**How Vinicius Jr became Real Madrid's man for the Champions League knockout rounds**\
+`Carlo Ancelotti called Vinicius Jr “the most decisive player in the world”. He shines brightest in the Champions League`\
+https://nytimes.com/athletic/7104240/2026/03/11/vinicius-junior-real-madrid-champions-league-knockouts/
+
 **New Iranian Leader Was Wounded Early in the War, Iranian and Israeli Officials Say**\
 `Officials say Mojtaba Khamanei’s legs were hurt, but the circumstances as well as the extent of his injuries were unclear. He has remained out of view since being named leader three days ago.`\
 https://nytimes.com/2026/03/11/world/middleeast/khamenei-iran-leader-injured.html
