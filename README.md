@@ -1,3 +1,7 @@
+**Lowetide: What's the right way for Oilers to deploy McDavid and Draisaitl?**\
+`Every Oilers coach has played the McDavid-Draisaitl combination together at five-on-five at times.`\
+https://nytimes.com/athletic/7104688/2026/03/11/oilers-connor-mcdavid-leon-draisaitl-stats-lines/
+
 **Why the British government is only releasing some of the Mandelson files.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/why-the-british-government-is-only-releasing-some-of-the-mandelson-files
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107884/2026/03/11/axel-disasi-west-ham-chelsea-loa
 **Here’s what to know.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/heres-what-to-know
-
-**Live Updates: U.K. Government Releases Files About Mandelson, Friend of Epstein**\
-`Prime Minister Keir Starmer agreed to publish internal documents on what he knew about Peter Mandelson’s ties to Jeffrey Epstein when he appointed him U.S. ambassador.`\
-https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk
 
