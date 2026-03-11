@@ -1,3 +1,7 @@
+**Ukraine Says It Hit Key Russian Electronics Plant; Russia Reports Deaths**\
+`The attack highlighted how Ukraine remains capable of hitting high-value targets inside Russia.`\
+https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-missiles.html
+
 **Savile song shame for English game. Plus: Kinsky howlers as Spurs crumble**\
 `Today in TAFC: The unspoken shame about sex offender chanting blighting English game. Plus: Champions League fallout as Spurs crumble`\
 https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7105110/2026/03/11/real-madrid-champions-league-naz
 **Could the Blackhawks take another defenseman early in the 2026 draft?**\
 `The Blackhawks could draft anywhere from first to seventh and have a need for top-six NHL forwards, but they might draft another defenseman.`\
 https://nytimes.com/athletic/7104884/2026/03/11/blackhawks-2026-nhl-draft-picks-players/
-
-**'They know how good we are': A day in the life of a top mid-major baseball program**\
-`A mid-major program like Troy is always fighting for respect, not to mention quality wins to impress the NCAA selection committee.`\
-https://nytimes.com/athletic/7103862/2026/03/11/troy-trojans-baseball-skylar-meade-vanderbilt/
 
