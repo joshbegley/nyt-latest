@@ -1,3 +1,19 @@
+**Raise Taxes on the Rich? These Rich New Yorkers Are All for It.**\
+`Mayor Zohran Mamdani says he wants to raise taxes on New Yorkers who earn more than $1 million per year. Some millionaires actually agree with him.`\
+https://nytimes.com/2026/03/11/nyregion/raise-taxes-on-the-rich-these-rich-new-yorkers-are-all-for-it.html
+
+**Spring Fashion**\
+`What are you looking forward to wearing as the weather warms?`\
+https://nytimes.com/2026/03/11/learning/spring-fashion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/11/crosswords/spelling-bee-forum.html
+
+**The familiar lack of ruthlessness that is undermining Newcastle's season**\
+`Do Eddie Howe's side possess the clinical edge required to win in Barcelona? If Gordon plays, then maybe — but it remains a big maybe`\
+https://nytimes.com/athletic/7100788/2026/03/11/newcastle-barcelona-champions-league-strikers-osula-chances/
+
 **Desperate Spurs now have one task left this season: to survive in the Premier League**\
 `Tottenham would surely trade another sound beating next Wednesday for four points in the relegation battle`\
 https://nytimes.com/athletic/7106584/2026/03/11/tottenham-champions-league-atletico-tudor-relegation/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7107029/2026/03/11/world-baseball-classic-team-usa-
 **FIFA president says he has Trump's assurances Iran will be welcome at World Cup**\
 `Trump said in an interview last week that he didn't care if Iran participated in this summer's competition.`\
 https://nytimes.com/athletic/7107019/2026/03/11/trump-fifa-infantino-iran-welcome-world-cup/
-
-**How the NBA world reacted to Bam Adebayo's 83-point game**\
-`Adebayo's game caught the attention of many around the league.`\
-https://nytimes.com/athletic/7106805/2026/03/11/bam-adebayo-83-point-game-reaction/
-
-**Here’s the latest.**\
-`By John Ismay, Eric Schmitt, Qasim Nauman and Ephrat Livni`\
-https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/heres-the-latest
-
-**Live Updates: U.S. Says It Hit Iranian Mine-Laying Vessels Near Vital Oil Passage**\
-`The war in the Middle East has choked tanker traffic through the Strait of Hormuz, a conduit for a fifth of the world’s oil. There was no sign of hostilities easing on Wednesday.`\
-https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel
-
-**Liverpool cannot afford any mistakes at Anfield after wilting in Istanbul against Galatasaray**\
-`If Liverpool deliver in the second leg when Anfield provides the soundtrack then this night will fade into obscurity. But if they don't...`\
-https://nytimes.com/athletic/7104968/2026/03/11/liverpool-galatasaray-champions-league-mistakes-konate-wirtz/
 
