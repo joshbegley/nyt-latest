@@ -1,40 +1,40 @@
-**How to watch CSU Northridge vs. CSU Fullerton women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the CSU Northridge Matadors play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107660/2026/03/11/csu-northridge-vs-csu-fullerton-stream-how-to-watch-march-11/
+**Lobby group for non-elite European teams proposes drastic changes to UEFA revenue distribution**\
+`Under the current distribution, clubs in UEFA competitions receive the majority of the total revenue pot of €4.4billion (£3.8bn; $5.1bn).`\
+https://nytimes.com/athletic/7107538/2026/03/11/uefa-clubs-revenue-distribution-uec/
 
-**How to watch SMU vs. Louisville men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107656/2026/03/11/smu-vs-louisville-stream-how-to-watch-march-11/
+**How to watch Bowling Green vs. Ball State women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Bowling Green Falcons play the Ball State Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107711/2026/03/11/bowling-green-vs-ball-state-stream-how-to-watch-march-11/
 
-**How to watch Jacksonville State vs. Florida International women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Jacksonville State Gamecocks play the Florida International Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107654/2026/03/11/jacksonville-state-vs-florida-international-stream-how-to-watch-march-11/
+**If the Timberwolves truly have title hopes, they need to start playing like it**\
+`Just about everything went wrong for Minnesota in a 120-106 loss to the Lakers.`\
+https://nytimes.com/athletic/7106292/2026/03/11/timberwolves-loss-lakers-anthony-edwards/
 
-**How to watch Mississippi State vs. Auburn men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107649/2026/03/11/mississippi-state-vs-auburn-stream-how-to-watch-march-11/
+**How to watch SFA vs. Lamar women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Stephen F. Austin Ladyjacks play the Lamar Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107705/2026/03/11/sfa-vs-lamar-stream-how-to-watch-march-11/
 
-**How to watch Providence vs. Butler men's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Providence Friars play the Butler Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107643/2026/03/11/providence-vs-butler-stream-how-to-watch-march-11/
+**How to watch Temple vs. UTSA women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Temple Owls play the UTSA Roadrunners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107697/2026/03/11/temple-vs-utsa-stream-how-to-watch-march-11/
 
-**Nmecha extends Borussia Dortmund contract until 2030**\
-`The midfielder's previous contract was due to expire in 2028.`\
-https://nytimes.com/athletic/7107552/2026/03/11/felix-nmecha-borussia-dortmund-contract/
+**How to watch Wyoming vs. UNLV men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Wyoming Cowboys play the UNLV Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107690/2026/03/11/wyoming-vs-unlv-stream-how-to-watch-march-11/
 
-**Trump Administration Live Updates: Global Entry Program to Be Restored After Shutdown Pause**\
-``\
-https://nytimes.com/live/2026/03/11/us/trump-news
+**How to watch UNC Wilmington vs. Northeastern women's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the UNC Wilmington Seahawks play the Northeastern Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107688/2026/03/11/unc-wilmington-vs-northeastern-stream-how-to-watch-march-11/
 
-**F1 mailbag: Can Ferrari seriously fight Mercedes? And what happened to Oscar Piastri?**\
-`The Athletic's Formula 1 experts answer your questions on the 2026 season opener in Australia`\
-https://nytimes.com/athletic/7106278/2026/03/11/f1-mailbag-australian-gp-ferrari-mercedes/
+**How to watch Delaware State vs. Maryland-Eastern Shore women's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the Delaware State Hornets play the Maryland-Eastern Shore Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107685/2026/03/11/delaware-state-vs-maryland-eastern-shore-stream-how-to-watch-march-11/
 
-**How to watch the St. Louis Cardinals: Schedule, TV for new-look Redbirds**\
-`The Cardinals hit the reset button after a down year. Here's how to watch their young roster take shape over all 162 games.`\
-https://nytimes.com/athletic/7106444/2026/03/11/st-louis-cardinals-mlb-how-to-watch-2026/
+**How to watch Loyola Chicago vs. Richmond men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Loyola Chicago Ramblers play the Richmond Spiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107683/2026/03/11/loyola-chicago-vs-richmond-stream-how-to-watch-march-11/
 
-**Can Miami (Ohio) go unbeaten? Here's a look at recent teams who came close**\
-`No Division I men's team has gone undefeated since Bob Knight's 1976 Indiana squad. Here's a look some teams who came up short this century.`\
-https://nytimes.com/athletic/7106981/2026/03/11/miami-ohio-undefeated-season-history-march-madness/
+**How to watch USC vs. Washington men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Washington Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7107680/2026/03/11/usc-vs-washington-stream-how-to-watch-march-11/
 
