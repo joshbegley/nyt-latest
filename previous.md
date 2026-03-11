@@ -1,3 +1,7 @@
+**Clue Examiner**\
+`Chances are you’ll figure out what John Guzzetta’s puzzle is all about.`\
+https://nytimes.com/2026/03/10/crosswords/daily-puzzle-2026-03-11.html
+
 **Pope Accepts Resignation of U.S. Bishop Charged With Embezzlement**\
 `Bishop Emanuel Shaleta pleaded not guilty to stealing at least $270,000 from the St. Peter Chaldean Catholic Cathedral in El Cajon, Calif.`\
 https://nytimes.com/2026/03/10/us/pope-leo-bishop-resigns-san-diego.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/10/us/politics/how-trump-miscalculated-iran-response
 **Bondi Is Said to Move to Military Housing Because of Threats**\
 `The attorney general relocated from a Washington apartment to a base in the area within the past month, according to people familiar with the situation.`\
 https://nytimes.com/2026/03/10/us/politics/bondi-military-housing-threats.html
-
-**Missiles, Drones and Airstrikes Pound Middle East Into 12th Day of War**\
-`The effects of the war are being felt through the Persian Gulf.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-war-israel-middle-east-strikes.html
 

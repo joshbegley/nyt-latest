@@ -1,3 +1,7 @@
+**Clue Examiner**\
+`Chances are you’ll figure out what John Guzzetta’s puzzle is all about.`\
+https://nytimes.com/2026/03/10/crosswords/daily-puzzle-2026-03-11.html
+
 **Jaylen Brown ejected vs. Spurs after snapping at referee over no-call**\
 `This marks only the second ejection for Brown in his 10-year NBA career.`\
 https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
