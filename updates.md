@@ -1,3 +1,7 @@
+**Blown lead, Copp's injury make Red Wings' loss to Florida especially painful**\
+`On a night where four of their closest standings competitors won, the Red Wings blew a lead in the last 90 seconds of the game.`\
+https://nytimes.com/athletic/7106663/2026/03/10/red-wings-andrew-copp-injury-center-depth-blown-lead-panthers/
+
 **Scottie Pippen collection auction: Larry Bird jersey draws biggest price**\
 `The sneakers worn by Michael Jordan in the 1992 Olympic gold medal game came up short of expectations. `\
 https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
