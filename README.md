@@ -1,3 +1,15 @@
+**F1 mailbag: Can Ferrari seriously fight Mercedes? And what happened to Oscar Piastri?**\
+`The Athletic's Formula 1 experts answer your questions on the 2026 season opener in Australia`\
+https://nytimes.com/athletic/7106278/2026/03/11/f1-mailbag-australian-gp-ferrari-mercedes/
+
+**How to watch the St. Louis Cardinals: Schedule, TV for new-look Redbirds**\
+`The Cardinals hit the reset button after a down year. Here's how to watch their young roster take shape over all 162 games.`\
+https://nytimes.com/athletic/7106444/2026/03/11/st-louis-cardinals-mlb-how-to-watch-2026/
+
+**Can Miami (Ohio) go unbeaten? Here's a look at recent teams who came close**\
+`No Division I men's team has gone undefeated since Bob Knight's 1976 Indiana squad. Here's a look some teams who came up short this century.`\
+https://nytimes.com/athletic/7106981/2026/03/11/miami-ohio-undefeated-season-history-march-madness/
+
 **Victor Wembanyama smacked upside the head, ties a career-high in win over Celtics**\
 `Wembanyama took a shot to the nose, then proceeded to tie a career shooting night from 3-point range in a crucial win over Boston.`\
 https://nytimes.com/athletic/7107068/2026/03/11/wembanyama-career-high-win-celtics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7107325/2026/03/11/jimmy-savile-song-leeds-kinsky-t
 **Bam's 83 now tops Kobe's 81. Was it the right move to keep the Heat star in?**\
 `What Adebayo did Tuesday was remarkable in its own right, but should he have called it a night a little bit sooner?`\
 https://nytimes.com/athletic/7107107/2026/03/11/bam-adebayo-83-points-kobe-bryant-heat-nba/
-
-**'Svendit': Patrick Halgren's Paralympic moment is about more than the medal**\
-`Patrick Halgren has been one of the Games' top showmen. But his Alpine skiing medal came with a bigger message — a tribute to his brother.`\
-https://nytimes.com/athletic/7106256/2026/03/11/paralympics-patrick-halgren-team-usa-svendit-alpine-skiing/
-
-**Rosenthal: As Team USA awaits its World Baseball Classic fate, it should never have come to this**\
-`The greatest U.S. team ever assembled will avoid elimination only if Italy beats Mexico or if Mexico wins by five or more runs on Wednesday.`\
-https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-mark-derosa/
-
-**A Trump-Xi Summit Nears, but China Doesn’t Know What Trump Wants**\
-`Trump’s agenda for the high-stakes meeting remains unclear to Beijing, Chinese analysts say, while American executives say they haven’t been invited along.`\
-https://nytimes.com/2026/03/11/world/asia/china-us-trump-ceos.html
 
