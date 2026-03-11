@@ -1,40 +1,40 @@
-**The Weapons of War**\
-`We have a guide to the primary weapons being used in the current conflict.`\
-https://nytimes.com/2026/03/11/briefing/the-weapons-of-war.html
+**Live Updates: Inflation Report Offers Snapshot on Economy Before War With Iran**\
+`Data on consumer prices in February will inform the Federal Reserve’s deliberations over interest rates next week.`\
+https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
 
-**How would a Robert Thomas trade impact the growth of Blues' young forwards?**\
-`Thomas extended his point-streak to seven games Tuesday and continues to be a key cog in the success of his younger teammates.`\
-https://nytimes.com/athletic/7096888/2026/03/11/blues-robert-thomas-trade-young-forwards/
+**Deion Sanders enters Year 4 at Colorado surrounded by change. Will the results flip, too?**\
+`Colorado has two new coordinators and a new athletic director, but it should have more stability at quarterback in 2026.`\
+https://nytimes.com/athletic/7106041/2026/03/11/deion-sanders-colorado-football-2026-outlook/
 
-**Women's NCAA Tournament Bubble Watch: Will Clemson, Iowa State, Virginia make the field?**\
-`Who's in? Who's out? Conference tournaments this week will shape the selection committee's decisions.`\
-https://nytimes.com/athletic/7106638/2026/03/11/womens-ncaa-tournament-bubble-watch-clemson/
+**The past and present of Real Madrid's problem with extreme right-wing ultras**\
+`A fan was ejected from the Santiago Bernabeu for making a Nazi salute at the Spanish club's more recent Champions League home match`\
+https://nytimes.com/athletic/7105110/2026/03/11/real-madrid-champions-league-nazi-salute-man-city/
 
-**Bored with Roto? Try Head-to-Head fantasy baseball**\
-`Michael Salfino explains how head-to-head fantasy baseball can spice things up if your traditional Roto format has become a drag.`\
-https://nytimes.com/athletic/7104803/2026/03/11/fantasy-baseball-h2h-head-to-head-roto-formats/
+**Could the Blackhawks take another defenseman early in the 2026 draft?**\
+`The Blackhawks could draft anywhere from first to seventh and have a need for top-six NHL forwards, but they might draft another defenseman.`\
+https://nytimes.com/athletic/7104884/2026/03/11/blackhawks-2026-nhl-draft-picks-players/
 
-**Police in Britain Repeatedly Declined to Investigate Epstein. Why?**\
-`The police in London interviewed Virginia Giuffre three times over her allegations about Jeffrey Epstein, Andrew Mountbatten-Windsor and Ghislaine Maxwell, but never began a criminal investigation.`\
-https://nytimes.com/2026/03/11/world/europe/uk-police-epstein-giuffre-maxwell-prince-andrew.html
+**'They know how good we are': A day in the life of a top mid-major baseball program**\
+`A mid-major program like Troy is always fighting for respect, not to mention quality wins to impress the NCAA selection committee.`\
+https://nytimes.com/athletic/7103862/2026/03/11/troy-trojans-baseball-skylar-meade-vanderbilt/
 
-**The Pulse: 83 points? Him?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7105594/2026/03/11/bam-adebayo-83-points-the-pulse/
+**The Players Championship: What to know about Scheffler, Bhatia and No. 17**\
+`This is professional golf’s most unpredictable week.`\
+https://nytimes.com/athletic/7105767/2026/03/11/the-players-championship-2026-what-to-know-scheffler-bhatia/
 
-**What do other extensions mean for Mets' Freddy Peralta?**\
-`Jesús Luzardo recently signed a five-year, $135 million extension, providing a glimpse at the market for starting pitchers.`\
-https://nytimes.com/athletic/7104953/2026/03/11/mets-freddy-peralta-extension/
+**The Bears are saying a lot by doing little in free agency**\
+`Is Ryan Poles blowing his opportunity to "go for it," or is he a maturing GM showing he knows how to run a team for the long haul?`\
+https://nytimes.com/athletic/7105153/2026/03/11/bears-free-agency-grade-nfl/
 
-**Arsenal quadruple odds: Can Mikel Arteta's team win all four trophies?**\
-`Mikel Arteta's side are still in contention for the Premier League, Champions League, Carabao Cup and FA Cup`\
-https://nytimes.com/athletic/7107417/2026/03/11/arsenal-quadruple-betting-odds/
+**Exclusive: McMann on early goodbyes, the weight of a city and a lost Leafs season**\
+`The Maple Leafs are the only NHL organization McMann has ever known after fighting up from the ECHL. That is, until Friday's trade deadline.`\
+https://nytimes.com/athletic/7106657/2026/03/11/bobby-mcmann-maple-leafs-trade-kraken-behind-the-scenes/
 
-**Matt Vasgersian to call MLB's Netflix debut, NBC's Opening Day broadcast**\
-`Vasgersian is expected to be on play-by-play for Netflix's debut when the Yankees face the Giants in San Francisco on Wednesday at 8 p.m.`\
-https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netflix-nbc-peacock-mlb/
+**What to know ahead of the latest inflation report.**\
+`Consumer price data set for release Wednesday was collected before the Iran war, a conflict that has stoked fresh uncertainty about the economic outlook. .`\
+https://nytimes.com/live/2026/03/11/business/inflation-report-cpi/cpi-inflation
 
-**Democrats Demand Accountability from Hegseth on Iranian School Strike**\
-`A majority of Senate Democrats called on Secretary of Defense Pete Hegseth to disclose whether the U.S. carried out the deadly attack.`\
-https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-strike.html
+**Big East men's basketball tournament: Schedule, bracket and teams to watch**\
+`St. John's and UConn headline the men's Big East tournament, which returns to Madison Square Garden from March 11-14. `\
+https://nytimes.com/athletic/7105504/2026/03/11/big-east-mens-basketball-tournament-2026-how-to-watch/
 
