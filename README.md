@@ -1,3 +1,7 @@
+**How has Sidney Crosby played when he returns from injuries? A look at the trends**\
+`A look at trends when Sidney Crosby returns to the lineup from injury.`\
+https://nytimes.com/athletic/7105009/2026/03/11/sidney-crosby-penguins-return-nhl/
+
 **Atlanta, Tata Martino preach process over quick fix for winless, success-starved club**\
 `With no points in three games, the struggles continue for Atlanta United. So how long will it be before the club contends in MLS again?`\
 https://nytimes.com/athletic/7105755/2026/03/11/atlanta-united-tata-martino-mls-almiron/
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/11/us/kankakee-illinois-indiana-tornadoes-storms.htm
 `“The Popinjay Cavalier,” written and directed by Tarantino, will open next year. It is described as a “rambunctious comedy of deception” set in 1830s Europe.`\
 https://nytimes.com/2026/03/11/theater/quentin-tarantino-play-london-west-end.html
 
-**Thune Is in a Vise as Trump and the Far Right Demand a Fight on Voter Bill**\
+**Thune Is in a Vise as Trump and Far Right Demand Fight on Voter Bill**\
 `The majority leader is getting pounded for not pushing hard enough, but he says the votes just aren’t there to circumvent the filibuster.`\
 https://nytimes.com/2026/03/11/us/politics/thune-trump-voter-bill-senate.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/middleeast/iran-weapons-missiles-israel-gul
 **Trump Administration to Announce New Trade Investigations**\
 `The investigations into unfair trade practices will likely lead to tariffs on foreign countries, as the administration works to replace the import taxes struck down by the Supreme Court.`\
 https://nytimes.com/2026/03/11/business/economy/trump-trade-investigations-tariffs.html
-
-**Juan Ayuso abandons Paris-Nice after heavy crash, Jonas Vingegaard wins stage and takes yellow jersey**\
-`The Spaniard was leading the eight-stage race before a multi-rider crash caused him to be taken to hospital. `\
-https://nytimes.com/athletic/7108136/2026/03/11/juan-ayuso-paris-nice-vingegaard-visma-red-bull/
 
