@@ -1,3 +1,19 @@
+**Lebanese residents left in shock and fear as Israeli strikes reach center of Beirut.**\
+`By Sarah Chaayto and Abdi Latif Dahir`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/lebanese-residents-left-in-shock-and-fear-as-israeli-strikes-reach-center-of-beirut
+
+**Bills restructure Josh Allen's contract to create more than $12 million in cap space**\
+`The move will help the Bills clear enough cap space to onboard the contract of wide receiver DJ Moore when the trade becomes official.`\
+https://nytimes.com/athletic/7108261/2026/03/11/josh-allen-buffalo-bills-restructure-cap-space-free-agency/
+
+**For Some Athletes, Major Sports Events Can Be an Opportunity to Defect**\
+`Members of the Iranian soccer team who chose to remain in Australia this week are far from the first to travel to a competition and stay there.`\
+https://nytimes.com/2026/03/11/sports/iran-women-soccer-defect.html
+
+**U.S. Seeks Extradition of Maduro Ally Pardoned by Biden**\
+`The indicted tycoon Alex Saab is being detained in Venezuela on a U.S. request. His case tests President Trump’s sway over the country’s new rulers.`\
+https://nytimes.com/2026/03/11/world/americas/us-alex-saab-extradition-maduro-ally.html
+
 **Dehner Jr.: Bengals' Trey Hendrickson drama doesn’t end, it merely changes shape**\
 `The Bengals got some vindication on how they saw the All-Pro's market, but now they have to figure out how to stop him twice a season.`\
 https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-agency-ravens/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7107089/2026/03/11/ravens-maxx-crosby-failed-trade-
 **Why the NWSL is entering the 2026 season in its healthiest business position ever**\
 `This week's sports business cheat sheet from The Athletic, including an update on the NBA's "Magic City Monday" mishegas.`\
 https://nytimes.com/athletic/7108524/2026/03/11/nwsl-prime-ion-espn-cbs-cvs-moneycall/
-
-**Steve Tisch, family planning to transfer Giants ownership stakes to children: Memo**\
-`The news comes less than two months after emails released by the U.S. Department of Justice connected Jeffrey Epstein to Steve Tisch.`\
-https://nytimes.com/athletic/7108588/2026/03/11/steve-tisch-giants-ownership-stake-sell-children-epstein-files/
-
-**Utah Mammoth sign Nick Schmaltz to 8-year, $64 million contract extension**\
-`Schmaltz already has set a career high with 24 goals this season.`\
-https://nytimes.com/athletic/7108616/2026/03/11/nick-schmaltz-utah-mammoth-contract/
-
-**Jill Biden Will Publish a Memoir in June**\
-`In “View from the East Wing,” the former first lady will recount her time in the White House and share her views on the 2024 presidential race.`\
-https://nytimes.com/2026/03/11/books/review/jill-biden-memoir.html
-
-**V.A. Begins Drive to Put Homeless Veterans Into Guardianship**\
-`A joint effort with the Justice Department creates new authority to compel veterans into institutional or involuntary care.`\
-https://nytimes.com/2026/03/11/us/politics/veterans-homeless-guardianship-trump.html
 

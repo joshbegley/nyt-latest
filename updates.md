@@ -1,3 +1,19 @@
+**Lebanese residents left in shock and fear as Israeli strikes reach center of Beirut.**\
+`By Sarah Chaayto and Abdi Latif Dahir`\
+https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/lebanese-residents-left-in-shock-and-fear-as-israeli-strikes-reach-center-of-beirut
+
+**Bills restructure Josh Allen's contract to create more than $12 million in cap space**\
+`The move will help the Bills clear enough cap space to onboard the contract of wide receiver DJ Moore when the trade becomes official.`\
+https://nytimes.com/athletic/7108261/2026/03/11/josh-allen-buffalo-bills-restructure-cap-space-free-agency/
+
+**For Some Athletes, Major Sports Events Can Be an Opportunity to Defect**\
+`Members of the Iranian soccer team who chose to remain in Australia this week are far from the first to travel to a competition and stay there.`\
+https://nytimes.com/2026/03/11/sports/iran-women-soccer-defect.html
+
+**U.S. Seeks Extradition of Maduro Ally Pardoned by Biden**\
+`The indicted tycoon Alex Saab is being detained in Venezuela on a U.S. request. His case tests President Trump’s sway over the country’s new rulers.`\
+https://nytimes.com/2026/03/11/world/americas/us-alex-saab-extradition-maduro-ally.html
+
 **Dehner Jr.: Bengals' Trey Hendrickson drama doesn’t end, it merely changes shape**\
 `The Bengals got some vindication on how they saw the All-Pro's market, but now they have to figure out how to stop him twice a season.`\
 https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-agency-ravens/
