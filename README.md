@@ -1,3 +1,7 @@
+**Wisconsin Supreme Court Election 2026: Latest Polls**\
+`Track the latest polls in the Wisconsin Supreme Court election.`\
+https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-2026.html
+
 **How should fans process Bam Adebayo's 83-point night?**\
 `How should fans contextualize an event as surprising and remarkable as Bam Adebayo scoring 83 points in a game? We asked our writers.`\
 https://nytimes.com/athletic/7108088/2026/03/11/bam-adebayo-fans-react-83-point-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109186/2026/03/11/temple-vs-florida-atlantic-strea
 **How to watch Canadiens vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109180/2026/03/11/canadiens-vs-senators-stream-how-to-watch-march-11/
-
-**How to watch Jackson State vs. Florida A&M men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Jackson State Tigers play the Florida A&M Rattlers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109174/2026/03/11/jackson-state-vs-florida-a-m-stream-how-to-watch-march-11/
 
