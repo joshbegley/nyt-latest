@@ -1,3 +1,7 @@
+**Should Parents Be Held Responsible for School Shootings?**\
+`Prosecuting parents for the actions of their children is becoming more common in the push for accountability after mass shootings. Do you support the tactic?`\
+https://nytimes.com/2026/03/11/learning/should-parents-be-held-responsible-for-school-shootings.html
+
 **Why Lewis O'Brien will be key if Wrexham are to keep their play-offs dream alive**\
 `A home defeat to Hull City on Tuesday night has made Wrexham's top-six position in the Championship more precarious`\
 https://nytimes.com/athletic/7100932/2026/03/11/lewis-obrien-wrexham-championship-promotion-race/
