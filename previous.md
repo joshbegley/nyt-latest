@@ -1,8 +1,20 @@
+**How to watch UCSB vs. UC Davis men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the UCSB Gauchos play the UC Davis Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109931/2026/03/11/ucsb-vs-uc-davis-stream-how-to-watch-march-11/
+
+**California Officials See No Imminent Threat of Drone Attacks by Iran**\
+`Just before the war began, the Federal Bureau of Investigation told state officials that Iran might respond with drone attacks on California. No specific, credible threats have been identified.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-california-drones-fbi.html
+
+**How to watch San Jose State vs. Boise State men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the San Jose State Spartans play the Boise State Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109912/2026/03/11/san-jose-state-vs-boise-state-stream-how-to-watch-march-11/
+
 **Chelsea's Neto says he's apologised to PSG ball boy for pushing him**\
 `Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
 https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
 
-**Two People Die at Paid Plasma Donation Clinics in Canada**\
+**Two People Die After Paid Plasma Donation at Clinics in Canada**\
 `Grifols, a Spanish health care company, operates clinics in Canada that collect blood plasma from donors in exchange for an honorarium.`\
 https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-deaths.html
 
@@ -14,7 +26,7 @@ https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
 `Israel and the Iran-backed armed group Hezbollah in Lebanon traded strikes on Wednesday. Three ships were hit near the Strait of Hormuz, a vital oil route.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-war-middle-east-recap.html
 
-**Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
+**Cowboys trade DT Odighizuwa to 49ers, 1 year into $80M contract**\
 `Osa Odighizuwa signed a four-year, $80 million deal one year ago but became the odd man out after Kenny Clark and Quinnen Williams arrived.`\
 https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028
 **Strong or Weak? How Trump Picks His Battles.**\
 `Despite his tough talk, President Trump has consistently made allowances for countries he sees as powerful or dominant.`\
 https://nytimes.com/2026/03/11/us/politics/trump-adversaries-picking-battles.html
-
-**Ravens GM Eric DeCosta 'gutted' that trade for Maxx Crosby fell through**\
-`“Nobody’s more upset about this than me," DeCosta said. “And so a regret, a big regret for me, but we will move on." `\
-https://nytimes.com/athletic/7109163/2026/03/11/ravens-eric-decosta-maxx-crosby-trade/
-
-**Ex-Officer Who Took Nude Images From Phones in Traffic Stops Is Sentenced**\
-`The former Missouri police officer, Julian Alcala, was sentenced to two years in prison and now faces civil lawsuits from several of the 20 victims the authorities identified.`\
-https://nytimes.com/2026/03/11/us/missouri-police-nude-photo-sentencing.html
-
-**Ex-Michigan assistant Chris Partridge files lawsuit over 2023 firing**\
-`Partridge was fired amid the NCAA and Big Ten investigations into the Connor Stalions sign-stealing saga at Michigan in 2023.`\
-https://nytimes.com/athletic/7109501/2026/03/11/chris-partridge-michigan-football-lawsuit/
 
