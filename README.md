@@ -1,4 +1,4 @@
-**Utah Mammoth sign Nick Schmaltz to eight-year, $64 million contract extension**\
+**Utah Mammoth sign Nick Schmaltz to 8-year, $64 million contract extension**\
 `Schmaltz already has set a career high with 24 goals this season.`\
 https://nytimes.com/athletic/7108616/2026/03/11/nick-schmaltz-utah-mammoth-contract/
 
