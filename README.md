@@ -6,7 +6,7 @@ https://nytimes.com/2026/03/10/us/pope-leo-bishop-resigns-san-diego.html
 `The victory by Mr. Thompson, the state’s longest-serving Black Democrat, offers a counterpoint to the broader push nationwide for younger leadership in Congress.`\
 https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.html
 
-**Celtics' Jaylen Brown ejected vs. Spurs, had to be held back after yelling at official**\
+**Jaylen Brown ejected vs. Spurs after snapping at referee over no-call**\
 `This marks only the second ejection for Brown in his 10-year NBA career.`\
 https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
 
