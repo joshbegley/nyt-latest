@@ -1,3 +1,11 @@
+**Off the Runway in Paris**\
+`There’s more to fashion week than runway shows. Here, a short list of some high spots.`\
+https://nytimes.com/2026/03/11/style/paris-fashion-week-off-the-runway.html
+
+**Warriors' Kerr still wants NBA to cut down season; says quality of play would improve**\
+`"I think it would be a more competitive and healthier league if we played fewer games," coach Steve Kerr said this week.`\
+https://nytimes.com/athletic/7107827/2026/03/11/steve-kerr-nba-schedule-cut-games/
+
 **Ravens restructure Lamar Jackson's contract, create salary-cap relief: Source**\
 `Jackson, 29, is entering the fourth season of the five-year, $260 million contract extension he signed with Baltimore in 2023.`\
 https://nytimes.com/athletic/7108061/2026/03/11/ravens-lamar-jackson-contract-restructure/
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010766058/did-the-resistance-help-or-hu
 **‘Everything We Can Save Is Worth Saving’**\
 `On “The Interview,” the writer Rebecca Solnit shared her perspective on tackling climate change and emphasized that it is not too late to take action.`\
 https://nytimes.com/video/podcasts/100000010766139/everything-we-can-save-is-worth-saving.html
-
-**Trump Files Missing in Epstein Release Highlight Justice Dept.’s Missteps**\
-`In late July, an F.B.I. agent asked colleagues to get started on a sensitive task relating to Jeffrey Epstein, listing the names of 14 prominent men, with President Trump at the top.`\
-https://nytimes.com/2026/03/11/us/politics/trump-epstein-files-fbi-doj.html
-
-**See where U.S. installations have been damaged in the war with Iran.**\
-`By Bora Erden and Leanne Abraham`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/see-where-us-installations-have-been-damaged-in-the-war-with-iran
 
