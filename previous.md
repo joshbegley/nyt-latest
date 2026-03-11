@@ -1,3 +1,15 @@
+**Michael Olise: Bayern Munich's genius at work**\
+`The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
+https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
+
+**Kai Havertz, the Arsenal forward with Mikel Arteta's trust**\
+`The German returns to face his boyhood club, Leverkusen, in the Champions League. His role at Arsenal is now more important than ever`\
+https://nytimes.com/athletic/7103967/2026/03/11/kai-havertz-arsenal-mikel-arteta-trust/
+
+**On-pitch freedom, off-pitch rules: What Pereira has changed at Forest**\
+`The club's fourth coach of the season aims to lead them clear of relegation. So how is he trying to change their approach, and will it work?`\
+https://nytimes.com/athletic/7093498/2026/03/11/what-vitor-pereira-has-changed-at-nottingham-forest-on-pitch-freedom-off-pitch-rules/
+
 **Ligue 1 was, for a long time, a farmer's league – but urbanisation is behind France's increased success**\
 `France’s development as a footballing nation owes to its urbanisation, and the fact it is no longer a country of rural life and of farmers`\
 https://nytimes.com/athletic/7104126/2026/03/11/ligue-1-psg-farmers-league-france/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bas
 **After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
 `Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
 https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
-
-**This is what happened on March 10.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-10
-
-**Minnesotan Bobby Brink scores in home debut as Wild finally thump Mammoth: Takeaways**\
-`Minnetonka native Bobby Brink's night looked over almost before it began, but he and the Wild finished with a 5-0 shutout.`\
-https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gustavsson-mammoth/
-
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`Follow here to learn about the 31 teams earning at-large berths to the 2026 men's NCAA Tournament.`\
-https://nytimes.com/athletic/7097219/2026/03/11/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
 

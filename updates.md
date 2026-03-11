@@ -1,3 +1,15 @@
+**Michael Olise: Bayern Munich's genius at work**\
+`The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
+https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
+
+**Kai Havertz, the Arsenal forward with Mikel Arteta's trust**\
+`The German returns to face his boyhood club, Leverkusen, in the Champions League. His role at Arsenal is now more important than ever`\
+https://nytimes.com/athletic/7103967/2026/03/11/kai-havertz-arsenal-mikel-arteta-trust/
+
+**On-pitch freedom, off-pitch rules: What Pereira has changed at Forest**\
+`The club's fourth coach of the season aims to lead them clear of relegation. So how is he trying to change their approach, and will it work?`\
+https://nytimes.com/athletic/7093498/2026/03/11/what-vitor-pereira-has-changed-at-nottingham-forest-on-pitch-freedom-off-pitch-rules/
+
 **Ligue 1 was, for a long time, a farmer's league – but urbanisation is behind France's increased success**\
 `France’s development as a footballing nation owes to its urbanisation, and the fact it is no longer a country of rural life and of farmers`\
 https://nytimes.com/athletic/7104126/2026/03/11/ligue-1-psg-farmers-league-france/
