@@ -1,13 +1,5 @@
-**2 More Iranian Women’s Soccer Players Seek Asylum in Australia**\
-`An athlete and a member of the team’s support staff opted not to return to Iran, where state media labeled the women ‘traitors’ for not singing the national anthem. Five others were given visas earlier.`\
-https://nytimes.com/2026/03/10/world/asia/iran-soccer-women-asylum-australia.html
-
-**U.S. Forces Attack Iranian Mine-Laying Ships Near the Strait of Hormuz**\
-`A video posted by the U.S. Central Command showed munitions striking nine vessels, most of which were moored at the time. Whether any mines have been laid in Gulf waters was unclear.`\
-https://nytimes.com/2026/03/10/world/middleeast/iran-mines-strait-of-hormuz.html
-
 **Luka Dončić separates from fiancée, to battle for custody of two daughters**\
-`Dončić’s ex-fiancée, Anamaria Goltes, filed a petition seeking child support and attorney fees.`\
+`Dončić’s ex-fiance, Anamaria Goltes, filed a petition seeking child support and attorney fees.`\
 https://nytimes.com/athletic/7106150/2026/03/10/luka-doncic-fiancee-breakup-custody-daughters-lakers/
 
 **Panthers reach 1-year deal with center Luke Fortner: Sources**\
@@ -25,4 +17,12 @@ https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third
 **How to watch Idaho vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7106110/2026/03/10/idaho-vs-eastern-washington-stream-how-to-watch-march-10/
+
+**How Enmanuel De Jesus emerged as a serious candidate to make Tigers roster**\
+`After spending two seasons in Korea, De Jesus, 29, is a different pitcher from the lefty who appeared in two games for the Marlins in 2023.`\
+https://nytimes.com/athletic/7105677/2026/03/10/tigers-enmanuel-de-jesus-roster-candidate-venezuela/
+
+**Orlando City target Griezmann confirms he will stay at Atletico until the summer**\
+`"We'll see but the idea is to stay until the end, and then others can speak."`\
+https://nytimes.com/athletic/7106035/2026/03/10/antoine-griezmann-atletico-madrid-future-mls-orlando/
 
