@@ -1,5 +1,5 @@
 **Bam Adebayo ignites for 31-point first quarter, breaks LeBron James' Heat record**\
-`Adebayo's single-game career high point total was 41 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
+`Adebayo's single-game career high point total was 43 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
 https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
 
 **Suspended L.A. Schools Chief Denies Wrongdoing and Says He Hopes to Return**\
