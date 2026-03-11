@@ -1,8 +1,20 @@
+**Vikings, RB Aaron Jones agree to revised contract for next season: Source**\
+`In two seasons with the Vikings, the veteran running back ran for 1,686 yards and seven touchdowns.`\
+https://nytimes.com/athletic/7087365/2026/03/11/aaron-jones-vikings-nfl-free-agency-2026/
+
+**How to watch Timberwolves vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109024/2026/03/11/timberwolves-vs-clippers-stream-how-to-watch-march-11/
+
+**How to watch Hornets vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109018/2026/03/11/hornets-vs-kings-stream-how-to-watch-march-11/
+
 **How to watch Rockets vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Houston Rockets play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109009/2026/03/11/rockets-vs-nuggets-stream-how-to-watch-march-11/
 
-**Why Mamdani Is One of America’s Most Popular Politicians. For Now.**\
+**Mamdani Is One of America’s Most Popular Politicians. For Now.**\
 `The new mayor is having a sunny honeymoon with New Yorkers. Will it last?`\
 https://nytimes.com/2026/03/11/opinion/mamdani-popularity.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/11/opinion/iran-trump-netanyahu-israel.html
 **Daryl Hannah’s Objections to ‘Love Story’**\
 `Readers respond to Daryl Hannah’s guest essay about a TV series’ portrayal of her. Also: Remembering a visit to Iran; an exercise plan for life.`\
 https://nytimes.com/2026/03/11/opinion/daryl-hannahs-objections.html
-
-**Crosby trade is not the first to fall through. Here are 10 other nixed deals**\
-`Maxx Crosby and other notable times sports figures have gone back from trades or signings`\
-https://nytimes.com/athletic/7108206/2026/03/11/maxx-crosby-nixed-deals-sports-history/
-
-**Tarik Skubal on WBC detractors questioning his patriotism: 'It's just not fair'**\
-`Back in Tigers camp, Skubal pushed back on social media criticism he's faced after his decision to make only one start for Team USA.`\
-https://nytimes.com/athletic/7108759/2026/03/11/tarik-skubal-team-usa-wbc-criticism-tigers/
-
-**A Planned Parenthood Clinic, in a Pinch, Turns to Botox**\
-`The move is designed to keep the doors of the clinic open, and is a reflection of the increasingly blurred lines between the beauty industry and health care.`\
-https://nytimes.com/2026/03/11/style/planned-parenthood-botox-california-nevada.html
 
