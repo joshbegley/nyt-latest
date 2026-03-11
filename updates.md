@@ -1,3 +1,7 @@
+**Matt Vasgersian to call MLB's Netflix debut, NBC's Opening Day broadcast**\
+`Vasgersian is expected to be on play-by-play for Netflix's debut when the Yankees face the Giants in San Francisco on Wednesday at 8 p.m.`\
+https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netflix-nbc-peacock-mlb/
+
 **Democrats Demand Accountability from Hegseth on Iranian School Strike**\
 `A majority of Senate Democrats called on Secretary of Defense Pete Hegseth to disclose whether the U.S. carried out the deadly attack.`\
 https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-strike.html

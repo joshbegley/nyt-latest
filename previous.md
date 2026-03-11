@@ -1,3 +1,7 @@
+**Matt Vasgersian to call MLB's Netflix debut, NBC's Opening Day broadcast**\
+`Vasgersian is expected to be on play-by-play for Netflix's debut when the Yankees face the Giants in San Francisco on Wednesday at 8 p.m.`\
+https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netflix-nbc-peacock-mlb/
+
 **Democrats Demand Accountability from Hegseth on Iranian School Strike**\
 `A majority of Senate Democrats called on Secretary of Defense Pete Hegseth to disclose whether the U.S. carried out the deadly attack.`\
 https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7105888/2026/03/11/scottie-scheffler-players-champi
 **Bam Adebayo's 83-point night carves own lane in NBA lore**\
 `Bam. Kobe. Wilt. That’s the list of players in league history to drop at least 80 points in a game.`\
 https://nytimes.com/athletic/7106813/2026/03/11/bam-adebayo-83-points-stats-breakdown/
-
-**Calder Trophy race: Ranking NHL’s top rookies at 2025-26 season's three-quarter mark**\
-`One player is the clear front-runner for rookie of the year. The more interesting debate might be over who should come second.`\
-https://nytimes.com/athletic/7101527/2026/03/11/nhl-calder-trophy-award-matthew-schaefer/
 

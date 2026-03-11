@@ -1,3 +1,15 @@
+**The Pulse: 83 points? Him?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7105594/2026/03/11/bam-adebayo-83-points-the-pulse/
+
+**What do other extensions mean for Mets' Freddy Peralta?**\
+`Jesús Luzardo recently signed a five-year, $135 million extension, providing a glimpse at the market for starting pitchers.`\
+https://nytimes.com/athletic/7104953/2026/03/11/mets-freddy-peralta-extension/
+
+**Arsenal quadruple odds: Can Mikel Arteta's team win all four trophies?**\
+`Mikel Arteta's side are still in contention for the Premier League, Champions League, Carabao Cup and FA Cup`\
+https://nytimes.com/athletic/7107417/2026/03/11/arsenal-quadruple-betting-odds/
+
 **Matt Vasgersian to call MLB's Netflix debut, NBC's Opening Day broadcast**\
 `Vasgersian is expected to be on play-by-play for Netflix's debut when the Yankees face the Giants in San Francisco on Wednesday at 8 p.m.`\
 https://nytimes.com/athletic/7106344/2026/03/11/matt-vasgersian-opening-day-netflix-nbc-peacock-mlb/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7104687/2026/03/11/pwhl-womens-hockey-olympics-expl
 **'Can't even feel worse': Charlie McAvoy is sick of messing up his mouth**\
 `McAvoy has gotten to know the team dentist all too well.`\
 https://nytimes.com/athletic/7106744/2026/03/11/bruins-charlie-mcavoy-mouth/
-
-**Team USA tiebreakers and what's at stake in WBC pool play finale**\
-`In a showdown between the Dominican Republic and Venezuela, the loser will face the defending champions, Samurai Japan. `\
-https://nytimes.com/athletic/7107048/2026/03/11/world-baseball-classic-pool-play-finale-tiebreakers/
-
-**Why PGA Tour star Scottie Scheffler focuses on the micro**\
-`The only metrics Scheffler lives by are the shot he just hit and the shot he's about to hit. And it's worked as he's won 20 PGA tournaments.`\
-https://nytimes.com/athletic/7105888/2026/03/11/scottie-scheffler-players-championship-mental-game/
-
-**Bam Adebayo's 83-point night carves own lane in NBA lore**\
-`Bam. Kobe. Wilt. That’s the list of players in league history to drop at least 80 points in a game.`\
-https://nytimes.com/athletic/7106813/2026/03/11/bam-adebayo-83-points-stats-breakdown/
 
