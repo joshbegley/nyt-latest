@@ -1,3 +1,15 @@
+**Republicans Concede They Need a Pivot on Immigration Ahead of Midterms**\
+`In public comments and private meetings at a House G.O.P. retreat, top officials allowed that President Trump’s immigration crackdown had hurt the party and that they needed a course correction on the issue.`\
+https://nytimes.com/2026/03/11/us/politics/house-republicans-immigration-midterms.html
+
+**Trump Wants to Bend Iran. Netanyahu Wants to Break It.**\
+`American goals are starting to conflict with Israel’s.`\
+https://nytimes.com/2026/03/11/opinion/international-world/iran-trump-netanyahu-israel.html
+
+**Daryl Hannah’s Objections to ‘Love Story’**\
+`Readers respond to Daryl Hannah’s guest essay about a TV series’ portrayal of her. Also: Remembering a visit to Iran; an exercise plan for life.`\
+https://nytimes.com/2026/03/11/opinion/daryl-hannahs-objections.html
+
 **Crosby trade is not the first to fall through. Here are 10 other nixed deals**\
 `Maxx Crosby and other notable times sports figures have gone back from trades or signings`\
 https://nytimes.com/athletic/7108206/2026/03/11/maxx-crosby-nixed-deals-sports-history/
