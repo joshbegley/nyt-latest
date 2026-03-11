@@ -1,5 +1,13 @@
+**Latinos Reshaped Sleepy Hollow. Now They May Reshape the Town Board.**\
+`The Town of Mount Pleasant has settled a lawsuit under New York’s new Voting Rights Act, agreeing to change how its town board is elected.`\
+https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
+
+**Here’s What Happened in the War in the Middle East on Wednesday**\
+`Israel and the Iran-backed armed group Hezbollah in Lebanon traded strikes on Wednesday. Three ships were hit near the Strait of Hormuz, a vital oil route.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-war-middle-east-recap.html
+
 **Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
-`The Cowboys signed Osa Odighizuwa to a four-year, $80 million contract one year ago.`\
+`Osa Odighizuwa signed a four-year, $80 million deal one year ago but became the odd man out after Kenny Clark and Quinnen Williams arrived.`\
 https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
 
 **Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jael
 **Initial Military Investigation Faults the U.S. For a School Strike in Iran**\
 `Also, world leaders agree to tap oil reserves. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/11/briefing/iran-school-strike-oil-reserves.html
-
-**The Briefing: Paris Saint-Germain 5 Chelsea 2 - Jorgensen's Kinsky moment and Kvaratskhelia's brilliance**\
-`Late goals from Khvicha Kvaratskhelia handed PSG an advantage ahead of the second leg at Stamford Bridge`\
-https://nytimes.com/athletic/7099436/2026/03/11/paris-saint-germain-5-chelsea-2-briefing/
-
-**How Trump Turned a Republican Battle Over a Texas Senate Seat Into Leverage**\
-`The president has yet to make an endorsement in the contest between John Cornyn and Ken Paxton as he tries to push the Senate to pass a bill requiring voters to show identification at the polls.`\
-https://nytimes.com/2026/03/11/us/politics/trump-cornyn-paxton-endorsement-texas-senate.html
 
