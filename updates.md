@@ -1,3 +1,23 @@
+**Chelsea's Neto says he's apologised to PSG ball boy for pushing him**\
+`Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
+https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
+
+**Two People Die at Paid Plasma Donation Clinics in Canada**\
+`Grifols, a Spanish health care company, operates clinics in Canada that collect blood plasma from donors in exchange for an honorarium.`\
+https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-deaths.html
+
+**Latinos Reshaped Sleepy Hollow. Now They May Reshape the Town Board.**\
+`The Town of Mount Pleasant has settled a lawsuit under New York’s new Voting Rights Act, agreeing to change how its town board is elected.`\
+https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
+
+**Here’s What Happened in the War in the Middle East on Wednesday**\
+`Israel and the Iran-backed armed group Hezbollah in Lebanon traded strikes on Wednesday. Three ships were hit near the Strait of Hormuz, a vital oil route.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-war-middle-east-recap.html
+
+**Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
+`Osa Odighizuwa signed a four-year, $80 million deal one year ago but became the odd man out after Kenny Clark and Quinnen Williams arrived.`\
+https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
+
 **Cowboys trading DT Odighizuwa to 49ers for draft pick: Sources**\
 `The Cowboys signed Osa Odighizuwa to a four-year, $80 million contract one year ago.`\
 https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/

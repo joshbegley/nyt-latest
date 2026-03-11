@@ -2,7 +2,7 @@
 `Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
 https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
 
-**Two People Die at Paid Plasma Donation Clinics in Canada**\
+**Two People Die After Paid Plasma Donation at Clinics in Canada**\
 `Grifols, a Spanish health care company, operates clinics in Canada that collect blood plasma from donors in exchange for an honorarium.`\
 https://nytimes.com/2026/03/11/world/canada/winnipeg-plasma-blood-donation-deaths.html
 
