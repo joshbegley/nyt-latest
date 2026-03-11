@@ -1,3 +1,23 @@
+**Tarik Skubal on WBC detractors questioning his patriotism: 'It's just not fair'**\
+`Back in Tigers camp, Skubal pushed back on criticism he's faced on social media after his decision to make only one start for Team USA. `\
+https://nytimes.com/athletic/7108759/2026/03/11/tarik-skubal-team-usa-wbc-criticism-tigers/
+
+**A Planned Parenthood Clinic, in a Pinch, Turns to Botox**\
+`The move is designed to keep the doors of the clinic open, and is a reflection of the increasingly blurred lines between the beauty industry and health care.`\
+https://nytimes.com/2026/03/11/style/planned-parenthood-botox-california-nevada.html
+
+**If U.S. Colleges Are Dying, Why Are Students Applying?**\
+`Plus, the growing demand for higher education to prove its value.`\
+https://nytimes.com/2026/03/11/headway/college-apps-newsletter.html
+
+**Banks in Gulf Evacuate Their Offices**\
+`After an overnight attack on a bank, Iranian officials signaled a new willingness to target economic centers and banks with ties to the United States.`\
+https://nytimes.com/2026/03/11/world/middleeast/citi-standard-chartered-evacuation.html
+
+**Jan Timman Dies at 74; Fearless Chess Grandmaster and ‘Bon Vivant’**\
+`A Dutchman, he was considered the best player outside the Soviet Union for two decades, although he described himself as “lazy” and was open about using alcohol and drugs early on.`\
+https://nytimes.com/2026/03/11/sports/jan-timman-dead.html
+
 **NWSL, NWSLPA announce new trading card partnership with Panini**\
 `The NWSL trading card licenses moving to Panini could bring heightened interest and value for the league's collectibles. `\
 https://nytimes.com/athletic/7107987/2026/03/11/panini-nwsl-trading-cards-deal/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7108199/2026/03/11/alphonso-davies-canada-bayern-mu
 **Angelika Saleh, the Angelika of Angelika Film Center, Dies at 90**\
 `After making the journey from prewar Germany to Madison Avenue opulence, she gave her name to one of New York’s most influential indie cinemas.`\
 https://nytimes.com/2026/03/11/movies/angelika-saleh-dead.html
-
-**Scoop City: Ravens surprise Maxx Crosby trade becomes historic stunner**\
-`This situation is a blend of star power, draft capital, free agency and a reneged deal unlike anything we've seen`\
-https://nytimes.com/athletic/7108727/2026/03/11/ravens-surprise-trade-for-raiders-edge-maxx-crosby-becomes-historic-stunner/
-
-**Explaining NFL's new league year: What's legal tampering, when can deals become official?**\
-`The NFL league year begins at 4 p.m. ET Wednesday, when teams are allowed to officially sign players and complete trades.`\
-https://nytimes.com/athletic/7108485/2026/03/11/nfl-new-league-year-tampering-free-agency/
-
-**Lebanese residents left in shock and fear as Israeli strikes reach center of Beirut.**\
-`By Sarah Chaayto and Abdi Latif Dahir`\
-https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/lebanese-residents-left-in-shock-and-fear-as-israeli-strikes-reach-center-of-beirut
-
-**Bills restructure Josh Allen's contract to create more than $12 million in cap space**\
-`The move will help the Bills clear enough cap space to onboard the contract of wide receiver DJ Moore when the trade becomes official.`\
-https://nytimes.com/athletic/7108261/2026/03/11/josh-allen-buffalo-bills-restructure-cap-space-free-agency/
-
-**For Some Athletes, Major Sports Events Can Be an Opportunity to Defect**\
-`Members of the Iranian soccer team who chose to remain in Australia this week are far from the first to travel to a competition and stay there.`\
-https://nytimes.com/2026/03/11/sports/iran-women-soccer-defect.html
 
