@@ -1,4 +1,12 @@
-**2 More Iranian Women’s Soccer Players Seek Asylum in Australia**\
+**Roki Sasaki remains the story of Dodgers camp – even on a back field**\
+`An outing on a back field drew a handful of influential spectators, including Dodgers president of baseball operations Andrew Friedman.`\
+https://nytimes.com/athletic/7106014/2026/03/10/dodgers-roki-sasaki-spring-training-camp/
+
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`Trump administration officials cast the president as the sole arbiter on the U.S. war effort. International aid groups were warning of a growing humanitarian crisis in Lebanon, where nearly 700,000 people had been displaced, the U.N. said.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-us-israel-lebanon-recap.html
+
+**2 More People Affiliated With Iranian Women’s Soccer Team Seek Asylum in Australia**\
 `An athlete and a member of the team’s support staff opted not to return to Iran, where state media labeled the women ‘traitors’ for not singing the national anthem. Five others were given visas earlier.`\
 https://nytimes.com/2026/03/10/world/asia/iran-soccer-women-asylum-australia.html
 
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/7106157/2026/03/10/luke-fortner-panthers-nfl-free-a
 **Linebacker Leo Chenal agrees to deal with Commanders: Source**\
 `Chenal, 25, started 44 games with Kansas City and helped the Chiefs win a pair of Super Bowls during his four seasons.`\
 https://nytimes.com/athletic/7105990/2026/03/10/leo-chenal-commanders-nfl-free-agency-2026/
-
-**Red Sox notes: Sonny Gray’s process, a decision at third base and bullpen updates**\
-`Manager Alex Cora has enjoyed watching the veteran starter put in the work and has let him set his own schedule.`\
-https://nytimes.com/athletic/7105746/2026/03/10/red-sox-sonny-gray-process-third-base-bullpen/
-
-**How to watch Idaho vs. Eastern Washington men's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Idaho Vandals play the Eastern Washington Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7106110/2026/03/10/idaho-vs-eastern-washington-stream-how-to-watch-march-10/
 
