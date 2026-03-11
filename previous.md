@@ -1,3 +1,11 @@
+**Who Will Be a Counterweight to Donald Trump?**\
+`The author and activist Rebecca Solnit says on “The Interview” that real change is often rooted in collective effort, not the actions of a single individual.`\
+https://nytimes.com/video/podcasts/100000010768677/who-will-be-a-counterweight-to-donald-trump.html
+
+**Every first-round pick from this year’s draft that's changed hands, ranked by regret**\
+`A dozen teams are no longer in possession of their 2026 first-round pick. Some are happier about it than others.`\
+https://nytimes.com/athletic/7106507/2026/03/11/nhl-draft-2026-first-round-picks-regret-ranking/
+
 **Lowetide: What's the right way for Oilers to deploy McDavid and Draisaitl?**\
 `Every Oilers coach has played the McDavid-Draisaitl combination together at five-on-five at times.`\
 https://nytimes.com/athletic/7104688/2026/03/11/oilers-connor-mcdavid-leon-draisaitl-stats-lines/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/11/business/inflation-report-cpi/consumer-price
 **Who is Peter Mandelson?**\
 `By Stephen Castle`\
 https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/who-is-peter-mandelson-epstein-uk
-
-**Disasi 'really enjoying' West Ham loan spell after 'tough' Chelsea exile**\
-`Disasi had not played for Chelsea this season and trained separately from the first team before signing for West Ham on deadline day.`\
-https://nytimes.com/athletic/7107884/2026/03/11/axel-disasi-west-ham-chelsea-loan/
-
-**Here’s what to know.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2026/03/11/world/mandelson-files-epstein-uk/heres-what-to-know
 
