@@ -1,3 +1,11 @@
+**Word of the Day: inherent**\
+`This word has appeared in 664 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/11/learning/word-of-the-day-inherent.html
+
+**Mark DeRosa says he ‘misspoke’ after mistakenly saying Team USA had advanced before upset to Italy**\
+`Earlier, the manager incorrectly stated on TV that his team had already clinched a spot in the quarterfinals before resting its stars.`\
+https://nytimes.com/athletic/7107029/2026/03/11/world-baseball-classic-team-usa-mark-derosa-comments/
+
 **FIFA president says he has Trump's assurances Iran will be welcome at World Cup**\
 `Trump said in an interview last week that he didn't care if Iran participated in this summer's competition.`\
 https://nytimes.com/athletic/7107019/2026/03/11/trump-fifa-infantino-iran-welcome-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7101008/2026/03/11/aston-villa-emery-kamara-mings-t
 **Michael Olise: Bayern Munich's genius at work**\
 `The France international was irrepressible in Bergomo as Bayern sauntered to a 6-1 win, and must be a future contender for the Ballon d'Or`\
 https://nytimes.com/athletic/7105779/2026/03/11/michael-olise-bayern-munich-atalanta-kompany/
-
-**Kai Havertz, the Arsenal forward with Mikel Arteta's trust**\
-`The German returns to face his boyhood club, Leverkusen, in the Champions League. His role at Arsenal is now more important than ever`\
-https://nytimes.com/athletic/7103967/2026/03/11/kai-havertz-arsenal-mikel-arteta-trust/
-
-**On-pitch freedom, off-pitch rules: What Pereira has changed at Forest**\
-`The club's fourth coach of the season aims to lead them clear of relegation. So how is he trying to change their approach, and will it work?`\
-https://nytimes.com/athletic/7093498/2026/03/11/what-vitor-pereira-has-changed-at-nottingham-forest-on-pitch-freedom-off-pitch-rules/
 
