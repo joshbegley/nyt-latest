@@ -1,3 +1,7 @@
+**Celtics' Jaylen Brown ejected vs. Spurs, had to be held back after yelling at official**\
+`This marks only the second ejection for Brown in his 10-year NBA career.`\
+https://nytimes.com/athletic/7106527/2026/03/10/jaylen-brown-ejected-spurs-celtics-referee/
+
 **Cameron Heyward fights back Father Time, gets to new 2-year deal from Steelers: Source**\
 `Heyward will be 37 when he returns for his 16th NFL season.`\
 https://nytimes.com/athletic/7106496/2026/03/10/cameron-heyward-pittsburgh-steelers-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-hea
 **Suspended L.A. Schools Chief Denies Wrongdoing and Says He Hopes to Return**\
 `Through his lawyers, Alberto Carvalho, who was put on leave after the F.B.I. raided his home and office, said that his actions were appropriate but that he would respect the investigative process.`\
 https://nytimes.com/2026/03/10/us/lausd-chief-alberto-carvalho-statement.html
-
-**Bills free agency: Who's still available, plus Josh Allen's hand in Connor McGovern deal**\
-`There are still plenty of players the Bills could target.`\
-https://nytimes.com/athletic/7106263/2026/03/10/bills-free-agency-available-josh-allen-connor-mcgovern/
 
