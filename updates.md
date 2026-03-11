@@ -1,3 +1,19 @@
+**Raise Taxes on the Rich? These Rich New Yorkers Are All for It.**\
+`Mayor Zohran Mamdani says he wants to raise taxes on New Yorkers who earn more than $1 million per year. Some millionaires actually agree with him.`\
+https://nytimes.com/2026/03/11/nyregion/raise-taxes-on-the-rich-these-rich-new-yorkers-are-all-for-it.html
+
+**Spring Fashion**\
+`What are you looking forward to wearing as the weather warms?`\
+https://nytimes.com/2026/03/11/learning/spring-fashion.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/11/crosswords/spelling-bee-forum.html
+
+**The familiar lack of ruthlessness that is undermining Newcastle's season**\
+`Do Eddie Howe's side possess the clinical edge required to win in Barcelona? If Gordon plays, then maybe — but it remains a big maybe`\
+https://nytimes.com/athletic/7100788/2026/03/11/newcastle-barcelona-champions-league-strikers-osula-chances/
+
 **Desperate Spurs now have one task left this season: to survive in the Premier League**\
 `Tottenham would surely trade another sound beating next Wednesday for four points in the relegation battle`\
 https://nytimes.com/athletic/7106584/2026/03/11/tottenham-champions-league-atletico-tudor-relegation/
