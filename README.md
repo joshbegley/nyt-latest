@@ -1,3 +1,7 @@
+**FIFA president says he has Trump's assurances Iran will be welcome at World Cup**\
+`Trump said in an interview last week that he didn't care if Iran participated in this summer's competition.`\
+https://nytimes.com/athletic/7107019/2026/03/11/trump-fifa-infantino-iran-welcome-world-cup/
+
 **How the NBA world reacted to Bam Adebayo's 83-point game**\
 `Adebayo's game caught the attention of many around the league.`\
 https://nytimes.com/athletic/7106805/2026/03/11/bam-adebayo-83-point-game-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7103967/2026/03/11/kai-havertz-arsenal-mikel-arteta
 **On-pitch freedom, off-pitch rules: What Pereira has changed at Forest**\
 `The club's fourth coach of the season aims to lead them clear of relegation. So how is he trying to change their approach, and will it work?`\
 https://nytimes.com/athletic/7093498/2026/03/11/what-vitor-pereira-has-changed-at-nottingham-forest-on-pitch-freedom-off-pitch-rules/
-
-**Ligue 1 was, for a long time, a farmer's league – but urbanisation is behind France's increased success**\
-`France’s development as a footballing nation owes to its urbanisation, and the fact it is no longer a country of rural life and of farmers`\
-https://nytimes.com/athletic/7104126/2026/03/11/ligue-1-psg-farmers-league-france/
 
