@@ -1,40 +1,40 @@
-**U.S. Gas Prices Jump for 11th Straight Day, and Oil Pushes Higher**\
-`Drivers are paying an average of 20 percent more at the pump since the strikes on Iran began. The global oil price was up and stocks in Asia rose.`\
-https://nytimes.com/2026/03/11/business/gas-prices-oil-iran.html
+**How Trump’s War With Iran Changed the World in a Week**\
+`The conflict is reshaping travel patterns, energy dependencies, living costs, trade routes and diplomatic alliances.`\
+https://nytimes.com/2026/03/11/world/europe/trump-iran-war-global-impact.html
 
-**Getting Dressed Should Be Easy**\
-`It was the motto of the season. Miuccia Prada got it right at Miu Miu, but Nicolas Ghesquière at Louis Vuitton made it hard.`\
-https://nytimes.com/2026/03/11/style/louis-vuitton-miu-miu-fall-2026.html
+**China’s Military Has Quietly Cut Flying Near Taiwan. But Why?**\
+`For years, China has flown military jets near Taiwan almost daily. Then they suddenly stopped, leaving analysts to wonder why.`\
+https://nytimes.com/2026/03/11/world/asia/taiwan-china-military-planes.html
 
-**Sheffield Wednesday: Storch preferred bidder, club handed 15-point deduction**\
-`Despite the winning bid, Wednesday will start next season in League One on minus 15 points.`\
-https://nytimes.com/athletic/7105499/2026/03/11/sheffield-wednesday-takeover-points-deduction-league-one/
+**Lily Allen Is on Tour. She Brought Along Some Receipts.**\
+`The designer of Ms. Allen’s “West End Girl” tour talks about the scene with the artist pulling cloth printed with receipts that has become the subject of online speculation.`\
+https://nytimes.com/2026/03/11/style/lily-allen-is-on-tour-she-brought-along-some-receipts.html
 
-**He's 52, he made his Paralympic debut in 1988, and he's back for one more ride**\
-`Australian Alpine skier Michael Milton is back competing having initially retired from skiing in 2006 with 11 Paralympic medals to his name.`\
-https://nytimes.com/athletic/7104124/2026/03/11/winter-paralympics-michael-milton-australia-52/
+**Why Voters Might Finally Blame Trump for Rising Costs**\
+`Trump’s Iran war will affect more than just gas prices.`\
+https://nytimes.com/2026/03/11/opinion/trump-war-iran-oil-prices.html
 
-**Declan Farmer, the Tom Brady of U.S. sled hockey, is ready to make more history**\
-`Farmer is one of U.S. sled hockey's most celebrated players and is aiming to guide his country to a fifth-straight Paralympic title. `\
-https://nytimes.com/athletic/7104536/2026/03/11/declan-farmer-us-sled-hockey-paralympics-profile/
+**Jessie Buckley Became a Mother for ‘Hamnet.’ Then She Became a Real One. (Encore)**\
+`The Oscar-nominated actress talks about the primal love and grief of motherhood.`\
+https://nytimes.com/2026/03/11/podcasts/modern-love-jessie-buckley-encore.html
 
-**Jimmy Savile chants: English football's unspoken shame**\
-`Songs referencing one of the UK's most notorious sex offenders provide a toxic soundtrack to Leeds United matches`\
-https://nytimes.com/athletic/7103942/2026/03/11/jimmy-savile-leeds-chants/
+**Strikes on Iran Damage Fabled Heritage Sites, Infuriating Iranians**\
+`Revered cultural icons that have withstood the upheavals of history are being hit hard in the war being waged by Israel and the United States.`\
+https://nytimes.com/2026/03/11/world/middleeast/iram-heritage-sites-damaged.html
 
-**Leeds urge authorities to treat Jimmy Savile songs as tragedy chants**\
-`Songs referencing Savile, one of the UK’s most notorious sex offenders, have regularly been sung at Leeds matches since his death in 2011.`\
-https://nytimes.com/athletic/7104535/2026/03/11/leeds-jimmy-savile-chants/
+**A New School Hopes to Train a Younger Generation of Dentists**\
+`New York’s dentists are aging, and a “retirement cliff” has left a shortage of people in the job.`\
+https://nytimes.com/2026/03/11/nyregion/dental-school-yeshiva-nyc.html
 
-**Should Parents Be Held Responsible for School Shootings?**\
-`Prosecuting parents for the actions of their children is becoming more common in the push for accountability after mass shootings. Do you support the tactic?`\
-https://nytimes.com/2026/03/11/learning/should-parents-be-held-responsible-for-school-shootings.html
+**$900,000 Homes in California, North Carolina and Texas**\
+`A Craftsman in Pasadena, a Spanish Revival in Charlotte and a ranch in Austin.`\
+https://nytimes.com/2026/03/11/realestate/900000-homes-in-california-north-carolina-and-texas.html
 
-**Why Lewis O'Brien will be key if Wrexham are to keep their play-offs dream alive**\
-`A home defeat to Hull City on Tuesday night has made Wrexham's top-six position in the Championship more precarious`\
-https://nytimes.com/athletic/7100932/2026/03/11/lewis-obrien-wrexham-championship-promotion-race/
+**At This Festival, the Dead of Winter Is the Life of the Party**\
+`In the Hudson Valley town of Chatham, N.Y., a weeklong event called “The Dark” took over theaters, bars, a church, a bookshop, a library and even a sauna.`\
+https://nytimes.com/2026/03/11/arts/dark-festival-ps21-chatham-new-york.html
 
-**Raise Taxes on the Rich? These Rich New Yorkers Are All for It.**\
-`Mayor Zohran Mamdani says he wants to raise taxes on New Yorkers who earn more than $1 million per year. Some millionaires actually agree with him.`\
-https://nytimes.com/2026/03/11/nyregion/raise-taxes-on-the-rich-these-rich-new-yorkers-are-all-for-it.html
+**Iran Shocks Could Spur a Shift to Clean Energy — but Also to Coal**\
+`Environmentalists say the war’s effects on oil and gas prices are an argument for countries to get off fossil fuels. But the reality is likely to be messier.`\
+https://nytimes.com/2026/03/11/climate/iran-war-oil-clean-energy-coal.html
 

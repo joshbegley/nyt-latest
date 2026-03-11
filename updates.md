@@ -1,3 +1,11 @@
+**U.S. Gas Prices Jump for 11th Straight Day, and Oil Pushes Higher**\
+`Drivers are paying an average of 20 percent more at the pump since the strikes on Iran began. The global oil price was up and stocks in Asia rose.`\
+https://nytimes.com/2026/03/11/business/gas-prices-oil-iran.html
+
+**Getting Dressed Should Be Easy**\
+`It was the motto of the season. Miuccia Prada got it right at Miu Miu, but Nicolas Ghesquière at Louis Vuitton made it hard.`\
+https://nytimes.com/2026/03/11/style/louis-vuitton-miu-miu-fall-2026.html
+
 **Getting Dressed Should Be Easy**\
 `It was the motto of the season. Miuccia Prada got it right at Miu Miu, but Nicolas Ghesquière at Louis Vuitton made it hard.`\
 https://nytimes.com/2026/03/11/style/louis-vuitton-miu-miu-fal-2026.html
