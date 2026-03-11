@@ -1,3 +1,7 @@
+**Juan Ayuso abandons Paris-Nice after heavy crash, Jonas Vingegaard wins stage and takes yellow jersey**\
+`The Spaniard was leading the eight-stage race before a multi-rider crash caused him to be taken to hospital. `\
+https://nytimes.com/athletic/7108136/2026/03/11/juan-ayuso-paris-nice-vingegaard-visma-red-bull/
+
 **Iran could boycott World Cup in wake of U.S. attacks, sports minister says**\
 `On Tuesday night, FIFA president Gianni Infantino said he had U.S. President Trump's assurance that Iran will be welcome at the tournament.`\
 https://nytimes.com/athletic/7108180/2026/03/11/iran-world-cup-2026-boycott/

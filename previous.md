@@ -1,3 +1,7 @@
+**Juan Ayuso abandons Paris-Nice after heavy crash, Jonas Vingegaard wins stage and takes yellow jersey**\
+`The Spaniard was leading the eight-stage race before a multi-rider crash caused him to be taken to hospital. `\
+https://nytimes.com/athletic/7108136/2026/03/11/juan-ayuso-paris-nice-vingegaard-visma-red-bull/
+
 **Iran could boycott World Cup in wake of U.S. attacks, sports minister says**\
 `On Tuesday night, FIFA president Gianni Infantino said he had U.S. President Trump's assurance that Iran will be welcome at the tournament.`\
 https://nytimes.com/athletic/7108180/2026/03/11/iran-world-cup-2026-boycott/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/israel-
 **How to watch McNeese vs. SFA men's basketball: Southland Tournament Time, TV, streaming**\
 `Find out how to watch the McNeese Cowboys play the Stephen F. Austin Lumberjacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7108333/2026/03/11/mcneese-vs-sfa-stream-how-to-watch-march-11/
-
-**How to watch Ole Miss vs. Texas men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108326/2026/03/11/ole-miss-vs-texas-stream-how-to-watch-march-11/
 

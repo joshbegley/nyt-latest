@@ -1,3 +1,11 @@
+**Pace of Iran’s Retaliatory Strikes Appears to Be Slowing**\
+`U.S. officials say the country’s weapons have been diminished, slowing its attacks on Gulf nations and Israel. Iran may also be holding some weapons in reserve in case the conflict is prolonged.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-weapons-missiles-israel-gulf.html
+
+**Trump Administration to Announce New Trade Investigations**\
+`The investigations into unfair trade practices will likely lead to tariffs on foreign countries, as the administration works to replace the import taxes struck down by the Supreme Court.`\
+https://nytimes.com/2026/03/11/business/economy/trump-trade-investigations-tariffs.html
+
 **Juan Ayuso abandons Paris-Nice after heavy crash, Jonas Vingegaard wins stage and takes yellow jersey**\
 `The Spaniard was leading the eight-stage race before a multi-rider crash caused him to be taken to hospital. `\
 https://nytimes.com/athletic/7108136/2026/03/11/juan-ayuso-paris-nice-vingegaard-visma-red-bull/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010768561/iran-womens-soccer-pl
 **What’s Better Than One Top Oscar Nominee? How About Two?**\
 `Warner Bros. is behind both “One Battle After Another” and “Sinners.” The studio has worked hard to not favor one over the other.`\
 https://nytimes.com/2026/03/11/business/media/sinners-one-battle-warner-oscars.html
-
-**Israel sends an extra infantry battalion to Lebanon’s border.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2026/03/11/world/iran-war-news-trump-oil-israel/israel-sends-an-extra-infantry-battalion-to-lebanons-border
-
-**How to watch McNeese vs. SFA men's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the McNeese Cowboys play the Stephen F. Austin Lumberjacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108333/2026/03/11/mcneese-vs-sfa-stream-how-to-watch-march-11/
 
