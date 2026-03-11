@@ -1,3 +1,11 @@
+**Looting Lululemon: Thieves Target Athleisure Stores in New York City**\
+`Thousands of dollars’ worth of merchandise was stolen in a series of recent thefts at Lululemon and Alo stores in Manhattan and Brooklyn, the police said.`\
+https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html
+
+**Countries Scramble to Shore Up Global Oil Supplies as Ships Are Attacked**\
+`The United States and Israel launched more strikes against Iran, where crowds mourned military commanders killed in the war. Israel also bombed targets in Lebanon, where the death toll climbed.`\
+https://nytimes.com/2026/03/11/world/middleeast/oil-ships-lebanon-iran-israel.html
+
 **How to watch Idaho vs. Montana men's basketball: Big Sky Tournament Time, TV, streaming**\
 `Find out how to watch the Idaho Vandals play the Montana Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109984/2026/03/11/idaho-vs-montana-stream-how-to-watch-march-11/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/nyregion/sleepy-hollow-ny-voting-rights.html
 **Here’s What Happened in the War in the Middle East on Wednesday**\
 `Israel and the Iran-backed armed group Hezbollah in Lebanon traded strikes on Wednesday. Three ships were hit near the Strait of Hormuz, a vital oil route.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-war-middle-east-recap.html
-
-**Cowboys trade DT Odighizuwa to 49ers, 1 year into $80M contract**\
-`Osa Odighizuwa signed a four-year, $80 million deal one year ago but became the odd man out after Kenny Clark and Quinnen Williams arrived.`\
-https://nytimes.com/athletic/7109753/2026/03/11/osa-odighizuwa-trade-cowboys-49ers-nfl/
-
-**Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
-`The state’s 2028 primary is likely to be important, and is already on the minds of some Democrats.`\
-https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028.html
 
