@@ -1,3 +1,7 @@
+**Getting Dressed Should Be Easy**\
+`It was the motto of the season. Miuccia Prada got it right at Miu Miu, but Nicolas Ghesquière at Louis Vuitton made it hard.`\
+https://nytimes.com/2026/03/11/style/louis-vuitton-miu-miu-fal-2026.html
+
 **Sheffield Wednesday: Storch preferred bidder, club handed 15-point deduction**\
 `Despite the winning bid, Wednesday will start next season in League One on minus 15 points.`\
 https://nytimes.com/athletic/7105499/2026/03/11/sheffield-wednesday-takeover-points-deduction-league-one/
