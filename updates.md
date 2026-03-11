@@ -1,3 +1,15 @@
+**Dehner Jr.: Bengals' Trey Hendrickson drama doesn’t end, it merely changes shape**\
+`The Bengals got some vindication on how they saw the All-Pro's market, but now they have to figure out how to stop him twice a season.`\
+https://nytimes.com/athletic/7108563/2026/03/11/bengals-trey-hendrickson-free-agency-ravens/
+
+**Team USA's Caroline Harvey, Abbey Murphy, Tessa Janecke named Patty Kazmaier Award finalists**\
+`The 2026 Patty Kazmaier Award winner will be announced on March 21, during the NCAA Frozen Four weekend hosted at Penn State.`\
+https://nytimes.com/athletic/7108506/2026/03/11/patty-kazmaier-award-finalists-2026/
+
+**Hawaii Faces Flooding, Fierce Winds and Even Snow from a ‘High-Impact’ Storm**\
+`The storm, called a kona low, is expected to churn slowly across the islands all week.`\
+https://nytimes.com/2026/03/11/weather/hawaii-kona-storm.html
+
 **Ravens get Trey Hendrickson, but Maxx Crosby trade reversal could damage reputation**\
 `Baltimore's decision to "back out" of the Crosby trade and pivot quickly to Hendrickson could have wide-ranging ramifications. `\
 https://nytimes.com/athletic/7107089/2026/03/11/ravens-maxx-crosby-failed-trade-trey-hendrickson/
