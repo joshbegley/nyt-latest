@@ -1,4 +1,8 @@
 **Scottie Pippen collection auction: Larry Bird jersey draws biggest price**\
+`The sneakers worn by Michael Jordan in the 1992 Olympic gold medal game came up short of expectations. `\
+https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
+
+**Scottie Pippen collection auction: Larry Bird jersey draws biggest price**\
 `The sneakers worn by Michael Jordan in the 1992 Olympic Gold Medal Game came up short of expectations. `\
 https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
 
