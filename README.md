@@ -1,3 +1,11 @@
+**After firing Adrian Autry, Syracuse basketball must invest to build on legacy**\
+`Mired in a five-year NCAA Tournament drought and a coach removed from Jim Boeheim, what is Syracuse basketball now? `\
+https://nytimes.com/athletic/7108963/2026/03/11/syracuse-mens-basketball-fired-adrian-autry/
+
+**Curry to miss more time due to knee injury, will be re-evaluated in 10 days**\
+`Steph Curry, who turns 38 on Saturday, has not played since leaving early during a loss to the Detroit Pistons on Jan. 30.`\
+https://nytimes.com/athletic/7109254/2026/03/11/warriors-steph-curry-injury-knee-10-days/
+
 **Tornadoes Kill At Least Two Across the Midwest**\
 `About a dozen tornadoes ripped through the Midwest and South on Tuesday, killing at least two people. Officials said search-and-rescue operations were still underway.`\
 https://nytimes.com/video/weather/100000010769413/tornado-deaths-indiana-illinois-storm.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109205/2026/03/11/georgetown-vs-depaul-stream-how-
 **How to watch Fresno State vs. Colorado State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Fresno State Bulldogs play the Colorado State Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109193/2026/03/11/fresno-state-vs-colorado-state-stream-how-to-watch-march-11/
-
-**How to watch South Carolina vs. Oklahoma men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109188/2026/03/11/south-carolina-vs-oklahoma-stream-how-to-watch-march-11/
-
-**How to watch Temple vs. Florida Atlantic men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Temple Owls play the Florida Atlantic Owls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109186/2026/03/11/temple-vs-florida-atlantic-stream-how-to-watch-march-11/
 
