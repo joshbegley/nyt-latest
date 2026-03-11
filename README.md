@@ -1,3 +1,7 @@
+**Why Barcelona chose the 'Hogwarts Hotel' as their Champions League base in Newcastle**\
+`Barcelona's players were taken aback by the interiors and decor of a place that "looked like something from Harry Potter"`\
+https://nytimes.com/athletic/7104989/2026/03/11/barcelona-newcastle-champions-league-hogwarts-hotel/
+
 **The Lakers are buying in and building momentum after win over Timberwolves**\
 `With consecutive wins over the New York Knicks and Minnesota Timberwolves, the Los Angeles Lakers seem to have figured some things out.`\
 https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum-luka-doncic/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/world/asia/china-us-trump-ceos.html
 **Live Updates: Inflation Report Offers Snapshot on Economy Before War With Iran**\
 `Data on consumer prices in February will inform the Federal Reserve’s deliberations over interest rates next week.`\
 https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
-
-**Deion Sanders enters Year 4 at Colorado surrounded by change. Will the results flip, too?**\
-`Colorado has two new coordinators and a new athletic director, but it should have more stability at quarterback in 2026.`\
-https://nytimes.com/athletic/7106041/2026/03/11/deion-sanders-colorado-football-2026-outlook/
 

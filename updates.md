@@ -1,3 +1,11 @@
+**The Lakers are buying in and building momentum after win over Timberwolves**\
+`With consecutive wins over the New York Knicks and Minnesota Timberwolves, the Los Angeles Lakers seem to have figured some things out.`\
+https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum-luka-doncic/
+
+**Microsoft Takes a Stand Against the Trump Administration**\
+`The technology giant’s siding with Anthropic in its fight against the Pentagon stands out in an era when big companies have tended to keep quiet.`\
+https://nytimes.com/2026/03/11/business/dealbook/microsoft-anthropic-pentagon.html
+
 **Ukraine Says It Hit Key Russian Electronics Plant; Russia Reports Deaths**\
 `The attack highlighted how Ukraine remains capable of hitting high-value targets inside Russia.`\
 https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-missiles.html

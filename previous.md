@@ -1,3 +1,11 @@
+**The Lakers are buying in and building momentum after win over Timberwolves**\
+`With consecutive wins over the New York Knicks and Minnesota Timberwolves, the Los Angeles Lakers seem to have figured some things out.`\
+https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum-luka-doncic/
+
+**Microsoft Takes a Stand Against the Trump Administration**\
+`The technology giant’s siding with Anthropic in its fight against the Pentagon stands out in an era when big companies have tended to keep quiet.`\
+https://nytimes.com/2026/03/11/business/dealbook/microsoft-anthropic-pentagon.html
+
 **Ukraine Says It Hit Key Russian Electronics Plant; Russia Reports Deaths**\
 `The attack highlighted how Ukraine remains capable of hitting high-value targets inside Russia.`\
 https://nytimes.com/2026/03/11/world/europe/ukraine-russia-electronics-plant-missiles.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
 **Deion Sanders enters Year 4 at Colorado surrounded by change. Will the results flip, too?**\
 `Colorado has two new coordinators and a new athletic director, but it should have more stability at quarterback in 2026.`\
 https://nytimes.com/athletic/7106041/2026/03/11/deion-sanders-colorado-football-2026-outlook/
-
-**The past and present of Real Madrid's problem with extreme right-wing ultras**\
-`A fan was ejected from the Santiago Bernabeu for making a Nazi salute at the Spanish club's more recent Champions League home match`\
-https://nytimes.com/athletic/7105110/2026/03/11/real-madrid-champions-league-nazi-salute-man-city/
-
-**Could the Blackhawks take another defenseman early in the 2026 draft?**\
-`The Blackhawks could draft anywhere from first to seventh and have a need for top-six NHL forwards, but they might draft another defenseman.`\
-https://nytimes.com/athletic/7104884/2026/03/11/blackhawks-2026-nhl-draft-picks-players/
 
