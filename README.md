@@ -1,3 +1,7 @@
+**Trump’s Actions in Iran and Venezuela Show Limits of U.S. Sanctions**\
+`America’s vast economic powers are able to wear down an adversary’s economy but are insufficient to topple leaders on their own.`\
+https://nytimes.com/2026/03/11/us/politics/trump-sanctions-iran-venezuela.html
+
 **Astros closer Josh Hader to miss Opening Day, start season on IL with bicep issue**\
 `Josh Hader reported to camp behind schedule after feeling soreness in his bicep during an offseason bullpen session.`\
 https://nytimes.com/athletic/7107924/2026/03/11/astros-josh-hader-miss-opening-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7106858/2026/03/11/seahawks-free-agent-news-riq-woo
 **49ers free-agency reset: Two losses, two additions and some D-linemen to target**\
 `Though they are dwindling, the 49ers have a few options if they want to add a veteran defensive lineman in free agency.`\
 https://nytimes.com/athletic/7106369/2026/03/11/49ers-free-agency-news-analysis/
-
-**Dan Simmons, Genre-Leaping Author of ‘The Terror,’ Dies at 77**\
-`He moved easily and prolifically through science fiction, fantasy, horror, thrillers, crime and historical fiction. His book “The Terror” was made into a cable TV series.`\
-https://nytimes.com/2026/03/11/books/dan-simmons-dead.html
 
