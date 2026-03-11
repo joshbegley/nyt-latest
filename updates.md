@@ -1,3 +1,15 @@
+**After firing Adrian Autry, Syracuse basketball must invest to build on legacy**\
+`Mired in a five-year NCAA Tournament drought and a coach removed from Jim Boeheim, what is Syracuse basketball now? `\
+https://nytimes.com/athletic/7108963/2026/03/11/syracuse-mens-basketball-fired-adrian-autry/
+
+**Curry to miss more time due to knee injury, will be re-evaluated in 10 days**\
+`Steph Curry, who turns 38 on Saturday, has not played since leaving early during a loss to the Detroit Pistons on Jan. 30.`\
+https://nytimes.com/athletic/7109254/2026/03/11/warriors-steph-curry-injury-knee-10-days/
+
+**Tornadoes Kill At Least Two Across the Midwest**\
+`About a dozen tornadoes ripped through the Midwest and South on Tuesday, killing at least two people. Officials said search-and-rescue operations were still underway.`\
+https://nytimes.com/video/weather/100000010769413/tornado-deaths-indiana-illinois-storm.html
+
 **Wisconsin Supreme Court Election 2026: Latest Polls**\
 `Track the latest polls in the Wisconsin Supreme Court election.`\
 https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-2026.html

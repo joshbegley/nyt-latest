@@ -19,7 +19,7 @@ https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-202
 https://nytimes.com/athletic/7108088/2026/03/11/bam-adebayo-fans-react-83-point-game/
 
 **The Briefing: Leverkusen 1 Arsenal 1 - Was late penalty call right? Why did Saka struggle?**\
-`Our writers break down the action from the first leg of the last-16 tie in Leverkusen.`\
+`Our writers break down the action from the first leg of the last-16 tie in Leverkusen`\
 https://nytimes.com/athletic/7099435/2026/03/11/leverkusen-arsenal-havertz-saka/
 
 **How to watch Tarleton State vs. Abilene Christian men's basketball: WAC Tournament Time, TV, streaming**\
