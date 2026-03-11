@@ -1,3 +1,7 @@
+**He Escaped Gangs. Now He's Dodging ICE.**\
+`An undocumented teen's harrowing past explains what brought him to America.`\
+https://nytimes.com/interactive/2026/03/11/opinion/ice-honduras-gangs-separation-chapter5.html
+
 **Syracuse fires coach Adrian Autry after 3 years: Source**\
 `Syracuse hasn't been to the NCAA Tournament since 2021, the program's longest drought since the early 1970s.`\
 https://nytimes.com/athletic/7104342/2026/03/11/syracuse-basketball-fires-coach-adrian-autry/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/opinion/teens-tech-skeptics.html
 **My Husband’s Sisters Are Suing Him Over Their Father’s Estate. Help!**\
 `A reader is unsure of the path forward with her sisters-in-law after a contentious lawsuit that accused her husband of mishandling their father’s trust.`\
 https://nytimes.com/2026/03/11/style/estate-executor-sibling-hostility.html
-
-**Commanders agree to deal with former Patriots edge rusher K'Lavon Chaisson**\
-`Chaisson, 26, totaled a career-high 7.5 sacks and 59 pressures for the AFC-champion New England Patriots in 2025.`\
-https://nytimes.com/athletic/7084037/2026/03/11/klavon-chaisson-commanders-nfl-free-agency-2026/
 
