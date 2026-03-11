@@ -1,3 +1,15 @@
+**Women's NCAA Tournament Bubble Watch: Will Clemson, Iowa State, Virginia make the field?**\
+`Who's in? Who's out? Conference tournaments this week will shape the selection committee's decisions.`\
+https://nytimes.com/athletic/7106638/2026/03/11/womens-ncaa-tournament-bubble-watch-clemson/
+
+**Bored with Roto? Try Head-to-Head fantasy baseball**\
+`Michael Salfino explains how head-to-head fantasy baseball can spice things up if your traditional Roto format has become a drag.`\
+https://nytimes.com/athletic/7104803/2026/03/11/fantasy-baseball-h2h-head-to-head-roto-formats/
+
+**Police in Britain Repeatedly Declined to Investigate Epstein. Why?**\
+`The police in London interviewed Virginia Giuffre three times over her allegations about Jeffrey Epstein, Andrew Mountbatten-Windsor and Ghislaine Maxwell, but never began a criminal investigation.`\
+https://nytimes.com/2026/03/11/world/europe/uk-police-epstein-giuffre-maxwell-prince-andrew.html
+
 **The Pulse: 83 points? Him?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7105594/2026/03/11/bam-adebayo-83-points-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7105205/2026/03/11/new-york-rangers-nhl-trade-deadl
 **To build a Final Four contender, Illinois basketball looked 5,000 miles east — to the Balkans**\
 `Illinois has become college basketball's Balkan hub. It was years in the making to get there.`\
 https://nytimes.com/athletic/7105831/2026/03/11/illinois-basketball-balkan-players-brad-underwood/
-
-**Eagles free agency: Riq Woolen highlights Day 2 activity; who's available for Day 3?**\
-`The Eagles still need a No. 1 tight end, among other positions.`\
-https://nytimes.com/athletic/7106577/2026/03/11/eagles-free-agency-riq-woolen-available/
-
-**For new fans of women's hockey, PWHL offers drama, storylines to follow post-Olympics**\
-`The PWHL is back after its Olympic break with more eyes on the sport than ever before. Here's everything you need to know about the league.`\
-https://nytimes.com/athletic/7104687/2026/03/11/pwhl-womens-hockey-olympics-explainer/
-
-**'Can't even feel worse': Charlie McAvoy is sick of messing up his mouth**\
-`McAvoy has gotten to know the team dentist all too well.`\
-https://nytimes.com/athletic/7106744/2026/03/11/bruins-charlie-mcavoy-mouth/
 
