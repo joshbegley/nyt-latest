@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘At 35, I Lost My Virginity’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/11/style/tiny-modern-love-stories-at-35-i-lost-my-virginity.html
+
+**NFL interceptions leader Kevin Byard agrees to free-agent deal with the Patriots**\
+`A first-team All-Pro in 2025, Byard led the NFL with seven interceptions, giving him 36 in his 10 seasons.`\
+https://nytimes.com/athletic/7082455/2026/03/11/kevin-byard-patriots-nfl-free-agency-2026/
+
+**Trump Wants to Bend Iran. Netanyahu Wants to Break It.**\
+`American goals are starting to conflict with Israel’s.`\
+https://nytimes.com/2026/03/11/opinion/iran-trump-netanyahu-israel.html
+
 **Republicans Concede They Need a Pivot on Immigration Ahead of Midterms**\
 `In public comments and private meetings at a House G.O.P. retreat, top officials allowed that President Trump’s immigration crackdown had hurt the party and that they needed a course correction on the issue.`\
 https://nytimes.com/2026/03/11/us/politics/house-republicans-immigration-midterms.html

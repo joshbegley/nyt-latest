@@ -1,3 +1,11 @@
+**How to watch Rockets vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Houston Rockets play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109009/2026/03/11/rockets-vs-nuggets-stream-how-to-watch-march-11/
+
+**Why Mamdani Is One of America’s Most Popular Politicians. For Now.**\
+`The new mayor is having a sunny honeymoon with New Yorkers. Will it last?`\
+https://nytimes.com/2026/03/11/opinion/mamdani-popularity.html
+
 **Tiny Love Stories: ‘At 35, I Lost My Virginity’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/11/style/tiny-modern-love-stories-at-35-i-lost-my-virginity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7108759/2026/03/11/tarik-skubal-team-usa-wbc-critic
 **A Planned Parenthood Clinic, in a Pinch, Turns to Botox**\
 `The move is designed to keep the doors of the clinic open, and is a reflection of the increasingly blurred lines between the beauty industry and health care.`\
 https://nytimes.com/2026/03/11/style/planned-parenthood-botox-california-nevada.html
-
-**If U.S. Colleges Are Dying, Why Are Students Applying?**\
-`Plus, the growing demand for higher education to prove its value.`\
-https://nytimes.com/2026/03/11/headway/college-apps-newsletter.html
-
-**Banks in Gulf Evacuate Their Offices**\
-`After an overnight attack on a bank, Iranian officials signaled a new willingness to target economic centers and banks with ties to the United States.`\
-https://nytimes.com/2026/03/11/world/middleeast/citi-standard-chartered-evacuation.html
 
