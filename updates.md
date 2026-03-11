@@ -1,3 +1,11 @@
+**BYU's AJ Dybantsa dazzles in opening round of Big 12 tournament**\
+`Dybantsa's 40 points broke Kevin Durant's record for the most points by a freshman in a Big 12 tournament game.`\
+https://nytimes.com/athletic/7106571/2026/03/10/aj-dybantsa-byu-big-12-tournament-first-round/
+
+**Scottie Pippen collection auction: Bird jersey draws biggest price**\
+`The sneakers worn by Michael Jordan in the 1992 Olympic Gold Medal Game came up short of expectations. `\
+https://nytimes.com/athletic/7105155/2026/03/10/larry-bird-dream-team-jersey-scottie-pippen-auction/
+
 **Record attendances, long lines and empty stadiums: Tennis ticketing's conundrum hits Indian Wells**\
 `A new ticketing policy has caused controversy, as tournaments across the world try to find the balance between economics and fan experience.`\
 https://nytimes.com/athletic/7099791/2026/03/10/tennis-ticket-prices-ground-passes-fans-indian-wells/
