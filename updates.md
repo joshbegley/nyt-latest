@@ -1,3 +1,15 @@
+**Ravens GM Eric DeCosta 'gutted' that trade for Maxx Crosby fell through**\
+`“Nobody’s more upset about this than me," DeCosta said. “And so a regret, a big regret for me, but we will move on." `\
+https://nytimes.com/athletic/7109163/2026/03/11/ravens-eric-decosta-maxx-crosby-trade/
+
+**Ex-Officer Who Took Nude Images From Phones in Traffic Stops Is Sentenced**\
+`The former Missouri police officer, Julian Alcala, was sentenced to two years in prison and now faces civil lawsuits from several of the 20 victims the authorities identified.`\
+https://nytimes.com/2026/03/11/us/missouri-police-nude-photo-sentencing.html
+
+**Ex-Michigan assistant Chris Partridge files lawsuit over 2023 firing**\
+`Partridge was fired amid the NCAA and Big Ten investigations into the Connor Stalions sign-stealing saga at Michigan in 2023.`\
+https://nytimes.com/athletic/7109501/2026/03/11/chris-partridge-michigan-football-lawsuit/
+
 **Grading Panthers' first wave of free agency: High marks for Jaelan Phillips, Devin Lloyd**\
 `Carolina's big investments in Phillips and Lloyd meant it would have to exercise financial prudence with its other additions.`\
 https://nytimes.com/athletic/7109487/2026/03/11/panthers-free-agency-grades-jaelan-phillips/

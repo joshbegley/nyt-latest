@@ -1,3 +1,11 @@
+**Booze, Brunch and the Bible: Democrats Weigh How to Win in South Carolina**\
+`The state’s 2028 primary is likely to be important, and is already on the minds of some Democrats.`\
+https://nytimes.com/2026/03/11/us/politics/south-carolina-primary-democrats-2028.html
+
+**Strong or Weak? How Trump Picks His Battles.**\
+`Despite his tough talk, President Trump has consistently made allowances for countries he sees as powerful or dominant.`\
+https://nytimes.com/2026/03/11/us/politics/trump-adversaries-picking-battles.html
+
 **Ravens GM Eric DeCosta 'gutted' that trade for Maxx Crosby fell through**\
 `“Nobody’s more upset about this than me," DeCosta said. “And so a regret, a big regret for me, but we will move on." `\
 https://nytimes.com/athletic/7109163/2026/03/11/ravens-eric-decosta-maxx-crosby-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/us/politics/trump-cornyn-paxton-endorsement-texas
 **Real Madrid 3 Man City 0: Breaking down one of the all-time great Champions League hat-tricks**\
 `Federico Valverde scored a sensational hat-trick as Madrid took control of their Champions League round-of-16 tie`\
 https://nytimes.com/athletic/7099437/2026/03/11/real-madrid-3-manchester-city-0-valverde-hat-trick-analysis/
-
-**Jets agree to terms with ex-Raider Dylan Parham, likely new starter at guard: Source**\
-`After losing two guards in free agency, the Jets turned to Parham, a starter in Vegas since entering the NFL in 2022.`\
-https://nytimes.com/athletic/7109493/2026/03/11/dylan-parham-jets-free-agency-2026/
-
-**At Least Three Ships Struck Around Strait of Hormuz**\
-`At least three ships were hit in and around the Persian Gulf on Wednesday, according to a British maritime monitoring group. Iran appeared to claim responsibility for the attack on the Mayuree Naree.`\
-https://nytimes.com/video/world/middleeast/100000010768971/iran-war-oil-strait-of-hormuz.html
 
