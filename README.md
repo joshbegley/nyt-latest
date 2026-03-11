@@ -1,3 +1,7 @@
+**Victor Wembanyama smacked upside the head, ties a career-high in win over Celtics**\
+`Wembanyama took a shot to the nose, then proceeded to tie a career shooting night from 3-point range in a crucial win over Boston.`\
+https://nytimes.com/athletic/7107068/2026/03/11/wembanyama-career-high-win-celtics/
+
 **Why Barcelona chose the 'Hogwarts Hotel' as their Champions League base in Newcastle**\
 `Barcelona's players were taken aback by the interiors and decor of a place that "looked like something from Harry Potter"`\
 https://nytimes.com/athletic/7104989/2026/03/11/barcelona-newcastle-champions-league-hogwarts-hotel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107458/2026/03/11/team-usa-world-baseball-classic-
 **A Trump-Xi Summit Nears, but China Doesn’t Know What Trump Wants**\
 `Trump’s agenda for the high-stakes meeting remains unclear to Beijing, Chinese analysts say, while American executives say they haven’t been invited along.`\
 https://nytimes.com/2026/03/11/world/asia/china-us-trump-ceos.html
-
-**Live Updates: Inflation Report Offers Snapshot on Economy Before War With Iran**\
-`Data on consumer prices in February will inform the Federal Reserve’s deliberations over interest rates next week.`\
-https://nytimes.com/live/2026/03/11/business/inflation-report-cpi
 

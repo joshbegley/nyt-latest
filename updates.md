@@ -1,3 +1,7 @@
+**Why Barcelona chose the 'Hogwarts Hotel' as their Champions League base in Newcastle**\
+`Barcelona's players were taken aback by the interiors and decor of a place that "looked like something from Harry Potter"`\
+https://nytimes.com/athletic/7104989/2026/03/11/barcelona-newcastle-champions-league-hogwarts-hotel/
+
 **The Lakers are buying in and building momentum after win over Timberwolves**\
 `With consecutive wins over the New York Knicks and Minnesota Timberwolves, the Los Angeles Lakers seem to have figured some things out.`\
 https://nytimes.com/athletic/7107272/2026/03/11/lakers-win-timberwolves-momentum-luka-doncic/
