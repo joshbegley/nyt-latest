@@ -1,3 +1,23 @@
+**Ravens pivot from Maxx Crosby fallout, agree to terms with Trey Hendrickson: Source**\
+`Hendrickson is a four-time Pro Bowler who has had double-digit sacks in four of his past six seasons. `\
+https://nytimes.com/athletic/7107568/2026/03/11/trey-hendrickson-maxx-crosby-ravens-nfl-free-agency-2026/
+
+**Overnight talks fail to result in new WNBA collective bargaining agreement: Reports**\
+`The league and players' union met for nearly 10 hours overnight Tuesday and into Wednesday morning, per reports.`\
+https://nytimes.com/athletic/7107636/2026/03/11/wnba-union-collective-bargaining-agreement-overnight-talks/
+
+**Dodgers mailbag: Roki Saski's status, Tommy Edman's health and the Opening Day roster**\
+`How is Sasaki's relationship with the coaches? Do the Dodgers care about 100 wins? Where does River Ryan fit in? It's time for answers. `\
+https://nytimes.com/athletic/7103294/2026/03/11/dodgers-roki-sasaki-opening-day-roster/
+
+**Teens Don’t Need No Thought Control**\
+`The high schoolers fighting back against tech use.`\
+https://nytimes.com/2026/03/11/opinion/teens-tech-skeptics.html
+
+**My Husband’s Sisters Are Suing Him Over Their Father’s Estate. Help!**\
+`A reader is unsure of the path forward with her sisters-in-law after a contentious lawsuit that accused her husband of mishandling their father’s trust.`\
+https://nytimes.com/2026/03/11/style/estate-executor-sibling-hostility.html
+
 **Commanders agree to deal with former Patriots edge rusher K'Lavon Chaisson**\
 `Chaisson, 26, totaled a career-high 7.5 sacks and 59 pressures for the AFC-champion New England Patriots in 2025.`\
 https://nytimes.com/athletic/7084037/2026/03/11/klavon-chaisson-commanders-nfl-free-agency-2026/
@@ -6,8 +26,8 @@ https://nytimes.com/athletic/7084037/2026/03/11/klavon-chaisson-commanders-nfl-f
 `Officials in Tokyo and Berlin said they planned to release oil from their strategic reserves to address disruptions of supplies from the Middle East.`\
 https://nytimes.com/2026/03/11/business/energy-environment/iran-oil-reserves-release.html
 
-**Trump Will Let Iran Play at World Cup, FIFA Chief Says**\
-`The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could play in this summer’s tournament despite the war in the Middle East.`\
+**Trump Open to Iran Playing at World Cup, FIFA Chief Says**\
+`The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could participate in this summer’s tournament despite the war in the Middle East.`\
 https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.html
 
 **Eni Aluko awarded £339,000 after suing Joey Barton for libel: ‘I wanted to create a consequence’**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7107140/2026/03/11/eni-aluko-joey-barton-damages/
 **Big 12 tournament's glass court is innovative — but slippery, players say**\
 `Out of eight players polled during Tuesday's Big 12 men's tournament games, six said the glass floor was slippery.`\
 https://nytimes.com/athletic/7106910/2026/03/11/big-12-tournament-glass-court-basketball-reviews/
-
-**Lobby group for non-elite European teams proposes drastic changes to UEFA revenue distribution**\
-`Under the current distribution, clubs in UEFA competitions receive the majority of the total revenue pot of €4.4billion (£3.8bn; $5.1bn).`\
-https://nytimes.com/athletic/7107538/2026/03/11/uefa-clubs-revenue-distribution-uec/
-
-**How to watch Bowling Green vs. Ball State women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Bowling Green Falcons play the Ball State Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107711/2026/03/11/bowling-green-vs-ball-state-stream-how-to-watch-march-11/
-
-**If the Timberwolves truly have title hopes, they need to start playing like it**\
-`Just about everything went wrong for Minnesota in a 120-106 loss to the Lakers.`\
-https://nytimes.com/athletic/7106292/2026/03/11/timberwolves-loss-lakers-anthony-edwards/
-
-**How to watch SFA vs. Lamar women's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the Stephen F. Austin Ladyjacks play the Lamar Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107705/2026/03/11/sfa-vs-lamar-stream-how-to-watch-march-11/
-
-**How to watch Temple vs. UTSA women's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Temple Owls play the UTSA Roadrunners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107697/2026/03/11/temple-vs-utsa-stream-how-to-watch-march-11/
 
