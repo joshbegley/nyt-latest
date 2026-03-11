@@ -1,3 +1,15 @@
+**Bondi Is Said to Move to Military Housing Because of Threats**\
+`The attorney general relocated from a Washington apartment to a base in the area within the past month, according to people familiar with the situation.`\
+https://nytimes.com/2026/03/10/us/politics/bondi-military-housing-threats.html
+
+**Missiles, Drones and Airstrikes Pound Middle East Into 12th Day of War**\
+`The effects of the war are being felt through the Persian Gulf.`\
+https://nytimes.com/2026/03/10/world/middleeast/iran-war-israel-middle-east-strikes.html
+
+**Bam Adebayo ignites for 31-point first quarter, breaks LeBron James' Heat record**\
+`Adebayo's single-game career high point total was 43 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
+https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
+
 **Bam Adebayo ignites for 31-point first quarter, breaks LeBron James' Heat record**\
 `Adebayo's single-game career high point total was 41 points, set Jan. 23, 2021. He reached 42 points on Tuesday late in the second quarter.`\
 https://nytimes.com/athletic/7106345/2026/03/10/bam-adebayo-30-point-quarter-heat-vs-wizards/
