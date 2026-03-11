@@ -1,3 +1,15 @@
+**How to watch Oklahoma State vs. TCU men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Oklahoma State Cowboys play the TCU Horned Frogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109152/2026/03/11/oklahoma-state-vs-tcu-stream-how-to-watch-march-11/
+
+**Why Falling Cats Always Seem to Land on Their Feet**\
+`It takes backbone to solve an enigma like the “falling cat” problem.`\
+https://nytimes.com/2026/03/11/science/falling-cat-problem.html
+
+**How to watch Cal Poly vs. UCSD men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the Cal Poly Mustangs play the UCSD Tritons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109117/2026/03/11/cal-poly-vs-ucsd-stream-how-to-watch-march-11/
+
 **How to watch Wake Forest vs. Clemson men's basketball: ACC Tournament Time, TV, streaming**\
 `Find out how to watch the Wake Forest Demon Deacons play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109085/2026/03/11/wake-forest-vs-clemson-stream-how-to-watch-march-11/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/11/opinion/mamdani-popularity.html
 **Tiny Love Stories: ‘At 35, I Lost My Virginity’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/11/style/tiny-modern-love-stories-at-35-i-lost-my-virginity.html
-
-**NFL interceptions leader Kevin Byard agrees to free-agent deal with the Patriots**\
-`A first-team All-Pro in 2025, Byard led the NFL with seven interceptions, giving him 36 in his 10 seasons.`\
-https://nytimes.com/athletic/7082455/2026/03/11/kevin-byard-patriots-nfl-free-agency-2026/
-
-**Republicans Concede They Need a Pivot on Immigration Ahead of Midterms**\
-`In public comments and private meetings at a House G.O.P. retreat, top officials allowed that President Trump’s immigration crackdown had hurt the party and that they needed a course correction on the issue.`\
-https://nytimes.com/2026/03/11/us/politics/house-republicans-immigration-midterms.html
-
-**Trump Wants to Bend Iran. Netanyahu Wants to Break It.**\
-`American goals are starting to conflict with Israel’s.`\
-https://nytimes.com/2026/03/11/opinion/iran-trump-netanyahu-israel.html
 
