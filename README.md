@@ -1,3 +1,7 @@
+**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
+`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
+https://nytimes.com/wirecutter/blog/veer-cruiser-xl-stroller-wagon-review/
+
 **How has Sidney Crosby played when he returns from injuries? A look at the trends**\
 `A look at trends when Sidney Crosby returns to the lineup from injury.`\
 https://nytimes.com/athletic/7105009/2026/03/11/sidney-crosby-penguins-return-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/style/donna-kelce-meme-home-renovation.html
 **Pace of Iran’s Retaliatory Strikes Appears to Be Slowing**\
 `U.S. officials say the country’s weapons have been diminished, slowing its attacks on Gulf nations and Israel. Iran may also be holding some weapons in reserve in case the conflict is prolonged.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-weapons-missiles-israel-gulf.html
-
-**Trump Administration to Announce New Trade Investigations**\
-`The investigations into unfair trade practices will likely lead to tariffs on foreign countries, as the administration works to replace the import taxes struck down by the Supreme Court.`\
-https://nytimes.com/2026/03/11/business/economy/trump-trade-investigations-tariffs.html
 
