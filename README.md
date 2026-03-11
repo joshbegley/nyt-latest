@@ -1,3 +1,7 @@
+**U.S. Gas Prices Jump for 11th Straight Day, and Oil Pushes Higher**\
+`Drivers are paying an average of 20 percent more at the pump since the strikes on Iran began. The global oil price was up and stocks in Asia rose.`\
+https://nytimes.com/2026/03/11/business/gas-prices-oil-iran.html
+
 **Getting Dressed Should Be Easy**\
 `It was the motto of the season. Miuccia Prada got it right at Miu Miu, but Nicolas Ghesquière at Louis Vuitton made it hard.`\
 https://nytimes.com/2026/03/11/style/louis-vuitton-miu-miu-fall-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7100932/2026/03/11/lewis-obrien-wrexham-championshi
 **Raise Taxes on the Rich? These Rich New Yorkers Are All for It.**\
 `Mayor Zohran Mamdani says he wants to raise taxes on New Yorkers who earn more than $1 million per year. Some millionaires actually agree with him.`\
 https://nytimes.com/2026/03/11/nyregion/raise-taxes-on-the-rich-these-rich-new-yorkers-are-all-for-it.html
-
-**Spring Fashion**\
-`What are you looking forward to wearing as the weather warms?`\
-https://nytimes.com/2026/03/11/learning/spring-fashion.html
 
