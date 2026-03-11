@@ -1,3 +1,11 @@
+**How should fans process Bam Adebayo's 83-point night?**\
+`How should fans contextualize an event as surprising and remarkable as Bam Adebayo scoring 83 points in a game? We asked our writers.`\
+https://nytimes.com/athletic/7108088/2026/03/11/bam-adebayo-fans-react-83-point-game/
+
+**The Briefing: Leverkusen 1 Arsenal 1 - Was late penalty call right? Why did Saka struggle?**\
+`Our writers break down the action from the first leg of the last-16 tie in Leverkusen.`\
+https://nytimes.com/athletic/7099435/2026/03/11/leverkusen-arsenal-havertz-saka/
+
 **How to watch Tarleton State vs. Abilene Christian men's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the Tarleton State Texans play the Abilene Christian Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109212/2026/03/11/tarleton-state-vs-abilene-christian-stream-how-to-watch-march-11/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109180/2026/03/11/canadiens-vs-senators-stream-how
 **How to watch Jackson State vs. Florida A&M men's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Jackson State Tigers play the Florida A&M Rattlers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109174/2026/03/11/jackson-state-vs-florida-a-m-stream-how-to-watch-march-11/
-
-**How to watch Rutgers vs. Minnesota men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109172/2026/03/11/rutgers-vs-minnesota-stream-how-to-watch-march-11/
-
-**How to watch Capitals vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109168/2026/03/11/capitals-vs-flyers-stream-how-to-watch-march-11/
 

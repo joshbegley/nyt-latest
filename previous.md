@@ -1,3 +1,15 @@
+**How to watch Tarleton State vs. Abilene Christian men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Tarleton State Texans play the Abilene Christian Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109212/2026/03/11/tarleton-state-vs-abilene-christian-stream-how-to-watch-march-11/
+
+**Trump Administration Asks Supreme Court to End Protections for Haitian Immigrants**\
+`The administration has also sought to end deportation protections for other immigrant groups, including Syrians.`\
+https://nytimes.com/2026/03/11/us/politics/supreme-court-haitians-deportation.html
+
+**How to watch Georgetown vs. DePaul men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the DePaul Blue Demons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109205/2026/03/11/georgetown-vs-depaul-stream-how-to-watch-march-11/
+
 **How to watch Fresno State vs. Colorado State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Fresno State Bulldogs play the Colorado State Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109193/2026/03/11/fresno-state-vs-colorado-state-stream-how-to-watch-march-11/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7109172/2026/03/11/rutgers-vs-minnesota-stream-how-
 **How to watch Capitals vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109168/2026/03/11/capitals-vs-flyers-stream-how-to-watch-march-11/
-
-**How to watch New Mexico State vs. Sam Houston men's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the New Mexico State Aggies play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109160/2026/03/11/new-mexico-state-vs-sam-houston-stream-how-to-watch-march-11/
-
-**How to watch Oklahoma State vs. TCU men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Oklahoma State Cowboys play the TCU Horned Frogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109152/2026/03/11/oklahoma-state-vs-tcu-stream-how-to-watch-march-11/
-
-**Why Falling Cats Always Seem to Land on Their Feet**\
-`It takes backbone to solve an enigma like the “falling cat” problem.`\
-https://nytimes.com/2026/03/11/science/falling-cat-problem.html
 

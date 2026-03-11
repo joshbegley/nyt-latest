@@ -1,3 +1,15 @@
+**How to watch Tarleton State vs. Abilene Christian men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Tarleton State Texans play the Abilene Christian Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109212/2026/03/11/tarleton-state-vs-abilene-christian-stream-how-to-watch-march-11/
+
+**Trump Administration Asks Supreme Court to End Protections for Haitian Immigrants**\
+`The administration has also sought to end deportation protections for other immigrant groups, including Syrians.`\
+https://nytimes.com/2026/03/11/us/politics/supreme-court-haitians-deportation.html
+
+**How to watch Georgetown vs. DePaul men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Georgetown Hoyas play the DePaul Blue Demons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109205/2026/03/11/georgetown-vs-depaul-stream-how-to-watch-march-11/
+
 **How to watch Fresno State vs. Colorado State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the Fresno State Bulldogs play the Colorado State Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7109193/2026/03/11/fresno-state-vs-colorado-state-stream-how-to-watch-march-11/
