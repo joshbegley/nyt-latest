@@ -1,3 +1,11 @@
+**Utah Mammoth sign Nick Schmaltz to 8-year, $64 million contract extension**\
+`Schmaltz already has set a career high with 24 goals this season.`\
+https://nytimes.com/athletic/7108616/2026/03/11/nick-schmaltz-utah-mammoth-contract/
+
+**Jill Biden Will Publish a Memoir in June**\
+`In “View from the East Wing,” the former first lady will recount her time in the White House and share her views on the 2024 presidential race.`\
+https://nytimes.com/2026/03/11/books/review/jill-biden-memoir.html
+
 **V.A. Begins Drive to Put Homeless Veterans Into Guardianship**\
 `A joint effort with the Justice Department creates new authority to compel veterans into institutional or involuntary care.`\
 https://nytimes.com/2026/03/11/us/politics/veterans-homeless-guardianship-trump.html
