@@ -1,40 +1,40 @@
-**How to watch UAPB vs. Alcorn State women's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Alcorn State Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108218/2026/03/11/uapb-vs-alcorn-state-stream-how-to-watch-march-11/
+**A Centuries-Old Tradition Making Wooden Dolls**\
+`A Japanese artisan demonstrates the skill needed to produce kokeshi.`\
+https://nytimes.com/2026/03/11/arts/design/japan-wooden-dolls-crafts.html
 
-**How to watch UC Riverside vs. UCSB women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the UC Riverside Highlanders play the UCSB Gauchos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108201/2026/03/11/uc-riverside-vs-ucsb-stream-how-to-watch-march-11/
+**How to watch Delaware State vs. Morgan State men's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the Delaware State Hornets play the Morgan State Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108293/2026/03/11/delaware-state-vs-morgan-state-stream-how-to-watch-march-11/
 
-**With Team USA left to sit and watch, Fox moves Italy-Mexico from Tubi to FS1**\
-`By losing Tuesday, Team USA is left to scoreboard watch while Italy plays Mexico in a game that Fox moved to a more prominent TV platform.`\
-https://nytimes.com/athletic/7107967/2026/03/11/world-baseball-classic-italy-mexico-usa-tubi-fs1/
+**How to watch Northwestern vs. Indiana men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108283/2026/03/11/northwestern-vs-indiana-stream-how-to-watch-march-11/
 
-**How to watch Missouri State vs. Liberty men's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Missouri State Bears play the Liberty Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108196/2026/03/11/missouri-state-vs-liberty-stream-how-to-watch-march-11/
+**How to watch Utah Tech vs. UT Arlington women's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Utah Tech Trailblazers play the UT Arlington Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108279/2026/03/11/utah-tech-vs-ut-arlington-stream-how-to-watch-march-11/
 
-**Cherry Karpatka**\
-`Karpatka, also known as Polish Mountain cake, gets its name from the Carpathian Mountains, a 1,500-kilometer range that stretches from the Czech Republic to Romania.`\
-https://nytimes.com/video/dining/100000010767642/cherry-karpatka.html
+**QB Daniel Jones, Colts finalizing 2-year deal worth up to $100 million: Sources**\
+`The Colts could have lost Jones and wide receiver Alec Pierce this offseason, but they figured out a way to keep both of them long term.`\
+https://nytimes.com/athletic/7104555/2026/03/11/daniel-jones-colts-nfl-free-agency-2026/
 
-**How to watch Cal vs. Florida State men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the California Golden Bears play the Florida State Seminoles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108191/2026/03/11/cal-vs-florida-state-stream-how-to-watch-march-11/
+**Iran Has Fired Widely Banned Cluster Munitions at Israel**\
+`Accounts from Israeli officials and footage verified by The New York Times show that Iran has targeted Israel with the weapons. Experts say this has exposed civilians to indiscriminate attacks.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-israel-cluster-munitions.html
 
-**Joe Rogan Says Trump’s Supporters Feel ‘Betrayed’ by Iran War**\
-`The influential podcast host described the conflict as a sharp reversal from the policies the president had campaigned on.`\
-https://nytimes.com/2026/03/11/us/politics/rogan-trump-iran-war.html
+**How to watch Toledo vs. UMass women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Toledo Rockets play the UMass Minutewomen, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108240/2026/03/11/toledo-vs-umass-stream-how-to-watch-march-11/
 
-**Back-to-back losses reveal Warriors' thin margin of error, even against tanking teams**\
-`Late errors against the Bulls led to one of the Warriors' worst losses of the season on Tuesday night.`\
-https://nytimes.com/athletic/7107716/2026/03/11/warriors-losses-vs-tanking-teams/
+**How to watch Boston University vs. Lehigh men's basketball: Patriot League Tournament Time, TV, streaming**\
+`Find out how to watch the Boston University Terriers play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108235/2026/03/11/boston-university-vs-lehigh-stream-how-to-watch-march-11/
 
-**Did ‘America’s Next Top Model’ Exploit Young Black Women’s Pain?**\
-`When Tyra Banks yelled at Tiffany Richardson, a contestant on “America’s Next Top Model,” the writer, editor and stylist Michaela angela Davis heard something revealing. She explained on “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010768711/did-americas-next-top-model-exploit-young-black-womens-pain.html
+**The Windup: USA now at mercy of bizarre WBC tiebreaker**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7108044/2026/03/11/usa-mexico-italy-tiebreaker-world-baseball-classic-the-windup/
 
-**Canucks notes: Curtis Douglas, the environmental challenge and Vitaly Pinchuk**\
-`Mercifully, only 18 games remain in what's been a historically dreadful season for the Canucks.`\
-https://nytimes.com/athletic/7107060/2026/03/11/vancouver-canucks-curtis-douglas-free-agents-ncaa-khl/
+**How to watch Montana State vs. Idaho women's basketball: Big Sky Tournament Time, TV, streaming**\
+`Find out how to watch the Montana State Bobcats play the Idaho Vandals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108225/2026/03/11/montana-state-vs-idaho-stream-how-to-watch-march-11/
 

@@ -1,3 +1,19 @@
+**How to watch Xavier vs. Marquette men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Xavier Musketeers play the Marquette Golden Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108321/2026/03/11/xavier-vs-marquette-stream-how-to-watch-march-11/
+
+**How to watch Tulane vs. Memphis men's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108318/2026/03/11/tulane-vs-memphis-stream-how-to-watch-march-11/
+
+**How to watch BYU vs. West Virginia men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the West Virginia Mountaineers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108311/2026/03/11/byu-vs-west-virginia-stream-how-to-watch-march-11/
+
+**How to watch Air Force vs. Nevada men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Air Force Falcons play the Nevada Wolf Pack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7108306/2026/03/11/air-force-vs-nevada-stream-how-to-watch-march-11/
+
 **A Centuries-Old Tradition Making Wooden Dolls**\
 `A Japanese artisan demonstrates the skill needed to produce kokeshi.`\
 https://nytimes.com/2026/03/11/arts/design/japan-wooden-dolls-crafts.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7104555/2026/03/11/daniel-jones-colts-nfl-free-agen
 **Iran Has Fired Widely Banned Cluster Munitions at Israel**\
 `Accounts from Israeli officials and footage verified by The New York Times show that Iran has targeted Israel with the weapons. Experts say this has exposed civilians to indiscriminate attacks.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-israel-cluster-munitions.html
-
-**How to watch Toledo vs. UMass women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the UMass Minutewomen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108240/2026/03/11/toledo-vs-umass-stream-how-to-watch-march-11/
-
-**How to watch Boston University vs. Lehigh men's basketball: Patriot League Tournament Time, TV, streaming**\
-`Find out how to watch the Boston University Terriers play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108235/2026/03/11/boston-university-vs-lehigh-stream-how-to-watch-march-11/
-
-**The Windup: USA now at mercy of bizarre WBC tiebreaker**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7108044/2026/03/11/usa-mexico-italy-tiebreaker-world-baseball-classic-the-windup/
-
-**How to watch Montana State vs. Idaho women's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Montana State Bobcats play the Idaho Vandals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7108225/2026/03/11/montana-state-vs-idaho-stream-how-to-watch-march-11/
 
