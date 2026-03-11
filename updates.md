@@ -1,3 +1,23 @@
+**THE AGELESS ICON: CELEBRATING HAIR AT EVERY AGE**\
+`Did you know your hair ages just like your skin?  Over time, the texture, density, volume and moisture levels of hair gradually change. Yet aging hair has long been misunderstood, without the kind of evolving regimens and targeted solutions we expect from skincare.`\
+https://nytimes.com/paidpost/kerastase/the-ageless-icon-celebrating-hair-at-every-age.html
+
+**Commanders add Chig Okonkwo and Nick Cross in free agency**\
+`Okonkwo and Cross add to the Commanders’ free-agency haul that now includes seven new players and nine returning veterans.`\
+https://nytimes.com/athletic/7109292/2026/03/11/chig-okonkwo-commanders-nfl-free-agency-2026/
+
+**Turkish Bank Accused of Laundering Billions for Iran Gets a Reprieve**\
+`A judge granted a request for a 90-day pause in the pending criminal case against Halkbank. Now it must pass an independent review to prove that it is no longer evading U.S. sanctions.`\
+https://nytimes.com/2026/03/11/nyregion/halkbank-turkey-sanctions-money-laundering.html
+
+**Bobby Hurley not expected to return as Arizona State men's basketball coach**\
+`Arizona State suffered a huge loss in the second round of the Big 12 tournament on the heels of a disappointing season.`\
+https://nytimes.com/athletic/7102579/2026/03/11/bobby-hurley-arizona-state-basketball-coaching-change/
+
+**Bills signing Bradley Chubb to 3-year deal worth up to $52.5 million: Sources**\
+`Chubb, a seven-year veteran who turns 30 in June, is the latest addition brought in to shore up the Buffalo pass rush.`\
+https://nytimes.com/athletic/7109386/2026/03/11/bradley-chubb-bills-nfl-free-agency-2026/
+
 **Food Stamp Recipients Sue Over Bans on Sugary Drinks**\
 `In suing to halt restrictions in five states, the plaintiffs argued that the Trump administration violated laws authorizing SNAP and governing changes in policies.`\
 https://nytimes.com/2026/03/11/us/politics/usda-sued-snap-soda-ban.html
