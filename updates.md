@@ -1,3 +1,31 @@
+**West Ham's Summerville targeting injury return vs. Aston Villa**\
+`The 24-year-old sustained a calf injury in the FA Cup fifth-round win over Brentford.`\
+https://nytimes.com/athletic/7107523/2026/03/11/crysencio-summerville-west-ham-injury-return/
+
+**Ravens to sign Trey Hendrickson after backing out of Maxx Crosby trade: Source**\
+`Hendrickson is a four-time Pro Bowler who has had double-digit sacks in four of his past six seasons. `\
+https://nytimes.com/athletic/7107568/2026/03/11/trey-hendrickson-maxx-crosby-ravens-nfl-free-agency-2026/
+
+**Overnight talks fail to result in new WNBA collective bargaining agreement: Reports**\
+`The league and players' union met for nearly 10 hours overnight Tuesday and into Wednesday morning, per reports.`\
+https://nytimes.com/athletic/7107636/2026/03/11/wnba-union-collective-bargaining-agreement-overnight-talks/
+
+**Dodgers mailbag: Roki Saski's status, Tommy Edman's health and the Opening Day roster**\
+`How is Sasaki's relationship with the coaches? Do the Dodgers care about 100 wins? Where does River Ryan fit in? It's time for answers. `\
+https://nytimes.com/athletic/7103294/2026/03/11/dodgers-roki-sasaki-opening-day-roster/
+
+**Teens Don’t Need No Thought Control**\
+`The high schoolers fighting back against tech use.`\
+https://nytimes.com/2026/03/11/opinion/teens-tech-skeptics.html
+
+**My Husband’s Sisters Are Suing Him Over Their Father’s Estate. Help!**\
+`A reader is unsure of the path forward with her sisters-in-law after a contentious lawsuit that accused her husband of mishandling their father’s trust.`\
+https://nytimes.com/2026/03/11/style/estate-executor-sibling-hostility.html
+
+**Trump Open to Iran Playing at World Cup, FIFA Chief Says**\
+`The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could participate in this summer’s tournament despite the war in the Middle East.`\
+https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.html
+
 **Commanders agree to deal with former Patriots edge rusher K'Lavon Chaisson**\
 `Chaisson, 26, totaled a career-high 7.5 sacks and 59 pressures for the AFC-champion New England Patriots in 2025.`\
 https://nytimes.com/athletic/7084037/2026/03/11/klavon-chaisson-commanders-nfl-free-agency-2026/
