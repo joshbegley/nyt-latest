@@ -1,3 +1,15 @@
+**Trump Told Me Iran Is Welcome at World Cup, FIFA Chief Says**\
+`The head of soccer’s global governing body, Gianni Infantino, said that President Trump had assured him the Iranian team could play in this summer’s tournament despite the war in the Middle East.`\
+https://nytimes.com/2026/03/11/world/europe/trump-iran-world-cup-fifa-infantino.html
+
+**Eni Aluko awarded £339,000 after suing Joey Barton for libel: ‘I wanted to create a consequence’**\
+`Ex-England international Aluko tells The Athletic of her wish to make a difference by fighting against online abuse of women and girls`\
+https://nytimes.com/athletic/7107140/2026/03/11/eni-aluko-joey-barton-damages/
+
+**Big 12 tournament's glass court is innovative — but slippery, players say**\
+`Out of eight players polled during Tuesday's Big 12 men's tournament games, six said the glass floor was slippery.`\
+https://nytimes.com/athletic/7106910/2026/03/11/big-12-tournament-glass-court-basketball-reviews/
+
 **Lobby group for non-elite European teams proposes drastic changes to UEFA revenue distribution**\
 `Under the current distribution, clubs in UEFA competitions receive the majority of the total revenue pot of €4.4billion (£3.8bn; $5.1bn).`\
 https://nytimes.com/athletic/7107538/2026/03/11/uefa-clubs-revenue-distribution-uec/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7107690/2026/03/11/wyoming-vs-unlv-stream-how-to-wa
 **How to watch UNC Wilmington vs. Northeastern women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the UNC Wilmington Seahawks play the Northeastern Huskies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7107688/2026/03/11/unc-wilmington-vs-northeastern-stream-how-to-watch-march-11/
-
-**How to watch Delaware State vs. Maryland-Eastern Shore women's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the Delaware State Hornets play the Maryland-Eastern Shore Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107685/2026/03/11/delaware-state-vs-maryland-eastern-shore-stream-how-to-watch-march-11/
-
-**How to watch Loyola Chicago vs. Richmond men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Loyola Chicago Ramblers play the Richmond Spiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107683/2026/03/11/loyola-chicago-vs-richmond-stream-how-to-watch-march-11/
-
-**How to watch USC vs. Washington men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107680/2026/03/11/usc-vs-washington-stream-how-to-watch-march-11/
 
