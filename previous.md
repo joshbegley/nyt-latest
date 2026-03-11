@@ -1,3 +1,27 @@
+**Ligue 1 was, for a long time, a farmer's league – but urbanisation is behind France's increased success**\
+`France’s development as a footballing nation owes to its urbanisation, and the fact it is no longer a country of rural life and of farmers`\
+https://nytimes.com/athletic/7104126/2026/03/11/ligue-1-psg-farmers-league-france/
+
+**Rewatching Chelsea-PSG in the Club World Cup final: What we learned and didn't learn**\
+`Chelsea beat PSG in the Club World Cup final last year, but what we learned from that match is different in retrospect `\
+https://nytimes.com/athletic/7104628/2026/03/11/chelsea-psg-club-world-cup-final-rewatch-analysis/
+
+**What watching Man City at Real Madrid over and over again has taught me about this game**\
+`City have visited the Bernabeu five times in the past five seasons. Predicting the outcome of their latest trip tonight is not easy...`\
+https://nytimes.com/athletic/7101821/2026/03/11/manchester-city-real-madrid-bernabeu-analysis/
+
+**The New York Times in Print for Wednesday, March 11, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/11/todays-new-york-times
+
+**Leave the Kurds Out of It**\
+`The United States and Israel have considered using Iranian Kurds as a ground force.`\
+https://nytimes.com/2026/03/11/opinion/iran-kurds-us-israel.html
+
+**At Least 17 U.S. Sites Damaged in War With Iran, Analysis Shows**\
+`A New York Times analysis of satellite imagery and verified videos shows damage to more than a dozen American military sites and installations from Iran’s retaliatory strikes.`\
+https://nytimes.com/interactive/2026/03/11/world/middleeast/iran-us-military-bases-strikes-map.html
+
 **After Team USA's stunning WBC loss, here's how the Pool B tiebreaker works**\
 `Rather than bully its way into the quarterfinals, Team USA is going to have to watch the scoreboard and hope for a blowout on Wednesday.`\
 https://nytimes.com/athletic/7106867/2026/03/11/world-baseball-classic-team-usa-tiebreaker-scenarios/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7106208/2026/03/11/wild-bobby-brink-home-debut-gust
 **Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
 `Follow here to learn about the 31 teams earning at-large berths to the 2026 men's NCAA Tournament.`\
 https://nytimes.com/athletic/7097219/2026/03/11/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
-
-**How Vinicius Jr became Real Madrid's man for the Champions League knockout rounds**\
-`Carlo Ancelotti called Vinicius Jr “the most decisive player in the world”. He shines brightest in the Champions League`\
-https://nytimes.com/athletic/7104240/2026/03/11/vinicius-junior-real-madrid-champions-league-knockouts/
-
-**New Iranian Leader Was Wounded Early in the War, Iranian and Israeli Officials Say**\
-`Officials say Mojtaba Khamanei’s legs were hurt, but the circumstances as well as the extent of his injuries were unclear. He has remained out of view since being named leader three days ago.`\
-https://nytimes.com/2026/03/11/world/middleeast/khamenei-iran-leader-injured.html
-
-**Ukraine Reaches a Milestone: Making ‘China-Free’ Drones**\
-`The country has prioritized self-sufficiency in producing a crucial battlefield weapon, though weaning itself fully off cheaper Chinese components is difficult.`\
-https://nytimes.com/2026/03/11/world/europe/ukraine-drones-china.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 11, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7106788/2026/03/11/connections-sports-edition-hints-answers-march-11-2026/
-
-**Corrections: March 11, 2026**\
-`Corrections that appeared in print on Wednesday, March 11, 2026.`\
-https://nytimes.com/2026/03/11/pageoneplus/corrections-march-11-2026.html
-
-**Quote of the Day: An iPad in Kindergarten Class? Timeout, Say Worried Parents.**\
-`Quotation of the Day for Wednesday, March 11, 2026.`\
-https://nytimes.com/2026/03/10/pageoneplus/quote-of-the-day-an-ipad-in-kindergarten-class-timeout-say-worried-parents.html
 
