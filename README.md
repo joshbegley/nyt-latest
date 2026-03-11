@@ -2,7 +2,7 @@
 `Carmen Mejia was cleared of murder this week in connection with the death of a baby in her care, who was scalded by hot water in 2003 in Austin, Texas. She is still in jail on an immigration hold.`\
 https://nytimes.com/2026/03/10/us/mejia-texas-child-scalding-deportation.html
 
-**Maxx Crosby trade is off: Raiders say Ravens pulled out of the deal**\
+**Maxx Crosby trade off: Raiders say Ravens pulled out of the deal**\
 `Maxx Crosby will apparently not be joining the Ravens, undoing a trade that sent two first-round picks to Las Vegas.`\
 https://nytimes.com/athletic/7106276/2026/03/10/maxx-crosby-trade-ravens-back-out-raiders/
 
