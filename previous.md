@@ -1,40 +1,40 @@
-**The Trump Administration Goes to War, by Any Memes Necessary**\
-`A series of White House social-media videos turn the carnage in Iran into gleeful entertainment.`\
-https://nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html
+**Democrats Demand Accountability from Hegseth on Iranian School Strike**\
+`A majority of Senate Democrats called on Secretary of Defense Pete Hegseth to disclose whether the U.S. carried out the deadly attack.`\
+https://nytimes.com/2026/03/11/world/middleeast/democrats-hegseth-minab-school-strike.html
 
-**Bam Adebayo rode free throws to 83 points but there's little shame in it**\
-`The night he scored 83, Bam Adebayo notched another legacy: NBA free-throw king. It was a testament to this era of basketball.`\
-https://nytimes.com/athletic/7106720/2026/03/11/bam-adebayo-free-throws-83-points/
+**Rangers insider: What's next now that the trade deadline has passed?**\
+`Assessing the team’s priorities heading into the summer after a trade deadline that came and went with fewer fireworks than anticipated.`\
+https://nytimes.com/athletic/7105205/2026/03/11/new-york-rangers-nhl-trade-deadline-offseason/
 
-**West Virginia found the trick to avoiding sour results: pregame lemons**\
-`The Big 12 tournament champions say biting into lemons has given them the jolt they need. `\
-https://nytimes.com/athletic/7104997/2026/03/11/west-virginia-womens-basketball-lemons/
+**To build a Final Four contender, Illinois basketball looked 5,000 miles east — to the Balkans**\
+`Illinois has become college basketball's Balkan hub. It was years in the making to get there.`\
+https://nytimes.com/athletic/7105831/2026/03/11/illinois-basketball-balkan-players-brad-underwood/
 
-**McCullough’s Mailbag: Should the World Baseball Classic replace the All-Star Game?**\
-`Andy McCullough talks WBC, labor, and Aaron Judge's place in baseball history in the return of our MLB mailbag. `\
-https://nytimes.com/athletic/7103857/2026/03/11/athletic-mlb-mailbag-wbc-replace-all-star-game/
+**Eagles free agency: Riq Woolen highlights Day 2 activity; who's available for Day 3?**\
+`The Eagles still need a No. 1 tight end, among other positions.`\
+https://nytimes.com/athletic/7106577/2026/03/11/eagles-free-agency-riq-woolen-available/
 
-**Failed Maxx Crosby trade the latest reminder that it's never easy for the Raiders**\
-`After their proposed Maxx Crosby trade with the Baltimore Ravens fell apart, the Raiders' only option is to make the best of this mess.`\
-https://nytimes.com/athletic/7106778/2026/03/11/maxx-crosby-trade-raiders-canceled-physical/
+**For new fans of women's hockey, PWHL offers drama, storylines to follow post-Olympics**\
+`The PWHL is back after its Olympic break with more eyes on the sport than ever before. Here's everything you need to know about the league.`\
+https://nytimes.com/athletic/7104687/2026/03/11/pwhl-womens-hockey-olympics-explainer/
 
-**Runner couldn't see leader at Los Angeles Marathon. Then a 'spark went off'**\
-`Nathan Martin's stunning finishing kick in the final 800 meters ended with him winning the race by 0.1 seconds.`\
-https://nytimes.com/athletic/7105733/2026/03/11/nathan-martin-los-angeles-marathon/
+**'Can't even feel worse': Charlie McAvoy is sick of messing up his mouth**\
+`McAvoy has gotten to know the team dentist all too well.`\
+https://nytimes.com/athletic/7106744/2026/03/11/bruins-charlie-mcavoy-mouth/
 
-**In Giants free agency, John Harbaugh super-sizes the offense and Ravens head north**\
-`Plus, the latest on the offensive line, some questions arise in the secondary, and special teams upgrades.`\
-https://nytimes.com/athletic/7106707/2026/03/11/john-harbaugh-new-york-giants-free-agency-recap/
+**Team USA tiebreakers and what's at stake in WBC pool play finale**\
+`In a showdown between the Dominican Republic and Venezuela, the loser will face the defending champions, Samurai Japan. `\
+https://nytimes.com/athletic/7107048/2026/03/11/world-baseball-classic-pool-play-finale-tiebreakers/
 
-**The New York Times International Edition in Print for Thursday, March 12, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/11/todays-new-york-times-international-edition
+**Why PGA Tour star Scottie Scheffler focuses on the micro**\
+`The only metrics Scheffler lives by are the shot he just hit and the shot he's about to hit. And it's worked as he's won 20 PGA tournaments.`\
+https://nytimes.com/athletic/7105888/2026/03/11/scottie-scheffler-players-championship-mental-game/
 
-**To Pay the Bills, a Cult Band Becomes a Doors Tribute Act**\
-`With even critically acclaimed bands struggling to make a living, the British group Field Music has come up with a novel way to top up its income.`\
-https://nytimes.com/2026/03/11/arts/music/field-music-the-doors.html
+**Bam Adebayo's 83-point night carves own lane in NBA lore**\
+`Bam. Kobe. Wilt. That’s the list of players in league history to drop at least 80 points in a game.`\
+https://nytimes.com/athletic/7106813/2026/03/11/bam-adebayo-83-points-stats-breakdown/
 
-**How to watch Kent State vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Kent State Golden Flashes play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7107380/2026/03/11/kent-state-vs-miami-oh-stream-how-to-watch-march-11/
+**Calder Trophy race: Ranking NHL’s top rookies at 2025-26 season's three-quarter mark**\
+`One player is the clear front-runner for rookie of the year. The more interesting debate might be over who should come second.`\
+https://nytimes.com/athletic/7101527/2026/03/11/nhl-calder-trophy-award-matthew-schaefer/
 
