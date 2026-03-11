@@ -1,3 +1,7 @@
+**Pope Accepts Resignation of U.S. Bishop Charged With Embezzlement**\
+`Bishop Emanuel Shaleta pleaded not guilty to stealing at least $270,000 from the St. Peter Chaldean Catholic Cathedral in El Cajon, Calif.`\
+https://nytimes.com/2026/03/10/us/pope-leo-bishop-resigns-san-diego.html
+
 **Bennie Thompson Defeats Young Challenger in Mississippi Primary**\
 `The victory by Mr. Thompson, the state’s longest-serving Black Democrat, offers a counterpoint to the broader push nationwide for younger leadership in Congress.`\
 https://nytimes.com/2026/03/10/us/bennie-thompson-mississippi-primary-victory.html
