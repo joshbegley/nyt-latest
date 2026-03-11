@@ -1,3 +1,7 @@
+**Pentagon Tells Congress First Week of Iran War Cost More Than $11.3 Billion**\
+`In a Capitol Hill briefing, officials gave their most comprehensive assessment of the cost of the first six days of the war, but the number omitted several aspects of the operation.`\
+https://nytimes.com/2026/03/11/world/middleeast/iran-war-costs-pentagon.html
+
 **MLB players union continues leadership shuffle, naming new general counsel**\
 `The Major League Baseball Players Association has promoted Jeff Perconte ahead of the expected start of labor negotiations soon. `\
 https://nytimes.com/athletic/7108972/2026/03/11/mlbpa-leadership-new-general-counsel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109254/2026/03/11/warriors-steph-curry-injury-knee
 **Tornadoes Kill at Least Two Across the Midwest**\
 `About a dozen tornadoes ripped through the Midwest and South on Tuesday, killing at least two people. Officials said search-and-rescue operations were still underway.`\
 https://nytimes.com/video/weather/100000010769413/tornado-deaths-indiana-illinois-storm.html
-
-**Wisconsin Supreme Court Election 2026: Latest Polls**\
-`Track the latest polls in the Wisconsin Supreme Court election.`\
-https://nytimes.com/interactive/polls/wisconsin-supreme-court-election-polls-2026.html
 
