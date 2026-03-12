@@ -1,3 +1,7 @@
+**Places of Worship, Magnets for Violence: Synagogue Attacks Have Risen**\
+`The attack on Temple Israel is just the most recent in a string of attacks. They have taken place in the United States and around the world.`\
+https://nytimes.com/2026/03/12/us/synagogue-attacks-united-states-world.html
+
 **NASA Says Artemis II Moon Launch Is On Track for April 1**\
 `After postponing launch opportunities in February and March, the agency determined that four astronauts could proceed toward the first crewed lunar journey in more than 50 years.`\
 https://nytimes.com/2026/03/12/science/nasa-moon-artemis-launch-april.html
