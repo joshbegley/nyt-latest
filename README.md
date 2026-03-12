@@ -1,3 +1,11 @@
+**Shai Gilgeous-Alexander's chase for Wilt's record: How absurdity can become reality**\
+`Thursday night can be historic for Shai Gilgeous-Alexander, who can break a 63-year-old Wilt Chamberlain record.`\
+https://nytimes.com/athletic/7107717/2026/03/12/shai-gilgeous-alexander-wilt-chamberlain-record-nba/
+
+**Eagles, Dallas Goedert push contract deadline to Friday; Jordan Davis inks new deal**\
+`Goedert, who has played all eight of his NFL seasons in Philadelphia, could still return if a deal is worked out before his contract voids.`\
+https://nytimes.com/athletic/7110307/2026/03/12/eagles-dallas-goedert-contract-deadline-free-agency-jordan-davis/
+
 **Spurs extend season ticket-renewal window amid threat of relegation**\
 `Fans will have until June 7 – two weeks after Spurs' final league game – to decide if they want to renew their season tickets for next term.`\
 https://nytimes.com/athletic/7111109/2026/03/12/tottenham-season-ticket-renewals-relegation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7111193/2026/03/12/alabama-a-m-vs-texas-southern-st
 **How to watch Louisville vs. Miami (FL) men's basketball: ACC Tournament Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111188/2026/03/12/louisville-vs-miami-fl-stream-how-to-watch-march-12/
-
-**How to watch CSU Fullerton vs. Hawaii women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the CSU Fullerton Titans play the Hawaii Rainbow Wahine, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111182/2026/03/12/csu-fullerton-vs-hawaii-stream-how-to-watch-march-12/
-
-**How to watch Creighton vs. Seton Hall men's basketball: Big East Tournament Time, TV, streaming**\
-`Find out how to watch the Creighton Bluejays play the Seton Hall Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111180/2026/03/12/creighton-vs-seton-hall-stream-how-to-watch-march-12/
 
