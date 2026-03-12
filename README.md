@@ -1,3 +1,7 @@
+**Potter extends Sweden contract to 2030, two weeks before World Cup playoff**\
+`Potter was appointed Sweden head coach on a short-term contract in October, weeks after his sacking by West Ham United.`\
+https://nytimes.com/athletic/7110959/2026/03/12/graham-potter-sweden-contract-extension-deal/
+
 **The Pulse: We’ve got gripes today**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7108844/2026/03/12/bam-adebayo-83-legitimate-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109296/2026/03/12/packers-free-agency-reset-frankl
 **As March Madness tips off, college basketball already has a deserving Cinderella**\
 `The only box Miami hasn’t checked is, well, upsetting a blue blood. But that could be up next.`\
 https://nytimes.com/athletic/7109214/2026/03/12/march-madness-2026-miami-ohio-mens-ncaa-tournament-cinderella/
-
-**Canadiens’ decision to play Jacob Fowler not nearly as hard as the one that awaits**\
-`In addition to Fowler, the Canadiens welcomed Alexandre Texier back to the lineup. Keeping him there will require hard decisions.`\
-https://nytimes.com/athletic/7110647/2026/03/12/canadiens-jacob-fowler-senators-win/
 
