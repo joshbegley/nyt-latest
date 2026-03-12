@@ -1,3 +1,11 @@
+**The Bolo? It’s Not Just for Cowboys.**\
+`Neck pieces with adjustable slides are a familiar part of Western wear, but jewelry designers are drawing from many traditions to put their own spin on them.`\
+https://nytimes.com/2026/03/12/fashion/jewelry-bolo.html
+
+**Who Will Farm America?**\
+`Many young people want to farm. They just can’t afford it.`\
+https://nytimes.com/2026/03/12/opinion/who-will-farm-america.html
+
 **Senate Resoundingly Passes Housing Bill, but Challenges Lie Ahead**\
 `The lopsided vote to approve the measure was a rare bit of election-year bipartisanship on a major affordability issue, but G.O.P. disputes and President Trump’s disinterest have left its fate uncertain.`\
 https://nytimes.com/2026/03/12/us/politics/senate-housing-bill.html
