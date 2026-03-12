@@ -1,8 +1,12 @@
+**Fall/Winter Highlights From Paris**\
+`Our chief fashion critic, Vanessa Friedman, reflects on her nine days at Paris Fashion Week.`\
+https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-highlights-from-paris.html
+
 **U.N. Security Council Condemns Iran’s Retaliatory Strikes in the Middle East**\
 `In an overwhelming vote, the council backed a resolution condemning Iran. A Russian proposal calling for an end to the war that didn’t assign blame or even name the parties, was rejected.`\
 https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
 
-**Caitlin Clark shines with double-double in Team USA dominating victory**\
+**Caitlin Clark shines among USA debutantes in 110-46 rout of Senegal**\
 `Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
 https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
 
@@ -32,9 +36,5 @@ https://nytimes.com/2026/03/11/world/middleeast/iran-california-drones-fbi.html
 
 **How to watch San Jose State vs. Boise State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the San Jose State Spartans play the Boise State Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109912/2026/03/11/san-jose-state-vs-boise-state-stream-how-to-watch-march-11/
-
-**Chelsea's Neto says he's apologised to PSG ball boy for pushing him**\
-`Neto was not booked for the incident, which sparked a coming together of players from both teams.`\
-https://nytimes.com/athletic/7109830/2026/03/11/pedro-neto-ball-boy-chelsea-psg/
+https://nytimes.com/athletic/7109912/2026/03/11/how-to-watch-san-jose-state-vs-boise-state-mens-basketball-mwc-tournament-tv-channel-and-streaming-options-for-march-11/
 

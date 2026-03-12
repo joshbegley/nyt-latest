@@ -1,3 +1,7 @@
+**In surprise move Giants re-sign OL Evan Neal, struggling former top-10 pick**\
+`Neal had struggled since being selected with the seventh pick of the 2022 NFL Draft.`\
+https://nytimes.com/athletic/7110014/2026/03/11/evan-neal-giants-nfl-free-agency-2026/
+
 **Fall/Winter Highlights From Paris**\
 `Our chief fashion critic, Vanessa Friedman, reflects on her nine days at Paris Fashion Week.`\
 https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-highlights-from-paris.html
@@ -28,13 +32,9 @@ https://nytimes.com/athletic/7109984/2026/03/11/idaho-vs-montana-stream-how-to-w
 
 **How to watch UCSB vs. UC Davis men's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the UCSB Gauchos play the UC Davis Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109931/2026/03/11/ucsb-vs-uc-davis-stream-how-to-watch-march-11/
+https://nytimes.com/athletic/7109931/2026/03/11/how-to-watch-ucsb-vs-uc-davis-mens-basketball-big-west-tournament-tv-channel-and-streaming-options-for-march-11/
 
 **California Officials See No Imminent Threat of Drone Attacks by Iran**\
 `Just before the war began, the Federal Bureau of Investigation told state officials that Iran might respond with drone attacks on California. No specific, credible threats have been identified.`\
 https://nytimes.com/2026/03/11/world/middleeast/iran-california-drones-fbi.html
-
-**How to watch San Jose State vs. Boise State men's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the San Jose State Spartans play the Boise State Broncos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109912/2026/03/11/how-to-watch-san-jose-state-vs-boise-state-mens-basketball-mwc-tournament-tv-channel-and-streaming-options-for-march-11/
 

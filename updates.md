@@ -1,3 +1,15 @@
+**Fall/Winter Highlights From Paris**\
+`Our chief fashion critic, Vanessa Friedman, reflects on her nine days at Paris Fashion Week.`\
+https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-highlights-from-paris.html
+
+**Caitlin Clark shines among USA debutantes in 110-46 rout of Senegal**\
+`Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
+https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
+
+**How to watch San Jose State vs. Boise State men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the San Jose State Spartans play the Boise State Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7109912/2026/03/11/how-to-watch-san-jose-state-vs-boise-state-mens-basketball-mwc-tournament-tv-channel-and-streaming-options-for-march-11/
+
 **U.N. Security Council Condemns Iran’s Retaliatory Strikes in the Middle East**\
 `In an overwhelming vote, the council backed a resolution condemning Iran. A Russian proposal calling for an end to the war that didn’t assign blame or even name the parties, was rejected.`\
 https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
