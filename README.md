@@ -1,3 +1,7 @@
+**Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
+`The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
+https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
+
 **A New Era Begins for Cadillac in Formula 1**\
 `While only one of its cars finished at the Australian Grand Prix, the team considers that an accomplishment.`\
 https://nytimes.com/2026/03/12/sports/cadillac-formula-1-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000010766599/trump-false-claim-electio
 **New Yorkers, Do You Have an Interesting Storage Unit Collection?**\
 `To help us report an upcoming article, we want to hear about your cherished, prized or strange storage unit stories.`\
 https://nytimes.com/2026/03/12/realestate/storage-unit-reader-callout.html
-
-**Flames sign top NCAA free agent Tyson Gross to entry-level contract**\
-`The 23-year-old, 6-foot-3 Calgary native is a finalist for the National Collegiate Hockey Conference's player of the year.`\
-https://nytimes.com/athletic/7111979/2026/03/12/calgary-flames-tyson-gross-free-agent-contract/
 
