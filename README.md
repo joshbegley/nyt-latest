@@ -1,3 +1,7 @@
+**René Redzepi Steps Down at Noma Amid Allegations of Past Abuse**\
+`After 23 years running the Copenhagen restaurant, widely considered one of the most innovative and important in the world, the chef is resigning.`\
+https://nytimes.com/2026/03/11/dining/rene-redzepi-noma-resign-abuse.html
+
 **Boston World Cup games to go ahead after Kraft Sports agrees deal with town of Foxboro**\
 `Dispute over security costs of $7.8million had threatened the staging of games at Gillette Stadium in Foxboro`\
 https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
@@ -33,8 +37,4 @@ https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-hig
 **U.N. Security Council Condemns Iran’s Retaliatory Strikes in the Middle East**\
 `In an overwhelming vote, the council backed a resolution condemning Iran. A Russian proposal calling for an end to the war that didn’t assign blame or even name the parties, was rejected.`\
 https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
-
-**Caitlin Clark shines among USA debutants in 110-46 rout of Senegal**\
-`Team USA's young players, including Paige Bueckers, looked superb in the World Cup qualifier game against Senegal.`\
-https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
 
