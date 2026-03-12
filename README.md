@@ -1,40 +1,40 @@
-**This is what happened on March 11.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-11
+**Are Real Madrid back? Not quite, but this was a night for Alvaro Arbeloa to rightly take plaudits**\
+`Things can turn quickly at Madrid, as Arbeloa knows. So it was understandable why he was happy to enjoy the deserved praise on Wednesday`\
+https://nytimes.com/athletic/7109886/2026/03/12/real-madrid-arbeloa-manchester-city/
 
-**Maxx Crosby on Ravens backing out of trade: I'm 'a Raider. I'm back'**\
-`Crosby's post is the first public response from him or the Raiders outside of a statement confirming Baltimore's withdrawal from the deal.`\
-https://nytimes.com/athletic/7110559/2026/03/12/maxx-crosby-responds-raiders-ravens-trade/
+**It's time to finally credit the Premier League's unsung defensive heroes**\
+`Certain players can stand out for their presence without touching the ball. Here's how they make an impact `\
+https://nytimes.com/athletic/7093642/2026/03/12/premier-league-unsung-defensive-heroes-kamara-kluivert-aaronson/
 
-**Meet Travis Binnion, the Man United coach credited with getting Benjamin Sesko scoring**\
-`The Athletic speaks to multiple people to tell the story of a coach described as "honest and truthful and to the point"`\
-https://nytimes.com/athletic/7108085/2026/03/12/travis-binnion-manchester-united-sesko/
+**The New York Times in Print for Thursday, March 12, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/12/todays-new-york-times
 
-**Alyssa Healy: Classy, combative and a significant figure in women’s cricket history**\
-`The Australian wicketkeeper-batsman has called time on her long and trophy-laden career. She leaves an indelible mark`\
-https://nytimes.com/athletic/7103981/2026/03/12/alyssa-healy-australia-cricket-retirement/
+**Cuba Doesn’t Have to Be Next**\
+`Catastrophe in Cuba is not a foregone conclusion.`\
+https://nytimes.com/2026/03/12/opinion/cuba-america-war-trump-iran.html
 
-**The Alternative Premier League Table: No 30 – Supporter sentiment and expected points**\
-`The numbers that show that fan sentiment generally tracks with team performance – but not entirely `\
-https://nytimes.com/athletic/7108231/2026/03/12/alternative-premier-league-table-no-30-fanalysis-xpts/
+**Top-End Auction Sales Help Pull Global Art Market Out of Slump, Study Says**\
+`The top drivers included a $2.2 billion auction week in New York and strong fall fairs, according to the annual Art Basel and UBS report.`\
+https://nytimes.com/2026/03/12/arts/global-market-art-basel-ubs-report.html
 
-**A Third of Americans Have Cut Spending or Borrowed Money for Health Care**\
-`As medical costs rise, more than 80 million people have made sacrifices like skipping meals and driving less, a new survey finds.`\
-https://nytimes.com/2026/03/12/health/health-costs-cutting-back.html
+**Crystal Palace fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
+`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
+https://nytimes.com/athletic/7108811/2026/03/12/crystal-palace-fans-premier-league-man-city-arsenal/
 
-**Connections: Sports Edition Coach: Hints and answers for March 12, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7110522/2026/03/12/connections-sports-edition-hints-answers-march-12-2026/
+**West Ham fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
+`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
+https://nytimes.com/athletic/7108479/2026/03/12/west-ham-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
 
-**How to Afford Housing in London: Multiple Roommates, No Living Room**\
-`High prices have pushed more Londoners to live with roommates well into their late 20s and 30s — if they can afford to move out of their parents’ homes at all.`\
-https://nytimes.com/2026/03/12/business/london-house-prices-rent-roommates.html
+**Wolves fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
+`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
+https://nytimes.com/athletic/7108463/2026/03/12/wolves-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
 
-**Corrections: March 12, 2026**\
-`Corrections that appeared in print on Thursday, March 12, 2026.`\
-https://nytimes.com/2026/03/12/pageoneplus/corrections-march-12-2026.html
+**Newcastle fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
+`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
+https://nytimes.com/athletic/7108509/2026/03/12/newcastle-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
 
-**Quote of the Day: Ditching the Brooms And Trusting Your Aim**\
-`Quotation of the Day for Thursday, March 12, 2026.`\
-https://nytimes.com/2026/03/11/pageoneplus/quote-of-the-day-ditching-the-brooms-and-trusting-your-aim.html
+**Fulham fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
+`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
+https://nytimes.com/athletic/7108810/2026/03/12/fulham-fans-premier-league-man-city-arsenal/
 

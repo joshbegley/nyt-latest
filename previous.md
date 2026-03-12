@@ -1,3 +1,7 @@
+**This is what happened on March 11.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-11
+
 **Maxx Crosby on Ravens backing out of trade: I'm 'a Raider. I'm back'**\
 `Crosby's post is the first public response from him or the Raiders outside of a statement confirming Baltimore's withdrawal from the deal.`\
 https://nytimes.com/athletic/7110559/2026/03/12/maxx-crosby-responds-raiders-ravens-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/pageoneplus/corrections-march-12-2026.html
 **Quote of the Day: Ditching the Brooms And Trusting Your Aim**\
 `Quotation of the Day for Thursday, March 12, 2026.`\
 https://nytimes.com/2026/03/11/pageoneplus/quote-of-the-day-ditching-the-brooms-and-trusting-your-aim.html
-
-**With the World Baseball Classic bracket set, we rank the quarterfinal matchups**\
-`The true fans will watch all four games, but if you’re pressed for time or want to watch only the best, we’ve ranked the games. `\
-https://nytimes.com/athletic/7110479/2026/03/11/world-baseball-classic-quarterfinal-matchup-ranking/
 
