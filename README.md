@@ -1,3 +1,7 @@
+**49ers DE Bryce Huff retires at 27 after 6 NFL seasons**\
+`"I know I'm capable of giving the world more than just football," Huff said, reading from a statement.`\
+https://nytimes.com/athletic/7112912/2026/03/12/49ers-bryce-huff-retirement-announcement/
+
 **How Do You Feel About Traveling Right Now? We Want to Know.**\
 `With spring and summer travel season beginning amid a war in the Middle East, a partial government shutdown and more, we’d like to hear how your travel plans are changing.`\
 https://nytimes.com/2026/03/12/travel/2026-travel-plans-iran-war-shutdown.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/12/learning/personal-trainers-for-child-athletes-tee
 **Latest on Patriots' pursuit of A.J. Brown and Maxx Crosby — and their free-agent signings**\
 `Eliot Wolf isn't buying the idea that Tom Brady wouldn't have allowed a Crosby trade to the Pats. But could they still go after Brown?`\
 https://nytimes.com/athletic/7112830/2026/03/12/patriots-nfl-free-agency-aj-brown-maxx-crosby/
-
-**Mark DeRosa: 'Well aware' of tiebreaker scenarios before Team USA loss to Team Italy**\
-`DeRosa tried to clarify his comments and decisions before a loss that put Team USA in danger of exiting the World Baseball Classic early.`\
-https://nytimes.com/athletic/7112478/2026/03/12/world-baseball-classic-mark-derosa-comments-team-usa-tiebreaker/
 
