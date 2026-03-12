@@ -1,3 +1,7 @@
+**Senate Resoundingly Passes Housing Bill, but Challenges Lie Ahead**\
+`The lopsided vote to approve the measure was a rare bit of election-year bipartisanship on a major affordability issue, but G.O.P. disputes and President Trump’s disinterest have left its fate uncertain.`\
+https://nytimes.com/2026/03/12/us/politics/senate-housing-bill.html
+
 **In a Historic Kyoto Neighborhood, a New Hotel Channels the Past**\
 `Plus: black sesame pastries, a Roy Lichtenstein exhibition in New York and more recommendations from T Magazine.`\
 https://nytimes.com/2026/03/12/t-magazine/capella-kyoto-hotel.html

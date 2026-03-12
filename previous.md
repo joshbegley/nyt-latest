@@ -1,3 +1,7 @@
+**Senate Resoundingly Passes Housing Bill, but Challenges Lie Ahead**\
+`The lopsided vote to approve the measure was a rare bit of election-year bipartisanship on a major affordability issue, but G.O.P. disputes and President Trump’s disinterest have left its fate uncertain.`\
+https://nytimes.com/2026/03/12/us/politics/senate-housing-bill.html
+
 **In a Historic Kyoto Neighborhood, a New Hotel Channels the Past**\
 `Plus: black sesame pastries, a Roy Lichtenstein exhibition in New York and more recommendations from T Magazine.`\
 https://nytimes.com/2026/03/12/t-magazine/capella-kyoto-hotel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107415/2026/03/12/wrexham-championship-premier-lea
 **Mortgage Rates Rise as Iran War Ripples Through Financial Markets**\
 `Mortgage rates fell below the critical 6 percent threshold just a couple weeks ago. But they’re climbing again as new inflation concerns have roiled financial markets.`\
 https://nytimes.com/2026/03/12/business/mortgage-rates-rise-above-6-percent.html
-
-**Iran’s New Supreme Leader Issues First Statement Since Taking Office**\
-`Mojtaba Khamenei struck a defiant tone and signaled that Iran would not back down in a war that has spread across the Middle East.`\
-https://nytimes.com/2026/03/12/world/middleeast/khamenei-statement.html
 
