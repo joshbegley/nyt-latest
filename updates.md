@@ -1,3 +1,7 @@
+**Haitian President’s Widow Recalls Killers Spoke Spanish and Used Nicknames**\
+`Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
+https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
+
 **Boston World Cup games to go ahead after Kraft Sports, Foxboro reach deal**\
 `A dispute over $7.8 million in funding had threatened the staging of games at Gillette Stadium in Foxboro`\
 https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
