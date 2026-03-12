@@ -1,6 +1,6 @@
 **Boston World Cup games to go ahead after Kraft Sports agrees deal with town of Foxboro**\
 `Dispute over security costs of $7.8million had threatened the staging of games at Gillette Stadium in Foxboro`\
-https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-games-to-go-ahead-after-kraft-sports-agrees-deal-with-town-of-foxboro/
+https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
 
 **Israel Bombards Lebanese Capital in Latest Round of Strikes**\
 `Lebanon’s health ministry said at least seven people were killed in the Beirut attacks early Thursday.`\
