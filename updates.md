@@ -1,3 +1,15 @@
+**‘Bughouse’ Review: Inside a Solitary Artist’s Unwieldy Mind**\
+`Henry Darger, a recluse who left behind thousands of wild illustrations upon his death, is the subject of fascination in this one-man show.`\
+https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
+
+**War has sent thousands of planes flying in the other direction.**\
+`By Zach Levitt and Jacqueline Gu`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/war-has-sent-thousands-of-planes-flying-in-the-other-direction
+
+**Manchester United live Q&A: Carl Anka answers your questions**\
+`Wondering who will be the next manager? Nervous about a busy summer? Or have something else on your mind? Carl will be here from 3pm`\
+https://nytimes.com/athletic/7107815/2026/03/12/manchester-united-carl-anka-q-and-a-carrick/
+
 **My Sister Won’t Vacation With My Kids. Is She Being Selfish?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose sibling moved away and then canceled a family trip.`\
 https://nytimes.com/2026/03/12/well/family/sister-aunt-vacation-kids.html
