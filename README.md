@@ -1,3 +1,15 @@
+**Oil Prices Briefly Surge as Iran Attacks Continue**\
+`Continued Iranian attacks on oil infrastructure sent oil prices briefly surging above $100 a barrel again on Thursday, despite world leaders pledging to release a record amount of emergency oil reserves the day before.`\
+https://nytimes.com/video/world/middleeast/100000010770897/oil-prices-iran-tanker-attacks.html
+
+**Cyberattack Adds to Fears of New Front in Iran War**\
+`A hacking group seemed to claim responsibility for the attack on a U.S. manufacturer, calling it retaliation for a strike on an Iranian school.`\
+https://nytimes.com/2026/03/12/world/middleeast/stryker-iran-cyberattack.html
+
+**The Titan of Land Art Moves Indoors and Gets Intimate**\
+`Michael Heizer, renowned for monumental earthworks like “City,” offers a domesticated, rattlesnake-proof art for Manhattan’s Gagosian.`\
+https://nytimes.com/2026/03/12/arts/design/heizer-gagosian-review.html
+
 **War With Iran Puts Further Strain on America’s Pessimistic Farmers**\
 `Nearly 75 percent of farmers surveyed before the war said the crop sector was in a recession. They face bigger hurdles this planting season.`\
 https://nytimes.com/2026/03/12/business/war-iran-farmers-agriculture-costs.html
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
 **War has sent thousands of planes flying in the other direction.**\
 `By Zach Levitt and Jacqueline Gu`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/war-has-sent-thousands-of-planes-flying-in-the-other-direction
-
-**Manchester United live Q&A: Carl Anka answers your questions**\
-`Wondering who will be the next manager? Nervous about a busy summer? Or have something else on your mind? Carl will be here from 3pm`\
-https://nytimes.com/athletic/7107815/2026/03/12/manchester-united-carl-anka-q-and-a-carrick/
-
-**My Sister Won’t Vacation With My Kids. Is She Being Selfish?**\
-`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose sibling moved away and then canceled a family trip.`\
-https://nytimes.com/2026/03/12/well/family/sister-aunt-vacation-kids.html
 

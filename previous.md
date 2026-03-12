@@ -1,3 +1,15 @@
+**War With Iran Puts Further Strain on America’s Pessimistic Farmers**\
+`Nearly 75 percent of farmers surveyed before the war said the crop sector was in a recession. They face bigger hurdles this planting season.`\
+https://nytimes.com/2026/03/12/business/war-iran-farmers-agriculture-costs.html
+
+**James Clyburn to Run for House Again, Defying Push for Generational Change**\
+`The Democratic power broker had kept his plans under wraps but signaled he wanted to be around to see the first Black speaker elected, a milestone the party is well positioned to reach next year.`\
+https://nytimes.com/2026/03/12/us/politics/james-clyburn-reelection.html
+
+**The Windup: Italy advances in WBC, bringing USA with it**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7111440/2026/03/12/italy-mexico-usa-wbc-pool-play-the-windup/
+
 **Before Landing on the Moon, a Collision Close Call Haunted a Space Mission**\
 `The experience of the private Blue Ghost mission in lunar orbit a year ago highlights a growing number of “red alert” incidents above Earth’s neighbor.`\
 https://nytimes.com/2026/03/12/science/moon-red-alert-close-call.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7107815/2026/03/12/manchester-united-carl-anka-q-an
 **My Sister Won’t Vacation With My Kids. Is She Being Selfish?**\
 `Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose sibling moved away and then canceled a family trip.`\
 https://nytimes.com/2026/03/12/well/family/sister-aunt-vacation-kids.html
-
-**Middle East terminal closures add to jitters about oil prices.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/middle-east-terminal-closures-add-to-jitters-about-oil-prices
-
-**Ten Blackhawks thoughts: Who will be Jason Dickinson's successor as shutdown center?**\
-`Plus: When will we see Anton Frondell, Sacha Boisvert and John Mustard in the NHL?`\
-https://nytimes.com/athletic/7110596/2026/03/12/blackhawks-jason-dickinson-trade-ryan-greene-center-wing/
-
-**Why Does Oil Matter So Much to the Global Economy?**\
-`The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
-https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html
 
