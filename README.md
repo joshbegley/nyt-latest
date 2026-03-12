@@ -1,40 +1,40 @@
-**How to watch Ole Miss vs. Georgia men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111639/2026/03/12/ole-miss-vs-georgia-stream-how-to-watch-march-12/
+**Trump Administration Fires New Shot in Fight Over California Clean Car Rules**\
+`A lawsuit argues that the state’s regulations would illegally force a rapid transition to electric vehicles.`\
+https://nytimes.com/2026/03/12/climate/trump-california-tailpipe-emissions.html
 
-**How to watch Grambling vs. Alabama State women's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Grambling Tigers play the Alabama State Lady Hornets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111636/2026/03/12/grambling-vs-alabama-state-stream-how-to-watch-march-12/
+**How to watch UT Arlington vs. Southern Utah women's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the UT Arlington Mavericks play the Southern Utah Thunderbirds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111699/2026/03/12/ut-arlington-vs-southern-utah-stream-how-to-watch-march-12/
 
-**How to watch Indiana State vs. Southern Illinois women's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Indiana State Sycamores play the Southern Illinois Salukis, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111633/2026/03/12/indiana-state-vs-southern-illinois-stream-how-to-watch-march-12/
+**How to watch Middle Tennessee vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Middle Tennessee Blue Raiders play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111696/2026/03/12/middle-tennessee-vs-louisiana-tech-stream-how-to-watch-march-12/
 
-**How to watch South Carolina State vs. Norfolk State men's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the South Carolina State Bulldogs play the Norfolk State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111623/2026/03/12/south-carolina-state-vs-norfolk-state-stream-how-to-watch-march-12/
+**How to watch Capitals vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111694/2026/03/12/capitals-vs-sabres-stream-how-to-watch-march-12/
 
-**How to watch Rhode Island vs. Duquesne men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Rhode Island Rams play the Duquesne Dukes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111614/2026/03/12/rhode-island-vs-duquesne-stream-how-to-watch-march-12/
+**How to watch Ducks vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111687/2026/03/12/ducks-vs-maple-leafs-stream-how-to-watch-march-12/
 
-**How to watch Le Moyne vs. Fairleigh Dickinson women's basketball: NEC Tournament Time, TV, streaming**\
-`Find out how to watch the Le Moyne Dolphins play the Fairleigh Dickinson Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111610/2026/03/12/le-moyne-vs-fairleigh-dickinson-stream-how-to-watch-march-12/
+**How to watch Flames vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111683/2026/03/12/flames-vs-devils-stream-how-to-watch-march-12/
 
-**How to watch LIU vs. Mercyhurst women's basketball: NEC Tournament Time, TV, streaming**\
-`Find out how to watch the Long Island Sharks play the Mercyhurst Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111608/2026/03/12/liu-vs-mercyhurst-stream-how-to-watch-march-12/
+**How to watch Sharks vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111678/2026/03/12/sharks-vs-bruins-stream-how-to-watch-march-12/
 
-**How to watch UC Riverside vs. UC Davis women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the UC Riverside Highlanders play the UC Davis Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111592/2026/03/12/uc-riverside-vs-uc-davis-stream-how-to-watch-march-12/
+**How to watch Nevada vs. Grand Canyon men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Nevada Wolf Pack play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111676/2026/03/12/nevada-vs-grand-canyon-stream-how-to-watch-march-12/
 
-**Social Media Addiction Trial Nears End. Society Long Ago Rendered Its Verdict.**\
-`Closing arguments begin Thursday in a landmark trial that put online behavior under a microscope. In many ways, it has already been decided.`\
-https://nytimes.com/2026/03/12/technology/social-media-addiction-society-verdict.html
+**How to watch Lehigh vs. Navy women's basketball: Patriot Tournament Time, TV, streaming**\
+`Find out how to watch the Lehigh Mountain Hawks play the Navy Midshipmen, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111671/2026/03/12/lehigh-vs-navy-stream-how-to-watch-march-12/
 
-**How to watch Evansville vs. UIC women's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Evansville Purple Aces play the UIC Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111587/2026/03/12/evansville-vs-uic-stream-how-to-watch-march-12/
+**How to watch SFA vs. McNeese women's basketball: Southland Tournament Time, TV, streaming**\
+`Find out how to watch the Stephen F. Austin Ladyjacks play the McNeese Cowgirls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111669/2026/03/12/sfa-vs-mcneese-stream-how-to-watch-march-12/
 
