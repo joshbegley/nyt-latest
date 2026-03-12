@@ -1,3 +1,11 @@
+**Slain Haitian President’s Widow Gives Chilling Account of His Killing**\
+`Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
+https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
+
+**Collectible Frames**\
+`Joe Marquez comes down to earth.`\
+https://nytimes.com/2026/03/11/crosswords/daily-puzzle-2026-03-12.html
+
 **Trump’s Tour of States Is About More Than the Midterms**\
 `Beyond talking about the economy and voters’ hardships, the president is showing that he still has control over the Republican Party.`\
 https://nytimes.com/2026/03/11/us/politics/trumps-states-control-republican-party.html
