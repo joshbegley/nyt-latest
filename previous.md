@@ -1,3 +1,7 @@
+**NWSL doubled in size over the last decade. The 2026 season will be a pivotal 'next chapter'**\
+`With salary cap talk and continued expansion, will NWSL's next chapter be propelled or stymied by its own ambitions?`\
+https://nytimes.com/athletic/7111956/2026/03/12/nwsl-2026-season-next-chapter/
+
 **Trump to Target Forced Labor in Global Tariff Scheme**\
 `The Trump administration is expected to begin a trade investigation into whether dozens of countries have policies to combat forced labor.`\
 https://nytimes.com/2026/03/12/us/politics/trump-forced-labor-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112810/2026/03/12/san-jose-state-vs-new-mexico-str
 **How to watch Abilene Christian vs. Utah Tech men's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the Abilene Christian Wildcats play the Utah Tech Trailblazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112802/2026/03/12/abilene-christian-vs-utah-tech-stream-how-to-watch-march-12/
-
-**How to watch UC Davis vs. CSU Fullerton men's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the UC Davis Aggies play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112795/2026/03/12/uc-davis-vs-csu-fullerton-stream-how-to-watch-march-12/
 
