@@ -1,3 +1,7 @@
+**Who Will Farm America?**\
+`Many young people want to farm. They just can’t afford it.`\
+https://nytimes.com/2026/03/12/opinion/who-will-farm-america.html
+
 **Senate Resoundingly Passes Housing Bill, but Challenges Lie Ahead**\
 `The lopsided vote to approve the measure was a rare bit of election-year bipartisanship on a major affordability issue, but G.O.P. disputes and President Trump’s disinterest have left its fate uncertain.`\
 https://nytimes.com/2026/03/12/us/politics/senate-housing-bill.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110886/2026/03/12/gabriel-blocks-arsenal-champions
 **An all-Wales affair, a trip to Birmingham, and the top two – analysing Wrexham’s run-in**\
 `With 10 games to go, Wrexham sit in the final Championship play-off spot. The challenge now is to secure that top-six finish`\
 https://nytimes.com/athletic/7107415/2026/03/12/wrexham-championship-premier-league-ryan-reynolds-rob-mac/
-
-**Mortgage Rates Rise as Iran War Ripples Through Financial Markets**\
-`Mortgage rates fell below the critical 6 percent threshold just a couple weeks ago. But they’re climbing again as new inflation concerns have roiled financial markets.`\
-https://nytimes.com/2026/03/12/business/mortgage-rates-rise-above-6-percent.html
 
