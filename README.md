@@ -1,3 +1,19 @@
+**At the Frick Collection, a Modern Maker of Centuries-Old Designs**\
+`The goldsmith Donna Distefano uses ancient metalsmithing techniques to create replica jewelry inspired by portraits at the Frick museum.`\
+https://nytimes.com/2026/03/12/fashion/frick-collection-jewelry.html
+
+**Bengals extend Orlando Brown Jr. two years: What's the impact?**\
+`The veteran secures the left tackle spot for a couple more years, but his age still makes the need for a succession plan important.`\
+https://nytimes.com/athletic/7111922/2026/03/12/bengals-orlando-brown-jr-contract-extension/
+
+**Miami (Ohio) upset in MAC quarterfinals by UMass, ending undefeated run at 31 games**\
+`Miami (Ohio) now waits until Selection Sunday to find out if its 31-1 record was good enough for an at-large bid to the NCAA Tournament.`\
+https://nytimes.com/athletic/7111966/2026/03/12/miami-ohio-vs-umass-mac-tournament-basketball/
+
+**Jewelry That Is Meant to Be Discovered, Not Displayed**\
+`Foundrae’s Beth Hutchens is making shopping experiential and unexpected.`\
+https://nytimes.com/2026/03/12/fashion/jewelry-foundrae.html
+
 **How to watch Mavericks vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112014/2026/03/12/mavericks-vs-grizzlies-stream-how-to-watch-march-12/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7111985/2026/03/12/nets-vs-hawks-stream-how-to-watc
 **Yanar Mohammed, 65, Iraqi Women’s Rights Advocate, Is Killed by Gunmen**\
 `She established a network of safe houses for abused women and was an outspoken critic of her country’s repressive institutions, despite the constant threat of violence.`\
 https://nytimes.com/2026/03/12/world/middleeast/yanar-mohammed-dead.html
-
-**What’s in Our Queue? ‘The Beatles Anthology’ and More**\
-`Text by Madeleine Ngo`\
-https://nytimes.com/card/2026/03/12/arts/editors-recommendations-beatlesanthology
-
-**Champions League projections: Bayern overtake Arsenal as favourites, holders PSG on the rise**\
-`A look at how The Athletic's Champions League projections have changed after this week's last-16 first-leg action`\
-https://nytimes.com/athletic/7111327/2026/03/12/champions-league-projections-arsenal-bayern-liverpool-psg-chelsea-real-madrid/
-
-**Noma Could Have Changed So Much More Than Food**\
-`The globally acclaimed restaurant had the power and influence to remake restaurant culture. Instead, it perpetuated the darkest parts of that world.`\
-https://nytimes.com/2026/03/12/dining/noma-restaurant-culture-influence.html
-
-**Don’t Cha … Wish the Pussycat Dolls Would Go on Tour?**\
-`You’re in luck: The early 2000s girl group announced a new single and a reunion tour on Thursday.`\
-https://nytimes.com/2026/03/12/arts/music/pussycat-dolls-reunion.html
 
