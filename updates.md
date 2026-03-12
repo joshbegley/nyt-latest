@@ -1,3 +1,11 @@
+**Will Illinois Send a Black Woman to the Senate? A Messy Primary Will Decide.**\
+`Two Black female candidates may split Democratic primary voters, and anger is growing at well-funded efforts to widen the divide.`\
+https://nytimes.com/2026/03/12/us/politics/illinois-senate-primary-stratton-kelly-krishnamoorthi.html
+
+**Banking Regulators Plan to Ease Some Capital Requirements**\
+`The Federal Reserve and other financial regulators will soon release proposals to loosen some planned rules on how much capital banks must hold in reserve to mitigate risks.`\
+https://nytimes.com/2026/03/12/business/banking-regulators-capital-requirements.html
+
 **Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
 `The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
 https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
