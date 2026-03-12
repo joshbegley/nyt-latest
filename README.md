@@ -1,3 +1,7 @@
+**Don’t Cha … Wish the Pussycat Dolls Would Go on Tour?**\
+`You’re in luck: The early 2000s girl group announced a new single and a reunion tour on Thursday.`\
+https://nytimes.com/2026/03/12/arts/music/pussycat-dolls-reunion.html
+
 **Conservative Euphoria Hits Chile as Right Surges in Latin America**\
 `The inauguration of Chile’s new president, José Antonio Kast, is the latest milestone in a broader shift toward conservatism and pro-Trump alignment in the region.`\
 https://nytimes.com/2026/03/12/world/americas/chile-kast-conservatism-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/business/economy/iran-oil-shock-economy-global-im
 **Auburn coach Steven Pearl says assistant attending ASUN tournament was 'permissible activity'**\
 `Queens coach Grant Leonard stirred conversation when he said an SEC coach sat courtside at the tourney to "get ahead" in recruiting.`\
 https://nytimes.com/athletic/7111847/2026/03/12/auburn-basketball-asun-tournament-steven-pearl/
-
-**What’s With All the Celebrities Walking the Runways?**\
-`At Paris Fashion Week, niche celebrities and looksmaxxing were all over the runway.`\
-https://nytimes.com/2026/03/12/style/gillian-anderson-miu-paris.html
 
