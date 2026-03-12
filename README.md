@@ -1,3 +1,11 @@
+**Slain Haitian President’s Widow Gives Chilling Account of His Killing**\
+`Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
+https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
+
+**Collectible Frames**\
+`Joe Marquez comes down to earth.`\
+https://nytimes.com/2026/03/11/crosswords/daily-puzzle-2026-03-12.html
+
 **Trump’s Tour of States Is About More Than the Midterms**\
 `Beyond talking about the economy and voters’ hardships, the president is showing that he still has control over the Republican Party.`\
 https://nytimes.com/2026/03/11/us/politics/trumps-states-control-republican-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010769828/us-iran-school-attack
 **Osa Odighizuwa trade grades: 49ers capitalize on Cowboys' DT surplus**\
 `Odighizuwa will be the most disruptive interior pass rusher the 49ers have had in years.`\
 https://nytimes.com/athletic/7109805/2026/03/11/osa-odighizuwa-49ers-cowboys-trade-grades/
-
-**In surprise move, Giants re-sign OL Neal, struggling 2022 top-10 pick**\
-`Neal has struggled since being selected with the seventh pick of the 2022 NFL Draft.`\
-https://nytimes.com/athletic/7110014/2026/03/11/evan-neal-giants-nfl-free-agency-2026/
-
-**Fall/Winter Highlights From Paris**\
-`Our chief fashion critic, Vanessa Friedman, reflects on her nine days at Paris Fashion Week.`\
-https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-highlights-from-paris.html
 
