@@ -1,3 +1,7 @@
+**IPC looking into apparent Germany protest at Russian skiers on podium**\
+`Russian athletes are competing at the Paralympics under their nation's flag for the first time since 2014.`\
+https://nytimes.com/athletic/7109736/2026/03/12/germany-protest-russia-paralympics/
+
 **Tottenham are lacking leadership and now their squad is split**\
 `Tottenham are drifting and need to find leaders somewhere or their season will end in the ignominy of a first relegation in 49 years`\
 https://nytimes.com/athletic/7108170/2026/03/12/tottenham-leadership-group-relegation/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/new-jersey-pardon-phil-murphy.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/12/crosswords/spelling-bee-forum.html
-
-**At China’s Big Political Meeting, a Rare Debate About Inequality**\
-`China’s plan to raise pensions for farmers by less than $3 a month prompted rare criticism from lawmakers about the country’s threadbare social safety net.`\
-https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
 
