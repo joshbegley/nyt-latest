@@ -1,3 +1,11 @@
+**Giants to sign former Steelers WR Calvin Austin III to 1-year deal: Reports**\
+`The former fourth-round pick had a significant role in the Steelers' passing game each of the past two seasons.`\
+https://nytimes.com/athletic/7095864/2026/03/12/calvin-austin-iii-giants-free-agency-2026/
+
+**Walid Khalidi, Scholar Called Father of Palestinian Studies, Dies at 100**\
+`As a historian and diplomat, he gave intellectual shape to his people and made sure that they played a role in negotiating their future.`\
+https://nytimes.com/2026/03/12/world/middleeast/walid-khalidi-dead.html
+
 **Trinidad Chambliss says eligibility uncertainty cost him shot at video game cover**\
 `EA Sports told Chambliss on Monday that it “just can’t stomach the risk” of him not suiting up for the Rebels this fall, the filing said.`\
 https://nytimes.com/athletic/7113154/2026/03/12/trinidad-chambliss-ea-sports-cover-eligibility/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/science/nasa-moon-artemis-launch-april.html
 **Executive and Judicial Branches Spar Over Control of Federal Courthouses**\
 `The head of the General Services Administration said a proposal to transfer control of courthouse buildings to the judiciary was a bad idea.`\
 https://nytimes.com/2026/03/12/us/politics/federal-courthouses-gsa.html
-
-**Fashion’s Bold New Idea: Clothes That Are Meant to Be Worn**\
-`T’s fashion editors share their takeaways from the fall runways, which featured stripped-back garments — but also shoes that channeled lily pads.`\
-https://nytimes.com/2026/03/12/t-magazine/fashion-shows-takeaways-wearable-clothes.html
-
-**U.S. Officials Say Iran Is Laying Mines in the Strait of Hormuz**\
-`A fifth of the world’s oil passes through the strait, making it a critical choke point in global commerce.`\
-https://nytimes.com/2026/03/12/world/middleeast/iran-mines-strait-of-hormuz-us.html
 
