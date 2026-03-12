@@ -1,3 +1,7 @@
+**Running back Emanuel Wilson agrees to free-agent deal with Seahawks: Source**\
+`Wilson, who started two games in three seasons with the Packers, fills a need for the Seahawks, who lost Kenneth Walker III in free agency.`\
+https://nytimes.com/athletic/7091609/2026/03/12/emanuel-wilson-seahawks-nfl-free-agency-2026/
+
 **Duplantis breaks pole vault world record for 15th time**\
 `Duplantis beat the previous world best — set at September's World Championships — by a single centimetre.`\
 https://nytimes.com/athletic/7112856/2026/03/12/mondo-duplantis-pole-vault-world-record-fifteen/

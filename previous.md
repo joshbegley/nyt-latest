@@ -1,3 +1,7 @@
+**Running back Emanuel Wilson agrees to free-agent deal with Seahawks: Source**\
+`Wilson, who started two games in three seasons with the Packers, fills a need for the Seahawks, who lost Kenneth Walker III in free agency.`\
+https://nytimes.com/athletic/7091609/2026/03/12/emanuel-wilson-seahawks-nfl-free-agency-2026/
+
 **Duplantis breaks pole vault world record for 15th time**\
 `Duplantis beat the previous world best — set at September's World Championships — by a single centimetre.`\
 https://nytimes.com/athletic/7112856/2026/03/12/mondo-duplantis-pole-vault-world-record-fifteen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112580/2026/03/12/cowboys-rashan-gary-free-agency-
 **Drone Strike in Congo Kills 3, Including U.N. Worker**\
 `The attack struck a residential area of Goma, killing an employee of the U.N.’s children’s agency and two others amid a sharp rise in drone warfare.`\
 https://nytimes.com/2026/03/12/world/africa/drone-strike-congo-kills-three.html
-
-**NHL rescinds major penalty given to Avalanche's Nathan MacKinnon against Oilers**\
-`MacKinnon will now not face a one-game suspension if he were to receive another game misconduct in his next 41 regular-season games.`\
-https://nytimes.com/athletic/7112928/2026/03/12/nathan-mackinnon-avalanche-penalty-oilers-nhl/
 
