@@ -1,3 +1,7 @@
+**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
+`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
+https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
+
 **Jimmy Kimmel Addresses the Notion of a Drone Strike on California**\
 `“Isn’t this how ‘Ironman 3’ started?” Kimmel said after the F.B.I. warned state officials tobb  prepare for a retaliatory Iranian drone strike on the West Coast ahead of Sunday’s Academy Awards.`\
 https://nytimes.com/2026/03/12/arts/television/jimmy-kimmel-drone-strike-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7107803/2026/03/12/everton-identity-premier-league-
 **Israeli Attacks Rock Beirut, Displacing Hundreds of Thousands**\
 `Explosions shook Lebanon’s capital, Beirut, from Wednesday night into Thursday morning as Israel unleashed a wave of attacks that it said targeted Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000010770501/beirut-lebanon-israel-hezbollah.html
-
-**Antonin Kinsky is not alone: Six times a shocking performance changed a sporting career**\
-`After Tottenham goalkeeper Antonin Kinsky's disastrous Champions League outing, The Athletic looks at other career-damaging performances`\
-https://nytimes.com/athletic/7108155/2026/03/12/antonin-kinsky-is-not-alone-six-times-a-shocking-performance-changed-a-sporting-career/
 
