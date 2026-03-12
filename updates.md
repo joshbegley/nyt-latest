@@ -1,3 +1,19 @@
+**If Bam Adebayo can score 83, could someone else actually challenge Wilt's 100-point game?**\
+`Matching Chamberlain's 100 has been considered impossible. But the NBA's current pace of play and tanking make it seems less far-fetched.`\
+https://nytimes.com/athletic/7109344/2026/03/12/bam-adebayo-83-wilt-chamberlain-100-record-column/
+
+**Western Kentucky coach's winning dedication shown by paycheck dedication to NIL**\
+`The Hilltoppers coach says to compete they need more NIL money. So he (and donors in response) are paying up.`\
+https://nytimes.com/athletic/7110078/2026/03/12/western-kentucky-womens-basketball-coach-salary-nil/
+
+**How an old WBC brawl started Team Canada’s journey to first quarterfinals appearance**\
+`Team Canada's evolution has resulted in 15 rostered players who were in the major leagues in 2025. Another five have big-league experience.`\
+https://nytimes.com/athletic/7110727/2026/03/12/world-baseball-classic-team-canada-development-quarterfinals/
+
+**Potter extends Sweden contract to 2030, two weeks before World Cup playoff**\
+`Potter was appointed Sweden head coach on a short-term contract in October, weeks after his sacking by West Ham United.`\
+https://nytimes.com/athletic/7110959/2026/03/12/graham-potter-sweden-contract-extension-deal/
+
 **The Pulse: We’ve got gripes today**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7108844/2026/03/12/bam-adebayo-83-legitimate-the-pulse/
