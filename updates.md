@@ -1,3 +1,15 @@
+**'That's When the Boos Started': The Oscars Speech That Lost the Room**\
+`Days after the 2003 invasion of Iraq, Michael Moore used his moment in the spotlight to rail against the war. Here’s what he and others onstage remember.`\
+https://nytimes.com/interactive/2026/03/12/magazine/oscar-academy-award-michael-moore-speech.html
+
+**It Was 86. Then It Snowed. A ‘Wild’ Weather Shift Jolts the Mid-Atlantic.**\
+`Washington, D.C., was warm and sunny on Wednesday. By Thursday, snow was falling.`\
+https://nytimes.com/2026/03/12/weather/snow-cold-rain-forecast-east-coast-whiplash.html
+
+**Artemi Panarin reflects on end of Rangers tenure, what went wrong and more**\
+`“Felt pretty sad in the beginning but also explained to myself why it’s better,” said Panarin, who is now with the Kings.`\
+https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-trade-comments/
+
 **Artemi Panarin reflects on end of Rangers tenure, what went wrong and more**\
 `“Felt pretty sad in the beginning but also explained to myself why it’s better,” Panarin said, who is now with the Kings.`\
 https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-trade-comments/

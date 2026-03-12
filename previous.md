@@ -1,5 +1,13 @@
+**'That's When the Boos Started': The Oscars Speech That Lost the Room**\
+`Days after the 2003 invasion of Iraq, Michael Moore used his moment in the spotlight to rail against the war. Here’s what he and others onstage remember.`\
+https://nytimes.com/interactive/2026/03/12/magazine/oscar-academy-award-michael-moore-speech.html
+
+**It Was 86. Then It Snowed. A ‘Wild’ Weather Shift Jolts the Mid-Atlantic.**\
+`Washington, D.C., was warm and sunny on Wednesday. By Thursday, snow was falling.`\
+https://nytimes.com/2026/03/12/weather/snow-cold-rain-forecast-east-coast-whiplash.html
+
 **Artemi Panarin reflects on end of Rangers tenure, what went wrong and more**\
-`“Felt pretty sad in the beginning but also explained to myself why it’s better,” Panarin said, who is now with the Kings.`\
+`“Felt pretty sad in the beginning but also explained to myself why it’s better,” said Panarin, who is now with the Kings.`\
 https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-trade-comments/
 
 **Running back Emanuel Wilson agrees to free-agent deal with Seahawks: Source**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/travel/2026-travel-plans-iran-war-shutdown.html
 **Your Oscars Guide**\
 `The Academy Awards ceremony is on Sunday. Here’s what to know.`\
 https://nytimes.com/2026/03/12/world/oscars-guide-iran-oil.html
-
-**New Iranian Leader Vows to Keep Global Oil Gateway Blocked**\
-`Oil prices surged on Thursday after ships came under attack in the Persian Gulf, and Iran’s supreme leader vowed revenge for U.S. and Israeli airstrikes.`\
-https://nytimes.com/2026/03/12/world/middleeast/iran-oil-war.html
-
-**Rashan Gary's goal with Cowboys: Playing 'meaningful games' and for 'some trophies'**\
-`The 28-year-old Gary called leaving Green Bay "bittersweet" after being traded to Dallas.`\
-https://nytimes.com/athletic/7112580/2026/03/12/cowboys-rashan-gary-free-agency-goals/
 
