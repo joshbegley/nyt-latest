@@ -1,3 +1,7 @@
+**'Did you tell him you’re firing him yet?' The brutal reality of golf’s most intimate partnership**\
+`There’s no contracts. No job security. A caddie can get hired or fired at any time. But when a pair is together, they’re together.`\
+https://nytimes.com/athletic/7107845/2026/03/12/golf-player-caddie-relationship/
+
 **If Bam Adebayo can score 83, could someone else actually challenge Wilt's 100-point game?**\
 `Matching Chamberlain's 100 has been considered impossible. But the NBA's current pace of play and tanking make it seems less far-fetched.`\
 https://nytimes.com/athletic/7109344/2026/03/12/bam-adebayo-83-wilt-chamberlain-100-record-column/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110269/2026/03/12/lions-free-agency-analysis-cade-
 **Bengals free agency reset: Not finishing the job leaves defense at risk again**\
 `Getting Boye Mafe and Bryan Cook was a great start, but the total lack of additions after that leaves the defense with major holes.`\
 https://nytimes.com/athletic/7110469/2026/03/12/bengals-free-agency-reset-defense/
-
-**Can Justin Willard revive the Mets' rotation?**\
-`The Mets hired Justin Willard despite his lack of pro playing experience, hoping he can restore a rotation that faltered late last season.`\
-https://nytimes.com/athletic/7110536/2026/03/12/justin-willard-new-york-mets-pitching-coach/
 
