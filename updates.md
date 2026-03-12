@@ -1,3 +1,19 @@
+**Trump to Target Forced Labor in Global Tariff Scheme**\
+`The Trump administration is expected to begin a trade investigation into whether dozens of countries have policies to combat forced labor.`\
+https://nytimes.com/2026/03/12/us/politics/trump-forced-labor-tariffs.html
+
+**The synagogue attack echoes an incident at a Michigan church last year.**\
+`By Christina Morales`\
+https://nytimes.com/live/2026/03/12/us/temple-israel-michigan-shooting/the-synagogue-attack-echoes-an-incident-at-a-michigan-church-last-year
+
+**16 and Counting: Oil and Cargo Ships Are Growing Targets in War With Iran**\
+`More than a dozen oil tankers and cargo ships have been attacked in the Persian Gulf since the U.S.-Israeli war against Iran began nearly two weeks ago, a New York Times analysis shows.`\
+https://nytimes.com/interactive/2026/03/12/business/energy-environment/iran-war-ship-attacks.html
+
+**Attack on Synagogue Comes Amid Significant Rise in Antisemitic Incidents**\
+`The number of assaults and threats against Jews has increased in recent years, with anxiety growing further since the start of the U.S.-Israeli war with Iran.`\
+https://nytimes.com/2026/03/12/us/antisemitism-synagogue-attack-michigan.html
+
 **NHL rumblings: Will thin UFA market get further diluted by upcoming contract extensions?**\
 `There aren't many high-impact players headed for the free-agent market, and especially not many under age 33.`\
 https://nytimes.com/athletic/7112544/2026/03/12/nhl-contract-extensions-free-agency-2026/
