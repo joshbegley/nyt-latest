@@ -1,3 +1,11 @@
+**OT Yosh Nijman, a candidate to return to Panthers in a key role, retires**\
+`Nijman was a candidate to replace left tackle Ikem Ekwonu, who is expected to miss part of the season recovering from an injury.`\
+https://nytimes.com/athletic/7110491/2026/03/11/yosh-nijman-retires-panthers-offensive-tackle/
+
+**Oil Keeps Pushing Higher Despite Global Release of Reserves**\
+`A worldwide pledge by governments to tap emergency reserves on Wednesday has not stemmed oil’s rise.`\
+https://nytimes.com/2026/03/11/business/gas-oil-stocks-prices-iran.html
+
 **Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
 `Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
 https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7109894/2026/03/11/team-usa-world-baseball-classic-
 https://nytimes.com/2026/03/11/us/washington-millionaires-tax-bezos-schultz.html
 
 **Haitian President’s Widow Recalls Killers Spoke Spanish and Used Nicknames**\
-`Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
+`The prosecution used testimony by Martine Moïse about the language she heard on the night her husband was killed to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
 https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
 
 **Collectible Frames**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/11/dining/rene-redzepi-noma-resign-abuse.html
 **Boston World Cup games to go ahead after Kraft Sports, Foxboro reach deal**\
 `A dispute over $7.8 million in funding had threatened the staging of games at Gillette Stadium in Foxboro`\
 https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
-
-**Israel Bombards Lebanese Capital in Latest Round of Strikes**\
-`Lebanon’s health ministry said at least seven people were killed in the Beirut attacks early Thursday.`\
-https://nytimes.com/2026/03/11/world/middleeast/beirut-lebanon-israel-strikes.html
-
-**U.S. to Release 172 Million Barrels of Oil From Strategic Reserves, Energy Dept. Says**\
-`The move aims to prevent prices from rising further because of the war in the Middle East.`\
-https://nytimes.com/2026/03/11/world/middleeast/us-oil-reserves-trump-iran.html
 
