@@ -1,3 +1,7 @@
+**Rangers condemn 'vile, cowardly' graffiti referencing Ibrox disaster**\
+`Both Rangers and Celtic issued statements on Thursday in response to fan disorder during the match.`\
+https://nytimes.com/athletic/7113368/2026/03/12/rangers-celtic-old-firm-graffiti/
+
 **Weakened by War, Iran Hits Back by Strangling a Vital Waterway**\
 `The threats to shipping in the Strait of Hormuz are complicating President Trump’s calculations about how and when to end the war.`\
 https://nytimes.com/2026/03/12/us/politics/strait-of-hormuz-iran-war.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-fre
 `Thomas G. Thompson was held in contempt for 10 years for repeatedly denying he knew the whereabouts of 500 missing gold coins.`\
 https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html
 
-**Ukraine to Make Drone Videos Available for Training AI Models**\
+**Ukraine to Make Drone Videos Available for Training A.I. Models**\
 `Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
 https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7113217/2026/03/12/iran-world-cup-donald-trump/
 **Why Jonathan Allen's signing made B.J. Hill, and the Bengals, smile**\
 `The new veteran defensive tackle could ease the burden on the veteran one already on the roster.`\
 https://nytimes.com/athletic/7113261/2026/03/12/jonathan-allen-signing-bengals-bj-hill/
-
-**Kyler Murray signs 1-year deal with Vikings as 2-time Pro Bowl QB gets fresh start**\
-`Murray was released Wednesday after seven years with the Cardinals. The No. 1 pick in the 2019 draft now joins a talented Vikings roster.`\
-https://nytimes.com/athletic/7110349/2026/03/12/kyler-murray-vikings-nfl-free-agency/
 

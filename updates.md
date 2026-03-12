@@ -1,3 +1,11 @@
+**Weakened by War, Iran Hits Back by Strangling a Vital Waterway**\
+`The threats to shipping in the Strait of Hormuz are complicating President Trump’s calculations about how and when to end the war.`\
+https://nytimes.com/2026/03/12/us/politics/strait-of-hormuz-iran-war.html
+
+**A Maronite Priest Killed by Israeli Tank Fire is Mourned in Lebanon**\
+`A funeral was held in a village in southern Lebanon for a priest killed by Israeli tank fire. Israel has intensified its campaign against Hezbollah with expansive evacuation orders and air strikes across the country.`\
+https://nytimes.com/video/world/middleeast/100000010768949/lebanon-priest-funeral-israel.html
+
 **Bills add safety C.J. Gardner-Johnson on a 1-year deal: Source**\
 `The Bills have been looking for new pieces for a new defensive scheme and found a potential starter in Gardner-Johnson.`\
 https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-free-agency-2026/
