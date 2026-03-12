@@ -1,3 +1,19 @@
+**What is the best Champions League hat-trick of all time?**\
+`From Kylian Mbappe to Lionel Messi via Gareth Bale at San Siro, our writers nominate their greatest-ever Champions League trebles`\
+https://nytimes.com/athletic/7111001/2026/03/12/champions-league-best-hat-trick-all-time-analysis/
+
+**Aaron Judge card sells for record $5.2 million**\
+`Judge now tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
+https://nytimes.com/athletic/7105279/2026/03/12/aaron-judge-record-card-sale-bowman-chrome-superfractor/
+
+**Disappointed yet thankful, Tony Dungy confirms NBC exit after 17 years**\
+`"I’ll have lasting memories of my time there, especially with Rodney Harrison who has become a tremendous friend," Dungy wrote on X.`\
+https://nytimes.com/athletic/7111267/2026/03/12/tony-dungy-nbc-football-exit/
+
+**The Bounce: We have a real MVP debate. Plus, reacting to Bam Adebayo overreactions**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7111273/2026/03/12/mvp-sga-jokic-wembanyama-bam-adebayo-nba-the-bounce/
+
 **Barcelona's elections come down to Joan Laporta or Victor Font. So why is Lionel Messi key?**\
 `Some 114,504 club members are eligible to vote on Sunday to decide who will lead the Spanish champions until 2031`\
 https://nytimes.com/athletic/7111116/2026/03/12/barcelona-elections-messi-laporta-font/
