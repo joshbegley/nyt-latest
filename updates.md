@@ -1,3 +1,11 @@
+**Giants to sign former Steelers WR Calvin Austin III to 1-year deal: Reports**\
+`The former fourth-round pick had a significant role in the Steelers' passing game each of the past two seasons.`\
+https://nytimes.com/athletic/7095864/2026/03/12/calvin-austin-iii-giants-free-agency-2026/
+
+**Walid Khalidi, Scholar Called Father of Palestinian Studies, Dies at 100**\
+`As a historian and diplomat, he gave intellectual shape to his people and made sure that they played a role in negotiating their future.`\
+https://nytimes.com/2026/03/12/world/middleeast/walid-khalidi-dead.html
+
 **Trinidad Chambliss says eligibility uncertainty cost him shot at video game cover**\
 `EA Sports told Chambliss on Monday that it “just can’t stomach the risk” of him not suiting up for the Rebels this fall, the filing said.`\
 https://nytimes.com/athletic/7113154/2026/03/12/trinidad-chambliss-ea-sports-cover-eligibility/
