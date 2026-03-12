@@ -1,3 +1,15 @@
+**WBC standout Jarren Duran is the X-factor for the Red Sox offense**\
+`Duran's 2025 campaign was a disappointment compared to his breakout 2024 season, but he's honed in on ways to get back to MVP-level play.`\
+https://nytimes.com/athletic/7109166/2026/03/12/red-sox-jarren-duran-offense/
+
+**Yadier Molina is on a Hall of Fame mosaic in Puerto Rico. Peers don't think it's a jinx**\
+`“They inspired all of us, in every (career) field pretty much, to aspire to something gigantic like them,” artist Roberto Biaggi said.`\
+https://nytimes.com/athletic/7109812/2026/03/12/yadier-molina-hall-of-fame-chances-mosaic/
+
+**Eagles 7-round mock draft: Does a tight end make sense, post-free agency?**\
+`Based on need, offensive tackle should be the top priority in the first round. But if Kenyon Sadiq is available, he'd be hard to pass on.`\
+https://nytimes.com/athletic/7093427/2026/03/12/eagles-mock-nfl-draft-kenyon-sadiq/
+
 **TAFC: Valverde's golden touch to sink Man City. Plus: Iran threaten to boycott World Cup**\
 `Today in TAFC: Valverde's hat-trick and the single touch that started Man City's downfall. Plus: Will Iran boycott World Cup?`\
 https://nytimes.com/athletic/7110919/2026/03/12/valverde-hat-trick-real-madrid-iran-world-cup-boycott/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7110419/2026/03/12/carlos-lagrange-yankees-103-mph-
 **How the Maple Leafs collapsed: All the mistakes of a years-long undoing**\
 `Many wrong moves by Toronto that didn't work out over an extended period are why its streak of nine straight playoff appearances will end.`\
 https://nytimes.com/athletic/7106394/2026/03/12/maple-leafs-nhl-season-mistakes-collapse/
-
-**Rangers' Vladislav Gavrikov has produced, but season hasn't gone as expected**\
-`By signing a contract with the Rangers last summer, Gavrikov put his faith in the team rebounding from a disappointing season. They did not.`\
-https://nytimes.com/athletic/7108899/2026/03/12/new-york-rangers-vladislav-gavrikov-season/
-
-**Take our college football coaching survey: Who's the best? Do you approve of yours?**\
-`Let us know how you feel about your favorite team's coach — plus the best in all of college football.`\
-https://nytimes.com/athletic/7039825/2026/03/12/college-football-best-coaches-approval-ratings/
-
-**How to watch the 2026 Boston Red Sox: TV, streaming options for local and national games**\
-`Even Red Sox lifers have to be confused by the 2026 broadcast rotation. Here's where we lay it all out for fans of all stripes.`\
-https://nytimes.com/athletic/7106770/2026/03/12/boston-red-sox-how-to-watch-nesn-mlb/
 
