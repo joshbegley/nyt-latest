@@ -1,3 +1,7 @@
+**Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
+`Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
+https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
+
 **Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
 `Ward set a spring training record with his 17th steal, while Cora hopes Early and Payton Tolle will "become monsters."`\
 https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html
 **Ukraine to Make Drone Videos Available for Training A.I. Models**\
 `Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
 https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
-
-**Florida Republicans Pass Bill Requiring Proof of Citizenship to Vote**\
-`The proposed law, which would not take effect before this year’s midterm elections, was modeled in part on President Trump’s top legislative priority in Congress.`\
-https://nytimes.com/2026/03/12/us/elections/florida-voting-citizenship-proof-bill.html
 
