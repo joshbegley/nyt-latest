@@ -1,3 +1,7 @@
+**Oscars 2026: Print Your Ballot!**\
+`Now it’s your turn to predict which nominees will win.`\
+https://nytimes.com/interactive/2026/03/12/movies/2026-oscars-ballot.html
+
 **This Is the Democrats’ Biggest Problem**\
 `The fight over ICE actions is a symptom of a much larger, more fundamental debate happening in America, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010742036/this-is-the-democrats-biggest-problem.html

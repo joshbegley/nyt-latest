@@ -1,3 +1,7 @@
+**Oscars 2026: Print Your Ballot!**\
+`Now it’s your turn to predict which nominees will win.`\
+https://nytimes.com/interactive/2026/03/12/movies/2026-oscars-ballot.html
+
 **This Is the Democrats’ Biggest Problem**\
 `The fight over ICE actions is a symptom of a much larger, more fundamental debate happening in America, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
 https://nytimes.com/video/opinion/100000010742036/this-is-the-democrats-biggest-problem.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/12/business/energy-environment/iran-war-
 **NHL rumblings: Will thin UFA market get further diluted by upcoming contract extensions?**\
 `There aren't many high-impact players headed for the free-agent market, and especially not many under age 33.`\
 https://nytimes.com/athletic/7112544/2026/03/12/nhl-contract-extensions-free-agency-2026/
-
-**New York City Is Enjoying an Irish Pubaissance**\
-`Three Irish bars for the 21st century reveler just in time for St. Patrick’s Day.`\
-https://nytimes.com/2026/03/12/dining/new-york-city-is-enjoying-an-irish-pubaissance.html
 
