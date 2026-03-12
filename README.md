@@ -1,3 +1,7 @@
+**The Complicated Oscars Night Feelings Over ‘One Battle After Another’**\
+`Wesley Morris and the scholar Daphne A. Brooks discuss the mixed reception of Black women in “One Battle After Another.”`\
+https://nytimes.com/video/podcasts/100000010766945/the-complicated-oscars-night-feelings-over-one-battle-after-another.html
+
 **Deadly Attack on Oil Tankers Prompts Iraq to Close Oil Terminals**\
 `An attack off the Iraqi coast engulfed two oil tankers in flames, killing at least one person. Senior Iraqi officials believe the attack was Iranian.`\
 https://nytimes.com/2026/03/12/world/middleeast/iraq-oil-tankers-attack-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/gracie-mansion-attack-nyc.html
 **Have a Complaint About Your Apartment? You Can Tell Mayor Mamdani.**\
 `Mayor Zohran Mamdani attended the third “rental rip-off” hearing in New York City, sitting down with three tenants to hear their woes and assuaging protesters.`\
 https://nytimes.com/2026/03/12/nyregion/mamdani-rental-ripoff-hearing.html
-
-**Passing Notes**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2026/03/12/learning/passing-notes.html
 
