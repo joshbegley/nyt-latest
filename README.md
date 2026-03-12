@@ -1,3 +1,15 @@
+**Iraq angered by strikes on former militias now under government control.**\
+`By Erika Solomon`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/iraq-angered-by-strikes-on-former-militias-now-under-government-control
+
+**Ron Delany, Runner Who Won Olympic Glory for Ireland, Dies at 91**\
+`As a Villanova student, he captured the 1,500-meter event in the 1956 Games in Melbourne. No Irish athlete since then has won another Olympic gold medal in track and field.`\
+https://nytimes.com/2026/03/12/sports/ron-delany-dead.html
+
+**How Trump’s Election Lie Could Impact 2026 Midterms**\
+`he Trump administration is putting the weight of the federal government behind his false claims about the 2020 election in order to investigate key swing states ahead of the midterms.`\
+https://nytimes.com/video/us/elections/100000010766599/trump-false-claim-election-stolen-impact-2026-midterms.html
+
 **New Yorkers, Do You Have an Interesting Storage Unit Collection?**\
 `To help us report an upcoming article, we want to hear about your cherished, prized or strange storage unit stories.`\
 https://nytimes.com/2026/03/12/realestate/storage-unit-reader-callout.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/12/books/review/new-recommended-books.html
 **How to watch UAPB vs. Southern men's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Southern Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112312/2026/03/12/uapb-vs-southern-stream-how-to-watch-march-12/
-
-**How to watch Florida Atlantic vs. North Texas men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Florida Atlantic Owls play the North Texas Mean Green, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112308/2026/03/12/florida-atlantic-vs-north-texas-stream-how-to-watch-march-12/
-
-**How to watch Rutgers vs. UCLA men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Rutgers Scarlet Knights play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112297/2026/03/12/rutgers-vs-ucla-stream-how-to-watch-march-12/
-
-**How to watch TCU vs. Kansas men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Kansas Jayhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112294/2026/03/12/tcu-vs-kansas-stream-how-to-watch-march-12/
 
