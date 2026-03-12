@@ -1,3 +1,11 @@
+**Iran says 'no one' can exclude them from World Cup after Trump comments**\
+`Trump had warned Iran's participation may be a risk for “their own life and safety.”`\
+https://nytimes.com/athletic/7113217/2026/03/12/iran-world-cup-donald-trump/
+
+**Giants to sign former Steelers WR Calvin Austin III to 1-year deal: Sources**\
+`The former fourth-round pick had a significant role in the Steelers' passing game each of the past two seasons.`\
+https://nytimes.com/athletic/7095864/2026/03/12/calvin-austin-iii-giants-free-agency-2026/
+
 **Why Jonathan Allen's signing made B.J. Hill, and the Bengals, smile**\
 `The new veteran defensive tackle could ease the burden on the veteran one already on the roster.`\
 https://nytimes.com/athletic/7113261/2026/03/12/jonathan-allen-signing-bengals-bj-hill/
