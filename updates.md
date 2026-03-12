@@ -1,3 +1,7 @@
+**Alyssa Healy: Classy, combative and a significant figure in women’s cricket history**\
+`The Australian wicketkeeper-batsman has called time on her long and trophy-laden career. She leaves an indelible mark`\
+https://nytimes.com/athletic/7103981/2026/03/12/alyssa-healy-australia-cricket-retirement/
+
 **The Alternative Premier League Table: No 30 – Supporter sentiment and expected points**\
 `The numbers that show that fan sentiment generally tracks with team performance – but not entirely `\
 https://nytimes.com/athletic/7108231/2026/03/12/alternative-premier-league-table-no-30-fanalysis-xpts/

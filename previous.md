@@ -1,3 +1,7 @@
+**Alyssa Healy: Classy, combative and a significant figure in women’s cricket history**\
+`The Australian wicketkeeper-batsman has called time on her long and trophy-laden career. She leaves an indelible mark`\
+https://nytimes.com/athletic/7103981/2026/03/12/alyssa-healy-australia-cricket-retirement/
+
 **The Alternative Premier League Table: No 30 – Supporter sentiment and expected points**\
 `The numbers that show that fan sentiment generally tracks with team performance – but not entirely `\
 https://nytimes.com/athletic/7108231/2026/03/12/alternative-premier-league-table-no-30-fanalysis-xpts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110491/2026/03/11/yosh-nijman-retires-panthers-off
 **Oil Keeps Pushing Higher Despite Global Release of Reserves**\
 `A worldwide pledge by governments to tap emergency reserves on Wednesday has not stemmed oil’s rise.`\
 https://nytimes.com/2026/03/11/business/gas-oil-stocks-prices-iran.html
-
-**Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
-`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
-https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
 
