@@ -1,40 +1,40 @@
-**‘Robbing Them Blind’: Live Nation Employees Joked About Fees**\
-`A series of private exchanges in the messaging system Slack were revealed as exhibits in the Justice Department’s antitrust lawsuit against the concert giant.`\
-https://nytimes.com/2026/03/12/arts/music/live-nation-ticketmaster-trial-fees-slacks.html
+**How to watch Ole Miss vs. Georgia men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111639/2026/03/12/ole-miss-vs-georgia-stream-how-to-watch-march-12/
 
-**How to watch Wizards vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Washington Wizards play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111555/2026/03/12/wizards-vs-magic-stream-how-to-watch-march-12/
+**How to watch Grambling vs. Alabama State women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Grambling Tigers play the Alabama State Lady Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111636/2026/03/12/grambling-vs-alabama-state-stream-how-to-watch-march-12/
 
-**How to watch 76ers vs. Pistons: Time, TV, streaming**\
-`Find out how to watch the Philadelphia 76ers play the Detroit Pistons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111549/2026/03/12/76ers-vs-pistons-stream-how-to-watch-march-12/
+**How to watch Indiana State vs. Southern Illinois women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Indiana State Sycamores play the Southern Illinois Salukis, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111633/2026/03/12/indiana-state-vs-southern-illinois-stream-how-to-watch-march-12/
 
-**How to watch Suns vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111550/2026/03/12/suns-vs-pacers-stream-how-to-watch-march-12/
+**How to watch South Carolina State vs. Norfolk State men's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the South Carolina State Bulldogs play the Norfolk State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111623/2026/03/12/south-carolina-state-vs-norfolk-state-stream-how-to-watch-march-12/
 
-**It’s Beginning to Look a Lot Like Springtime**\
-`On my plate, at least, with this easy and energizing shrimp and avocado salad with sizzled peanut dressing.`\
-https://nytimes.com/2026/03/12/dining/its-beginning-to-look-a-lot-like-springtime.html
+**How to watch Rhode Island vs. Duquesne men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Rhode Island Rams play the Duquesne Dukes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111614/2026/03/12/rhode-island-vs-duquesne-stream-how-to-watch-march-12/
 
-**Anthony Edwards shoulders responsibility for Wolves' slide: 'I just gotta be better'**\
-`"I'm going to find us a way," said Edwards after another bad Timberwolves loss. "We'll figure it out."`\
-https://nytimes.com/athletic/7109685/2026/03/12/anthony-edwards-shoulders-responsibility-for-wolves-slide-i-just-gotta-be-better/
+**How to watch Le Moyne vs. Fairleigh Dickinson women's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Le Moyne Dolphins play the Fairleigh Dickinson Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111610/2026/03/12/le-moyne-vs-fairleigh-dickinson-stream-how-to-watch-march-12/
 
-**Oil Prices Briefly Surge as Iran Attacks Continue**\
-`Continued Iranian attacks on oil infrastructure sent oil prices briefly surging above $100 a barrel again on Thursday, despite world leaders pledging to release a record amount of emergency oil reserves the day before.`\
-https://nytimes.com/video/world/middleeast/100000010770897/oil-prices-iran-tanker-attacks.html
+**How to watch LIU vs. Mercyhurst women's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Mercyhurst Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111608/2026/03/12/liu-vs-mercyhurst-stream-how-to-watch-march-12/
 
-**Cyberattack Adds to Fears of New Front in Iran War**\
-`A hacking group seemed to claim responsibility for the attack on a U.S. manufacturer, calling it retaliation for a strike on an Iranian school.`\
-https://nytimes.com/2026/03/12/world/middleeast/stryker-iran-cyberattack.html
+**How to watch UC Riverside vs. UC Davis women's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the UC Riverside Highlanders play the UC Davis Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111592/2026/03/12/uc-riverside-vs-uc-davis-stream-how-to-watch-march-12/
 
-**The Titan of Land Art Moves Indoors and Gets Intimate**\
-`Michael Heizer, renowned for monumental earthworks like “City,” offers a domesticated, rattlesnake-proof art for Manhattan’s Gagosian.`\
-https://nytimes.com/2026/03/12/arts/design/heizer-gagosian-review.html
+**Social Media Addiction Trial Nears End. Society Long Ago Rendered Its Verdict.**\
+`Closing arguments begin Thursday in a landmark trial that put online behavior under a microscope. In many ways, it has already been decided.`\
+https://nytimes.com/2026/03/12/technology/social-media-addiction-society-verdict.html
 
-**War With Iran Puts Further Strain on America’s Pessimistic Farmers**\
-`Nearly 75 percent of farmers surveyed before the war said the crop sector was in a recession. They face bigger hurdles this planting season.`\
-https://nytimes.com/2026/03/12/business/war-iran-farmers-agriculture-costs.html
+**How to watch Evansville vs. UIC women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Evansville Purple Aces play the UIC Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111587/2026/03/12/evansville-vs-uic-stream-how-to-watch-march-12/
 
