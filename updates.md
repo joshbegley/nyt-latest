@@ -1,3 +1,7 @@
+**Boston World Cup games to go ahead after Kraft Sports, Foxboro reach deal**\
+`A dispute over $7.8 million in funding had threatened the staging of games at Gillette Stadium in Foxboro`\
+https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
+
 **Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
 `Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
 https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
