@@ -1,3 +1,27 @@
+**How to watch Red Wings vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111730/2026/03/12/red-wings-vs-lightning-stream-how-to-watch-march-12/
+
+**The NCAA tournament favorites ripe for early upsets**\
+`Fans of favored programs may be eyeing a Final Four banner, but we see red flags.`\
+https://nytimes.com/athletic/7111479/2026/03/12/ncaa-tournament-basketball-upsets-favorites-lose/
+
+**What Can’t You Afford That You Believe You Should Be Able To?**\
+`Middle-class Americans are surviving, but not thriving. We want to know why.`\
+https://nytimes.com/2026/03/12/opinion/middle-class-americans-affordable-finances.html
+
+**‘The World Exploded.’ Strikes Haunt Displaced Families in Lebanon.**\
+`With airstrikes expanding beyond the limits of Beirut’s southern suburbs, people in the city say that even the once-safest corners may no longer be off-limits.`\
+https://nytimes.com/2026/03/12/world/middleeast/lebanon-displaced-strikes-israel-iran.html
+
+**Chase Utley, closing in on Cooperstown, to be inducted into Phillies' Wall of Fame**\
+`Utley, one of the most popular players in Philadelphia history, will be celebrated Aug. 7, a potential precursor to an even greater honor. `\
+https://nytimes.com/athletic/7109323/2026/03/12/chase-utley-phillies-wall-of-fame/
+
+**How to watch Xavier vs. UConn men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Xavier Musketeers play the UConn Huskies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111709/2026/03/12/xavier-vs-uconn-stream-how-to-watch-march-12/
+
 **Trump Administration Fires New Shot in Fight Over California Clean Car Rules**\
 `A lawsuit argues that the state’s regulations would illegally force a rapid transition to electric vehicles.`\
 https://nytimes.com/2026/03/12/climate/trump-california-tailpipe-emissions.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7111696/2026/03/12/middle-tennessee-vs-louisiana-te
 **How to watch Capitals vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111694/2026/03/12/capitals-vs-sabres-stream-how-to-watch-march-12/
-
-**How to watch Ducks vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111687/2026/03/12/ducks-vs-maple-leafs-stream-how-to-watch-march-12/
-
-**How to watch Flames vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111683/2026/03/12/flames-vs-devils-stream-how-to-watch-march-12/
-
-**How to watch Sharks vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111678/2026/03/12/sharks-vs-bruins-stream-how-to-watch-march-12/
-
-**How to watch Nevada vs. Grand Canyon men's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the Nevada Wolf Pack play the Grand Canyon Antelopes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111676/2026/03/12/nevada-vs-grand-canyon-stream-how-to-watch-march-12/
-
-**How to watch Lehigh vs. Navy women's basketball: Patriot Tournament Time, TV, streaming**\
-`Find out how to watch the Lehigh Mountain Hawks play the Navy Midshipmen, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111671/2026/03/12/lehigh-vs-navy-stream-how-to-watch-march-12/
-
-**How to watch SFA vs. McNeese women's basketball: Southland Tournament Time, TV, streaming**\
-`Find out how to watch the Stephen F. Austin Ladyjacks play the McNeese Cowgirls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111669/2026/03/12/sfa-vs-mcneese-stream-how-to-watch-march-12/
 
