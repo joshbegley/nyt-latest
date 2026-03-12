@@ -1,3 +1,7 @@
+**Artemi Panarin reflects on end of Rangers tenure, what went wrong and more**\
+`“Felt pretty sad in the beginning but also explained to myself why it’s better,” Panarin said, who is now with the Kings.`\
+https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-trade-comments/
+
 **Running back Emanuel Wilson agrees to free-agent deal with Seahawks: Source**\
 `Wilson, who started two games in three seasons with the Packers, fills a need for the Seahawks, who lost Kenneth Walker III in free agency.`\
 https://nytimes.com/athletic/7091609/2026/03/12/emanuel-wilson-seahawks-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/world/middleeast/iran-oil-war.html
 **Rashan Gary's goal with Cowboys: Playing 'meaningful games' and for 'some trophies'**\
 `The 28-year-old Gary called leaving Green Bay "bittersweet" after being traded to Dallas.`\
 https://nytimes.com/athletic/7112580/2026/03/12/cowboys-rashan-gary-free-agency-goals/
-
-**Drone Strike in Congo Kills 3, Including U.N. Worker**\
-`The attack struck a residential area of Goma, killing an employee of the U.N.’s children’s agency and two others amid a sharp rise in drone warfare.`\
-https://nytimes.com/2026/03/12/world/africa/drone-strike-congo-kills-three.html
 
