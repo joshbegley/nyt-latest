@@ -1,3 +1,7 @@
+**The Largest Oil Supply Disruption in History**\
+`A look at the war in Iran’s effects on global energy markets, two activists whose Sierra Club memberships were revoked, and more climate and environmental news.`\
+https://nytimes.com/2026/03/12/climate/the-largest-oil-supply-disruption-in-history.html
+
 **Israel Drops Case Against Soldiers Accused of Abusing Palestinian Detainee**\
 `After a prisoner arrived at a hospital with broken ribs and a torn rectum, Israelis were once again at odds over the issue of mistreatment and impunity.`\
 https://nytimes.com/2026/03/12/world/middleeast/israel-detainee-abuse-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112518/2026/03/12/celtics-vs-thunder-stream-how-to
 **Now’s the Time to Invest in Women’s Basketball**\
 `On ‘The Athletic Show,’ Napheesa Collier explains how Unrivaled, a 3-on-3 league she co-founded featuring the W.`\
 https://nytimes.com/video/the-athletic/100000010768967/nows-the-time-to-invest-in-womens-basketball.html
-
-**Do W.N.B.A. Players Deserve to Make More Than $8 Million?**\
-`The W.N.B.A. recently distributed $8 million to its players, but Napheesa Collier argues that an 8 percent revenue share isn’t a fair slice of the pie. The Minnesota Lynx star and Unrivaled co-founder also pushes back on the narrative that her new league is a competitor to the W.N.B.A.`\
-https://nytimes.com/video/the-athletic/100000010768965/do-wnba-players-deserve-to-make-more-than-8-million.html
 
