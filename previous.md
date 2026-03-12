@@ -1,40 +1,40 @@
-**The Complicated Oscars Night Feelings Over ‘One Battle After Another’**\
-`Wesley Morris and the scholar Daphne A. Brooks discuss the mixed reception of Black women in “One Battle After Another.”`\
-https://nytimes.com/video/podcasts/100000010766945/the-complicated-oscars-night-feelings-over-one-battle-after-another.html
+**Aston will attempt full Chinese GP distance if 'allowed', Alonso says**\
+`Aston is in the middle of a crisis stemming from the poor performance and reliability of the engine built by Honda. `\
+https://nytimes.com/athletic/7110899/2026/03/12/aston-martin-chinese-grand-prix-f1-engine/
 
-**Deadly Attack on Oil Tankers Prompts Iraq to Close Oil Terminals**\
-`An attack off the Iraqi coast engulfed two oil tankers in flames, killing at least one person. Senior Iraqi officials believe the attack was Iranian.`\
-https://nytimes.com/2026/03/12/world/middleeast/iraq-oil-tankers-attack-iran-war.html
+**I Declare War on You**\
+`Our constitutional framework for war lies in pieces around us.`\
+https://nytimes.com/2026/03/12/opinion/iran-war-constitution-trump.html
 
-**Why Oil Prices Surged Even After the Release of Strategic Reserves**\
-`Reserves or no reserves, the outlook remains bleak as long as a major oil and gas trade route remains virtually closed.`\
-https://nytimes.com/2026/03/12/business/iran-oil-price-reserves.html
+**Eye Doctor Named to Air Pollution Advisory Board Draws Pushback**\
+`Brian Joondeph, a Colorado-based ophthalmologist and political commentator, has not published peer-reviewed research on air pollution science.`\
+https://nytimes.com/2026/03/12/climate/epa-science-adviser-brian-joondeph.html
 
-**For Oksana Masters and Aaron Pike, U.S. Paralympic power couple, 2026 Games are full circle**\
-`For Masters, the most decorated U.S. Paralympian, and Pike, it all started on the snow. Now they're back, and about to be married.`\
-https://nytimes.com/athletic/7109801/2026/03/12/paralympics-oksana-masters-aaron-pike-medals-wedding/
+**With No Time to Spare, They Traded a House in Austin for a Condo in Chicago**\
+`Migrating north with their two sons, a couple tested their $900,000 budget in three North Side neighborhoods.`\
+https://nytimes.com/interactive/2026/03/12/realestate/chicago-condo-apartments-sale.html
 
-**IPC looking into apparent Germany protest at Russian skiers on podium**\
-`Russian athletes are competing at the Paralympics under their nation's flag for the first time since 2014.`\
-https://nytimes.com/athletic/7109736/2026/03/12/germany-protest-russia-paralympics/
+**Oscars 2026 Predictions: Who Will Win Best Picture, Actor and Actress?**\
+`“Sinners” and “One Battle After Another” have been neck and neck all season. Here’s what our expert thinks will go the distance.`\
+https://nytimes.com/2026/03/12/movies/oscar-academy-awards-predictions-odds.html
 
-**Tottenham are lacking leadership and now their squad is split**\
-`Tottenham are drifting and need to find leaders somewhere or their season will end in the ignominy of a first relegation in 49 years`\
-https://nytimes.com/athletic/7108170/2026/03/12/tottenham-leadership-group-relegation/
+**Bill Cosby, Out of Prison and the Public Eye, Faces Civil Trial**\
+`The entertainer whose conviction was overturned in 2021 still faces sex assault lawsuits from multiple women, including one playing out now in a California court.`\
+https://nytimes.com/2026/03/12/arts/television/bill-cosby-civil-trial-sexual-assault.html
 
-**As the Women's Super League continues to grow, academy players risk being left behind**\
-`Until recently, WSL clubs' academies were lower priorities as teams raced to capitalise on increased attention after the 2022 Euros`\
-https://nytimes.com/athletic/7077042/2026/03/12/england-womens-super-league-academy-players/
+**Are T.S.A. Lines Really That Long? What’s Going On at Airports.**\
+`Images of seemingly endless waits at security checkpoints have spread online, but the reality of the partial government shutdown is less straightforward.`\
+https://nytimes.com/2026/03/12/travel/airport-lines-times-tsa-security.html
 
-**If Chelsea want to rule Europe, they need a world-class goalkeeper**\
-`The demands of the club's playing style require the kind of skillset that neither Filip Jorgensen or Robert Sanchez possesses`\
-https://nytimes.com/athletic/7110253/2026/03/12/chelsea-goalkeeper-filip-jorgensen-robert-sanchez/
+**Tucker Carlson Endorsed Him. Young People Love Him. Is This 31-Year-Old the Future of the G.O.P.?**\
+`James Fishback has managed to bring the paranoid, transgressive, meme-drunk spirit of the right-wing internet into the real world.`\
+https://nytimes.com/2026/03/12/opinion/james-fishback-gen-z-republican-florida.html
 
-**At 13, He Was Selling Sneakers. At 18, He’s Facing Terror Charges.**\
-`In February, Emir Balat disappeared from the online marketplace he frequented. Weeks later, he was arrested in a homemade-bomb attack near Gracie Mansion.`\
-https://nytimes.com/2026/03/12/nyregion/gracie-mansion-attack-nyc.html
+**San Francisco’s Chinatown Celebrated Eileen Gu. Others Are More Conflicted.**\
+`Conservatives have rebuked Ms. Gu, who was born in the United States but won Olympic medals for China. The reaction has sparked conversations among Chinese Americans about identity and straddling two worlds.`\
+https://nytimes.com/2026/03/12/us/eileen-gu-olympics-chinese-american.html
 
-**Have a Complaint About Your Apartment? You Can Tell Mayor Mamdani.**\
-`Mayor Zohran Mamdani attended the third “rental rip-off” hearing in New York City, sitting down with three tenants to hear their woes and assuaging protesters.`\
-https://nytimes.com/2026/03/12/nyregion/mamdani-rental-ripoff-hearing.html
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Lise Davidsen’s recital at the Met Opera, Gustavo Dudamel leading “Romeo and Juliet,” and a violinist’s personal program are among our selections.`\
+https://nytimes.com/2026/03/12/arts/music/best-classical-music-albums-march-2026.html
 

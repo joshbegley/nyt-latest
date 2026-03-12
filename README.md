@@ -1,40 +1,40 @@
-**Aston will attempt full Chinese GP distance if 'allowed', Alonso says**\
-`Aston is in the middle of a crisis stemming from the poor performance and reliability of the engine built by Honda. `\
-https://nytimes.com/athletic/7110899/2026/03/12/aston-martin-chinese-grand-prix-f1-engine/
+**How to watch George Washington vs. Fordham men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Fordham Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110934/2026/03/12/george-washington-vs-fordham-stream-how-to-watch-march-12/
 
-**I Declare War on You**\
-`Our constitutional framework for war lies in pieces around us.`\
-https://nytimes.com/2026/03/12/opinion/iran-war-constitution-trump.html
+**Mines Have Haunted the Persian Gulf for Decades**\
+`The U.S. said this week that it attacked 16 Iranian mine-laying vessels near the Strait of Hormuz. In the 1980s, Iranian mines damaged oil tankers and a U.S. Navy warship.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-war-mines-ships-history.html
 
-**Eye Doctor Named to Air Pollution Advisory Board Draws Pushback**\
-`Brian Joondeph, a Colorado-based ophthalmologist and political commentator, has not published peer-reviewed research on air pollution science.`\
-https://nytimes.com/2026/03/12/climate/epa-science-adviser-brian-joondeph.html
+**How to watch NC State vs. Virginia men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the NC State Wolfpack play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110932/2026/03/12/nc-state-vs-virginia-stream-how-to-watch-march-12/
 
-**With No Time to Spare, They Traded a House in Austin for a Condo in Chicago**\
-`Migrating north with their two sons, a couple tested their $900,000 budget in three North Side neighborhoods.`\
-https://nytimes.com/interactive/2026/03/12/realestate/chicago-condo-apartments-sale.html
+**How to watch Iowa State vs. Texas Tech men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110930/2026/03/12/iowa-state-vs-texas-tech-stream-how-to-watch-march-12/
 
-**Oscars 2026 Predictions: Who Will Win Best Picture, Actor and Actress?**\
-`“Sinners” and “One Battle After Another” have been neck and neck all season. Here’s what our expert thinks will go the distance.`\
-https://nytimes.com/2026/03/12/movies/oscar-academy-awards-predictions-odds.html
+**How to watch UMass vs. Miami (OH) men's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the UMass Minutemen play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110928/2026/03/12/umass-vs-miami-oh-stream-how-to-watch-march-12/
 
-**Bill Cosby, Out of Prison and the Public Eye, Faces Civil Trial**\
-`The entertainer whose conviction was overturned in 2021 still faces sex assault lawsuits from multiple women, including one playing out now in a California court.`\
-https://nytimes.com/2026/03/12/arts/television/bill-cosby-civil-trial-sexual-assault.html
+**How to watch Liberty vs. Sam Houston women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Liberty Lady Flames play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110926/2026/03/12/liberty-vs-sam-houston-stream-how-to-watch-march-12/
 
-**Are T.S.A. Lines Really That Long? What’s Going On at Airports.**\
-`Images of seemingly endless waits at security checkpoints have spread online, but the reality of the partial government shutdown is less straightforward.`\
-https://nytimes.com/2026/03/12/travel/airport-lines-times-tsa-security.html
+**China Wants Its Ethnic Minorities to Blend In. Now It’s the Law.**\
+`Under a new “ethnic unity” law, Mandarin Chinese must now be the language of teaching. Parents must guide their children to love the Communist Party. Neighborhoods should be mixed.`\
+https://nytimes.com/2026/03/12/world/asia/china-minorities-xinjiang-tibet.html
 
-**Tucker Carlson Endorsed Him. Young People Love Him. Is This 31-Year-Old the Future of the G.O.P.?**\
-`James Fishback has managed to bring the paranoid, transgressive, meme-drunk spirit of the right-wing internet into the real world.`\
-https://nytimes.com/2026/03/12/opinion/james-fishback-gen-z-republican-florida.html
+**How to watch Iowa vs. Ohio State men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Iowa Hawkeyes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110923/2026/03/12/iowa-vs-ohio-state-stream-how-to-watch-march-12/
 
-**San Francisco’s Chinatown Celebrated Eileen Gu. Others Are More Conflicted.**\
-`Conservatives have rebuked Ms. Gu, who was born in the United States but won Olympic medals for China. The reaction has sparked conversations among Chinese Americans about identity and straddling two worlds.`\
-https://nytimes.com/2026/03/12/us/eileen-gu-olympics-chinese-american.html
+**How to watch North Carolina Central vs. Coppin State women's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the North Carolina Central Eagles play the Coppin State Eagles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110921/2026/03/12/north-carolina-central-vs-coppin-state-stream-how-to-watch-march-12/
 
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Lise Davidsen’s recital at the Met Opera, Gustavo Dudamel leading “Romeo and Juliet,” and a violinist’s personal program are among our selections.`\
-https://nytimes.com/2026/03/12/arts/music/best-classical-music-albums-march-2026.html
+**How to watch Kentucky vs. Missouri men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7110918/2026/03/12/kentucky-vs-missouri-stream-how-to-watch-march-12/
 
