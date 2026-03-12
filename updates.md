@@ -1,3 +1,7 @@
+**IPC looking into apparent Germany protest at Russian skiers on podium**\
+`Russian athletes are competing at the Paralympics under their nation's flag for the first time since 2014.`\
+https://nytimes.com/athletic/7109736/2026/03/12/germany-protest-russia-paralympics/
+
 **Tottenham are lacking leadership and now their squad is split**\
 `Tottenham are drifting and need to find leaders somewhere or their season will end in the ignominy of a first relegation in 49 years`\
 https://nytimes.com/athletic/7108170/2026/03/12/tottenham-leadership-group-relegation/
