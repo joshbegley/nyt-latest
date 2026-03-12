@@ -1,3 +1,7 @@
+**Can't we just appreciate Bam Adebayo's accomplishment for a second before all the critiques?**\
+`The forensic analysis of how the thing happened and whether it should have happened begins before what happened can be processed, enjoyed.`\
+https://nytimes.com/athletic/7109993/2026/03/12/bam-adebayo-83-points-miami-heat-criticism/
+
 **Mandel's top 25 coaches for the 2026 CFB season: From DeBoer and Kiffin to Swinney**\
 `Many coaches take years to rise in these rankings. Not Cignetti!`\
 https://nytimes.com/athletic/7101958/2026/03/12/college-football-coach-rankings-stewart-mandel-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109463/2026/03/12/japan-wbc-netflix-exclusive-broa
 **The Steelers seemed to work free agency with a certain 42-year-old QB in mind**\
 `The Steelers leaned into savvy veterans at receiver and cornerback, while giving an extension to an aging defensive stalwart.`\
 https://nytimes.com/athletic/7110300/2026/03/12/pittsburgh-steelers-free-agency-aaron-rodgers/
-
-**Colts' Alec Pierce has lofty goals after re-signing: 'We can be the best team in the NFL'**\
-`Quarterback stability was a key factor in Pierce staying in Indy, so he was relieved when Daniel Jones and the Colts agreed to a new deal.`\
-https://nytimes.com/athletic/7110071/2026/03/12/colts-alec-pierce-returns-goals/
 

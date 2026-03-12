@@ -1,3 +1,7 @@
+**Can't we just appreciate Bam Adebayo's accomplishment for a second before all the critiques?**\
+`The forensic analysis of how the thing happened and whether it should have happened begins before what happened can be processed, enjoyed.`\
+https://nytimes.com/athletic/7109993/2026/03/12/bam-adebayo-83-points-miami-heat-criticism/
+
 **Mandel's top 25 coaches for the 2026 CFB season: From DeBoer and Kiffin to Swinney**\
 `Many coaches take years to rise in these rankings. Not Cignetti!`\
 https://nytimes.com/athletic/7101958/2026/03/12/college-football-coach-rankings-stewart-mandel-2026/
