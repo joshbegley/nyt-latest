@@ -1,3 +1,23 @@
+**A New Era Begins for Cadillac in Formula 1**\
+`While only one of its cars finished at the Australian Grand Prix, the team considers that an accomplishment.`\
+https://nytimes.com/2026/03/12/sports/cadillac-formula-1-australia.html
+
+**F.B.I. Joins Search for Air Force General Missing for Two Weeks**\
+`Before he retired, Maj. Gen. William N. McCasland oversaw a research laboratory at Wright-Patterson Air Force Base near Dayton, Ohio.`\
+https://nytimes.com/2026/03/12/us/mccasland-missing-ufo-us-air-force-new-mexico.html
+
+**WNBA proposes higher salary cap in latest CBA offer, but still no deal**\
+`A source with knowledge of the sessions said that the sides still remain “not close enough” to expect an imminent agreement.`\
+https://nytimes.com/athletic/7112130/2026/03/12/wnba-cba-contract-salary-cap/
+
+**Red Bull, Once Dominant in F1, Works to Regain That Form**\
+`It has a new factory, a new power-unit partner, and a new wind tunnel is coming. Now, what about Max Verstappen?`\
+https://nytimes.com/2026/03/12/sports/f1-red-bull-factory-power-unit.html
+
+**Reiten joins Gotham FC from Chelsea**\
+`Reiten, 31, has joined the National Women's Soccer League (NWSL) side on an initial loan through to July`\
+https://nytimes.com/athletic/7112351/2026/03/12/guro-reiten-gotham-chelsea-transfer/
+
 **Iraq angered by strikes on former militias now under government control.**\
 `By Erika Solomon`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/iraq-angered-by-strikes-on-former-militias-now-under-government-control
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/12/realestate/storage-unit-reader-callout.html
 **Flames sign top NCAA free agent Tyson Gross to entry-level contract**\
 `The 23-year-old, 6-foot-3 Calgary native is a finalist for the National Collegiate Hockey Conference's player of the year.`\
 https://nytimes.com/athletic/7111979/2026/03/12/calgary-flames-tyson-gross-free-agent-contract/
-
-**Team USA men's hockey jerseys available again — but long delays remain**\
-`Jerseys were sold out after the United States won gold at the Olympics.`\
-https://nytimes.com/athletic/7112066/2026/03/12/team-usa-hockey-jerseys/
-
-**Finding Fault for the Deadly U.S. Strike on a School in Iran**\
-`Readers react to the news that a U.S. missile likely killed 175 Iranians. Also: Kennedy pushes nutrition advice on medical schools; city life for retirees.`\
-https://nytimes.com/2026/03/12/opinion/us-iran-school-missle-strike.html
-
-**How to watch Southern Utah vs. UT Arlington men's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Southern Utah Thunderbirds play the UT Arlington Mavericks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112317/2026/03/12/southern-utah-vs-ut-arlington-stream-how-to-watch-march-12/
-
-**7 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2026/03/12/books/review/new-recommended-books.html
-
-**How to watch UAPB vs. Southern men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Southern Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112312/2026/03/12/uapb-vs-southern-stream-how-to-watch-march-12/
 
