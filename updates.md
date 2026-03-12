@@ -1,3 +1,19 @@
+**Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
+`Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
+https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
+
+**Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
+`Ward set a spring training record with his 17th steal, while Cora hopes Early and Payton Tolle will "become monsters."`\
+https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
+
+**Steelers agree to terms with safety Jaquan Brisker: Source**\
+`A second-round pick of the Chicago Bears in the 2022 NFL Draft, Brisker became an instant starter in Chicago.`\
+https://nytimes.com/athletic/7113529/2026/03/12/jaquan-brisker-steelers-nfl-free-agency/
+
+**Meta Delays Rollout of New A.I. Model After Performance Concerns**\
+`The tech giant pushed back the timeline after spending billions to be on the cutting edge of artificial intelligence.`\
+https://nytimes.com/2026/03/12/technology/meta-avocado-ai-model-delayed.html
+
 **Rangers condemn 'vile, cowardly' graffiti referencing Ibrox disaster**\
 `Both Rangers and Celtic issued statements on Thursday in response to fan disorder during the match.`\
 https://nytimes.com/athletic/7113368/2026/03/12/rangers-celtic-old-firm-graffiti/
