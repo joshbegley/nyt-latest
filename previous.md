@@ -1,40 +1,40 @@
-**Can't we just appreciate Bam Adebayo's accomplishment for a second before all the critiques?**\
-`The forensic analysis of how the thing happened and whether it should have happened begins before what happened can be processed, enjoyed.`\
-https://nytimes.com/athletic/7109993/2026/03/12/bam-adebayo-83-points-miami-heat-criticism/
+**Cowboys free-agency reset: Adding Rashan Gary and trading for draft picks**\
+`Dallas got free agency started with a trade for Gary and added a third-round pick Wednesday when dealing Osa Odighizuwa to the 49ers.`\
+https://nytimes.com/athletic/7109617/2026/03/12/cowboys-free-agency-analysis-rashan-gary-trades/
 
-**Mandel's top 25 coaches for the 2026 CFB season: From DeBoer and Kiffin to Swinney**\
-`Many coaches take years to rise in these rankings. Not Cignetti!`\
-https://nytimes.com/athletic/7101958/2026/03/12/college-football-coach-rankings-stewart-mandel-2026/
+**Lions free-agency reset: They add center Cade Mays, but remain under construction**\
+`Outside of Mays, the Lions have mostly addressed depth or have added players who offer insurance ahead of the draft.`\
+https://nytimes.com/athletic/7110269/2026/03/12/lions-free-agency-analysis-cade-mays-needs/
 
-**Feldman's top 25 coaches for the 2026 CFB season: Where are James Franklin, Steve Sarkisian ranked now?**\
-`Many coaches debut, or re-emerge, on Feldman's rankings this year.`\
-https://nytimes.com/athletic/7102733/2026/03/12/college-football-coach-rankings-bruce-feldman-2026/
+**Bengals free agency reset: Not finishing the job leaves defense at risk again**\
+`Getting Boye Mafe and Bryan Cook was a great start, but the total lack of additions after that leaves the defense with major holes.`\
+https://nytimes.com/athletic/7110469/2026/03/12/bengals-free-agency-reset-defense/
 
-**What we’ve learned (so far) from watching the World Baseball Classic**\
-`Here are some of our reporters' observations over the last week from Houston, Miami, San Juan and Tokyo. `\
-https://nytimes.com/athletic/7110518/2026/03/12/wbc-pool-play-takeaways/
+**Can Justin Willard revive the Mets' rotation?**\
+`The Mets hired Justin Willard despite his lack of pro playing experience, hoping he can restore a rotation that faltered late last season.`\
+https://nytimes.com/athletic/7110536/2026/03/12/justin-willard-new-york-mets-pitching-coach/
 
-**2026 MLB Franchise Rankings: Dodgers overtake Yankees as No. 1 team of past 25 years**\
-`In the four previous editions of our completely objective, never-been-questioned franchise rankings, the Yankees were the the team to beat.`\
-https://nytimes.com/athletic/7109244/2026/03/12/2026-mlb-25-year-franchise-rankings/
+**'I love playing here': A relieved Tippett dominates in Flyers' win over Caps**\
+`If Tippett can replicate Wednesday's effort more often, don't expect to hear his name in any more trade rumors for the foreseeable future.`\
+https://nytimes.com/athletic/7110588/2026/03/12/flyers-beat-caps-owen-tippett/
 
-**The A's used to let their star players walk. A move to Vegas is changing things**\
-`The Athletics have long been a franchise that let its young stars get away. That is changing now with a new city and stadium on the horizon.`\
-https://nytimes.com/athletic/7109850/2026/03/12/las-vegas-athletics-young-core-contracts/
+**Packers free agency reset: Zaire Franklin's arrival, adding Javon Hargrave and more**\
+`The Packers have been active in free agency so far, even if they haven't quite made a splash signing.`\
+https://nytimes.com/athletic/7109296/2026/03/12/packers-free-agency-reset-franklin-hargrave/
 
-**Can Rick Pitino lead St. John's all the way to the national championship?**\
-`"It’s the place I grew up in, the place I love, so it would mean everything as a New Yorker."`\
-https://nytimes.com/athletic/7109605/2026/03/12/rick-pitino-st-johns-college-basketball-national-championship-chances/
+**As March Madness tips off, college basketball already has a deserving Cinderella**\
+`The only box Miami hasn’t checked is, well, upsetting a blue blood. But that could be up next.`\
+https://nytimes.com/athletic/7109214/2026/03/12/march-madness-2026-miami-ohio-mens-ncaa-tournament-cinderella/
 
-**Falcons depth chart: Atlanta's slow start to free agency should have benefits for 2027**\
-`The Falcons roster will look quite different in 2026 after a busy first three days of free agency that saw them lose four regulars.`\
-https://nytimes.com/athletic/7109662/2026/03/12/falcons-depth-chart-nfl-free-agency/
+**Canadiens’ decision to play Jacob Fowler not nearly as hard as the one that awaits**\
+`In addition to Fowler, the Canadiens welcomed Alexandre Texier back to the lineup. Keeping him there will require hard decisions.`\
+https://nytimes.com/athletic/7110647/2026/03/12/canadiens-jacob-fowler-senators-win/
 
-**In Japan, concerns arise that Netflix exclusivity dampening World Baseball Classic appeal**\
-`In Japan, where Netflix has exclusive rights to the WBC, residents are not used to paying subscription services to watch sporting events. `\
-https://nytimes.com/athletic/7109463/2026/03/12/japan-wbc-netflix-exclusive-broadcaster-concerns/
+**James Hagens, No. 3 Bruins left wing? Where the No. 7 pick could start**\
+`If Boston College misses the NCAA Tournament, Hagens could be headed for the Bruins roster. But where does he fit?`\
+https://nytimes.com/athletic/7108783/2026/03/12/james-hagens-bruins-lineup-fit/
 
-**The Steelers seemed to work free agency with a certain 42-year-old QB in mind**\
-`The Steelers leaned into savvy veterans at receiver and cornerback, while giving an extension to an aging defensive stalwart.`\
-https://nytimes.com/athletic/7110300/2026/03/12/pittsburgh-steelers-free-agency-aaron-rodgers/
+**After a year on the move, James Tibbs III is finding his footing with Dodgers**\
+`Of late, Tibbs looks like the version of himself that the Dodgers loved in the pre-draft process.`\
+https://nytimes.com/athletic/7110190/2026/03/12/james-tibbs-los-angeles-dodgers-future/
 
