@@ -1,3 +1,19 @@
+**How to watch 76ers vs. Pistons: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Detroit Pistons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111549/2026/03/12/76ers-vs-pistons-stream-how-to-watch-march-12/
+
+**How to watch Suns vs. Pacers: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Indiana Pacers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111550/2026/03/12/suns-vs-pacers-stream-how-to-watch-march-12/
+
+**It’s Beginning to Look a Lot Like Springtime**\
+`On my plate, at least, with this easy and energizing shrimp and avocado salad with sizzled peanut dressing.`\
+https://nytimes.com/2026/03/12/dining/its-beginning-to-look-a-lot-like-springtime.html
+
+**Anthony Edwards shoulders responsibility for Wolves' slide: 'I just gotta be better'**\
+`"I'm going to find us a way," said Edwards after another bad Timberwolves loss. "We'll figure it out."`\
+https://nytimes.com/athletic/7109685/2026/03/12/anthony-edwards-shoulders-responsibility-for-wolves-slide-i-just-gotta-be-better/
+
 **Oil Prices Briefly Surge as Iran Attacks Continue**\
 `Continued Iranian attacks on oil infrastructure sent oil prices briefly surging above $100 a barrel again on Thursday, despite world leaders pledging to release a record amount of emergency oil reserves the day before.`\
 https://nytimes.com/video/world/middleeast/100000010770897/oil-prices-iran-tanker-attacks.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/12/us/politics/james-clyburn-reelection.html
 **The Windup: Italy advances in WBC, bringing USA with it**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7111440/2026/03/12/italy-mexico-usa-wbc-pool-play-the-windup/
-
-**Before Landing on the Moon, a Collision Close Call Haunted a Space Mission**\
-`The experience of the private Blue Ghost mission in lunar orbit a year ago highlights a growing number of “red alert” incidents above Earth’s neighbor.`\
-https://nytimes.com/2026/03/12/science/moon-red-alert-close-call.html
-
-**After Bam Adebayo's 83-point outburst, what's the over/under for his points vs. Bucks?**\
-`One bettor wagered $1,500 live Tuesday night at +175 odds that Bam Adebayo would score more than 76 points. They won more than $4,000.`\
-https://nytimes.com/athletic/7108615/2026/03/12/bam-adebayo-prop-bets-points-odds-nba/
-
-**‘Bughouse’ Review: Inside a Solitary Artist’s Unwieldy Mind**\
-`Henry Darger, a recluse who left behind thousands of wild illustrations upon his death, is the subject of fascination in this one-man show.`\
-https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
-
-**War has sent thousands of planes flying in the other direction.**\
-`By Zach Levitt and Jacqueline Gu`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/war-has-sent-thousands-of-planes-flying-in-the-other-direction
 
