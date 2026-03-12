@@ -1,3 +1,7 @@
+**Bills add safety C.J. Gardner-Johnson on a 1-year deal: Source**\
+`The Bills have been looking for new pieces for a new defensive scheme and found a potential starter in Gardner-Johnson.`\
+https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-free-agency-2026/
+
 **Treasure Hunter Released From Prison After Refusing to Turn Over Gold Coins**\
 `Thomas G. Thompson was held in contempt for 10 years for repeatedly denying he knew the whereabouts of 500 missing gold coins.`\
 https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html

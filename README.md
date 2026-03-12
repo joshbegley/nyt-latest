@@ -1,3 +1,11 @@
+**Weakened by War, Iran Hits Back by Strangling a Vital Waterway**\
+`The threats to shipping in the Strait of Hormuz are complicating President Trump’s calculations about how and when to end the war.`\
+https://nytimes.com/2026/03/12/us/politics/strait-of-hormuz-iran-war.html
+
+**A Maronite Priest Killed by Israeli Tank Fire is Mourned in Lebanon**\
+`A funeral was held in a village in southern Lebanon for a priest killed by Israeli tank fire. Israel has intensified its campaign against Hezbollah with expansive evacuation orders and air strikes across the country.`\
+https://nytimes.com/video/world/middleeast/100000010768949/lebanon-priest-funeral-israel.html
+
 **Bills add safety C.J. Gardner-Johnson on a 1-year deal: Source**\
 `The Bills have been looking for new pieces for a new defensive scheme and found a potential starter in Gardner-Johnson.`\
 https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-free-agency-2026/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7113261/2026/03/12/jonathan-allen-signing-bengals-b
 **Kyler Murray signs 1-year deal with Vikings as 2-time Pro Bowl QB gets fresh start**\
 `Murray was released Wednesday after seven years with the Cardinals. The No. 1 pick in the 2019 draft now joins a talented Vikings roster.`\
 https://nytimes.com/athletic/7110349/2026/03/12/kyler-murray-vikings-nfl-free-agency/
-
-**Netanyahu issues veiled threat to new supreme leader of Iran.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/netanyahu-issues-veiled-threat-to-new-supreme-leader-of-iran
-
-**Giants to sign former Steelers WR Calvin Austin III to 1-year deal: Sources**\
-`The former fourth-round pick had a significant role in the Steelers' passing game each of the past two seasons.`\
-https://nytimes.com/athletic/7095864/2026/03/12/calvin-austin-iii-giants-free-agency-2026/
 

@@ -1,3 +1,7 @@
+**Bills add safety C.J. Gardner-Johnson on a 1-year deal: Source**\
+`The Bills have been looking for new pieces for a new defensive scheme and found a potential starter in Gardner-Johnson.`\
+https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-free-agency-2026/
+
 **Treasure Hunter Released From Prison After Refusing to Turn Over Gold Coins**\
 `Thomas G. Thompson was held in contempt for 10 years for repeatedly denying he knew the whereabouts of 500 missing gold coins.`\
 https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/netanya
 **Giants to sign former Steelers WR Calvin Austin III to 1-year deal: Sources**\
 `The former fourth-round pick had a significant role in the Steelers' passing game each of the past two seasons.`\
 https://nytimes.com/athletic/7095864/2026/03/12/calvin-austin-iii-giants-free-agency-2026/
-
-**Walid Khalidi, Scholar Called Father of Palestinian Studies, Dies at 100**\
-`As a historian and diplomat, he gave intellectual shape to his people and made sure that they played a role in negotiating their future.`\
-https://nytimes.com/2026/03/12/world/middleeast/walid-khalidi-dead.html
 
