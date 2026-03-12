@@ -1,3 +1,11 @@
+**TAFC: Valverde's golden touch to sink Man City. Plus: Iran threaten to boycott World Cup**\
+`Today in TAFC: Valverde's hat-trick and the single touch that started Man City's downfall. Plus: Will Iran boycott World Cup?`\
+https://nytimes.com/athletic/7110919/2026/03/12/valverde-hat-trick-real-madrid-iran-world-cup-boycott/
+
+**Could Carlos Lagrange play Dellin Betances-type role for Yankees this year?**\
+`The Yankees don’t want Lagrange to turn into Betances just yet, though. They still believe he could become a high-level starting pitcher.`\
+https://nytimes.com/athletic/7110419/2026/03/12/carlos-lagrange-yankees-103-mph-dellin-betances-comparison/
+
 **The men's NCAA Tournament bubble is collapsing fast. Who still has hope?**\
 `It's been a bad past couple of days for bubble hopefuls, which means merely surviving in conference tournament play can be huge.`\
 https://nytimes.com/athletic/7110991/2026/03/12/mens-ncaa-tournament-bubble-watch-indiana-smu/
