@@ -1,3 +1,7 @@
+**Why Oil Prices Surged Even After the Release of Strategic Reserves**\
+`Reserves or no reserves, the outlook remains bleak as long as a major oil and gas trade route remains virtually closed.`\
+https://nytimes.com/2026/03/12/business/iran-oil-price-reserves.html
+
 **For Oksana Masters and Aaron Pike, U.S. Paralympic power couple, 2026 Games are full circle**\
 `For Masters, the most decorated U.S. Paralympian, and Pike, it all started on the snow. Now they're back, and about to be married.`\
 https://nytimes.com/athletic/7109801/2026/03/12/paralympics-oksana-masters-aaron-pike-medals-wedding/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/learning/passing-notes.html
 **Could Free Child Care Last the Full Day? Some Working Parents Hope So.**\
 `New York City will start offering free child care for 2-year-olds this fall. A question for the Mamdani administration is whether it will be available past 2:30 p.m.`\
 https://nytimes.com/2026/03/12/nyregion/extended-day-child-care-free.html
-
-**He Was Convicted in a Fatal Hit and Run. Why Isn’t He in Prison?**\
-`A New Jersey jury found Harris Jacobs guilty of leaving the scene of an accident after he struck a pedestrian with his S.U.V. But jurors would not have the final word.`\
-https://nytimes.com/2026/03/12/nyregion/new-jersey-pardon-phil-murphy.html
 
