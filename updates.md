@@ -1,3 +1,7 @@
+**Treasure Hunter Released From Prison After Refusing to Turn Over Gold Coins**\
+`Thomas G. Thompson was held in contempt for 10 years for repeatedly denying he knew the whereabouts of 500 missing gold coins.`\
+https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html
+
 **Ukraine to Make Drone Videos Available for Training AI Models**\
 `Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
 https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
