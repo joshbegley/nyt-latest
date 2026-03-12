@@ -1,3 +1,11 @@
+**Before Landing on the Moon, a Collision Close Call Haunted a Space Mission**\
+`The experience of the private Blue Ghost mission in lunar orbit a year ago highlights a growing number of “red alert” incidents above Earth’s neighbor.`\
+https://nytimes.com/2026/03/12/science/moon-red-alert-close-call.html
+
+**After Bam Adebayo's 83-point outburst, what's the over/under for his points vs. Bucks?**\
+`One bettor wagered $1,500 live Tuesday night at +175 odds that Bam Adebayo would score more than 76 points. They won more than $4,000.`\
+https://nytimes.com/athletic/7108615/2026/03/12/bam-adebayo-prop-bets-points-odds-nba/
+
 **‘Bughouse’ Review: Inside a Solitary Artist’s Unwieldy Mind**\
 `Henry Darger, a recluse who left behind thousands of wild illustrations upon his death, is the subject of fascination in this one-man show.`\
 https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
