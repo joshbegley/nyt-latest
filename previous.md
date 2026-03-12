@@ -1,3 +1,11 @@
+**At China’s Big Political Meeting, a Rare Debate About Inequality**\
+`China’s plan to raise pensions for farmers by less than $3 a month prompted rare criticism from lawmakers about the country’s threadbare social safety net.`\
+https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
+
+**Pep Guardiola tore up his own playbook against Real Madrid - it could be his biggest mistake**\
+`Keeping things tight away from home is a fundamental part of the Guardiola playbook - that went out the window last night at the Bernabeu`\
+https://nytimes.com/athletic/7109974/2026/03/12/real-madrid-manchester-city-pep-tactics/
+
 **Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
 `For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
 https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
@@ -5,6 +13,10 @@ https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
 **Jimmy Kimmel Addresses the Notion of a Drone Strike on California**\
 `“Isn’t this how ‘Ironman 3’ started?” Kimmel said after the F.B.I. warned state officials tobb  prepare for a retaliatory Iranian drone strike on the West Coast ahead of Sunday’s Academy Awards.`\
 https://nytimes.com/2026/03/12/arts/television/jimmy-kimmel-drone-strike-california.html
+
+**Dembele just reminded the world why he is special - and PSG should be feared**\
+`The Ballon d'Or winner has had a frustrating season but was at his rampant best against Chelsea`\
+https://nytimes.com/athletic/7097963/2026/03/12/ousmane-dembele-psg-chelsea-champions-league/
 
 **Word of the Day: epitome**\
 `This word has appeared in 210 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7104885/2026/03/12/fantasy-premier-league-gameweek-
 **Evan Ferguson and Kaoru Mitoma once looked like the future of Brighton. Can they be reunited?**\
 `The Ireland striker and Japan winger formed a strong partnership three years ago but injuries and loss of form have hampered the both`\
 https://nytimes.com/athletic/7100800/2026/03/12/evan-ferguson-and-kaoru-mitoma-once-looked-like-the-future-of-brighton-can-they-be-reunited/
-
-**Forest having to twice slash ticket prices is a wake-up call that fans are more than just customers**\
-`This season has been an expensive one for the club's fans, and their loyalty cannot be guaranteed if matchdays become too expensive`\
-https://nytimes.com/athletic/7108691/2026/03/12/nottingham-forest-tickets-discount/
-
-**What are the modern Everton?**\
-`Times are changing at the Merseyside club, but how do they hold on to their identity while pushing forward into the modern era? `\
-https://nytimes.com/athletic/7107803/2026/03/12/everton-identity-premier-league-hill-dickinson/
-
-**Israeli Attacks Rock Beirut, Displacing Hundreds of Thousands**\
-`Explosions shook Lebanon’s capital, Beirut, from Wednesday night into Thursday morning as Israel unleashed a wave of attacks that it said targeted Hezbollah.`\
-https://nytimes.com/video/world/middleeast/100000010770501/beirut-lebanon-israel-hezbollah.html
 

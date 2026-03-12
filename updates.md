@@ -1,3 +1,15 @@
+**At China’s Big Political Meeting, a Rare Debate About Inequality**\
+`China’s plan to raise pensions for farmers by less than $3 a month prompted rare criticism from lawmakers about the country’s threadbare social safety net.`\
+https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
+
+**Pep Guardiola tore up his own playbook against Real Madrid - it could be his biggest mistake**\
+`Keeping things tight away from home is a fundamental part of the Guardiola playbook - that went out the window last night at the Bernabeu`\
+https://nytimes.com/athletic/7109974/2026/03/12/real-madrid-manchester-city-pep-tactics/
+
+**Dembele just reminded the world why he is special - and PSG should be feared**\
+`The Ballon d'Or winner has had a frustrating season but was at his rampant best against Chelsea`\
+https://nytimes.com/athletic/7097963/2026/03/12/ousmane-dembele-psg-chelsea-champions-league/
+
 **Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
 `For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
 https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
