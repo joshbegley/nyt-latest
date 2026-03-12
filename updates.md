@@ -1,3 +1,7 @@
+**Attacks on two tankers prompt Iraq to close oil terminals.**\
+`By Josh Holder and Elena Shao`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/attacks-on-two-tankers-prompt-iraq-to-close-oil-terminals
+
 **The failure of Premier League clubs in Europe owes more to wasted money than fatigue**\
 `Tired or not, Premier League clubs have wasted their advantage in Europe with bad recruitment`\
 https://nytimes.com/athletic/7111264/2026/03/12/premier-league-champions-league-wasted-money/
