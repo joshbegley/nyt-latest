@@ -1,3 +1,7 @@
+**The Alternative Premier League Table: No 30 – Supporter sentiment and expected points**\
+`The numbers that show that fan sentiment generally tracks with team performance – but not entirely `\
+https://nytimes.com/athletic/7108231/2026/03/12/alternative-premier-league-table-no-30-fanalysis-xpts/
+
 **A Third of Americans Have Cut Spending or Borrowed Money for Health Care**\
 `As medical costs rise, more than 80 million people have made sacrifices like skipping meals and driving less, a new survey finds.`\
 https://nytimes.com/2026/03/12/health/health-costs-cutting-back.html
