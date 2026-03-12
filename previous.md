@@ -1,3 +1,11 @@
+**The Pulse: We’ve got gripes today**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7108844/2026/03/12/bam-adebayo-83-legitimate-the-pulse/
+
+**Bears free-agency reset: Kevin Byard's exit, Maxx Crosby's detour and a new left tackle?**\
+`As the first wave of NFL free agency crashes ashore, the Bears continue working to improve a playoff roster.`\
+https://nytimes.com/athletic/7109275/2026/03/12/bears-free-agency-reset-kevin-byard/
+
 **Cowboys free-agency reset: Adding Rashan Gary and trading for draft picks**\
 `Dallas got free agency started with a trade for Gary and added a third-round pick Wednesday when dealing Osa Odighizuwa to the 49ers.`\
 https://nytimes.com/athletic/7109617/2026/03/12/cowboys-free-agency-analysis-rashan-gary-trades/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109214/2026/03/12/march-madness-2026-miami-ohio-me
 **Canadiens’ decision to play Jacob Fowler not nearly as hard as the one that awaits**\
 `In addition to Fowler, the Canadiens welcomed Alexandre Texier back to the lineup. Keeping him there will require hard decisions.`\
 https://nytimes.com/athletic/7110647/2026/03/12/canadiens-jacob-fowler-senators-win/
-
-**James Hagens, No. 3 Bruins left wing? Where the No. 7 pick could start**\
-`If Boston College misses the NCAA Tournament, Hagens could be headed for the Bruins roster. But where does he fit?`\
-https://nytimes.com/athletic/7108783/2026/03/12/james-hagens-bruins-lineup-fit/
-
-**After a year on the move, James Tibbs III is finding his footing with Dodgers**\
-`Of late, Tibbs looks like the version of himself that the Dodgers loved in the pre-draft process.`\
-https://nytimes.com/athletic/7110190/2026/03/12/james-tibbs-los-angeles-dodgers-future/
 

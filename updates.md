@@ -1,3 +1,11 @@
+**The Pulse: We’ve got gripes today**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7108844/2026/03/12/bam-adebayo-83-legitimate-the-pulse/
+
+**Bears free-agency reset: Kevin Byard's exit, Maxx Crosby's detour and a new left tackle?**\
+`As the first wave of NFL free agency crashes ashore, the Bears continue working to improve a playoff roster.`\
+https://nytimes.com/athletic/7109275/2026/03/12/bears-free-agency-reset-kevin-byard/
+
 **Cowboys free-agency reset: Adding Rashan Gary and trading for draft picks**\
 `Dallas got free agency started with a trade for Gary and added a third-round pick Wednesday when dealing Osa Odighizuwa to the 49ers.`\
 https://nytimes.com/athletic/7109617/2026/03/12/cowboys-free-agency-analysis-rashan-gary-trades/
