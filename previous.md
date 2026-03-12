@@ -1,3 +1,23 @@
+**Trinidad Chambliss says eligibility uncertainty cost him shot at video game cover**\
+`EA Sports told Chambliss on Monday that it “just can’t stomach the risk” of him not suiting up for the Rebels this fall, the filing said.`\
+https://nytimes.com/athletic/7113154/2026/03/12/trinidad-chambliss-ea-sports-cover-eligibility/
+
+**Iran’s New Leader Vows to Keep a Crucial Oil Gateway Blocked**\
+`Also, a Michigan synagogue was attacked. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/12/briefing/iran-new-leader-housing-bill.html
+
+**Brazil reveals World Cup away kit with Jordan Brand collaboration**\
+`Brazil is aligning with the Jordan Brand for one of its World Cup jersey offerings this summer`\
+https://nytimes.com/athletic/7111379/2026/03/12/brazil-jordan-brand-world-cup-kit-away-jersey/
+
+**With Disputed Legal Maneuver, Trump Tries to Set Policy Without Legislation**\
+`By suing Republican states and making sharp reversals in old cases, the Trump administration is using courts to fast-track major shifts in policy.`\
+https://nytimes.com/2026/03/12/us/politics/trump-lawsuits-settlements.html
+
+**Roscoe Robinson, Gospel Star Who Minted 1960s R&B Hits, Dies at 97**\
+`Although he wasn’t blind, he sang in three different gospel groups known as the Blind Boys before making a splash on the R&B and pop charts.`\
+https://nytimes.com/2026/03/12/arts/music/roscoe-robinson-dead.html
+
 **Places of Worship, Magnets for Violence: Synagogue Attacks Have Risen**\
 `The attack on Temple Israel is just the most recent in a string of attacks. They have taken place in the United States and around the world.`\
 https://nytimes.com/2026/03/12/us/synagogue-attacks-united-states-world.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/12/t-magazine/fashion-shows-takeaways-wearable-cloth
 **U.S. Officials Say Iran Is Laying Mines in the Strait of Hormuz**\
 `A fifth of the world’s oil passes through the strait, making it a critical choke point in global commerce.`\
 https://nytimes.com/2026/03/12/world/middleeast/iran-mines-strait-of-hormuz-us.html
-
-**Why Is Iran Blocking the Strait of Hormuz?**\
-`With attacks and threats, Tehran is using the world’s most important transit point for oil and gas as leverage against its enemies.`\
-https://nytimes.com/2026/03/12/world/middleeast/strait-of-hormuz-iran-blockade-explained.html
-
-**Steve Kerr: No conversation of drop-dead date for shutting Steph Curry down**\
-`Curry hasn't played for the Golden State Warriors since Jan. 30, and will miss at least another six games.`\
-https://nytimes.com/athletic/7113111/2026/03/12/steve-kerr-steph-curry-warriors-injury-update/
-
-**'That's When the Boos Started': The Oscars Speech That Lost the Room**\
-`Days after the 2003 invasion of Iraq, Michael Moore used his moment in the spotlight to rail against the war. Here’s what he and others onstage remember.`\
-https://nytimes.com/interactive/2026/03/12/magazine/oscar-academy-award-michael-moore-speech.html
-
-**It Was 86. Then It Snowed. A ‘Wild’ Weather Shift Jolts the Mid-Atlantic.**\
-`Washington, D.C., was warm and sunny on Wednesday. By Thursday, snow was falling.`\
-https://nytimes.com/2026/03/12/weather/snow-cold-rain-forecast-east-coast-whiplash.html
-
-**Artemi Panarin reflects on end of Rangers tenure, what went wrong and more**\
-`“Felt pretty sad in the beginning but also explained to myself why it’s better,” said Panarin, who is now with the Kings.`\
-https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-trade-comments/
 
