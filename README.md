@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7109905/2026/03/12/matt-shaw-cubs-first-base-alex-b
 `What makes Crosby special could also take a year or two off his career down the road. Is that what scared off the Ravens?`\
 https://nytimes.com/athletic/7110346/2026/03/12/maxx-crosby-trade-injuries-physical/
 
-**Could Lagrange play Dellin Betances-type role for Yankees this year? 'Dynamite'**\
+**Could Carlos Lagrange play Dellin Betances-type role for Yankees this year?**\
 `The Yankees don’t want Lagrange to turn into Betances just yet, though. They still believe he could become a high-level starting pitcher.`\
 https://nytimes.com/athletic/7110419/2026/03/12/carlos-lagrange-yankees-103-mph-dellin-betances-comparison/
 
