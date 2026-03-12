@@ -1,3 +1,19 @@
+**This Is the Democrats’ Biggest Problem**\
+`The fight over ICE actions is a symptom of a much larger, more fundamental debate happening in America, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010742036/this-is-the-democrats-biggest-problem.html
+
+**49ers reunite with Dre Greenlaw, add linebacker on 1-year, $7.5 million deal**\
+`Greenlaw was limited by injury and suspension to just eight regular-season games last season in Denver.`\
+https://nytimes.com/athletic/7112853/2026/03/12/dre-greenlaw-49ers-nfl-free-agency-2026/
+
+**The Hundred 2026: Lavish bids, high stakes and a seven-hour auction as cricketers go under the hammer**\
+`The signing of Pakistan's Abrar Ahmed by Sunrisers Leeds, owned by the Indian Sun Group, was the highlight of The Hundred's first auction`\
+https://nytimes.com/athletic/7111593/2026/03/12/hundred-abrar-ahmed-2026-auction-coles/
+
+**‘The Libbiest Lib Who Ever Libbed’**\
+`Gavin Newsom is more like Hillary Clinton than Barack Obama, and that’s bad news for any presidential aspirations Newsom may have, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010742053/the-libbiest-lib-who-ever-libbed.html
+
 **NWSL doubled in size over the last decade. The 2026 season will be a pivotal 'next chapter'**\
 `With salary cap talk and continued expansion, will NWSL's next chapter be propelled or stymied by its own ambitions?`\
 https://nytimes.com/athletic/7111956/2026/03/12/nwsl-2026-season-next-chapter/

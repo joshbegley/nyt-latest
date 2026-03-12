@@ -1,3 +1,19 @@
+**This Is the Democrats’ Biggest Problem**\
+`The fight over ICE actions is a symptom of a much larger, more fundamental debate happening in America, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010742036/this-is-the-democrats-biggest-problem.html
+
+**49ers reunite with Dre Greenlaw, add linebacker on 1-year, $7.5 million deal**\
+`Greenlaw was limited by injury and suspension to just eight regular-season games last season in Denver.`\
+https://nytimes.com/athletic/7112853/2026/03/12/dre-greenlaw-49ers-nfl-free-agency-2026/
+
+**The Hundred 2026: Lavish bids, high stakes and a seven-hour auction as cricketers go under the hammer**\
+`The signing of Pakistan's Abrar Ahmed by Sunrisers Leeds, owned by the Indian Sun Group, was the highlight of The Hundred's first auction`\
+https://nytimes.com/athletic/7111593/2026/03/12/hundred-abrar-ahmed-2026-auction-coles/
+
+**‘The Libbiest Lib Who Ever Libbed’**\
+`Gavin Newsom is more like Hillary Clinton than Barack Obama, and that’s bad news for any presidential aspirations Newsom may have, MS NOW’s Chris Hayes argues on “Interesting Times.”`\
+https://nytimes.com/video/opinion/100000010742053/the-libbiest-lib-who-ever-libbed.html
+
 **NWSL doubled in size over the last decade. The 2026 season will be a pivotal 'next chapter'**\
 `With salary cap talk and continued expansion, will NWSL's next chapter be propelled or stymied by its own ambitions?`\
 https://nytimes.com/athletic/7111956/2026/03/12/nwsl-2026-season-next-chapter/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7112544/2026/03/12/nhl-contract-extensions-free-age
 **New York City Is Enjoying an Irish Pubaissance**\
 `Three Irish bars for the 21st century reveler just in time for St. Patrick’s Day.`\
 https://nytimes.com/2026/03/12/dining/new-york-city-is-enjoying-an-irish-pubaissance.html
-
-**Attack on Synagogue Comes Amid Significant Rise in Antisemitic Incidents**\
-`The number of assaults and threats against Jews has increased in recent years, with anxiety growing further since the start of the U.S.-Israeli war with Iran.`\
-https://nytimes.com/2026/03/12/us/antisemitism-synagogue-attack-michigan.html
-
-**Trey Hendrickson passes physical, officially signs 4-year deal with Ravens**\
-`Hendrickson, a four-time Pro Bowler, has 81 sacks and 15 forced fumbles throughout his nine-year career. `\
-https://nytimes.com/athletic/7112674/2026/03/12/trey-hendrickson-ravens-nfl-free-agency-2026/
-
-**How to watch San Jose State vs. New Mexico men's basketball: MWC Tournament Time, TV, streaming**\
-`Find out how to watch the San Jose State Spartans play the New Mexico Lobos, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112810/2026/03/12/san-jose-state-vs-new-mexico-stream-how-to-watch-march-12/
-
-**How to watch Abilene Christian vs. Utah Tech men's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Abilene Christian Wildcats play the Utah Tech Trailblazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112802/2026/03/12/abilene-christian-vs-utah-tech-stream-how-to-watch-march-12/
 
