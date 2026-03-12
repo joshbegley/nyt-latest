@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
 
 **Pep Guardiola tore up his own playbook against Real Madrid - it could be his biggest mistake**\
-`Keeping things tight away from home is a fundamental part of the Guardiola playbook - that went out the window last night at the Bernabeu`\
+`Keeping things tight away from home is a fundamental part of Guardiola's Champions League philosophy - that went out the window in Madrid`\
 https://nytimes.com/athletic/7109974/2026/03/12/real-madrid-manchester-city-pep-tactics/
 
 **Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
