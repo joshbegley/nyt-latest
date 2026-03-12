@@ -1,3 +1,23 @@
+**Executive and Judicial Branches Spar Over Control of Federal Courthouses**\
+`The head of the General Services Administration said a proposal to transfer control of courthouse buildings to the judiciary was a bad idea.`\
+https://nytimes.com/2026/03/12/us/politics/federal-courthouses-gsa.html
+
+**Fashion’s Bold New Idea: Clothes That Are Meant to Be Worn**\
+`T’s fashion editors share their takeaways from the fall runways, which featured stripped-back garments — but also shoes that channeled lily pads.`\
+https://nytimes.com/2026/03/12/t-magazine/fashion-shows-takeaways-wearable-clothes.html
+
+**U.S. Officials Say Iran Is Laying Mines in the Strait of Hormuz**\
+`A fifth of the world’s oil passes through the strait, making it a critical choke point in global commerce.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-mines-strait-of-hormuz-us.html
+
+**Why Is Iran Blocking the Strait of Hormuz?**\
+`With attacks and threats, Tehran is using the world’s most important transit point for oil and gas as leverage against its enemies.`\
+https://nytimes.com/2026/03/12/world/middleeast/strait-of-hormuz-iran-blockade-explained.html
+
+**Steve Kerr: No conversation of drop-dead date for shutting Steph Curry down**\
+`Curry hasn't played for the Golden State Warriors since Jan. 30, and will miss at least another six games.`\
+https://nytimes.com/athletic/7113111/2026/03/12/steve-kerr-steph-curry-warriors-injury-update/
+
 **'That's When the Boos Started': The Oscars Speech That Lost the Room**\
 `Days after the 2003 invasion of Iraq, Michael Moore used his moment in the spotlight to rail against the war. Here’s what he and others onstage remember.`\
 https://nytimes.com/interactive/2026/03/12/magazine/oscar-academy-award-michael-moore-speech.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7091609/2026/03/12/emanuel-wilson-seahawks-nfl-free
 **Duplantis breaks pole vault world record for 15th time**\
 `Duplantis beat the previous world best — set at September's World Championships — by a single centimetre.`\
 https://nytimes.com/athletic/7112856/2026/03/12/mondo-duplantis-pole-vault-world-record-fifteen/
-
-**Temple Israel Was Founded in 1941, Dedicated to the Formation of a Jewish State**\
-`The temple is one of the largest Reform institutions in America, with thousands of families and an early education center.`\
-https://nytimes.com/2026/03/12/us/temple-israel-west-bloomfield-synagogue.html
-
-**What to do with 76ers in fantasy basketball, plus Jayson Tatum's return and more**\
-`Tatum and Murray are back! Get the latest on their returns and find the best waiver wire targets ahead of the playoffs.`\
-https://nytimes.com/athletic/7112591/2026/03/12/fantasy-basketball-philadelphia-76ers-jayson-tatum/
-
-**49ers DE Bryce Huff retires at 27 after 6 NFL seasons**\
-`"I know I'm capable of giving the world more than just football," Huff said, reading from a statement.`\
-https://nytimes.com/athletic/7112912/2026/03/12/49ers-bryce-huff-retirement-announcement/
-
-**How Do You Feel About Traveling Right Now? We Want to Know.**\
-`With spring and summer travel season beginning amid a war in the Middle East, a partial government shutdown and more, we’d like to hear how your travel plans are changing.`\
-https://nytimes.com/2026/03/12/travel/2026-travel-plans-iran-war-shutdown.html
-
-**Your Oscars Guide**\
-`The Academy Awards ceremony is on Sunday. Here’s what to know.`\
-https://nytimes.com/2026/03/12/world/oscars-guide-iran-oil.html
 
