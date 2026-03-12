@@ -1,3 +1,15 @@
+**Finding Fault for the Deadly U.S. Strike on a School in Iran**\
+`Readers react to the news that a U.S. missile likely killed 175 Iranians. Also: Kennedy pushes nutrition advice on medical schools; city life for retirees.`\
+https://nytimes.com/2026/03/12/opinion/us-iran-school-missle-strike.html
+
+**How to watch Southern Utah vs. UT Arlington men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Utah Thunderbirds play the UT Arlington Mavericks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112317/2026/03/12/southern-utah-vs-ut-arlington-stream-how-to-watch-march-12/
+
+**7 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2026/03/12/books/review/new-recommended-books.html
+
 **How to watch UAPB vs. Southern men's basketball: SWAC Tournament Time, TV, streaming**\
 `Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Southern Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112312/2026/03/12/uapb-vs-southern-stream-how-to-watch-march-12/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7112287/2026/03/12/georgetown-vs-villanova-stream-h
 **How to watch UCSD vs. CSU Northridge men's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the UCSD Tritons play the CSU Northridge Matadors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112280/2026/03/12/ucsd-vs-csu-northridge-stream-how-to-watch-march-12/
-
-**Carlos Beltrán, Hall of Fame inductee, to have Mets number retired: Source**\
-`Beltrán will have his No. 15 retired this season during a yet-to-be-announced ceremony.`\
-https://nytimes.com/athletic/7112007/2026/03/12/mets-carlos-beltran-number-retire/
-
-**How to watch Clemson vs. North Carolina men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112273/2026/03/12/clemson-vs-north-carolina-stream-how-to-watch-march-12/
-
-**How to watch Loyola Chicago vs. Davidson men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Loyola Chicago Ramblers play the Davidson Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112245/2026/03/12/loyola-chicago-vs-davidson-stream-how-to-watch-march-12/
 
