@@ -1,3 +1,11 @@
+**Israel Bombards Lebanese Capital in Latest Round of Strikes**\
+`Lebanon’s health ministry said at least seven people were killed in the Beirut attacks early Thursday.`\
+https://nytimes.com/2026/03/11/world/middleeast/beirut-lebanon-israel-strikes.html
+
+**U.S. to Release 172 Million Barrels of Oil From Strategic Reserves, Energy Dept. Says**\
+`The move aims to prevent prices from rising further because of the war in the Middle East.`\
+https://nytimes.com/2026/03/11/world/middleeast/us-oil-reserves-trump-iran.html
+
 **Pentagon Bars Photographers From Briefings on Iran War**\
 `The decision is the latest move by the Pentagon to restrict access inside the department for journalists.`\
 https://nytimes.com/2026/03/11/business/media/pentagon-bars-photographers-from-briefings-on-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-vic
 **Noma Faces Los Angeles Protest Over Allegations of Past Abuse by Its Chef**\
 `At the vaunted restaurant’s pop-up in the Silver Lake neighborhood, fallout from recent reports continued.`\
 https://nytimes.com/2026/03/11/dining/noma-protests.html
-
-**Looting Lululemon: Thieves Target Athleisure Stores in New York City**\
-`Thousands of dollars’ worth of merchandise was stolen in a series of recent thefts at Lululemon and Alo stores in Manhattan and Brooklyn, the police said.`\
-https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html
-
-**Countries Scramble to Shore Up Global Oil Supplies as Ships Are Attacked**\
-`The United States and Israel launched more strikes against Iran, where crowds mourned military commanders killed in the war. Israel also bombed targets in Lebanon, where the death toll climbed.`\
-https://nytimes.com/2026/03/11/world/middleeast/oil-ships-lebanon-iran-israel.html
 

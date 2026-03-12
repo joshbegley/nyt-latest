@@ -1,3 +1,11 @@
+**Israel Bombards Lebanese Capital in Latest Round of Strikes**\
+`Lebanon’s health ministry said at least seven people were killed in the Beirut attacks early Thursday.`\
+https://nytimes.com/2026/03/11/world/middleeast/beirut-lebanon-israel-strikes.html
+
+**U.S. to Release 172 Million Barrels of Oil From Strategic Reserves, Energy Dept. Says**\
+`The move aims to prevent prices from rising further because of the war in the Middle East.`\
+https://nytimes.com/2026/03/11/world/middleeast/us-oil-reserves-trump-iran.html
+
 **Pentagon Bars Photographers From Briefings on Iran War**\
 `The decision is the latest move by the Pentagon to restrict access inside the department for journalists.`\
 https://nytimes.com/2026/03/11/business/media/pentagon-bars-photographers-from-briefings-on-iran-war.html

@@ -1,3 +1,7 @@
+**Boston World Cup games to go ahead after Kraft Sports agrees deal with town of Foxboro**\
+`Dispute over security costs of $7.8million had threatened the staging of games at Gillette Stadium in Foxboro`\
+https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-games-to-go-ahead-after-kraft-sports-agrees-deal-with-town-of-foxboro/
+
 **Israel Bombards Lebanese Capital in Latest Round of Strikes**\
 `Lebanon’s health ministry said at least seven people were killed in the Beirut attacks early Thursday.`\
 https://nytimes.com/2026/03/11/world/middleeast/beirut-lebanon-israel-strikes.html
@@ -31,10 +35,6 @@ https://nytimes.com/video/fashion/runway-couture/100000010759246/fall-winter-hig
 https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
 
 **Caitlin Clark shines among USA debutants in 110-46 rout of Senegal**\
-`Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
+`Team USA's young players, including Paige Bueckers, looked superb in the World Cup qualifier game against Senegal.`\
 https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
-
-**Noma Faces Los Angeles Protest Over Allegations of Past Abuse by Its Chef**\
-`At the vaunted restaurant’s pop-up in the Silver Lake neighborhood, fallout from recent reports continued.`\
-https://nytimes.com/2026/03/11/dining/noma-protests.html
 
