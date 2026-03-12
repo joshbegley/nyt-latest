@@ -1,3 +1,7 @@
+**‘Bughouse’ Review: Inside a Solitary Artist’s Unwieldy Mind**\
+`Henry Darger, a recluse who left behind thousands of wild illustrations upon his death, is the subject of fascination in this one-man show.`\
+https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
+
 **War has sent thousands of planes flying in the other direction.**\
 `By Zach Levitt and Jacqueline Gu`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/war-has-sent-thousands-of-planes-flying-in-the-other-direction
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7111001/2026/03/12/champions-league-best-hat-trick-
 **Aaron Judge card sells for record $5.2 million**\
 `Judge tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
 https://nytimes.com/athletic/7105279/2026/03/12/aaron-judge-record-card-sale-bowman-chrome-superfractor/
-
-**Disappointed yet thankful, Tony Dungy confirms NBC exit after 17 years**\
-`"I’ll have lasting memories of my time there, especially with Rodney Harrison who has become a tremendous friend," Dungy wrote on X.`\
-https://nytimes.com/athletic/7111267/2026/03/12/tony-dungy-nbc-football-exit/
 
