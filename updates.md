@@ -1,3 +1,11 @@
+**Ukraine to Make Drone Videos Available for Training AI Models**\
+`Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
+https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
+
+**Florida Republicans Pass Bill Requiring Proof of Citizenship to Vote**\
+`The proposed law, which would not take effect before this year’s midterm elections, was modeled in part on President Trump’s top legislative priority in Congress.`\
+https://nytimes.com/2026/03/12/us/elections/florida-voting-citizenship-proof-bill.html
+
 **Iran says 'no one' can exclude them from World Cup after Trump comments**\
 `Trump had warned Iran's participation may be a risk for “their own life and safety.”`\
 https://nytimes.com/athletic/7113217/2026/03/12/iran-world-cup-donald-trump/
