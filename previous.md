@@ -1,40 +1,40 @@
-**Sidelined from tennis by injury, Arthur Fils put in the work to return a contender**\
-`The 21-year-old had emerged as a force at the top of the sport before a back injury last year. In his time away, he souped himself up.`\
-https://nytimes.com/athletic/7110180/2026/03/12/tennis-arthur-fils-injury-comeback/
+**What we’ve learned (so far) from watching the World Baseball Classic**\
+`Here are some of our reporters' observations over the last week from Houston, Miami, San Juan and Tokyo. `\
+https://nytimes.com/athletic/7110518/2026/03/12/wbc-pool-play-takeaways/
 
-**How to watch George Washington vs. Fordham men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the George Washington Revolutionaries play the Fordham Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110934/2026/03/12/george-washington-vs-fordham-stream-how-to-watch-march-12/
+**2026 MLB Franchise Rankings: Dodgers overtake Yankees as No. 1 team of past 25 years**\
+`In the four previous editions of our completely objective, never-been-questioned franchise rankings, the Yankees were the the team to beat.`\
+https://nytimes.com/athletic/7109244/2026/03/12/2026-mlb-25-year-franchise-rankings/
 
-**Mines Have Haunted the Persian Gulf for Decades**\
-`The U.S. said this week that it attacked 16 Iranian mine-laying vessels near the Strait of Hormuz. In the 1980s, Iranian mines damaged oil tankers and a U.S. Navy warship.`\
-https://nytimes.com/2026/03/12/world/middleeast/iran-war-mines-ships-history.html
+**The A's used to let their star players walk. A move to Vegas is changing things**\
+`The Athletics have long been a franchise that let its young stars get away. That is changing now with a new city and stadium on the horizon.`\
+https://nytimes.com/athletic/7109850/2026/03/12/las-vegas-athletics-young-core-contracts/
 
-**How to watch NC State vs. Virginia men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the NC State Wolfpack play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110932/2026/03/12/nc-state-vs-virginia-stream-how-to-watch-march-12/
+**Can Rick Pitino lead St. John's all the way to the national championship?**\
+`"It’s the place I grew up in, the place I love, so it would mean everything as a New Yorker."`\
+https://nytimes.com/athletic/7109605/2026/03/12/rick-pitino-st-johns-college-basketball-national-championship-chances/
 
-**How to watch Iowa State vs. Texas Tech men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110930/2026/03/12/iowa-state-vs-texas-tech-stream-how-to-watch-march-12/
+**Falcons depth chart: Atlanta's slow start to free agency should have benefits for 2027**\
+`The Falcons roster will look quite different in 2026 after a busy first three days of free agency that saw them lose four regulars.`\
+https://nytimes.com/athletic/7109662/2026/03/12/falcons-depth-chart-nfl-free-agency/
 
-**How to watch UMass vs. Miami (OH) men's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the UMass Minutemen play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110928/2026/03/12/umass-vs-miami-oh-stream-how-to-watch-march-12/
+**In Japan, concerns arise that Netflix exclusivity dampening World Baseball Classic appeal**\
+`In Japan, where Netflix has exclusive rights to the WBC, residents are not used to paying subscription services to watch sporting events. `\
+https://nytimes.com/athletic/7109463/2026/03/12/japan-wbc-netflix-exclusive-broadcaster-concerns/
 
-**How to watch Liberty vs. Sam Houston women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Liberty Lady Flames play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110926/2026/03/12/liberty-vs-sam-houston-stream-how-to-watch-march-12/
+**The Steelers seemed to work free agency with a certain 42-year-old QB in mind**\
+`The Steelers leaned into savvy veterans at receiver and cornerback, while giving an extension to an aging defensive stalwart.`\
+https://nytimes.com/athletic/7110300/2026/03/12/pittsburgh-steelers-free-agency-aaron-rodgers/
 
-**China Wants Its Ethnic Minorities to Blend In. Now It’s the Law.**\
-`Under a new “ethnic unity” law, Mandarin Chinese must now be the language of teaching. Parents must guide their children to love the Communist Party. Neighborhoods should be mixed.`\
-https://nytimes.com/2026/03/12/world/asia/china-minorities-xinjiang-tibet.html
+**Colts' Alec Pierce has lofty goals after re-signing: 'We can be the best team in the NFL'**\
+`Quarterback stability was a key factor in Pierce staying in Indy, so he was relieved when Daniel Jones and the Colts agreed to a new deal.`\
+https://nytimes.com/athletic/7110071/2026/03/12/colts-alec-pierce-returns-goals/
 
-**How to watch Iowa vs. Ohio State men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Iowa Hawkeyes play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110923/2026/03/12/iowa-vs-ohio-state-stream-how-to-watch-march-12/
+**‘Unprecedented’ March Heat Could Topple Records Across the West**\
+`Downtown Los Angeles could get into the 90s, and Phoenix was on track to hit 100.`\
+https://nytimes.com/2026/03/12/weather/los-angeles-heat-phoenix-record.html
 
-**How to watch North Carolina Central vs. Coppin State women's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the North Carolina Central Eagles play the Coppin State Eagles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7110921/2026/03/12/north-carolina-central-vs-coppin-state-stream-how-to-watch-march-12/
+**The New York Times International Edition in Print for Friday, March 13, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/12/todays-new-york-times-international-edition
 
