@@ -1,3 +1,23 @@
+**Ron DeSantis Wants Speedy Executions, and Lots of Them**\
+`After President Trump urged states to recommit themselves to capital punishment, Florida started to put prisoners to death at rates not seen in the state’s modern history.`\
+https://nytimes.com/2026/03/12/us/the-docket-desantis-executions.html
+
+**Face, torso, toe - we watched back all the ways Gabriel makes his blocks for Arsenal**\
+`We look at the Brazilian's technique and speak to former Arsenal defender Matt Upson about why it is so effective at blocking shots.`\
+https://nytimes.com/athletic/7110886/2026/03/12/gabriel-blocks-arsenal-champions-league/
+
+**An all-Wales affair, a trip to Birmingham, and the top two – analysing Wrexham’s run-in**\
+`With 10 games to go, Wrexham sit in the final Championship play-off spot. The challenge now is to secure that top-six finish`\
+https://nytimes.com/athletic/7107415/2026/03/12/wrexham-championship-premier-league-ryan-reynolds-rob-mac/
+
+**Mortgage Rates Rise as Iran War Ripples Through Financial Markets**\
+`Mortgage rates fell below the critical 6 percent threshold just a couple weeks ago. But they’re climbing again as new inflation concerns have roiled financial markets.`\
+https://nytimes.com/2026/03/12/business/mortgage-rates-rise-above-6-percent.html
+
+**Iran’s New Supreme Leader Issues First Statement Since Taking Office**\
+`Mojtaba Khamenei struck a defiant tone and signaled that Iran would not back down in a war that has spread across the Middle East.`\
+https://nytimes.com/2026/03/12/world/middleeast/khamenei-statement.html
+
 **Attacks on two tankers prompt Iraq to close oil terminals.**\
 `By Josh Holder and Elena Shao`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/attacks-on-two-tankers-prompt-iraq-to-close-oil-terminals
