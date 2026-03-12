@@ -1,3 +1,7 @@
+**Bob Harlan, Who Steered the Green Bay Packers to a Revival, Dies at 89**\
+`Under his watch as president, the team brought on key players like Brett Favre, modernized Lambeau Field and once again became a Super Bowl threat.`\
+https://nytimes.com/2026/03/12/sports/football/bob-harlan-dead.html
+
 **Ron DeSantis Wants Speedy Executions, and Lots of Them**\
 `After President Trump urged states to recommit themselves to capital punishment, Florida started to put prisoners to death at rates not seen in the state’s modern history.`\
 https://nytimes.com/2026/03/12/us/the-docket-desantis-executions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110733/2026/03/12/bobby-hurley-arizona-state-coach
 **How to watch Tulane vs. Charlotte men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the Tulane Green Wave play the Charlotte 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111754/2026/03/12/tulane-vs-charlotte-stream-how-to-watch-march-12/
-
-**How to watch Florida State vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Florida State Seminoles play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111746/2026/03/12/florida-state-vs-duke-stream-how-to-watch-march-12/
 

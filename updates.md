@@ -1,3 +1,7 @@
+**Bob Harlan, Who Steered the Green Bay Packers to a Revival, Dies at 89**\
+`Under his watch as president, the team brought on key players like Brett Favre, modernized Lambeau Field and once again became a Super Bowl threat.`\
+https://nytimes.com/2026/03/12/sports/football/bob-harlan-dead.html
+
 **Ron DeSantis Wants Speedy Executions, and Lots of Them**\
 `After President Trump urged states to recommit themselves to capital punishment, Florida started to put prisoners to death at rates not seen in the state’s modern history.`\
 https://nytimes.com/2026/03/12/us/the-docket-desantis-executions.html
