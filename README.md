@@ -1,3 +1,19 @@
+**Mike Evans thinks he’s the 49ers’ missing piece: 'It was a no-brainer'**\
+`Evans wanted to join a Super Bowl contender, and after doing his homework before free agency, he decided the 49ers were right for him.`\
+https://nytimes.com/athletic/7112481/2026/03/12/mike-evans-49ers-nfl-free-agency/
+
+**How to watch Avalanche vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112642/2026/03/12/avalanche-vs-kraken-stream-how-to-watch-march-12/
+
+**How to watch Predators vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112638/2026/03/12/predators-vs-canucks-stream-how-to-watch-march-12/
+
+**How to watch Penguins vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112636/2026/03/12/penguins-vs-golden-knights-stream-how-to-watch-march-12/
+
 **The Largest Oil Supply Disruption in History**\
 `A look at the war in Iran’s effects on global energy markets, two activists whose Sierra Club memberships were revoked, and more climate and environmental news.`\
 https://nytimes.com/2026/03/12/climate/the-largest-oil-supply-disruption-in-history.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/100000010766841/death-valley-wildflower-bloom.html
 **$42 Million Verdict for Iraqi Victims of U.S. Abuse Is Upheld on Appeal**\
 `The damages would be paid by a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
 https://nytimes.com/2026/03/12/us/politics/iraqi-lawsuit-torture-verdict-upheld.html
-
-**RB Rachaad White agrees to free-agent deal with Commanders: Source**\
-`White, a 2022 third-round pick, rushed for 572 yards and four touchdowns in Tampa Bay last season.`\
-https://nytimes.com/athletic/7095348/2026/03/12/rachaad-white-commanders-nfl-free-agency-2026/
-
-**How to watch Bulls vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112530/2026/03/12/bulls-vs-lakers-stream-how-to-watch-march-12/
-
-**How to watch Celtics vs. Thunder: Time, TV, streaming**\
-`Find out how to watch the Boston Celtics play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112518/2026/03/12/celtics-vs-thunder-stream-how-to-watch-march-12/
-
-**Now’s the Time to Invest in Women’s Basketball**\
-`On ‘The Athletic Show,’ Napheesa Collier explains how Unrivaled, a 3-on-3 league she co-founded featuring the W.`\
-https://nytimes.com/video/the-athletic/100000010768967/nows-the-time-to-invest-in-womens-basketball.html
 
