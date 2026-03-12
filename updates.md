@@ -1,3 +1,15 @@
+**Personal Trainers for Child Athletes? Teenagers Weigh In.**\
+`Students react to an article about how more young athletes are working with private coaches to level up.`\
+https://nytimes.com/2026/03/12/learning/personal-trainers-for-child-athletes-teenagers-weigh-in.html
+
+**Latest on Patriots' pursuit of A.J. Brown and Maxx Crosby — and their free-agent signings**\
+`Eliot Wolf isn't buying the idea that Tom Brady wouldn't have allowed a Crosby trade to the Pats. But could they still go after Brown?`\
+https://nytimes.com/athletic/7112830/2026/03/12/patriots-nfl-free-agency-aj-brown-maxx-crosby/
+
+**Mark DeRosa: 'Well aware' of tiebreaker scenarios before Team USA loss to Team Italy**\
+`DeRosa tried to clarify his comments and decisions before a loss that put Team USA in danger of exiting the World Baseball Classic early.`\
+https://nytimes.com/athletic/7112478/2026/03/12/world-baseball-classic-mark-derosa-comments-team-usa-tiebreaker/
+
 **Oscars 2026: Print Your Ballot!**\
 `Now it’s your turn to predict which nominees will win.`\
 https://nytimes.com/interactive/2026/03/12/movies/2026-oscars-ballot.html

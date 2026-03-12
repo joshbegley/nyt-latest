@@ -34,7 +34,3 @@ https://nytimes.com/video/opinion/100000010742053/the-libbiest-lib-who-ever-libb
 `With salary cap talk and continued expansion, will NWSL's next chapter be propelled or stymied by its own ambitions?`\
 https://nytimes.com/athletic/7111956/2026/03/12/nwsl-2026-season-next-chapter/
 
-**Trump to Target Forced Labor in Global Tariff Scheme**\
-`The Trump administration is expected to begin a trade investigation into whether dozens of countries have policies to combat forced labor.`\
-https://nytimes.com/2026/03/12/us/politics/trump-forced-labor-tariffs.html
-
