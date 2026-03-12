@@ -1,3 +1,7 @@
+**For Oksana Masters and Aaron Pike, U.S. Paralympic power couple, 2026 Games are full circle**\
+`For Masters, the most decorated U.S. Paralympian, and Pike, it all started on the snow. Now they're back, and about to be married.`\
+https://nytimes.com/athletic/7109801/2026/03/12/paralympics-oksana-masters-aaron-pike-medals-wedding/
+
 **IPC looking into apparent Germany protest at Russian skiers on podium**\
 `Russian athletes are competing at the Paralympics under their nation's flag for the first time since 2014.`\
 https://nytimes.com/athletic/7109736/2026/03/12/germany-protest-russia-paralympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/extended-day-child-care-free.html
 **He Was Convicted in a Fatal Hit and Run. Why Isn’t He in Prison?**\
 `A New Jersey jury found Harris Jacobs guilty of leaving the scene of an accident after he struck a pedestrian with his S.U.V. But jurors would not have the final word.`\
 https://nytimes.com/2026/03/12/nyregion/new-jersey-pardon-phil-murphy.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/12/crosswords/spelling-bee-forum.html
 
