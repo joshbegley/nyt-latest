@@ -1,3 +1,19 @@
+**Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
+`In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
+https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
+
+**Will Wade shoots down LSU question after NC State's ACC tournament loss**\
+`Wade, who spent five years at LSU, said he has already met with NC State administrators about changes the program needs to make in Year 2.`\
+https://nytimes.com/athletic/7112454/2026/03/12/will-wade-lsu-coaching-search-nc-state/
+
+**Death Valley Is Experiencing a Rare Wildflower Bloom**\
+`Death Valley, the hottest and driest place in North America, is experiencing a rare wildflower bloom after receiving a record amount of rain in the fall.`\
+https://nytimes.com/video/us/100000010766841/death-valley-wildflower-bloom.html
+
+**$42 Million Verdict for Iraqi Victims of U.S. Abuse Is Upheld on Appeal**\
+`The damages would be paid by a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
+https://nytimes.com/2026/03/12/us/politics/iraqi-lawsuit-torture-verdict-upheld.html
+
 **RB Rachaad White agrees to free-agent deal with Commanders: Source**\
 `White, a 2022 third-round pick, rushed for 572 yards and four touchdowns in Tampa Bay last season.`\
 https://nytimes.com/athletic/7095348/2026/03/12/rachaad-white-commanders-nfl-free-agency-2026/
@@ -21,16 +37,4 @@ https://nytimes.com/video/the-athletic/100000010768965/do-wnba-players-deserve-t
 **What’s Going On in This Graph? | March 18, 2026**\
 `How much does it cost to save a life?`\
 https://nytimes.com/2026/03/12/learning/whats-going-on-in-this-graph-march-18-2026.html
-
-**Will Illinois Send a Black Woman to the Senate? A Messy Primary Will Decide.**\
-`Two Black female candidates may split Democratic primary voters, and anger is growing at well-funded efforts to widen the divide.`\
-https://nytimes.com/2026/03/12/us/politics/illinois-senate-primary-stratton-kelly-krishnamoorthi.html
-
-**Banking Regulators Plan to Ease Some Capital Requirements**\
-`The Federal Reserve and other financial regulators will soon release proposals to loosen some planned rules on how much capital banks must hold in reserve to mitigate risks.`\
-https://nytimes.com/2026/03/12/business/banking-regulators-capital-requirements.html
-
-**Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
-`The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
-https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
 

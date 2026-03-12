@@ -1,3 +1,7 @@
+**Israel Drops Case Against Soldiers Accused of Abusing Palestinian Detainee**\
+`After a prisoner arrived at a hospital with broken ribs and a torn rectum, Israelis were once again at odds over the issue of mistreatment and impunity.`\
+https://nytimes.com/2026/03/12/world/middleeast/israel-detainee-abuse-charges.html
+
 **Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
 `In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
 https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
@@ -33,8 +37,4 @@ https://nytimes.com/video/the-athletic/100000010768967/nows-the-time-to-invest-i
 **Do W.N.B.A. Players Deserve to Make More Than $8 Million?**\
 `The W.N.B.A. recently distributed $8 million to its players, but Napheesa Collier argues that an 8 percent revenue share isn’t a fair slice of the pie. The Minnesota Lynx star and Unrivaled co-founder also pushes back on the narrative that her new league is a competitor to the W.N.B.A.`\
 https://nytimes.com/video/the-athletic/100000010768965/do-wnba-players-deserve-to-make-more-than-8-million.html
-
-**What’s Going On in This Graph? | March 18, 2026**\
-`How much does it cost to save a life?`\
-https://nytimes.com/2026/03/12/learning/whats-going-on-in-this-graph-march-18-2026.html
 

@@ -1,3 +1,19 @@
+**Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
+`In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
+https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
+
+**Will Wade shoots down LSU question after NC State's ACC tournament loss**\
+`Wade, who spent five years at LSU, said he has already met with NC State administrators about changes the program needs to make in Year 2.`\
+https://nytimes.com/athletic/7112454/2026/03/12/will-wade-lsu-coaching-search-nc-state/
+
+**Death Valley Is Experiencing a Rare Wildflower Bloom**\
+`Death Valley, the hottest and driest place in North America, is experiencing a rare wildflower bloom after receiving a record amount of rain in the fall.`\
+https://nytimes.com/video/us/100000010766841/death-valley-wildflower-bloom.html
+
+**$42 Million Verdict for Iraqi Victims of U.S. Abuse Is Upheld on Appeal**\
+`The damages would be paid by a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
+https://nytimes.com/2026/03/12/us/politics/iraqi-lawsuit-torture-verdict-upheld.html
+
 **RB Rachaad White agrees to free-agent deal with Commanders: Source**\
 `White, a 2022 third-round pick, rushed for 572 yards and four touchdowns in Tampa Bay last season.`\
 https://nytimes.com/athletic/7095348/2026/03/12/rachaad-white-commanders-nfl-free-agency-2026/
