@@ -1,3 +1,7 @@
+**The Alternative Premier League Table: No 30 – Supporter sentiment and expected points**\
+`The numbers that show that fan sentiment generally tracks with team performance – but not entirely `\
+https://nytimes.com/athletic/7108231/2026/03/12/alternative-premier-league-table-no-30-fanalysis-xpts/
+
 **A Third of Americans Have Cut Spending or Borrowed Money for Health Care**\
 `As medical costs rise, more than 80 million people have made sacrifices like skipping meals and driving less, a new survey finds.`\
 https://nytimes.com/2026/03/12/health/health-costs-cutting-back.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/business/gas-oil-stocks-prices-iran.html
 **Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
 `Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
 https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
-
-**Team USA advances, avoids disaster in WBC after Italy routs Mexico**\
-`Thanks to Italy’s 9-1 win over Mexico in Pool B, Team USA avoided a tiebreaker that could have eliminated the Americans.`\
-https://nytimes.com/athletic/7109894/2026/03/11/team-usa-world-baseball-classic-advances-italy-mexico/
 
