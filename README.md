@@ -2,7 +2,7 @@
 `In an overwhelming vote, the council backed a resolution condemning Iran. A Russian proposal calling for an end to the war that didn’t assign blame or even name the parties, was rejected.`\
 https://nytimes.com/2026/03/11/world/middleeast/un-security-council-condemns-iran-strikes.html
 
-**Caitlin Clark shines with double-double in Team USA dominating victory**\
+**Caitlin Clark shines among USA debutantes in 110-46 rout of Senegal**\
 `Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
 https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
 
