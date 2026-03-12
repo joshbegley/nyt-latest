@@ -1,3 +1,7 @@
+**For Oksana Masters and Aaron Pike, U.S. Paralympic power couple, 2026 Games are full circle**\
+`For Masters, the most decorated U.S. Paralympian, and Pike, it all started on the snow. Now they're back, and about to be married.`\
+https://nytimes.com/athletic/7109801/2026/03/12/paralympics-oksana-masters-aaron-pike-medals-wedding/
+
 **IPC looking into apparent Germany protest at Russian skiers on podium**\
 `Russian athletes are competing at the Paralympics under their nation's flag for the first time since 2014.`\
 https://nytimes.com/athletic/7109736/2026/03/12/germany-protest-russia-paralympics/
