@@ -1,3 +1,15 @@
+**Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
+`Ward set a spring training record with his 17th steal, while Cora hopes Early and Payton Tolle will "become monsters."`\
+https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
+
+**Steelers agree to terms with safety Jaquan Brisker: Source**\
+`A second-round pick of the Chicago Bears in the 2022 NFL Draft, Brisker became an instant starter in Chicago.`\
+https://nytimes.com/athletic/7113529/2026/03/12/jaquan-brisker-steelers-nfl-free-agency/
+
+**Meta Delays Rollout of New A.I. Model After Performance Concerns**\
+`The tech giant pushed back the timeline after spending billions to be on the cutting edge of artificial intelligence.`\
+https://nytimes.com/2026/03/12/technology/meta-avocado-ai-model-delayed.html
+
 **Rangers condemn 'vile, cowardly' graffiti referencing Ibrox disaster**\
 `Both Rangers and Celtic issued statements on Thursday in response to fan disorder during the match.`\
 https://nytimes.com/athletic/7113368/2026/03/12/rangers-celtic-old-firm-graffiti/
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.ht
 **Florida Republicans Pass Bill Requiring Proof of Citizenship to Vote**\
 `The proposed law, which would not take effect before this year’s midterm elections, was modeled in part on President Trump’s top legislative priority in Congress.`\
 https://nytimes.com/2026/03/12/us/elections/florida-voting-citizenship-proof-bill.html
-
-**Iran says 'no one' can exclude them from World Cup after Trump comments**\
-`Trump had warned Iran's participation may be a risk for “their own life and safety.”`\
-https://nytimes.com/athletic/7113217/2026/03/12/iran-world-cup-donald-trump/
-
-**Why Jonathan Allen's signing made B.J. Hill, and the Bengals, smile**\
-`The new veteran defensive tackle could ease the burden on the veteran one already on the roster.`\
-https://nytimes.com/athletic/7113261/2026/03/12/jonathan-allen-signing-bengals-bj-hill/
 

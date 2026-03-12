@@ -1,3 +1,11 @@
+**Rangers condemn 'vile, cowardly' graffiti referencing Ibrox disaster**\
+`Both Rangers and Celtic issued statements on Thursday in response to fan disorder during the match.`\
+https://nytimes.com/athletic/7113368/2026/03/12/rangers-celtic-old-firm-graffiti/
+
+**Ukraine to Make Drone Videos Available for Training A.I. Models**\
+`Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
+https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
+
 **Weakened by War, Iran Hits Back by Strangling a Vital Waterway**\
 `The threats to shipping in the Strait of Hormuz are complicating President Trump’s calculations about how and when to end the war.`\
 https://nytimes.com/2026/03/12/us/politics/strait-of-hormuz-iran-war.html
