@@ -1,3 +1,19 @@
+**NHL rumblings: Will thin UFA market get further diluted by upcoming contract extensions?**\
+`There aren't many high-impact players headed for the free-agent market, and especially not many under age 33.`\
+https://nytimes.com/athletic/7112544/2026/03/12/nhl-contract-extensions-free-agency-2026/
+
+**New York City Is Enjoying an Irish Pubaissance**\
+`Three Irish bars for the 21st century reveler just in time for St. Patrick’s Day.`\
+https://nytimes.com/2026/03/12/dining/new-york-city-is-enjoying-an-irish-pubaissance.html
+
+**Attack on Synagogue Comes Amid Significant Rise in Antisemitic Incidents**\
+`The number of assaults and threats against Jews has increased in recent years, with anxiety growing further since the start of the U.S.-Israeli war with Iran.`\
+https://nytimes.com/2026/03/12/us/antisemitism-rising.html
+
+**Trey Hendrickson passes physical, officially signs 4-year deal with Ravens**\
+`Hendrickson, a four-time Pro Bowler, has 81 sacks and 15 forced fumbles throughout his nine-year career. `\
+https://nytimes.com/athletic/7112674/2026/03/12/trey-hendrickson-ravens-nfl-free-agency-2026/
+
 **How to watch San Jose State vs. New Mexico men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the San Jose State Spartans play the New Mexico Lobos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112810/2026/03/12/san-jose-state-vs-new-mexico-stream-how-to-watch-march-12/
