@@ -1,40 +1,40 @@
-**Are Real Madrid back? Not quite, but this was a night for Alvaro Arbeloa to rightly take plaudits**\
-`Things can turn quickly at Madrid, as Arbeloa knows. So it was understandable why he was happy to enjoy the deserved praise on Wednesday`\
-https://nytimes.com/athletic/7109886/2026/03/12/real-madrid-arbeloa-manchester-city/
+**Why FA Cup chaos could make or break your FPL gains**\
+`While there is still uncertainty about exactly where certain fixtures will land, the FA Cup draw has already provided some valuable clues`\
+https://nytimes.com/athletic/7104885/2026/03/12/fantasy-premier-league-gameweek-30-fpl-tips-fa-cup/
 
-**It's time to finally credit the Premier League's unsung defensive heroes**\
-`Certain players can stand out for their presence without touching the ball. Here's how they make an impact `\
-https://nytimes.com/athletic/7093642/2026/03/12/premier-league-unsung-defensive-heroes-kamara-kluivert-aaronson/
+**Evan Ferguson and Kaoru Mitoma once looked like the future of Brighton. Can they be reunited?**\
+`The Ireland striker and Japan winger formed a strong partnership three years ago but injuries and loss of form have hampered the both`\
+https://nytimes.com/athletic/7100800/2026/03/12/evan-ferguson-and-kaoru-mitoma-once-looked-like-the-future-of-brighton-can-they-be-reunited/
 
-**The New York Times in Print for Thursday, March 12, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/12/todays-new-york-times
+**Forest having to twice slash ticket prices is a wake-up call that fans are more than just customers**\
+`This season has been an expensive one for the club's fans, and their loyalty cannot be guaranteed if matchdays become too expensive`\
+https://nytimes.com/athletic/7108691/2026/03/12/nottingham-forest-tickets-discount/
 
-**Cuba Doesn’t Have to Be Next**\
-`Catastrophe in Cuba is not a foregone conclusion.`\
-https://nytimes.com/2026/03/12/opinion/cuba-america-war-trump-iran.html
+**What are the modern Everton?**\
+`Times are changing at the Merseyside club, but how do they hold on to their identity while pushing forward into the modern era? `\
+https://nytimes.com/athletic/7107803/2026/03/12/everton-identity-premier-league-hill-dickinson/
 
-**Top-End Auction Sales Help Pull Global Art Market Out of Slump, Study Says**\
-`The top drivers included a $2.2 billion auction week in New York and strong fall fairs, according to the annual Art Basel and UBS report.`\
-https://nytimes.com/2026/03/12/arts/global-market-art-basel-ubs-report.html
+**Israeli Attacks Rock Beirut, Displacing Hundreds of Thousands**\
+`Explosions shook Lebanon’s capital, Beirut, from Wednesday night into Thursday morning as Israel unleashed a wave of attacks that it said targeted Hezbollah.`\
+https://nytimes.com/video/world/middleeast/100000010770501/beirut-lebanon-israel-hezbollah.html
 
-**Crystal Palace fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
-`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
-https://nytimes.com/athletic/7108811/2026/03/12/crystal-palace-fans-premier-league-man-city-arsenal/
+**Antonin Kinsky is not alone: Six times a shocking performance changed a sporting career**\
+`After Tottenham goalkeeper Antonin Kinsky's disastrous Champions League outing, The Athletic looks at other career-damaging performances`\
+https://nytimes.com/athletic/7108155/2026/03/12/antonin-kinsky-is-not-alone-six-times-a-shocking-performance-changed-a-sporting-career/
 
-**West Ham fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
-`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
-https://nytimes.com/athletic/7108479/2026/03/12/west-ham-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
+**Slot's record after 100 Liverpool games is second to none. Why doesn't it feel that way?**\
+`Examining the wider trends around Liverpool's form - plus our writers choose their favourite moments from the Slot era`\
+https://nytimes.com/athletic/7104958/2026/03/12/arne-slot-liverpool-100-games/
 
-**Wolves fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
-`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
-https://nytimes.com/athletic/7108463/2026/03/12/wolves-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
+**Arsenal vs Manchester City: Analysing the Premier League title race**\
+`How has the Premier League title race moved on over the past couple of weeks? We explain what the numbers say on Arsenal and Manchester City`\
+https://nytimes.com/athletic/7107830/2026/03/12/arsenal-vs-manchester-city-premier-league-title-race/
 
-**Newcastle fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
-`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
-https://nytimes.com/athletic/7108509/2026/03/12/newcastle-fans-who-would-you-prefer-to-win-the-premier-league-man-city-or-arsenal-and-why/
+**Wrexham's goalposts are confusing people**\
+`'Bounce-back' goals are causing bemusement at the Racecourse Ground but the answer lies in a UEFA regulation`\
+https://nytimes.com/athletic/7107919/2026/03/12/wrexham-goalposts-ball-bounce/
 
-**Fulham fans: Who would you prefer to win the Premier League – Man City or Arsenal? And why?**\
-`We want to know whether you would prefer Manchester City or Arsenal to win the Premier League title - and why?`\
-https://nytimes.com/athletic/7108810/2026/03/12/fulham-fans-premier-league-man-city-arsenal/
+**Substituting Saka: Big games require big decisions, Mikel Arteta made his and was rewarded**\
+`When it became clear it was not Saka's night in Leverkusen, Arteta had the luxury of bringing on Madueke - and it worked`\
+https://nytimes.com/athletic/7109474/2026/03/12/arsenal-saka-madueke-arteta-leverkusen/
 
