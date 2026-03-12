@@ -34,7 +34,7 @@ https://nytimes.com/2026/03/12/crosswords/spelling-bee-forum.html
 `China’s plan to raise pensions for farmers by less than $3 a month prompted rare criticism from lawmakers about the country’s threadbare social safety net.`\
 https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
 
-**Pep Guardiola tore up his own playbook against Real Madrid - it could be his biggest mistake**\
-`Keeping things tight away from home is a fundamental part of Guardiola's Champions League philosophy - that went out the window in Madrid`\
-https://nytimes.com/athletic/7109974/2026/03/12/real-madrid-manchester-city-pep-tactics/
+**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
+`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
+https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
 
