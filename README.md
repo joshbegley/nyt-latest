@@ -7,7 +7,7 @@ https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/iraq-an
 https://nytimes.com/2026/03/12/sports/ron-delany-dead.html
 
 **How Trump’s Election Lie Could Impact 2026 Midterms**\
-`he Trump administration is putting the weight of the federal government behind his false claims about the 2020 election in order to investigate key swing states ahead of the midterms.`\
+`The Trump administration is putting the weight of the federal government behind his false claims about the 2020 election in order to investigate key swing states ahead of the midterms.`\
 https://nytimes.com/video/us/elections/100000010766599/trump-false-claim-election-stolen-impact-2026-midterms.html
 
 **New Yorkers, Do You Have an Interesting Storage Unit Collection?**\
