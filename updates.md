@@ -1,3 +1,11 @@
+**Maxx Crosby on Ravens backing out of trade: I'm 'a Raider. I'm back'**\
+`Crosby's post is the first public response from him or the Raiders outside of a statement confirming Baltimore's withdrawal from the deal.`\
+https://nytimes.com/athletic/7110559/2026/03/12/maxx-crosby-responds-raiders-ravens-trade/
+
+**Meet Travis Binnion, the Man United coach credited with getting Benjamin Sesko scoring**\
+`The Athletic speaks to multiple people to tell the story of a coach described as "honest and truthful and to the point"`\
+https://nytimes.com/athletic/7108085/2026/03/12/travis-binnion-manchester-united-sesko/
+
 **Alyssa Healy: Classy, combative and a significant figure in women’s cricket history**\
 `The Australian wicketkeeper-batsman has called time on her long and trophy-laden career. She leaves an indelible mark`\
 https://nytimes.com/athletic/7103981/2026/03/12/alyssa-healy-australia-cricket-retirement/
