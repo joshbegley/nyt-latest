@@ -1,3 +1,7 @@
+**Valverde scored a hat-trick… and was also Real Madrid's key defender**\
+`He got all the headlines for his treble, but here is the vital work that Valverde did that you might not have noticed`\
+https://nytimes.com/athletic/7111008/2026/03/12/valverde-hat-trick-real-madrid-champions-league-defender/
+
 **The Lakers' improved defense could shape their playoff push. Can they sustain it?**\
 `The Lakers' defensive improvements from the second to third quarters of the season look to be carrying over.`\
 https://nytimes.com/athletic/7107202/2026/03/12/nba-lakers-defense-improved-playoff-push/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109166/2026/03/12/red-sox-jarren-duran-offense/
 **Yadier Molina is on a Hall of Fame mosaic in Puerto Rico. Peers don't think it's a jinx**\
 `“They inspired all of us, in every (career) field pretty much, to aspire to something gigantic like them,” artist Roberto Biaggi said.`\
 https://nytimes.com/athletic/7109812/2026/03/12/yadier-molina-hall-of-fame-chances-mosaic/
-
-**Eagles 7-round mock draft: Does a tight end make sense, post-free agency?**\
-`Based on need, offensive tackle should be the top priority in the first round. But if Kenyon Sadiq is available, he'd be hard to pass on.`\
-https://nytimes.com/athletic/7093427/2026/03/12/eagles-mock-nfl-draft-kenyon-sadiq/
 
