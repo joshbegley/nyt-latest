@@ -1,3 +1,11 @@
+**‘Robbing Them Blind’: Live Nation Employees Joked About Fees**\
+`A series of private exchanges in the messaging system Slack were revealed as exhibits in the Justice Department’s antitrust lawsuit against the concert giant.`\
+https://nytimes.com/2026/03/12/arts/music/live-nation-ticketmaster-trial-fees-slacks.html
+
+**How to watch Wizards vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111555/2026/03/12/wizards-vs-magic-stream-how-to-watch-march-12/
+
 **How to watch 76ers vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111549/2026/03/12/76ers-vs-pistons-stream-how-to-watch-march-12/

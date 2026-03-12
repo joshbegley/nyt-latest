@@ -1,3 +1,11 @@
+**‘Robbing Them Blind’: Live Nation Employees Joked About Fees**\
+`A series of private exchanges in the messaging system Slack were revealed as exhibits in the Justice Department’s antitrust lawsuit against the concert giant.`\
+https://nytimes.com/2026/03/12/arts/music/live-nation-ticketmaster-trial-fees-slacks.html
+
+**How to watch Wizards vs. Magic: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Orlando Magic, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111555/2026/03/12/wizards-vs-magic-stream-how-to-watch-march-12/
+
 **How to watch 76ers vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111549/2026/03/12/76ers-vs-pistons-stream-how-to-watch-march-12/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/arts/design/heizer-gagosian-review.html
 **War With Iran Puts Further Strain on America’s Pessimistic Farmers**\
 `Nearly 75 percent of farmers surveyed before the war said the crop sector was in a recession. They face bigger hurdles this planting season.`\
 https://nytimes.com/2026/03/12/business/war-iran-farmers-agriculture-costs.html
-
-**James Clyburn to Run for House Again, Defying Push for Generational Change**\
-`The Democratic power broker had kept his plans under wraps but signaled he wanted to be around to see the first Black speaker elected, a milestone the party is well positioned to reach next year.`\
-https://nytimes.com/2026/03/12/us/politics/james-clyburn-reelection.html
-
-**The Windup: Italy advances in WBC, bringing USA with it**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7111440/2026/03/12/italy-mexico-usa-wbc-pool-play-the-windup/
 
