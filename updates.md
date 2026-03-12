@@ -1,3 +1,7 @@
+**'Did you tell him you’re firing him yet?' The brutal reality of golf’s most intimate partnership**\
+`There’s no contracts. No job security. A caddie can get hired or fired at any time. But when a pair is together, they’re together.`\
+https://nytimes.com/athletic/7107845/2026/03/12/golf-player-caddie-relationship/
+
 **If Bam Adebayo can score 83, could someone else actually challenge Wilt's 100-point game?**\
 `Matching Chamberlain's 100 has been considered impossible. But the NBA's current pace of play and tanking make it seems less far-fetched.`\
 https://nytimes.com/athletic/7109344/2026/03/12/bam-adebayo-83-wilt-chamberlain-100-record-column/
