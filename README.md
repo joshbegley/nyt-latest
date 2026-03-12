@@ -1,3 +1,11 @@
+**Chelsea's Ramirez may miss rest of season after injury setback - Bompastor**\
+`Ramirez has not appeared for Chelsea this term since having surgery on a hamstring injury sustained in a pre-season game in August.`\
+https://nytimes.com/athletic/7112060/2026/03/12/mayra-ramirez-chelsea-injury-news/
+
+**Bloomberg to Back Protégé in Crowded N.Y.C. House Race With Super PAC**\
+`The billionaire endorsed Assemblyman Micah Lasher in the race to replace Representative Jerrold Nadler, and is said to be willing to spend up to $5 million to help his former aide.`\
+https://nytimes.com/2026/03/12/nyregion/bloomberg-lasher-super-pac.html
+
 **Scoop City: Ravens explain themselves, sort of**\
 `The Ravens explained themselves and NFL insiders reacted, plus quarterback notes as Kyler Murray visits Minnesota`\
 https://nytimes.com/athletic/7112075/2026/03/12/ravens-trade-maxx-crosby-raiders-kyler-murray-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7112110/2026/03/12/rangers-vs-jets-stream-how-to-wa
 **How to watch Blackhawks vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Chicago Blackhawks play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112097/2026/03/12/blackhawks-vs-mammoth-stream-how-to-watch-march-12/
-
-**How to watch Oilers vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7112079/2026/03/12/oilers-vs-stars-stream-how-to-watch-march-12/
-
-**Police Respond to Shooting at Michigan Temple**\
-`There were reports of an active shooter at a synagogue outside Detroit on Thursday, the authorities said.`\
-https://nytimes.com/2026/03/12/us/temple-israel-michigan-shooting.html
 
