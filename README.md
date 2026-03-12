@@ -1,3 +1,11 @@
+**How to watch Loyola Chicago vs. Davidson men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Loyola Chicago Ramblers play the Davidson Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112245/2026/03/12/loyola-chicago-vs-davidson-stream-how-to-watch-march-12/
+
+**How to watch Colorado State vs. San Diego State men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the Colorado State Rams play the San Diego State Aztecs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112236/2026/03/12/colorado-state-vs-san-diego-state-stream-how-to-watch-march-12/
+
 **How to watch Maryland-Eastern Shore vs. North Carolina Central men's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the Maryland-Eastern Shore Hawks play the North Carolina Central Eagles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112216/2026/03/12/maryland-eastern-shore-vs-north-carolina-central-stream-how-to-watch-march-12/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/bloomberg-lasher-super-pac.html
 **Scoop City: Ravens explain themselves, sort of**\
 `The Ravens explained themselves and NFL insiders reacted, plus quarterback notes as Kyler Murray visits Minnesota`\
 https://nytimes.com/athletic/7112075/2026/03/12/ravens-trade-maxx-crosby-raiders-kyler-murray-nfl/
-
-**Judge Dismisses Lawsuit Over Trump’s Funding Freeze for Gateway Tunnel**\
-`The case is moot, a federal judge said, because the administration has resumed the flow of more than $200 million in funding that it had temporarily stopped.`\
-https://nytimes.com/2026/03/12/nyregion/gateway-hudson-tunnel-project-trump-funding.html
-
-**College Basketball Invitational will not host a tournament this year**\
-`The College Basketball Crown tournament in Las Vegas has emerged as a preferred alternative among non-NCAA qualifiers.`\
-https://nytimes.com/athletic/7111800/2026/03/12/college-basketball-invitational-tournament-cancelled/
 
