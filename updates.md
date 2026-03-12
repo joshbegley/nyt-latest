@@ -1,3 +1,7 @@
+**The Complicated Oscars Night Feelings Over ‘One Battle After Another’**\
+`Wesley Morris and the scholar Daphne A. Brooks discuss the mixed reception of Black women in “One Battle After Another.”`\
+https://nytimes.com/video/podcasts/100000010766945/the-complicated-oscars-night-feelings-over-one-battle-after-another.html
+
 **Deadly Attack on Oil Tankers Prompts Iraq to Close Oil Terminals**\
 `An attack off the Iraqi coast engulfed two oil tankers in flames, killing at least one person. Senior Iraqi officials believe the attack was Iranian.`\
 https://nytimes.com/2026/03/12/world/middleeast/iraq-oil-tankers-attack-iran-war.html
