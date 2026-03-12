@@ -1,3 +1,7 @@
+**Pentagon Bars Photographers From Briefings on Iran War**\
+`The decision is the latest move by the Pentagon to restrict access inside the department for journalists.`\
+https://nytimes.com/2026/03/11/business/media/pentagon-bars-photographers-from-briefings-on-iran-war.html
+
 **Preliminary Inquiry Finds U.S. Responsible for Iran School Attack**\
 `An ongoing report determined that the United States was responsible for a Tomahawk missile strike that killed at least 175, most of them children, according to the preliminary findings of a Pentagon investigation.`\
 https://nytimes.com/video/world/middleeast/100000010769828/us-iran-school-attack-missile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/11/nyregion/lululemon-theft-nyc.html
 **Countries Scramble to Shore Up Global Oil Supplies as Ships Are Attacked**\
 `The United States and Israel launched more strikes against Iran, where crowds mourned military commanders killed in the war. Israel also bombed targets in Lebanon, where the death toll climbed.`\
 https://nytimes.com/2026/03/11/world/middleeast/oil-ships-lebanon-iran-israel.html
-
-**How to watch Idaho vs. Montana men's basketball: Big Sky Tournament Time, TV, streaming**\
-`Find out how to watch the Idaho Vandals play the Montana Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7109984/2026/03/11/how-to-watch-idaho-vs-montana-mens-basketball-big-sky-tournament-tv-channel-and-streaming-options-for-march-11/
 

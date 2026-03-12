@@ -1,3 +1,7 @@
+**Pentagon Bars Photographers From Briefings on Iran War**\
+`The decision is the latest move by the Pentagon to restrict access inside the department for journalists.`\
+https://nytimes.com/2026/03/11/business/media/pentagon-bars-photographers-from-briefings-on-iran-war.html
+
 **Preliminary Inquiry Finds U.S. Responsible for Iran School Attack**\
 `An ongoing report determined that the United States was responsible for a Tomahawk missile strike that killed at least 175, most of them children, according to the preliminary findings of a Pentagon investigation.`\
 https://nytimes.com/video/world/middleeast/100000010769828/us-iran-school-attack-missile.html
