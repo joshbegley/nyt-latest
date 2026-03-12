@@ -1,3 +1,7 @@
+**TAFC: Valverde's golden touch to sink Man City. Plus: Iran threaten to boycott World Cup**\
+`Today in TAFC: Valverde's hat-trick and the single touch that started Man City's downfall. Plus: Will Iran boycott World Cup?`\
+https://nytimes.com/athletic/7110919/2026/03/12/valverde-hat-trick-real-madrid-iran-world-cup-boycott/
+
 **The men's NCAA Tournament bubble is collapsing fast. Who still has hope?**\
 `It's been a bad past couple of days for bubble hopefuls, which means merely surviving in conference tournament play can be huge.`\
 https://nytimes.com/athletic/7110991/2026/03/12/mens-ncaa-tournament-bubble-watch-indiana-smu/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/7109905/2026/03/12/matt-shaw-cubs-first-base-alex-b
 `What makes Crosby special could also take a year or two off his career down the road. Is that what scared off the Ravens?`\
 https://nytimes.com/athletic/7110346/2026/03/12/maxx-crosby-trade-injuries-physical/
 
-**Could Lagrange play Dellin Betances-type role this year? 'Dynamite'**\
-`The Yankees don’t want Lagrange to turn into Betances just yet, though. They still believe he could be a high-level starting pitcher.`\
+**Could Lagrange play Dellin Betances-type role for Yankees this year? 'Dynamite'**\
+`The Yankees don’t want Lagrange to turn into Betances just yet, though. They still believe he could become a high-level starting pitcher.`\
 https://nytimes.com/athletic/7110419/2026/03/12/carlos-lagrange-yankees-103-mph-dellin-betances-comparison/
 
 **How the Maple Leafs collapsed: All the mistakes of a years-long undoing**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7039825/2026/03/12/college-football-best-coaches-ap
 **How to watch the 2026 Boston Red Sox: TV, streaming options for local and national games**\
 `Even Red Sox lifers have to be confused by the 2026 broadcast rotation. Here's where we lay it all out for fans of all stripes.`\
 https://nytimes.com/athletic/7106770/2026/03/12/boston-red-sox-how-to-watch-nesn-mlb/
-
-**Twins roster projection 3.0: Weak spots, logjams and dart throws 2 weeks from Opening Day**\
-`Aaron Gleeman and Dan Hayes piece together the 26-man roster from a disjointed group, with a handful of spots very much up for grabs.`\
-https://nytimes.com/athletic/7108659/2026/03/12/twins-roster-projection-opening-day/
 

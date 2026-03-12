@@ -1,40 +1,40 @@
-**Pete Hegseth’s Rhetoric of Violence**\
-`We examine the defense secretary’s view of war.`\
-https://nytimes.com/2026/03/12/briefing/pete-hegseths-rhetoric-of-violence.html
+**The men's NCAA Tournament bubble is collapsing fast. Who still has hope?**\
+`It's been a bad past couple of days for bubble hopefuls, which means merely surviving in conference tournament play can be huge.`\
+https://nytimes.com/athletic/7110991/2026/03/12/mens-ncaa-tournament-bubble-watch-indiana-smu/
 
-**'Did you tell him you’re firing him yet?' The brutal reality of golf’s most intimate partnership**\
-`There’s no contracts. No job security. A caddie can get hired or fired at any time. But when a pair is together, they’re together.`\
-https://nytimes.com/athletic/7107845/2026/03/12/golf-player-caddie-relationship/
+**What we're seeing from the Winnipeg Jets: Reasons to believe and worry about playoff push**\
+`Based on what we're seeing on the ice right now, there are a few reasons to believe Winnipeg can make a push in the stretch run.`\
+https://nytimes.com/athletic/7104763/2026/03/12/winnipeg-jets-nhl-playoffs-standings/
 
-**If Bam Adebayo can score 83, could someone else actually challenge Wilt's 100-point game?**\
-`Matching Chamberlain's 100 has been considered impossible. But the NBA's current pace of play and tanking make it seems less far-fetched.`\
-https://nytimes.com/athletic/7109344/2026/03/12/bam-adebayo-83-wilt-chamberlain-100-record-column/
+**Matt Shaw adds another position to his repertoire as he embraces his super-utility role**\
+`Shaw has made six starts in right field, one in center, two at second, two at third and now one at first after the Alex Bregman signing. `\
+https://nytimes.com/athletic/7109905/2026/03/12/matt-shaw-cubs-first-base-alex-bregman-spring-training/
 
-**Western Kentucky coach's winning dedication shown by paycheck dedication to NIL**\
-`The Hilltoppers coach says to compete they need more NIL money. So he (and donors in response) are paying up.`\
-https://nytimes.com/athletic/7110078/2026/03/12/western-kentucky-womens-basketball-coach-salary-nil/
+**Maxx Crosby’s toughness is his superpower, even if it comes at a cost**\
+`What makes Crosby special could also take a year or two off his career down the road. Is that what scared off the Ravens?`\
+https://nytimes.com/athletic/7110346/2026/03/12/maxx-crosby-trade-injuries-physical/
 
-**How an old WBC brawl started Team Canada’s journey to first quarterfinals appearance**\
-`Team Canada's evolution has resulted in 15 rostered players who were in the major leagues in 2025. Another five have big-league experience.`\
-https://nytimes.com/athletic/7110727/2026/03/12/world-baseball-classic-team-canada-development-quarterfinals/
+**Could Lagrange play Dellin Betances-type role this year? 'Dynamite'**\
+`The Yankees don’t want Lagrange to turn into Betances just yet, though. They still believe he could be a high-level starting pitcher.`\
+https://nytimes.com/athletic/7110419/2026/03/12/carlos-lagrange-yankees-103-mph-dellin-betances-comparison/
 
-**Potter extends Sweden contract to 2030, two weeks before World Cup playoff**\
-`Potter was appointed Sweden head coach on a short-term contract in October, weeks after his sacking by West Ham United.`\
-https://nytimes.com/athletic/7110959/2026/03/12/graham-potter-sweden-contract-extension-deal/
+**How the Maple Leafs collapsed: All the mistakes of a years-long undoing**\
+`Many wrong moves by Toronto that didn't work out over an extended period are why its streak of nine straight playoff appearances will end.`\
+https://nytimes.com/athletic/7106394/2026/03/12/maple-leafs-nhl-season-mistakes-collapse/
 
-**The Pulse: We’ve got gripes today**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7108844/2026/03/12/bam-adebayo-83-legitimate-the-pulse/
+**Rangers' Vladislav Gavrikov has produced, but season hasn't gone as expected**\
+`By signing a contract with the Rangers last summer, Gavrikov put his faith in the team rebounding from a disappointing season. They did not.`\
+https://nytimes.com/athletic/7108899/2026/03/12/new-york-rangers-vladislav-gavrikov-season/
 
-**Bears free-agency reset: Kevin Byard's exit, Maxx Crosby's detour and a new left tackle?**\
-`As the first wave of NFL free agency crashes ashore, the Bears continue working to improve a playoff roster.`\
-https://nytimes.com/athletic/7109275/2026/03/12/bears-free-agency-reset-kevin-byard/
+**Take our college football coaching survey: Who's the best? Do you approve of yours?**\
+`Let us know how you feel about your favorite team's coach — plus the best in all of college football.`\
+https://nytimes.com/athletic/7039825/2026/03/12/college-football-best-coaches-approval-ratings/
 
-**Cowboys free-agency reset: Adding Rashan Gary and trading for draft picks**\
-`Dallas got free agency started with a trade for Gary and added a third-round pick Wednesday when dealing Osa Odighizuwa to the 49ers.`\
-https://nytimes.com/athletic/7109617/2026/03/12/cowboys-free-agency-analysis-rashan-gary-trades/
+**How to watch the 2026 Boston Red Sox: TV, streaming options for local and national games**\
+`Even Red Sox lifers have to be confused by the 2026 broadcast rotation. Here's where we lay it all out for fans of all stripes.`\
+https://nytimes.com/athletic/7106770/2026/03/12/boston-red-sox-how-to-watch-nesn-mlb/
 
-**Lions free-agency reset: They add center Cade Mays, but remain under construction**\
-`Outside of Mays, the Lions have mostly addressed depth or have added players who offer insurance ahead of the draft.`\
-https://nytimes.com/athletic/7110269/2026/03/12/lions-free-agency-analysis-cade-mays-needs/
+**Twins roster projection 3.0: Weak spots, logjams and dart throws 2 weeks from Opening Day**\
+`Aaron Gleeman and Dan Hayes piece together the 26-man roster from a disjointed group, with a handful of spots very much up for grabs.`\
+https://nytimes.com/athletic/7108659/2026/03/12/twins-roster-projection-opening-day/
 
