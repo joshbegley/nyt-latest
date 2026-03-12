@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7109894/2026/03/11/team-usa-world-baseball-classic-
 `It would be the first income tax in Washington, affecting an estimated 20,000 households. Some of the wealthiest are leaving for Florida.`\
 https://nytimes.com/2026/03/11/us/washington-millionaires-tax-bezos-schultz.html
 
-**Slain Haitian President’s Widow Gives Chilling Account of His Killing**\
+**Haitian President’s Widow Recalls Killers Spoke Spanish and Used Nicknames**\
 `Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
 https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
 
