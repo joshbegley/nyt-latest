@@ -1,3 +1,15 @@
+**Rosenthal: Mark DeRosa and Team USA get their WBC reprieve. Now they need to take advantage**\
+`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico on Wednesday.`\
+https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
+
+**Team USA advances, avoids disaster in WBC after Italy routs Mexico**\
+`Thanks to Italy’s 9-1 win over Mexico in Pool B, Team USA avoided a tiebreaker that could have eliminated the Americans.`\
+https://nytimes.com/athletic/7109894/2026/03/11/team-usa-world-baseball-classic-advances-italy-mexico/
+
+**A State of Wealthy Entrepreneurs Passes a ‘Millionaires’ Tax’**\
+`It would be the first income tax in Washington, affecting an estimated 20,000 households. Some of the wealthiest are leaving for Florida.`\
+https://nytimes.com/2026/03/11/us/washington-millionaires-tax-bezos-schultz.html
+
 **Slain Haitian President’s Widow Gives Chilling Account of His Killing**\
 `Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
 https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html

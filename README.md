@@ -1,5 +1,5 @@
-**Rosenthal: Mark DeRosa and Team USA get their WBC reprieve. Now they need to take advantage**\
-`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico on Wednesday.`\
+**Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
+`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
 https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
 
 **Team USA advances, avoids disaster in WBC after Italy routs Mexico**\
