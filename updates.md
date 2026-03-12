@@ -1,3 +1,7 @@
+**NASA Says Artemis II Moon Launch Is On Track for April 1**\
+`After postponing launch opportunities in February and March, the agency determined that four astronauts could proceed toward the first crewed lunar journey in more than 50 years.`\
+https://nytimes.com/2026/03/12/science/nasa-moon-artemis-launch-april.html
+
 **Executive and Judicial Branches Spar Over Control of Federal Courthouses**\
 `The head of the General Services Administration said a proposal to transfer control of courthouse buildings to the judiciary was a bad idea.`\
 https://nytimes.com/2026/03/12/us/politics/federal-courthouses-gsa.html

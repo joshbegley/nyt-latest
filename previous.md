@@ -1,3 +1,7 @@
+**NASA Says Artemis II Moon Launch Is On Track for April 1**\
+`After postponing launch opportunities in February and March, the agency determined that four astronauts could proceed toward the first crewed lunar journey in more than 50 years.`\
+https://nytimes.com/2026/03/12/science/nasa-moon-artemis-launch-april.html
+
 **Executive and Judicial Branches Spar Over Control of Federal Courthouses**\
 `The head of the General Services Administration said a proposal to transfer control of courthouse buildings to the judiciary was a bad idea.`\
 https://nytimes.com/2026/03/12/us/politics/federal-courthouses-gsa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112779/2026/03/12/artemi-panarin-rangers-kings-tra
 **Running back Emanuel Wilson agrees to free-agent deal with Seahawks: Source**\
 `Wilson, who started two games in three seasons with the Packers, fills a need for the Seahawks, who lost Kenneth Walker III in free agency.`\
 https://nytimes.com/athletic/7091609/2026/03/12/emanuel-wilson-seahawks-nfl-free-agency-2026/
-
-**Duplantis breaks pole vault world record for 15th time**\
-`Duplantis beat the previous world best — set at September's World Championships — by a single centimetre.`\
-https://nytimes.com/athletic/7112856/2026/03/12/mondo-duplantis-pole-vault-world-record-fifteen/
 
