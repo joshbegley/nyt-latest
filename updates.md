@@ -1,3 +1,15 @@
+**How to watch San Jose State vs. New Mexico men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the San Jose State Spartans play the New Mexico Lobos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112810/2026/03/12/san-jose-state-vs-new-mexico-stream-how-to-watch-march-12/
+
+**How to watch Abilene Christian vs. Utah Tech men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Abilene Christian Wildcats play the Utah Tech Trailblazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112802/2026/03/12/abilene-christian-vs-utah-tech-stream-how-to-watch-march-12/
+
+**Already a Hall of Famer, Dwight Howard officially announces his retirement**\
+`Howard, 40, has publicly toyed with the concept of returning to the court in the years since he last played pro basketball.`\
+https://nytimes.com/athletic/7112541/2026/03/12/dwight-howard-official-retirement-nba/
+
 **How to watch UC Davis vs. CSU Fullerton men's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the UC Davis Aggies play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112795/2026/03/12/uc-davis-vs-csu-fullerton-stream-how-to-watch-march-12/
