@@ -1,3 +1,11 @@
+**The Largest Oil Supply Disruption in History**\
+`A look at the war in Iran’s effects on global energy markets, two activists whose Sierra Club memberships were revoked, and more climate and environmental news.`\
+https://nytimes.com/2026/03/12/climate/the-largest-oil-supply-disruption-in-history.html
+
+**Israel Drops Case Against Soldiers Accused of Abusing Palestinian Detainee**\
+`After a prisoner arrived at a hospital with broken ribs and a torn rectum, Israelis were once again at odds over the issue of mistreatment and impunity.`\
+https://nytimes.com/2026/03/12/world/middleeast/israel-detainee-abuse-charges.html
+
 **Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
 `In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
 https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
