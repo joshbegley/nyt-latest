@@ -1,9 +1,13 @@
+**Why Does Oil Matter So Much to the Global Economy?**\
+`The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
+https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html
+
 **What is the best Champions League hat-trick of all time?**\
 `From Kylian Mbappe to Lionel Messi via Gareth Bale at San Siro, our writers nominate their greatest-ever Champions League trebles`\
 https://nytimes.com/athletic/7111001/2026/03/12/champions-league-best-hat-trick-all-time-analysis/
 
 **Aaron Judge card sells for record $5.2 million**\
-`Judge now tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
+`Judge tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
 https://nytimes.com/athletic/7105279/2026/03/12/aaron-judge-record-card-sale-bowman-chrome-superfractor/
 
 **Disappointed yet thankful, Tony Dungy confirms NBC exit after 17 years**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111150/2026/03/12/browns-2026-free-agency-tracker-
 **Why practice facility progress would be a game-changer for Canucks**\
 `Addressing this massive gap in Vancouver's facilities has been a priority for the organization for many years.`\
 https://nytimes.com/athletic/7110623/2026/03/12/vancouver-canucks-practice-facility-britannia-report/
-
-**New York, Montreal to play in first-ever nationally televised PWHL game in U.S.**\
-`The PWHL's March 28 “Takeover Tour” game between the Sirens and the Victoire at Little Caesars Arena in Detroit will air on ION.`\
-https://nytimes.com/athletic/7109797/2026/03/12/pwhl-nationally-televised-game-ny-sirens-montreal-victoire/
 

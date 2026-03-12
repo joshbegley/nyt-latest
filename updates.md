@@ -1,3 +1,11 @@
+**Why Does Oil Matter So Much to the Global Economy?**\
+`The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
+https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html
+
+**Aaron Judge card sells for record $5.2 million**\
+`Judge tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
+https://nytimes.com/athletic/7105279/2026/03/12/aaron-judge-record-card-sale-bowman-chrome-superfractor/
+
 **What is the best Champions League hat-trick of all time?**\
 `From Kylian Mbappe to Lionel Messi via Gareth Bale at San Siro, our writers nominate their greatest-ever Champions League trebles`\
 https://nytimes.com/athletic/7111001/2026/03/12/champions-league-best-hat-trick-all-time-analysis/

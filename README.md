@@ -1,3 +1,11 @@
+**Middle East terminal closures add to jitters about oil prices.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/middle-east-terminal-closures-add-to-jitters-about-oil-prices
+
+**Ten Blackhawks thoughts: Who will be Jason Dickinson's successor as shutdown center?**\
+`Plus: When will we see Anton Frondell, Sacha Boisvert and John Mustard in the NHL?`\
+https://nytimes.com/athletic/7110596/2026/03/12/blackhawks-jason-dickinson-trade-ryan-greene-center-wing/
+
 **Why Does Oil Matter So Much to the Global Economy?**\
 `The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
 https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7111354/2026/03/12/f1-bahrain-saudi-arabia-decision
 **Fantasy trends and hidden gems: Schedule breakdown and top targets for the playoffs**\
 `In her final column of the 2025-26 fantasy hockey season, Shayna Goldman highlights the prime waiver-wire targets for the next three weeks.`\
 https://nytimes.com/athletic/7109639/2026/03/12/fantasy-hockey-trends-gems-playoff-preview/
-
-**Browns free-agency tracker: A look at Cleveland’s signings, trades and departures**\
-`Analyzing all of Cleveland's moves at the start of the 2026 league year. `\
-https://nytimes.com/athletic/7111150/2026/03/12/browns-2026-free-agency-tracker-signings/
-
-**Why practice facility progress would be a game-changer for Canucks**\
-`Addressing this massive gap in Vancouver's facilities has been a priority for the organization for many years.`\
-https://nytimes.com/athletic/7110623/2026/03/12/vancouver-canucks-practice-facility-britannia-report/
 
