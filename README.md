@@ -1,3 +1,7 @@
+**The men's NCAA Tournament bubble is collapsing fast. Who still has hope?**\
+`It's been a bad past couple of days for bubble hopefuls, which means merely surviving in conference tournament play can be huge.`\
+https://nytimes.com/athletic/7110991/2026/03/12/mens-ncaa-tournament-bubble-watch-indiana-smu/
+
 **What we're seeing from the Winnipeg Jets: Reasons to believe and worry about playoff push**\
 `Based on what we're seeing on the ice right now, there are a few reasons to believe Winnipeg can make a push in the stretch run.`\
 https://nytimes.com/athletic/7104763/2026/03/12/winnipeg-jets-nhl-playoffs-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7106770/2026/03/12/boston-red-sox-how-to-watch-nesn
 **Twins roster projection 3.0: Weak spots, logjams and dart throws 2 weeks from Opening Day**\
 `Aaron Gleeman and Dan Hayes piece together the 26-man roster from a disjointed group, with a handful of spots very much up for grabs.`\
 https://nytimes.com/athletic/7108659/2026/03/12/twins-roster-projection-opening-day/
-
-**Seahawks free-agency reset: More Bobo, several re-signings on Day 3**\
-`The Seahawks officially brought back Rashid Shaheed and Drake Thomas while also re-upping a few other free agents on smaller deals.`\
-https://nytimes.com/athletic/7109443/2026/03/12/seahawks-free-agency-news-jake-bobo/
 
