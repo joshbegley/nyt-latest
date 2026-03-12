@@ -1,3 +1,23 @@
+**How to watch Flyers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112112/2026/03/12/flyers-vs-wild-stream-how-to-watch-march-12/
+
+**How to watch Rangers vs. Jets: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112110/2026/03/12/rangers-vs-jets-stream-how-to-watch-march-12/
+
+**How to watch Blackhawks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112097/2026/03/12/blackhawks-vs-mammoth-stream-how-to-watch-march-12/
+
+**How to watch Oilers vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112079/2026/03/12/oilers-vs-stars-stream-how-to-watch-march-12/
+
+**Police Respond to Shooting at Michigan Temple**\
+`There were reports of an active shooter at a synagogue outside Detroit on Thursday, the authorities said.`\
+https://nytimes.com/2026/03/12/us/temple-israel-michigan-shooting.html
+
 **At the Frick Collection, a Modern Maker of Centuries-Old Designs**\
 `The goldsmith Donna Distefano uses ancient metalsmithing techniques to create replica jewelry inspired by portraits at the Frick museum.`\
 https://nytimes.com/2026/03/12/fashion/frick-collection-jewelry.html
