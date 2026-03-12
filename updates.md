@@ -1,3 +1,11 @@
+**Barcelona's elections come down to Joan Laporta or Victor Font. So why is Lionel Messi key?**\
+`Some 114,504 club members are eligible to vote on Sunday to decide who will lead the Spanish champions until 2031`\
+https://nytimes.com/athletic/7111116/2026/03/12/barcelona-elections-messi-laporta-font/
+
+**F1 teams await decision on Bahrain, Saudi Arabia races**\
+`A decision on the running of both April events is anticipated to come by early next week. `\
+https://nytimes.com/athletic/7111354/2026/03/12/f1-bahrain-saudi-arabia-decision/
+
 **Fantasy trends and hidden gems: Schedule breakdown and top targets for the playoffs**\
 `In her final column of the 2025-26 fantasy hockey season, Shayna Goldman highlights the prime waiver-wire targets for the next three weeks.`\
 https://nytimes.com/athletic/7109639/2026/03/12/fantasy-hockey-trends-gems-playoff-preview/
