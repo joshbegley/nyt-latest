@@ -1,3 +1,15 @@
+**Iran War Causing Largest Ever Oil Disruption, I.E.A. Says**\
+`Conflict is forcing producers to slash production and close ports as Iran steps up attacks on energy infrastructure.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-war-oil-iea.html
+
+**Team Ukraine accuses IPC of 'systematic pressure'**\
+`The team also criticised what they called a "very special partnership" between IPC and the NPCs of Russia and Belarus.`\
+https://nytimes.com/athletic/7110990/2026/03/12/ukraine-paralympic-committee-milan-cortina/
+
+**U.S. Trade Deficit Falls in January**\
+`The data showed imports dipped and exports rose in the month before the Supreme Court struck down most of the president’s tariffs.`\
+https://nytimes.com/2026/03/12/business/economy/us-trade-deficit-january.html
+
 **Shai Gilgeous-Alexander's chase for Wilt's record: How absurdity can become reality**\
 `Thursday night can be historic for Shai Gilgeous-Alexander, who can break a 63-year-old Wilt Chamberlain record.`\
 https://nytimes.com/athletic/7107717/2026/03/12/shai-gilgeous-alexander-wilt-chamberlain-record-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7111207/2026/03/12/buffalo-vs-akron-stream-how-to-w
 **How to watch Morgan State vs. Norfolk State women's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the Morgan State Lady Bears play the Norfolk State Spartans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111205/2026/03/12/morgan-state-vs-norfolk-state-stream-how-to-watch-march-12/
-
-**How to watch Missouri State vs. Middle Tennessee women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Missouri State Bears play the Middle Tennessee Blue Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111195/2026/03/12/missouri-state-vs-middle-tennessee-stream-how-to-watch-march-12/
-
-**How to watch Alabama A&M vs. Texas Southern men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Alabama A&M Bulldogs play the Texas Southern Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111193/2026/03/12/alabama-a-m-vs-texas-southern-stream-how-to-watch-march-12/
-
-**How to watch Louisville vs. Miami (FL) men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Miami Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111188/2026/03/12/louisville-vs-miami-fl-stream-how-to-watch-march-12/
 
