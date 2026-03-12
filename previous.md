@@ -1,3 +1,7 @@
+**Pete Hegseth’s Rhetoric of Violence**\
+`We examine the defense secretary’s view of war.`\
+https://nytimes.com/2026/03/12/briefing/pete-hegseths-rhetoric-of-violence.html
+
 **'Did you tell him you’re firing him yet?' The brutal reality of golf’s most intimate partnership**\
 `There’s no contracts. No job security. A caddie can get hired or fired at any time. But when a pair is together, they’re together.`\
 https://nytimes.com/athletic/7107845/2026/03/12/golf-player-caddie-relationship/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109617/2026/03/12/cowboys-free-agency-analysis-ras
 **Lions free-agency reset: They add center Cade Mays, but remain under construction**\
 `Outside of Mays, the Lions have mostly addressed depth or have added players who offer insurance ahead of the draft.`\
 https://nytimes.com/athletic/7110269/2026/03/12/lions-free-agency-analysis-cade-mays-needs/
-
-**Bengals free agency reset: Not finishing the job leaves defense at risk again**\
-`Getting Boye Mafe and Bryan Cook was a great start, but the total lack of additions after that leaves the defense with major holes.`\
-https://nytimes.com/athletic/7110469/2026/03/12/bengals-free-agency-reset-defense/
 

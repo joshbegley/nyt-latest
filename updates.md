@@ -1,3 +1,7 @@
+**Pete Hegseth’s Rhetoric of Violence**\
+`We examine the defense secretary’s view of war.`\
+https://nytimes.com/2026/03/12/briefing/pete-hegseths-rhetoric-of-violence.html
+
 **'Did you tell him you’re firing him yet?' The brutal reality of golf’s most intimate partnership**\
 `There’s no contracts. No job security. A caddie can get hired or fired at any time. But when a pair is together, they’re together.`\
 https://nytimes.com/athletic/7107845/2026/03/12/golf-player-caddie-relationship/
