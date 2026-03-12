@@ -1,3 +1,15 @@
+**Rosenthal: Mark DeRosa and Team USA get their WBC reprieve. Now they need to take advantage**\
+`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico on Wednesday.`\
+https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
+
+**Team USA advances, avoids disaster in WBC after Italy routs Mexico**\
+`Thanks to Italy’s 9-1 win over Mexico in Pool B, Team USA avoided a tiebreaker that could have eliminated the Americans.`\
+https://nytimes.com/athletic/7109894/2026/03/11/team-usa-world-baseball-classic-advances-italy-mexico/
+
+**A State of Wealthy Entrepreneurs Passes a ‘Millionaires’ Tax’**\
+`It would be the first income tax in Washington, affecting an estimated 20,000 households. Some of the wealthiest are leaving for Florida.`\
+https://nytimes.com/2026/03/11/us/washington-millionaires-tax-bezos-schultz.html
+
 **Slain Haitian President’s Widow Gives Chilling Account of His Killing**\
 `Martine Moïse also testified that the men who killed her husband spoke Spanish, which the prosecution highlighted to support its claim that the assassination was carried out by a hired Colombian hit squad.`\
 https://nytimes.com/2026/03/11/world/americas/martine-moise-haiti-president-assassination-trial-miami.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/11/world/middleeast/beirut-lebanon-israel-strikes.ht
 **U.S. to Release 172 Million Barrels of Oil From Strategic Reserves, Energy Dept. Says**\
 `The move aims to prevent prices from rising further because of the war in the Middle East.`\
 https://nytimes.com/2026/03/11/world/middleeast/us-oil-reserves-trump-iran.html
-
-**Pentagon Bars Photographers From Briefings on Iran War**\
-`The decision is the latest move by the Pentagon to restrict access inside the department for journalists.`\
-https://nytimes.com/2026/03/11/business/media/pentagon-bars-photographers-from-briefings-on-iran-war.html
-
-**Preliminary Inquiry Finds U.S. Responsible for Iran School Attack**\
-`An ongoing report determined that the United States was responsible for a Tomahawk missile strike that killed at least 175, most of them children, according to the preliminary findings of a Pentagon investigation.`\
-https://nytimes.com/video/world/middleeast/100000010769828/us-iran-school-attack-missile.html
-
-**Osa Odighizuwa trade grades: 49ers capitalize on Cowboys' DT surplus**\
-`Odighizuwa will be the most disruptive interior pass rusher the 49ers have had in years.`\
-https://nytimes.com/athletic/7109805/2026/03/11/osa-odighizuwa-49ers-cowboys-trade-grades/
 
