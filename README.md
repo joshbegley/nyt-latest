@@ -1,3 +1,11 @@
+**Will Illinois Send a Black Woman to the Senate? A Messy Primary Will Decide.**\
+`Two Black female candidates may split Democratic primary voters, and anger is growing at well-funded efforts to widen the divide.`\
+https://nytimes.com/2026/03/12/us/politics/illinois-senate-primary-stratton-kelly-krishnamoorthi.html
+
+**Banking Regulators Plan to Ease Some Capital Requirements**\
+`The Federal Reserve and other financial regulators will soon release proposals to loosen some planned rules on how much capital banks must hold in reserve to mitigate risks.`\
+https://nytimes.com/2026/03/12/business/banking-regulators-capital-requirements.html
+
 **Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
 `The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
 https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/7112351/2026/03/12/guro-reiten-gotham-chelsea-trans
 **Iraq angered by strikes on former militias now under government control.**\
 `By Erika Solomon`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/iraq-angered-by-strikes-on-former-militias-now-under-government-control
-
-**Ron Delany, Runner Who Won Olympic Glory for Ireland, Dies at 91**\
-`As a Villanova student, he captured the 1,500-meter event in the 1956 Games in Melbourne. No Irish athlete since then has won another Olympic gold medal in track and field.`\
-https://nytimes.com/2026/03/12/sports/ron-delany-dead.html
-
-**How Trump’s Election Lie Could Impact 2026 Midterms**\
-`The Trump administration is putting the weight of the federal government behind his false claims about the 2020 election in order to investigate key swing states ahead of the midterms.`\
-https://nytimes.com/video/us/elections/100000010766599/trump-false-claim-election-stolen-impact-2026-midterms.html
-
-**New Yorkers, Do You Have an Interesting Storage Unit Collection?**\
-`To help us report an upcoming article, we want to hear about your cherished, prized or strange storage unit stories.`\
-https://nytimes.com/2026/03/12/realestate/storage-unit-reader-callout.html
 
