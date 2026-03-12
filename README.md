@@ -1,3 +1,23 @@
+**RB Rachaad White agrees to free-agent deal with Commanders: Source**\
+`White, a 2022 third-round pick, rushed for 572 yards and four touchdowns in Tampa Bay last season.`\
+https://nytimes.com/athletic/7095348/2026/03/12/rachaad-white-commanders-nfl-free-agency-2026/
+
+**How to watch Bulls vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112530/2026/03/12/bulls-vs-lakers-stream-how-to-watch-march-12/
+
+**How to watch Celtics vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Boston Celtics play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112518/2026/03/12/celtics-vs-thunder-stream-how-to-watch-march-12/
+
+**Now’s the Time to Invest in Women’s Basketball**\
+`On ‘The Athletic Show,’ Napheesa Collier explains how Unrivaled, a 3-on-3 league she co-founded featuring the W.`\
+https://nytimes.com/video/the-athletic/100000010768967/nows-the-time-to-invest-in-womens-basketball.html
+
+**Do W.N.B.A. Players Deserve to Make More Than $8 Million?**\
+`The W.N.B.A. recently distributed $8 million to its players, but Napheesa Collier argues that an 8 percent revenue share isn’t a fair slice of the pie. The Minnesota Lynx star and Unrivaled co-founder also pushes back on the narrative that her new league is a competitor to the W.N.B.A.`\
+https://nytimes.com/video/the-athletic/100000010768965/do-wnba-players-deserve-to-make-more-than-8-million.html
+
 **What’s Going On in This Graph? | March 18, 2026**\
 `How much does it cost to save a life?`\
 https://nytimes.com/2026/03/12/learning/whats-going-on-in-this-graph-march-18-2026.html
@@ -13,24 +33,4 @@ https://nytimes.com/2026/03/12/business/banking-regulators-capital-requirements.
 **Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
 `The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
 https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
-
-**A New Era Begins for Cadillac in Formula 1**\
-`While only one of its cars finished at the Australian Grand Prix, the team considers that an accomplishment.`\
-https://nytimes.com/2026/03/12/sports/cadillac-formula-1-australia.html
-
-**F.B.I. Joins Search for Air Force General Missing for Two Weeks**\
-`Before he retired, Maj. Gen. William N. McCasland oversaw a research laboratory at Wright-Patterson Air Force Base near Dayton, Ohio.`\
-https://nytimes.com/2026/03/12/us/mccasland-missing-ufo-us-air-force-new-mexico.html
-
-**WNBA proposes higher salary cap in latest CBA offer, but still no deal**\
-`A source with knowledge of the sessions said that the sides still remain “not close enough” to expect an imminent agreement.`\
-https://nytimes.com/athletic/7112130/2026/03/12/wnba-cba-contract-salary-cap/
-
-**Red Bull, Once Dominant in F1, Works to Regain That Form**\
-`It has a new factory, a new power-unit partner, and a new wind tunnel is coming. Now, what about Max Verstappen?`\
-https://nytimes.com/2026/03/12/sports/f1-red-bull-factory-power-unit.html
-
-**Reiten joins Gotham FC from Chelsea**\
-`Reiten, 31, has joined the National Women's Soccer League (NWSL) side on an initial loan through to July`\
-https://nytimes.com/athletic/7112351/2026/03/12/guro-reiten-gotham-chelsea-transfer/
 

@@ -1,3 +1,7 @@
+**What’s Going On in This Graph? | March 18, 2026**\
+`How much does it cost to save a life?`\
+https://nytimes.com/2026/03/12/learning/whats-going-on-in-this-graph-march-18-2026.html
+
 **Will Illinois Send a Black Woman to the Senate? A Messy Primary Will Decide.**\
 `Two Black female candidates may split Democratic primary voters, and anger is growing at well-funded efforts to widen the divide.`\
 https://nytimes.com/2026/03/12/us/politics/illinois-senate-primary-stratton-kelly-krishnamoorthi.html

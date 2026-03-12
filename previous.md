@@ -1,3 +1,7 @@
+**What’s Going On in This Graph? | March 18, 2026**\
+`How much does it cost to save a life?`\
+https://nytimes.com/2026/03/12/learning/whats-going-on-in-this-graph-march-18-2026.html
+
 **Will Illinois Send a Black Woman to the Senate? A Messy Primary Will Decide.**\
 `Two Black female candidates may split Democratic primary voters, and anger is growing at well-funded efforts to widen the divide.`\
 https://nytimes.com/2026/03/12/us/politics/illinois-senate-primary-stratton-kelly-krishnamoorthi.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/12/sports/f1-red-bull-factory-power-unit.html
 **Reiten joins Gotham FC from Chelsea**\
 `Reiten, 31, has joined the National Women's Soccer League (NWSL) side on an initial loan through to July`\
 https://nytimes.com/athletic/7112351/2026/03/12/guro-reiten-gotham-chelsea-transfer/
-
-**Iraq angered by strikes on former militias now under government control.**\
-`By Erika Solomon`\
-https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/iraq-angered-by-strikes-on-former-militias-now-under-government-control
 
