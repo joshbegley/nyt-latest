@@ -1,3 +1,7 @@
+**Deadly Attack on Oil Tankers Prompts Iraq to Close Oil Terminals**\
+`An attack off the Iraqi coast engulfed two oil tankers in flames, killing at least one person. Senior Iraqi officials believe the attack was Iranian.`\
+https://nytimes.com/2026/03/12/world/middleeast/iraq-oil-tankers-attack-iran-war.html
+
 **Why Oil Prices Surged Even After the Release of Strategic Reserves**\
 `Reserves or no reserves, the outlook remains bleak as long as a major oil and gas trade route remains virtually closed.`\
 https://nytimes.com/2026/03/12/business/iran-oil-price-reserves.html

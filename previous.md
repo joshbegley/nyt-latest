@@ -1,3 +1,7 @@
+**Deadly Attack on Oil Tankers Prompts Iraq to Close Oil Terminals**\
+`An attack off the Iraqi coast engulfed two oil tankers in flames, killing at least one person. Senior Iraqi officials believe the attack was Iranian.`\
+https://nytimes.com/2026/03/12/world/middleeast/iraq-oil-tankers-attack-iran-war.html
+
 **Why Oil Prices Surged Even After the Release of Strategic Reserves**\
 `Reserves or no reserves, the outlook remains bleak as long as a major oil and gas trade route remains virtually closed.`\
 https://nytimes.com/2026/03/12/business/iran-oil-price-reserves.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/mamdani-rental-ripoff-hearing.html
 **Passing Notes**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2026/03/12/learning/passing-notes.html
-
-**Could Free Child Care Last the Full Day? Some Working Parents Hope So.**\
-`New York City will start offering free child care for 2-year-olds this fall. A question for the Mamdani administration is whether it will be available past 2:30 p.m.`\
-https://nytimes.com/2026/03/12/nyregion/extended-day-child-care-free.html
 
