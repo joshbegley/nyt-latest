@@ -1,3 +1,7 @@
+**My Sister Won’t Vacation With My Kids. Is She Being Selfish?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose sibling moved away and then canceled a family trip.`\
+https://nytimes.com/2026/03/12/well/family/sister-aunt-vacation-kids.html
+
 **Middle East terminal closures add to jitters about oil prices.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/middle-east-terminal-closures-add-to-jitters-about-oil-prices
