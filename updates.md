@@ -1,3 +1,7 @@
+**Tottenham are lacking leadership and now their squad is split**\
+`Tottenham are drifting and need to find leaders somewhere or their season will end in the ignominy of a first relegation in 49 years`\
+https://nytimes.com/athletic/7108170/2026/03/12/tottenham-leadership-group-relegation/
+
 **Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
 `For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
 https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/

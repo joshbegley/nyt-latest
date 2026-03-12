@@ -1,3 +1,7 @@
+**Tottenham are lacking leadership and now their squad is split**\
+`Tottenham are drifting and need to find leaders somewhere or their season will end in the ignominy of a first relegation in 49 years`\
+https://nytimes.com/athletic/7108170/2026/03/12/tottenham-leadership-group-relegation/
+
 **As the Women's Super League continues to grow, academy players risk being left behind**\
 `Until recently, WSL clubs' academies were lower priorities as teams raced to capitalise on increased attention after the 2022 Euros`\
 https://nytimes.com/athletic/7077042/2026/03/12/england-womens-super-league-academy-players/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/crosswords/spelling-bee-forum.html
 **At China’s Big Political Meeting, a Rare Debate About Inequality**\
 `China’s plan to raise pensions for farmers by less than $3 a month prompted rare criticism from lawmakers about the country’s threadbare social safety net.`\
 https://nytimes.com/2026/03/12/world/asia/china-pensions-inequality-farmers.html
-
-**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
-`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
-https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
 
