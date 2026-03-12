@@ -1,3 +1,11 @@
+**Before Landing on the Moon, a Collision Close Call Haunted a Space Mission**\
+`The experience of the private Blue Ghost mission in lunar orbit a year ago highlights a growing number of “red alert” incidents above Earth’s neighbor.`\
+https://nytimes.com/2026/03/12/science/moon-red-alert-close-call.html
+
+**After Bam Adebayo's 83-point outburst, what's the over/under for his points vs. Bucks?**\
+`One bettor wagered $1,500 live Tuesday night at +175 odds that Bam Adebayo would score more than 76 points. They won more than $4,000.`\
+https://nytimes.com/athletic/7108615/2026/03/12/bam-adebayo-prop-bets-points-odds-nba/
+
 **‘Bughouse’ Review: Inside a Solitary Artist’s Unwieldy Mind**\
 `Henry Darger, a recluse who left behind thousands of wild illustrations upon his death, is the subject of fascination in this one-man show.`\
 https://nytimes.com/2026/03/12/theater/bughouse-review-henry-darger.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7110596/2026/03/12/blackhawks-jason-dickinson-trade
 **Why Does Oil Matter So Much to the Global Economy?**\
 `The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
 https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html
-
-**What is the best Champions League hat-trick of all time?**\
-`From Kylian Mbappe to Lionel Messi via Gareth Bale at San Siro, our writers nominate their greatest-ever Champions League trebles`\
-https://nytimes.com/athletic/7111001/2026/03/12/champions-league-best-hat-trick-all-time-analysis/
-
-**Aaron Judge card sells for record $5.2 million**\
-`Judge tops Mike Trout and Shohei Ohtani for the highest known modern baseball card sale. `\
-https://nytimes.com/athletic/7105279/2026/03/12/aaron-judge-record-card-sale-bowman-chrome-superfractor/
 
