@@ -1,3 +1,11 @@
+**Ukraine to Make Drone Videos Available for Training AI Models**\
+`Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
+https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
+
+**Florida Republicans Pass Bill Requiring Proof of Citizenship to Vote**\
+`The proposed law, which would not take effect before this year’s midterm elections, was modeled in part on President Trump’s top legislative priority in Congress.`\
+https://nytimes.com/2026/03/12/us/elections/florida-voting-citizenship-proof-bill.html
+
 **Iran says 'no one' can exclude them from World Cup after Trump comments**\
 `Trump had warned Iran's participation may be a risk for “their own life and safety.”`\
 https://nytimes.com/athletic/7113217/2026/03/12/iran-world-cup-donald-trump/
@@ -25,12 +33,4 @@ https://nytimes.com/2026/03/12/world/middleeast/walid-khalidi-dead.html
 **Trinidad Chambliss says eligibility uncertainty cost him shot at video game cover**\
 `EA Sports told Chambliss on Monday that it “just can’t stomach the risk” of him not suiting up for the Rebels this fall, the filing said.`\
 https://nytimes.com/athletic/7113154/2026/03/12/trinidad-chambliss-ea-sports-cover-eligibility/
-
-**Iran’s New Leader Vows to Keep a Crucial Oil Gateway Blocked**\
-`Also, a Michigan synagogue was attacked. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2026/03/12/briefing/iran-new-leader-housing-bill.html
-
-**Brazil reveals World Cup away kit with Jordan Brand collaboration**\
-`Brazil is aligning with the Jordan Brand for one of its World Cup jersey offerings this summer`\
-https://nytimes.com/athletic/7111379/2026/03/12/brazil-jordan-brand-world-cup-kit-away-jersey/
 
