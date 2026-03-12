@@ -1,3 +1,11 @@
+**Mandel's top 25 coaches for the 2026 CFB season: From DeBoer and Kiffin to Swinney**\
+`Many coaches take years to rise in these rankings. Not Cignetti!`\
+https://nytimes.com/athletic/7101958/2026/03/12/college-football-coach-rankings-stewart-mandel-2026/
+
+**Feldman's top 25 coaches for the 2026 CFB season: Where are James Franklin, Steve Sarkisian ranked now?**\
+`Many coaches debut, or re-emerge, on Feldman's rankings this year.`\
+https://nytimes.com/athletic/7102733/2026/03/12/college-football-coach-rankings-bruce-feldman-2026/
+
 **What we’ve learned (so far) from watching the World Baseball Classic**\
 `Here are some of our reporters' observations over the last week from Houston, Miami, San Juan and Tokyo. `\
 https://nytimes.com/athletic/7110518/2026/03/12/wbc-pool-play-takeaways/
