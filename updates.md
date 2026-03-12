@@ -1,3 +1,7 @@
+**Senate Again Deadlocks on Homeland Security Funding as Shutdown Persists**\
+`The fight over restrictions on immigration agents has prolonged the funding lapse for T.S.A., Coast Guard and more into a second month, as airports experience screening delays.`\
+https://nytimes.com/2026/03/12/us/politics/senate-homeland-security-funding.html
+
 **A New Era Begins for Cadillac in Formula 1**\
 `While only one of its cars finished at the Australian Grand Prix, the team considers that an accomplishment.`\
 https://nytimes.com/2026/03/12/sports/cadillac-formula-1-australia.html
