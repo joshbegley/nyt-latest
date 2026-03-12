@@ -1,3 +1,15 @@
+**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
+`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
+https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
+
+**Jimmy Kimmel Addresses the Notion of a Drone Strike on California**\
+`“Isn’t this how ‘Ironman 3’ started?” Kimmel said after the F.B.I. warned state officials tobb  prepare for a retaliatory Iranian drone strike on the West Coast ahead of Sunday’s Academy Awards.`\
+https://nytimes.com/2026/03/12/arts/television/jimmy-kimmel-drone-strike-california.html
+
+**Word of the Day: epitome**\
+`This word has appeared in 210 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/12/learning/word-of-the-day-epitome.html
+
 **Here is the latest.**\
 `By Rebecca Elliott, John Yoon and Ephrat Livni`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/here-is-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7107803/2026/03/12/everton-identity-premier-league-
 **Israeli Attacks Rock Beirut, Displacing Hundreds of Thousands**\
 `Explosions shook Lebanon’s capital, Beirut, from Wednesday night into Thursday morning as Israel unleashed a wave of attacks that it said targeted Hezbollah.`\
 https://nytimes.com/video/world/middleeast/100000010770501/beirut-lebanon-israel-hezbollah.html
-
-**Antonin Kinsky is not alone: Six times a shocking performance changed a sporting career**\
-`After Tottenham goalkeeper Antonin Kinsky's disastrous Champions League outing, The Athletic looks at other career-damaging performances`\
-https://nytimes.com/athletic/7108155/2026/03/12/antonin-kinsky-is-not-alone-six-times-a-shocking-performance-changed-a-sporting-career/
-
-**Slot's record after 100 Liverpool games is second to none. Why doesn't it feel that way?**\
-`Examining the wider trends around Liverpool's form - plus our writers choose their favourite moments from the Slot era`\
-https://nytimes.com/athletic/7104958/2026/03/12/arne-slot-liverpool-100-games/
-
-**Arsenal vs Manchester City: Analysing the Premier League title race**\
-`How has the Premier League title race moved on over the past couple of weeks? We explain what the numbers say on Arsenal and Manchester City`\
-https://nytimes.com/athletic/7107830/2026/03/12/arsenal-vs-manchester-city-premier-league-title-race/
 

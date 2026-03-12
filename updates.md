@@ -1,3 +1,15 @@
+**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
+`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
+https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
+
+**Jimmy Kimmel Addresses the Notion of a Drone Strike on California**\
+`“Isn’t this how ‘Ironman 3’ started?” Kimmel said after the F.B.I. warned state officials tobb  prepare for a retaliatory Iranian drone strike on the West Coast ahead of Sunday’s Academy Awards.`\
+https://nytimes.com/2026/03/12/arts/television/jimmy-kimmel-drone-strike-california.html
+
+**Word of the Day: epitome**\
+`This word has appeared in 210 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/12/learning/word-of-the-day-epitome.html
+
 **Here is the latest.**\
 `By Rebecca Elliott, John Yoon and Ephrat Livni`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/here-is-the-latest
