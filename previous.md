@@ -1,3 +1,19 @@
+**In a Historic Kyoto Neighborhood, a New Hotel Channels the Past**\
+`Plus: black sesame pastries, a Roy Lichtenstein exhibition in New York and more recommendations from T Magazine.`\
+https://nytimes.com/2026/03/12/t-magazine/capella-kyoto-hotel.html
+
+**2026 fantasy baseball top-40 reliever rankings and tiers, plus sleepers and stashes**\
+`Relief pitching has become increasingly valuable in fantasy baseball. Greg Jewett discusses which RPs to target in drafts. `\
+https://nytimes.com/athletic/7111382/2026/03/12/2026-fantasy-baseball-top-40-reliever-rankings-tiers-sleepers-stashes/
+
+**2 People Injured and Gunman Dead in Shooting at Old Dominion University**\
+`The shooter opened fire in Constant Hall, a building on the campus in Norfolk, Va. It was not clear what led to the shooting.`\
+https://nytimes.com/2026/03/12/us/shooting-old-dominion-university.html
+
+**Trump says Iran would risk 'life and safety' by participating in World Cup**\
+`In a statement on Thursday morning, Trump appeared to U-turn on what he told FIFA president Gianni Infantino less than 48 hours ago.`\
+https://nytimes.com/athletic/7111778/2026/03/12/world-cup-iran-conflict-trump/
+
 **Bob Harlan, Who Steered the Green Bay Packers to a Revival, Dies at 89**\
 `Under his watch as president, the team brought on key players like Brett Favre, modernized Lambeau Field and once again became a Super Bowl threat.`\
 https://nytimes.com/2026/03/12/sports/football/bob-harlan-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/12/business/mortgage-rates-rise-above-6-percent.html
 **Iran’s New Supreme Leader Issues First Statement Since Taking Office**\
 `Mojtaba Khamenei struck a defiant tone and signaled that Iran would not back down in a war that has spread across the Middle East.`\
 https://nytimes.com/2026/03/12/world/middleeast/khamenei-statement.html
-
-**Attacks on two tankers prompt Iraq to close oil terminals.**\
-`By Josh Holder and Elena Shao`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/attacks-on-two-tankers-prompt-iraq-to-close-oil-terminals
-
-**The failure of Premier League clubs in Europe owes more to wasted money than fatigue**\
-`Tired or not, Premier League clubs have wasted their advantage in Europe with bad recruitment`\
-https://nytimes.com/athletic/7111264/2026/03/12/premier-league-champions-league-wasted-money/
-
-**What's it like covering Bobby Hurley, the coach? Probably much different than you'd think**\
-`A question I've gotten often over the years: Is Bobby Hurley as big an a-hole in person as he seems during games? The answer: not at all.`\
-https://nytimes.com/athletic/7110733/2026/03/12/bobby-hurley-arizona-state-coaching-change-what-hes-like/
-
-**How to watch Tulane vs. Charlotte men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Charlotte 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7111754/2026/03/12/tulane-vs-charlotte-stream-how-to-watch-march-12/
 
