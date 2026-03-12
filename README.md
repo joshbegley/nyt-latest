@@ -1,3 +1,7 @@
+**Police Respond to Shooting at Michigan Temple**\
+`There were reports of an active shooter at a synagogue outside Detroit on Thursday, the authorities said.`\
+https://nytimes.com/2026/03/12/us/temple-israel-michigan-shooting.html
+
 **At the Frick Collection, a Modern Maker of Centuries-Old Designs**\
 `The goldsmith Donna Distefano uses ancient metalsmithing techniques to create replica jewelry inspired by portraits at the Frick museum.`\
 https://nytimes.com/2026/03/12/fashion/frick-collection-jewelry.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111988/2026/03/12/bucks-vs-heat-stream-how-to-watc
 **How to watch Nets vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111985/2026/03/12/nets-vs-hawks-stream-how-to-watch-march-12/
-
-**Yanar Mohammed, 65, Iraqi Women’s Rights Advocate, Is Killed by Gunmen**\
-`She established a network of safe houses for abused women and was an outspoken critic of her country’s repressive institutions, despite the constant threat of violence.`\
-https://nytimes.com/2026/03/12/world/middleeast/yanar-mohammed-dead.html
 
