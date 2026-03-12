@@ -1,5 +1,5 @@
-**Rosenthal: Mark DeRosa and Team USA get their WBC reprieve. Now they need to take advantage**\
-`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico on Wednesday.`\
+**Rosenthal: Mark DeRosa, Team USA get their WBC reprieve. Now they must take advantage**\
+`Team USA advances to the World Baseball Classic quarterfinals thanks to Italy's convincing win over Mexico.`\
 https://nytimes.com/athletic/7110252/2026/03/11/team-usa-world-baseball-classic-mark-derosa-quarterfinals/
 
 **Team USA advances, avoids disaster in WBC after Italy routs Mexico**\
@@ -23,7 +23,7 @@ https://nytimes.com/2026/03/11/crosswords/daily-puzzle-2026-03-12.html
 https://nytimes.com/2026/03/11/us/politics/trumps-states-control-republican-party.html
 
 **René Redzepi Steps Down at Noma Amid Allegations of Past Abuse**\
-`After 23 years running the Copenhagen restaurant, widely considered one of the most innovative and important in the world, the chef is resigning.`\
+`After 23 years running the Copenhagen restaurant, widely considered one of the most innovative and important in the world, the chef is leaving.`\
 https://nytimes.com/2026/03/11/dining/rene-redzepi-noma-resign-abuse.html
 
 **Boston World Cup games to go ahead after Kraft Sports agrees deal with town of Foxboro**\

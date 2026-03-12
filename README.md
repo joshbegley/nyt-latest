@@ -26,8 +26,8 @@ https://nytimes.com/2026/03/11/us/politics/trumps-states-control-republican-part
 `After 23 years running the Copenhagen restaurant, widely considered one of the most innovative and important in the world, the chef is leaving.`\
 https://nytimes.com/2026/03/11/dining/rene-redzepi-noma-resign-abuse.html
 
-**Boston World Cup games to go ahead after Kraft Sports agrees deal with town of Foxboro**\
-`Dispute over security costs of $7.8million had threatened the staging of games at Gillette Stadium in Foxboro`\
+**Boston World Cup games to go ahead after Kraft Sports, Foxboro reach deal**\
+`A dispute over $7.8 million in funding had threatened the staging of games at Gillette Stadium in Foxboro`\
 https://nytimes.com/athletic/7110108/2026/03/11/boston-world-cup-kraft-foxboro/
 
 **Israel Bombards Lebanese Capital in Latest Round of Strikes**\
