@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Rebecca Elliott, John Yoon and Ephrat Livni`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/here-is-the-latest
+
+**Iran War Live Updates: Oil Tops $100 a Barrel as Attacks Spread Across Middle East**\
+`Global oil prices surged despite pledges from the United States and other countries to release reserves. Airstrikes shook Beirut and Tehran, and more ships were attacked in the Persian Gulf.`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel
+
 **Why FA Cup chaos could make or break your FPL gains**\
 `While there is still uncertainty about exactly where certain fixtures will land, the FA Cup draw has already provided some valuable clues`\
 https://nytimes.com/athletic/7104885/2026/03/12/fantasy-premier-league-gameweek-30-fpl-tips-fa-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7104958/2026/03/12/arne-slot-liverpool-100-games/
 **Arsenal vs Manchester City: Analysing the Premier League title race**\
 `How has the Premier League title race moved on over the past couple of weeks? We explain what the numbers say on Arsenal and Manchester City`\
 https://nytimes.com/athletic/7107830/2026/03/12/arsenal-vs-manchester-city-premier-league-title-race/
-
-**Wrexham's goalposts are confusing people**\
-`'Bounce-back' goals are causing bemusement at the Racecourse Ground but the answer lies in a UEFA regulation`\
-https://nytimes.com/athletic/7107919/2026/03/12/wrexham-goalposts-ball-bounce/
-
-**Substituting Saka: Big games require big decisions, Mikel Arteta made his and was rewarded**\
-`When it became clear it was not Saka's night in Leverkusen, Arteta had the luxury of bringing on Madueke - and it worked`\
-https://nytimes.com/athletic/7109474/2026/03/12/arsenal-saka-madueke-arteta-leverkusen/
 

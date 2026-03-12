@@ -1,3 +1,11 @@
+**Here is the latest.**\
+`By Rebecca Elliott, John Yoon and Ephrat Livni`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/here-is-the-latest
+
+**Iran War Live Updates: Oil Tops $100 a Barrel as Attacks Spread Across Middle East**\
+`Global oil prices surged despite pledges from the United States and other countries to release reserves. Airstrikes shook Beirut and Tehran, and more ships were attacked in the Persian Gulf.`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel
+
 **Why FA Cup chaos could make or break your FPL gains**\
 `While there is still uncertainty about exactly where certain fixtures will land, the FA Cup draw has already provided some valuable clues`\
 https://nytimes.com/athletic/7104885/2026/03/12/fantasy-premier-league-gameweek-30-fpl-tips-fa-cup/
