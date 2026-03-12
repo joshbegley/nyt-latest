@@ -1,3 +1,7 @@
+**The Bolo? It’s Not Just for Cowboys.**\
+`Neck pieces with adjustable slides are a familiar part of Western wear, but jewelry designers are drawing from many traditions to put their own spin on them.`\
+https://nytimes.com/2026/03/12/fashion/jewelry-bolo.html
+
 **Who Will Farm America?**\
 `Many young people want to farm. They just can’t afford it.`\
 https://nytimes.com/2026/03/12/opinion/who-will-farm-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/us/the-docket-desantis-executions.html
 **Face, torso, toe - we watched back all the ways Gabriel makes his blocks for Arsenal**\
 `We look at the Brazilian's technique and speak to former Arsenal defender Matt Upson about why it is so effective at blocking shots.`\
 https://nytimes.com/athletic/7110886/2026/03/12/gabriel-blocks-arsenal-champions-league/
-
-**An all-Wales affair, a trip to Birmingham, and the top two – analysing Wrexham’s run-in**\
-`With 10 games to go, Wrexham sit in the final Championship play-off spot. The challenge now is to secure that top-six finish`\
-https://nytimes.com/athletic/7107415/2026/03/12/wrexham-championship-premier-league-ryan-reynolds-rob-mac/
 
