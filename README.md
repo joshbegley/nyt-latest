@@ -1,3 +1,15 @@
+**Duplantis breaks pole vault world record for 15th time**\
+`Duplantis beat the previous world best — set at September's World Championships — by a single centimetre.`\
+https://nytimes.com/athletic/7112856/2026/03/12/mondo-duplantis-pole-vault-world-record-fifteen/
+
+**Temple Israel Was Founded in 1941, Dedicated to the Formation of a Jewish State**\
+`The temple is one of the largest Reform institutions in America, with thousands of families and an early education center.`\
+https://nytimes.com/2026/03/12/us/temple-israel-west-bloomfield-synagogue.html
+
+**What to do with 76ers in fantasy basketball, plus Jayson Tatum's return and more**\
+`Tatum and Murray are back! Get the latest on their returns and find the best waiver wire targets ahead of the playoffs.`\
+https://nytimes.com/athletic/7112591/2026/03/12/fantasy-basketball-philadelphia-76ers-jayson-tatum/
+
 **49ers DE Bryce Huff retires at 27 after 6 NFL seasons**\
 `"I know I'm capable of giving the world more than just football," Huff said, reading from a statement.`\
 https://nytimes.com/athletic/7112912/2026/03/12/49ers-bryce-huff-retirement-announcement/
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/12/world/africa/drone-strike-congo-kills-three.html
 **NHL rescinds major penalty given to Avalanche's Nathan MacKinnon against Oilers**\
 `MacKinnon will now not face a one-game suspension if he were to receive another game misconduct in his next 41 regular-season games.`\
 https://nytimes.com/athletic/7112928/2026/03/12/nathan-mackinnon-avalanche-penalty-oilers-nhl/
-
-**Personal Trainers for Child Athletes? Teenagers Weigh In.**\
-`Students react to an article about how more young athletes are working with private coaches to level up.`\
-https://nytimes.com/2026/03/12/learning/personal-trainers-for-child-athletes-teenagers-weigh-in.html
-
-**Latest on Patriots' pursuit of A.J. Brown and Maxx Crosby — and their free-agent signings**\
-`Eliot Wolf isn't buying the idea that Tom Brady wouldn't have allowed a Crosby trade to the Pats. But could they still go after Brown?`\
-https://nytimes.com/athletic/7112830/2026/03/12/patriots-nfl-free-agency-aj-brown-maxx-crosby/
 
