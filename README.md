@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Schedule breakdown and top targets for the playoffs**\
+`In her final column of the 2025-26 fantasy hockey season, Shayna Goldman highlights the prime waiver-wire targets for the next three weeks.`\
+https://nytimes.com/athletic/7109639/2026/03/12/fantasy-hockey-trends-gems-playoff-preview/
+
 **Browns free-agency tracker: A look at Cleveland’s signings, trades and departures**\
 `Analyzing all of Cleveland's moves at the start of the 2026 league year. `\
 https://nytimes.com/athletic/7111150/2026/03/12/browns-2026-free-agency-tracker-signings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109742/2026/03/12/sharks-playoffs-kiefer-sherwood/
 **A Chilean Master of Modest Design Wins Architecture’s Top Prize**\
 `The naming of Smiljan Radic as the next Pritzker laureate was delayed by the disclosure of Jeffrey Epstein’s friendship with Tom Pritzker, who has now distanced himself from the prize.`\
 https://nytimes.com/2026/03/12/arts/design/smiljan-radic-pritzker-prize-architecture.html
-
-**Iran War Causing Largest Ever Oil Disruption, I.E.A. Says**\
-`Conflict is forcing producers to slash production and close ports as Iran steps up attacks on energy infrastructure.`\
-https://nytimes.com/2026/03/12/world/middleeast/iran-war-oil-iea.html
 
