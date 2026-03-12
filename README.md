@@ -1,3 +1,7 @@
+**Personal Trainers for Child Athletes? Teenagers Weigh In.**\
+`Students react to an article about how more young athletes are working with private coaches to level up.`\
+https://nytimes.com/2026/03/12/learning/personal-trainers-for-child-athletes-teenagers-weigh-in.html
+
 **Latest on Patriots' pursuit of A.J. Brown and Maxx Crosby — and their free-agent signings**\
 `Eliot Wolf isn't buying the idea that Tom Brady wouldn't have allowed a Crosby trade to the Pats. But could they still go after Brown?`\
 https://nytimes.com/athletic/7112830/2026/03/12/patriots-nfl-free-agency-aj-brown-maxx-crosby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111956/2026/03/12/nwsl-2026-season-next-chapter/
 **Trump to Target Forced Labor in Global Tariff Scheme**\
 `The Trump administration is expected to begin a trade investigation into whether dozens of countries have policies to combat forced labor.`\
 https://nytimes.com/2026/03/12/us/politics/trump-forced-labor-tariffs.html
-
-**The synagogue attack echoes an incident at a Michigan church last year.**\
-`By Christina Morales`\
-https://nytimes.com/live/2026/03/12/us/temple-israel-michigan-shooting/the-synagogue-attack-echoes-an-incident-at-a-michigan-church-last-year
 
