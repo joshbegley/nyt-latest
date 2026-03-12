@@ -1,3 +1,19 @@
+**Preliminary Inquiry Finds U.S. Responsible for Iran School Attack**\
+`An ongoing report determined that the United States was responsible for a Tomahawk missile strike that killed at least 175, most of them children, according to the preliminary findings of a Pentagon investigation.`\
+https://nytimes.com/video/world/middleeast/100000010769828/us-iran-school-attack-missile.html
+
+**Osa Odighizuwa trade grades: 49ers capitalize on Cowboys' DT surplus**\
+`Odighizuwa will be the most disruptive interior pass rusher the 49ers have had in years.`\
+https://nytimes.com/athletic/7109805/2026/03/11/osa-odighizuwa-49ers-cowboys-trade-grades/
+
+**In surprise move, Giants re-sign OL Neal, struggling 2022 top-10 pick**\
+`Neal has struggled since being selected with the seventh pick of the 2022 NFL Draft.`\
+https://nytimes.com/athletic/7110014/2026/03/11/evan-neal-giants-nfl-free-agency-2026/
+
+**Caitlin Clark shines among USA debutants in 110-46 rout of Senegal**\
+`Team USA's young players, including Paige Bueckers, looked superb in World Cup qualifier game against Senegal.`\
+https://nytimes.com/athletic/7109998/2026/03/11/caitlin-clark-team-usa-debut-victory/
+
 **In surprise move, Giants re-sign OL Neal, struggling 2022 top-10 pick**\
 `Neal had struggled since being selected with the seventh pick of the 2022 NFL Draft.`\
 https://nytimes.com/athletic/7110014/2026/03/11/evan-neal-giants-nfl-free-agency-2026/
