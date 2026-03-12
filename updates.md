@@ -1,3 +1,23 @@
+**Executive and Judicial Branches Spar Over Control of Federal Courthouses**\
+`The head of the General Services Administration said a proposal to transfer control of courthouse buildings to the judiciary was a bad idea.`\
+https://nytimes.com/2026/03/12/us/politics/federal-courthouses-gsa.html
+
+**Fashion’s Bold New Idea: Clothes That Are Meant to Be Worn**\
+`T’s fashion editors share their takeaways from the fall runways, which featured stripped-back garments — but also shoes that channeled lily pads.`\
+https://nytimes.com/2026/03/12/t-magazine/fashion-shows-takeaways-wearable-clothes.html
+
+**U.S. Officials Say Iran Is Laying Mines in the Strait of Hormuz**\
+`A fifth of the world’s oil passes through the strait, making it a critical choke point in global commerce.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-mines-strait-of-hormuz-us.html
+
+**Why Is Iran Blocking the Strait of Hormuz?**\
+`With attacks and threats, Tehran is using the world’s most important transit point for oil and gas as leverage against its enemies.`\
+https://nytimes.com/2026/03/12/world/middleeast/strait-of-hormuz-iran-blockade-explained.html
+
+**Steve Kerr: No conversation of drop-dead date for shutting Steph Curry down**\
+`Curry hasn't played for the Golden State Warriors since Jan. 30, and will miss at least another six games.`\
+https://nytimes.com/athletic/7113111/2026/03/12/steve-kerr-steph-curry-warriors-injury-update/
+
 **'That's When the Boos Started': The Oscars Speech That Lost the Room**\
 `Days after the 2003 invasion of Iraq, Michael Moore used his moment in the spotlight to rail against the war. Here’s what he and others onstage remember.`\
 https://nytimes.com/interactive/2026/03/12/magazine/oscar-academy-award-michael-moore-speech.html
