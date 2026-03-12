@@ -1,3 +1,11 @@
+**Middle East terminal closures add to jitters about oil prices.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/middle-east-terminal-closures-add-to-jitters-about-oil-prices
+
+**Ten Blackhawks thoughts: Who will be Jason Dickinson's successor as shutdown center?**\
+`Plus: When will we see Anton Frondell, Sacha Boisvert and John Mustard in the NHL?`\
+https://nytimes.com/athletic/7110596/2026/03/12/blackhawks-jason-dickinson-trade-ryan-greene-center-wing/
+
 **Why Does Oil Matter So Much to the Global Economy?**\
 `The war in the Middle East has sent oil and gas prices soaring. Our energy reporter Rebecca F. Elliott breaks down how much the world continues to depend on reliable sources of oil.`\
 https://nytimes.com/video/business/100000010764105/why-does-oil-matter-so-much-to-the-global-economy.html

@@ -1,3 +1,7 @@
+**My Sister Won’t Vacation With My Kids. Is She Being Selfish?**\
+`Our Ask the Therapist columnist, Lori Gottlieb, advises a reader whose sibling moved away and then canceled a family trip.`\
+https://nytimes.com/2026/03/12/well/family/sister-aunt-vacation-kids.html
+
 **Middle East terminal closures add to jitters about oil prices.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel/middle-east-terminal-closures-add-to-jitters-about-oil-prices
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7111273/2026/03/12/mvp-sga-jokic-wembanyama-bam-ade
 **Barcelona's elections come down to Joan Laporta or Victor Font. So why is Lionel Messi key?**\
 `Some 114,504 club members are eligible to vote on Sunday to decide who will lead the Spanish champions until 2031`\
 https://nytimes.com/athletic/7111116/2026/03/12/barcelona-elections-messi-laporta-font/
-
-**F1 teams await decision on Bahrain, Saudi Arabia races**\
-`A decision on the running of both April events is anticipated to come by early next week. `\
-https://nytimes.com/athletic/7111354/2026/03/12/f1-bahrain-saudi-arabia-decision/
-
-**Fantasy trends and hidden gems: Schedule breakdown and top targets for the playoffs**\
-`In her final column of the 2025-26 fantasy hockey season, Shayna Goldman highlights the prime waiver-wire targets for the next three weeks.`\
-https://nytimes.com/athletic/7109639/2026/03/12/fantasy-hockey-trends-gems-playoff-preview/
 
