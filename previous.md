@@ -1,3 +1,15 @@
+**How to watch UC Davis vs. CSU Fullerton men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the UC Davis Aggies play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112795/2026/03/12/uc-davis-vs-csu-fullerton-stream-how-to-watch-march-12/
+
+**Already a Hall of Famer, Dwight Howard officially announces his retirement**\
+`Howard retires as an eight-time NBA All-Star, a three-time NBA Defensive Player of the Year, an NBA champion and a Hall of Famer.`\
+https://nytimes.com/athletic/7112541/2026/03/12/dwight-howard-official-retirement-nba/
+
+**Israel Strikes Central Beirut, Expanding Conflict Zone**\
+`The Israeli military launched a new wave of strikes on central Beirut on Thursday, saying it was targeting infrastructure belonging to the militant group Hezbollah. The bombardment crystallized fears that the war was expanding beyond the southern outskirts of Lebanon’s capital.`\
+https://nytimes.com/video/world/middleeast/100000010772043/beirut-lebanon-israel-strikes-iran-war.html
+
 **Mike Evans thinks he’s the 49ers’ missing piece: 'It was a no-brainer'**\
 `Evans wanted to join a Super Bowl contender, and after doing his homework before free agency, he decided the 49ers were right for him.`\
 https://nytimes.com/athletic/7112481/2026/03/12/mike-evans-49ers-nfl-free-agency/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/12/world/middleeast/israel-detainee-abuse-charges.ht
 **Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
 `In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
 https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
-
-**Will Wade shoots down LSU question after NC State's ACC tournament loss**\
-`Wade, who spent five years at LSU, said he has already met with NC State administrators about changes the program needs to make in Year 2.`\
-https://nytimes.com/athletic/7112454/2026/03/12/will-wade-lsu-coaching-search-nc-state/
-
-**Death Valley Is Experiencing a Rare Wildflower Bloom**\
-`Death Valley, the hottest and driest place in North America, is experiencing a rare wildflower bloom after receiving a record amount of rain in the fall.`\
-https://nytimes.com/video/us/100000010766841/death-valley-wildflower-bloom.html
-
-**$42 Million Verdict for Iraqi Victims of U.S. Abuse Is Upheld on Appeal**\
-`The damages would be paid by a Virginia contractor that supplied interrogators to the U.S. military after the 2003 invasion of Iraq.`\
-https://nytimes.com/2026/03/12/us/politics/iraqi-lawsuit-torture-verdict-upheld.html
 

@@ -1,9 +1,17 @@
+**How to watch San Jose State vs. New Mexico men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the San Jose State Spartans play the New Mexico Lobos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112810/2026/03/12/san-jose-state-vs-new-mexico-stream-how-to-watch-march-12/
+
+**How to watch Abilene Christian vs. Utah Tech men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Abilene Christian Wildcats play the Utah Tech Trailblazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112802/2026/03/12/abilene-christian-vs-utah-tech-stream-how-to-watch-march-12/
+
 **How to watch UC Davis vs. CSU Fullerton men's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the UC Davis Aggies play the CSU Fullerton Titans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7112795/2026/03/12/uc-davis-vs-csu-fullerton-stream-how-to-watch-march-12/
 
 **Already a Hall of Famer, Dwight Howard officially announces his retirement**\
-`Howard retires as an eight-time NBA All-Star, a three-time NBA Defensive Player of the Year, an NBA champion and a Hall of Famer.`\
+`Howard, 40, has publicly toyed with the concept of returning to the court in the years since he last played pro basketball.`\
 https://nytimes.com/athletic/7112541/2026/03/12/dwight-howard-official-retirement-nba/
 
 **Israel Strikes Central Beirut, Expanding Conflict Zone**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7112636/2026/03/12/penguins-vs-golden-knights-strea
 **The Largest Oil Supply Disruption in History**\
 `A look at the war in Iran’s effects on global energy markets, two activists whose Sierra Club memberships were revoked, and more climate and environmental news.`\
 https://nytimes.com/2026/03/12/climate/the-largest-oil-supply-disruption-in-history.html
-
-**Israel Drops Case Against Soldiers Accused of Abusing Palestinian Detainee**\
-`After a prisoner arrived at a hospital with broken ribs and a torn rectum, Israelis were once again at odds over the issue of mistreatment and impunity.`\
-https://nytimes.com/2026/03/12/world/middleeast/israel-detainee-abuse-charges.html
-
-**Spire owner 'disturbed' by Joe Gibbs Racing hiring private investigator**\
-`In a court filing Wednesday, Jeff Dickerson called it an "extraordinary" move by JGR to hire a PI to follow him and Chris Gabehart.`\
-https://nytimes.com/athletic/7112114/2026/03/12/joe-gibbs-racing-spire-lawsuit-private-investigator-jeff-dickerson/
 
