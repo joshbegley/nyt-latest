@@ -1,3 +1,15 @@
+**How to watch Mavericks vs. Grizzlies: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Memphis Grizzlies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7112014/2026/03/12/mavericks-vs-grizzlies-stream-how-to-watch-march-12/
+
+**Rising Gold and Silver Prices Take the Jewelry Industry on a Wild Ride**\
+`Some jewelers are turning to wood, steel and even platinum. Others are leaning into the volatility with bigger and bolder designs.`\
+https://nytimes.com/2026/03/12/fashion/gold-silver-diamonds-prices-jewelry.html
+
+**How to watch Nuggets vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7111991/2026/03/12/nuggets-vs-spurs-stream-how-to-watch-march-12/
+
 **How to watch Bucks vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7111988/2026/03/12/bucks-vs-heat-stream-how-to-watch-march-12/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/12/dining/noma-restaurant-culture-influence.html
 **Don’t Cha … Wish the Pussycat Dolls Would Go on Tour?**\
 `You’re in luck: The early 2000s girl group announced a new single and a reunion tour on Thursday.`\
 https://nytimes.com/2026/03/12/arts/music/pussycat-dolls-reunion.html
-
-**Conservative Euphoria Hits Chile as Right Surges in Latin America**\
-`The inauguration of Chile’s new president, José Antonio Kast, is the latest milestone in a broader shift toward conservatism and pro-Trump alignment in the region.`\
-https://nytimes.com/2026/03/12/world/americas/chile-kast-conservatism-trump.html
-
-**The 20 Best Food Scenes in Movies**\
-`Ahead of the Oscars on Sunday, Food and Film writers and editors recount the moments that filled them most.`\
-https://nytimes.com/2026/03/12/dining/best-food-movie-scenes.html
-
-**Pardoning Netanyahu Now Would Be Improper, Key Israeli Office Says**\
-`Rebuffing pressure from President Trump, a legal office says the prime minister should be pardoned only  if he resigns, confesses or is convicted.`\
-https://nytimes.com/2026/03/12/world/middleeast/netanyahu-pardon-legal-opinion.html
 
