@@ -1,3 +1,7 @@
+**Premier League teams are exhausted - no wonder they cannot dominate in Europe**\
+`For all its riches and talent, a draining schedule means English clubs often fall short at the business end in Europe`\
+https://nytimes.com/athletic/7109628/2026/03/12/premier-league-champions-league/
+
 **As the Women's Super League continues to grow, academy players risk being left behind**\
 `Until recently, WSL clubs' academies were lower priorities as teams raced to capitalise on increased attention after the 2022 Euros`\
 https://nytimes.com/athletic/7077042/2026/03/12/england-womens-super-league-academy-players/
