@@ -1,3 +1,23 @@
+**Premier League underdogs: Three games that could provide a shock this weekend**\
+`Twenty points is all that separates the top five in the Premier League table and the bottom three this season`\
+https://nytimes.com/athletic/7114823/2026/03/13/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend/
+
+**Auburn, and a dreadful NCAA Tournament bubble, should quash any expansion talk**\
+`Auburn might become the first 16-loss team to get an at-large bid. And that’s a definitive statement on the idea of tournament expansion.`\
+https://nytimes.com/athletic/7113841/2026/03/13/march-madness-bubble-expansion-auburn-basketball/
+
+**Shai Gilgeous-Alexander's accomplishment, Cavs chair advantage and more NBA trends I'm watching**\
+`SGA's greatest achievement is proving that Wilt Chamberlain's records can be broken.`\
+https://nytimes.com/athletic/7113033/2026/03/13/shai-gilgeous-alexander-okc-thunder-record-cavaliers/
+
+**Ryan Weathers, Clay Holmes and 5 more pitchers showing improved stuff this spring**\
+`Spring stats are largely meaningless but there is data from spring games that can hint at which pitchers might be breaking out this season.`\
+https://nytimes.com/athletic/7102907/2026/03/13/mlb-spring-training-pitching-improvements-ryan-weathers/
+
+**Women's NCAA Tournament Bracket Watch: The debate continues. UConn or UCLA at No. 1?**\
+`USC and Tennessee didn't help their chances with rough tournament outings. Who's in? Who's out?`\
+https://nytimes.com/athletic/7113413/2026/03/13/womens-bracket-watch-ncaa-tournament-ucla-uconn/
+
 **Everton's Moyes hopeful of having Branthwaite fit for Arsenal**\
 `The 23-year-old was substituted 83 minutes into the recent home victory over Burnley last time out.`\
 https://nytimes.com/athletic/7114821/2026/03/13/moyes-branthwaite-everton-arsenal-fitness/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7112121/2026/03/13/bam-adebayo-83-points-survey-the
 **Why Kenneth Walker III has already made impression on his Chiefs teammates**\
 `What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
 https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
-
-**Bears' new free-agent class has big goals — and a sense of humor**\
-`Thursday's newcomer introductions at Halas Hall came with a balance of ambition and levity for a retooling Bears team.`\
-https://nytimes.com/athletic/7114001/2026/03/13/chicago-bears-new-free-agent-class-big-goals/
-
-**What Does It Mean to Have Air Superiority Over Iran?**\
-`The American and Israeli air forces have a dominant advantage in the skies, but Iran can still muster some resistance.`\
-https://nytimes.com/2026/03/13/world/middleeast/air-superiority-iran-war.html
-
-**What we learned: It's clear Lions have a type with their newest additions**\
-`Cade Mays, Larry Borom and Isiah Pacheco spoke with Detroit reporters Thursday after joining the Lions in free agency.`\
-https://nytimes.com/athletic/7113461/2026/03/13/lions-free-agency-cade-mays-isiah-pacheco-borom/
-
-**What's next for Panthers in free agency? Potential OT and secondary targets**\
-`With Ikem Ekwonu sidelined, the Panthers could target an offensive lineman in free agency or the draft — or both.`\
-https://nytimes.com/athletic/7113557/2026/03/13/panthers-free-agent-targets-offensive-tackle/
-
-**Can Red Wings' survive without Larkin, Copp as playoff race tightens?**\
-`The Red Wings on Thursday showed the kind of fight they will need to survive with an injury-depleted lineup, but still came up short.`\
-https://nytimes.com/athletic/7114078/2026/03/13/red-wings-larkin-copp-injuries-lightning/
 

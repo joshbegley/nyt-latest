@@ -1,3 +1,23 @@
+**Premier League underdogs: Three games that could provide a shock this weekend**\
+`Twenty points is all that separates the top five in the Premier League table and the bottom three this season`\
+https://nytimes.com/athletic/7114823/2026/03/13/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend/
+
+**Auburn, and a dreadful NCAA Tournament bubble, should quash any expansion talk**\
+`Auburn might become the first 16-loss team to get an at-large bid. And that’s a definitive statement on the idea of tournament expansion.`\
+https://nytimes.com/athletic/7113841/2026/03/13/march-madness-bubble-expansion-auburn-basketball/
+
+**Shai Gilgeous-Alexander's accomplishment, Cavs chair advantage and more NBA trends I'm watching**\
+`SGA's greatest achievement is proving that Wilt Chamberlain's records can be broken.`\
+https://nytimes.com/athletic/7113033/2026/03/13/shai-gilgeous-alexander-okc-thunder-record-cavaliers/
+
+**Ryan Weathers, Clay Holmes and 5 more pitchers showing improved stuff this spring**\
+`Spring stats are largely meaningless but there is data from spring games that can hint at which pitchers might be breaking out this season.`\
+https://nytimes.com/athletic/7102907/2026/03/13/mlb-spring-training-pitching-improvements-ryan-weathers/
+
+**Women's NCAA Tournament Bracket Watch: The debate continues. UConn or UCLA at No. 1?**\
+`USC and Tennessee didn't help their chances with rough tournament outings. Who's in? Who's out?`\
+https://nytimes.com/athletic/7113413/2026/03/13/womens-bracket-watch-ncaa-tournament-ucla-uconn/
+
 **Everton's Moyes hopeful of having Branthwaite fit for Arsenal**\
 `The 23-year-old was substituted 83 minutes into the recent home victory over Burnley last time out.`\
 https://nytimes.com/athletic/7114821/2026/03/13/moyes-branthwaite-everton-arsenal-fitness/
