@@ -1,36 +1,36 @@
+**How to watch Bulls vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Chicago Bulls play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116233/2026/03/13/bulls-vs-clippers-stream-how-to-watch-march-13/
+
+**How to watch Jazz vs. Trail Blazers: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Portland Trail Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116219/2026/03/13/jazz-vs-trail-blazers-stream-how-to-watch-march-13/
+
+**How to watch Timberwolves vs. Warriors: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Golden State Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116216/2026/03/13/timberwolves-vs-warriors-stream-how-to-watch-march-13/
+
+**Read Some of John F. Burns’s Reporting From Around the World**\
+`In a 40-year career as an international correspondent for The New York Times, Mr. Burns had a talent for capturing the sweep of history in intricate detail.`\
+https://nytimes.com/2026/03/13/world/middleeast/john-f-burns-stories.html
+
+**Adobe Settles With U.S. Over Hard-to-Cancel Subscriptions**\
+`The maker of Photoshop agreed to pay $75 million to the government, which had accused it of hiding details of expensive fees.`\
+https://nytimes.com/2026/03/13/technology/adobe-settlement-doj.html
+
+**Everyone Deserves a Teeny Turner**\
+`My family treasures this tiny but mighty precision screwdriver.  Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
+https://nytimes.com/wirecutter/reviews/teeny-turner-review/
+
+**Glen 'Big Baby' Davis released from prison following NBA fraud conviction**\
+`Davis was one of 18 former players charged with defrauding the NBA Players’ Health and Benefit Welfare Plan of $2.5 million.`\
+https://nytimes.com/athletic/7116086/2026/03/13/glen-davis-released-prison-health-care-fraud/
+
+**Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
+`The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
+https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html
+
 **The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
 `Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
 https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
-
-**M.T.A., Not A.T.M.: Transit Chief Backs Hochul’s Auto Insurance Reforms**\
-`Transit officials said on Friday that the governor’s insurance proposals could save the authority millions of dollars that could be used to improve service.`\
-https://nytimes.com/2026/03/13/nyregion/ny-hochul-auto-insurance-reform-mta.html
-
-**NFL Newsletter: Did the Bears get cheated?**\
-`The Bears should probably receive multiple third-round picks after the Falcons hired GM Ian Cunningham`\
-https://nytimes.com/athletic/7115927/2026/03/13/chicago-bears-comp-picks-nfl-falcons-gm/
-
-**Flashback: Your Weekly History Quiz, March 14, 2026**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2026/03/13/upshot/flashback.html
-
-**‘One Battle After Another’ Is Just a Movie. Resistance Is Real.**\
-`Readers respond to a guest essay about the Paul Thomas Anderson movie “One Battle After Another” by the daughter of two Weatherman. Also: Will we be around to unearth a time capsule?`\
-https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html
-
-**Lewis E. Lehrman, Store Chain Heir Who Ran for N.Y. Governor, Dies at 87**\
-`After helping his family’s Rite-Aid drugstore empire flourish, he waged a surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
-https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
-
-**‘A Very Big Hurdle’: Trump Softens Call for Protesters to Take Over Iran**\
-`President Trump said protesters risk getting shot “right through the head,” a change in tone from his earlier comments that Iranians must seize the chance to take over their government.`\
-https://nytimes.com/2026/03/13/world/middleeast/trump-iran-protesters.html
-
-**A Pastry-Centric Tea Party That Ended With McDonald’s**\
-`The writer and baker Tanya Bush celebrated her new narrative cookbook with homemade treats and a silver platter of fries.`\
-https://nytimes.com/2026/03/13/t-magazine/tanya-bush-tea-party.html
-
-**Until Saturday: 68-team college football bracket**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
 

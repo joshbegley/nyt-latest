@@ -1,3 +1,7 @@
+**What's to expect from The Athletic's NWSL coverage ahead of 2026 regular season**\
+`We have you covered this season, no matter the chaos in the NWSL, and are excited to welcome you aboard.`\
+https://nytimes.com/athletic/7115541/2026/03/13/nwsl-2026-season-coverage-the-athletic/
+
 **How to watch Bulls vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116233/2026/03/13/bulls-vs-clippers-stream-how-to-watch-march-13/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7116086/2026/03/13/glen-davis-released-prison-healt
 **Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
 `The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
 https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html
-
-**The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
-`Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
-https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
 
