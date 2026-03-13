@@ -1,3 +1,7 @@
+**Canada have gone viral in curling again, this time for all the best reasons**\
+`After a dramatic Olympics of stone-touching controversies and medals, Canada is making curling news again. This time for pure dominance.`\
+https://nytimes.com/athletic/7112982/2026/03/13/canada-wheelchair-curling-jon-thurston-viral-shot/
+
 **This is what happened on March 12.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-12
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/world/asia/iran-war-china-asia.html
 **Globalization Faces Its Next Crisis**\
 `Beyond its effects on oil and gas, the unfolding war in the Middle East is roiling shipping and airfreight, threatening the availability of a vast range of goods.`\
 https://nytimes.com/2026/03/13/business/economy/iran-war-global-supply-chain.html
-
-**What to Know About the U.S. Lasers Being Used to Counter Iranian Attacks**\
-`High-energy lasers can burn drones in the sky like a blowtorch. But they can be stymied by weather, and making them at scale will be a challenge.`\
-https://nytimes.com/2026/03/13/business/what-to-know-about-the-us-lasers-being-used-to-counter-iranian-attacks.html
 
