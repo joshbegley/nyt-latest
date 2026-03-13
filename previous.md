@@ -1,4 +1,4 @@
-**K-State to hire Belmont's Casey Alexander as men's basketball coach: Source**\
+**K-State to hire Belmont's Casey Alexander as men's basketball coach: Sources**\
 `Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
 https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/
 
