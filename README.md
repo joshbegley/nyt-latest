@@ -1,40 +1,40 @@
-**Quote of the Day: Pints Still Flow Freely in Dublin, but More Are Alcohol-Free**\
-`Quotation of the Day for Friday, March 13, 2026.`\
-https://nytimes.com/2026/03/12/pageoneplus/quote-of-the-day-pints-still-flow-freely-in-dublin-but-more-are-alcohol-free.html
+**An Ancient Temple at the Heart of a Modern Conflict**\
+`A rare visit to a Khmer temple on Thailand and Cambodia’s border showed how deadly clashes between the two countries have scarred a heritage site.`\
+https://nytimes.com/2026/03/13/world/asia/thailand-cambodia-preah-vihear-temple.html
 
-**Shorthanded Duke survives vs. Florida State in ACC Tournament**\
-`The Blue Devils will face the winner of Clemson-North Carolina in the quarterfinals.`\
-https://nytimes.com/athletic/7114170/2026/03/12/duke-survives-florida-state-acc-tournament/
+**Bad News for Friggatriskaidekaphobics: 2026 Has Three Fridays the 13th**\
+`It’s the first time since 2015 that the combination of the day and date associated with bad luck has recurred three times in a calendar year.`\
+https://nytimes.com/2026/03/13/us/friday-13th-three-times.html
 
-**Jerry Jones on Maxx Crosby: Doesn't completely rule out Cowboys interest**\
-`After his trade to the Ravens fell through, Crosby seemed to reaffirm his commitment to the Raiders late Wednesday night.`\
-https://nytimes.com/athletic/7114210/2026/03/12/cowboys-jerry-jones-maxx-crosby/
+**Connections: Sports Edition Coach: Hints and answers for March 13, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7114308/2026/03/13/connections-sports-edition-hints-answers-march-13-2026/
 
-**K-State to hire Belmont's Casey Alexander as men's basketball coach: Sources**\
-`Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
-https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/
+**Honda Scraps Plans for E.V.s While Start-Ups Forge Ahead**\
+`The Japanese company’s retreat echoes moves by other traditional carmakers as the industry divides between electric vehicle haves and have-nots.`\
+https://nytimes.com/2026/03/13/business/honda-scraps-plans-for-evs-while-start-ups-forge-ahead.html
 
-**Canada to Expand Military Presence in Arctic, Following Trump Threats**\
-`Prime Minister Mark Carney said Canada would build three bases in the region. The government also plans to improve infrastructure and airports in the north.`\
-https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
+**Corrections: March 13, 2026**\
+`Corrections that appeared in print on Friday, March 13, 2026.`\
+https://nytimes.com/2026/03/13/pageoneplus/corrections-march-13-2026.html
 
-**Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
-`The new look blends elements of the team's history with its identity in Tennessee as the franchise said it prepares for its next chapter.`\
-https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
+**How the War in Iran Could Help China and Change Asia**\
+`American officials have said for years that they would prioritize the Indo-Pacific. Now they’re moving warships, missiles and air defenses out for a war in the Middle East.`\
+https://nytimes.com/2026/03/13/world/asia/iran-war-china-asia.html
 
-**Shai Gilgeous-Alexander breaks Wilt Chamberlain's record for consecutive 20-point games**\
-`The Oklahoma City Thunder star has now notched at least 20 points in 127 consecutive regular-season games. `\
-https://nytimes.com/athletic/7112567/2026/03/12/sga-20-point-streak-wilt-chamberlain-record/
+**Globalization Faces Its Next Crisis**\
+`Beyond its effects on oil and gas, the unfolding war in the Middle East is roiling shipping and airfreight, threatening the availability of a vast range of goods.`\
+https://nytimes.com/2026/03/13/business/economy/iran-war-global-supply-chain.html
 
-**Daniel Radcliffe Makes ‘Every Brilliant Thing’ Shine**\
-`The actor’s fondness for the audience radiates outward in this delightful interactive play about naming and noticing the good in the world.`\
-https://nytimes.com/2026/03/12/theater/every-brilliant-thing-review-daniel-radcliffe.html
+**What to Know About the U.S. Lasers Being Used to Counter Iranian Attacks**\
+`High-energy lasers can burn drones in the sky like a blowtorch. But they can be stymied by weather, and making them at scale will be a challenge.`\
+https://nytimes.com/2026/03/13/business/what-to-know-about-the-us-lasers-being-used-to-counter-iranian-attacks.html
 
-**Suspect in Michigan Synagogue Attack Worked at Popular Restaurant**\
-`The authorities identified the suspect as a naturalized U.S. citizen. Residents of Dearborn Heights, Mich., said he took orders at the business.`\
-https://nytimes.com/2026/03/12/us/michigan-synagogue-suspect-ayman-ghazali.html
+**Yes, He Actually Tried to Woo Me by Drone**\
+`My Nigerian tech bro considered flowers to be “too analog.”`\
+https://nytimes.com/2026/03/13/style/modern-love-yes-he-tried-to-woo-me-by-drone.html
 
-**Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
-`The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
-https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/
+**Surging Energy Costs Put German Industry ‘Really in Danger’**\
+`Four years after the Russian invasion of Ukraine sent energy prices soaring, the war in Iran is posing another challenge to efforts to revive European factories.`\
+https://nytimes.com/2026/03/13/business/energy-environment/iran-energy-costs-germany-factories.html
 

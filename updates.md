@@ -1,3 +1,11 @@
+**Quote of the Day: Pints Still Flow Freely in Dublin, but More Are Alcohol-Free**\
+`Quotation of the Day for Friday, March 13, 2026.`\
+https://nytimes.com/2026/03/12/pageoneplus/quote-of-the-day-pints-still-flow-freely-in-dublin-but-more-are-alcohol-free.html
+
+**Shorthanded Duke survives vs. Florida State in ACC Tournament**\
+`The Blue Devils will face the winner of Clemson-North Carolina in the quarterfinals.`\
+https://nytimes.com/athletic/7114170/2026/03/12/duke-survives-florida-state-acc-tournament/
+
 **Jerry Jones on Maxx Crosby: Doesn't completely rule out Cowboys interest**\
 `After his trade to the Ravens fell through, Crosby seemed to reaffirm his commitment to the Raiders late Wednesday night.`\
 https://nytimes.com/athletic/7114210/2026/03/12/cowboys-jerry-jones-maxx-crosby/

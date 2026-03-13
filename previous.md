@@ -1,3 +1,11 @@
+**Quote of the Day: Pints Still Flow Freely in Dublin, but More Are Alcohol-Free**\
+`Quotation of the Day for Friday, March 13, 2026.`\
+https://nytimes.com/2026/03/12/pageoneplus/quote-of-the-day-pints-still-flow-freely-in-dublin-but-more-are-alcohol-free.html
+
+**Shorthanded Duke survives vs. Florida State in ACC Tournament**\
+`The Blue Devils will face the winner of Clemson-North Carolina in the quarterfinals.`\
+https://nytimes.com/athletic/7114170/2026/03/12/duke-survives-florida-state-acc-tournament/
+
 **Jerry Jones on Maxx Crosby: Doesn't completely rule out Cowboys interest**\
 `After his trade to the Ravens fell through, Crosby seemed to reaffirm his commitment to the Raiders late Wednesday night.`\
 https://nytimes.com/athletic/7114210/2026/03/12/cowboys-jerry-jones-maxx-crosby/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/us/michigan-synagogue-suspect-ayman-ghazali.html
 **Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
 `The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
 https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/
-
-**Mirtle: Why the NHL needs to suspend Radko Gudas for his dirty hit on Auston Matthews**\
-`Gudas' history may be a factor for the league, as he will likely find himself back in hot water with the NHL’s Department of Player Safety.`\
-https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-ducks-leafs/
-
-**Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
-`Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
-https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
 
