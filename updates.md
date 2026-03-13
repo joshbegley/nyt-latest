@@ -1,3 +1,7 @@
+**The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
+`Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
+https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
+
 **M.T.A., Not A.T.M.: Transit Chief Backs Hochul’s Auto Insurance Reforms**\
 `Transit officials said on Friday that the governor’s insurance proposals could save the authority millions of dollars that could be used to improve service.`\
 https://nytimes.com/2026/03/13/nyregion/ny-hochul-auto-insurance-reform-mta.html

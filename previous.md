@@ -1,3 +1,7 @@
+**The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
+`Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
+https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
+
 **M.T.A., Not A.T.M.: Transit Chief Backs Hochul’s Auto Insurance Reforms**\
 `Transit officials said on Friday that the governor’s insurance proposals could save the authority millions of dollars that could be used to improve service.`\
 https://nytimes.com/2026/03/13/nyregion/ny-hochul-auto-insurance-reform-mta.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/13/t-magazine/tanya-bush-tea-party.html
 **Until Saturday: 68-team college football bracket**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
-
-**Cincinnati, Wes Miller part ways after 5 seasons: Source**\
-`Miller had three years left on an extension signed in 2022 with a buyout of $4.69 million. `\
-https://nytimes.com/athletic/7097333/2026/03/13/wes-miller-cincinnati-basketball-coaching-change/
 
