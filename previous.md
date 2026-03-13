@@ -1,3 +1,19 @@
+**New Jersey Is Reconsidering Legalizing Casinos Outside Atlantic City**\
+`Legislation has been introduced to authorize two new casinos at the Meadowlands and Monmouth Park racetracks to compete against the three new casinos planned for New York City.`\
+https://nytimes.com/2026/03/13/nyregion/casinos-new-jersey-meadowlands.html
+
+**The Challenge of Helping Homeless People Who Avoid New York’s Shelters**\
+`Mayor Zohran Mamdani has been reluctant to force people indoors, even in dire weather. But conditions, whether on the streets or in shelters, can be dangerous.`\
+https://nytimes.com/2026/03/13/nyregion/nyc-street-homeless-outreach.html
+
+**Gas Pump**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/03/13/learning/gas-pump.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
+
 **This is not how Palace dreamt of Europe. But they still have success in their sights**\
 `Oliver Glasner's side experienced a familiar sense of frustration against Larnaca in the Conference League`\
 https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/video/business/100000010773720/india-cooking-gas-middle-east
 **FPL planning and the added dimension of European ties**\
 `With key European round-of-16 ties sandwiched between the next two Fantasy Premier League gameweeks, how should managers prepare?`\
 https://nytimes.com/athletic/7107426/2026/03/13/fantasy-premier-league-gameweek-30-fpl-tips-champions-league/
-
-**John Hynes' message after Wild's poor effort, shootout loss: 'Winning is not inevitable'**\
-`The Wild went ahead in the second period but didn't buckle down against a team they might have regarded as a pushover.`\
-https://nytimes.com/athletic/7113635/2026/03/13/wild-flyers-shootout-loss-hynes/
-
-**Leeds have players struggling for minutes. How can Farke ensure they can make an impact?**\
-`Behind closed doors matches, earlier substitutions and other options could be explored by Farke`\
-https://nytimes.com/athletic/7112243/2026/03/13/leeds-rotation-fringe-analysis/
-
-**Aston Villa and Unai Emery needed a structural reset in Lille — they got one**\
-`Last weekend's heavy defeat by Chelsea demanded a reaction, one that Villa's players duly provided`\
-https://nytimes.com/athletic/7111838/2026/03/13/aston-villa-reset-emery-europa-league-little-watkins/
-
-**Newcastle would be foolish to put all their eggs in the Champions League basket**\
-`Eddie Howe's side must remain focused on the Premier League – they still have much to play for domestically`\
-https://nytimes.com/athletic/7107621/2026/03/13/newcastle-premier-league-champions-league-eddie-howe/
 

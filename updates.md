@@ -1,3 +1,19 @@
+**New Jersey Is Reconsidering Legalizing Casinos Outside Atlantic City**\
+`Legislation has been introduced to authorize two new casinos at the Meadowlands and Monmouth Park racetracks to compete against the three new casinos planned for New York City.`\
+https://nytimes.com/2026/03/13/nyregion/casinos-new-jersey-meadowlands.html
+
+**The Challenge of Helping Homeless People Who Avoid New York’s Shelters**\
+`Mayor Zohran Mamdani has been reluctant to force people indoors, even in dire weather. But conditions, whether on the streets or in shelters, can be dangerous.`\
+https://nytimes.com/2026/03/13/nyregion/nyc-street-homeless-outreach.html
+
+**Gas Pump**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2026/03/13/learning/gas-pump.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
+
 **This is not how Palace dreamt of Europe. But they still have success in their sights**\
 `Oliver Glasner's side experienced a familiar sense of frustration against Larnaca in the Conference League`\
 https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
