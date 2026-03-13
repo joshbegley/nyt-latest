@@ -1,3 +1,7 @@
+**Lauren James signs new Chelsea contract until 2030**\
+`The extension comes the same day as her brother, Reece, penned a new six-year contract with the west London club.`\
+https://nytimes.com/athletic/7116468/2026/03/13/lauren-james-signs-new-chelsea-contract/
+
 **Rasheed Walker agrees to 1-year deal with Panthers: Source**\
 `A 2022 seventh-round pick by the Packers, Walker has made 48 starts at left tackle over the past three seasons.`\
 https://nytimes.com/athletic/7091578/2026/03/13/panthers-rasheed-walker-nfl-free-agency-2026/
