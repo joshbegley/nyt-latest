@@ -1,3 +1,27 @@
+**A Crash, Gunfire and Then a Race to Save a Synagogue Full of Children**\
+`“I didn’t breathe until I knew all of the kids were OK,” one teacher recalled after a truck crashed through the doors of a Michigan synagogue this week.`\
+https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
+
+**Federal Judge Blocks Order Ending Deportation Protections for Somalis**\
+`The judge said she was staying the order indefinitely in large part because the Trump administration had been unprepared to defend it in court.`\
+https://nytimes.com/2026/03/13/us/politics/somalis-tps-deportations-trump.html
+
+**Old Dominion Attacker Appeared to Target R.O.T.C., Court Records Show**\
+`Before opening fire in a university classroom, the gunman asked people if they were there for a Reserve Officers Training Corps event, court documents said.`\
+https://nytimes.com/2026/03/13/us/old-dominion-shooting-gunman-rotc.html
+
+**Auston Matthews out for season after knee-on-knee hit**\
+`The Toronto captain sustained the injury after a nasty collision with Radko Gudas during the second period of Thursday’s 6-4 win.`\
+https://nytimes.com/athletic/7115718/2026/03/13/maple-leafs-auston-matthews-injury-knee/
+
+**Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
+`Lt. Col. Brandon Shah flew hundreds of combat missions as a war-zone helicopter pilot before being shot and killed in his Old Dominion University classroom by a radicalized military veteran.`\
+https://nytimes.com/2026/03/13/us/old-dominion-shooting-suspect.html
+
+**Danny Coulombe ramping up for Opening Day; Johan Oviedo trying to win fifth starter role**\
+`Coloumbe thinks he can be available for the Red Sox on March 26, when they open the regular season against the Reds.`\
+https://nytimes.com/athletic/7116570/2026/03/13/danny-coulombe-johan-oviedo-red-sox-pitchers-2026/
+
 **Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
 `Lt. Col. Brandon Shah flew hundreds of combat missions as a war-zone helicopter pilot before being shot and killed in his Old Dominion University classroom by a radicalized military veteran.`\
 https://nytimes.com/2026/03/13/us/before-deadly-attack-the-parallel-lives-of-2-soldiers-diverged.html
