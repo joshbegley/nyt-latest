@@ -1,3 +1,15 @@
+**How will Julian Sayin 'level up' at Ohio State? Here's where he says he can get better**\
+`As spring practice begins, Ohio State's Heisman finalist quarterback reflected on a tough finish to the 2025 season and what's next.`\
+https://nytimes.com/athletic/7112338/2026/03/13/ohio-state-julian-sayin-spring-football/
+
+**A Dangerous Bottleneck**\
+`Iran is turning the Strait of Hormuz into a battlefield, proving that a short and surgical war with Iran could be a fantasy.`\
+https://nytimes.com/2026/03/13/briefing/a-dangerous-bottleneck.html
+
+**Wizards get the bounce-back performance they needed after the Bam Adebayo game**\
+`Although they lost, the Wizards showed more fortitude on Thursday, two days after watching Bam Adebayo score 83 points. `\
+https://nytimes.com/athletic/7114456/2026/03/13/washington-wizards-bam-adebayo-magic-trae-young/
+
 **Turkey Says NATO Defenses Shot Down a Third Iranian Missile**\
 `Turkey did not say where the missile was intercepted. But residents near Incirlik Air Base, which hosts U.S. troops, reported hearing sirens and a loud boom.`\
 https://nytimes.com/2026/03/13/world/middleeast/turkey-nato-iran-missile.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7092382/2026/03/13/chicago-cubs-marquee-alex-bregma
 **Life as a Wild lifer: Jared Spurgeon has built a Minnesota legacy, on and off ice, at 1,000 games**\
 `Spurgeon, who will play his 1,000th NHL game on Saturday, has established deep roots in Minnesota since arriving as a longshot rookie.`\
 https://nytimes.com/athletic/7109370/2026/03/13/jared-spurgeon-1000-games-wild/
-
-**How many top-100 college football recruits are panning out? Reviewing the Class of 2023**\
-`How many players from the Arch Manning-led 2023 cycle are already NFL-bound — and how many have transferred multiple times?`\
-https://nytimes.com/athletic/7111470/2026/03/13/college-football-recruiting-rankings-2023-draft/
-
-**A.I. Goes to War + Is ‘A.I. Brain Fry’ Real? + How Grammarly Stole Casey’s Identity**\
-`“When there is an attack that kills civilians or doesn’t hit its intended target, people are going to be asking, Oh, was that a human who made that mistake or was that an A.I. system?”`\
-https://nytimes.com/2026/03/13/podcasts/ai-goes-to-war-is-ai-brain-fry-real-how-grammarly-stole-caseys-identity.html
-
-**When There’s Nothing Against It in the Rulebook**\
-`In “Marty Supreme,” “Air Bud” and real life — is it unfair to exploit a loophole, or just good strategy?`\
-https://nytimes.com/2026/03/13/crosswords/marty-supreme-air-bud-fair-play.html
 
