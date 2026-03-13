@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`Iran’s new supreme leader delivered a forceful message in his first public statement since succeeding his slain father, as the Israeli military bombarded Tehran and the Lebanese capital with strikes.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-war-middle-east-beirut-recap.html
+
 **What We Know About the Synagogue Attack in Michigan**\
 `The attacker who drove into Temple Israel in West Bloomfield Township is dead, but officials have not yet provided an identity or a motive. No one else was killed.`\
 https://nytimes.com/2026/03/12/us/michigan-synagogue-shooting-temple-israel.html
@@ -19,7 +23,7 @@ https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
 https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
 
 **Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
-`Ward set a spring training record with his 17th steal, while Cora hopes Early and Payton Tolle will "become monsters."`\
+`Ward set a spring training record with his 17th steal, while Alex Cora hopes Early and Payton Tolle will "become monsters."`\
 https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
 
 **Steelers agree to terms with safety Jaquan Brisker: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/technology/meta-avocado-ai-model-delayed.html
 **Rangers condemn 'vile, cowardly' graffiti referencing Ibrox disaster**\
 `Both Rangers and Celtic issued statements on Thursday in response to fan disorder during the match.`\
 https://nytimes.com/athletic/7113368/2026/03/12/rangers-celtic-old-firm-graffiti/
-
-**Weakened by War, Iran Hits Back by Strangling a Vital Waterway**\
-`The threats to shipping in the Strait of Hormuz are complicating President Trump’s calculations about how and when to end the war.`\
-https://nytimes.com/2026/03/12/us/politics/strait-of-hormuz-iran-war.html
 

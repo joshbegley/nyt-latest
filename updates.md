@@ -1,3 +1,15 @@
+**What We Know About the Synagogue Attack in Michigan**\
+`The attacker who drove into Temple Israel in West Bloomfield Township is dead, but officials have not yet provided an identity or a motive. No one else was killed.`\
+https://nytimes.com/2026/03/12/us/michigan-synagogue-shooting-temple-israel.html
+
+**U.S. Refueling Plane Crashes in Iraq, Military Says**\
+`The crash was not because of hostile fire or friendly fire, U.S. Central Command said.`\
+https://nytimes.com/2026/03/12/world/middleeast/us-refueling-plane-crash-iraq.html
+
+**Davies to miss Canada's March camp through injury - Marsch**\
+`Davies' latest injury setback is a headache for the Canada coach's World Cup plans`\
+https://nytimes.com/athletic/7113597/2026/03/12/alphonso-davies-canada-camp-injury/
+
 **War in Iran Has India Wondering How to Keep Its Stovetops Lit**\
 `India relies on huge quantities of cooking gas that is normally shipped from the Persian Gulf.`\
 https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
