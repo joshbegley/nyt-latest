@@ -1,3 +1,11 @@
+**Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
+`A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
+https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
+
+**Cuba Pledges to Release 51 Prisoners Amid Pressure From Washington**\
+`The Trump administration has been trying to choke the Cuban government through an oil blockade. The prisoner release appears to be an effort to appease Washington.`\
+https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
+
 **Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
 `Gudas was given a five-minute major for kneeing and a game misconduct as Matthews had to be helped off the ice.`\
 https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
