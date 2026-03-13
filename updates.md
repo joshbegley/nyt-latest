@@ -1,3 +1,7 @@
+**Mercedes in talks over buying stake in Alpine F1 team from investment firm**\
+`One of the other groups that's shown interest involves former Red Bull team principal Christian Horner.`\
+https://nytimes.com/athletic/7114640/2026/03/13/mereces-alpine-f1-otro-capital-briatore/
+
 **How to watch George Washington vs. Saint Louis men's basketball: A-10 Tournament Time, TV, streaming**\
 `Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114672/2026/03/13/george-washington-vs-saint-louis-stream-how-to-watch-march-13/
