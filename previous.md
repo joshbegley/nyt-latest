@@ -1,3 +1,23 @@
+**E.P.A. Moves to Weaken Limits on a Cancer-Causing Gas**\
+`The gas, ethylene oxide, plays a crucial role in sterilizing medical devices. But long-term exposure is linked to several types of cancer and other ailments.`\
+https://nytimes.com/2026/03/13/climate/epa-ethylene-oxide-cancer.html
+
+**The War in Iran Is Roiling the World, but Not the U.S. Stock Market**\
+`Investors say they are balancing the risks from oil disruptions against the many positives like strong corporate earnings and the likelihood that President Trump will end the war if it threatens markets.`\
+https://nytimes.com/2026/03/13/business/us-stock-market-iran-war.html
+
+**Wall Street Bankers Offered Lucrative Access to Join the Pentagon**\
+`A presentation from a headhunting firm aimed to recruit Wall Street investors to the Pentagon by offering “unmatched access” to government officials and fund-raising opportunities among foreign sovereigns.`\
+https://nytimes.com/2026/03/13/us/politics/wall-street-access-pentagon.html
+
+**U.S. Tech Giants Flocked to the Persian Gulf. Now They Are Targets.**\
+`Amazon, Google and others struck deals in the Persian Gulf to foot the bill for A.I. development. Iran has now threatened attacks against the companies’ infrastructure in the region.`\
+https://nytimes.com/2026/03/13/technology/amazon-google-persian-gulf-war.html
+
+**John F. Burns, Prize-winning Foreign Correspondent for The Times, Dies at 81**\
+`In a 40-year career that brought him two Pulitzers, he reported from trouble spots around the world, eloquently conveying the chaos of war.`\
+https://nytimes.com/2026/03/13/world/john-burns-dead.html
+
 **How to watch Kings vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Kings play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115545/2026/03/13/kings-vs-islanders-stream-how-to-watch-march-13/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/13/movies/five-science-fiction-movies-to-stream-now.
 **Do McDonald's All-American Game rosters have an impact on the NCAA title? History says yes**\
 `For decades, almost every national champion has shared a common trait: having a McDonald's All-American. Who should that concern this year?`\
 https://nytimes.com/athletic/7111928/2026/03/13/mcdonalds-all-american-game-national-champions/
-
-**Trump Administration Readies Plans to Dismantle Renowned Science Lab**\
-`Proposals include transferring a supercomputer to the University of Wyoming and shifting a space weather lab to a private company.`\
-https://nytimes.com/2026/03/13/climate/ncar-breakup-plan-nasa-noaa.html
-
-**Neto handed additional one-game ban after Arsenal red card**\
-`The Portugal international was sent off in Chelsea's Premier League defeat by Arsenal on March 1.`\
-https://nytimes.com/athletic/7115445/2026/03/13/chelsea-pedro-neto-red-card-ban-arsenal/
-
-**Suspended U.S. Sanctions Add a Political Win to Russia’s Economic Gains**\
-`Kremlin officials said the American move, which Europe opposes, showed that Moscow could not be dislodged from the center of global energy markets.`\
-https://nytimes.com/2026/03/13/world/europe/russia-oil-suspended-sanctions-economy.html
-
-**It’s Time for Corned Beef and Cabbage**\
-`And our most popular recipes from the week.`\
-https://nytimes.com/2026/03/13/dining/its-time-for-corned-beef-and-cabbage.html
-
-**At Dinners, Over Jokes With Comedians, Epstein Honed His Networking**\
-`In the years after his 2008 conviction for soliciting prostitution, Jeffrey Epstein rebuilt his reputation by hosting gatherings with leaders in all sorts of trades, including comedy.`\
-https://nytimes.com/2026/03/13/arts/epstein-woody-allen-comedians.html
 

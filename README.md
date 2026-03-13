@@ -1,3 +1,11 @@
+**A Lush Weeknight Shrimp Pasta, Inspired by a Tennis Great**\
+`Yotam Ottolenghi took a page from Arthur Ashe in keeping this weeknight dinner smart and simple.`\
+https://nytimes.com/2026/03/13/dining/weeknight-shrimp-pasta.html
+
+**How to watch Evansville vs. Belmont women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Evansville Purple Aces play the Belmont Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115583/2026/03/13/evansville-vs-belmont-stream-how-to-watch-march-13/
+
 **E.P.A. Moves to Weaken Limits on a Cancer-Causing Gas**\
 `The gas, ethylene oxide, plays a crucial role in sterilizing medical devices. But long-term exposure is linked to several types of cancer and other ailments.`\
 https://nytimes.com/2026/03/13/climate/epa-ethylene-oxide-cancer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7115469/2026/03/13/radko-gudas-auston-matthews-knee
 **How to Vote in the Illinois Primary**\
 `Democratic and Republican candidates are vying for open seats in the U.S. Senate and House, and also for governor and other statewide offices.`\
 https://nytimes.com/2026/03/13/us/elections/how-to-vote-il-primary.html
-
-**Five Science Fiction Movies to Stream Now**\
-`In this month’s picks, there are time-looping teenagers, a dermatologist’s nightmare and a story from the alien’s perspective.`\
-https://nytimes.com/2026/03/13/movies/five-science-fiction-movies-to-stream-now.html
-
-**Do McDonald's All-American Game rosters have an impact on the NCAA title? History says yes**\
-`For decades, almost every national champion has shared a common trait: having a McDonald's All-American. Who should that concern this year?`\
-https://nytimes.com/athletic/7111928/2026/03/13/mcdonalds-all-american-game-national-champions/
 
