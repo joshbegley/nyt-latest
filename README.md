@@ -1,3 +1,7 @@
+**Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
+`Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
+https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html
+
 **Falcons agree to deal with veteran DT Da'Shawn Hand: Source**\
 `Hand started a career-high 13 games last season and also had personal bests in QB hits and tackles for losses.`\
 https://nytimes.com/athletic/7115607/2026/03/13/falcons-dashawn-hand-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/arts/kennedy-center-richard-grenell.html
 **These Hotels Are Made for Walking**\
 `Five luxury retreats around the world with hiking and cycling trails that start right at your doorstep.`\
 https://nytimes.com/2026/03/13/t-magazine/hiking-trails-hotels.html
-
-**Tottenham working on potential options to replace head coach Tudor**\
-`The 47-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
-https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
 
