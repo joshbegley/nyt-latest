@@ -1,3 +1,15 @@
+**How a college football team ended up with two different schedules for 2026**\
+`Both CUSA and the Sun Belt have listed the Louisiana Tech Bulldogs as playing eight games within their conferences this fall.`\
+https://nytimes.com/athletic/7116442/2026/03/13/louisiana-tech-cusa-sun-belt-schedule-lawsuit/
+
+**A New Trump Envoy Stirs Fears of U.S. Interference in Brazil’s Elections**\
+`Darren Beattie, the U.S. policy adviser on Brazil, planned to visit former President Jair Bolsonaro in prison and meet his son, who is also seeking the presidency.`\
+https://nytimes.com/2026/03/13/world/middleeast/brazil-election-darren-beattie-trump.html
+
+**USMNT midfielder James Sands requires ankle surgery, ruled out for season**\
+`The 25-year old's injury casts doubt on his availability for this summer's World Cup.`\
+https://nytimes.com/athletic/7116437/2026/03/13/usmnt-james-sands-ankle-surgery/
+
 **Britain warns its citizens in Dubai they could be jailed for sharing photos of damage from airstrikes.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/britain-warns-its-citizens-in-dubai-they-could-be-jailed-for-sharing-photos-of-damage-from-airstrikes
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
 **Are You Using A.I. at Work? We Want to Hear From You.**\
 `Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
 https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
-
-**How to watch Utah Tech vs. Cal Baptist men's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Utah Tech Trailblazers play the Cal Baptist Lancers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116424/2026/03/13/utah-tech-vs-cal-baptist-stream-how-to-watch-march-13/
-
-**How to watch CSU Fullerton vs. Hawaii men's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the CSU Fullerton Titans play the Hawaii Rainbow Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116402/2026/03/13/csu-fullerton-vs-hawaii-stream-how-to-watch-march-13/
-
-**Change in Data Sources Led to Lower Inflation Reading**\
-`A methodological change contributed to a better-than-expected inflation report, prompting questions from some economists.`\
-https://nytimes.com/2026/03/13/business/economy/inflation-cpi-pce-methodology.html
 
