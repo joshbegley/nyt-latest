@@ -1,3 +1,7 @@
+**Bobby Douglas, Pathbreaking Olympic Wrestler, Dies at 83**\
+`In 1964, he was one of the first three African Americans to compete in wrestling at the Games. He went on to have a distinguished coaching career.`\
+https://nytimes.com/2026/03/13/sports/bobby-douglas-dead.html
+
 **Canada looking for 'revenge' in World Baseball Classic after Olympic hockey defeat**\
 `The Canadians received a video message from Hockey Canada ahead of their quarterfinal game against the U.S. on Friday.`\
 https://nytimes.com/athletic/7114376/2026/03/13/united-states-canada-world-baseball-classic-hockey/
