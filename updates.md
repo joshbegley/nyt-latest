@@ -1,3 +1,11 @@
+**Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
+`The ground stop is expected to last until about 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
+https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
+
+**Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
+`The teacher’s relatives said they supported “getting the charges dropped for all involved” after a student prank led to his death last week in Georgia.`\
+https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.html
+
 **Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
 `The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
 https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html

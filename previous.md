@@ -1,3 +1,11 @@
+**Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
+`The ground stop is expected to last until about 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
+https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
+
+**Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
+`The teacher’s relatives said they supported “getting the charges dropped for all involved” after a student prank led to his death last week in Georgia.`\
+https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.html
+
 **Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
 `The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
 https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/iran-strait-of-hormuz-us-war.htm
 **How to watch New Mexico vs. San Diego State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the New Mexico Lobos play the San Diego State Aztecs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116707/2026/03/13/new-mexico-vs-san-diego-state-stream-how-to-watch-march-14/
-
-**Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
-`Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
-https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html
-
-**Falcons agree to deal with veteran DT Da'Shawn Hand: Source**\
-`Hand started a career-high 13 games last season and also had personal bests in QB hits and tackles for losses.`\
-https://nytimes.com/athletic/7115607/2026/03/13/falcons-dashawn-hand-nfl-free-agency-2026/
 
