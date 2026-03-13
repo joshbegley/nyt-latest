@@ -11,7 +11,7 @@ https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
 https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
 
 **Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
-`Gudas was given a five-minute major for kneeing and a game misconduct as Matthews had to be helped off the ice.`\
+`Gudas was given a five-minute major for kneeing and a game misconduct for the play, after which Matthews had to be helped off the ice.`\
 https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
 
 **F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
