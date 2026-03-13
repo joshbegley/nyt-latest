@@ -1,3 +1,19 @@
+**Rosenior has 'trust' in Chelsea goalkeeper options**\
+`Robert Sanchez and Filip Jorgensen have come under scrutiny for making mistakes.`\
+https://nytimes.com/athletic/7115317/2026/03/13/rosenior-sanchez-jorgensen-chelsea-goalkeepers/
+
+**Canucks mailbag: Submit your questions for Thomas Drance**\
+`Got a question about the Vancouver Canucks now that the trade deadline has passed? Submit it here.`\
+https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questions-march-2026/
+
+**Ranking the Canucks' top 10 prospects after the trade deadline**\
+`For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
+https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
+
+**Romero, Palhinha to miss Spurs' visit to Liverpool after clash of heads**\
+`With Micky van de Ven suspended at Anfield, Igor Tudor is short of options at centre-half.`\
+https://nytimes.com/athletic/7114780/2026/03/13/palhinha-romero-concussion-tottenham-fitness/
+
 **Man United's Gabriel a 'big talent' but 'too young' to make squad - Carrick**\
 `Gabriel is unable to feature in matchday squads higher than under-18 level because he was 14 years of age when the 2025-26 season began. `\
 https://nytimes.com/athletic/7115189/2026/03/13/jj-gabriel-carrick-man-united-talent-age-news/
