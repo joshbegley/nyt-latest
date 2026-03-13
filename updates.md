@@ -1,3 +1,7 @@
+**Everton's Moyes hopeful of having Branthwaite fit for Arsenal**\
+`The 23-year-old was substituted 83 minutes into the recent home victory over Burnley last time out.`\
+https://nytimes.com/athletic/7114821/2026/03/13/moyes-branthwaite-everton-arsenal-fitness/
+
 **Slot: Ngumoha pushing for starts in Liverpool's busy period**\
 `The 17-year-old winger has featured as a substitute in Liverpool's last three Premier League games.`\
 https://nytimes.com/athletic/7114777/2026/03/13/liverpool-ngumoha-alisson-slot/
