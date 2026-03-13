@@ -1,3 +1,11 @@
+**How to watch Toledo vs. Ball State women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Toledo Rockets play the Ball State Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114746/2026/03/13/toledo-vs-ball-state-stream-how-to-watch-march-13/
+
+**How to watch Indiana State vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Indiana State Sycamores play the Murray State Racers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114740/2026/03/13/indiana-state-vs-murray-state-stream-how-to-watch-march-13/
+
 **How to watch William & Mary vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the William & Mary Tribe play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114738/2026/03/13/william-mary-vs-charleston-sc-stream-how-to-watch-march-13/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7113954/2026/03/13/geno-smith-demario-davis-new-yor
 **Muscular dystrophy took his mobility. His voice carried him to the Hall of Fame**\
 `Brooklyn Nets radio play-by-play voice Chris Carrino Sr. was honored by the Naismith Basketball Hall of Fame with a Curt Gowdy Media Award.`\
 https://nytimes.com/athletic/7112554/2026/03/13/chris-carrino-nets-nba-curt-gowdy-award-hall-of-fame/
-
-**They knew they were trying to win the WBC. Olympic qualification was a surprising part of the deal**\
-`For teams from the Americas, the World Baseball Classic is a double-jeopardy tournament. Lose too soon and you're out of the Olympics, too. `\
-https://nytimes.com/athletic/7114330/2026/03/13/wbc-mlb-olympics-qualification-dominican-venzuela/
-
-**The New York Times International Edition in Print for Saturday, March 14, 2026**\
-``\
-https://nytimes.com/issue/todaysinyt/2026/03/13/todays-new-york-times-international-edition
 
