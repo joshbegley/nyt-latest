@@ -1,3 +1,7 @@
+**Canada to Expand Military Presence in Arctic, Following Trump Threats**\
+`Prime Minister Mark Carney said Canada would build three bases in the region. The government also plans to improve infrastructure and airports in the north.`\
+https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
+
 **Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
 `The new look blends elements of the team’s history with its identity in Tennessee as the organization prepares for “the next chapter."`\
 https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
 **‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
 `Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
 https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html
-
-**One Way to Start**\
-`James McCarron and Rachel Souza open our solving weekend.`\
-https://nytimes.com/2026/03/12/crosswords/daily-puzzle-2026-03-13.html
 
