@@ -1,40 +1,40 @@
-**Premier League underdogs: Three games that could provide a shock this weekend**\
-`Twenty points is all that separates the top five in the Premier League table and the bottom three this season`\
-https://nytimes.com/athletic/7114823/2026/03/13/premier-league-underdogs-three-games-that-could-provide-a-shock-this-weekend/
+**Turkey Says NATO Defenses Shot Down a Third Iranian Missile**\
+`Turkey did not say where the missile was intercepted. But residents near Incirlik Air Base, which hosts U.S. troops, reported hearing sirens and a loud boom.`\
+https://nytimes.com/2026/03/13/world/middleeast/turkey-nato-iran-missile.html
 
-**Auburn, and a dreadful NCAA Tournament bubble, should quash any expansion talk**\
-`Auburn might become the first 16-loss team to get an at-large bid. And that’s a definitive statement on the idea of tournament expansion.`\
-https://nytimes.com/athletic/7113841/2026/03/13/march-madness-bubble-expansion-auburn-basketball/
+**I watched Gerrit Cole’s latest big step in his Yankees return. Here’s what I saw**\
+`A by-the-minute breakdown of Gerrit Cole's 35-pitch, two-inning live batting practice on Thursday at an empty George M. Steinbrenner Field.`\
+https://nytimes.com/athletic/7113606/2026/03/13/gerrit-cole-yankees-workout-video-breakdown/
 
-**Shai Gilgeous-Alexander's accomplishment, Cavs chair advantage and more NBA trends I'm watching**\
-`SGA's greatest achievement is proving that Wilt Chamberlain's records can be broken.`\
-https://nytimes.com/athletic/7113033/2026/03/13/shai-gilgeous-alexander-okc-thunder-record-cavaliers/
+**Ailing son weighed on José Alvarado last year. Now, after suspension, he's pitching with a purpose**\
+`Dylan, diagnosed with leukemia, is an inspiration for Alvarado, who is pitching for so much this season after a "difficult" 2025.`\
+https://nytimes.com/athletic/7111432/2026/03/13/jose-alvarado-son-leukemia-phillies/
 
-**Ryan Weathers, Clay Holmes and 5 more pitchers showing improved stuff this spring**\
-`Spring stats are largely meaningless but there is data from spring games that can hint at which pitchers might be breaking out this season.`\
-https://nytimes.com/athletic/7102907/2026/03/13/mlb-spring-training-pitching-improvements-ryan-weathers/
+**Sac State's $23M gamble: Is joining MAC the 'sweetheart deal' president envisions?**\
+`President Luke Wood is betting Sacramento State football's move to the MAC will serve as an "activator" for the California university.`\
+https://nytimes.com/athletic/7109995/2026/03/13/sacramento-state-football-mac-president/
 
-**Women's NCAA Tournament Bracket Watch: The debate continues. UConn or UCLA at No. 1?**\
-`USC and Tennessee didn't help their chances with rough tournament outings. Who's in? Who's out?`\
-https://nytimes.com/athletic/7113413/2026/03/13/womens-bracket-watch-ncaa-tournament-ucla-uconn/
+**State of the Blues, Part 2: Tom Stillman on Alexander Steen, team spending and fan loyalty**\
+`Stillman spoke about the growth of incoming GM Steen, spending with a rising salary cap and his message to fans who have stuck by the team.`\
+https://nytimes.com/athletic/7108780/2026/03/13/blues-tom-stillman-alexander-steen-team-fans/
 
-**Everton's Moyes hopeful of having Branthwaite fit for Arsenal**\
-`The 23-year-old was substituted 83 minutes into the recent home victory over Burnley last time out.`\
-https://nytimes.com/athletic/7114821/2026/03/13/moyes-branthwaite-everton-arsenal-fitness/
+**Chicago Cubs 2026 watch guide: Broadcast updates on Marquee, NBC, ABC and more**\
+`You already know how to "Fly the W" and hit the Harry Caray vocal register. Now, here's how to keep up with Cubs telecast changes.`\
+https://nytimes.com/athletic/7092382/2026/03/13/chicago-cubs-marquee-alex-bregman-2026-how-to-watch/
 
-**Slot: Ngumoha pushing for starts in Liverpool's busy period**\
-`The 17-year-old winger has featured as a substitute in Liverpool's last three Premier League games.`\
-https://nytimes.com/athletic/7114777/2026/03/13/liverpool-ngumoha-alisson-slot/
+**Life as a Wild lifer: Jared Spurgeon has built a Minnesota legacy, on and off ice, at 1,000 games**\
+`Spurgeon, who will play his 1,000th NHL game on Saturday, has established deep roots in Minnesota since arriving as a longshot rookie.`\
+https://nytimes.com/athletic/7109370/2026/03/13/jared-spurgeon-1000-games-wild/
 
-**Hurzeler says he clarified Arsenal criticism in text exchange with Arteta**\
-`Hurzeler accused Arsenal of time-wasting tactics that are “not football”.`\
-https://nytimes.com/athletic/7114797/2026/03/13/fabian-hurzeler-mikel-arteta-arsenal-criticism/
+**How many top-100 college football recruits are panning out? Reviewing the Class of 2023**\
+`How many players from the Arch Manning-led 2023 cycle are already NFL-bound — and how many have transferred multiple times?`\
+https://nytimes.com/athletic/7111470/2026/03/13/college-football-recruiting-rankings-2023-draft/
 
-**The Pulse: Your thoughts on Bam’s 83 points**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7112121/2026/03/13/bam-adebayo-83-points-survey-the-pulse/
+**A.I. Goes to War + Is ‘A.I. Brain Fry’ Real? + How Grammarly Stole Casey’s Identity**\
+`“When there is an attack that kills civilians or doesn’t hit its intended target, people are going to be asking, Oh, was that a human who made that mistake or was that an A.I. system?”`\
+https://nytimes.com/2026/03/13/podcasts/ai-goes-to-war-is-ai-brain-fry-real-how-grammarly-stole-caseys-identity.html
 
-**Why Kenneth Walker III has already made impression on his Chiefs teammates**\
-`What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
-https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
+**When There’s Nothing Against It in the Rulebook**\
+`In “Marty Supreme,” “Air Bud” and real life — is it unfair to exploit a loophole, or just good strategy?`\
+https://nytimes.com/2026/03/13/crosswords/marty-supreme-air-bud-fair-play.html
 
