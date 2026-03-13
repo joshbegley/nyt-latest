@@ -1,3 +1,31 @@
+**Does playing first in a title race make any difference?**\
+`The received wisdom is that playing first in a two-horse title battle is an advantage. This is what the data says`\
+https://nytimes.com/athletic/7075219/2026/03/13/premier-league-title-race-play-first-make-difference/
+
+**Premier League predictions: Liverpool vs Tottenham, Manchester United vs Aston Villa and rest of Matchday 30**\
+`Who's leading after MD29? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 30?`\
+https://nytimes.com/athletic/7109714/2026/03/13/260312_predictions_ok/
+
+**Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest's chances**\
+`The battle at the bottom tightened up last weekend - The Athletic's data team analyse the situation`\
+https://nytimes.com/athletic/7110971/2026/03/13/premier-league-relegation-battle-spurs-west-ham-nottingham-forest/
+
+**The truth about being a sporting defector: 'How do you find home in a new place?'**\
+`Fleeing an oppressive regime for a new life — as Iranian footballers did this week — may sound enticing but there are burdens to carry`\
+https://nytimes.com/athletic/7111629/2026/03/13/sport-defector-iran-australia/
+
+**Outclassed or out of energy? Analysing why no Premier League club won in the Champions League**\
+`Six Premier League clubs played in the last 16 of the Champions League this week and none of them won. Why?`\
+https://nytimes.com/athletic/7112132/2026/03/13/premier-league-champions-why-no-club-won/
+
+**The Prospects: Ben Broggio, Aston Villa**\
+`The young Villa loanee is making a positive impression and showcasing his attacking talent at Falkirk in the Scottish Premiership`\
+https://nytimes.com/athletic/7111331/2026/03/13/broggio-aston-villa-falkirk-prospects/
+
+**Champions League qualification race: Predictions, distractions, and importance of qualifying**\
+`There are just nine games left for most teams in the Premier League, and the battle for Champions League qualification is heating up`\
+https://nytimes.com/athletic/7111615/2026/03/13/champions-league-premier-league-qualification-race/
+
 **Mike Schultz has won Paralympic gold, but his sporting legacy goes far beyond**\
 `The U.S. snowboarder has reached the Paralympic pinnacle. But it's his other job that will leave a lasting mark on para sports.`\
 https://nytimes.com/athletic/7113551/2026/03/13/mike-schultz-paralympics-snowboarding-biodapt-prosthetics/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7114441/2026/03/13/connor-bedard-blackhawks-mammoth
 **The New York Times in Print for Friday, March 13, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/13/todays-new-york-times
-
-**Europe Is in Danger, and It’s Doing Basically Nothing About It**\
-`European politicians have colluded in their dependency on a rogue America.`\
-https://nytimes.com/2026/03/13/opinion/europe-iran-trump-war.html
-
-**China’s Long-Promised Consumer Boom Is a Mirage**\
-`China may never be able to realize its longtime promise to shift away from an overreliance on exports.`\
-https://nytimes.com/2026/03/13/opinion/china-exports-consumer-spending.html
-
-**Canada have gone viral in curling again, this time for all the best reasons**\
-`After a dramatic Olympics of stone-touching controversies and medals, Canada is making curling news again. This time for pure dominance.`\
-https://nytimes.com/athletic/7112982/2026/03/13/canada-wheelchair-curling-jon-thurston-viral-shot/
-
-**This is what happened on March 12.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-12
-
-**In the year of tennis hindrances, Daniil Medvedev and Jack Draper had the strangest at Indian Wells**\
-`Medvedev dominated their Indian Wells quarterfinal, but the end of the match turned on one of the sport's most controversial rules.`\
-https://nytimes.com/athletic/7114045/2026/03/13/tennis-hindrance-draper-medvedev-indian-wells/
-
-**An Ancient Temple at the Heart of a Modern Conflict**\
-`A rare visit to a Khmer temple on Thailand and Cambodia’s border showed how deadly clashes between the two countries have scarred a heritage site.`\
-https://nytimes.com/2026/03/13/world/asia/thailand-cambodia-preah-vihear-temple.html
-
-**Bad News for Friggatriskaidekaphobics: 2026 Has Three Fridays the 13th**\
-`It’s the first time since 2015 that the combination of the day and date associated with bad luck has recurred three times in a calendar year.`\
-https://nytimes.com/2026/03/13/us/friday-13th-three-times.html
 
