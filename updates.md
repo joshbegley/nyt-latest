@@ -1,3 +1,11 @@
+**Former U.S. Green Beret Who Attempted 2020 Venezuela Coup Is on the Run**\
+`The U.S. government said the military veteran, Jordan G. Goudreau, had been missing for months, and that an ankle monitor assigned to him had been found hidden in a piece of furniture.`\
+https://nytimes.com/2026/03/13/nyregion/jordan-gourdreau-missing-veteran-maduro.html
+
+**NWSL MVP Chawinga to miss start of Kansas City Current's season - Armas**\
+`“She's not available yet, but she's getting closer,” Armas told a press conference on Friday.`\
+https://nytimes.com/athletic/7115738/2026/03/13/temwa-chawinga-injury-update-current/
+
 **Hegseth’s Claim About Killing a Would-Be Assassin Creates a Mystery**\
 `The defense secretary said the leader of an Iranian unit that had planned to assassinate President Trump had been killed. But U.S. officials privately acknowledge the story is not that simple.`\
 https://nytimes.com/2026/03/13/us/politics/hegseth-claim-iran-trump.html

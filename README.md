@@ -1,4 +1,8 @@
-**Former U.S. Green Beret Who Attempted 2020 Venezuela Coup Is on the Run**\
+**Iraq's World Cup dream gets boost with travel plan for Middle East-based players**\
+`The war in the Middle East means airspace in the region is closed, presenting travel issues for Iraqi players who play in their homeland.`\
+https://nytimes.com/athletic/7115700/2026/03/13/iraq-world-cup-playoff-travel-mexico/
+
+**Green Beret Behind a Failed Coup in Venezuela Is on the Run**\
 `The U.S. government said the military veteran, Jordan G. Goudreau, had been missing for months, and that an ankle monitor assigned to him had been found hidden in a piece of furniture.`\
 https://nytimes.com/2026/03/13/nyregion/jordan-gourdreau-missing-veteran-maduro.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/trump-iran-history-timeline.html
 **How Safe Is Plasma Donation?**\
 `Two recent deaths tied to for-profit clinics in Canada raised concerns about the health effects of having plasma drawn as often as twice a week.`\
 https://nytimes.com/2026/03/13/health/plasma-donation-safety.html
-
-**Home Prices Are Falling in a California Enclave. So Is the Ground.**\
-`The soil keeps shifting in Rancho Palos Verdes, Calif. For the right buyer, that presents a great opportunity, at least for the time being.`\
-https://nytimes.com/2026/03/13/us/rancho-palos-verdes-landslide-california-houses.html
 
