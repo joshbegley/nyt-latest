@@ -34,7 +34,3 @@ https://nytimes.com/athletic/7115817/2026/03/13/f1-rule-confusion-chinese-gp-pri
 `Find out how to watch the Cleveland Cavaliers play the Dallas Mavericks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115860/2026/03/13/cavaliers-vs-mavericks-stream-how-to-watch-march-13/
 
-**How to watch Suns vs. Raptors: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Toronto Raptors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115856/2026/03/13/suns-vs-raptors-stream-how-to-watch-march-13/
-
