@@ -1,3 +1,7 @@
+**How Have Pets Made Your Life Better?**\
+`Research suggests dogs and other pets keep you healthier and living longer. How has caring for an animal made a positive impact on you?`\
+https://nytimes.com/2026/03/13/learning/how-have-pets-made-your-life-better.html
+
 **Partey indicates he is likely to plead not guilty to two most recent rape charges**\
 `The former Arsenal midfielder, now at Villarreal, did not attend Friday's hearing at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/7111254/2026/03/13/thomas-partey-plea-hearing-arsenal-villarreal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113466/2026/03/13/reds-noelvi-marte-bobblehead-out
 **Lowetide: Evan Bouchard's impact is undeniable. Can he change the perception of his play?**\
 `Bouchard isn't going to win the Norris this year, but he's vital to the Oilers' success.`\
 https://nytimes.com/athletic/7110942/2026/03/13/oilers-evan-bouchard-stats-norris-trophy-odds/
-
-**Is the Premier League in danger of losing its fifth Champions League spot?**\
-`No English club won in the Champions League last 16 after dominating the league phase, but it might not matter...`\
-https://nytimes.com/athletic/7114828/2026/03/13/premier-league-uefa-coefficient-europe/
 
