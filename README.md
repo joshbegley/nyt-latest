@@ -1,3 +1,7 @@
+**Bubble Watch: Why Miami (Ohio) should feel safe and Auburn should not**\
+`The teams that are still playing in conference tournaments have a massive chance to differentiate themselves.`\
+https://nytimes.com/athletic/7113335/2026/03/13/mens-ncaa-tournament-bubble-watch-miami-ohio-auburn/
+
 **How will Julian Sayin 'level up' at Ohio State? Here's where he says he can get better**\
 `As spring practice begins, Ohio State's Heisman finalist quarterback reflected on a tough finish to the 2025 season and what's next.`\
 https://nytimes.com/athletic/7112338/2026/03/13/ohio-state-julian-sayin-spring-football/
@@ -18,7 +22,7 @@ https://nytimes.com/2026/03/13/world/middleeast/turkey-nato-iran-missile.html
 `A by-the-minute breakdown of Gerrit Cole's 35-pitch, two-inning live batting practice on Thursday at an empty George M. Steinbrenner Field.`\
 https://nytimes.com/athletic/7113606/2026/03/13/gerrit-cole-yankees-workout-video-breakdown/
 
-**Ailing son weighed on José Alvarado last year. Now, after suspension, he's pitching with a purpose**\
+**Ailing son weighed on José Alvarado last season. Now, after suspension, he's pitching with a purpose**\
 `Dylan, diagnosed with leukemia, is an inspiration for Alvarado, who is pitching for so much this season after a "difficult" 2025.`\
 https://nytimes.com/athletic/7111432/2026/03/13/jose-alvarado-son-leukemia-phillies/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7108780/2026/03/13/blues-tom-stillman-alexander-ste
 **Chicago Cubs 2026 watch guide: Broadcast updates on Marquee, NBC, ABC and more**\
 `You already know how to "Fly the W" and hit the Harry Caray vocal register. Now, here's how to keep up with Cubs telecast changes.`\
 https://nytimes.com/athletic/7092382/2026/03/13/chicago-cubs-marquee-alex-bregman-2026-how-to-watch/
-
-**Life as a Wild lifer: Jared Spurgeon has built a Minnesota legacy, on and off ice, at 1,000 games**\
-`Spurgeon, who will play his 1,000th NHL game on Saturday, has established deep roots in Minnesota since arriving as a longshot rookie.`\
-https://nytimes.com/athletic/7109370/2026/03/13/jared-spurgeon-1000-games-wild/
 
