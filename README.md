@@ -1,3 +1,11 @@
+**Overlooked No More: Eleanor Abbott, the Creator of Candy Land**\
+`She invented the game nearly 80 years ago to distract children who were suffering in the hospital during a polio outbreak.`\
+https://nytimes.com/2026/03/13/obituaries/eleanor-abbott-overlooked.html
+
+**Tracing the Sweet Origins of Candy Land**\
+`The writers of an Overlooked obituary about the game’s creator recount how they stumbled upon her and then proceeded to reconstruct her life.`\
+https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
+
 **Are You Using A.I. at Work? We Want to Hear From You.**\
 `Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
 https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
@@ -29,8 +37,4 @@ https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
 **To Fight Iran’s Drones, U.S. Taps Ukraine’s Hard-Earned Knowledge**\
 `As Iran has shown, warfare involves far more deadly projectiles than it once did. It’s a problem Ukraine has been dealing with for years.`\
 https://nytimes.com/2026/03/13/world/middleeast/ukraine-drone-knowledge.html
-
-**The Strait of Hormuz is narrow — and shallow enough to lay minefields.**\
-`By Samuel Granados, John Ismay and Agnes Chang`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/strait-of-hormuz-sea-mines
 

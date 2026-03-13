@@ -1,3 +1,19 @@
+**Are You Using A.I. at Work? We Want to Hear From You.**\
+`Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
+https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
+
+**How to watch Utah Tech vs. Cal Baptist men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Utah Tech Trailblazers play the Cal Baptist Lancers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116424/2026/03/13/utah-tech-vs-cal-baptist-stream-how-to-watch-march-13/
+
+**How to watch CSU Fullerton vs. Hawaii men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the CSU Fullerton Titans play the Hawaii Rainbow Warriors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116402/2026/03/13/csu-fullerton-vs-hawaii-stream-how-to-watch-march-13/
+
+**Change in Data Sources Led to Lower Inflation Reading**\
+`A methodological change contributed to a better-than-expected inflation report, prompting questions from some economists.`\
+https://nytimes.com/2026/03/13/business/economy/inflation-cpi-pce-methodology.html
+
 **More Marines and Warships Being Sent to Middle East, U.S. Officials Say**\
 `Iran’s response to days of aerial bombardment and long-range artillery strikes has proved more resilient than Trump administration officials anticipated.`\
 https://nytimes.com/2026/03/13/world/middleeast/more-marines-and-warships-being-sent-to-middle-east-us-officials-say.html
