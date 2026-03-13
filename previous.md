@@ -1,9 +1,13 @@
+**A New Magazine? In This Media Environment?**\
+`Now Voyager, an ambitious publication packed with international reportage, throws itself a party in Harlem.`\
+https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html
+
 **In shuffled WBC bracket, a USA quarterfinals win could lead to several rematches**\
 `The U.S. has not faced Korea since 2006. The last time the U.S. and D.R. faced off was 2017. This WBC bracket can provide a lot of firsts.`\
 https://nytimes.com/athletic/7116681/2026/03/13/world-baseball-classic-united-states-rematch-map/
 
 **Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
-`The ground stop is expected to last until about 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
+`The ground stops, which also affected the airport serving Richmond, Va., were expected to last until at least 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
 https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
 
 **Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/music/100000010774716/pink-floyd-guitar-sale-reco
 **The U.S. Is Sending More Troops to the Middle East**\
 `Plus, Cuba is in talks with the U.S. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2026/03/13/briefing/marines-iran-cuba.html
-
-**U.S. Vows to Block Iran’s Attempt to Shut Down Key Global Shipping Route**\
-`Defense Secretary Pete Hegseth said that the disruptions in the Strait of Hormuz were “something we are dealing with.” And about 2,500 Marines were headed to the Middle East to bolster the war effort.`\
-https://nytimes.com/2026/03/13/world/middleeast/iran-strait-of-hormuz-us-war.html
 
