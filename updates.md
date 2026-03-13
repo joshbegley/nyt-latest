@@ -1,3 +1,15 @@
+**‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
+`Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
+https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html
+
+**One Way to Start**\
+`James McCarron and Rachel Souza open our solving weekend.`\
+https://nytimes.com/2026/03/12/crosswords/daily-puzzle-2026-03-13.html
+
+**Oil Prices Barely Budge After Trump Lifts Russia Sanctions**\
+`After surging about 10 percent on Thursday, oil prices had little reaction to the decision by President Trump to waive sanctions on the sale of some Russian crude.`\
+https://nytimes.com/2026/03/12/business/oil-stock-gas-markets-iran.html
+
 **Trump Removes Sanctions on Russia to Help Oil Flow Amid Iran Conflict**\
 `Treasury Secretary Scott Bessent said it was “unfortunate” that the move could benefit Russia, but maintained that it was only for the short term.`\
 https://nytimes.com/2026/03/12/us/politics/trump-russia-oil-sanctions.html
