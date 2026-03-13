@@ -1,3 +1,27 @@
+**Radko Gudas to have phone hearing for knee-on-knee hit to Auston Matthews**\
+`The phone hearing allows for a suspension of up to five games under the terms of the collective bargaining agreement.`\
+https://nytimes.com/athletic/7115469/2026/03/13/radko-gudas-auston-matthews-knee-hit-phone-hearing/
+
+**How to Vote in the Illinois Primary**\
+`Democratic and Republican candidates are vying for open seats in the U.S. Senate and House, and also for governor and other statewide offices.`\
+https://nytimes.com/2026/03/13/us/elections/how-to-vote-il-primary.html
+
+**Five Science Fiction Movies to Stream Now**\
+`In this month’s picks, there are time-looping teenagers, a dermatologist’s nightmare and a story from the alien’s perspective.`\
+https://nytimes.com/2026/03/13/movies/five-science-fiction-movies-to-stream-now.html
+
+**Do McDonald's All-American Game rosters have an impact on the NCAA title? History says yes**\
+`For decades, almost every national champion has shared a common trait: having a McDonald's All-American. Who should that concern this year?`\
+https://nytimes.com/athletic/7111928/2026/03/13/mcdonalds-all-american-game-national-champions/
+
+**Trump Administration Readies Plans to Dismantle Renowned Science Lab**\
+`Proposals include transferring a supercomputer to the University of Wyoming and shifting a space weather lab to a private company.`\
+https://nytimes.com/2026/03/13/climate/ncar-breakup-plan-nasa-noaa.html
+
+**Neto handed additional one-game ban after Arsenal red card**\
+`The Portugal international was sent off in Chelsea's Premier League defeat by Arsenal on March 1.`\
+https://nytimes.com/athletic/7115445/2026/03/13/chelsea-pedro-neto-red-card-ban-arsenal/
+
 **Suspended U.S. Sanctions Add a Political Win to Russia’s Economic Gains**\
 `Kremlin officials said the American move, which Europe opposes, showed that Moscow could not be dislodged from the center of global energy markets.`\
 https://nytimes.com/2026/03/13/world/europe/russia-oil-suspended-sanctions-economy.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/13/arts/epstein-woody-allen-comedians.html
 **Does This Movie Make You Anxious?**\
 `Some movies make us laugh or cry or feel scared. A new wave of jittery cinema seems designed to make us feel incredibly stressed out.`\
 https://nytimes.com/2026/03/13/opinion/anxiety-movies.html
-
-**Hegseth Vows Lethal Day in Iran as Air War Intensifies**\
-`At a news conference, Defense Secretary Pete Hegseth gave no indication of how long it would take before the Navy could escort civilian cargo ships through the Strait of Hormuz.`\
-https://nytimes.com/2026/03/13/us/politics/hegseth-air-war-iran.html
-
-**Inside the Kitchen That Feeds Hollywood on Oscars Night**\
-`For 32 years, Wolfgang Puck and his team of more than 400 employees have catered to the whims and tastes of the film elite.`\
-https://nytimes.com/2026/03/13/dining/wolfgang-puck-kitchen-oscars-night.html
-
-**As Mexico's World Cup injury woes worsen, door could re-open for GK Ochoa**\
-`Manager Javier Aguirre has an injury problem on his hands, leaving Mexico in peril – and a 40-year-old legend on the cusp of history`\
-https://nytimes.com/athletic/7111941/2026/03/13/mexico-injuries-world-cup-malagon-ruiz-mora-ochoa/
-
-**Arteta 'fully trusts and loves' Saka amid winger's indifferent form**\
-`The Arsenal vice-captain's underlying numbers are far better than his output so far this season.`\
-https://nytimes.com/athletic/7115383/2026/03/13/bukayo-saka-arsenal-arteta-trust/
-
-**The Complicated Oscars Night Feelings Over ‘One Battle After Another’**\
-`“One Battle After Another” has 13 Oscar nominations, including Teyana Taylor’s best supporting actress nod — but some people aren’t rooting for it, and a lot of those people are Black women. Wesley Morris and his friend, the scholar Daphne A. Brooks, discussed why on “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010774229/the-complicated-oscars-night-feelings-over-one-battle-after-another.html
-
-**Is NHL free agency dead?**\
-`Anyone disappointed with how underwhelming last week’s trade deadline was should save some of that malaise for free agency.`\
-https://nytimes.com/athletic/7115366/2026/03/13/nhl-free-agency-market-trade-deadline-red-light/
 
