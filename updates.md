@@ -1,3 +1,15 @@
+**Slot: Ngumoha pushing for starts in Liverpool's busy period**\
+`The 17-year-old winger has featured as a substitute in Liverpool's last three Premier League games.`\
+https://nytimes.com/athletic/7114777/2026/03/13/liverpool-ngumoha-alisson-slot/
+
+**Hurzeler says he clarified Arsenal criticism in text exchange with Arteta**\
+`Hurzeler accused Arsenal of time-wasting tactics that are “not football”.`\
+https://nytimes.com/athletic/7114797/2026/03/13/fabian-hurzeler-mikel-arteta-arsenal-criticism/
+
+**The Pulse: Your thoughts on Bam’s 83 points**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7112121/2026/03/13/bam-adebayo-83-points-survey-the-pulse/
+
 **Why Kenneth Walker III has already made impression on his Chiefs teammates**\
 `What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
 https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
