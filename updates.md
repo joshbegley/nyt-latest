@@ -1,3 +1,7 @@
+**Red Sox, lefty reliever Danny Coulombe in agreement on one-year deal**\
+`To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
+https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/
+
 **University Shooting Being Investigated as an Act of Terrorism, Officials Say**\
 `The authorities are investigating the shooting at Old Dominion University in Norfolk, Va., as an act of terrorism.`\
 https://nytimes.com/video/us/100000010773103/old-dominion-university-shooting-virginia.html

@@ -1,3 +1,7 @@
+**Red Sox, lefty reliever Danny Coulombe in agreement on one-year deal**\
+`To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
+https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/
+
 **University Shooting Being Investigated as an Act of Terrorism, Officials Say**\
 `The authorities are investigating the shooting at Old Dominion University in Norfolk, Va., as an act of terrorism.`\
 https://nytimes.com/video/us/100000010773103/old-dominion-university-shooting-virginia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-s
 **Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
 `Ward set a spring training record with his 17th steal, while Alex Cora hopes Early and Payton Tolle will "become monsters."`\
 https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
-
-**Steelers agree to terms with safety Jaquan Brisker: Source**\
-`A second-round pick of the Chicago Bears in the 2022 NFL Draft, Brisker became an instant starter in Chicago.`\
-https://nytimes.com/athletic/7113529/2026/03/12/jaquan-brisker-steelers-nfl-free-agency/
 
