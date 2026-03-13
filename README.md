@@ -1,3 +1,11 @@
+**Bills promised a new way, but Josh Allen remains their answer for everything: Graham**\
+`Other teams with expensive quarterbacks have made headliner moves during free agency, but not Buffalo, which still has roster holes.`\
+https://nytimes.com/athletic/7114915/2026/03/13/bills-2026-free-agency-josh-allen/
+
+**Oil and cargo ships are growing targets in war with Iran.**\
+`By Blacki Migliozzi, Christiaan Triebert and Lazaro Gamio`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/oil-and-cargo-ships-are-growing-targets-in-war-with-iran
+
 **Sabres thoughts: Luke Schenn's debut, Alex Tuch's injury and a rare Buffalo loss**\
 `The Sabres had been riding high since the Olympic break but lost 2-1 to the Capitals on Thursday night.`\
 https://nytimes.com/athletic/7114269/2026/03/13/sabres-lose-capitals-thoughts-luke-schenn-alex-tuch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-heal
 **NWSL storylines to follow for the 2026 season**\
 `The latest NWSL season features the return of star players, seven new head coaches and World Cup sacrifices `\
 https://nytimes.com/athletic/7111763/2026/03/13/nwsl-storylines-2026-new-rules-world-cup-head-coaches/
-
-**Fantasy Premier League live Q&A: Gameweek 30 advice from Ben Dinnery**\
-`To get your FPL side into shape before, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice ahead of Gameweek 30`\
-https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-live-qa-gameweek-30/
-
-**Seeking Any Edge, BTS Fans Hunt for Tickets From Seoul’s Internet Cafes**\
-`The K-pop supergroup’s upcoming reunion concert prompted a rush for the cafes, which offer solid connections and a sense of community.`\
-https://nytimes.com/2026/03/13/world/asia/bts-concert-tickets-internet-cafes-south-korea.html
 
