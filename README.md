@@ -1,3 +1,7 @@
+**How Safe Is Plasma Donation?**\
+`Two recent deaths tied to for-profit clinics in Canada raised concerns about the health effects of having plasma drawn as often as twice a week.`\
+https://nytimes.com/2026/03/13/health/plasma-donation-safety.html
+
 **Home Prices Are Falling in a California Enclave. So Is the Ground.**\
 `The soil keeps shifting in Rancho Palos Verdes, Calif. For the right buyer, that presents a great opportunity, at least for the time being.`\
 https://nytimes.com/2026/03/13/us/rancho-palos-verdes-landslide-california-houses.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7115675/2026/03/13/miami-fl-vs-virginia-stream-how-
 **How to watch Iowa State vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115673/2026/03/13/iowa-state-vs-arizona-stream-how-to-watch-march-13/
-
-**How to watch Kent State vs. Akron men's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Kent State Golden Flashes play the Akron Zips, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115648/2026/03/13/kent-state-vs-akron-stream-how-to-watch-march-13/
 
