@@ -1,3 +1,11 @@
+**One-on-one with an ‘emotional' Scott Laughton: What's wrong with the Leafs?**\
+`Over a short time in Toronto, Scott Laughton became a beloved teammate. It was hard to leave on trade deadline day.`\
+https://nytimes.com/athletic/7113959/2026/03/13/maple-leafs-scott-laughton-trade-reaction/
+
+**How to watch Seton Hall vs. St. John's men's basketball: Big East Tournament Time, TV, streaming**\
+`Find out how to watch the Seton Hall Pirates play the St. John's Red Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115299/2026/03/13/seton-hall-vs-st-john-s-stream-how-to-watch-march-13/
+
 **How to watch UT Arlington vs. Abilene Christian women's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the UT Arlington Mavericks play the Abilene Christian Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115269/2026/03/13/ut-arlington-vs-abilene-christian-stream-how-to-watch-march-13/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7114198/2026/03/13/penguins-lose-golden-knights-sid
 **Bills promised a new way, but Josh Allen remains their answer for everything: Graham**\
 `Other teams with expensive quarterbacks have made headliner moves during free agency, but not Buffalo, which still has roster holes.`\
 https://nytimes.com/athletic/7114915/2026/03/13/bills-2026-free-agency-josh-allen/
-
-**Oil and cargo ships are growing targets in war with Iran.**\
-`By Blacki Migliozzi, Christiaan Triebert and Lazaro Gamio`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/oil-and-cargo-ships-are-growing-targets-in-war-with-iran
-
-**Sabres thoughts: Luke Schenn's debut, Alex Tuch's injury and a rare Buffalo loss**\
-`The Sabres had been riding high since the Olympic break but lost 2-1 to the Capitals on Thursday night.`\
-https://nytimes.com/athletic/7114269/2026/03/13/sabres-lose-capitals-thoughts-luke-schenn-alex-tuch/
 
