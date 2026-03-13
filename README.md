@@ -1,3 +1,7 @@
+**Adidas has made the Champions League ball for 25 years. That could be about to change**\
+`A tender is being launched for the rights to the Champions League match ball, currently produced by Adidas`\
+https://nytimes.com/athletic/7115535/2026/03/13/champions-league-match-ball-adidas-nike-puma/
+
 **Prime TIre: Get set for F1’s next Confusion GP**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7115817/2026/03/13/f1-rule-confusion-chinese-gp-prime-tire/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114757/2026/03/13/canada-march-friendlies-squad-pr
 **Rams maintain interest in A.J. Brown trade with Eagles: Sources**\
 `The Rams continue to monitor the status of the three-time Pro Bowler with interest, league sources told The Athletic.`\
 https://nytimes.com/athletic/7115737/2026/03/13/eagles-rams-aj-brown-trade-talks/
-
-**Josh Schertz, top coaching carousel candidate, agrees to extension at Saint Louis**\
-`Schertz led Saint Louis to an Atlantic 10 title in his second year at the school.`\
-https://nytimes.com/athletic/7115723/2026/03/13/josh-schertz-saint-louis-contract-extension/
 
