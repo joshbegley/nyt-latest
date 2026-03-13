@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 30 advice from Ben Dinnery**\
+`To get your FPL side into shape before, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice ahead of Gameweek 30`\
+https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-live-qa-gameweek-30/
+
+**Seeking Any Edge, BTS Fans Hunt for Tickets From Seoul’s Internet Cafes**\
+`The K-pop supergroup’s upcoming reunion concert prompted a rush for the cafes, which offer solid connections and a sense of community.`\
+https://nytimes.com/2026/03/13/world/asia/bts-concert-tickets-internet-cafes-south-korea.html
+
+**How Have Pets Made Your Life Better?**\
+`Research suggests dogs and other pets keep you healthier and living longer. How has caring for an animal made a positive impact on you?`\
+https://nytimes.com/2026/03/13/learning/how-have-pets-made-your-life-better.html
+
 **Partey indicates he is likely to plead not guilty to two most recent rape charges**\
 `The former Arsenal midfielder, now at Villarreal, did not attend Friday's hearing at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/7111254/2026/03/13/thomas-partey-plea-hearing-arsenal-villarreal/

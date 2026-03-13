@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 30 advice from Ben Dinnery**\
+`To get your FPL side into shape before, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice ahead of Gameweek 30`\
+https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-live-qa-gameweek-30/
+
+**Seeking Any Edge, BTS Fans Hunt for Tickets From Seoul’s Internet Cafes**\
+`The K-pop supergroup’s upcoming reunion concert prompted a rush for the cafes, which offer solid connections and a sense of community.`\
+https://nytimes.com/2026/03/13/world/asia/bts-concert-tickets-internet-cafes-south-korea.html
+
+**How Have Pets Made Your Life Better?**\
+`Research suggests dogs and other pets keep you healthier and living longer. How has caring for an animal made a positive impact on you?`\
+https://nytimes.com/2026/03/13/learning/how-have-pets-made-your-life-better.html
+
 **Partey indicates he is likely to plead not guilty to two most recent rape charges**\
 `The former Arsenal midfielder, now at Villarreal, did not attend Friday's hearing at Westminster Magistrates' Court.`\
 https://nytimes.com/athletic/7111254/2026/03/13/thomas-partey-plea-hearing-arsenal-villarreal/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/13/us/trump-news
 **The 2026 Oscar nominees and their best sports roles, from 'Creed' to 'Field of Dreams'**\
 `The nominees for this year's Academy Awards come from such vast ranges, but almost all of them have sports roles in their backgrounds.`\
 https://nytimes.com/athletic/7095037/2026/03/13/oscar-nominees-academy-awards-sports-movies/
-
-**Immortalized with a bobblehead, Reds' Noelvi Marte is on the upswing**\
-`After a season of transition, the 24-year-old Marte enters 2026 as the favorite to be the Reds' everyday right fielder.`\
-https://nytimes.com/athletic/7113466/2026/03/13/reds-noelvi-marte-bobblehead-outfield/
-
-**Lowetide: Evan Bouchard's impact is undeniable. Can he change the perception of his play?**\
-`Bouchard isn't going to win the Norris this year, but he's vital to the Oilers' success.`\
-https://nytimes.com/athletic/7110942/2026/03/13/oilers-evan-bouchard-stats-norris-trophy-odds/
-
-**Is the Premier League in danger of losing its fifth Champions League spot?**\
-`No English club won in the Champions League last 16 after dominating the league phase, but it might not matter...`\
-https://nytimes.com/athletic/7114828/2026/03/13/premier-league-uefa-coefficient-europe/
 

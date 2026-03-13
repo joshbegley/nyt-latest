@@ -1,3 +1,7 @@
+**NWSL storylines to follow for the 2026 season**\
+`The latest NWSL season features the return of star players, seven new head coaches and World Cup sacrifices `\
+https://nytimes.com/athletic/7111763/2026/03/13/nwsl-storylines-2026-new-rules-world-cup-head-coaches/
+
 **Fantasy Premier League live Q&A: Gameweek 30 advice from Ben Dinnery**\
 `To get your FPL side into shape before, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice ahead of Gameweek 30`\
 https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-live-qa-gameweek-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114958/2026/03/13/sec-ncaa-college-football-rules-
 **Trump Administration Live Updates: D.H.S. Staff to Miss Paycheck as Shutdown Continues**\
 ``\
 https://nytimes.com/live/2026/03/13/us/trump-news
-
-**The 2026 Oscar nominees and their best sports roles, from 'Creed' to 'Field of Dreams'**\
-`The nominees for this year's Academy Awards come from such vast ranges, but almost all of them have sports roles in their backgrounds.`\
-https://nytimes.com/athletic/7095037/2026/03/13/oscar-nominees-academy-awards-sports-movies/
 
