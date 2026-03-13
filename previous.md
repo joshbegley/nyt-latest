@@ -1,3 +1,11 @@
+**Rams maintain interest in A.J. Brown trade with Eagles: Sources**\
+`The Rams continue to monitor the status of the three-time Pro Bowler with interest, league sources told The Athletic.`\
+https://nytimes.com/athletic/7115737/2026/03/13/eagles-rams-aj-brown-trade-talks/
+
+**Josh Schertz, top coaching carousel candidate, agrees to extension at Saint Louis**\
+`Schertz led Saint Louis to an Atlantic 10 title in his second year at the school.`\
+https://nytimes.com/athletic/7115723/2026/03/13/josh-schertz-saint-louis-contract-extension/
+
 **Iraq's World Cup dream gets boost with travel plan for Middle East-based players**\
 `The war in the Middle East means airspace in the region is closed, presenting travel issues for Iraqi players who play in their homeland.`\
 https://nytimes.com/athletic/7115700/2026/03/13/iraq-world-cup-playoff-travel-mexico/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/airport-security-workers-miss-paychec
 **How ‘One Battle After Another,’ an Oscars Favorite, Depicts Black Women**\
 `“One Battle After Another” has 13 Oscar nominations, including one for Teyana Taylor as best supporting actress — but some people aren’t rooting for it, and a lot of those people are Black women. Wesley Morris and his friend, the scholar Daphne A. Brooks, discussed the situation on “Cannonball.”`\
 https://nytimes.com/video/podcasts/100000010773523/how-one-battle-after-another-an-oscars-favorite-depicts-black-women.html
-
-**Trump-Iran Timeline: Key Moments Leading Up to War**\
-`President Trump’s aggressive stance toward Iran, during his first term and since returning to office last year, is key to understanding the conflict.`\
-https://nytimes.com/2026/03/13/us/politics/trump-iran-history-timeline.html
-
-**How Safe Is Plasma Donation?**\
-`Two recent deaths tied to for-profit clinics in Canada raised concerns about the health effects of having plasma drawn as often as twice a week.`\
-https://nytimes.com/2026/03/13/health/plasma-donation-safety.html
 

@@ -10,7 +10,7 @@ https://nytimes.com/athletic/7115723/2026/03/13/josh-schertz-saint-louis-contrac
 `The war in the Middle East means airspace in the region is closed, presenting travel issues for Iraqi players who play in their homeland.`\
 https://nytimes.com/athletic/7115700/2026/03/13/iraq-world-cup-playoff-travel-mexico/
 
-**Green Beret Behind a Failed Coup in Venezuela Is on the Run**\
+**Former Green Beret Behind a Failed Coup in Venezuela Is on the Run**\
 `The U.S. government said the military veteran, Jordan G. Goudreau, had been missing for months, and that an ankle monitor assigned to him had been found hidden in a piece of furniture.`\
 https://nytimes.com/2026/03/13/nyregion/jordan-gourdreau-missing-veteran-maduro.html
 

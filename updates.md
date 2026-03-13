@@ -1,3 +1,11 @@
+**Rams maintain interest in A.J. Brown trade with Eagles: Sources**\
+`The Rams continue to monitor the status of the three-time Pro Bowler with interest, league sources told The Athletic.`\
+https://nytimes.com/athletic/7115737/2026/03/13/eagles-rams-aj-brown-trade-talks/
+
+**Josh Schertz, top coaching carousel candidate, agrees to extension at Saint Louis**\
+`Schertz led Saint Louis to an Atlantic 10 title in his second year at the school.`\
+https://nytimes.com/athletic/7115723/2026/03/13/josh-schertz-saint-louis-contract-extension/
+
 **Iraq's World Cup dream gets boost with travel plan for Middle East-based players**\
 `The war in the Middle East means airspace in the region is closed, presenting travel issues for Iraqi players who play in their homeland.`\
 https://nytimes.com/athletic/7115700/2026/03/13/iraq-world-cup-playoff-travel-mexico/
