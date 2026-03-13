@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html
 
 **Lewis E. Lehrman, Store Chain Heir Who Ran for N.Y. Governor, Dies at 87**\
-`After helping his family’s Rite-Aid drugstore empire flourish, he waged surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
+`After helping his family’s Rite-Aid drugstore empire flourish, he waged a surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
 https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
 
 **‘A Very Big Hurdle:’ Trump Softens Call for Protesters to Take Over Iran**\

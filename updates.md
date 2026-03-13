@@ -1,3 +1,7 @@
+**Lewis E. Lehrman, Store Chain Heir Who Ran for N.Y. Governor, Dies at 87**\
+`After helping his family’s Rite-Aid drugstore empire flourish, he waged a surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
+https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
+
 **‘One Battle After Another’ Is Just a Movie. Resistance Is Real.**\
 `Readers respond to a guest essay about the Paul Thomas Anderson movie “One Battle After Another” by the daughter of two Weatherman. Also: Will we be around to unearth a time capsule?`\
 https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html

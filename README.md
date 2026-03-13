@@ -8,7 +8,7 @@ https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
 
 **‘A Very Big Hurdle:’ Trump Softens Call for Protesters to Take Over Iran**\
 `President Trump said protesters risk getting shot “right through the head,” a change in tone from his earlier comments that Iranians must seize the chance to take over their government.`\
-https://nytimes.com/2026/03/13/world/middleeast/a-very-big-hurdle-trump-softens-call-for-protesters-to-take-over-iran.html
+https://nytimes.com/2026/03/13/world/middleeast/trump-iran-protesters.html
 
 **A Pastry-Centric Tea Party That Ended With McDonald’s**\
 `The writer and baker Tanya Bush celebrated her new narrative cookbook with homemade treats and a silver platter of fries.`\
