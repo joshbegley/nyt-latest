@@ -1,3 +1,11 @@
+**Daniel Radcliffe Makes ‘Every Brilliant Thing’ Shine**\
+`The actor’s fondness for the audience radiates outward in this delightful interactive play about naming and noticing the good in the world.`\
+https://nytimes.com/2026/03/12/theater/every-brilliant-thing-review-daniel-radcliffe.html
+
+**Suspect in Michigan Synagogue Attack Worked at Popular Restaurant**\
+`The authorities identified the suspect as a naturalized U.S. citizen. Residents of Dearborn Heights, Mich., said he took orders at the business.`\
+https://nytimes.com/2026/03/12/us/michigan-synagogue-suspect-ayman-ghazali.html
+
 **Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
 `The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
 https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/

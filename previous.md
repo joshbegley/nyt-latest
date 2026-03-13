@@ -1,3 +1,11 @@
+**Daniel Radcliffe Makes ‘Every Brilliant Thing’ Shine**\
+`The actor’s fondness for the audience radiates outward in this delightful interactive play about naming and noticing the good in the world.`\
+https://nytimes.com/2026/03/12/theater/every-brilliant-thing-review-daniel-radcliffe.html
+
+**Suspect in Michigan Synagogue Attack Worked at Popular Restaurant**\
+`The authorities identified the suspect as a naturalized U.S. citizen. Residents of Dearborn Heights, Mich., said he took orders at the business.`\
+https://nytimes.com/2026/03/12/us/michigan-synagogue-suspect-ayman-ghazali.html
+
 **Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
 `The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
 https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/business/oil-stock-gas-markets-iran.html
 **Trump Removes Sanctions on Russia to Help Oil Flow Amid Iran Conflict**\
 `Treasury Secretary Scott Bessent said it was “unfortunate” that the move could benefit Russia, but maintained that it was only for the short term.`\
 https://nytimes.com/2026/03/12/us/politics/trump-russia-oil-sanctions.html
-
-**Andrea Constand Testifies in Support of Another Bill Cosby Accuser**\
-`Lawyers for a woman who has sued Mr. Cosby, accusing him of sexual assault, called Ms. Constand as a witness in the case, which is now being tried in California.`\
-https://nytimes.com/2026/03/12/arts/andrea-constand-testifies-in-support-of-another-bill-cosby-accuser.html
-
-**‘Antigone (This Play I Read in High School)’ Review: Tragically Uneven**\
-`Anna Ziegler’s feminist take on Sophocles tries to tie in reproductive politics, but the play keeps trampling over its own ideas.`\
-https://nytimes.com/2026/03/12/theater/antigone-review-shalhoub-keenan-bolger.html
 

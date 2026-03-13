@@ -1,3 +1,11 @@
+**Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
+`The new look blends elements of the team’s history with its identity in Tennessee as the organization prepares for “the next chapter."`\
+https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
+
+**Shai Gilgeous-Alexander breaks Wilt Chamberlain's record for consecutive 20-point games**\
+`The Oklahoma City Thunder star has now notched at least 20 points in 127 consecutive regular-season games. `\
+https://nytimes.com/athletic/7112567/2026/03/12/sga-20-point-streak-wilt-chamberlain-record/
+
 **Daniel Radcliffe Makes ‘Every Brilliant Thing’ Shine**\
 `The actor’s fondness for the audience radiates outward in this delightful interactive play about naming and noticing the good in the world.`\
 https://nytimes.com/2026/03/12/theater/every-brilliant-thing-review-daniel-radcliffe.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-1
 **One Way to Start**\
 `James McCarron and Rachel Souza open our solving weekend.`\
 https://nytimes.com/2026/03/12/crosswords/daily-puzzle-2026-03-13.html
-
-**Oil Prices Barely Budge After Trump Lifts Russia Sanctions**\
-`After surging about 10 percent on Thursday, oil prices had little reaction to the decision by President Trump to waive sanctions on the sale of some Russian crude.`\
-https://nytimes.com/2026/03/12/business/oil-stock-gas-markets-iran.html
-
-**Trump Removes Sanctions on Russia to Help Oil Flow Amid Iran Conflict**\
-`Treasury Secretary Scott Bessent said it was “unfortunate” that the move could benefit Russia, but maintained that it was only for the short term.`\
-https://nytimes.com/2026/03/12/us/politics/trump-russia-oil-sanctions.html
 
