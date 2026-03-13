@@ -1,3 +1,7 @@
+**How to watch Drake vs. Illinois State women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Drake Bulldogs play the Illinois State Redbirds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115959/2026/03/13/drake-vs-illinois-state-stream-how-to-watch-march-13/
+
 **How to watch Elon vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Elon Phoenix play the Drexel Dragons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115947/2026/03/13/elon-vs-drexel-stream-how-to-watch-march-13/
@@ -29,8 +33,4 @@ https://nytimes.com/spotlight/John-F-Burns-1944-2026
 **Adidas has made the Champions League ball for 25 years. That could be about to change**\
 `A tender is being launched for the rights to the Champions League match ball, currently produced by Adidas`\
 https://nytimes.com/athletic/7115535/2026/03/13/champions-league-match-ball-adidas-nike-puma/
-
-**Prime TIre: Get set for F1’s next Confusion GP**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7115817/2026/03/13/f1-rule-confusion-chinese-gp-prime-tire/
 

@@ -1,3 +1,7 @@
+**How to watch Elon vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Elon Phoenix play the Drexel Dragons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115947/2026/03/13/elon-vs-drexel-stream-how-to-watch-march-13/
+
 **N.C. Sheriff Poised to Pull Off Stunning Upset in Consequential G.O.P. Primary**\
 `A final tally on Friday showed Sam Page ahead of Phil Berger, the longtime powerful leader of the State Senate. A recount is expected but experts say that is unlikely to flip the results.`\
 https://nytimes.com/2026/03/13/us/berger-page-north-carolina-senate.html
