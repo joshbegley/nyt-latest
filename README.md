@@ -1,3 +1,11 @@
+**Slot: Ngumoha pushing for starts in Liverpool's busy period**\
+`The 17-year-old winger has featured as a substitute in Liverpool's last three Premier League games.`\
+https://nytimes.com/athletic/7114777/2026/03/13/liverpool-ngumoha-alisson-slot/
+
+**Hurzeler says he clarified Arsenal criticism in text exchange with Arteta**\
+`Hurzeler accused Arsenal of time-wasting tactics that are “not football”.`\
+https://nytimes.com/athletic/7114797/2026/03/13/fabian-hurzeler-mikel-arteta-arsenal-criticism/
+
 **The Pulse: Your thoughts on Bam’s 83 points**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7112121/2026/03/13/bam-adebayo-83-points-survey-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7114078/2026/03/13/red-wings-larkin-copp-injuries-l
 **2026 fantasy baseball catcher and UT-only targets, sleepers, risks and prospects to watch**\
 `Dalton Del Don discusses catchers and utility-only players to target and avoid ahead of the 2026 fantasy baseball season. `\
 https://nytimes.com/athletic/7111530/2026/03/13/fantsay-baseball-2026-catcher-utility-sleepers-prospects/
-
-**Can Fernando Tatis Jr.'s World Baseball Classic stardom help launch him and the Padres?**\
-`“When Tati’s enjoying what he’s doing, he’s electric on the field.”`\
-https://nytimes.com/athletic/7114351/2026/03/13/fernando-tatis-jr-padres-world-baseball-classic/
-
-**The Vikings signed Kyler Murray. So what’s next for J.J. McCarthy?**\
-`Could McCarthy beat out Murray for the starting QB job? Could the Vikings trade the youngster? Would another team even want him?`\
-https://nytimes.com/athletic/7105184/2026/03/13/jj-mccarthy-kyler-murray-vikings-nfl-free-agency/
 
