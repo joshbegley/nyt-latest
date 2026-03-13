@@ -1,40 +1,40 @@
-**How to watch George Washington vs. Saint Louis men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114672/2026/03/13/george-washington-vs-saint-louis-stream-how-to-watch-march-13/
+**4 Tips for a Better Morning Routine**\
+`It’s OK if you’re not an early riser.`\
+https://nytimes.com/2026/03/13/well/morning-routine-morning-person.html
 
-**Mercedes in talks over buying stake in Alpine F1 team from investment firm**\
-`One of the other groups that's shown interest involves former Red Bull team principal Christian Horner.`\
-https://nytimes.com/athletic/7114640/2026/03/13/mereces-alpine-f1-otro-capital-briatore/
+**After Latest Attack, Some Jews Wonder How Much More Security Is Possible**\
+`“We are synagogues — we are houses of worship,” one rabbi said. “We are not Fort Knox.”`\
+https://nytimes.com/2026/03/13/us/antisemitism-michigan-synogogue.html
 
-**How to watch Southern vs. Alabama A&M women's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Southern Jaguars play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114657/2026/03/13/southern-vs-alabama-a-m-stream-how-to-watch-march-13/
+**The New York Times News Quiz, March 13, 2026**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2026/03/13/briefing/news-quiz-iran-war-khamenei.html
 
-**How to watch Ohio vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Ohio Bobcats play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114656/2026/03/13/ohio-vs-miami-oh-stream-how-to-watch-march-13/
+**When a President Gets Addicted to Regime Change**\
+`Venezuela gave Trump a taste of success. This isn’t the first time an American president has gotten hooked on overthrowing foreign governments.`\
+https://nytimes.com/2026/03/13/magazine/iran-trump-regime-change-history-eisenhower.html
 
-**Here’s the latest.**\
-`By John Yoon and Adam Rasgon`\
-https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/heres-the-latest
+**Alas, You Will Never Look Like JFK Jr. in Your Chinos**\
+`Recent marketing campaigns and TikToks reflect the craze for “Love Story.’ They show that the Kennedy archetype still can’t be purchased.`\
+https://nytimes.com/2026/03/13/style/alas-you-will-never-look-like-jfk-jr-in-your-chinos.html
 
-**Iran War Live Updates: Israel Targets Hezbollah in Beirut as Strikes Hit City Center**\
-`The attacks heightened fears that the war was expanding beyond Hezbollah’s traditional strongholds into parts of Beirut once considered comparatively safe. New strikes were also reported in Iran, Iraq and Israel.`\
-https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel
+**Jack Harlow Was a Chart-Topping Rapper. He Doesn’t Want to Brag Anymore.**\
+`After smashes like “First Class” and “Lovin on Me,” the artist from Louisville, Ky., is making a true musical shift to intimate, hand-played R&B on his fourth album, “Monica.”`\
+https://nytimes.com/2026/03/13/arts/music/jack-harlow-monica-interview-popcast.html
 
-**New Jersey Is Reconsidering Legalizing Casinos Outside Atlantic City**\
-`Legislation has been introduced to authorize two new casinos at the Meadowlands and Monmouth Park racetracks to compete against the three new casinos planned for New York City.`\
-https://nytimes.com/2026/03/13/nyregion/casinos-new-jersey-meadowlands.html
+**Can I Stare at My Girlfriend?**\
+`A ruling on the line between creepy and sweet.`\
+https://nytimes.com/interactive/2026/03/13/magazine/staring-girlfriend-hodgman-quiz.html
 
-**The Challenge of Helping Homeless People Who Avoid New York’s Shelters**\
-`Mayor Zohran Mamdani has been reluctant to force people indoors, even in dire weather. But conditions, whether on the streets or in shelters, can be dangerous.`\
-https://nytimes.com/2026/03/13/nyregion/nyc-street-homeless-outreach.html
+**Any Way You Look at It, Netanyahu Wins**\
+`The war in Iran is a victory for the Israeli prime minister.`\
+https://nytimes.com/2026/03/13/opinion/netanyahu-iran-israel-war.html
 
-**Gas Pump**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2026/03/13/learning/gas-pump.html
+**5 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2026/03/13/movies/new-movies-this-week-critics.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
+**Joaquin Castro Is on a Quest to Get Detained Immigrants Released**\
+`The Texas Democrat has used his perch in Congress to highlight sympathetic cases in his push to free detainees and call attention to the cruel consequences of President Trump’s immigration agenda.`\
+https://nytimes.com/2026/03/13/us/politics/joaquin-castro-immigration-detention-texas.html
 
