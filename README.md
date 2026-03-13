@@ -1,3 +1,7 @@
+**How to watch Clemson vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Clemson Tigers play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116063/2026/03/13/clemson-vs-duke-stream-how-to-watch-march-13/
+
 **Brenna Huckaby won another Paralympic medal, then the U.S. snowboarder had a message**\
 `After winning bronze Friday, the U.S. snowboarder took a moment to call for the return of her natural classification in future Paralympics.`\
 https://nytimes.com/athletic/7115586/2026/03/13/brenna-huckaby-paralympics-snowboarding-classification-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116022/2026/03/13/nevada-vs-utah-state-stream-how-
 **How José Berríos' elbow appointment could impact Blue Jays' rotation**\
 `"I've been feeling great and throwing the ball well," Berríos said, "but the MRI says something, so now we have to take care of that."`\
 https://nytimes.com/athletic/7115791/2026/03/13/jose-berrios-elbow-blue-jays-rotation/
-
-**How to watch Kansas vs. Houston men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116013/2026/03/13/kansas-vs-houston-stream-how-to-watch-march-13/
 
