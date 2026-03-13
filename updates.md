@@ -1,3 +1,11 @@
+**University Shooting Being Investigated as an Act of Terrorism, Officials Say**\
+`The authorities are investigating the shooting at Old Dominion University in Norfolk, Va., as an act of terrorism.`\
+https://nytimes.com/video/us/100000010773103/old-dominion-university-shooting-virginia.html
+
+**James Pearce Jr. charged in incident involving WNBA's Rickea Jackson**\
+`Pearce was charged with aggravated battery with a deadly weapon, fleeing the police and resisting an officer with violence, all felonies.`\
+https://nytimes.com/athletic/7113545/2026/03/12/falcons-james-pearce-charged-3-felonies-misdemeanor/
+
 **Here’s What Happened in the War in the Middle East on Thursday**\
 `Iran’s new supreme leader delivered a forceful message in his first public statement since succeeding his slain father, as the Israeli military bombarded Tehran and the Lebanese capital with strikes.`\
 https://nytimes.com/2026/03/12/world/middleeast/iran-war-middle-east-beirut-recap.html
