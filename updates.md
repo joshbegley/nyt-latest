@@ -1,3 +1,7 @@
+**A New Magazine of International Reportage? In This Media Environment?**\
+`Now Voyager, an ambitious publication packed with dispatches from around the world, throws itself a party in Harlem.`\
+https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html
+
 **A New Magazine? In This Media Environment?**\
 `Now Voyager, an ambitious publication packed with international reportage, throws itself a party in Harlem.`\
 https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html

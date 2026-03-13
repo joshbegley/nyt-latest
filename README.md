@@ -1,3 +1,11 @@
+**The Fall of Noma’s Chef Reverberates in the Restaurant World**\
+`In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
+https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
+
+**Judge Temporarily Blocks Trump Demand for Student Race Data**\
+`A group of Democratic attorneys general had sued to overturn the Trump administration’s new policy that demanded the past seven years of student application data.`\
+https://nytimes.com/2026/03/13/us/politics/trump-lawsuit-college-admissions.html
+
 **A New Magazine of International Reportage? In This Media Environment?**\
 `Now Voyager, an ambitious publication packed with dispatches from around the world, throws itself a party in Harlem.`\
 https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/ai-ads-campaign-deepfake.html
 **Protesters Accused of Antifa Ties Found Guilty of Support for Terrorism**\
 `The guilty verdicts marked the first time that terrorism charges had been successfully brought against purported members of antifa.`\
 https://nytimes.com/2026/03/13/us/antifa-protesters-terrorism.html
-
-**Iconic Pink Floyd Guitar Sells for a Record $14.55 Million**\
-`Pink Floyd Guitarist David Gilmour’s black Fender Stratocaster, which he played on six of the band’s albums, including “The Dark Side of the Moon,” broke the record for the most expensive guitar sold at auction.`\
-https://nytimes.com/video/arts/music/100000010774716/pink-floyd-guitar-sale-record.html
-
-**The U.S. Is Sending More Troops to the Middle East**\
-`Plus, Cuba is in talks with the U.S. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2026/03/13/briefing/marines-iran-cuba.html
 
