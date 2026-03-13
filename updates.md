@@ -1,3 +1,19 @@
+**How to watch George Washington vs. Saint Louis men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114672/2026/03/13/george-washington-vs-saint-louis-stream-how-to-watch-march-13/
+
+**Briatore: Mercedes in talks over buying Otro Capital's stake in Alpine F1**\
+`One of the other groups that's shown interest involves former Red Bull team principal Christian Horner.`\
+https://nytimes.com/athletic/7114640/2026/03/13/mereces-alpine-f1-otro-capital-briatore/
+
+**How to watch Southern vs. Alabama A&M women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114657/2026/03/13/southern-vs-alabama-a-m-stream-how-to-watch-march-13/
+
+**How to watch Ohio vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Ohio Bobcats play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114656/2026/03/13/ohio-vs-miami-oh-stream-how-to-watch-march-13/
+
 **Here’s the latest.**\
 `By John Yoon and Adam Rasgon`\
 https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/heres-the-latest
