@@ -1,3 +1,11 @@
+**Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
+`Lt. Col. Brandon Shah flew hundreds of combat missions as a war-zone helicopter pilot before being shot and killed in his Old Dominion University classroom by a radicalized military veteran.`\
+https://nytimes.com/2026/03/13/us/before-deadly-attack-the-parallel-lives-of-2-soldiers-diverged.html
+
+**After DOGE Deposition Videos Go Viral, Judge Orders Them Taken Down**\
+`The videos had been posted on YouTube by groups who were suing to restore grants cut by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html
+
 **Messi Meets With Trump, and Divides Argentina**\
 `Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
 https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
