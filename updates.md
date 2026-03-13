@@ -1,3 +1,11 @@
+**Still without Sidney Crosby, the Penguins get ambushed early and often in Vegas**\
+`The Penguins stumbled badly against the Golden Knights on Thursday, falling 6-2. `\
+https://nytimes.com/athletic/7114198/2026/03/13/penguins-lose-golden-knights-sidney-crosby/
+
+**How it felt as Thunder fans processed SGA breaking Wilt's record**\
+`All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
+https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
+
 **U.S. Economy Was Vulnerable Before War With Iran**\
 `Economic growth at the end of 2025 was revised downward and consumer prices rose at the start of 2026.`\
 https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
