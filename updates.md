@@ -1,3 +1,7 @@
+**NHL Power Rankings: A new Top 5 team, plus 'do-overs' for everyone**\
+`Every team has regrets, some more than others, so we went through each one to see what they’d like a do-over on.`\
+https://nytimes.com/athletic/7115047/2026/03/13/nhl-power-rankings-wild-sabres/
+
 **Watch: How do SGA and Wilt's numbers stack up with each other?**\
 `Wilt is still Wilt when you compare the overall numbers, but he owns one fewer record after Thursday.`\
 https://nytimes.com/athletic/7115147/2026/03/13/shai-gilgeous-alexander-20-point-streak-wilt-nba/

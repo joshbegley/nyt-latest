@@ -1,6 +1,14 @@
+**The Windup: Ranking WBC underdogs**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7115323/2026/03/13/world-baseball-classic-underdogs-the-windup/
+
 **NHL Power Rankings: A new Top 5 team, plus 'do-overs' for everyone**\
 `Every team has regrets, some more than others, so we went through each one to see what they’d like a do-over on.`\
 https://nytimes.com/athletic/7115047/2026/03/13/nhl-power-rankings-wild-sabres/
+
+**The Bounce: What do recent champs' stats say about who'll win the NBA title?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7115285/2026/03/13/nba-finals-champions-stats-the-bounce/
 
 **Watch: How do SGA and Wilt's numbers stack up with each other?**\
 `Wilt is still Wilt when you compare the overall numbers, but he owns one fewer record after Thursday.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questi
 **Ranking the Canucks' top 10 prospects after the trade deadline**\
 `For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
 https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
-
-**Romero, Palhinha undergoing concussion protocols, will miss Spurs visit to Liverpool**\
-`With Micky van de Ven suspended at Anfield, Igor Tudor is short of options at centre-half.`\
-https://nytimes.com/athletic/7114780/2026/03/13/palhinha-romero-concussion-tottenham-fitness/
-
-**Man United's Gabriel a 'big talent' but 'too young' to make squad - Carrick**\
-`Gabriel is unable to feature in matchday squads higher than under-18 level because he was 14 years of age when the 2025-26 season began. `\
-https://nytimes.com/athletic/7115189/2026/03/13/jj-gabriel-carrick-man-united-talent-age-news/
 
