@@ -1,3 +1,11 @@
+**The Fall of Noma’s Chef Reverberates in the Restaurant World**\
+`In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
+https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
+
+**Judge Temporarily Blocks Trump Demand for Student Race Data**\
+`A group of Democratic attorneys general had sued to overturn the Trump administration’s new policy that demanded the past seven years of student application data.`\
+https://nytimes.com/2026/03/13/us/politics/trump-lawsuit-college-admissions.html
+
 **A New Magazine of International Reportage? In This Media Environment?**\
 `Now Voyager, an ambitious publication packed with dispatches from around the world, throws itself a party in Harlem.`\
 https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html

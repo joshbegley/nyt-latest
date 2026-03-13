@@ -1,3 +1,7 @@
+**A Messi Political Debate**\
+`Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
+https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
+
 **The Fall of Noma’s Chef Reverberates in the Restaurant World**\
 `In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
 https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/marines-interstate-shrapnel-vance.html
 **The Age of Eerie A.I. Political Ads Is Here**\
 `Wait, that’s not the real James Talarico …`\
 https://nytimes.com/2026/03/13/us/politics/ai-ads-campaign-deepfake.html
-
-**Protesters Accused of Antifa Ties Found Guilty of Support for Terrorism**\
-`The guilty verdicts marked the first time that terrorism charges had been successfully brought against purported members of antifa.`\
-https://nytimes.com/2026/03/13/us/antifa-protesters-terrorism.html
 
