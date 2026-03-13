@@ -1,3 +1,7 @@
+**Nottingham Forest are still alive in the Europa League but Premier League survival must be the priority**\
+`Nottingham Forest have great memories of European nights but the harsh reality is staying in the Premier League is now more important`\
+https://nytimes.com/athletic/7113831/2026/03/13/nottingham-forest-premier-league-priority/
+
 **Word of the Day: malevolent**\
 `This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/13/learning/word-of-the-day-malevolent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bu
 **How are Manchester United's loanees faring as decision time approaches?**\
 `Manchester United have a host of players out on loan this season, and all have very different futures`\
 https://nytimes.com/athletic/7111962/2026/03/13/manchester-united-loanees-onana-hojlund-rashford-sancho/
-
-**What football really thinks of Arsenal's football**\
-`We spoke to two club executives, a senior recruitment figure, an academy coach, a player, a scout to get their views on Arteta's side.`\
-https://nytimes.com/athletic/7112125/2026/03/13/arsenal-football-style-opinions/
 

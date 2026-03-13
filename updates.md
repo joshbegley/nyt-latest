@@ -1,3 +1,7 @@
+**Word of the Day: malevolent**\
+`This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/13/learning/word-of-the-day-malevolent.html
+
 **Indian Kitchens Face Fuel Shortage From War in Middle East**\
 `The fuel that powers Indian kitchens has been harder to get since the start of the war, which effectively shut a critical shipping lane for gas imports that India’s population relies on.`\
 https://nytimes.com/video/business/100000010773720/india-cooking-gas-middle-east.html
