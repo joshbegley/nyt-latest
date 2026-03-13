@@ -1,3 +1,7 @@
+**How to watch Drake vs. Illinois State women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Drake Bulldogs play the Illinois State Redbirds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115959/2026/03/13/drake-vs-illinois-state-stream-how-to-watch-march-13/
+
 **How to watch Elon vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Elon Phoenix play the Drexel Dragons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115947/2026/03/13/elon-vs-drexel-stream-how-to-watch-march-13/
