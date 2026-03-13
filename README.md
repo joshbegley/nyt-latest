@@ -1,3 +1,7 @@
+**War in Iran Has India Wondering How to Keep Its Stovetops Lit**\
+`India relies on huge quantities of cooking gas that is normally shipped from the Persian Gulf.`\
+https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
+
 **Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
 `Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
 https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113440/2026/03/12/cj-gardner-johnson-bills-nfl-fre
 **Treasure Hunter Released From Prison After Refusing to Turn Over Gold Coins**\
 `Thomas G. Thompson was held in contempt for 10 years for repeatedly denying he knew the whereabouts of 500 missing gold coins.`\
 https://nytimes.com/2026/03/12/us/tommy-thompson-jail-released-gold-coins.html
-
-**Ukraine to Make Drone Videos Available for Training A.I. Models**\
-`Despite ethical concerns about using battlefield videos to train artificial intelligence, Ukraine’s defense ministry said it needs to improve A.I. targeting to compete with Russia.`\
-https://nytimes.com/2026/03/12/world/europe/ukraine-drones-ai-models-training.html
 
