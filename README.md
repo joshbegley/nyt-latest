@@ -1,3 +1,7 @@
+**VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
+`The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
+https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
+
 **NWSL storylines to follow for the 2026 season**\
 `The latest NWSL season features the return of star players, seven new head coaches and World Cup sacrifices `\
 https://nytimes.com/athletic/7111763/2026/03/13/nwsl-storylines-2026-new-rules-world-cup-head-coaches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114643/2026/03/13/lebron-james-lakers-luka-doncic-
 **What would the SEC making its own rules actually mean?**\
 `Recent SEC talk of setting its own rules makes one wonder: What would that even look like?`\
 https://nytimes.com/athletic/7114958/2026/03/13/sec-ncaa-college-football-rules-eligibility-transfers/
-
-**Trump Administration Live Updates: D.H.S. Staff to Miss Paycheck as Shutdown Continues**\
-``\
-https://nytimes.com/live/2026/03/13/us/trump-news
 
