@@ -1,3 +1,15 @@
+**FPL planning and the added dimension of European ties**\
+`With key European round-of-16 ties sandwiched between the next two Fantasy Premier League gameweeks, how should managers prepare?`\
+https://nytimes.com/athletic/7107426/2026/03/13/fantasy-premier-league-gameweek-30-fpl-tips-champions-league/
+
+**John Hynes' message after Wild's poor effort, shootout loss: 'Winning is not inevitable'**\
+`The Wild went ahead in the second period but didn't buckle down against a team they might have regarded as a pushover.`\
+https://nytimes.com/athletic/7113635/2026/03/13/wild-flyers-shootout-loss-hynes/
+
+**Luka Dončić exceeds 50 points in a game for first time as a Laker**\
+`It took 13 months for Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
+https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bulls-51-points/
+
 **Leeds have players struggling for minutes. How can Farke ensure they can make an impact?**\
 `Behind closed doors matches, earlier substitutions and other options could be explored by Farke`\
 https://nytimes.com/athletic/7112243/2026/03/13/leeds-rotation-fringe-analysis/
