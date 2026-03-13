@@ -1,3 +1,7 @@
+**Indian Kitchens Face Fuel Shortage From War in Middle East**\
+`The fuel that powers Indian kitchens has been harder to get since the start of the war, which effectively shut a critical shipping lane for gas imports that India’s population relies on.`\
+https://nytimes.com/video/business/100000010773720/india-cooking-gas-middle-east.html
+
 **FPL planning and the added dimension of European ties**\
 `With key European round-of-16 ties sandwiched between the next two Fantasy Premier League gameweeks, how should managers prepare?`\
 https://nytimes.com/athletic/7107426/2026/03/13/fantasy-premier-league-gameweek-30-fpl-tips-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112125/2026/03/13/arsenal-football-style-opinions/
 **The BookKeeper: Exploring Liverpool's latest finances as record revenues led to transfer splurge**\
 `We examine Liverpool's accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
 https://nytimes.com/athletic/7092980/2026/03/13/bookkeeper-liverpool-finances-2024-2025-transfers-fsg/
-
-**Does playing first in a title race make any difference?**\
-`The received wisdom is that playing first in a two-horse title battle is an advantage. This is what the data says`\
-https://nytimes.com/athletic/7075219/2026/03/13/premier-league-title-race-play-first-make-difference/
 
