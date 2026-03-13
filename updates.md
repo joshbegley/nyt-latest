@@ -1,3 +1,15 @@
+**Britain warns its citizens in Dubai they could be jailed for sharing photos of damage from airstrikes.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/britain-warns-its-citizens-in-dubai-they-could-be-jailed-for-sharing-photos-of-damage-from-airstrikes
+
+**Margareta Magnusson, Who Popularized Swedish Death Cleaning, Dies at 91**\
+`Her best-selling book on the subject encouraged the world to tidy up homes and lives as death approached — as a gift for loved ones and to revisit memories.`\
+https://nytimes.com/2026/03/13/books/margareta-magnusson-dead.html
+
+**Travis Etienne Jr. reveals the correct way to pronounce his last name**\
+`In his first news conference since signing with the Saints, running back says his name is pronounced "A-chan," not "ee-tee-en."`\
+https://nytimes.com/athletic/7116252/2026/03/13/travis-etienne-jr-name-pronunciation/
+
 **Me, Myself and My A.I. Sloppelgänger**\
 `Grammarly made a deepfake of my mind. I’m fighting back.`\
 https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
