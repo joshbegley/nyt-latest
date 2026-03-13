@@ -1,3 +1,11 @@
+**This is what happened on March 12.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-12
+
+**In the year of tennis hindrances, Daniil Medvedev and Jack Draper had the strangest at Indian Wells**\
+`Medvedev dominated their Indian Wells quarterfinal, but the end of the match turned on one of the sport's most controversial rules.`\
+https://nytimes.com/athletic/7114045/2026/03/13/tennis-hindrance-draper-medvedev-indian-wells/
+
 **An Ancient Temple at the Heart of a Modern Conflict**\
 `A rare visit to a Khmer temple on Thailand and Cambodia’s border showed how deadly clashes between the two countries have scarred a heritage site.`\
 https://nytimes.com/2026/03/13/world/asia/thailand-cambodia-preah-vihear-temple.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/business/economy/iran-war-global-supply-chain.htm
 **What to Know About the U.S. Lasers Being Used to Counter Iranian Attacks**\
 `High-energy lasers can burn drones in the sky like a blowtorch. But they can be stymied by weather, and making them at scale will be a challenge.`\
 https://nytimes.com/2026/03/13/business/what-to-know-about-the-us-lasers-being-used-to-counter-iranian-attacks.html
-
-**Yes, He Actually Tried to Woo Me by Drone**\
-`My Nigerian tech bro considered flowers to be “too analog.”`\
-https://nytimes.com/2026/03/13/style/modern-love-yes-he-tried-to-woo-me-by-drone.html
-
-**Surging Energy Costs Put German Industry ‘Really in Danger’**\
-`Four years after the Russian invasion of Ukraine sent energy prices soaring, the war in Iran is posing another challenge to efforts to revive European factories.`\
-https://nytimes.com/2026/03/13/business/energy-environment/iran-energy-costs-germany-factories.html
 

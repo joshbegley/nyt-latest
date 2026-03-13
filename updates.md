@@ -1,3 +1,11 @@
+**This is what happened on March 12.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-12
+
+**In the year of tennis hindrances, Daniil Medvedev and Jack Draper had the strangest at Indian Wells**\
+`Medvedev dominated their Indian Wells quarterfinal, but the end of the match turned on one of the sport's most controversial rules.`\
+https://nytimes.com/athletic/7114045/2026/03/13/tennis-hindrance-draper-medvedev-indian-wells/
+
 **An Ancient Temple at the Heart of a Modern Conflict**\
 `A rare visit to a Khmer temple on Thailand and Cambodia’s border showed how deadly clashes between the two countries have scarred a heritage site.`\
 https://nytimes.com/2026/03/13/world/asia/thailand-cambodia-preah-vihear-temple.html
