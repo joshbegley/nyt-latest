@@ -1,3 +1,11 @@
+**VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
+`The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
+https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
+
+**NWSL storylines to follow for the 2026 season**\
+`The latest NWSL season features the return of star players, seven new head coaches and World Cup sacrifices `\
+https://nytimes.com/athletic/7111763/2026/03/13/nwsl-storylines-2026-new-rules-world-cup-head-coaches/
+
 **Fantasy Premier League live Q&A: Gameweek 30 advice from Ben Dinnery**\
 `To get your FPL side into shape before, Ben Dinnery of premierinjuries.com is on hand to offer his expert advice ahead of Gameweek 30`\
 https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-live-qa-gameweek-30/
