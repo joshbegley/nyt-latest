@@ -1,3 +1,15 @@
+**As Mexico's World Cup injury woes worsen, door could re-open for GK Ochoa**\
+`Manager Javier Aguirre has an injury problem on his hands, leaving Mexico in peril – and a 40-year-old legend on the cusp of history`\
+https://nytimes.com/athletic/7111941/2026/03/13/mexico-injuries-world-cup-malagon-ruiz-mora-ochoa/
+
+**Arteta says he 'fully trusts and loves' Saka amid winger's indifferent form**\
+`The Arsenal vice-captain's underlying numbers are far better than his output so far this season.`\
+https://nytimes.com/athletic/7115383/2026/03/13/bukayo-saka-arsenal-arteta-trust/
+
+**The Complicated Oscars Night Feelings Over ‘One Battle After Another’**\
+`“One Battle After Another” has 13 Oscar nominations, including Teyana Taylor’s best supporting actress nod — but some people aren’t rooting for it, and a lot of those people are Black women. Wesley Morris and his friend, the scholar Daphne A. Brooks, discussed why on “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010774229/the-complicated-oscars-night-feelings-over-one-battle-after-another.html
+
 **Is NHL free agency dead?**\
 `Anyone disappointed with how underwhelming last week’s trade deadline was should save some of that malaise for free agency.`\
 https://nytimes.com/athletic/7115366/2026/03/13/nhl-free-agency-market-trade-deadline-red-light/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/13/business/iran-war-gas-prices-groceries.html
 **War Stirs Mixed Feelings for the Only Iranian American Democrat in Congress**\
 `The daughter of Iranians who fled the country, Representative Yassamin Ansari of Arizona wants a democratic and secular government for Iran, but is wary of President Trump’s war.`\
 https://nytimes.com/2026/03/13/us/politics/ansari-iranian-american-congress.html
-
-**With Trent McDuffie and Jaylen Watson, Rams' secondary is now built to thrive**\
-`The former Chiefs cornerbacks join a Rams secondary that includes star safety Quentin Lake and Kam Curl. `\
-https://nytimes.com/athletic/7112465/2026/03/13/trent-mcduffie-jaylen-watson-rams-secondary/
-
-**Rosenior says he has 'trust' in Chelsea goalkeeper options**\
-`Robert Sanchez and Filip Jorgensen have come under scrutiny for making mistakes.`\
-https://nytimes.com/athletic/7115317/2026/03/13/rosenior-sanchez-jorgensen-chelsea-goalkeepers/
-
-**Canucks mailbag: Submit your questions for Thomas Drance**\
-`Got a question about the Vancouver Canucks now that the trade deadline has passed? Submit it here.`\
-https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questions-march-2026/
 
