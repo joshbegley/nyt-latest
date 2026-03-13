@@ -1,3 +1,7 @@
+**U.S. Economy Was Vulnerable Before War With Iran**\
+`Economic growth at the end of 2025 was revised downward and consumer prices rose at the start of 2026.`\
+https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
+
 **Bills promised a new way, but Josh Allen remains their answer for everything: Graham**\
 `Other teams with expensive quarterbacks have made headliner moves during free agency, but not Buffalo, which still has roster holes.`\
 https://nytimes.com/athletic/7114915/2026/03/13/bills-2026-free-agency-josh-allen/

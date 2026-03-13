@@ -1,3 +1,7 @@
+**Still without Sidney Crosby, the Penguins get ambushed early and often in Vegas**\
+`The Penguins stumbled badly against the Golden Knights on Thursday, falling 6-2. `\
+https://nytimes.com/athletic/7114198/2026/03/13/penguins-lose-golden-knights-sidney-crosby/
+
 **Bills promised a new way, but Josh Allen remains their answer for everything: Graham**\
 `Other teams with expensive quarterbacks have made headliner moves during free agency, but not Buffalo, which still has roster holes.`\
 https://nytimes.com/athletic/7114915/2026/03/13/bills-2026-free-agency-josh-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-fe
 **VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
 `The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
 https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
-
-**NWSL storylines to follow for the 2026 season**\
-`The latest NWSL season features the return of star players, seven new head coaches and World Cup sacrifices `\
-https://nytimes.com/athletic/7111763/2026/03/13/nwsl-storylines-2026-new-rules-world-cup-head-coaches/
 
