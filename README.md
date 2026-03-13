@@ -1,8 +1,16 @@
+**Rosenior has 'trust' in Chelsea goalkeeper options**\
+`Robert Sanchez and Filip Jorgensen have come under scrutiny for making mistakes.`\
+https://nytimes.com/athletic/7115317/2026/03/13/rosenior-sanchez-jorgensen-chelsea-goalkeepers/
+
+**Canucks mailbag: Submit your questions for Thomas Drance**\
+`Got a question about the Vancouver Canucks now that the trade deadline has passed? Submit it here.`\
+https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questions-march-2026/
+
 **Ranking the Canucks' top 10 prospects after the trade deadline**\
 `For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
 https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
 
-**Romero and Palhinha to miss Spurs' visit to Liverpool after clash of heads**\
+**Romero, Palhinha to miss Spurs' visit to Liverpool after clash of heads**\
 `With Micky van de Ven suspended at Anfield, Igor Tudor is short of options at centre-half.`\
 https://nytimes.com/athletic/7114780/2026/03/13/palhinha-romero-concussion-tottenham-fitness/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7113959/2026/03/13/maple-leafs-scott-laughton-trade
 **How to watch Seton Hall vs. St. John's men's basketball: Big East Tournament Time, TV, streaming**\
 `Find out how to watch the Seton Hall Pirates play the St. John's Red Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115299/2026/03/13/seton-hall-vs-st-john-s-stream-how-to-watch-march-13/
-
-**How to watch UT Arlington vs. Abilene Christian women's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the UT Arlington Mavericks play the Abilene Christian Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115269/2026/03/13/ut-arlington-vs-abilene-christian-stream-how-to-watch-march-13/
-
-**How to watch Maine vs. Vermont women's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the Maine Black Bears play the Vermont Catamounts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115266/2026/03/13/maine-vs-vermont-stream-how-to-watch-march-13/
 
