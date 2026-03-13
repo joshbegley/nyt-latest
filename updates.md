@@ -1,3 +1,19 @@
+**Make Your Freezer Work Better in 4 Simple Steps **\
+`Text by Caroline Mullen`\
+https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
+
+**To Fight Iran’s Drones, U.S. Taps Ukraine’s Hard-Earned Knowledge**\
+`As Iran has shown, warfare involves far more deadly projectiles than it once did. It’s a problem Ukraine has been dealing with for years.`\
+https://nytimes.com/2026/03/13/world/middleeast/ukraine-drone-knowledge.html
+
+**The Strait of Hormuz is narrow — and shallow enough to lay minefields.**\
+`By Samuel Granados, John Ismay and Agnes Chang`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/strait-of-hormuz-sea-mines
+
+**Judge Quashes Justice Dept.’s Subpoenas Targeting Federal Reserve Chair**\
+`Judge James E. Boasberg derided the U.S. attorney’s office in Washington for pursuing a case against Jerome H. Powell that appeared to be motivated by President Trump’s desire for vengeance.`\
+https://nytimes.com/2026/03/13/us/politics/jerome-powell-trump-subpoenas.html
+
 **6 Crew Members Die in U.S. Military Plane Crash in Iraq**\
 `Six crew members died after a military refueling plane crashed in Iraq on Thursday, the U.S. Central Command said. Officials said the crash was not caused by hostile or friendly fire.`\
 https://nytimes.com/video/world/middleeast/100000010774813/iraq-plane-crash-us-crew-members-dead.html
