@@ -1,3 +1,15 @@
+**Partey indicates he is likely to plead not guilty to two most recent rape charges**\
+`The former Arsenal midfielder, now at Villarreal, did not attend Friday's hearing at Westminster Magistrates' Court.`\
+https://nytimes.com/athletic/7111254/2026/03/13/thomas-partey-plea-hearing-arsenal-villarreal/
+
+**Did the Maple Leafs’ response to Auston Matthews’ injury come too late?**\
+`'When your captain goes down like that on a dirty play, you have to respond as a group.'`\
+https://nytimes.com/athletic/7114224/2026/03/13/maple-leafs-auston-matthews-injury-response/
+
+**Cuban President Acknowledges Talks with the Trump Administration**\
+`Facing a massive energy crisis and increasing protests on the streets, the Cuban government acknowledged that it had entered into negotiations with the Trump administration.`\
+https://nytimes.com/2026/03/13/world/americas/cuba-us-talks-trump-oil.html
+
 **As LeBron James returns for Lakers, he says he's willing to sacrifice to win**\
 `Lakers coach JJ Redick said James wants to make sure he complements the talent of teammates Luka Dončić and Austin Reaves.`\
 https://nytimes.com/athletic/7114643/2026/03/13/lebron-james-lakers-luka-doncic-austin-reaves/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7110942/2026/03/13/oilers-evan-bouchard-stats-norri
 **Is the Premier League in danger of losing its fifth Champions League spot?**\
 `No English club won in the Champions League last 16 after dominating the league phase, but it might not matter...`\
 https://nytimes.com/athletic/7114828/2026/03/13/premier-league-uefa-coefficient-europe/
-
-**F1 drivers are worried about race start crashes. But politics overhangs consensus**\
-`F1 drivers are concerned about the big difference in start speeds with the new cars. But not all the teams agree on solving the issue`\
-https://nytimes.com/athletic/7114813/2026/03/13/f1-race-starts-2026-new-cars/
-
-**Chargers free-agency reset: An answer to our most pressing combine question**\
-`The Chargers were among the teams with the most salary cap space available this offseason. They haven't been using yet so far.`\
-https://nytimes.com/athletic/7114002/2026/03/13/chargers-nfl-free-agency-keaton-mitchell-joe-hortiz/
-
-**The Athletic’s Friday football quiz question #97**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/7112501/2026/03/13/the-athletics-friday-football-quiz-question-97/
 
