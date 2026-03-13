@@ -1,3 +1,7 @@
+**How to watch Kennesaw State vs. Sam Houston men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114994/2026/03/13/kennesaw-state-vs-sam-houston-stream-how-to-watch-march-13/
+
 **How to watch North Texas vs. Tulsa men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the North Texas Mean Green play the Tulsa Golden Hurricane, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114985/2026/03/13/north-texas-vs-tulsa-stream-how-to-watch-march-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114956/2026/03/13/norfolk-state-vs-maryland-easter
 **How to watch Hawaii vs. UC Irvine women's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the Hawaii Rainbow Wahine play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114950/2026/03/13/hawaii-vs-uc-irvine-stream-how-to-watch-march-13/
-
-**How to watch Tarleton State vs. Cal Baptist women's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Tarleton State Texans play the Cal Baptist Lancers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114937/2026/03/13/tarleton-state-vs-cal-baptist-stream-how-to-watch-march-13/
 

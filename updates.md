@@ -1,3 +1,7 @@
+**How to watch Kennesaw State vs. Sam Houston men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114994/2026/03/13/kennesaw-state-vs-sam-houston-stream-how-to-watch-march-13/
+
 **How to watch North Texas vs. Tulsa men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the North Texas Mean Green play the Tulsa Golden Hurricane, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114985/2026/03/13/north-texas-vs-tulsa-stream-how-to-watch-march-13/
