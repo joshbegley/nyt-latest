@@ -1,3 +1,11 @@
+**Late-Winter Storm Set to Slam Upper Midwest This Weekend**\
+`The storm could be one of the strongest on record for parts of Minnesota and Wisconsin.`\
+https://nytimes.com/2026/03/13/weather/wisconsin-minnesota-snow-winter-forecast.html
+
+**Red Sox pitchers ramp up for Opening Day, vie for fifth starting spot**\
+`With 11 days of spring training left, Boston's bullpen is taking shape, but the last spot in the starting pitching rotation is up for grabs.`\
+https://nytimes.com/athletic/7116570/2026/03/13/danny-coulombe-johan-oviedo-red-sox-pitchers-2026/
+
 **A Messi Political Debate**\
 `Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
 https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
@@ -19,7 +27,7 @@ https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.ht
 https://nytimes.com/athletic/7116681/2026/03/13/world-baseball-classic-united-states-rematch-map/
 
 **Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
-`The ground stops, which also affected the airport serving Richmond, Va., were expected to last until at least 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
+`The ground stops, which also affected the airport serving Richmond, Va., were expected to last until at least 8 p.m., according to the F.A.A., which said the smell had affected air traffic controllers.`\
 https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
 
 **Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.h
 **Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
 `The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
 https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html
-
-**Marines Blame ‘One-in-a-Million’ Malfunction for Shrapnel Mishap in California**\
-`The October episode sent shrapnel onto California Highway Patrol vehicles on Interstate 5 during a celebratory exercise conducted for Vice President JD Vance and Defense Secretary Pete Hegseth.`\
-https://nytimes.com/2026/03/13/us/marines-interstate-shrapnel-vance.html
-
-**The Age of Eerie A.I. Political Ads Is Here**\
-`Wait, that’s not the real James Talarico …`\
-https://nytimes.com/2026/03/13/us/politics/ai-ads-campaign-deepfake.html
 

@@ -1,3 +1,15 @@
+**Late-Winter Storm Set to Slam Upper Midwest This Weekend**\
+`The storm could be one of the strongest on record for parts of Minnesota and Wisconsin.`\
+https://nytimes.com/2026/03/13/weather/wisconsin-minnesota-snow-winter-forecast.html
+
+**Red Sox pitchers ramp up for Opening Day, vie for fifth starting spot**\
+`With 11 days of spring training left, Boston's bullpen is taking shape, but the last spot in the starting pitching rotation is up for grabs.`\
+https://nytimes.com/athletic/7116570/2026/03/13/danny-coulombe-johan-oviedo-red-sox-pitchers-2026/
+
+**Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
+`The ground stops, which also affected the airport serving Richmond, Va., were expected to last until at least 8 p.m., according to the F.A.A., which said the smell had affected air traffic controllers.`\
+https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
+
 **A Messi Political Debate**\
 `Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
 https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
