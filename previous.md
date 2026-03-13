@@ -1,3 +1,31 @@
+**Echoes of the ’70s in What’s Now the Largest Oil Shock Ever**\
+`Governments have stockpiled oil, and cars are more efficient but the supply shock is global, and there’s no sense of when it’ll end.`\
+https://nytimes.com/2026/03/13/world/middleeast/oil-supply-shock-1973-embargo.html
+
+**How to watch Davidson vs. Saint Joseph's (PA) men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Davidson Wildcats play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115697/2026/03/13/davidson-vs-saint-joseph-s-pa-stream-how-to-watch-march-13/
+
+**Pete Hegseth Says ‘the Sooner David Ellison’ Buys CNN, ‘the Better’**\
+`The remarks fueled concerns that CNN’s prospective new owner may shift its coverage in a Trump-friendly direction.`\
+https://nytimes.com/2026/03/13/business/media/pete-hegseth-david-ellison-cnn.html
+
+**How to watch Ole Miss vs. Alabama men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115679/2026/03/13/ole-miss-vs-alabama-stream-how-to-watch-march-13/
+
+**How to watch Miami (FL) vs. Virginia men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Miami Hurricanes play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115675/2026/03/13/miami-fl-vs-virginia-stream-how-to-watch-march-13/
+
+**How to watch Iowa State vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115673/2026/03/13/iowa-state-vs-arizona-stream-how-to-watch-march-13/
+
+**How to watch Kent State vs. Akron men's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Kent State Golden Flashes play the Akron Zips, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115648/2026/03/13/kent-state-vs-akron-stream-how-to-watch-march-13/
+
 **How to watch South Carolina State vs. Howard men's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the South Carolina State Bulldogs play the Howard Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115646/2026/03/13/south-carolina-state-vs-howard-stream-how-to-watch-march-13/
@@ -9,33 +37,4 @@ https://nytimes.com/athletic/7115644/2026/03/13/purdue-vs-nebraska-stream-how-to
 **Explosion Hits Near Anti-Israel Rally in Tehran**\
 `An explosion occurred near an anti-Israel rally in the Iranian capital on Friday, as the war between Israel, the United States and Iran showed little signs of slowing.`\
 https://nytimes.com/video/world/middleeast/100000010774052/explosion-hits-near-anti-israel-rally-in-tehran.html
-
-**How to watch North Texas vs. Rice women's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the North Texas Mean Green play the Rice Owls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115636/2026/03/13/north-texas-vs-rice-stream-how-to-watch-march-13/
-
-**Alysa Liu caps Olympic stardom tour with a big party where it all began, in Oakland**\
-`Born and raised in Oakland, with Chinese heritage, the U.S. Olympic figure skating champion embraced it all at a rally Thursday in the city.`\
-https://nytimes.com/athletic/7115350/2026/03/13/alysa-liu-olympics-figure-skating-oakland-rally-chinese-heritage/
-
-**How to watch Liberty vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Liberty Lady Flames play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115626/2026/03/13/liberty-vs-louisiana-tech-stream-how-to-watch-march-13/
-
-**Hegseth says an officer has been appointed to investigate deadly strike on Iranian school.**\
-`By Greg Jaffe`\
-https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/hegseth-says-an-officer-has-been-appointed-to-investigate-deadly-strike-on-iranian-school
-
-**How to watch Hofstra vs. Campbell women's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Hofstra Pride play the Campbell Fighting Camels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115618/2026/03/13/hofstra-vs-campbell-stream-how-to-watch-march-13/
-
-**Chat with Eno Sarris at 11am PT**\
-`<p>Getting ready for your fantasy draft? Need advice on who to pick? Chat with Eno Sarris about that and everything else spring baseball at 11am PT.</p>
-`\
-https://nytimes.com/athletic/7115588/2026/03/13/chat-with-eno-sarris-at-11am-pt/
-
-**How to watch Harvard vs. Columbia women's basketball: Ivy League Tournament Time, TV, streaming**\
-`Find out how to watch the Harvard Crimson play the Columbia Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115605/2026/03/13/harvard-vs-columbia-stream-how-to-watch-march-13/
 

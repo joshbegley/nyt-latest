@@ -1,3 +1,15 @@
+**Home Prices Are Falling in a California Enclave. So Is the Ground.**\
+`The soil keeps shifting in Rancho Palos Verdes, Calif. For the right buyer, that presents a great opportunity, at least for the time being.`\
+https://nytimes.com/2026/03/13/us/rancho-palos-verdes-landslide-california-houses.html
+
+**Louise Erdrich on Her New Story Collection and the Mystery of Writing**\
+`The Pulitzer Prize-winning author talks process and “Planet of the Apes.”`\
+https://nytimes.com/2026/03/13/podcasts/louise-erdrich-on-her-new-story-collection-and-the-mystery-of-writing.html
+
+**Welcome to the Neighborhood. It’s Sinking.**\
+`Portuguese Bend in Rancho Palos Verdes, Calif., rests on an active landslide. While some residents have fled, a few new homebuyers are choosing to take a risk and purchase anyway, seeing a rare opportunity to own a piece of Southern California coastal property.`\
+https://nytimes.com/video/us/100000010731489/california-housing-landslide.html
+
 **Echoes of the ’70s in What’s Now the Largest Oil Shock Ever**\
 `Governments have stockpiled oil, and cars are more efficient but the supply shock is global, and there’s no sense of when it’ll end.`\
 https://nytimes.com/2026/03/13/world/middleeast/oil-supply-shock-1973-embargo.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7115673/2026/03/13/iowa-state-vs-arizona-stream-how
 **How to watch Kent State vs. Akron men's basketball: MAC Tournament Time, TV, streaming**\
 `Find out how to watch the Kent State Golden Flashes play the Akron Zips, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115648/2026/03/13/kent-state-vs-akron-stream-how-to-watch-march-13/
-
-**How to watch South Carolina State vs. Howard men's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the South Carolina State Bulldogs play the Howard Bison, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115646/2026/03/13/south-carolina-state-vs-howard-stream-how-to-watch-march-13/
-
-**How to watch Purdue vs. Nebraska men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115644/2026/03/13/purdue-vs-nebraska-stream-how-to-watch-march-13/
-
-**Explosion Hits Near Anti-Israel Rally in Tehran**\
-`An explosion occurred near an anti-Israel rally in the Iranian capital on Friday, as the war between Israel, the United States and Iran showed little signs of slowing.`\
-https://nytimes.com/video/world/middleeast/100000010774052/explosion-hits-near-anti-israel-rally-in-tehran.html
 
