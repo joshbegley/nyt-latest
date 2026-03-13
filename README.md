@@ -1,3 +1,11 @@
+**Make Your Freezer Work Better in 4 Simple Steps **\
+`Text by Caroline Mullen`\
+https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
+
+**To Fight Iran’s Drones, U.S. Taps Ukraine’s Hard-Earned Knowledge**\
+`As Iran has shown, warfare involves far more deadly projectiles than it once did. It’s a problem Ukraine has been dealing with for years.`\
+https://nytimes.com/2026/03/13/world/middleeast/ukraine-drone-knowledge.html
+
 **The Strait of Hormuz is narrow — and shallow enough to lay minefields.**\
 `By Samuel Granados, John Ismay and Agnes Chang`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/strait-of-hormuz-sea-mines
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7116233/2026/03/13/bulls-vs-clippers-stream-how-to-
 **How to watch Jazz vs. Trail Blazers: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Portland Trail Blazers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116219/2026/03/13/jazz-vs-trail-blazers-stream-how-to-watch-march-13/
-
-**How to watch Timberwolves vs. Warriors: Time, TV, streaming**\
-`Find out how to watch the Minnesota Timberwolves play the Golden State Warriors, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116216/2026/03/13/timberwolves-vs-warriors-stream-how-to-watch-march-13/
-
-**Read Some of John F. Burns’s Reporting From Around the World**\
-`In a 40-year career as an international correspondent for The New York Times, Mr. Burns had a talent for capturing the sweep of history in intricate detail.`\
-https://nytimes.com/2026/03/13/world/middleeast/john-f-burns-stories.html
 
