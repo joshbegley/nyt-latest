@@ -1,3 +1,7 @@
+**Is NHL free agency dead?**\
+`Anyone disappointed with how underwhelming last week’s trade deadline was should save some of that malaise for free agency.`\
+https://nytimes.com/athletic/7115366/2026/03/13/nhl-free-agency-market-trade-deadline-red-light/
+
 **The Windup: Ranking WBC underdogs**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7115323/2026/03/13/world-baseball-classic-underdogs-the-windup/

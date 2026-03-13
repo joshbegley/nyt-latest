@@ -1,3 +1,7 @@
+**Is NHL free agency dead?**\
+`Anyone disappointed with how underwhelming last week’s trade deadline was should save some of that malaise for free agency.`\
+https://nytimes.com/athletic/7115366/2026/03/13/nhl-free-agency-market-trade-deadline-red-light/
+
 **The Windup: Ranking WBC underdogs**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7115323/2026/03/13/world-baseball-classic-underdogs-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7115317/2026/03/13/rosenior-sanchez-jorgensen-chels
 **Canucks mailbag: Submit your questions for Thomas Drance**\
 `Got a question about the Vancouver Canucks now that the trade deadline has passed? Submit it here.`\
 https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questions-march-2026/
-
-**Ranking the Canucks' top 10 prospects after the trade deadline**\
-`For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
-https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
 
