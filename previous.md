@@ -1,3 +1,7 @@
+**NWSL 2026 season predictions: Champions, Triple Espresso's return and an MVP three-peat**\
+`Our panel of experts predicts outcomes of the pressing questions entering NWSL's 2026 campaign`\
+https://nytimes.com/athletic/7112023/2026/03/13/nwsl-2026-season-expert-predictions-winners-chawinga-wilson-banda-rodman/
+
 **4 Tips for a Better Morning Routine**\
 `It’s OK if you’re not an early riser.`\
 https://nytimes.com/2026/03/13/well/morning-routine-morning-person.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/opinion/netanyahu-iran-israel-war.html
 **5 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2026/03/13/movies/new-movies-this-week-critics.html
-
-**Joaquin Castro Is on a Quest to Get Detained Immigrants Released**\
-`The Texas Democrat has used his perch in Congress to highlight sympathetic cases in his push to free detainees and call attention to the cruel consequences of President Trump’s immigration agenda.`\
-https://nytimes.com/2026/03/13/us/politics/joaquin-castro-immigration-detention-texas.html
 

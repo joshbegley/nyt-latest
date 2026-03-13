@@ -1,3 +1,7 @@
+**NWSL 2026 season predictions: Champions, Triple Espresso's return and an MVP three-peat**\
+`Our panel of experts predicts outcomes of the pressing questions entering NWSL's 2026 campaign`\
+https://nytimes.com/athletic/7112023/2026/03/13/nwsl-2026-season-expert-predictions-winners-chawinga-wilson-banda-rodman/
+
 **4 Tips for a Better Morning Routine**\
 `It’s OK if you’re not an early riser.`\
 https://nytimes.com/2026/03/13/well/morning-routine-morning-person.html
