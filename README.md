@@ -1,3 +1,11 @@
+**Ranking the Canucks' top 10 prospects after the trade deadline**\
+`For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
+https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
+
+**Romero and Palhinha to miss Spurs' visit to Liverpool after clash of heads**\
+`With Micky van de Ven suspended at Anfield, Igor Tudor is short of options at centre-half.`\
+https://nytimes.com/athletic/7114780/2026/03/13/palhinha-romero-concussion-tottenham-fitness/
+
 **Man United's Gabriel a 'big talent' but 'too young' to make squad - Carrick**\
 `Gabriel is unable to feature in matchday squads higher than under-18 level because he was 14 years of age when the 2025-26 season began. `\
 https://nytimes.com/athletic/7115189/2026/03/13/jj-gabriel-carrick-man-united-talent-age-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7115269/2026/03/13/ut-arlington-vs-abilene-christia
 **How to watch Maine vs. Vermont women's basketball: America East Tournament Time, TV, streaming**\
 `Find out how to watch the Maine Black Bears play the Vermont Catamounts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115266/2026/03/13/maine-vs-vermont-stream-how-to-watch-march-13/
-
-**How to watch UC Davis vs. UCSD women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the UC Davis Aggies play the UCSD Tritons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115258/2026/03/13/uc-davis-vs-ucsd-stream-how-to-watch-march-13/
-
-**Cowboys agree to sign CB Cobie Durant to 1-year deal: Source**\
-`Durant started 29 games for the Rams over the past two seasons. `\
-https://nytimes.com/athletic/7094590/2026/03/13/cowboys-cobie-durant-nfl-free-agency-2026/
 
