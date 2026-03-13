@@ -1,3 +1,11 @@
+**Tua Tagovailoa, Michael Penix Jr. to 'compete' for Falcons' starting QB role**\
+`Tagovailoa will have a chance to compete with Penix for the Falcons' starting quarterback job, GM Ian Cunningham said Friday.`\
+https://nytimes.com/athletic/7116272/2026/03/13/tua-tagovailoa-michael-penix-falcons-qb/
+
+**Tottenham working on potential options to replace head coach Tudor**\
+`The 47-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
+https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
+
 **Commanders sign free-agent receivers Dyami Brown and Van Jefferson**\
 `The Commanders are bringing back former receiver Dyami Brown and adding 2020 second-round draft pick Van Jefferson.`\
 https://nytimes.com/athletic/7116469/2026/03/13/dyami-brown-van-jefferson-commanders-nfl-free-agency-2026/
