@@ -1,3 +1,7 @@
+**Mirtle: Why the NHL needs to suspend Radko Gudas for his dirty hit on Auston Matthews**\
+`Gudas' history may be a factor for the league, as he will likely find himself back in hot water with the NHL’s Department of Player Safety.`\
+https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-ducks-leafs/
+
 **Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
 `Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
 https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/theater/antigone-review-shalhoub-keenan-bolger.ht
 **The Players Championship Round 1: What to know as 5 share the lead**\
 `Maverick McNealy, Sahith Theegala, Lee Hodges, Sepp Straka and Austin Smotherman are all at 5-under-par.`\
 https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-round-1-what-to-know/
-
-**Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
-`A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
-https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
 

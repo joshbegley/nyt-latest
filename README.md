@@ -1,3 +1,7 @@
+**Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
+`The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
+https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/
+
 **Mirtle: Why the NHL needs to suspend Radko Gudas for his dirty hit on Auston Matthews**\
 `Gudas' history may be a factor for the league, as he will likely find himself back in hot water with the NHL’s Department of Player Safety.`\
 https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-ducks-leafs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/arts/andrea-constand-testifies-in-support-of-anot
 **‘Antigone (This Play I Read in High School)’ Review: Tragically Uneven**\
 `Anna Ziegler’s feminist take on Sophocles tries to tie in reproductive politics, but the play keeps trampling over its own ideas.`\
 https://nytimes.com/2026/03/12/theater/antigone-review-shalhoub-keenan-bolger.html
-
-**The Players Championship Round 1: What to know as 5 share the lead**\
-`Maverick McNealy, Sahith Theegala, Lee Hodges, Sepp Straka and Austin Smotherman are all at 5-under-par.`\
-https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-round-1-what-to-know/
 

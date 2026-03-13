@@ -1,3 +1,7 @@
+**Mirtle: Why the NHL needs to suspend Radko Gudas for his dirty hit on Auston Matthews**\
+`Gudas' history may be a factor for the league, as he will likely find himself back in hot water with the NHL’s Department of Player Safety.`\
+https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-ducks-leafs/
+
 **Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
 `Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
 https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
