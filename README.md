@@ -1,3 +1,7 @@
+**A Restaurant Worker Was a Quiet Presence. Then He Attacked a Synagogue.**\
+`Days before the antisemitic violence, an imam recalled seeing Ayman Mohamad Ghazali at a service for his relatives who had been killed in the war in Lebanon.`\
+https://nytimes.com/2026/03/13/us/michigan-synagogue-suspect-ghazali.html
+
 **U.S. Military Attacks Iran’s Oil Export Hub, Trump Says**\
 `The strikes on Kharg Island targeted Iranian military forces, not economic infrastructure on the island, a U.S. military official said.`\
 https://nytimes.com/2026/03/13/world/middleeast/kharg-island-iran-oil-trump.html
@@ -15,7 +19,7 @@ https://nytimes.com/2026/03/13/us/politics/somalis-tps-deportations-trump.html
 https://nytimes.com/2026/03/13/us/old-dominion-shooting-gunman-rotc.html
 
 **Auston Matthews out for season after knee-on-knee hit**\
-`The Toronto captain sustained the injury after a nasty collision with Radko Gudas during the second period of Thursday’s 6-4 win.`\
+`The Maple Leafs captain sustained the injury after a nasty collision with Radko Gudas during the second period of Thursday’s 6-4 win.`\
 https://nytimes.com/athletic/7115718/2026/03/13/maple-leafs-auston-matthews-injury-knee/
 
 **Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/weather/wisconsin-minnesota-snow-winter-forecast.
 **Danny Coulombe ramping up for Opening Day; Johan Oviedo trying to win fifth starter role**\
 `Coloumbe thinks he can be available for the Red Sox on March 26, when they open the regular season against the Reds.`\
 https://nytimes.com/athletic/7116570/2026/03/13/danny-coulombe-johan-oviedo-red-sox-pitchers-2026/
-
-**Messi Meets With Trump, and Divides Argentina**\
-`Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
-https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
 

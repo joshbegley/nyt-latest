@@ -1,3 +1,7 @@
+**U.S. Military Attacks Iran’s Oil Export Hub, Trump Says**\
+`The strikes on Kharg Island targeted Iranian military forces, not economic infrastructure on the island, a U.S. military official said.`\
+https://nytimes.com/2026/03/13/world/middleeast/kharg-island-iran-oil-trump.html
+
 **A Crash, Gunfire and Then a Race to Save a Synagogue Full of Children**\
 `“I didn’t breathe until I knew all of the kids were OK,” one teacher recalled after a truck crashed through the doors of a Michigan synagogue this week.`\
 https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116570/2026/03/13/danny-coulombe-johan-oviedo-red-
 **Messi Meets With Trump, and Divides Argentina**\
 `Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
 https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
-
-**The Fall of Noma’s Chef Reverberates in the Restaurant World**\
-`In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
-https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
 

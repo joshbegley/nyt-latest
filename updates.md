@@ -1,3 +1,7 @@
+**U.S. Military Attacks Iran’s Oil Export Hub, Trump Says**\
+`The strikes on Kharg Island targeted Iranian military forces, not economic infrastructure on the island, a U.S. military official said.`\
+https://nytimes.com/2026/03/13/world/middleeast/kharg-island-iran-oil-trump.html
+
 **A Crash, Gunfire and Then a Race to Save a Synagogue Full of Children**\
 `“I didn’t breathe until I knew all of the kids were OK,” one teacher recalled after a truck crashed through the doors of a Michigan synagogue this week.`\
 https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
