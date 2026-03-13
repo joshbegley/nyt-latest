@@ -1,3 +1,15 @@
+**M.T.A., Not A.T.M.: Transit Chief Backs Hochul’s Auto Insurance Reforms**\
+`Transit officials said on Friday that the governor’s insurance proposals could save the authority millions of dollars that could be used to improve service.`\
+https://nytimes.com/2026/03/13/nyregion/ny-hochul-auto-insurance-reform-mta.html
+
+**NFL Newsletter: Did the Bears get cheated?**\
+`The Bears should probably receive multiple third-round picks after the Falcons hired GM Ian Cunningham`\
+https://nytimes.com/athletic/7115927/2026/03/13/chicago-bears-comp-picks-nfl-falcons-gm/
+
+**Flashback: Your Weekly History Quiz, March 14, 2026**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2026/03/13/upshot/flashback.html
+
 **‘One Battle After Another’ Is Just a Movie. Resistance Is Real.**\
 `Readers respond to a guest essay about the Paul Thomas Anderson movie “One Battle After Another” by the daughter of two Weatherman. Also: Will we be around to unearth a time capsule?`\
 https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html
@@ -6,7 +18,7 @@ https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html
 `After helping his family’s Rite-Aid drugstore empire flourish, he waged a surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
 https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
 
-**‘A Very Big Hurdle:’ Trump Softens Call for Protesters to Take Over Iran**\
+**‘A Very Big Hurdle’: Trump Softens Call for Protesters to Take Over Iran**\
 `President Trump said protesters risk getting shot “right through the head,” a change in tone from his earlier comments that Iranians must seize the chance to take over their government.`\
 https://nytimes.com/2026/03/13/world/middleeast/trump-iran-protesters.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket
 **Cincinnati, Wes Miller part ways after 5 seasons: Source**\
 `Miller had three years left on an extension signed in 2022 with a buyout of $4.69 million. `\
 https://nytimes.com/athletic/7097333/2026/03/13/wes-miller-cincinnati-basketball-coaching-change/
-
-**Restaurant Review: Corima in Manhattan**\
-`Corima, in Manhattan’s Chinatown, boldly experiments with the familiar cuisine, but doesn’t lose sight of simple pleasures.`\
-https://nytimes.com/video/dining/100000010774567/restaurant-review-corima-in-manhattan.html
-
-**Get Your Cholesterol Even Lower and Start Younger, New Guideline Says**\
-`The American Heart Association advised changes to preventive cardiac care that it says could markedly reduce heart attacks and strokes.`\
-https://nytimes.com/2026/03/13/health/get-your-cholesterol-even-lower-and-start-younger-new-guideline-says.html
-
-**How to watch Clemson vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116063/2026/03/13/clemson-vs-duke-stream-how-to-watch-march-13/
 
