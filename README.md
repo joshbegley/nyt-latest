@@ -1,3 +1,11 @@
+**How it felt as Thunder fans processed Shai Gilgeous-Alexander passing Wilt's record**\
+`All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
+https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
+
+**Consumer Prices Rose in January, Before Iran War Added Price Pressures**\
+`The Federal Reserve’s preferred gauge for inflation increased 2.8 percent annually and economists expect another bump in prices in the near-term.`\
+https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
+
 **VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
 `The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
 https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7114224/2026/03/13/maple-leafs-auston-matthews-inju
 **Cuban President Acknowledges Talks with the Trump Administration**\
 `Facing a massive energy crisis and increasing protests on the streets, the Cuban government acknowledged that it had entered into negotiations with the Trump administration.`\
 https://nytimes.com/2026/03/13/world/americas/cuba-us-talks-trump-oil.html
-
-**As LeBron James returns for Lakers, he says he's willing to sacrifice to win**\
-`Lakers coach JJ Redick said James wants to make sure he complements the talent of teammates Luka Dončić and Austin Reaves.`\
-https://nytimes.com/athletic/7114643/2026/03/13/lebron-james-lakers-luka-doncic-austin-reaves/
-
-**What would the SEC making its own rules actually mean?**\
-`Recent SEC talk of setting its own rules makes one wonder: What would that even look like?`\
-https://nytimes.com/athletic/7114958/2026/03/13/sec-ncaa-college-football-rules-eligibility-transfers/
 
