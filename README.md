@@ -1,3 +1,23 @@
+**Mike Schultz has won Paralympic gold, but his sporting legacy goes far beyond**\
+`The U.S. snowboarder has reached the Paralympic pinnacle. But it's his other job that will leave a lasting mark on para sports.`\
+https://nytimes.com/athletic/7113551/2026/03/13/mike-schultz-paralympics-snowboarding-biodapt-prosthetics/
+
+**Mammoth fan who taunted Connor Bedard then drew his ire: 'I kinda deserved it'**\
+`“I thought it was funny,” Bedard said, who was feeling feisty throughout the Blackhawks’ 3-2 victory over Utah on Thursday.`\
+https://nytimes.com/athletic/7114441/2026/03/13/connor-bedard-blackhawks-mammoth-goal-fan/
+
+**The New York Times in Print for Friday, March 13, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/13/todays-new-york-times
+
+**Europe Is in Danger, and It’s Doing Basically Nothing About It**\
+`European politicians have colluded in their dependency on a rogue America.`\
+https://nytimes.com/2026/03/13/opinion/europe-iran-trump-war.html
+
+**China’s Long-Promised Consumer Boom Is a Mirage**\
+`China may never be able to realize its longtime promise to shift away from an overreliance on exports.`\
+https://nytimes.com/2026/03/13/opinion/china-exports-consumer-spending.html
+
 **Canada have gone viral in curling again, this time for all the best reasons**\
 `After a dramatic Olympics of stone-touching controversies and medals, Canada is making curling news again. This time for pure dominance.`\
 https://nytimes.com/athletic/7112982/2026/03/13/canada-wheelchair-curling-jon-thurston-viral-shot/
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/13/world/asia/thailand-cambodia-preah-vihear-temple.
 **Bad News for Friggatriskaidekaphobics: 2026 Has Three Fridays the 13th**\
 `It’s the first time since 2015 that the combination of the day and date associated with bad luck has recurred three times in a calendar year.`\
 https://nytimes.com/2026/03/13/us/friday-13th-three-times.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 13, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7114308/2026/03/13/connections-sports-edition-hints-answers-march-13-2026/
-
-**Honda Scraps Plans for E.V.s While Start-Ups Forge Ahead**\
-`The Japanese company’s retreat echoes moves by other traditional carmakers as the industry divides between electric vehicle haves and have-nots.`\
-https://nytimes.com/2026/03/13/business/honda-scraps-plans-for-evs-while-start-ups-forge-ahead.html
-
-**Corrections: March 13, 2026**\
-`Corrections that appeared in print on Friday, March 13, 2026.`\
-https://nytimes.com/2026/03/13/pageoneplus/corrections-march-13-2026.html
-
-**How the War in Iran Could Help China and Change Asia**\
-`American officials have said for years that they would prioritize the Indo-Pacific. Now they’re moving warships, missiles and air defenses out for a war in the Middle East.`\
-https://nytimes.com/2026/03/13/world/asia/iran-war-china-asia.html
-
-**Globalization Faces Its Next Crisis**\
-`Beyond its effects on oil and gas, the unfolding war in the Middle East is roiling shipping and airfreight, threatening the availability of a vast range of goods.`\
-https://nytimes.com/2026/03/13/business/economy/iran-war-global-supply-chain.html
 
