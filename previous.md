@@ -1,3 +1,11 @@
+**More Marines and Warships Being Sent to Middle East, U.S. Officials Say**\
+`Iran’s response to days of aerial bombardment and long-range artillery strikes has proved more resilient than Trump administration officials anticipated.`\
+https://nytimes.com/2026/03/13/world/middleeast/more-marines-and-warships-being-sent-to-middle-east-us-officials-say.html
+
+**U.S.-made Launcher Fired Missiles From Bahrain Toward Iran, Video Shows**\
+`It is unclear from the video alone whether the U.S. or Bahraini military launched the missiles. Iran has frequently accused Persian Gulf countries of allowing their territory to be used as a launchpad for U.S. attacks.`\
+https://nytimes.com/2026/03/13/world/middleeast/bahrain-us-missile-strike-iran.html
+
 **Make Your Freezer Work Better in 4 Simple Steps **\
 `Text by Caroline Mullen`\
 https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7116058/2026/03/13/bahrain-saudi-grand-prix-cancele
 **What's to expect from The Athletic's NWSL coverage ahead of 2026 regular season**\
 `We have you covered this season, no matter the chaos in the NWSL, and are excited to welcome you aboard.`\
 https://nytimes.com/athletic/7115541/2026/03/13/nwsl-2026-season-coverage-the-athletic/
-
-**How to watch Bulls vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Chicago Bulls play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116233/2026/03/13/bulls-vs-clippers-stream-how-to-watch-march-13/
-
-**How to watch Jazz vs. Trail Blazers: Time, TV, streaming**\
-`Find out how to watch the Utah Jazz play the Portland Trail Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116219/2026/03/13/jazz-vs-trail-blazers-stream-how-to-watch-march-13/
 

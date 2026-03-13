@@ -1,3 +1,11 @@
+**More Marines and Warships Being Sent to Middle East, U.S. Officials Say**\
+`Iran’s response to days of aerial bombardment and long-range artillery strikes has proved more resilient than Trump administration officials anticipated.`\
+https://nytimes.com/2026/03/13/world/middleeast/more-marines-and-warships-being-sent-to-middle-east-us-officials-say.html
+
+**U.S.-made Launcher Fired Missiles From Bahrain Toward Iran, Video Shows**\
+`It is unclear from the video alone whether the U.S. or Bahraini military launched the missiles. Iran has frequently accused Persian Gulf countries of allowing their territory to be used as a launchpad for U.S. attacks.`\
+https://nytimes.com/2026/03/13/world/middleeast/bahrain-us-missile-strike-iran.html
+
 **Make Your Freezer Work Better in 4 Simple Steps **\
 `Text by Caroline Mullen`\
 https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
