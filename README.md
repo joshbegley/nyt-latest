@@ -1,40 +1,40 @@
-**How to watch Kennesaw State vs. Sam Houston men's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Kennesaw State Owls play the Sam Houston Bearkats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114994/2026/03/13/kennesaw-state-vs-sam-houston-stream-how-to-watch-march-13/
+**As LeBron James returns for Lakers, he says he's willing to sacrifice to win**\
+`Lakers coach JJ Redick said James wants to make sure he complements the talent of teammates Luka Dončić and Austin Reaves.`\
+https://nytimes.com/athletic/7114643/2026/03/13/lebron-james-lakers-luka-doncic-austin-reaves/
 
-**How to watch North Texas vs. Tulsa men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the North Texas Mean Green play the Tulsa Golden Hurricane, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114985/2026/03/13/north-texas-vs-tulsa-stream-how-to-watch-march-13/
+**What would the SEC making its own rules actually mean?**\
+`Recent SEC talk of setting its own rules makes one wonder: What would that even look like?`\
+https://nytimes.com/athletic/7114958/2026/03/13/sec-ncaa-college-football-rules-eligibility-transfers/
 
-**How to watch Prairie View A&M vs. Alabama A&M men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Prairie View A&M Panthers play the Alabama A&M Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114981/2026/03/13/prairie-view-a-m-vs-alabama-a-m-stream-how-to-watch-march-13/
+**Trump Administration Live Updates: D.H.S. Staff to Miss Paycheck as Shutdown Continues**\
+``\
+https://nytimes.com/live/2026/03/13/us/trump-news
 
-**How to watch Saint Bonaventure vs. Dayton men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Bonaventure Bonnies play the Dayton Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114979/2026/03/13/saint-bonaventure-vs-dayton-stream-how-to-watch-march-13/
+**The 2026 Oscar nominees and their best sports roles, from 'Creed' to 'Field of Dreams'**\
+`The nominees for this year's Academy Awards come from such vast ranges, but almost all of them have sports roles in their backgrounds.`\
+https://nytimes.com/athletic/7095037/2026/03/13/oscar-nominees-academy-awards-sports-movies/
 
-**How to watch Tennessee vs. Vanderbilt men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Tennessee Volunteers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114977/2026/03/13/tennessee-vs-vanderbilt-stream-how-to-watch-march-13/
+**Immortalized with a bobblehead, Reds' Noelvi Marte is on the upswing**\
+`After a season of transition, the 24-year-old Marte enters 2026 as the favorite to be the Reds' everyday right fielder.`\
+https://nytimes.com/athletic/7113466/2026/03/13/reds-noelvi-marte-bobblehead-outfield/
 
-**How to watch Wisconsin vs. Illinois men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Wisconsin Badgers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114975/2026/03/13/wisconsin-vs-illinois-stream-how-to-watch-march-13/
+**Lowetide: Evan Bouchard's impact is undeniable. Can he change the perception of his play?**\
+`Bouchard isn't going to win the Norris this year, but he's vital to the Oilers' success.`\
+https://nytimes.com/athletic/7110942/2026/03/13/oilers-evan-bouchard-stats-norris-trophy-odds/
 
-**New York Rangers choose wins (and development) over lottery balls, plus 8 thoughts**\
-`With Thursday's victory over the Jets, the Rangers (27-30-8) have won three in a row for the first time since late November.`\
-https://nytimes.com/athletic/7114263/2026/03/13/new-york-rangers-win-jets-thoughts/
+**Is the Premier League in danger of losing its fifth Champions League spot?**\
+`No English club won in the Champions League last 16 after dominating the league phase, but it might not matter...`\
+https://nytimes.com/athletic/7114828/2026/03/13/premier-league-uefa-coefficient-europe/
 
-**Pink Floyd Guitar Is Sold for a Record $14.55 Million**\
-`The black Fender Stratocaster, played by David Gilmour on six of the band’s albums including “The Dark Side of the Moon,” broke the record for the most expensive guitar sold at auction.`\
-https://nytimes.com/2026/03/13/world/pink-floyd-guitar-gilmour-record-auction.html
+**F1 drivers are worried about race start crashes. But politics overhangs consensus**\
+`F1 drivers are concerned about the big difference in start speeds with the new cars. But not all the teams agree on solving the issue`\
+https://nytimes.com/athletic/7114813/2026/03/13/f1-race-starts-2026-new-cars/
 
-**How to watch Norfolk State vs. Maryland-Eastern Shore women's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the Norfolk State Spartans play the Maryland-Eastern Shore Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114956/2026/03/13/norfolk-state-vs-maryland-eastern-shore-stream-how-to-watch-march-13/
+**Chargers free-agency reset: An answer to our most pressing combine question**\
+`The Chargers were among the teams with the most salary cap space available this offseason. They haven't been using yet so far.`\
+https://nytimes.com/athletic/7114002/2026/03/13/chargers-nfl-free-agency-keaton-mitchell-joe-hortiz/
 
-**How to watch Hawaii vs. UC Irvine women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the Hawaii Rainbow Wahine play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114950/2026/03/13/hawaii-vs-uc-irvine-stream-how-to-watch-march-13/
+**The Athletic’s Friday football quiz question #97**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/7112501/2026/03/13/the-athletics-friday-football-quiz-question-97/
 
