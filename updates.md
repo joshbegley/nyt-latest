@@ -1,3 +1,7 @@
+**War in Iran Has India Wondering How to Keep Its Stovetops Lit**\
+`India relies on huge quantities of cooking gas that is normally shipped from the Persian Gulf.`\
+https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
+
 **Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
 `Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
 https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
