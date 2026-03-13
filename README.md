@@ -1,3 +1,7 @@
+**Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
+`Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
+https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
+
 **Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
 `The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
 https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-ro
 **Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
 `A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
 https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
-
-**Cuba Pledges to Release 51 Prisoners Amid Pressure From Washington**\
-`The Trump administration has been trying to choke the Cuban government through an oil blockade. The prisoner release appears to be an effort to appease Washington.`\
-https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
 
