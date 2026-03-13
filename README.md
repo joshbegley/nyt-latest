@@ -1,3 +1,7 @@
+**Radko Gudas to have phone hearing for knee-on-knee hit to Auston Matthews**\
+`The phone hearing allows for a suspension of up to five games under the terms of the collective bargaining agreement.`\
+https://nytimes.com/athletic/7115469/2026/03/13/radko-gudas-auston-matthews-knee-hit-phone-hearing/
+
 **How to Vote in the Illinois Primary**\
 `Democratic and Republican candidates are vying for open seats in the U.S. Senate and House, and also for governor and other statewide offices.`\
 https://nytimes.com/2026/03/13/us/elections/how-to-vote-il-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/arts/epstein-woody-allen-comedians.html
 **Does This Movie Make You Anxious?**\
 `Some movies make us laugh or cry or feel scared. A new wave of jittery cinema seems designed to make us feel incredibly stressed out.`\
 https://nytimes.com/2026/03/13/opinion/anxiety-movies.html
-
-**Hegseth Vows Lethal Day in Iran as Air War Intensifies**\
-`At a news conference, Defense Secretary Pete Hegseth gave no indication of how long it would take before the Navy could escort civilian cargo ships through the Strait of Hormuz.`\
-https://nytimes.com/2026/03/13/us/politics/hegseth-air-war-iran.html
 
