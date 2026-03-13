@@ -1,3 +1,15 @@
+**Kneecap Can’t Escape Controversy. It Wants to Be Known for More.**\
+`The gonzo Irish M.C.s first gained notice for their playful antics. After attracting global attention for their pro-Palestinian views, their new LP is more serious.`\
+https://nytimes.com/2026/03/13/arts/music/kneecap-fenian-interview.html
+
+**All of Budapest Is a Stage**\
+`The stunning State Opera House is at the heart of a thriving landscape for high culture in Hungary.`\
+https://nytimes.com/paidpost/hungarian-tourism-agency/all-of-budapest-is-a-stage.html
+
+**Browns' focus has been on remaking the O-line, but several holes remain unfilled**\
+`Cleveland has a few positions of need that haven't been addressed. What's GM Andrew Berry's plan with the NFL Draft just over a month away?`\
+https://nytimes.com/athletic/7112886/2026/03/13/browns-2026-free-agency-signings-needs/
+
 **NWSL 2026 season predictions: Champions, Triple Espresso's return and an MVP three-peat**\
 `Our panel of experts predicts outcomes of the pressing questions entering NWSL's 2026 campaign`\
 https://nytimes.com/athletic/7112023/2026/03/13/nwsl-2026-season-expert-predictions-winners-chawinga-wilson-banda-rodman/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/13/style/alas-you-will-never-look-like-jfk-jr-in-you
 **Jack Harlow Was a Chart-Topping Rapper. He Doesn’t Want to Brag Anymore.**\
 `After smashes like “First Class” and “Lovin on Me,” the artist from Louisville, Ky., is making a true musical shift to intimate, hand-played R&B on his fourth album, “Monica.”`\
 https://nytimes.com/2026/03/13/arts/music/jack-harlow-monica-interview-popcast.html
-
-**Can I Stare at My Girlfriend?**\
-`A ruling on the line between creepy and sweet.`\
-https://nytimes.com/interactive/2026/03/13/magazine/staring-girlfriend-hodgman-quiz.html
-
-**Any Way You Look at It, Netanyahu Wins**\
-`The war in Iran is a victory for the Israeli prime minister.`\
-https://nytimes.com/2026/03/13/opinion/netanyahu-iran-israel-war.html
-
-**5 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2026/03/13/movies/new-movies-this-week-critics.html
 

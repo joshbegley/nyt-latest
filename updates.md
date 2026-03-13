@@ -1,3 +1,15 @@
+**Kneecap Can’t Escape Controversy. It Wants to Be Known for More.**\
+`The gonzo Irish M.C.s first gained notice for their playful antics. After attracting global attention for their pro-Palestinian views, their new LP is more serious.`\
+https://nytimes.com/2026/03/13/arts/music/kneecap-fenian-interview.html
+
+**All of Budapest Is a Stage**\
+`The stunning State Opera House is at the heart of a thriving landscape for high culture in Hungary.`\
+https://nytimes.com/paidpost/hungarian-tourism-agency/all-of-budapest-is-a-stage.html
+
+**Browns' focus has been on remaking the O-line, but several holes remain unfilled**\
+`Cleveland has a few positions of need that haven't been addressed. What's GM Andrew Berry's plan with the NFL Draft just over a month away?`\
+https://nytimes.com/athletic/7112886/2026/03/13/browns-2026-free-agency-signings-needs/
+
 **NWSL 2026 season predictions: Champions, Triple Espresso's return and an MVP three-peat**\
 `Our panel of experts predicts outcomes of the pressing questions entering NWSL's 2026 campaign`\
 https://nytimes.com/athletic/7112023/2026/03/13/nwsl-2026-season-expert-predictions-winners-chawinga-wilson-banda-rodman/
