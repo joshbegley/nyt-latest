@@ -1,3 +1,7 @@
+**Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
+`The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
+https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
+
 **‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
 `Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
 https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html

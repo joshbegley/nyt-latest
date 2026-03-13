@@ -1,3 +1,7 @@
+**Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
+`The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
+https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
+
 **‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
 `Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
 https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
 **Cuba Pledges to Release 51 Prisoners Amid Pressure From Washington**\
 `The Trump administration has been trying to choke the Cuban government through an oil blockade. The prisoner release appears to be an effort to appease Washington.`\
 https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
-
-**Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
-`Gudas was given a five-minute major for kneeing and a game misconduct for the play, after which Matthews had to be helped off the ice.`\
-https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
 
