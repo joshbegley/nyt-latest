@@ -1,3 +1,11 @@
+**Britain warns its citizens in Dubai they could be jailed for sharing photos of damage from airstrikes.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/britain-warns-its-citizens-in-dubai-they-could-be-jailed-for-sharing-photos-of-damage-from-airstrikes
+
+**Margareta Magnusson, Who Popularized Swedish Death Cleaning, Dies at 91**\
+`Her best-selling book on the subject encouraged the world to tidy up homes and lives as death approached — as a gift for loved ones and to revisit memories.`\
+https://nytimes.com/2026/03/13/books/margareta-magnusson-dead.html
+
 **Travis Etienne Jr. reveals the correct way to pronounce his last name**\
 `In his first news conference since signing with the Saints, running back says his name is pronounced "A-chan," not "ee-tee-en."`\
 https://nytimes.com/athletic/7116252/2026/03/13/travis-etienne-jr-name-pronunciation/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7116402/2026/03/13/csu-fullerton-vs-hawaii-stream-h
 **Change in Data Sources Led to Lower Inflation Reading**\
 `A methodological change contributed to a better-than-expected inflation report, prompting questions from some economists.`\
 https://nytimes.com/2026/03/13/business/economy/inflation-cpi-pce-methodology.html
-
-**More Marines and Warships Being Sent to Middle East, U.S. Officials Say**\
-`Iran’s response to days of aerial bombardment and long-range artillery strikes has proved more resilient than Trump administration officials anticipated.`\
-https://nytimes.com/2026/03/13/world/middleeast/more-marines-and-warships-being-sent-to-middle-east-us-officials-say.html
-
-**U.S.-made Launcher Fired Missiles From Bahrain Toward Iran, Video Shows**\
-`It is unclear from the video alone whether the U.S. or Bahraini military launched the missiles. Iran has frequently accused Persian Gulf countries of allowing their territory to be used as a launchpad for U.S. attacks.`\
-https://nytimes.com/2026/03/13/world/middleeast/bahrain-us-missile-strike-iran.html
 
