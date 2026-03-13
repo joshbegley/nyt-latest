@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By John Yoon and Adam Rasgon`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/heres-the-latest
+
+**Iran War Live Updates: Israel Targets Hezbollah in Beirut as Strikes Hit City Center**\
+`The attacks heightened fears that the war was expanding beyond Hezbollah’s traditional strongholds into parts of Beirut once considered comparatively safe. New strikes were also reported in Iran, Iraq and Israel.`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel
+
 **This is not how Palace dreamt of Europe. But they still have success in their sights**\
 `Oliver Glasner's side experienced a familiar sense of frustration in the first leg against Larnaca in the Conference League's round of 16`\
 https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
