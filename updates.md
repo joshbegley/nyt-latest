@@ -1,3 +1,7 @@
+**This is not how Palace dreamt of Europe. But they still have success in their sights**\
+`Oliver Glasner's side experienced a familiar sense of frustration against Larnaca in the Conference League`\
+https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
+
 **Late Night Unwraps ‘War’ vs. ‘Excursion’ vs. ‘Both’**\
 `The “Late Night” host Seth Meyers said President Trump is letting Americans “choose your own adventure” in the war with Iran.`\
 https://nytimes.com/2026/03/13/arts/television/late-night-war-excursion-both.html

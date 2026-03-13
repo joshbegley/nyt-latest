@@ -1,3 +1,7 @@
+**This is not how Palace dreamt of Europe. But they still have success in their sights**\
+`Oliver Glasner's side experienced a familiar sense of frustration against Larnaca in the Conference League`\
+https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
+
 **Late Night Unwraps ‘War’ vs. ‘Excursion’ vs. ‘Both’**\
 `The “Late Night” host Seth Meyers said President Trump is letting Americans “choose your own adventure” in the war with Iran.`\
 https://nytimes.com/2026/03/13/arts/television/late-night-war-excursion-both.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111838/2026/03/13/aston-villa-reset-emery-europa-l
 **Newcastle would be foolish to put all their eggs in the Champions League basket**\
 `Eddie Howe's side must remain focused on the Premier League – they still have much to play for domestically`\
 https://nytimes.com/athletic/7107621/2026/03/13/newcastle-premier-league-champions-league-eddie-howe/
-
-**Luka Dončić exceeds 50 points in a game for first time as a Laker**\
-`It took 13 months for Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
-https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bulls-51-points/
 
