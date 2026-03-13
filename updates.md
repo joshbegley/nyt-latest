@@ -1,3 +1,11 @@
+**The Players Championship Round 1: What to know as 5 share the lead**\
+`Maverick McNealy, Sahith Theegala, Lee Hodges, Sepp Straka and Austin Smotherman are all at 5-under-par.`\
+https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-round-1-what-to-know/
+
+**Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
+`Gudas was given a five-minute major for kneeing and a game misconduct for the play, after which Matthews had to be helped off the ice.`\
+https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
+
 **Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
 `A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
 https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html

@@ -1,3 +1,7 @@
+**The Players Championship Round 1: What to know as 5 share the lead**\
+`Maverick McNealy, Sahith Theegala, Lee Hodges, Sepp Straka and Austin Smotherman are all at 5-under-par.`\
+https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-round-1-what-to-know/
+
 **Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
 `A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
 https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
 https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
 
 **Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
-`Gudas was given a five-minute major for kneeing and a game misconduct as Matthews had to be helped off the ice.`\
+`Gudas was given a five-minute major for kneeing and a game misconduct for the play, after which Matthews had to be helped off the ice.`\
 https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
 
 **F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/world/middleeast/iran-war-middle-east-beirut-reca
 **What We Know About the Synagogue Attack in Michigan**\
 `The attacker who drove into Temple Israel in West Bloomfield Township is dead, but officials have not yet provided an identity or a motive. No one else was killed.`\
 https://nytimes.com/2026/03/12/us/michigan-synagogue-shooting-temple-israel.html
-
-**U.S. Refueling Plane Crashes in Iraq, Military Says**\
-`The crash was not because of hostile fire or friendly fire, U.S. Central Command said.`\
-https://nytimes.com/2026/03/12/world/middleeast/us-refueling-plane-crash-iraq.html
 
