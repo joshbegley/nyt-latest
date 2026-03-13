@@ -1,8 +1,12 @@
+**Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
+`Gudas was given a five-minute major for kneeing and a game misconduct as Matthews had to be helped off the ice.`\
+https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
+
 **F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
 `A driver rammed a vehicle into a synagogue outside Detroit on Thursday. Authorities are investigating the attacker’s motive.`\
 https://nytimes.com/video/us/100000010772519/michigan-synagogue-attack.html
 
-**Red Sox, lefty reliever Danny Coulombe in agreement on one-year deal**\
+**Red Sox, lefty reliever Danny Coulombe in agreement on 1-year deal**\
 `To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
 https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113597/2026/03/12/alphonso-davies-canada-camp-inju
 **War in Iran Has India Wondering How to Keep Its Stovetops Lit**\
 `India relies on huge quantities of cooking gas that is normally shipped from the Persian Gulf.`\
 https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
-
-**Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
-`Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
-https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
 
