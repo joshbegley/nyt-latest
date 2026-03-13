@@ -1,3 +1,7 @@
+**F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
+`A driver rammed a vehicle into a synagogue outside Detroit on Thursday. Authorities are investigating the attacker’s motive.`\
+https://nytimes.com/video/us/100000010772519/michigan-synagogue-attack.html
+
 **Red Sox, lefty reliever Danny Coulombe in agreement on one-year deal**\
 `To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
 https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/

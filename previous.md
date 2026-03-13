@@ -1,3 +1,7 @@
+**F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
+`A driver rammed a vehicle into a synagogue outside Detroit on Thursday. Authorities are investigating the attacker’s motive.`\
+https://nytimes.com/video/us/100000010772519/michigan-synagogue-attack.html
+
 **Red Sox, lefty reliever Danny Coulombe in agreement on one-year deal**\
 `To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
 https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
 **Erik Spoelstra on criticism of Bam Adebayo's 83-point night: 'I'm apologizing to nobody'**\
 `Spoelstra responded to those who felt the Heat acted unethically to pad Adebayo's stats: “I would do it 10 times out of 10 again for Bam.”`\
 https://nytimes.com/athletic/7113344/2026/03/12/bam-adebayo-83-point-game-erik-spoelstra-criticism/
-
-**Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
-`Ward set a spring training record with his 17th steal, while Alex Cora hopes Early and Payton Tolle will "become monsters."`\
-https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
 
