@@ -1,3 +1,23 @@
+**Bubble Watch: Why Miami (Ohio) should feel safe and Auburn should not**\
+`The teams that are still playing in conference tournaments have a massive chance to differentiate themselves.`\
+https://nytimes.com/athletic/7113335/2026/03/13/mens-ncaa-tournament-bubble-watch-miami-ohio-auburn/
+
+**How will Julian Sayin 'level up' at Ohio State? Here's where he says he can get better**\
+`As spring practice begins, Ohio State's Heisman finalist quarterback reflected on a tough finish to the 2025 season and what's next.`\
+https://nytimes.com/athletic/7112338/2026/03/13/ohio-state-julian-sayin-spring-football/
+
+**A Dangerous Bottleneck**\
+`Iran is turning the Strait of Hormuz into a battlefield, proving that a short and surgical war with Iran could be a fantasy.`\
+https://nytimes.com/2026/03/13/briefing/a-dangerous-bottleneck.html
+
+**Wizards get the bounce-back performance they needed after the Bam Adebayo game**\
+`Although they lost, the Wizards showed more fortitude on Thursday, two days after watching Bam Adebayo score 83 points. `\
+https://nytimes.com/athletic/7114456/2026/03/13/washington-wizards-bam-adebayo-magic-trae-young/
+
+**Ailing son weighed on José Alvarado last season. Now, after suspension, he's pitching with a purpose**\
+`Dylan, diagnosed with leukemia, is an inspiration for Alvarado, who is pitching for so much this season after a "difficult" 2025.`\
+https://nytimes.com/athletic/7111432/2026/03/13/jose-alvarado-son-leukemia-phillies/
+
 **Turkey Says NATO Defenses Shot Down a Third Iranian Missile**\
 `Turkey did not say where the missile was intercepted. But residents near Incirlik Air Base, which hosts U.S. troops, reported hearing sirens and a loud boom.`\
 https://nytimes.com/2026/03/13/world/middleeast/turkey-nato-iran-missile.html
