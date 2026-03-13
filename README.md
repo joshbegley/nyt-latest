@@ -1,3 +1,7 @@
+**Drone Strike Has Cyprus, and Europe, on Edge**\
+`Allies have rushed to defend the Mediterranean nation, where the drone hit a British base. Some Cypriots wonder why the bases are still there.`\
+https://nytimes.com/2026/03/13/world/middleeast/cyprus-iran-drone-strike.html
+
 **How to watch Kentucky vs. Florida men's basketball: SEC Tournament Time, TV, streaming**\
 `Find out how to watch the Kentucky Wildcats play the Florida Gators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114775/2026/03/13/kentucky-vs-florida-stream-how-to-watch-march-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114738/2026/03/13/william-mary-vs-charleston-sc-st
 **How to watch Coppin State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the Coppin State Eagles play the Howard Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114736/2026/03/13/coppin-state-vs-howard-stream-how-to-watch-march-13/
-
-**Toone targeting return from injury after international break**\
-`A hip injury has sidelined the England international since the turn of the year.`\
-https://nytimes.com/athletic/7114728/2026/03/13/manchester-uniteds-ella-toone-injury-update/
 
