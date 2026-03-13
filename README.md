@@ -1,3 +1,7 @@
+**Lauren James signs new Chelsea contract until 2030**\
+`The extension comes the same day as her brother, Reece, penned a new six-year contract with the west London club.`\
+https://nytimes.com/athletic/7116468/2026/03/13/lauren-james-signs-new-chelsea-contract/
+
 **Rasheed Walker agrees to 1-year deal with Panthers: Source**\
 `A 2022 seventh-round pick by the Packers, Walker has made 48 starts at left tackle over the past three seasons.`\
 https://nytimes.com/athletic/7091578/2026/03/13/panthers-rasheed-walker-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
 **Overlooked No More: Eleanor Abbott, the Creator of Candy Land**\
 `She invented the game nearly 80 years ago to distract children who were suffering in the hospital during a polio outbreak.`\
 https://nytimes.com/2026/03/13/obituaries/eleanor-abbott-overlooked.html
-
-**Tracing the Sweet Origins of Candy Land**\
-`The writers of an Overlooked obituary about the game’s creator recount how they stumbled upon her and then proceeded to reconstruct her life.`\
-https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
 

@@ -1,3 +1,7 @@
+**Rasheed Walker agrees to 1-year deal with Panthers: Source**\
+`A 2022 seventh-round pick by the Packers, Walker has made 48 starts at left tackle over the past three seasons.`\
+https://nytimes.com/athletic/7091578/2026/03/13/panthers-rasheed-walker-nfl-free-agency-2026/
+
 **How a college football team ended up with two different schedules for 2026**\
 `Both CUSA and the Sun Belt have listed the Louisiana Tech Bulldogs as playing eight games within their conferences this fall.`\
 https://nytimes.com/athletic/7116442/2026/03/13/louisiana-tech-cusa-sun-belt-schedule-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/obituaries/eleanor-abbott-overlooked.html
 **Tracing the Sweet Origins of Candy Land**\
 `The writers of an Overlooked obituary about the game’s creator recount how they stumbled upon her and then proceeded to reconstruct her life.`\
 https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
-
-**Are You Using A.I. at Work? We Want to Hear From You.**\
-`Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
-https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
 
