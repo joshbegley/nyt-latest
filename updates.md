@@ -1,3 +1,7 @@
+**TAFC: What do people in the game think of Arsenal? Plus: Latest twists in Iran's World Cup future**\
+`Today in TAFC: What do people in the game really think about Arsenal? Plus: Trump has his say on Iran at the World Cup.`\
+https://nytimes.com/athletic/7114713/2026/03/13/arsenal-views-iran-future-trump-world-cup/
+
 **Bubble Watch: Why Miami (Ohio) should feel safe and Auburn should not**\
 `The teams that are still playing in conference tournaments have a massive chance to differentiate themselves.`\
 https://nytimes.com/athletic/7113335/2026/03/13/mens-ncaa-tournament-bubble-watch-miami-ohio-auburn/
