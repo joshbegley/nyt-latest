@@ -1,3 +1,19 @@
+**How to watch South Carolina State vs. Howard men's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the South Carolina State Bulldogs play the Howard Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115646/2026/03/13/south-carolina-state-vs-howard-stream-how-to-watch-march-13/
+
+**How to watch Purdue vs. Nebraska men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115644/2026/03/13/purdue-vs-nebraska-stream-how-to-watch-march-13/
+
+**Explosion Hits Near Anti-Israel Rally in Tehran**\
+`An explosion occurred near an anti-Israel rally in the Iranian capital on Friday, as the war between Israel, the United States and Iran showed little signs of slowing.`\
+https://nytimes.com/video/world/middleeast/100000010774052/explosion-hits-near-anti-israel-rally-in-tehran.html
+
+**How to watch North Texas vs. Rice women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the North Texas Mean Green play the Rice Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115636/2026/03/13/north-texas-vs-rice-stream-how-to-watch-march-13/
+
 **Alysa Liu caps Olympic stardom tour with a big party where it all began, in Oakland**\
 `Born and raised in Oakland, with Chinese heritage, the U.S. Olympic figure skating champion embraced it all at a rally Thursday in the city.`\
 https://nytimes.com/athletic/7115350/2026/03/13/alysa-liu-olympics-figure-skating-oakland-rally-chinese-heritage/
