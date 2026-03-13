@@ -15,7 +15,7 @@ https://nytimes.com/2026/03/13/learning/gas-pump.html
 https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
 
 **This is not how Palace dreamt of Europe. But they still have success in their sights**\
-`Oliver Glasner's side experienced a familiar sense of frustration against Larnaca in the Conference League`\
+`Oliver Glasner's side experienced a familiar sense of frustration in the first leg against Larnaca in the Conference League's round of 16`\
 https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
 
 **Late Night Unwraps ‘War’ vs. ‘Excursion’ vs. ‘Both’**\

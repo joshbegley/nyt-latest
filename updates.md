@@ -1,3 +1,7 @@
+**This is not how Palace dreamt of Europe. But they still have success in their sights**\
+`Oliver Glasner's side experienced a familiar sense of frustration in the first leg against Larnaca in the Conference League's round of 16`\
+https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
+
 **New Jersey Is Reconsidering Legalizing Casinos Outside Atlantic City**\
 `Legislation has been introduced to authorize two new casinos at the Meadowlands and Monmouth Park racetracks to compete against the three new casinos planned for New York City.`\
 https://nytimes.com/2026/03/13/nyregion/casinos-new-jersey-meadowlands.html
