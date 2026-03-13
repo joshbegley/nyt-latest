@@ -1,3 +1,31 @@
+**Leeds have players struggling for minutes. How can Farke ensure they can make an impact?**\
+`Behind closed doors matches, earlier substitutions and other options could be explored by Farke`\
+https://nytimes.com/athletic/7112243/2026/03/13/leeds-rotation-fringe-analysis/
+
+**Aston Villa and Unai Emery needed a structural reset in Lille — they got one**\
+`Last weekend's heavy defeat by Chelsea demanded a reaction, one that Villa's players duly provided`\
+https://nytimes.com/athletic/7111838/2026/03/13/aston-villa-reset-emery-europa-league-little-watkins/
+
+**Newcastle would be foolish to put all their eggs in the Champions League basket**\
+`Eddie Howe's side must remain focused on the Premier League – they still have much to play for domestically`\
+https://nytimes.com/athletic/7107621/2026/03/13/newcastle-premier-league-champions-league-eddie-howe/
+
+**Luka Dončić exceeds 50 points in a game for first time as a Laker**\
+`It took 13 months for Luka Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
+https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bulls-51-points/
+
+**How are Manchester United's loanees faring as decision time approaches?**\
+`Manchester United have a host of players out on loan this season, and all have very different futures`\
+https://nytimes.com/athletic/7111962/2026/03/13/manchester-united-loanees-onana-hojlund-rashford-sancho/
+
+**What football really thinks of Arsenal's football**\
+`We spoke to two club executives, a senior recruitment figure, an academy coach, a player, a scout to get their views on Arteta's side.`\
+https://nytimes.com/athletic/7112125/2026/03/13/arsenal-football-style-opinions/
+
+**The BookKeeper: Exploring Liverpool's latest finances as record revenues led to transfer splurge**\
+`We examine Liverpool's accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
+https://nytimes.com/athletic/7092980/2026/03/13/bookkeeper-liverpool-finances-2024-2025-transfers-fsg/
+
 **Does playing first in a title race make any difference?**\
 `The received wisdom is that playing first in a two-horse title battle is an advantage. This is what the data says`\
 https://nytimes.com/athletic/7075219/2026/03/13/premier-league-title-race-play-first-make-difference/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7109714/2026/03/13/260312_predictions_ok/
 **Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest's chances**\
 `The battle at the bottom tightened up last weekend - The Athletic's data team analyse the situation`\
 https://nytimes.com/athletic/7110971/2026/03/13/premier-league-relegation-battle-spurs-west-ham-nottingham-forest/
-
-**The truth about being a sporting defector: 'How do you find home in a new place?'**\
-`Fleeing an oppressive regime for a new life — as Iranian footballers did this week — may sound enticing but there are burdens to carry`\
-https://nytimes.com/athletic/7111629/2026/03/13/sport-defector-iran-australia/
-
-**Outclassed or out of energy? Analysing why no Premier League club won in the Champions League**\
-`Six Premier League clubs played in the last 16 of the Champions League this week and none of them won. Why?`\
-https://nytimes.com/athletic/7112132/2026/03/13/premier-league-champions-why-no-club-won/
-
-**The Prospects: Ben Broggio, Aston Villa**\
-`The young Villa loanee is making a positive impression and showcasing his attacking talent at Falkirk in the Scottish Premiership`\
-https://nytimes.com/athletic/7111331/2026/03/13/broggio-aston-villa-falkirk-prospects/
-
-**Champions League qualification race: Predictions, distractions, and importance of qualifying**\
-`There are just nine games left for most teams in the Premier League, and the battle for Champions League qualification is heating up`\
-https://nytimes.com/athletic/7111615/2026/03/13/champions-league-premier-league-qualification-race/
-
-**Mike Schultz has won Paralympic gold, but his sporting legacy goes far beyond**\
-`The U.S. snowboarder has reached the Paralympic pinnacle. But it's his other job that will leave a lasting mark on para sports.`\
-https://nytimes.com/athletic/7113551/2026/03/13/mike-schultz-paralympics-snowboarding-biodapt-prosthetics/
-
-**Mammoth fan who taunted Connor Bedard then drew his ire: 'I kinda deserved it'**\
-`“I thought it was funny,” Bedard said, who was feeling feisty throughout the Blackhawks’ 3-2 victory over Utah on Thursday.`\
-https://nytimes.com/athletic/7114441/2026/03/13/connor-bedard-blackhawks-mammoth-goal-fan/
-
-**The New York Times in Print for Friday, March 13, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/13/todays-new-york-times
 

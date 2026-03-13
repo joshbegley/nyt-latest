@@ -1,3 +1,11 @@
+**FPL planning and the added dimension of European ties**\
+`With key European round-of-16 ties sandwiched between the next two Fantasy Premier League gameweeks, how should managers prepare?`\
+https://nytimes.com/athletic/7107426/2026/03/13/fantasy-premier-league-gameweek-30-fpl-tips-champions-league/
+
+**John Hynes' message after Wild's poor effort, shootout loss: 'Winning is not inevitable'**\
+`The Wild went ahead in the second period but didn't buckle down against a team they might have regarded as a pushover.`\
+https://nytimes.com/athletic/7113635/2026/03/13/wild-flyers-shootout-loss-hynes/
+
 **Leeds have players struggling for minutes. How can Farke ensure they can make an impact?**\
 `Behind closed doors matches, earlier substitutions and other options could be explored by Farke`\
 https://nytimes.com/athletic/7112243/2026/03/13/leeds-rotation-fringe-analysis/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/7111838/2026/03/13/aston-villa-reset-emery-europa-l
 https://nytimes.com/athletic/7107621/2026/03/13/newcastle-premier-league-champions-league-eddie-howe/
 
 **Luka Dončić exceeds 50 points in a game for first time as a Laker**\
-`It took 13 months for Luka Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
+`It took 13 months for Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
 https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bulls-51-points/
 
 **How are Manchester United's loanees faring as decision time approaches?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7092980/2026/03/13/bookkeeper-liverpool-finances-20
 **Does playing first in a title race make any difference?**\
 `The received wisdom is that playing first in a two-horse title battle is an advantage. This is what the data says`\
 https://nytimes.com/athletic/7075219/2026/03/13/premier-league-title-race-play-first-make-difference/
-
-**Premier League predictions: Liverpool vs Tottenham, Manchester United vs Aston Villa and rest of Matchday 30**\
-`Who's leading after MD29? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 30?`\
-https://nytimes.com/athletic/7109714/2026/03/13/260312_predictions_ok/
-
-**Premier League relegation battle: What the numbers say about Spurs, West Ham and Forest's chances**\
-`The battle at the bottom tightened up last weekend - The Athletic's data team analyse the situation`\
-https://nytimes.com/athletic/7110971/2026/03/13/premier-league-relegation-battle-spurs-west-ham-nottingham-forest/
 
