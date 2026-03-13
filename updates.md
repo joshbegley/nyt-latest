@@ -1,3 +1,7 @@
+**Nottingham Forest are still alive in the Europa League but Premier League survival must be the priority**\
+`Nottingham Forest have great memories of European nights but the harsh reality is staying in the Premier League is now more important`\
+https://nytimes.com/athletic/7113831/2026/03/13/nottingham-forest-premier-league-priority/
+
 **Word of the Day: malevolent**\
 `This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/13/learning/word-of-the-day-malevolent.html
