@@ -1,3 +1,7 @@
+**In shuffled WBC bracket, a USA quarterfinals win could lead to several rematches**\
+`The U.S. has not faced Korea since 2006. The last time the U.S. and D.R. faced off was 2017. This WBC bracket can provide a lot of firsts.`\
+https://nytimes.com/athletic/7116681/2026/03/13/world-baseball-classic-united-states-rematch-map/
+
 **Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
 `The ground stop is expected to last until about 7 p.m., according the F.A.A., which said the smell had affected air traffic controllers.`\
 https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
