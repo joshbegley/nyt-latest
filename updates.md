@@ -1,3 +1,19 @@
+**Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
+`The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
+https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html
+
+**Marines Blame ‘One-in-a-Million’ Malfunction for Shrapnel Mishap in California**\
+`The October episode sent shrapnel onto California Highway Patrol vehicles on Interstate 5 during a celebratory exercise conducted for Vice President JD Vance and Defense Secretary Pete Hegseth.`\
+https://nytimes.com/2026/03/13/us/marines-interstate-shrapnel-vance.html
+
+**The Age of Eerie A.I. Political Ads Is Here**\
+`Wait, that’s not the real James Talarico …`\
+https://nytimes.com/2026/03/13/us/politics/ai-ads-campaign-deepfake.html
+
+**Protesters Accused of Antifa Ties Found Guilty of Support for Terrorism**\
+`The guilty verdicts marked the first time that terrorism charges had been successfully brought against purported members of antifa.`\
+https://nytimes.com/2026/03/13/us/antifa-protesters-terrorism.html
+
 **Iconic Pink Floyd Guitar Sells for a Record $14.55 Million**\
 `Pink Floyd Guitarist David Gilmour’s black Fender Stratocaster, which he played on six of the band’s albums, including “The Dark Side of the Moon,” broke the record for the most expensive guitar sold at auction.`\
 https://nytimes.com/video/arts/music/100000010774716/pink-floyd-guitar-sale-record.html

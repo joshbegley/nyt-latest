@@ -1,3 +1,7 @@
+**Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
+`The teacher’s relatives said they supported “getting the charges dropped for all involved” after a student prank led to his death last week in Georgia.`\
+https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.html
+
 **Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
 `The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
 https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116707/2026/03/13/new-mexico-vs-san-diego-state-st
 **Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
 `Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
 https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html
-
-**Falcons agree to deal with veteran DT Da'Shawn Hand: Source**\
-`Hand started a career-high 13 games last season and also had personal bests in QB hits and tackles for losses.`\
-https://nytimes.com/athletic/7115607/2026/03/13/falcons-dashawn-hand-nfl-free-agency-2026/
 
