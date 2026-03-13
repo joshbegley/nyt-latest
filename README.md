@@ -1,3 +1,7 @@
+**Word of the Day: malevolent**\
+`This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/13/learning/word-of-the-day-malevolent.html
+
 **Indian Kitchens Face Fuel Shortage From War in Middle East**\
 `The fuel that powers Indian kitchens has been harder to get since the start of the war, which effectively shut a critical shipping lane for gas imports that India’s population relies on.`\
 https://nytimes.com/video/business/100000010773720/india-cooking-gas-middle-east.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111962/2026/03/13/manchester-united-loanees-onana-
 **What football really thinks of Arsenal's football**\
 `We spoke to two club executives, a senior recruitment figure, an academy coach, a player, a scout to get their views on Arteta's side.`\
 https://nytimes.com/athletic/7112125/2026/03/13/arsenal-football-style-opinions/
-
-**The BookKeeper: Exploring Liverpool's latest finances as record revenues led to transfer splurge**\
-`We examine Liverpool's accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
-https://nytimes.com/athletic/7092980/2026/03/13/bookkeeper-liverpool-finances-2024-2025-transfers-fsg/
 
