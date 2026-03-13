@@ -1,3 +1,15 @@
+**Iconic Pink Floyd Guitar Sells for a Record $14.55 Million**\
+`Pink Floyd Guitarist David Gilmour’s black Fender Stratocaster, which he played on six of the band’s albums, including “The Dark Side of the Moon,” broke the record for the most expensive guitar sold at auction.`\
+https://nytimes.com/video/arts/music/100000010774716/pink-floyd-guitar-sale-record.html
+
+**The U.S. Is Sending More Troops to the Middle East**\
+`Plus, Cuba is in talks with the U.S. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2026/03/13/briefing/marines-iran-cuba.html
+
+**U.S. Vows to Block Iran’s Attempt to Shut Down Key Global Shipping Route**\
+`Defense Secretary Pete Hegseth said that the disruptions in the Strait of Hormuz were “something we are dealing with.” And about 2,500 Marines were headed to the Middle East to bolster the war effort.`\
+https://nytimes.com/2026/03/13/world/middleeast/iran-strait-of-hormuz-us-war.html
+
 **How to watch New Mexico vs. San Diego State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the New Mexico Lobos play the San Diego State Aztecs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116707/2026/03/13/new-mexico-vs-san-diego-state-stream-how-to-watch-march-14/
