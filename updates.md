@@ -1,3 +1,7 @@
+**What's to expect from The Athletic's NWSL coverage ahead of 2026 regular season**\
+`We have you covered this season, no matter the chaos in the NWSL, and are excited to welcome you aboard.`\
+https://nytimes.com/athletic/7115541/2026/03/13/nwsl-2026-season-coverage-the-athletic/
+
 **How to watch Bulls vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the Chicago Bulls play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116233/2026/03/13/bulls-vs-clippers-stream-how-to-watch-march-13/
