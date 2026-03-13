@@ -1,3 +1,7 @@
+**Tennessee Tech hiring Tobin Anderson, who led 16-over-1 upset at FDU: Reports**\
+`The Golden Eagles fired John Pelphrey after the program finished 13-18 on the season and did not qualify for the Ohio Valley tournament.`\
+https://nytimes.com/athletic/7113865/2026/03/12/tobin-anderson-tennessee-tech/
+
 **Mirtle: Why the NHL needs to suspend Radko Gudas for his dirty hit on Auston Matthews**\
 `Gudas' history may be a factor for the league, as he will likely find himself back in hot water with the NHL’s Department of Player Safety.`\
 https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-ducks-leafs/
