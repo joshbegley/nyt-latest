@@ -1,3 +1,11 @@
+**The Windup: Ranking WBC underdogs**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7115323/2026/03/13/world-baseball-classic-underdogs-the-windup/
+
+**The Bounce: What do recent champs' stats say about who'll win the NBA title?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7115285/2026/03/13/nba-finals-champions-stats-the-bounce/
+
 **NHL Power Rankings: A new Top 5 team, plus 'do-overs' for everyone**\
 `Every team has regrets, some more than others, so we went through each one to see what they’d like a do-over on.`\
 https://nytimes.com/athletic/7115047/2026/03/13/nhl-power-rankings-wild-sabres/
