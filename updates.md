@@ -1,3 +1,15 @@
+**Trump Removes Sanctions on Russia to Help Oil Flow Amid Iran Conflict**\
+`Treasury Secretary Scott Bessent said it was “unfortunate” that the move could benefit Russia, but maintained that it was only for the short term.`\
+https://nytimes.com/2026/03/12/us/politics/trump-russia-oil-sanctions.html
+
+**Andrea Constand Testifies in Support of Another Bill Cosby Accuser**\
+`Lawyers for a woman who has sued Mr. Cosby, accusing him of sexual assault, called Ms. Constand as a witness in the case, which is now being tried in California.`\
+https://nytimes.com/2026/03/12/arts/andrea-constand-testifies-in-support-of-another-bill-cosby-accuser.html
+
+**‘Antigone (This Play I Read in High School)’ Review: Tragically Uneven**\
+`Anna Ziegler’s feminist take on Sophocles tries to tie in reproductive politics, but the play keeps trampling over its own ideas.`\
+https://nytimes.com/2026/03/12/theater/antigone-review-shalhoub-keenan-bolger.html
+
 **The Players Championship Round 1: What to know as 5 share the lead**\
 `Maverick McNealy, Sahith Theegala, Lee Hodges, Sepp Straka and Austin Smotherman are all at 5-under-par.`\
 https://nytimes.com/athletic/7113819/2026/03/12/the-players-championship-2026-round-1-what-to-know/
