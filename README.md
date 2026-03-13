@@ -1,3 +1,7 @@
+**Travis Etienne Jr. reveals the correct way to pronounce his last name**\
+`In his first news conference since signing with the Saints, running back says his name is pronounced "A-chan," not "ee-tee-en."`\
+https://nytimes.com/athletic/7116252/2026/03/13/travis-etienne-jr-name-pronunciation/
+
 **Me, Myself and My A.I. Sloppelgänger**\
 `Grammarly made a deepfake of my mind. I’m fighting back.`\
 https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/more-marines-and-warships-being-
 **U.S.-made Launcher Fired Missiles From Bahrain Toward Iran, Video Shows**\
 `It is unclear from the video alone whether the U.S. or Bahraini military launched the missiles. Iran has frequently accused Persian Gulf countries of allowing their territory to be used as a launchpad for U.S. attacks.`\
 https://nytimes.com/2026/03/13/world/middleeast/bahrain-us-missile-strike-iran.html
-
-**Make Your Freezer Work Better in 4 Simple Steps **\
-`Text by Caroline Mullen`\
-https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
 

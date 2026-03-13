@@ -1,3 +1,15 @@
+**Me, Myself and My A.I. Sloppelgänger**\
+`Grammarly made a deepfake of my mind. I’m fighting back.`\
+https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
+
+**Overlooked No More: Eleanor Abbott, the Creator of Candy Land**\
+`She invented the game nearly 80 years ago to distract children who were suffering in the hospital during a polio outbreak.`\
+https://nytimes.com/2026/03/13/obituaries/eleanor-abbott-overlooked.html
+
+**Tracing the Sweet Origins of Candy Land**\
+`The writers of an Overlooked obituary about the game’s creator recount how they stumbled upon her and then proceeded to reconstruct her life.`\
+https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
+
 **Are You Using A.I. at Work? We Want to Hear From You.**\
 `Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
 https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
