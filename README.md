@@ -1,3 +1,7 @@
+**Me, Myself and My A.I. Sloppelgänger**\
+`Grammarly made a deepfake of my mind. I’m fighting back.`\
+https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
+
 **Overlooked No More: Eleanor Abbott, the Creator of Candy Land**\
 `She invented the game nearly 80 years ago to distract children who were suffering in the hospital during a polio outbreak.`\
 https://nytimes.com/2026/03/13/obituaries/eleanor-abbott-overlooked.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/bahrain-us-missile-strike-iran.h
 **Make Your Freezer Work Better in 4 Simple Steps **\
 `Text by Caroline Mullen`\
 https://nytimes.com/card/2026/03/13/smarter-living/wirecutter/
-
-**To Fight Iran’s Drones, U.S. Taps Ukraine’s Hard-Earned Knowledge**\
-`As Iran has shown, warfare involves far more deadly projectiles than it once did. It’s a problem Ukraine has been dealing with for years.`\
-https://nytimes.com/2026/03/13/world/middleeast/ukraine-drone-knowledge.html
 
