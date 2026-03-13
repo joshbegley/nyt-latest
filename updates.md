@@ -1,3 +1,7 @@
+**Until Saturday: 68-team college football bracket**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
+
 **Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
 `The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
 https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html

@@ -1,7 +1,3 @@
-**Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
-`The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
-https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html
-
 **The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
 `Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
 https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
@@ -33,4 +29,8 @@ https://nytimes.com/2026/03/13/world/middleeast/trump-iran-protesters.html
 **A Pastry-Centric Tea Party That Ended With McDonald’s**\
 `The writer and baker Tanya Bush celebrated her new narrative cookbook with homemade treats and a silver platter of fries.`\
 https://nytimes.com/2026/03/13/t-magazine/tanya-bush-tea-party.html
+
+**Until Saturday: 68-team college football bracket**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
 
