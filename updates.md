@@ -1,3 +1,7 @@
+**Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
+`The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
+https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html
+
 **The Oil Tankers Trump Seized Are Costing the U.S. Millions of Dollars**\
 `Although President Trump said seizing tankers would be a financial boon, the cost of maintaining just one aging ship has already reached $47 million.`\
 https://nytimes.com/2026/03/13/us/politics/trump-seized-oil-tankers-cost.html
