@@ -1,3 +1,7 @@
+**Tottenham working on potential options to replace interim head coach Tudor**\
+`The 27-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
+https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
+
 **Lauren James signs new Chelsea contract until 2030**\
 `The extension comes the same day as her brother, Reece, penned a new six-year contract with the west London club.`\
 https://nytimes.com/athletic/7116468/2026/03/13/lauren-james-signs-new-chelsea-contract/
