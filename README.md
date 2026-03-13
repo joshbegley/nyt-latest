@@ -1,4 +1,8 @@
-**Cincinnati, Wes Miller part ways after 5 seasons without NCAA Tournament appearance: Source**\
+**Until Saturday: 68-team college football bracket**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
+
+**Cincinnati, Wes Miller part ways after 5 seasons: Source**\
 `Miller had three years left on an extension signed in 2022 with a buyout of $4.69 million. `\
 https://nytimes.com/athletic/7097333/2026/03/13/wes-miller-cincinnati-basketball-coaching-change/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7116037/2026/03/13/georgetown-vs-uconn-stream-how-t
 **How to watch UT Arlington vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the UT Arlington Mavericks play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7116035/2026/03/13/ut-arlington-vs-utah-valley-stream-how-to-watch-march-13/
-
-**How to watch UCLA vs. Michigan State men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116030/2026/03/13/ucla-vs-michigan-state-stream-how-to-watch-march-13/
 
