@@ -1,3 +1,7 @@
+**Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
+`Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
+https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
+
 **Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
 `The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
 https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
