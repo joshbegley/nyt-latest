@@ -7,7 +7,7 @@ https://nytimes.com/2026/03/13/us/politics/hegseth-claim-iran-trump.html
 https://nytimes.com/athletic/7115487/2026/03/13/ravens-trey-hendrickson-2026-nfl-free-agency/
 
 **Can Timothée Chalamet's 'Marty' join list of sports-related Oscar winners?**\
-`Over the Academy Awards' 98 years, only a handful of actors have won for sports-related roles.`\
+`Entering the Academy Awards' 98th edition, only a handful of actors have won for sports-related roles.`\
 https://nytimes.com/athletic/7115397/2026/03/13/timothee-chalamet-marty-supreme-oscars-best-actor-odds/
 
 **Airport Security Workers to Miss Paycheck as Shutdown Drags On**\
