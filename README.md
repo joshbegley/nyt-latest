@@ -1,3 +1,7 @@
+**K-State to hire Belmont's Casey Alexander as men's basketball coach: Source**\
+`Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
+https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/
+
 **Canada to Expand Military Presence in Arctic, Following Trump Threats**\
 `Prime Minister Mark Carney said Canada would build three bases in the region. The government also plans to improve infrastructure and airports in the north.`\
 https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-
 **Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
 `The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
 https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
-
-**‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
-`Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
-https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html
 

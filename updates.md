@@ -1,3 +1,15 @@
+**Canada to Expand Military Presence in Arctic, Following Trump Threats**\
+`Prime Minister Mark Carney said Canada would build three bases in the region. The government also plans to improve infrastructure and airports in the north.`\
+https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
+
+**Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
+`The new look blends elements of the team’s history with its identity in Tennessee as the organization prepares for “the next chapter."`\
+https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
+
+**Shai Gilgeous-Alexander breaks Wilt Chamberlain's record for consecutive 20-point games**\
+`The Oklahoma City Thunder star has now notched at least 20 points in 127 consecutive regular-season games. `\
+https://nytimes.com/athletic/7112567/2026/03/12/sga-20-point-streak-wilt-chamberlain-record/
+
 **Daniel Radcliffe Makes ‘Every Brilliant Thing’ Shine**\
 `The actor’s fondness for the audience radiates outward in this delightful interactive play about naming and noticing the good in the world.`\
 https://nytimes.com/2026/03/12/theater/every-brilliant-thing-review-daniel-radcliffe.html
