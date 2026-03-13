@@ -1,3 +1,19 @@
+**Can Timothée Chalamet's 'Marty' join list of sports-related Oscar winners?**\
+`Over the Academy Awards' 98 years, only a handful of actors have won for sports-related roles.`\
+https://nytimes.com/athletic/7115397/2026/03/13/timothee-chalamet-marty-supreme-oscars-best-actor-odds/
+
+**Airport Security Workers to Miss Paycheck as Shutdown Drags On**\
+`Union officials warned that airport delays could worsen just as spring break season kicks in. Workers are taking on other jobs and canceling child care to make ends meet.`\
+https://nytimes.com/2026/03/13/us/politics/airport-security-workers-miss-paycheck.html
+
+**How ‘One Battle After Another,’ an Oscars Favorite, Depicts Black Women**\
+`“One Battle After Another” has 13 Oscar nominations, including one for Teyana Taylor as best supporting actress — but some people aren’t rooting for it, and a lot of those people are Black women. Wesley Morris and his friend, the scholar Daphne A. Brooks, discussed the situation on “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010773523/how-one-battle-after-another-an-oscars-favorite-depicts-black-women.html
+
+**Trump-Iran Timeline: Key Moments Leading Up to War**\
+`President Trump’s aggressive stance toward Iran, during his first term and since returning to office last year, is key to understanding the conflict.`\
+https://nytimes.com/2026/03/13/us/politics/trump-iran-history-timeline.html
+
 **How Safe Is Plasma Donation?**\
 `Two recent deaths tied to for-profit clinics in Canada raised concerns about the health effects of having plasma drawn as often as twice a week.`\
 https://nytimes.com/2026/03/13/health/plasma-donation-safety.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/oil-supply-shock-1973-embargo.ht
 **How to watch Davidson vs. Saint Joseph's (PA) men's basketball: A-10 Tournament Time, TV, streaming**\
 `Find out how to watch the Davidson Wildcats play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115697/2026/03/13/davidson-vs-saint-joseph-s-pa-stream-how-to-watch-march-13/
-
-**Pete Hegseth Says ‘the Sooner David Ellison’ Buys CNN, ‘the Better’**\
-`The remarks fueled concerns that CNN’s prospective new owner may shift its coverage in a Trump-friendly direction.`\
-https://nytimes.com/2026/03/13/business/media/pete-hegseth-david-ellison-cnn.html
-
-**How to watch Ole Miss vs. Alabama men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115679/2026/03/13/ole-miss-vs-alabama-stream-how-to-watch-march-13/
-
-**How to watch Miami (FL) vs. Virginia men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Miami Hurricanes play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115675/2026/03/13/miami-fl-vs-virginia-stream-how-to-watch-march-13/
-
-**How to watch Iowa State vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115673/2026/03/13/iowa-state-vs-arizona-stream-how-to-watch-march-13/
 
