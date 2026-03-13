@@ -1,3 +1,7 @@
+**How to watch George Washington vs. Saint Louis men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7114672/2026/03/13/george-washington-vs-saint-louis-stream-how-to-watch-march-13/
+
 **Briatore: Mercedes in talks over buying Otro Capital's stake in Alpine F1**\
 `One of the other groups that's shown interest involves former Red Bull team principal Christian Horner.`\
 https://nytimes.com/athletic/7114640/2026/03/13/mereces-alpine-f1-otro-capital-briatore/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/learning/gas-pump.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
-
-**This is not how Palace dreamt of Europe. But they still have success in their sights**\
-`Oliver Glasner's side experienced a familiar sense of frustration in the first leg against Larnaca in the Conference League's round of 16`\
-https://nytimes.com/athletic/7114584/2026/03/13/crystal-palace-europa-conference-league-larnaca-analysis/
 
