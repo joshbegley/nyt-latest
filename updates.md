@@ -1,3 +1,11 @@
+**Jerry Jones on Maxx Crosby: Doesn't completely rule out Cowboys interest**\
+`After his trade to the Ravens fell through, Crosby seemed to reaffirm his commitment to the Raiders late Wednesday night.`\
+https://nytimes.com/athletic/7114210/2026/03/12/cowboys-jerry-jones-maxx-crosby/
+
+**Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
+`The new look blends elements of the team's history with its identity in Tennessee as the franchise said it prepares for its next chapter.`\
+https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
+
 **K-State to hire Belmont's Casey Alexander as men's basketball coach: Sources**\
 `Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
 https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/

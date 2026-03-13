@@ -1,3 +1,7 @@
+**Jerry Jones on Maxx Crosby: Doesn't completely rule out Cowboys interest**\
+`After his trade to the Ravens fell through, Crosby seemed to reaffirm his commitment to the Raiders late Wednesday night.`\
+https://nytimes.com/athletic/7114210/2026/03/12/cowboys-jerry-jones-maxx-crosby/
+
 **K-State to hire Belmont's Casey Alexander as men's basketball coach: Sources**\
 `Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
 https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexa
 https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
 
 **Titans unveil new uniforms, ‘The Shield’ logo in franchise rebrand**\
-`The new look blends elements of the team’s history with its identity in Tennessee as the organization prepares for “the next chapter."`\
+`The new look blends elements of the team's history with its identity in Tennessee as the franchise said it prepares for its next chapter.`\
 https://nytimes.com/athletic/7114012/2026/03/12/titans-uniform-unveil-new-look-redesign-2026/
 
 **Shai Gilgeous-Alexander breaks Wilt Chamberlain's record for consecutive 20-point games**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7113933/2026/03/12/radko-gudas-auston-matthews-hit-
 **Ahead of WBC showdown against Canada, Team USA reconfigures roster**\
 `Plus, Clayton Kershaw's last chance to pitch and where Joe Ryan fits into a potential World Baseball Classic championship game.`\
 https://nytimes.com/athletic/7113682/2026/03/12/team-usa-world-baseball-classic-pitching-developments/
-
-**Kiké Hernández savors scene as Puerto Rico advances: 'A moment that I'll never forget'**\
-`The Dodgers gave Hernández, who is rehabbing from injury, permission to attend Puerto Rico's upcoming quarterfinal game against Italy.`\
-https://nytimes.com/athletic/7113798/2026/03/12/kike-hernandez-wbc-puerto-rico/
 
