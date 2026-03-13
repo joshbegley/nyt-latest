@@ -1,3 +1,11 @@
+**How to watch Brown vs. Princeton women's basketball: Ivy League Tournament Time, TV, streaming**\
+`Find out how to watch the Brown Bears play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115249/2026/03/13/brown-vs-princeton-stream-how-to-watch-march-13/
+
+**How to watch UAPB vs. Alabama State women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Arkansas-Pine Bluff Golden Lions play the Alabama State Lady Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115238/2026/03/13/uapb-vs-alabama-state-stream-how-to-watch-march-13/
+
 **Still without Sidney Crosby, the Penguins get ambushed early and often in Vegas**\
 `The Penguins stumbled badly against the Golden Knights on Thursday, falling 6-2. `\
 https://nytimes.com/athletic/7114198/2026/03/13/penguins-lose-golden-knights-sidney-crosby/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7114805/2026/03/13/barcelona-champions-league-flick
 **How it felt as Thunder fans processed SGA breaking Wilt's record**\
 `All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
 https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
-
-**U.S. Economy Was Vulnerable Before War With Iran**\
-`Economic growth at the end of 2025 was revised downward and consumer prices rose at the start of 2026.`\
-https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
-
-**VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
-`The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
-https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
 
