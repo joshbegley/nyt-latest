@@ -1,3 +1,15 @@
+**Hegseth’s Claim About Killing a Would-Be Assassin Creates a Mystery**\
+`The defense secretary said the leader of an Iranian unit that had planned to assassinate President Trump had been killed. But U.S. officials privately acknowledge the story is not that simple.`\
+https://nytimes.com/2026/03/13/us/politics/hegseth-claim-iran-trump.html
+
+**Trey Hendrickson excited for fresh start with Ravens, says he's in a 'win-now window'**\
+`Hendrickson, a Pro Bowler from 2021 to 2024, expressed his excitement for joining a Baltimore team with Super Bowl aspirations. `\
+https://nytimes.com/athletic/7115487/2026/03/13/ravens-trey-hendrickson-2026-nfl-free-agency/
+
+**Can Timothée Chalamet's 'Marty' join list of sports-related Oscar winners?**\
+`Entering the Academy Awards' 98th edition, only a handful of actors have won for sports-related roles.`\
+https://nytimes.com/athletic/7115397/2026/03/13/timothee-chalamet-marty-supreme-oscars-best-actor-odds/
+
 **Can Timothée Chalamet's 'Marty' join list of sports-related Oscar winners?**\
 `Over the Academy Awards' 98 years, only a handful of actors have won for sports-related roles.`\
 https://nytimes.com/athletic/7115397/2026/03/13/timothee-chalamet-marty-supreme-oscars-best-actor-odds/

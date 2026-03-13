@@ -1,5 +1,13 @@
+**Hegseth’s Claim About Killing a Would-Be Assassin Creates a Mystery**\
+`The defense secretary said the leader of an Iranian unit that had planned to assassinate President Trump had been killed. But U.S. officials privately acknowledge the story is not that simple.`\
+https://nytimes.com/2026/03/13/us/politics/hegseth-claim-iran-trump.html
+
+**Trey Hendrickson excited for fresh start with Ravens, says he's in a 'win-now window'**\
+`Hendrickson, a Pro Bowler from 2021 to 2024, expressed his excitement for joining a Baltimore team with Super Bowl aspirations. `\
+https://nytimes.com/athletic/7115487/2026/03/13/ravens-trey-hendrickson-2026-nfl-free-agency/
+
 **Can Timothée Chalamet's 'Marty' join list of sports-related Oscar winners?**\
-`Over the Academy Awards' 98 years, only a handful of actors have won for sports-related roles.`\
+`Entering the Academy Awards' 98th edition, only a handful of actors have won for sports-related roles.`\
 https://nytimes.com/athletic/7115397/2026/03/13/timothee-chalamet-marty-supreme-oscars-best-actor-odds/
 
 **Airport Security Workers to Miss Paycheck as Shutdown Drags On**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/podcasts/louise-erdrich-on-her-new-story-collecti
 **Welcome to the Neighborhood. It’s Sinking.**\
 `Portuguese Bend in Rancho Palos Verdes, Calif., rests on an active landslide. While some residents have fled, a few new homebuyers are choosing to take a risk and purchase anyway, seeing a rare opportunity to own a piece of Southern California coastal property.`\
 https://nytimes.com/video/us/100000010731489/california-housing-landslide.html
-
-**Echoes of the ’70s in What’s Now the Largest Oil Shock Ever**\
-`Governments have stockpiled oil, and cars are more efficient but the supply shock is global, and there’s no sense of when it’ll end.`\
-https://nytimes.com/2026/03/13/world/middleeast/oil-supply-shock-1973-embargo.html
-
-**How to watch Davidson vs. Saint Joseph's (PA) men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Davidson Wildcats play the Saint Joseph's (PA) Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115697/2026/03/13/davidson-vs-saint-joseph-s-pa-stream-how-to-watch-march-13/
 

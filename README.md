@@ -1,3 +1,11 @@
+**Former U.S. Green Beret Who Attempted 2020 Venezuela Coup Is on the Run**\
+`The U.S. government said the military veteran, Jordan G. Goudreau, had been missing for months, and that an ankle monitor assigned to him had been found hidden in a piece of furniture.`\
+https://nytimes.com/2026/03/13/nyregion/jordan-gourdreau-missing-veteran-maduro.html
+
+**NWSL MVP Chawinga to miss start of Kansas City Current's season - Armas**\
+`“She's not available yet, but she's getting closer,” Armas told a press conference on Friday.`\
+https://nytimes.com/athletic/7115738/2026/03/13/temwa-chawinga-injury-update-current/
+
 **Hegseth’s Claim About Killing a Would-Be Assassin Creates a Mystery**\
 `The defense secretary said the leader of an Iranian unit that had planned to assassinate President Trump had been killed. But U.S. officials privately acknowledge the story is not that simple.`\
 https://nytimes.com/2026/03/13/us/politics/hegseth-claim-iran-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/health/plasma-donation-safety.html
 **Home Prices Are Falling in a California Enclave. So Is the Ground.**\
 `The soil keeps shifting in Rancho Palos Verdes, Calif. For the right buyer, that presents a great opportunity, at least for the time being.`\
 https://nytimes.com/2026/03/13/us/rancho-palos-verdes-landslide-california-houses.html
-
-**Louise Erdrich on Her New Story Collection and the Mystery of Writing**\
-`The Pulitzer Prize-winning author talks process and “Planet of the Apes.”`\
-https://nytimes.com/2026/03/13/podcasts/louise-erdrich-on-her-new-story-collection-and-the-mystery-of-writing.html
-
-**Welcome to the Neighborhood. It’s Sinking.**\
-`Portuguese Bend in Rancho Palos Verdes, Calif., rests on an active landslide. While some residents have fled, a few new homebuyers are choosing to take a risk and purchase anyway, seeing a rare opportunity to own a piece of Southern California coastal property.`\
-https://nytimes.com/video/us/100000010731489/california-housing-landslide.html
 
