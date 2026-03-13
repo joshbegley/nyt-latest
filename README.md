@@ -1,3 +1,11 @@
+**A Crash, Gunfire and Then a Race to Save a Synagogue Full of Children**\
+`“I didn’t breathe until I knew all of the kids were OK,” one teacher recalled after a truck crashed through the doors of a Michigan synagogue this week.`\
+https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
+
+**Federal Judge Blocks Order Ending Deportation Protections for Somalis**\
+`The judge said she was staying the order indefinitely in large part because the Trump administration had been unprepared to defend it in court.`\
+https://nytimes.com/2026/03/13/us/politics/somalis-tps-deportations-trump.html
+
 **Old Dominion Attacker Appeared to Target R.O.T.C., Court Records Show**\
 `Before opening fire in a university classroom, the gunman asked people if they were there for a Reserve Officers Training Corps event, court documents said.`\
 https://nytimes.com/2026/03/13/us/old-dominion-shooting-gunman-rotc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
 **The Fall of Noma’s Chef Reverberates in the Restaurant World**\
 `In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
 https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
-
-**Judge Temporarily Blocks Trump Demand for Student Race Data**\
-`A group of Democratic attorneys general had sued to overturn the Trump administration’s new policy that demanded the past seven years of student application data.`\
-https://nytimes.com/2026/03/13/us/politics/trump-lawsuit-college-admissions.html
-
-**A New Magazine of International Reportage? In This Media Environment?**\
-`Now Voyager, an ambitious publication packed with dispatches from around the world, throws itself a party in Harlem.`\
-https://nytimes.com/2026/03/13/style/a-new-magazine-in-this-media-environment.html
 
