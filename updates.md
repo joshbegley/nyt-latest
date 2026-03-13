@@ -1,3 +1,11 @@
+**How it felt as Thunder fans processed Shai Gilgeous-Alexander passing Wilt's record**\
+`All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
+https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
+
+**Consumer Prices Rose in January, Before Iran War Added Price Pressures**\
+`The Federal Reserve’s preferred gauge for inflation increased 2.8 percent annually and economists expect another bump in prices in the near-term.`\
+https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
+
 **VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
 `The rookie guard is suddenly Philadelphia's best available player as the team tries to hold onto a playoff spot.`\
 https://nytimes.com/athletic/7113341/2026/03/13/vj-edgecombe-76ers-playoffs-health/
