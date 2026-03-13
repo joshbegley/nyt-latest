@@ -1,3 +1,11 @@
+**Canada looking for 'revenge' in World Baseball Classic after Olympic hockey defeat**\
+`The Canadians received a video message from Hockey Canada ahead of their quarterfinal game against the U.S. on Friday.`\
+https://nytimes.com/athletic/7114376/2026/03/13/united-states-canada-world-baseball-classic-hockey/
+
+**Judge Orders V.A. to Restore Union Contract With 300,000 Workers**\
+`Doug Collins, the V.A. secretary, had moved to nullify the contract in August, after Trump sought to eliminate collective-bargaining rights for federal workers.`\
+https://nytimes.com/2026/03/13/us/politics/va-union-contract-judge-ruling.html
+
 **Tua Tagovailoa, Michael Penix Jr. to 'compete' for Falcons' starting QB role**\
 `Tagovailoa will have a chance to compete with Penix for the Falcons' starting quarterback job, GM Ian Cunningham said Friday.`\
 https://nytimes.com/athletic/7116272/2026/03/13/tua-tagovailoa-michael-penix-falcons-qb/

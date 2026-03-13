@@ -1,3 +1,11 @@
+**Canada looking for 'revenge' in World Baseball Classic after Olympic hockey defeat**\
+`The Canadians received a video message from Hockey Canada ahead of their quarterfinal game against the U.S. on Friday.`\
+https://nytimes.com/athletic/7114376/2026/03/13/united-states-canada-world-baseball-classic-hockey/
+
+**Judge Orders V.A. to Restore Union Contract With 300,000 Workers**\
+`Doug Collins, the V.A. secretary, had moved to nullify the contract in August, after Trump sought to eliminate collective-bargaining rights for federal workers.`\
+https://nytimes.com/2026/03/13/us/politics/va-union-contract-judge-ruling.html
+
 **Tua Tagovailoa, Michael Penix Jr. to 'compete' for Falcons' starting QB role**\
 `Tagovailoa will have a chance to compete with Penix for the Falcons' starting quarterback job, GM Ian Cunningham said Friday.`\
 https://nytimes.com/athletic/7116272/2026/03/13/tua-tagovailoa-michael-penix-falcons-qb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7116468/2026/03/13/lauren-james-signs-new-chelsea-c
 **Rasheed Walker agrees to 1-year deal with Panthers: Source**\
 `A 2022 seventh-round pick by the Packers, Walker has made 48 starts at left tackle over the past three seasons.`\
 https://nytimes.com/athletic/7091578/2026/03/13/panthers-rasheed-walker-nfl-free-agency-2026/
-
-**How a college football team ended up with two different schedules for 2026**\
-`Both CUSA and the Sun Belt have listed the Louisiana Tech Bulldogs as playing eight games within their conferences this fall.`\
-https://nytimes.com/athletic/7116442/2026/03/13/louisiana-tech-cusa-sun-belt-schedule-lawsuit/
-
-**A New Trump Envoy Stirs Fears of U.S. Interference in Brazil’s Elections**\
-`Darren Beattie, the U.S. policy adviser on Brazil, planned to visit former President Jair Bolsonaro in prison and meet his son, who is also seeking the presidency.`\
-https://nytimes.com/2026/03/13/world/middleeast/brazil-election-darren-beattie-trump.html
 
