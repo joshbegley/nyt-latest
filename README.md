@@ -1,3 +1,11 @@
+**Bryan Abreu to fill in for Josh Hader — and showcase himself as a closer before free agency**\
+`Abreu will get an opportunity to show what he can do in the ninth inning, and it couldn't come at a better time for him.`\
+https://nytimes.com/athletic/7113591/2026/03/13/astros-bryan-abreu-closer-free-agency/
+
+**‘The Headlines’ News Quiz: Mar. 13, 2026**\
+`Following the news? Tracy Mumford has some questions for you.`\
+https://nytimes.com/2026/03/13/podcasts/the-headlines/the-headlines-news-quiz-mar-13-2026.html
+
 **Kevin Warsh’s Dilemma**\
 `President Trump’s pick to lead the Federal Reserve could faces a tough road to confirmation if he seeks quick interest rate cuts. The war in Iran doesn’t help.`\
 https://nytimes.com/2026/03/13/business/dealbook/warsh-iran-fed-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7114456/2026/03/13/washington-wizards-bam-adebayo-m
 **Turkey Says NATO Defenses Shot Down a Third Iranian Missile**\
 `Turkey did not say where the missile was intercepted. But residents near Incirlik Air Base, which hosts U.S. troops, reported hearing sirens and a loud boom.`\
 https://nytimes.com/2026/03/13/world/middleeast/turkey-nato-iran-missile.html
-
-**I watched Gerrit Cole’s latest big step in his Yankees return. Here’s what I saw**\
-`A by-the-minute breakdown of Gerrit Cole's 35-pitch, two-inning live batting practice on Thursday at an empty George M. Steinbrenner Field.`\
-https://nytimes.com/athletic/7113606/2026/03/13/gerrit-cole-yankees-workout-video-breakdown/
-
-**Ailing son weighed on José Alvarado last season. Now, after suspension, he's pitching with a purpose**\
-`Dylan, diagnosed with leukemia, is an inspiration for Alvarado, who is pitching for so much this season after a "difficult" 2025.`\
-https://nytimes.com/athletic/7111432/2026/03/13/jose-alvarado-son-leukemia-phillies/
 
