@@ -1,3 +1,11 @@
+**Bills promised a new way, but Josh Allen remains their answer for everything: Graham**\
+`Other teams with expensive quarterbacks have made headliner moves during free agency, but not Buffalo, which still has roster holes.`\
+https://nytimes.com/athletic/7114915/2026/03/13/bills-2026-free-agency-josh-allen/
+
+**Oil and cargo ships are growing targets in war with Iran.**\
+`By Blacki Migliozzi, Christiaan Triebert and Lazaro Gamio`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/oil-and-cargo-ships-are-growing-targets-in-war-with-iran
+
 **Sabres thoughts: Luke Schenn's debut, Alex Tuch's injury and a rare Buffalo loss**\
 `The Sabres had been riding high since the Olympic break but lost 2-1 to the Capitals on Thursday night.`\
 https://nytimes.com/athletic/7114269/2026/03/13/sabres-lose-capitals-thoughts-luke-schenn-alex-tuch/

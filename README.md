@@ -26,8 +26,8 @@ https://nytimes.com/athletic/7114805/2026/03/13/barcelona-champions-league-flick
 `All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
 https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
 
-**Consumer Prices Rose in January, Before Iran War Added Price Pressures**\
-`The economy also grew more slowly at the end of 2025 than first thought, revised data showed.`\
+**U.S. Economy Was Vulnerable Before War With Iran**\
+`Economic growth at the end of 2025 was revised downward and consumer prices rose at the start of 2026.`\
 https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
 
 **VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
