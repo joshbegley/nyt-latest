@@ -1,3 +1,11 @@
+**Ernie Anastos, New York’s Everyman Newscaster, Dies at 82**\
+`A television journalist for four decades with 30 Emmy Awards, Mr. Anastos especially enjoyed delivering good news.`\
+https://nytimes.com/2026/03/12/nyregion/ernie-anastos-dead.html
+
+**Cuba Pledges to Release 51 Prisoners Amid Pressure From Washington**\
+`The Trump administration has been trying to choke the Cuban government through an oil blockade. The prisoner release appears to be an effort to appease Washington.`\
+https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-blocade.html
+
 **Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
 `Gudas was given a five-minute major for kneeing and a game misconduct as Matthews had to be helped off the ice.`\
 https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/12/us/michigan-synagogue-shooting-temple-israel.html
 **U.S. Refueling Plane Crashes in Iraq, Military Says**\
 `The crash was not because of hostile fire or friendly fire, U.S. Central Command said.`\
 https://nytimes.com/2026/03/12/world/middleeast/us-refueling-plane-crash-iraq.html
-
-**Davies to miss Canada's March camp through injury - Marsch**\
-`Davies' latest injury setback is a headache for the Canada coach's World Cup plans`\
-https://nytimes.com/athletic/7113597/2026/03/12/alphonso-davies-canada-camp-injury/
-
-**War in Iran Has India Wondering How to Keep Its Stovetops Lit**\
-`India relies on huge quantities of cooking gas that is normally shipped from the Persian Gulf.`\
-https://nytimes.com/2026/03/12/business/iran-war-india-cooking-gas.html
 
