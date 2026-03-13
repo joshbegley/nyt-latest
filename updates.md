@@ -1,3 +1,15 @@
+**Crisis Follows Conductor’s Dismissal at the Boston Symphony**\
+`A decision by the orchestra’s board to fire its music director, Andris Nelsons, has set off protests from players, leaving their leaders scrambling.`\
+https://nytimes.com/2026/03/13/arts/music/boston-symphony-andris-nelsons-fired-protests.html
+
+**John F. Burns (1944-2026)**\
+``\
+https://nytimes.com/spotlight/John-F-Burns-1944-2026
+
+**Adidas has made the Champions League ball for 25 years. That could be about to change**\
+`A tender is being launched for the rights to the Champions League match ball, currently produced by Adidas`\
+https://nytimes.com/athletic/7115535/2026/03/13/champions-league-match-ball-adidas-nike-puma/
+
 **Prime TIre: Get set for F1’s next Confusion GP**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7115817/2026/03/13/f1-rule-confusion-chinese-gp-prime-tire/

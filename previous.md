@@ -1,3 +1,15 @@
+**Crisis Follows Conductor’s Dismissal at the Boston Symphony**\
+`A decision by the orchestra’s board to fire its music director, Andris Nelsons, has set off protests from players, leaving their leaders scrambling.`\
+https://nytimes.com/2026/03/13/arts/music/boston-symphony-andris-nelsons-fired-protests.html
+
+**John F. Burns (1944-2026)**\
+``\
+https://nytimes.com/spotlight/John-F-Burns-1944-2026
+
+**Adidas has made the Champions League ball for 25 years. That could be about to change**\
+`A tender is being launched for the rights to the Champions League match ball, currently produced by Adidas`\
+https://nytimes.com/athletic/7115535/2026/03/13/champions-league-match-ball-adidas-nike-puma/
+
 **Prime TIre: Get set for F1’s next Confusion GP**\
 `Welcome to Prime Tire, The Athletic's F1 newsletter.`\
 https://nytimes.com/athletic/7115817/2026/03/13/f1-rule-confusion-chinese-gp-prime-tire/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7115848/2026/03/13/knicks-vs-pacers-stream-how-to-w
 **How to watch Grizzlies vs. Pistons: Time, TV, streaming**\
 `Find out how to watch the Memphis Grizzlies play the Detroit Pistons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115846/2026/03/13/grizzlies-vs-pistons-stream-how-to-watch-march-13/
-
-**Canada March roster projection: Marsch's many options for World Cup tuneups**\
-`It's final World Cup audition time for cohost Canada, and injuries have opened up some opportunities. Who is poised to take advantage?`\
-https://nytimes.com/athletic/7114757/2026/03/13/canada-march-friendlies-squad-prediction-iceland-tunisia/
-
-**Rams maintain interest in A.J. Brown trade with Eagles: Sources**\
-`The Rams continue to monitor the status of the three-time Pro Bowler with interest, league sources told The Athletic.`\
-https://nytimes.com/athletic/7115737/2026/03/13/eagles-rams-aj-brown-trade-talks/
-
-**Josh Schertz, top coaching carousel candidate, agrees to extension at Saint Louis**\
-`Schertz led Saint Louis to an Atlantic 10 title in his second year at the school.`\
-https://nytimes.com/athletic/7115723/2026/03/13/josh-schertz-saint-louis-contract-extension/
 
