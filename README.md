@@ -1,3 +1,11 @@
+**Why Kenneth Walker III has already made impression on his Chiefs teammates**\
+`What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
+https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
+
+**Bears' new free-agent class has big goals — and a sense of humor**\
+`Thursday's newcomer introductions at Halas Hall came with a balance of ambition and levity for a retooling Bears team.`\
+https://nytimes.com/athletic/7114001/2026/03/13/chicago-bears-new-free-agent-class-big-goals/
+
 **What Does It Mean to Have Air Superiority Over Iran?**\
 `The American and Israeli air forces have a dominant advantage in the skies, but Iran can still muster some resistance.`\
 https://nytimes.com/2026/03/13/world/middleeast/air-superiority-iran-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7105184/2026/03/13/jj-mccarthy-kyler-murray-vikings
 **Coach K shared a handwritten practice plan. It told us about more than basketball**\
 `If you’re a coach, this should be gold. And even if you don’t care about basketball, there are still leadership ideas you can connect with.`\
 https://nytimes.com/athletic/7075906/2026/03/13/coach-k-leadership-practice-play-duke/
-
-**Five years after his last Opening Day start, Matthew Boyd earns the honor once again**\
-`"He's a very important player for us," Cubs manager Craig Counsell said. "We're excited to get him the ball on Opening Day."`\
-https://nytimes.com/athletic/7113363/2026/03/13/cubs-matthew-boyd-opening-day-starter/
-
-**What's on the tag? Tommy Fleetwood, Justin Thomas disrupting golf's apparel market**\
-`Two of the PGA Tour's more marketable players are wearing what they want, when they want, for the first time in a long time.`\
-https://nytimes.com/athletic/7112833/2026/03/13/tommy-fleetwood-justin-thomas-golf-apparel-free-agents/
 

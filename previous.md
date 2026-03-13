@@ -1,40 +1,40 @@
-**How to watch Kentucky vs. Florida men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Florida Gators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114775/2026/03/13/kentucky-vs-florida-stream-how-to-watch-march-13/
+**What Does It Mean to Have Air Superiority Over Iran?**\
+`The American and Israeli air forces have a dominant advantage in the skies, but Iran can still muster some resistance.`\
+https://nytimes.com/2026/03/13/world/middleeast/air-superiority-iran-war.html
 
-**How to watch Charlotte vs. UAB men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Charlotte 49ers play the UAB Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114771/2026/03/13/charlotte-vs-uab-stream-how-to-watch-march-13/
+**What we learned: It's clear Lions have a type with their newest additions**\
+`Cade Mays, Larry Borom and Isiah Pacheco spoke with Detroit reporters Thursday after joining the Lions in free agency.`\
+https://nytimes.com/athletic/7113461/2026/03/13/lions-free-agency-cade-mays-isiah-pacheco-borom/
 
-**How to watch Missouri State vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Missouri State Bears play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114769/2026/03/13/missouri-state-vs-louisiana-tech-stream-how-to-watch-march-13/
+**What's next for Panthers in free agency? Potential OT and secondary targets**\
+`With Ikem Ekwonu sidelined, the Panthers could target an offensive lineman in free agency or the draft — or both.`\
+https://nytimes.com/athletic/7113557/2026/03/13/panthers-free-agent-targets-offensive-tackle/
 
-**Italy brought espresso to the dugout. Is it providing more than a caffeine buzz?**\
-`Team Italy has gone viral during the World Baseball Classic for drinking espresso in the dugout. Is there any potential benefit? We asked.`\
-https://nytimes.com/athletic/7113243/2026/03/13/team-italy-espresso-vinnie-pasquantino/
+**Can Red Wings' survive without Larkin, Copp as playoff race tightens?**\
+`The Red Wings on Thursday showed the kind of fight they will need to survive with an injury-depleted lineup, but still came up short.`\
+https://nytimes.com/athletic/7114078/2026/03/13/red-wings-larkin-copp-injuries-lightning/
 
-**How to watch Ohio State vs. Michigan men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114766/2026/03/13/ohio-state-vs-michigan-stream-how-to-watch-march-13/
+**2026 fantasy baseball catcher and UT-only targets, sleepers, risks and prospects to watch**\
+`Dalton Del Don discusses catchers and utility-only players to target and avoid ahead of the 2026 fantasy baseball season. `\
+https://nytimes.com/athletic/7111530/2026/03/13/fantsay-baseball-2026-catcher-utility-sleepers-prospects/
 
-**How to watch Toledo vs. Ball State women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the Ball State Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114746/2026/03/13/toledo-vs-ball-state-stream-how-to-watch-march-13/
+**Can Fernando Tatis Jr.'s World Baseball Classic stardom help launch him and the Padres?**\
+`“When Tati’s enjoying what he’s doing, he’s electric on the field.”`\
+https://nytimes.com/athletic/7114351/2026/03/13/fernando-tatis-jr-padres-world-baseball-classic/
 
-**How to watch Indiana State vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Indiana State Sycamores play the Murray State Racers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114740/2026/03/13/indiana-state-vs-murray-state-stream-how-to-watch-march-13/
+**The Vikings signed Kyler Murray. So what’s next for J.J. McCarthy?**\
+`Could McCarthy beat out Murray for the starting QB job? Could the Vikings trade the youngster? Would another team even want him?`\
+https://nytimes.com/athletic/7105184/2026/03/13/jj-mccarthy-kyler-murray-vikings-nfl-free-agency/
 
-**How to watch William & Mary vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the William & Mary Tribe play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114738/2026/03/13/william-mary-vs-charleston-sc-stream-how-to-watch-march-13/
+**Coach K shared a handwritten practice plan. It told us about more than basketball**\
+`If you’re a coach, this should be gold. And even if you don’t care about basketball, there are still leadership ideas you can connect with.`\
+https://nytimes.com/athletic/7075906/2026/03/13/coach-k-leadership-practice-play-duke/
 
-**How to watch Coppin State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
-`Find out how to watch the Coppin State Eagles play the Howard Bison, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7114736/2026/03/13/coppin-state-vs-howard-stream-how-to-watch-march-13/
+**Five years after his last Opening Day start, Matthew Boyd earns the honor once again**\
+`"He's a very important player for us," Cubs manager Craig Counsell said. "We're excited to get him the ball on Opening Day."`\
+https://nytimes.com/athletic/7113363/2026/03/13/cubs-matthew-boyd-opening-day-starter/
 
-**Toone targeting return from injury after international break**\
-`A hip injury has sidelined the England international since the turn of the year.`\
-https://nytimes.com/athletic/7114728/2026/03/13/manchester-uniteds-ella-toone-injury-update/
+**What's on the tag? Tommy Fleetwood, Justin Thomas disrupting golf's apparel market**\
+`Two of the PGA Tour's more marketable players are wearing what they want, when they want, for the first time in a long time.`\
+https://nytimes.com/athletic/7112833/2026/03/13/tommy-fleetwood-justin-thomas-golf-apparel-free-agents/
 
