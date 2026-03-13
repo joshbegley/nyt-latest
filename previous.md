@@ -1,3 +1,11 @@
+**6 Crew Members Die in U.S. Military Plane Crash in Iraq**\
+`Six crew members died after a military refueling plane crashed in Iraq on Thursday, the U.S. Central Command said. Officials said the crash was not caused by hostile or friendly fire.`\
+https://nytimes.com/video/world/middleeast/100000010774813/iraq-plane-crash-us-crew-members-dead.html
+
+**Bahrain and Saudi Arabian GPs set to be canceled due to Middle East conflict**\
+`Both races being canceled would leave a 35-day gap between the Japanese GP on March 29 and the Miami GP on May 3.`\
+https://nytimes.com/athletic/7116058/2026/03/13/bahrain-saudi-grand-prix-canceled-f1/
+
 **What's to expect from The Athletic's NWSL coverage ahead of 2026 regular season**\
 `We have you covered this season, no matter the chaos in the NWSL, and are excited to welcome you aboard.`\
 https://nytimes.com/athletic/7115541/2026/03/13/nwsl-2026-season-coverage-the-athletic/
@@ -29,8 +37,4 @@ https://nytimes.com/wirecutter/reviews/teeny-turner-review/
 **Glen 'Big Baby' Davis released from prison following NBA fraud conviction**\
 `Davis was one of 18 former players charged with defrauding the NBA Players’ Health and Benefit Welfare Plan of $2.5 million.`\
 https://nytimes.com/athletic/7116086/2026/03/13/glen-davis-released-prison-health-care-fraud/
-
-**Lebanese Family Members of Synagogue Attacker Died in Airstrike**\
-`The man was identified as a U.S. citizen born in Lebanon, who lived and worked outside of Detroit. The attack on Temple Israel left Jewish communities across America rattled.`\
-https://nytimes.com/2026/03/13/us/synagogue-attack-lebanon-family.html
 
