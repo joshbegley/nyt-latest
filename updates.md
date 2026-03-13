@@ -1,3 +1,7 @@
+**Canada have gone viral in curling again, this time for all the best reasons**\
+`After a dramatic Olympics of stone-touching controversies and medals, Canada is making curling news again. This time for pure dominance.`\
+https://nytimes.com/athletic/7112982/2026/03/13/canada-wheelchair-curling-jon-thurston-viral-shot/
+
 **This is what happened on March 12.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-12
