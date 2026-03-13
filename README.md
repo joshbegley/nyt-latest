@@ -1,3 +1,28 @@
+**Alysa Liu caps Olympic stardom tour with a big party where it all began, in Oakland**\
+`Born and raised in Oakland, with Chinese heritage, the U.S. Olympic figure skating champion embraced it all at a rally Thursday in the city.`\
+https://nytimes.com/athletic/7115350/2026/03/13/alysa-liu-olympics-figure-skating-oakland-rally-chinese-heritage/
+
+**How to watch Liberty vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Liberty Lady Flames play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115626/2026/03/13/liberty-vs-louisiana-tech-stream-how-to-watch-march-13/
+
+**Hegseth says an officer has been appointed to investigate deadly strike on Iranian school.**\
+`By Greg Jaffe`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/hegseth-says-an-officer-has-been-appointed-to-investigate-deadly-strike-on-iranian-school
+
+**How to watch Hofstra vs. Campbell women's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Hofstra Pride play the Campbell Fighting Camels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115618/2026/03/13/hofstra-vs-campbell-stream-how-to-watch-march-13/
+
+**Chat with Eno Sarris at 11am PT**\
+`<p>Getting ready for your fantasy draft? Need advice on who to pick? Chat with Eno Sarris about that and everything else spring baseball at 11am PT.</p>
+`\
+https://nytimes.com/athletic/7115588/2026/03/13/chat-with-eno-sarris-at-11am-pt/
+
+**How to watch Harvard vs. Columbia women's basketball: Ivy League Tournament Time, TV, streaming**\
+`Find out how to watch the Harvard Crimson play the Columbia Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7115605/2026/03/13/harvard-vs-columbia-stream-how-to-watch-march-13/
+
 **A Lush Weeknight Shrimp Pasta, Inspired by a Tennis Great**\
 `Yotam Ottolenghi took a page from Arthur Ashe in keeping this weeknight dinner smart and simple.`\
 https://nytimes.com/2026/03/13/dining/weeknight-shrimp-pasta.html
@@ -13,28 +38,4 @@ https://nytimes.com/2026/03/13/climate/epa-ethylene-oxide-cancer.html
 **The War in Iran Is Roiling the World, but Not the U.S. Stock Market**\
 `Investors say they are balancing the risks from oil disruptions against the many positives like strong corporate earnings and the likelihood that President Trump will end the war if it threatens markets.`\
 https://nytimes.com/2026/03/13/business/us-stock-market-iran-war.html
-
-**Wall Street Bankers Offered Lucrative Access to Join the Pentagon**\
-`A presentation from a headhunting firm aimed to recruit Wall Street investors to the Pentagon by offering “unmatched access” to government officials and fund-raising opportunities among foreign sovereigns.`\
-https://nytimes.com/2026/03/13/us/politics/wall-street-access-pentagon.html
-
-**U.S. Tech Giants Flocked to the Persian Gulf. Now They Are Targets.**\
-`Amazon, Google and others struck deals in the Persian Gulf to foot the bill for A.I. development. Iran has now threatened attacks against the companies’ infrastructure in the region.`\
-https://nytimes.com/2026/03/13/technology/amazon-google-persian-gulf-war.html
-
-**John F. Burns, Prize-winning Foreign Correspondent for The Times, Dies at 81**\
-`In a 40-year career that brought him two Pulitzers, he reported from trouble spots around the world, eloquently conveying the chaos of war.`\
-https://nytimes.com/2026/03/13/world/john-burns-dead.html
-
-**How to watch Kings vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115545/2026/03/13/kings-vs-islanders-stream-how-to-watch-march-13/
-
-**Radko Gudas to have phone hearing for knee-on-knee hit to Auston Matthews**\
-`The phone hearing allows for a suspension of up to five games under the terms of the collective bargaining agreement.`\
-https://nytimes.com/athletic/7115469/2026/03/13/radko-gudas-auston-matthews-knee-hit-phone-hearing/
-
-**How to Vote in the Illinois Primary**\
-`Democratic and Republican candidates are vying for open seats in the U.S. Senate and House, and also for governor and other statewide offices.`\
-https://nytimes.com/2026/03/13/us/elections/how-to-vote-il-primary.html
 
