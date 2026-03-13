@@ -1,8 +1,32 @@
+**Suspended U.S. Sanctions Add a Political Win to Russia’s Economic Gains**\
+`Kremlin officials said the American move, which Europe opposes, showed that Moscow could not be dislodged from the center of global energy markets.`\
+https://nytimes.com/2026/03/13/world/europe/russia-oil-suspended-sanctions-economy.html
+
+**It’s Time for Corned Beef and Cabbage**\
+`And our most popular recipes from the week.`\
+https://nytimes.com/2026/03/13/dining/its-time-for-corned-beef-and-cabbage.html
+
+**At Dinners, Over Jokes With Comedians, Epstein Honed His Networking**\
+`In the years after his 2008 conviction for soliciting prostitution, Jeffrey Epstein rebuilt his reputation by hosting gatherings with leaders in all sorts of trades, including comedy.`\
+https://nytimes.com/2026/03/13/arts/epstein-woody-allen-comedians.html
+
+**Does This Movie Make You Anxious?**\
+`Some movies make us laugh or cry or feel scared. A new wave of jittery cinema seems designed to make us feel incredibly stressed out.`\
+https://nytimes.com/2026/03/13/opinion/anxiety-movies.html
+
+**Hegseth Vows Lethal Day in Iran as Air War Intensifies**\
+`At a news conference, Defense Secretary Pete Hegseth gave no indication of how long it would take before the Navy could escort civilian cargo ships through the Strait of Hormuz.`\
+https://nytimes.com/2026/03/13/us/politics/hegseth-air-war-iran.html
+
+**Inside the Kitchen That Feeds Hollywood on Oscars Night**\
+`For 32 years, Wolfgang Puck and his team of more than 400 employees have catered to the whims and tastes of the film elite.`\
+https://nytimes.com/2026/03/13/dining/wolfgang-puck-kitchen-oscars-night.html
+
 **As Mexico's World Cup injury woes worsen, door could re-open for GK Ochoa**\
 `Manager Javier Aguirre has an injury problem on his hands, leaving Mexico in peril – and a 40-year-old legend on the cusp of history`\
 https://nytimes.com/athletic/7111941/2026/03/13/mexico-injuries-world-cup-malagon-ruiz-mora-ochoa/
 
-**Arteta says he 'fully trusts and loves' Saka amid winger's indifferent form**\
+**Arteta 'fully trusts and loves' Saka amid winger's indifferent form**\
 `The Arsenal vice-captain's underlying numbers are far better than his output so far this season.`\
 https://nytimes.com/athletic/7115383/2026/03/13/bukayo-saka-arsenal-arteta-trust/
 
@@ -13,28 +37,4 @@ https://nytimes.com/video/podcasts/100000010774229/the-complicated-oscars-night-
 **Is NHL free agency dead?**\
 `Anyone disappointed with how underwhelming last week’s trade deadline was should save some of that malaise for free agency.`\
 https://nytimes.com/athletic/7115366/2026/03/13/nhl-free-agency-market-trade-deadline-red-light/
-
-**The Windup: Ranking WBC underdogs**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7115323/2026/03/13/world-baseball-classic-underdogs-the-windup/
-
-**NHL Power Rankings: A new Top 5 team, plus 'do-overs' for everyone**\
-`Every team has regrets, some more than others, so we went through each one to see what they’d like a do-over on.`\
-https://nytimes.com/athletic/7115047/2026/03/13/nhl-power-rankings-wild-sabres/
-
-**The Bounce: What do recent champs' stats say about who'll win the NBA title?**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/7115285/2026/03/13/nba-finals-champions-stats-the-bounce/
-
-**Watch: How do SGA and Wilt's numbers stack up with each other?**\
-`Wilt is still Wilt when you compare the overall numbers, but he owns one fewer record after Thursday.`\
-https://nytimes.com/athletic/7115147/2026/03/13/shai-gilgeous-alexander-20-point-streak-wilt-nba/
-
-**The War in Iran Is Driving Costs Up. Here Are Some Ways to Save.**\
-`The widening war in the Mideast is making life more expensive. Experts shared some simple cost-cutting tips.`\
-https://nytimes.com/2026/03/13/business/iran-war-gas-prices-groceries.html
-
-**War Stirs Mixed Feelings for the Only Iranian American Democrat in Congress**\
-`The daughter of Iranians who fled the country, Representative Yassamin Ansari of Arizona wants a democratic and secular government for Iran, but is wary of President Trump’s war.`\
-https://nytimes.com/2026/03/13/us/politics/ansari-iranian-american-congress.html
 
