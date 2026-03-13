@@ -1,3 +1,7 @@
+**Watch: How do SGA and Wilt's numbers stack up with each other?**\
+`Wilt is still Wilt when you compare the overall numbers, but he owns one fewer record after Thursday.`\
+https://nytimes.com/athletic/7115147/2026/03/13/shai-gilgeous-alexander-20-point-streak-wilt-nba/
+
 **The War in Iran Is Driving Costs Up. Here Are Some Ways to Save.**\
 `The widening war in the Mideast is making life more expensive. Experts shared some simple cost-cutting tips.`\
 https://nytimes.com/2026/03/13/business/iran-war-gas-prices-groceries.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7115341/2026/03/13/vancouver-canucks-mailbag-questi
 `For now, Vancouver's system is lacking in both depth and high-end prospects, an indication of the work still to be done in the rebuild.`\
 https://nytimes.com/athletic/7114519/2026/03/13/vancouver-canucks-top-10-prospects-buium-willander-ohgren/
 
-**Romero, Palhinha to miss Spurs' visit to Liverpool after clash of heads**\
+**Romero, Palhinha undergoing concussion protocols, will miss Spurs visit to Liverpool**\
 `With Micky van de Ven suspended at Anfield, Igor Tudor is short of options at centre-half.`\
 https://nytimes.com/athletic/7114780/2026/03/13/palhinha-romero-concussion-tottenham-fitness/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7115189/2026/03/13/jj-gabriel-carrick-man-united-ta
 **How to watch UMass vs. Toledo men's basketball: MAC Tournament Time, TV, streaming**\
 `Find out how to watch the UMass Minutemen play the Toledo Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7115311/2026/03/13/umass-vs-toledo-stream-how-to-watch-march-13/
-
-**How to watch Duquesne vs. VCU men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Duquesne Dukes play the VCU Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7115309/2026/03/13/duquesne-vs-vcu-stream-how-to-watch-march-13/
 
