@@ -1,3 +1,7 @@
+**How Iran’s Naval Mines Work**\
+`Iran’s arsenal of some 5,000 mines could further complicate efforts to restart shipping in the Persian Gulf.`\
+https://nytimes.com/interactive/2026/03/13/world/middleeast/iran-mines-strait-hormuz.html
+
 **How to watch George Washington vs. Saint Louis men's basketball: A-10 Tournament Time, TV, streaming**\
 `Find out how to watch the George Washington Revolutionaries play the Saint Louis Billikens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7114672/2026/03/13/george-washington-vs-saint-louis-stream-how-to-watch-march-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/nyregion/nyc-street-homeless-outreach.html
 **Gas Pump**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2026/03/13/learning/gas-pump.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/13/crosswords/spelling-bee-forum.html
 
