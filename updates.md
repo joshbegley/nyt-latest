@@ -1,3 +1,11 @@
+**Why Kenneth Walker III has already made impression on his Chiefs teammates**\
+`What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
+https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
+
+**Bears' new free-agent class has big goals — and a sense of humor**\
+`Thursday's newcomer introductions at Halas Hall came with a balance of ambition and levity for a retooling Bears team.`\
+https://nytimes.com/athletic/7114001/2026/03/13/chicago-bears-new-free-agent-class-big-goals/
+
 **What Does It Mean to Have Air Superiority Over Iran?**\
 `The American and Israeli air forces have a dominant advantage in the skies, but Iran can still muster some resistance.`\
 https://nytimes.com/2026/03/13/world/middleeast/air-superiority-iran-war.html

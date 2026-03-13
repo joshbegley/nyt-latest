@@ -1,3 +1,7 @@
+**The Pulse: Your thoughts on Bam’s 83 points**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7112121/2026/03/13/bam-adebayo-83-points-survey-the-pulse/
+
 **Why Kenneth Walker III has already made impression on his Chiefs teammates**\
 `What makes Walker so dangerous? One of his new Kansas City teammates has a unique perspective.`\
 https://nytimes.com/athletic/7111826/2026/03/13/chiefs-kenneth-walker-iii-first-impression/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7114351/2026/03/13/fernando-tatis-jr-padres-world-b
 **The Vikings signed Kyler Murray. So what’s next for J.J. McCarthy?**\
 `Could McCarthy beat out Murray for the starting QB job? Could the Vikings trade the youngster? Would another team even want him?`\
 https://nytimes.com/athletic/7105184/2026/03/13/jj-mccarthy-kyler-murray-vikings-nfl-free-agency/
-
-**Coach K shared a handwritten practice plan. It told us about more than basketball**\
-`If you’re a coach, this should be gold. And even if you don’t care about basketball, there are still leadership ideas you can connect with.`\
-https://nytimes.com/athletic/7075906/2026/03/13/coach-k-leadership-practice-play-duke/
 
