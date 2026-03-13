@@ -1,3 +1,19 @@
+**Luka Dončić exceeds 50 points in a game for first time as a Laker**\
+`It took 13 months for Luka Dončić to score at least 50 points in a Los Angeles Lakers jersey. `\
+https://nytimes.com/athletic/7114510/2026/03/13/luka-doncic-highlights-lakers-bulls-51-points/
+
+**How are Manchester United's loanees faring as decision time approaches?**\
+`Manchester United have a host of players out on loan this season, and all have very different futures`\
+https://nytimes.com/athletic/7111962/2026/03/13/manchester-united-loanees-onana-hojlund-rashford-sancho/
+
+**What football really thinks of Arsenal's football**\
+`We spoke to two club executives, a senior recruitment figure, an academy coach, a player, a scout to get their views on Arteta's side.`\
+https://nytimes.com/athletic/7112125/2026/03/13/arsenal-football-style-opinions/
+
+**The BookKeeper: Exploring Liverpool's latest finances as record revenues led to transfer splurge**\
+`We examine Liverpool's accounts for 2024-25. What do they tell us? What has changed? Are there any concerns? `\
+https://nytimes.com/athletic/7092980/2026/03/13/bookkeeper-liverpool-finances-2024-2025-transfers-fsg/
+
 **Does playing first in a title race make any difference?**\
 `The received wisdom is that playing first in a two-horse title battle is an advantage. This is what the data says`\
 https://nytimes.com/athletic/7075219/2026/03/13/premier-league-title-race-play-first-make-difference/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7112132/2026/03/13/premier-league-champions-why-no-
 **The Prospects: Ben Broggio, Aston Villa**\
 `The young Villa loanee is making a positive impression and showcasing his attacking talent at Falkirk in the Scottish Premiership`\
 https://nytimes.com/athletic/7111331/2026/03/13/broggio-aston-villa-falkirk-prospects/
-
-**Champions League qualification race: Predictions, distractions, and importance of qualifying**\
-`There are just nine games left for most teams in the Premier League, and the battle for Champions League qualification is heating up`\
-https://nytimes.com/athletic/7111615/2026/03/13/champions-league-premier-league-qualification-race/
-
-**Mike Schultz has won Paralympic gold, but his sporting legacy goes far beyond**\
-`The U.S. snowboarder has reached the Paralympic pinnacle. But it's his other job that will leave a lasting mark on para sports.`\
-https://nytimes.com/athletic/7113551/2026/03/13/mike-schultz-paralympics-snowboarding-biodapt-prosthetics/
-
-**Mammoth fan who taunted Connor Bedard then drew his ire: 'I kinda deserved it'**\
-`“I thought it was funny,” Bedard said, who was feeling feisty throughout the Blackhawks’ 3-2 victory over Utah on Thursday.`\
-https://nytimes.com/athletic/7114441/2026/03/13/connor-bedard-blackhawks-mammoth-goal-fan/
-
-**The New York Times in Print for Friday, March 13, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/13/todays-new-york-times
 
