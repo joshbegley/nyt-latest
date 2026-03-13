@@ -1,3 +1,7 @@
+**After DOGE Deposition Videos Go Viral, Judge Orders Them Taken Down**\
+`The videos had been posted on YouTube by groups who were suing to restore grants cut by Elon Musk’s Department of Government Efficiency.`\
+https://nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html
+
 **Late-Winter Storm Set to Slam Upper Midwest This Weekend**\
 `The storm could be one of the strongest on record for parts of Minnesota and Wisconsin.`\
 https://nytimes.com/2026/03/13/weather/wisconsin-minnesota-snow-winter-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
 **Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
 `The teacher’s relatives said they supported “getting the charges dropped for all involved” after a student prank led to his death last week in Georgia.`\
 https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.html
-
-**Justice Dept. Drops Prosecution of Veteran Who Burned American Flag**\
-`The veteran, Jay Carey, was arrested the same day that President Trump signed an executive order to punish flag burning, a First Amendment right.`\
-https://nytimes.com/2026/03/13/us/politics/veteran-flag-burning-case-dismissed.html
 

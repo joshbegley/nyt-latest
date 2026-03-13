@@ -1,3 +1,7 @@
+**Messi Meets With Trump, and Divides Argentina**\
+`Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
+https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
+
 **Late-Winter Storm Set to Slam Upper Midwest This Weekend**\
 `The storm could be one of the strongest on record for parts of Minnesota and Wisconsin.`\
 https://nytimes.com/2026/03/13/weather/wisconsin-minnesota-snow-winter-forecast.html
