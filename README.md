@@ -26,7 +26,7 @@ https://nytimes.com/2026/03/13/your-money/data-breach-tips.html
 `Wednesday's last-16 second leg at home to Newcastle comes as Hansi Flick ponders several tricky issues facing his squad`\
 https://nytimes.com/athletic/7114805/2026/03/13/barcelona-champions-league-flick-newcastle/
 
-**How it felt as Thunder fans processed Shai Gilgeous-Alexander passing Wilt's record**\
+**How it felt as Thunder fans processed SGA breaking Wilt's record**\
 `All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
 https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
 
