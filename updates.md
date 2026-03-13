@@ -1,3 +1,11 @@
+**Here’s What Happened in the War in the Middle East on Thursday**\
+`Iran’s new supreme leader delivered a forceful message in his first public statement since succeeding his slain father, as the Israeli military bombarded Tehran and the Lebanese capital with strikes.`\
+https://nytimes.com/2026/03/12/world/middleeast/iran-war-middle-east-beirut-recap.html
+
+**Braiden Ward channels Rickey Henderson, Connelly Early likely to start in Triple A**\
+`Ward set a spring training record with his 17th steal, while Alex Cora hopes Early and Payton Tolle will "become monsters."`\
+https://nytimes.com/athletic/7113152/2026/03/12/red-sox-spring-training-braiden-ward-stolen-bases-connelly-early/
+
 **What We Know About the Synagogue Attack in Michigan**\
 `The attacker who drove into Temple Israel in West Bloomfield Township is dead, but officials have not yet provided an identity or a motive. No one else was killed.`\
 https://nytimes.com/2026/03/12/us/michigan-synagogue-shooting-temple-israel.html
