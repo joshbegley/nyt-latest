@@ -1,3 +1,19 @@
+**Coalition of States Will Carry on Live Nation Antitrust Case**\
+`The federal government has settled its claims, but dozens of states on Monday will resume a trial that accuses the company of being a monopoly.`\
+https://nytimes.com/2026/03/13/arts/music/live-nation-ticketmaster-antitrust-case-states.html
+
+**Kennedy Center’s President Is Leaving After Tumultuous Year**\
+`Since Richard Grenell was appointed by President Trump, the arts center has endured a wave of cancellations and departures. It will soon close for lengthy renovations.`\
+https://nytimes.com/2026/03/13/arts/kennedy-center-richard-grenell.html
+
+**These Hotels Are Made for Walking**\
+`Five luxury retreats around the world with hiking and cycling trails that start right at your doorstep.`\
+https://nytimes.com/2026/03/13/t-magazine/hiking-trails-hotels.html
+
+**Tottenham working on potential options to replace head coach Tudor**\
+`The 27-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
+https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
+
 **Tottenham working on potential options to replace interim head coach Tudor**\
 `The 27-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
 https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/

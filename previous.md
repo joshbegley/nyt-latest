@@ -1,4 +1,16 @@
-**Tottenham working on potential options to replace interim head coach Tudor**\
+**Coalition of States Will Carry on Live Nation Antitrust Case**\
+`The federal government has settled its claims, but dozens of states on Monday will resume a trial that accuses the company of being a monopoly.`\
+https://nytimes.com/2026/03/13/arts/music/live-nation-ticketmaster-antitrust-case-states.html
+
+**Kennedy Center’s President Is Leaving After Tumultuous Year**\
+`Since Richard Grenell was appointed by President Trump, the arts center has endured a wave of cancellations and departures. It will soon close for lengthy renovations.`\
+https://nytimes.com/2026/03/13/arts/kennedy-center-richard-grenell.html
+
+**These Hotels Are Made for Walking**\
+`Five luxury retreats around the world with hiking and cycling trails that start right at your doorstep.`\
+https://nytimes.com/2026/03/13/t-magazine/hiking-trails-hotels.html
+
+**Tottenham working on potential options to replace head coach Tudor**\
 `The 27-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
 https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7116437/2026/03/13/usmnt-james-sands-ankle-surgery/
 **Britain warns its citizens in Dubai they could be jailed for sharing photos of damage from airstrikes.**\
 `By Lizzie Dearden`\
 https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/britain-warns-its-citizens-in-dubai-they-could-be-jailed-for-sharing-photos-of-damage-from-airstrikes
-
-**Margareta Magnusson, Who Popularized Swedish Death Cleaning, Dies at 91**\
-`Her best-selling book on the subject encouraged the world to tidy up homes and lives as death approached — as a gift for loved ones and to revisit memories.`\
-https://nytimes.com/2026/03/13/books/margareta-magnusson-dead.html
-
-**Travis Etienne Jr. reveals the correct way to pronounce his last name**\
-`In his first news conference since signing with the Saints, running back says his name is pronounced "A-chan," not "ee-tee-en."`\
-https://nytimes.com/athletic/7116252/2026/03/13/travis-etienne-jr-name-pronunciation/
-
-**Me, Myself and My A.I. Sloppelgänger**\
-`Grammarly made a deepfake of my mind. I’m fighting back.`\
-https://nytimes.com/2026/03/13/opinion/ai-doppelganger-deepfake-grammarly.html
 
