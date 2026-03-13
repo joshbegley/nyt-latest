@@ -1,3 +1,15 @@
+**‘The Pitt’ Season 2, Episode 10 Recap: Invisible String**\
+`Family ties bind the characters together in this week’s episode, in ways both beautiful and suffocating.`\
+https://nytimes.com/2026/03/12/arts/television/the-pitt-recap-season-2-episode-10.html
+
+**One Way to Start**\
+`James McCarron and Rachel Souza open our solving weekend.`\
+https://nytimes.com/2026/03/12/crosswords/daily-puzzle-2026-03-13.html
+
+**Oil Prices Barely Budge After Trump Lifts Russia Sanctions**\
+`After surging about 10 percent on Thursday, oil prices had little reaction to the decision by President Trump to waive sanctions on the sale of some Russian crude.`\
+https://nytimes.com/2026/03/12/business/oil-stock-gas-markets-iran.html
+
 **Trump Removes Sanctions on Russia to Help Oil Flow Amid Iran Conflict**\
 `Treasury Secretary Scott Bessent said it was “unfortunate” that the move could benefit Russia, but maintained that it was only for the short term.`\
 https://nytimes.com/2026/03/12/us/politics/trump-russia-oil-sanctions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/12/world/americas/cuba-prisoner-release-trump-oil-bl
 **Auston Matthews injured, Radko Gudas ejected after knee-on-knee hit**\
 `Gudas was given a five-minute major for kneeing and a game misconduct for the play, after which Matthews had to be helped off the ice.`\
 https://nytimes.com/athletic/7113834/2026/03/12/auston-matthews-injury-radko-gudas-ejection-leafs/
-
-**F.B.I. Investigating Synagogue Attack as ‘Targeted Act of Violence’**\
-`A driver rammed a vehicle into a synagogue outside Detroit on Thursday. Authorities are investigating the attacker’s motive.`\
-https://nytimes.com/video/us/100000010772519/michigan-synagogue-attack.html
-
-**Red Sox, lefty reliever Danny Coulombe in agreement on 1-year deal**\
-`To make room for Coulombe on the roster, the Red Sox moved Romy Gonzalez to the 60-day injured list.`\
-https://nytimes.com/athletic/7113686/2026/03/12/boston-red-sox-danny-coulombe-deal/
-
-**University Shooting Being Investigated as an Act of Terrorism, Officials Say**\
-`The authorities are investigating the shooting at Old Dominion University in Norfolk, Va., as an act of terrorism.`\
-https://nytimes.com/video/us/100000010773103/old-dominion-university-shooting-virginia.html
 
