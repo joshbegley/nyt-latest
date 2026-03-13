@@ -1,9 +1,25 @@
+**Sabres thoughts: Luke Schenn's debut, Alex Tuch's injury and a rare Buffalo loss**\
+`The Sabres had been riding high since the Olympic break but lost 2-1 to the Capitals on Thursday night.`\
+https://nytimes.com/athletic/7114269/2026/03/13/sabres-lose-capitals-thoughts-luke-schenn-alex-tuch/
+
+**What I'm Seeing At Dodgers Camp: Blake Snell's timeline, Shohei's build-up and more**\
+`Justin Wrobleski remains encouraged by his early success with cutter; Zach Ehrhard reflects on lessons from Wade Boggs.`\
+https://nytimes.com/athletic/7114119/2026/03/13/dodgers-blake-snell-shohei-ohtani/
+
+**What to Do if You’re a Data Breach Victim (and You Probably Are)**\
+`Data incidents have become so common that you may be tempted to throw away notification letters. Don’t do that, experts say.`\
+https://nytimes.com/2026/03/13/your-money/data-breach-tips.html
+
+**Barcelona look tired. With Champions League hopes on the line, it's not their only problem**\
+`Wednesday's last-16 second leg at home to Newcastle comes as Hansi Flick ponders several tricky issues facing his squad`\
+https://nytimes.com/athletic/7114805/2026/03/13/barcelona-champions-league-flick-newcastle/
+
 **How it felt as Thunder fans processed Shai Gilgeous-Alexander passing Wilt's record**\
 `All SGA ever wanted was to win for the Thunder faithful. He came away accomplishing so much more.`\
 https://nytimes.com/athletic/7115007/2026/03/13/shai-gilgeous-alexander-wilt-record-thunder-fans/
 
 **Consumer Prices Rose in January, Before Iran War Added Price Pressures**\
-`The Federal Reserve’s preferred gauge for inflation increased 2.8 percent annually and economists expect another bump in prices in the near-term.`\
+`The economy also grew more slowly at the end of 2025 than first thought, revised data showed.`\
 https://nytimes.com/2026/03/13/business/economy/consumer-prices-inflation-pce-february.html
 
 **VJ Edgecombe has star potential. The 76ers need him to speed up his timeline**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7114721/2026/03/13/fantasy-premier-league-fpl-tips-
 **Seeking Any Edge, BTS Fans Hunt for Tickets From Seoul’s Internet Cafes**\
 `The K-pop supergroup’s upcoming reunion concert prompted a rush for the cafes, which offer solid connections and a sense of community.`\
 https://nytimes.com/2026/03/13/world/asia/bts-concert-tickets-internet-cafes-south-korea.html
-
-**How Have Pets Made Your Life Better?**\
-`Research suggests dogs and other pets keep you healthier and living longer. How has caring for an animal made a positive impact on you?`\
-https://nytimes.com/2026/03/13/learning/how-have-pets-made-your-life-better.html
-
-**Partey indicates he is likely to plead not guilty to two most recent rape charges**\
-`The former Arsenal midfielder, now at Villarreal, did not attend Friday's hearing at Westminster Magistrates' Court.`\
-https://nytimes.com/athletic/7111254/2026/03/13/thomas-partey-plea-hearing-arsenal-villarreal/
-
-**Did the Maple Leafs’ response to Auston Matthews’ injury come too late?**\
-`'When your captain goes down like that on a dirty play, you have to respond as a group.'`\
-https://nytimes.com/athletic/7114224/2026/03/13/maple-leafs-auston-matthews-injury-response/
-
-**Cuban President Acknowledges Talks with the Trump Administration**\
-`Facing a massive energy crisis and increasing protests on the streets, the Cuban government acknowledged that it had entered into negotiations with the Trump administration.`\
-https://nytimes.com/2026/03/13/world/americas/cuba-us-talks-trump-oil.html
 
