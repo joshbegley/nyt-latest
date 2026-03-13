@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By John Yoon and Adam Rasgon`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/heres-the-latest
+
+**Iran War Live Updates: Israel Targets Hezbollah in Beirut as Strikes Hit City Center**\
+`The attacks heightened fears that the war was expanding beyond Hezbollah’s traditional strongholds into parts of Beirut once considered comparatively safe. New strikes were also reported in Iran, Iraq and Israel.`\
+https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel
+
 **New Jersey Is Reconsidering Legalizing Casinos Outside Atlantic City**\
 `Legislation has been introduced to authorize two new casinos at the Meadowlands and Monmouth Park racetracks to compete against the three new casinos planned for New York City.`\
 https://nytimes.com/2026/03/13/nyregion/casinos-new-jersey-meadowlands.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7113831/2026/03/13/nottingham-forest-premier-league
 **Word of the Day: malevolent**\
 `This word has appeared in 85 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/13/learning/word-of-the-day-malevolent.html
-
-**Indian Kitchens Face Fuel Shortage From War in Middle East**\
-`The fuel that powers Indian kitchens has been harder to get since the start of the war, which effectively shut a critical shipping lane for gas imports that India’s population relies on.`\
-https://nytimes.com/video/business/100000010773720/india-cooking-gas-middle-east.html
-
-**FPL planning and the added dimension of European ties**\
-`With key European round-of-16 ties sandwiched between the next two Fantasy Premier League gameweeks, how should managers prepare?`\
-https://nytimes.com/athletic/7107426/2026/03/13/fantasy-premier-league-gameweek-30-fpl-tips-champions-league/
 
