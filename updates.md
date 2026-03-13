@@ -1,3 +1,19 @@
+**‘One Battle After Another’ Is Just a Movie. Resistance Is Real.**\
+`Readers respond to a guest essay about the Paul Thomas Anderson movie “One Battle After Another” by the daughter of two Weatherman. Also: Will we be around to unearth a time capsule?`\
+https://nytimes.com/2026/03/13/opinion/one-battle-movie-weathermen.html
+
+**Lewis E. Lehrman, Store Chain Heir Who Ran for N.Y. Governor, Dies at 87**\
+`After helping his family’s Rite-Aid drugstore empire flourish, he waged surprisingly close but losing race as a Reagan Republican against Mario Cuomo in 1982.`\
+https://nytimes.com/2026/03/13/nyregion/lewis-e-lehrman-dead.html
+
+**‘A Very Big Hurdle:’ Trump Softens Call for Protesters to Take Over Iran**\
+`President Trump said protesters risk getting shot “right through the head,” a change in tone from his earlier comments that Iranians must seize the chance to take over their government.`\
+https://nytimes.com/2026/03/13/world/middleeast/a-very-big-hurdle-trump-softens-call-for-protesters-to-take-over-iran.html
+
+**A Pastry-Centric Tea Party That Ended With McDonald’s**\
+`The writer and baker Tanya Bush celebrated her new narrative cookbook with homemade treats and a silver platter of fries.`\
+https://nytimes.com/2026/03/13/t-magazine/tanya-bush-tea-party.html
+
 **Until Saturday: 68-team college football bracket**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7116032/2026/03/13/college-football-68-team-bracket-until-saturday/
