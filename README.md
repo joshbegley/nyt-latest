@@ -15,7 +15,7 @@ https://nytimes.com/2026/03/13/arts/kennedy-center-richard-grenell.html
 https://nytimes.com/2026/03/13/t-magazine/hiking-trails-hotels.html
 
 **Tottenham working on potential options to replace head coach Tudor**\
-`The 27-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
+`The 47-year-old was appointed last month on a deal until the end of this season after Thomas Frank’s sacking.`\
 https://nytimes.com/athletic/7116490/2026/03/13/tottenham-igor-tudor-replace-options/
 
 **Lauren James signs new Chelsea contract until 2030**\

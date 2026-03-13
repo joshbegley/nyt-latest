@@ -1,3 +1,7 @@
+**Commanders sign free-agent receivers Dyami Brown and Van Jefferson**\
+`The Commanders are bringing back former receiver Dyami Brown and adding 2020 second-round draft pick Van Jefferson.`\
+https://nytimes.com/athletic/7116469/2026/03/13/dyami-brown-van-jefferson-commanders-nfl-free-agency-2026/
+
 **Coalition of States Will Carry on Live Nation Antitrust Case**\
 `The federal government has settled its claims, but dozens of states on Monday will resume a trial that accuses the company of being a monopoly.`\
 https://nytimes.com/2026/03/13/arts/music/live-nation-ticketmaster-antitrust-case-states.html
