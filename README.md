@@ -1,3 +1,7 @@
+**Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
+`Lt. Col. Brandon Shah flew hundreds of combat missions as a war-zone helicopter pilot before being shot and killed in his Old Dominion University classroom by a radicalized military veteran.`\
+https://nytimes.com/2026/03/13/us/before-deadly-attack-the-parallel-lives-of-2-soldiers-diverged.html
+
 **After DOGE Deposition Videos Go Viral, Judge Orders Them Taken Down**\
 `The videos had been posted on YouTube by groups who were suing to restore grants cut by Elon Musk’s Department of Government Efficiency.`\
 https://nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116681/2026/03/13/world-baseball-classic-united-st
 **Chemical Smell at Control Center Halts Traffic at Washington and Baltimore Airports**\
 `The ground stops, which also affected the airport serving Richmond, Va., were expected to last until at least 8 p.m., according to the F.A.A., which said the smell had affected air traffic controllers.`\
 https://nytimes.com/2026/03/13/us/airports-ground-stop-dc-baltimore.html
-
-**Charges Dropped Against Teenagers Whose Teacher Died in Prank Gone Wrong**\
-`The teacher’s relatives said they supported “getting the charges dropped for all involved” after a student prank led to his death last week in Georgia.`\
-https://nytimes.com/2026/03/13/us/georgia-teacher-killed-prank-charges-dropped.html
 
