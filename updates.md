@@ -1,3 +1,7 @@
+**A Messi Political Debate**\
+`Lionel Messi, the Argentine soccer star, accompanied his team, Inter Miami, to the White House. The event turned into political dynamite back in Argentina.`\
+https://nytimes.com/2026/03/13/world/americas/argentina-soccer-messi-trump.html
+
 **The Fall of Noma’s Chef Reverberates in the Restaurant World**\
 `In the industry where René Redzepi reigned, fellow chefs are debating how, and how much, restaurant kitchens can change.`\
 https://nytimes.com/2026/03/13/dining/rene-redzepi-noma-chef-reaction.html
