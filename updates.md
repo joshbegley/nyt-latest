@@ -1,3 +1,7 @@
+**How to watch New Mexico vs. San Diego State men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the New Mexico Lobos play the San Diego State Aztecs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116707/2026/03/13/new-mexico-vs-san-diego-state-stream-how-to-watch-march-14/
+
 **Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
 `Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
 https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html

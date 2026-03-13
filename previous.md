@@ -1,3 +1,7 @@
+**How to watch New Mexico vs. San Diego State men's basketball: MWC Tournament Time, TV, streaming**\
+`Find out how to watch the New Mexico Lobos play the San Diego State Aztecs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7116707/2026/03/13/new-mexico-vs-san-diego-state-stream-how-to-watch-march-14/
+
 **Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
 `Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
 https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/arts/music/live-nation-ticketmaster-antitrust-cas
 **Kennedy Center’s President Is Leaving After Tumultuous Year**\
 `Since Richard Grenell was appointed by President Trump, the arts center has endured a wave of cancellations and departures. It will soon close for lengthy renovations.`\
 https://nytimes.com/2026/03/13/arts/kennedy-center-richard-grenell.html
-
-**These Hotels Are Made for Walking**\
-`Five luxury retreats around the world with hiking and cycling trails that start right at your doorstep.`\
-https://nytimes.com/2026/03/13/t-magazine/hiking-trails-hotels.html
 
