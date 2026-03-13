@@ -1,3 +1,7 @@
+**How a college football team ended up with two different schedules for 2026**\
+`Both CUSA and the Sun Belt have listed the Louisiana Tech Bulldogs as playing eight games within their conferences this fall.`\
+https://nytimes.com/athletic/7116442/2026/03/13/louisiana-tech-cusa-sun-belt-schedule-lawsuit/
+
 **A New Trump Envoy Stirs Fears of U.S. Interference in Brazil’s Elections**\
 `Darren Beattie, the U.S. policy adviser on Brazil, planned to visit former President Jair Bolsonaro in prison and meet his son, who is also seeking the presidency.`\
 https://nytimes.com/2026/03/13/world/middleeast/brazil-election-darren-beattie-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/obituaries/candy-land-creator-eleanor-abbott.html
 **Are You Using A.I. at Work? We Want to Hear From You.**\
 `Please tell us how you’re using A.I. tools to fulfill your job responsibilities. We may include your experiences in an article.`\
 https://nytimes.com/2026/03/13/business/how-you-use-ai-at-work.html
-
-**How to watch Utah Tech vs. Cal Baptist men's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Utah Tech Trailblazers play the Cal Baptist Lancers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7116424/2026/03/13/utah-tech-vs-cal-baptist-stream-how-to-watch-march-13/
 
