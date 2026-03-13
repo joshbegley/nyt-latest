@@ -1,3 +1,7 @@
+**K-State to hire Belmont's Casey Alexander as men's basketball coach: Source**\
+`Alexander led Belmont to the Missouri Valley regular-season championship this season. He'll replace Jerome Tang, who was fired last month.`\
+https://nytimes.com/athletic/7114202/2026/03/12/kansas-state-to-hire-casey-alexander-belmont-basketball/
+
 **Canada to Expand Military Presence in Arctic, Following Trump Threats**\
 `Prime Minister Mark Carney said Canada would build three bases in the region. The government also plans to improve infrastructure and airports in the north.`\
 https://nytimes.com/2026/03/12/world/canada/canada-military-arctic-trump.html
