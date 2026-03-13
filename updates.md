@@ -1,3 +1,11 @@
+**Mamdani Describes ‘Isolation’ and ‘Loneliness’ After Anti-Muslim Attacks**\
+`Mayor Zohran Mamdani responded to Islamophobic comments from Senator Tommy Tuberville and a Texas congressman, saying they were dehumanizing Muslims.`\
+https://nytimes.com/2026/03/13/nyregion/mamdani-islamophobia-iftar-speech.html
+
+**Falcons agree to deal with veteran DT Da'Shawn Hand: Source**\
+`Hand started a career-high 13 games last season and also had personal bests in QB hits and tackles for losses.`\
+https://nytimes.com/athletic/7115607/2026/03/13/falcons-dashawn-hand-nfl-free-agency-2026/
+
 **Bobby Douglas, Pathbreaking Olympic Wrestler, Dies at 83**\
 `In 1964, he was one of the first three African Americans to compete in wrestling at the Games. He went on to have a distinguished coaching career.`\
 https://nytimes.com/2026/03/13/sports/bobby-douglas-dead.html
