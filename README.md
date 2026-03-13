@@ -1,3 +1,7 @@
+**TAFC: What do people in the game think of Arsenal? Plus: Latest twists in Iran's World Cup future**\
+`Today in TAFC: What do people in the game really think about Arsenal? Plus: Trump has his say on Iran at the World Cup.`\
+https://nytimes.com/athletic/7114713/2026/03/13/arsenal-views-iran-future-trump-world-cup/
+
 **Bubble Watch: Why Miami (Ohio) should feel safe and Auburn should not**\
 `The teams that are still playing in conference tournaments have a massive chance to differentiate themselves.`\
 https://nytimes.com/athletic/7113335/2026/03/13/mens-ncaa-tournament-bubble-watch-miami-ohio-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7109995/2026/03/13/sacramento-state-football-mac-pr
 **State of the Blues, Part 2: Tom Stillman on Alexander Steen, team spending and fan loyalty**\
 `Stillman spoke about the growth of incoming GM Steen, spending with a rising salary cap and his message to fans who have stuck by the team.`\
 https://nytimes.com/athletic/7108780/2026/03/13/blues-tom-stillman-alexander-steen-team-fans/
-
-**Chicago Cubs 2026 watch guide: Broadcast updates on Marquee, NBC, ABC and more**\
-`You already know how to "Fly the W" and hit the Harry Caray vocal register. Now, here's how to keep up with Cubs telecast changes.`\
-https://nytimes.com/athletic/7092382/2026/03/13/chicago-cubs-marquee-alex-bregman-2026-how-to-watch/
 
