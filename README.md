@@ -1,3 +1,7 @@
+**Commanders sign free-agent receivers Dyami Brown and Van Jefferson**\
+`The Commanders are bringing back former receiver Dyami Brown and adding 2020 second-round draft pick Van Jefferson.`\
+https://nytimes.com/athletic/7116469/2026/03/13/dyami-brown-van-jefferson-commanders-nfl-free-agency-2026/
+
 **Coalition of States Will Carry on Live Nation Antitrust Case**\
 `The federal government has settled its claims, but dozens of states on Monday will resume a trial that accuses the company of being a monopoly.`\
 https://nytimes.com/2026/03/13/arts/music/live-nation-ticketmaster-antitrust-case-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/brazil-election-darren-beattie-t
 **USMNT midfielder James Sands requires ankle surgery, ruled out for season**\
 `The 25-year old's injury casts doubt on his availability for this summer's World Cup.`\
 https://nytimes.com/athletic/7116437/2026/03/13/usmnt-james-sands-ankle-surgery/
-
-**Britain warns its citizens in Dubai they could be jailed for sharing photos of damage from airstrikes.**\
-`By Lizzie Dearden`\
-https://nytimes.com/live/2026/03/13/world/iran-war-trump-oil-israel/britain-warns-its-citizens-in-dubai-they-could-be-jailed-for-sharing-photos-of-damage-from-airstrikes
 
