@@ -1,3 +1,7 @@
+**Late Night Unwraps ‘War’ vs. ‘Excursion’ vs. ‘Both’**\
+`The “Late Night” host Seth Meyers said President Trump is letting Americans “choose your own adventure” in the war with Iran.`\
+https://nytimes.com/2026/03/13/arts/television/late-night-war-excursion-both.html
+
 **Nottingham Forest are still alive in the Europa League but Premier League survival must be the priority**\
 `Nottingham Forest have great memories of European nights but the harsh reality is staying in the Premier League is now more important`\
 https://nytimes.com/athletic/7113831/2026/03/13/nottingham-forest-premier-league-priority/
