@@ -1,3 +1,7 @@
+**Vanderbilt’s Chandler Bing has a stingy game to go with a Friend-ly name**\
+`And just like that, we’re on a break. From the usual basketball stuff.`\
+https://nytimes.com/athletic/7117543/2026/03/14/vanderbilt-chandler-bing-friends-tv-show/
+
 **How to watch Northern Iowa vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Northern Iowa Panthers play the Murray State Racers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117569/2026/03/14/northern-iowa-vs-murray-state-stream-how-to-watch-march-14/
