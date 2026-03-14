@@ -1,3 +1,11 @@
+**How to watch Ducks vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117492/2026/03/14/ducks-vs-senators-stream-how-to-watch-march-14/
+
+**JB Pritzker Wants to Be Judged on His Heart, Not His Money**\
+`The governor of Illinois and Trump antagonist has become a national figure for Democrats. Where will that lead?`\
+https://nytimes.com/2026/03/14/magazine/jb-pritzker-interview.html
+
 **How to watch Nets vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117483/2026/03/14/nets-vs-76ers-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/14/business/address-change-medicare-coverage.html
 **Tips to Avoid Becoming the ‘Dead Wife in a Movie’ Trope**\
 `You can’t win an Oscar if your death in Act I becomes your husband’s entire character arc. Our cartoonist has some plot-worthy ideas.`\
 https://nytimes.com/2026/03/14/arts/dead-wife-movie-trope-sketchpad.html
-
-**Is Latin America Ready to Abandon Cuba?**\
-`Latin America’s left saw Cuba as its lodestar. Now leaders across the spectrum are hesitant to aid a nation in the Trump administration’s cross hairs.`\
-https://nytimes.com/2026/03/14/world/americas/cuba-support-latin-america-conservative.html
-
-**Tim Kaine Is Forcing the Iran War Debate From the Minority**\
-`Senator Tim Kaine, Democrat of Virginia, has found a way to repeatedly occupy floor time and force all senators to take votes challenging President Trump’s use of military force.`\
-https://nytimes.com/2026/03/14/us/politics/tim-kaine-iran-war-congress.html
 
