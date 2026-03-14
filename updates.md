@@ -1,3 +1,7 @@
+**Sandstorm Batters Gaza, Destroying Makeshift Shelters**\
+`A sandstorm swept across the Gaza Strip on Saturday. Millions of displaced people remain there without proper shelter amid the Israel-Hamas war.`\
+https://nytimes.com/video/world/middleeast/100000010776578/gaza-sandstorm-shelters-israel-hamas-war.html
+
 **Arteta calls Dowman's record-breaking goal 'one of the best moments'**\
 `The 16-year-old became the youngest-ever Premier League goalscorer after a solo run in stoppage time against Everton. `\
 https://nytimes.com/athletic/7118502/2026/03/14/max-dowman-arsenal-premier-league-record-arteta/
