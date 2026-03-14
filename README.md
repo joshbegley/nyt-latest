@@ -1,3 +1,11 @@
+**How to watch Hawaii vs. UCSD women's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Wahine play the UCSD Tritons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-watch-march-14/
+
+**Is There Method to Trump’s Madness?**\
+`Don’t hold your breath.`\
+https://nytimes.com/2026/03/14/opinion/is-there-method-to-trumps-madness.html
+
 **How to watch Sharks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117945/2026/03/14/sharks-vs-canadiens-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7117454/2026/03/14/portland-thorns-nwsl-sophia-wils
 **How to watch Wizards vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Washington Wizards play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117885/2026/03/14/wizards-vs-celtics-stream-how-to-watch-march-14/
-
-**Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
-`Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m. (ET).`\
-https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
-
-**We Got Wolfgang Puck’s Chicken Potpie Recipe**\
-`When eaten on the couch in your pajamas, it makes for a very nice Oscars night.`\
-https://nytimes.com/2026/03/14/dining/we-got-wolfgang-pucks-chicken-potpie-recipe.html
 
