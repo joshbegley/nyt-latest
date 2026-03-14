@@ -1,3 +1,8 @@
+**Live Q&A: Talk Blue Jays with reporter Mitch Bannon at 10:30 a.m. ET on Monday**\
+`<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
+`\
+https://nytimes.com/athletic/7118827/2026/03/14/blue-jays-live-mitch-bannon/
+
 **History Course**\
 `Miranda Kany whips up a Sunday puzzle for the ages.`\
 https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
@@ -33,8 +38,4 @@ https://nytimes.com/2026/03/14/us/lily-collins-engagement-ring-found.html
 **The Briefing: West Ham 1 Man City 1 – Is the title race over?**\
 `Dissecting the major talking points from Saturday's big Premier League match at the London Stadium`\
 https://nytimes.com/athletic/7111106/2026/03/14/west-ham-manchester-city-result-analysis/
-
-**How to watch Cal Baptist vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
-`Find out how to watch the Cal Baptist Lancers play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118722/2026/03/14/cal-baptist-vs-utah-valley-stream-how-to-watch-march-15/
 
