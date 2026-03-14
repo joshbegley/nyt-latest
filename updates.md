@@ -1,3 +1,7 @@
+**Blast at Dutch School Is 2nd Antisemitic Attack in 2 Days, Officials Say**\
+`No one was hurt in the explosion at a Jewish school in Amsterdam, or in an earlier one at a Rotterdam synagogue.`\
+https://nytimes.com/2026/03/14/world/europe/amsterdam-rotterdam-antisemitic-attacks.html
+
 **Rosenthal: Team USA hoping Paul Skenes can silence mighty bats of Dominican Republic**\
 `The Dominican Republic has been dominant in the WBC and would be overwhelming favorites in Sunday's semifinal if not for Paul Skenes.`\
 https://nytimes.com/athletic/7117587/2026/03/14/wbc-paul-skenes-usa-dominican-republic/

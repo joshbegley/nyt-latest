@@ -1,3 +1,7 @@
+**Blast at Dutch School Is 2nd Antisemitic Attack in 2 Days, Officials Say**\
+`No one was hurt in the explosion at a Jewish school in Amsterdam, or in an earlier one at a Rotterdam synagogue.`\
+https://nytimes.com/2026/03/14/world/europe/amsterdam-rotterdam-antisemitic-attacks.html
+
 **Rosenthal: Team USA hoping Paul Skenes can silence mighty bats of Dominican Republic**\
 `The Dominican Republic has been dominant in the WBC and would be overwhelming favorites in Sunday's semifinal if not for Paul Skenes.`\
 https://nytimes.com/athletic/7117587/2026/03/14/wbc-paul-skenes-usa-dominican-republic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117584/2026/03/14/purdue-vs-ucla-stream-how-to-wat
 **How to watch Charlotte vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the Charlotte 49ers play the South Florida Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117579/2026/03/14/charlotte-vs-south-florida-stream-how-to-watch-march-14/
-
-**Vanderbilt’s Chandler Bing has a stingy game to go with a Friend-ly name**\
-`And just like that, we’re on a break. From the usual basketball stuff.`\
-https://nytimes.com/athletic/7117543/2026/03/14/vanderbilt-chandler-bing-friends-tv-show/
 
