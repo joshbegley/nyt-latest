@@ -1,3 +1,7 @@
+**The Pulse: Team USA survives itself**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7117344/2026/03/14/team-usa-survives-itself-plus-the-fallout-from-a-nasty-hit/
+
 **Men's NCAA Tournament Bracket Watch: Iowa State, Wisconsin move up but New Mexico misses out**\
 `Our penultimate Bracket Watch of the season is here — and there's plenty of movement in our latest projection.`\
 https://nytimes.com/athletic/7117531/2026/03/14/march-madness-2026-bracketology-prediction-new-mexico-iowa-state/
