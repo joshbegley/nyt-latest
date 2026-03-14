@@ -1,3 +1,11 @@
+**How to watch Hawaii vs. UC Irvine men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118511/2026/03/14/hawaii-vs-uc-irvine-stream-how-to-watch-march-14/
+
+**The Briefing: Chelsea 0 Newcastle 1 - Hosts run aground on resilient visitors as referee is caught in the middle**\
+`Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
+https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
+
 **The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness as referee is caught in the middle**\
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
 https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/

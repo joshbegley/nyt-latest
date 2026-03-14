@@ -1,4 +1,8 @@
-**The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness as referee is caught in the middle**\
+**How to watch Hawaii vs. UC Irvine men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118511/2026/03/14/hawaii-vs-uc-irvine-stream-how-to-watch-march-14/
+
+**The Briefing: Chelsea 0 Newcastle 1 - Hosts run aground on resilient visitors as referee is caught in the middle**\
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
 https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/14/nyregion/new-york-trooper-guilty-manslaughter-11-
 **Two Antisemitic Attacks in Two Days in the Netherlands Shake Residents**\
 `Explosive devices were set off at two Jewish institutions in the Netherlands within two days, Dutch officials said on Saturday, denouncing what they described as antisemitic attacks.`\
 https://nytimes.com/video/world/europe/100000010776569/netherlands-amsterdam-jewish-school-attack.html
-
-**Tehran Seems Largely Empty, as Many Flee and Others Weary of the Fighting**\
-`Residents say a heavy, lifeless atmosphere hangs over the streets of Iran’s capital, which has endured relentless attacks throughout the war.`\
-https://nytimes.com/2026/03/14/world/middleeast/tehran-empty-iran-strikes.html
 

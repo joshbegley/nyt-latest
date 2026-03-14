@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7118511/2026/03/14/hawaii-vs-uc-irvine-stream-how-t
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
 https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
 
-**The Briefing: Arsenal 2 Everton 0 - Max Dowman to the rescue: youngest scorer in Premier League history keeps title bid on track**\
+**The Briefing: Arsenal 2 Everton 0 – Max Dowman to the rescue: Youngest scorer in Premier League history keeps title bid on track**\
 `Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
 https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
 
