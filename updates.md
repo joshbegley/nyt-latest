@@ -1,3 +1,11 @@
+**How to watch Magic vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118155/2026/03/14/magic-vs-heat-stream-how-to-watch-march-14/
+
+**How to watch Nuggets vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118144/2026/03/14/nuggets-vs-lakers-stream-how-to-watch-march-14/
+
 **'My heart beats for this club': Wolfsburg's Popp to join Dortmund in summer**\
 `Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
 https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/

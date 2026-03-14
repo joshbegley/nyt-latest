@@ -1,3 +1,11 @@
+**How to watch Magic vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118155/2026/03/14/magic-vs-heat-stream-how-to-watch-march-14/
+
+**How to watch Nuggets vs. Lakers: Time, TV, streaming**\
+`Find out how to watch the Denver Nuggets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118144/2026/03/14/nuggets-vs-lakers-stream-how-to-watch-march-14/
+
 **John M. Perkins Dies at 95; Evangelical Minister Espoused Social Justice**\
 `Inspired by the Gospel, he helped create a national network of community-development ministries “styled on the life of Jesus, who had the greatest concern for the weakest of people.”`\
 https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118032/2026/03/14/uconn-vs-st-john-s-stream-how-to
 **How to watch San Diego State vs. Utah State men's basketball: MWC Tournament Time, TV, streaming**\
 `Find out how to watch the San Diego State Aztecs play the Utah State Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118018/2026/03/14/san-diego-state-vs-utah-state-stream-how-to-watch-march-14/
-
-**How to watch Prairie View A&M vs. Southern men's basketball: SWAC Tournament Time, TV, streaming**\
-`Find out how to watch the Prairie View A&M Panthers play the Southern Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118010/2026/03/14/prairie-view-a-m-vs-southern-stream-how-to-watch-march-14/
-
-**How to watch Hawaii vs. UCSD women's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the Hawaii Rainbow Wahine play the UCSD Tritons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-watch-march-14/
 
