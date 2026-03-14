@@ -1,3 +1,11 @@
+**The Players Championship Round 2: What to know as Ludvig Åberg surges to lead**\
+`Aberg leads Xander Schauffele by two shots at the top of the leaderboard, with the game's top two players both in the back of the pack.`\
+https://nytimes.com/athletic/7116988/2026/03/13/players-championship-2026-round-2-what-to-know-ludvig-aberg/
+
+**Arizona's Jaden Bradley hits buzzer-beater to sink Iowa State, reach Big 12 final**\
+`Arizona and Iowa State combined to make 11 of their final 13 shots in a thrilling finish.`\
+https://nytimes.com/athletic/7117057/2026/03/13/arizona-buzzer-beater-jaden-bradley-iowa-state-big-12-tournament/
+
 **Dominican Republic ties WBC HR record with walk-off blast that ousts Korea**\
 `The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
 https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
 **Wrexham hope to conquer the world. But first they want to rule Wales**\
 `Beating Swansea really mattered to Werxham and their fans, regardless of their Premier League ambitions`\
 https://nytimes.com/athletic/7110969/2026/03/13/wrexham-swansea-championship-result/
-
-**Trump’s War Alliance With Israel Is Reshaping the Middle East. But It Carries Risks.**\
-`President Trump is the first American leader to embrace fighting a full-fledged, joint war with Israel. Washington has tried to avoid that level of coordination in the past.`\
-https://nytimes.com/2026/03/13/us/politics/trumps-war-alliance-with-israel-is-reshaping-the-middle-east-but-it-carries-risks.html
-
-**Here’s What Happened in the War in the Middle East on Friday**\
-`Defense Secretary Pete Hegseth said Friday would be the most intense day of the U.S. air campaign in Iran as a vital oil supply route remained choked off.`\
-https://nytimes.com/2026/03/13/world/middleeast/iran-war-middle-east-recap.html
 
