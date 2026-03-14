@@ -1,3 +1,15 @@
+**TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
+`The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
+https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html
+
+**Sophia Wilson returns in first NWSL game since maternity leave**\
+`Wilson last played for the Thorns on Nov. 10, 2024`\
+https://nytimes.com/athletic/7116869/2026/03/13/sophia-wilson-returns-for-first-nwsl-game-since-taking-maternity-leave/
+
+**With Endorsement, Trump Clears Oklahoma Senate Path**\
+`The move, as other Republicans confirmed they would not run, all but assured Representative Kevin Hern would succeed Senator Markwayne Mullin.`\
+https://nytimes.com/2026/03/13/us/politics/oklahoma-senate-trump-endorsement.html
+
 **The 3.15.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/13/the-31526-issue
