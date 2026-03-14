@@ -1,3 +1,8 @@
+**Live Q&A: Talk Blue Jays with reporter Mitch Bannon at 10:30 a.m. ET on Monday**\
+`<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
+`\
+https://nytimes.com/athletic/7118827/2026/03/14/blue-jays-live-mitch-bannon/
+
 **History Course**\
 `Miranda Kany whips up a Sunday puzzle for the ages.`\
 https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
