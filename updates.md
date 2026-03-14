@@ -1,3 +1,15 @@
+**Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
+`Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m. (ET).`\
+https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
+
+**Notts County player sent off... for throwing away opponent's boot**\
+`The bizarre incident saw Oliver Norburn dismissed for throwing away Armando Dobra's boot during a League Two clash at Meadow Lane`\
+https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-throwing-boot/
+
+**Lobbyist Arrested in Extortion Attempt of Client Who Received a Trump Pardon**\
+`Josh Nass, a lawyer and lobbyist, had recently represented Joseph Schwartz, a former nursing home executive pardoned by the president late last year.`\
+https://nytimes.com/2026/03/14/us/lobbyist-who-helped-a-client-pursue-a-pardon-is-arrested-on-an-extortion-charge.html
+
 **The pieces are falling into place for Portland Thorns after a preseason of uncertainty**\
 `The arrival of head coach Robert Vilahamn and Sophia Wilson's return signal a new chapter for Portland`\
 https://nytimes.com/athletic/7117454/2026/03/14/portland-thorns-nwsl-sophia-wilson-oliva-moultrie/
