@@ -1,3 +1,23 @@
+**How to watch Ole Miss vs. Arkansas men's basketball: SEC Tournament Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117598/2026/03/14/ole-miss-vs-arkansas-stream-how-to-watch-march-14/
+
+**How to watch Pennsylvania vs. Harvard men's basketball: Ivy League Tournament Time, TV, streaming**\
+`Find out how to watch the Pennsylvania Quakers play the Harvard Crimson, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117595/2026/03/14/pennsylvania-vs-harvard-stream-how-to-watch-march-14/
+
+**How to watch Saint Joseph's (PA) vs. VCU men's basketball: A-10 Tournament Time, TV, streaming**\
+`Find out how to watch the Saint Joseph's (PA) Hawks play the VCU Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117593/2026/03/14/saint-joseph-s-pa-vs-vcu-stream-how-to-watch-march-14/
+
+**How to watch Purdue vs. UCLA men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117584/2026/03/14/purdue-vs-ucla-stream-how-to-watch-march-14/
+
+**How to watch Charlotte vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Charlotte 49ers play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117579/2026/03/14/charlotte-vs-south-florida-stream-how-to-watch-march-14/
+
 **Vanderbilt’s Chandler Bing has a stingy game to go with a Friend-ly name**\
 `And just like that, we’re on a break. From the usual basketball stuff.`\
 https://nytimes.com/athletic/7117543/2026/03/14/vanderbilt-chandler-bing-friends-tv-show/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7117565/2026/03/14/stony-brook-vs-charleston-sc-str
 **How to watch Bruins vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117553/2026/03/14/bruins-vs-capitals-stream-how-to-watch-march-14/
-
-**The Pulse: Team USA survives itself**\
-`Welcome to The Pulse, The Athletic's daily newsletter. `\
-https://nytimes.com/athletic/7117344/2026/03/14/team-usa-survives-itself-plus-the-fallout-from-a-nasty-hit/
-
-**Men's NCAA Tournament Bracket Watch: Iowa State, Wisconsin move up but New Mexico misses out**\
-`Our penultimate Bracket Watch of the season is here — and there's plenty of movement in our latest projection.`\
-https://nytimes.com/athletic/7117531/2026/03/14/march-madness-2026-bracketology-prediction-new-mexico-iowa-state/
-
-**Bubble Watch: Who is sweating out Selection Sunday Eve?**\
-`The number of bubble teams still playing is dwindling in dramatic fashion as Selection Sunday approaches.`\
-https://nytimes.com/athletic/7117202/2026/03/14/mens-ncaa-tournament-bubble-teams-bids/
-
-**How to watch Bucks vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117537/2026/03/14/bucks-vs-hawks-stream-how-to-watch-march-14/
-
-**What Trump Didn’t Know About Iran**\
-`Ali Vaez, the Iran project director at the International Crisis Group, explains the history of miscalculations that led to the war in Iran.`\
-https://nytimes.com/2026/03/14/opinion/ezra-klein-podcast-ali-vaez.html
 
