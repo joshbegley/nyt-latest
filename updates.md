@@ -1,3 +1,11 @@
+**Arteta calls Dowman's record-breaking goal 'one of the best moments'**\
+`The 16-year-old became the youngest-ever Premier League goalscorer after a solo run in stoppage time against Everton. `\
+https://nytimes.com/athletic/7118502/2026/03/14/max-dowman-arsenal-premier-league-record-arteta/
+
+**Oregon Waterfall Listed on a Real Estate Site Draws a State Offer**\
+`Lawmakers approved about $2 million to buy Abiqua Falls and surrounding land that had been advertised on the real estate site Redfin.`\
+https://nytimes.com/2026/03/14/us/oregon-lawmakers-buy-waterfall-for-sale.html
+
 **Rosenior criticises referee Tierney for interfering with Chelsea's huddle**\
 `The head coach said the ritual is to "respect the ball, show unity and leadership" and he was "disappointed" that Tierney didn't move away. `\
 https://nytimes.com/athletic/7118574/2026/03/14/liam-rosenior-chelsea-tierney-huddle/
