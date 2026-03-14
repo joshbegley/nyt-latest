@@ -1,3 +1,7 @@
+**Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
+`The man who rammed his truck into a Michigan synagogue on Thursday killed himself during a firefight with security guards, law enforcement officials said.`\
+https://nytimes.com/video/us/100000010775826/michigan-synagogue-attacker-update.html
+
 **Bosom Buddy**\
 `Kameron Austin Collins’s Saturday puzzle has tricks up its sleeve.`\
 https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html

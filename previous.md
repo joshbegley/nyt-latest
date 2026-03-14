@@ -1,3 +1,7 @@
+**Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
+`The man who rammed his truck into a Michigan synagogue on Thursday killed himself during a firefight with security guards, law enforcement officials said.`\
+https://nytimes.com/video/us/100000010775826/michigan-synagogue-attacker-update.html
+
 **Bosom Buddy**\
 `Kameron Austin Collins’s Saturday puzzle has tricks up its sleeve.`\
 https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-
 **Auston Matthews' agent blasts NHL for Radko Gudas suspension: 'Laughable and preposterous'**\
 `“The player safety department should be suspended,” Matthews' agent, Judd Moldaver, told The Athletic.`\
 https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-suspension-nhl-agent/
-
-**Where Iran Is Hitting Back**\
-`Iran is retaliating against the U.S. with strikes on American sites throughout the Middle East. Our reporter Eric Schmitt looks at the damage these attacks have caused and what they tell us about Iran’s strategy.`\
-https://nytimes.com/video/us/100000010767681/where-iran-is-hitting-back.html
 
