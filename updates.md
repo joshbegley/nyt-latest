@@ -1,3 +1,7 @@
+**Dominican Republic ties WBC home run record on Austin Wells' blast**\
+`The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
+https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
+
 **Auston Matthews' agent blasts NHL for Radko Gudas suspension: 'Laughable and preposterous'**\
 `“The player safety department should be suspended,” Matthews' agent, Judd Moldaver, told The Athletic.`\
 https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-suspension-nhl-agent/
