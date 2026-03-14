@@ -1,3 +1,11 @@
+**WNBA commissioner stresses urgency to get labor deal done as negotiations drag on**\
+`WNBA commissioner Cathy Engelbert told reporters the league needs to get a collective bargaining agreement in place by Monday.`\
+https://nytimes.com/athletic/7117251/2026/03/13/wnba-commissioner-stresses-urgency-to-get-labor-deal-done-as-negotiations-drag-on/
+
+**Trump Issues Executive Orders to Tackle Housing Supply, Demand**\
+`The orders could undermine bipartisan legislation the Senate passed earlier this week, the most significant housing package in decades.`\
+https://nytimes.com/2026/03/13/us/politics/trump-issues-housing-executive-orders.html
+
 **Final bids in Padres' sale process expected in April; 4 groups in running: Sources**\
 `MLB franchise could fetch a price that exceeds the record $2.42 billion Steve Cohen paid for the New York Mets in 2020.`\
 https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/

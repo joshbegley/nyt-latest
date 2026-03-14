@@ -1,3 +1,11 @@
+**WNBA commissioner stresses urgency to get labor deal done as negotiations drag on**\
+`WNBA commissioner Cathy Engelbert told reporters the league needs to get a collective bargaining agreement in place by Monday.`\
+https://nytimes.com/athletic/7117251/2026/03/13/wnba-commissioner-stresses-urgency-to-get-labor-deal-done-as-negotiations-drag-on/
+
+**Trump Issues Executive Orders to Tackle Housing Supply, Demand**\
+`The orders could undermine bipartisan legislation the Senate passed earlier this week, the most significant housing package in decades.`\
+https://nytimes.com/2026/03/13/us/politics/trump-issues-housing-executive-orders.html
+
 **Final bids in Padres' sale process expected in April; 4 groups in running: Sources**\
 `MLB franchise could fetch a price that exceeds the record $2.42 billion Steve Cohen paid for the New York Mets in 2020.`\
 https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-f
 **Sophia Wilson returns in first NWSL game since maternity leave**\
 `Wilson last played for the Thorns on Nov. 10, 2024`\
 https://nytimes.com/athletic/7116869/2026/03/13/sophia-wilson-returns-for-first-nwsl-game-since-taking-maternity-leave/
-
-**With Endorsement, Trump Clears Oklahoma Senate Path**\
-`The move, as other Republicans confirmed they would not run, all but assured Representative Kevin Hern would succeed Senator Markwayne Mullin.`\
-https://nytimes.com/2026/03/13/us/politics/oklahoma-senate-trump-endorsement.html
-
-**The 3.15.26 Issue**\
-``\
-https://nytimes.com/issue/magazine/2026/03/13/the-31526-issue
 
