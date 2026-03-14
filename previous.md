@@ -1,3 +1,11 @@
+**As WNBA negotiations drag, a look at women’s sports past labor disputes**\
+`The current WNBA contact dispute fits a historic trend of female athletes demanding better compensation and benefits across sports.`\
+https://nytimes.com/athletic/7117962/2026/03/14/wnba-contract-standoff-adds-to-history-of-womens-sports-labor-disputes/
+
+**How to watch UTSA vs. Rice women's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the UTSA Roadrunners play the Rice Owls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118228/2026/03/14/utsa-vs-rice-stream-how-to-watch-march-14/
+
 **How to watch Red Wings vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118210/2026/03/14/red-wings-vs-stars-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
 **Judge Rules Lawmaker Must Be Allowed to Join Kennedy Center Board Meeting**\
 `A judge ordered that Representative Joyce Beatty, a Democrat, be given access to planning documents and have the chance to oppose changes to the center at a board meeting next week.`\
 https://nytimes.com/2026/03/14/us/politics/kennedy-center-judge-order.html
-
-**'My heart beats for this club': Wolfsburg's Popp to join Dortmund in summer**\
-`Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
-https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/
-
-**Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**\
-`In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
-https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
 
