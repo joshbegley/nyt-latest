@@ -1,3 +1,7 @@
+**New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
+`The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
+https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
+
 **Wrexham hope to conquer the world. But first they want to rule Wales**\
 `Beating Swansea really mattered to Werxham and their fans, regardless of their Premier League ambitions`\
 https://nytimes.com/athletic/7110969/2026/03/13/wrexham-swansea-championship-result/

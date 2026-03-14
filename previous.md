@@ -1,3 +1,7 @@
+**New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
+`The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
+https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
+
 **Wrexham hope to conquer the world. But first they want to rule Wales**\
 `Beating Swansea really mattered to Werxham and their fans, regardless of their Premier League ambitions`\
 https://nytimes.com/athletic/7110969/2026/03/13/wrexham-swansea-championship-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/old-dominion-shooting-gunman-rotc.html
 **Auston Matthews out for season after knee-on-knee hit**\
 `The Maple Leafs captain sustained the injury after a nasty collision with Radko Gudas during the second period of Thursday’s 6-4 win.`\
 https://nytimes.com/athletic/7115718/2026/03/13/maple-leafs-auston-matthews-injury-knee/
-
-**Before Deadly Attack, the Parallel Lives of 2 Soldiers Diverged**\
-`Lt. Col. Brandon Shah flew hundreds of combat missions as a war-zone helicopter pilot before being shot and killed in his Old Dominion University classroom by a radicalized military veteran.`\
-https://nytimes.com/2026/03/13/us/old-dominion-shooting-suspect.html
 
