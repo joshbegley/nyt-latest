@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-watch-march-14/
+
 **How to watch Hornets vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117661/2026/03/14/hornets-vs-spurs-stream-how-to-watch-march-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117598/2026/03/14/ole-miss-vs-arkansas-stream-how-
 **How to watch Pennsylvania vs. Harvard men's basketball: Ivy League Tournament Time, TV, streaming**\
 `Find out how to watch the Pennsylvania Quakers play the Harvard Crimson, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117595/2026/03/14/pennsylvania-vs-harvard-stream-how-to-watch-march-14/
-
-**How to watch Saint Joseph's (PA) vs. VCU men's basketball: A-10 Tournament Time, TV, streaming**\
-`Find out how to watch the Saint Joseph's (PA) Hawks play the VCU Rams, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117593/2026/03/14/saint-joseph-s-pa-vs-vcu-stream-how-to-watch-march-14/
 
