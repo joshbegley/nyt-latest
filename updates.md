@@ -1,3 +1,11 @@
+**How to watch Kraken vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118441/2026/03/14/kraken-vs-canucks-stream-how-to-watch-march-14/
+
+**How to watch Blackhawks vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118431/2026/03/14/blackhawks-vs-golden-knights-stream-how-to-watch-march-14/
+
 **Yaxel Lendeborg drills 3 with 0.4 left to send Michigan to Big Ten title game**\
 `Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Yaxel Lendeborg who called game.`\
 https://nytimes.com/athletic/7118372/2026/03/14/yaxel-lendeborg-michigan-wisconsin-highlights/

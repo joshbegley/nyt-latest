@@ -1,3 +1,11 @@
+**Serie B club Cesena confident of appointing Cole as new head coach**\
+`It would be the first senior head coach role for the former Chelsea and Arsenal defender. `\
+https://nytimes.com/athletic/7118360/2026/03/14/ashley-cole-cesena-head-coach/
+
+**'Still get lost in the fun:' Steph Curry isn't thinking about retirement yet**\
+`At 38 and in his 17th NBA season, Curry says the fun of competing still fuels him. `\
+https://nytimes.com/athletic/7115752/2026/03/14/steph-curry-dell-warriors-retirement-nba/
+
 **How to watch Kraken vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118441/2026/03/14/kraken-vs-canucks-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118382/2026/03/14/kings-vs-clippers-stream-how-to-
 **Liverpool trigger one-year extension in Alisson's contract**\
 `The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
 https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
-
-**Rains Inundate Hawaii, Closing Schools and Causing Landslides**\
-`A storm system lashing Hawaii since Tuesday has caused flooding and power outages. The wettest spot in Maui had gotten nearly two feet of rain in the past 24 hours.`\
-https://nytimes.com/2026/03/14/weather/hawaii-kona-storm-rain-flooding-landslides.html
-
-**How a Marine Unit in the Middle East Could Open New Phase of Iran War**\
-`The unit’s arrival in the coming days will give the Pentagon the ability to quickly launch raids.`\
-https://nytimes.com/2026/03/14/us/politics/marines-iran-war.html
 
