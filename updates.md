@@ -1,3 +1,11 @@
+**How to watch Kennesaw State vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118270/2026/03/14/kennesaw-state-vs-louisiana-tech-stream-how-to-watch-march-14/
+
+**As WNBA negotiations drag, a look at women’s sports past labor disputes**\
+`The current WNBA contact dispute fits a historic trend of female athletes demanding better compensation and benefits across sports.`\
+https://nytimes.com/athletic/7117962/2026/03/14/wnba-contract-standoff-history-womens-labor-disputes/
+
 **As WNBA negotiations drag, a look at women’s sports past labor disputes**\
 `The current WNBA contact dispute fits a historic trend of female athletes demanding better compensation and benefits across sports.`\
 https://nytimes.com/athletic/7117962/2026/03/14/wnba-contract-standoff-adds-to-history-of-womens-sports-labor-disputes/
