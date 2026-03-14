@@ -1,3 +1,11 @@
+**Arteta calls Dowman's record-breaking goal 'one of the best moments'**\
+`The 16-year-old became the youngest-ever Premier League goalscorer after a solo run in stoppage time against Everton. `\
+https://nytimes.com/athletic/7118502/2026/03/14/max-dowman-arsenal-premier-league-record-arteta/
+
+**Oregon Waterfall Listed on a Real Estate Site Draws a State Offer**\
+`Lawmakers approved about $2 million to buy Abiqua Falls and surrounding land that had been advertised on the real estate site Redfin.`\
+https://nytimes.com/2026/03/14/us/oregon-lawmakers-buy-waterfall-for-sale.html
+
 **Rosenior criticises referee Tierney for interfering with Chelsea's huddle**\
 `The head coach said the ritual is to "respect the ball, show unity and leadership" and he was "disappointed" that Tierney didn't move away. `\
 https://nytimes.com/athletic/7118574/2026/03/14/liam-rosenior-chelsea-tierney-huddle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118360/2026/03/14/ashley-cole-cesena-head-coach/
 **'Still get lost in the fun:' Steph Curry isn't thinking about retirement yet**\
 `At 38 and in his 17th NBA season, Curry says the fun of competing still fuels him. `\
 https://nytimes.com/athletic/7115752/2026/03/14/steph-curry-dell-warriors-retirement-nba/
-
-**How to watch Kraken vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118441/2026/03/14/kraken-vs-canucks-stream-how-to-watch-march-14/
-
-**How to watch Blackhawks vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118431/2026/03/14/blackhawks-vs-golden-knights-stream-how-to-watch-march-14/
 

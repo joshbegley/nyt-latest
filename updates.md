@@ -1,3 +1,7 @@
+**Rosenior criticises referee Tierney for interfering with Chelsea's huddle**\
+`The head coach said the ritual is to "respect the ball, show unity and leadership" and he was "disappointed" that Tierney didn't move away. `\
+https://nytimes.com/athletic/7118574/2026/03/14/liam-rosenior-chelsea-tierney-huddle/
+
 **Synagogue Attack Tests Bonds of Michigan Community**\
 `For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
 https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
