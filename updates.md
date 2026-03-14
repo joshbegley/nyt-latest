@@ -1,3 +1,7 @@
+**How to watch Avalanche vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-watch-march-14/
+
 **How to watch Hornets vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117661/2026/03/14/hornets-vs-spurs-stream-how-to-watch-march-14/
