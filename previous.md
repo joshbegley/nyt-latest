@@ -1,3 +1,11 @@
+**Men's NCAA Tournament Bracket Watch: Iowa State, Wisconsin move up but New Mexico misses out**\
+`Our penultimate Bracket Watch of the season is here — and there's plenty of movement in our latest projection.`\
+https://nytimes.com/athletic/7117531/2026/03/14/march-madness-2026-bracketology-prediction-new-mexico-iowa-state/
+
+**Bubble Watch: Who is sweating out Selection Sunday Eve?**\
+`The number of bubble teams still playing is dwindling in dramatic fashion as Selection Sunday approaches.`\
+https://nytimes.com/athletic/7117202/2026/03/14/mens-ncaa-tournament-bubble-teams-bids/
+
 **How to watch Bucks vs. Hawks: Time, TV, streaming**\
 `Find out how to watch the Milwaukee Bucks play the Atlanta Hawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117537/2026/03/14/bucks-vs-hawks-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7116212/2026/03/14/blackhawks-andrew-mangiapane-nic
 **What Would We Think if Iran Hit an American School?**\
 `The United States helped create safeguards to limit the brutality of war, and now I fear President Trump is dismantling them.`\
 https://nytimes.com/2026/03/14/opinion/iran-war-trump.html
-
-**The Political Cost of Trump’s War**\
-`The Republican pollster Kristen Soltis Anderson joins E.J. Dionne Jr. and Robert Siegel to discuss Trump’s falling approval rating and what it portends for November.`\
-https://nytimes.com/2026/03/14/opinion/trump-iran-war-midterms-voters.html
-
-**Puerto Rico is seeing shades of 2013 in the WBC. 'Preciosa' is its galvanizing force**\
-`They may be known for their bleach-blond bonding ritual, but this year, something deeper is bonding Team Rubio at the WBC.`\
-https://nytimes.com/athletic/7117409/2026/03/14/wbc-puerto-rico-team-culture/
 

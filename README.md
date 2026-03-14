@@ -1,3 +1,7 @@
+**The Pulse: Team USA survives itself**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7117344/2026/03/14/team-usa-survives-itself-plus-the-fallout-from-a-nasty-hit/
+
 **Men's NCAA Tournament Bracket Watch: Iowa State, Wisconsin move up but New Mexico misses out**\
 `Our penultimate Bracket Watch of the season is here — and there's plenty of movement in our latest projection.`\
 https://nytimes.com/athletic/7117531/2026/03/14/march-madness-2026-bracketology-prediction-new-mexico-iowa-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/14/opinion/social-media-trial-addiction.html
 **Why is Andrew Mangiapane getting more playing time than Nick Lardis?**\
 `Mixed messages are being sent to a Chicago fan base that's justifiably antsy to get past the stopgap-journeymen stage of the rebuild.`\
 https://nytimes.com/athletic/7116212/2026/03/14/blackhawks-andrew-mangiapane-nick-lardis/
-
-**What Would We Think if Iran Hit an American School?**\
-`The United States helped create safeguards to limit the brutality of war, and now I fear President Trump is dismantling them.`\
-https://nytimes.com/2026/03/14/opinion/iran-war-trump.html
 
