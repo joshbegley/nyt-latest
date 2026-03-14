@@ -1,3 +1,11 @@
+**How to watch Hornets vs. Spurs: Time, TV, streaming**\
+`Find out how to watch the Charlotte Hornets play the San Antonio Spurs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117661/2026/03/14/hornets-vs-spurs-stream-how-to-watch-march-14/
+
+**Gavi ready for Barcelona return against Sevilla after seven months out**\
+`Gavi, 20, underwent arthroscopy surgery to repair a meniscus tear which he sustained in training in August.`\
+https://nytimes.com/athletic/7117627/2026/03/14/gavi-return-barcelona-team-news-sevilla/
+
 **Blast at Dutch School Is 2nd Antisemitic Attack in 2 Days, Officials Say**\
 `No one was hurt in the explosion at a Jewish school in Amsterdam, or in an earlier one at a Rotterdam synagogue.`\
 https://nytimes.com/2026/03/14/world/europe/amsterdam-rotterdam-antisemitic-attacks.html
