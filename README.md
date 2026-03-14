@@ -1,3 +1,7 @@
+**Synagogue Attack Tests Bonds of Michigan Community**\
+`For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
+https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
+
 **Minnesota, North Carolina, West Virginia win big in women's NCAA Tournament top 16 reveal**\
 `The full bracket will be revealed on Sunday.`\
 https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-minnesota-north-carolina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118431/2026/03/14/blackhawks-vs-golden-knights-str
 **Yaxel Lendeborg drills 3 with 0.4 left to send Michigan to Big Ten title game**\
 `Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Lendeborg who called game.`\
 https://nytimes.com/athletic/7118372/2026/03/14/yaxel-lendeborg-michigan-wisconsin-highlights/
-
-**Ex-State Trooper Convicted of Manslaughter in Death of Girl After Chase**\
-`Christopher Baldner, then a New York State trooper, rammed a family’s car during a high-speed chase in 2020, killing 11-year-old Monica Goods.`\
-https://nytimes.com/2026/03/14/nyregion/new-york-trooper-guilty-manslaughter-11-year-old.html
 
