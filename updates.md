@@ -1,3 +1,7 @@
+**Archie Gray is rare ray of hope for Spurs. He deserves the love fans are showing him**\
+`In a season of misery and anger for Spurs fans, their response to the club's birthday message for Gray said a lot about how he is viewed`\
+https://nytimes.com/athletic/7115130/2026/03/14/archie-gray-tottenham-2/
+
 **What to Know About Kharg Island**\
 `The Persian Gulf island, targeted by U.S. strikes, is home to Iran’s main oil export terminal. Any disruption could jolt global energy markets.`\
 https://nytimes.com/2026/03/14/world/middleeast/what-to-know-about-kharg-island.html
