@@ -1,3 +1,7 @@
+**Sir Jim Ratcliffe praises Carrick, claims Manchester United 'are thinking about the Champions League'**\
+`When asked if the interim head coach could get the job permanently, the 73-year-old co-owner declined to answer. `\
+https://nytimes.com/athletic/7117515/2026/03/14/man-united-champions-league-carrick-future-ratcliffe/
+
 **Max Verstappen calls his 2026 F1 car 'undriveable' at the Chinese GP**\
 `Max Verstappen has called his new Red Bull F1 car "undriveable" after a day of poor results at the 2026 Chinese Grand prix`\
 https://nytimes.com/athletic/7117518/2026/03/14/max-verstappen-2026-f1-car-red-bull/
