@@ -1,3 +1,11 @@
+**Sandstorm Batters Gaza, Slamming Makeshift Shelters**\
+`Millions of Gazans have remained without proper housing since the war, according to the United Nations.`\
+https://nytimes.com/2026/03/14/world/middleeast/sandstorm-batters-gaza.html
+
+**He Came to New York for Fun. He Left Seeking $20 Million in Damages.**\
+`Faycal Manz, a German tourist, claimed that a taco had given him diarrhea, a Walmart store had discriminated against him and that an interaction with the police had given him insomnia.`\
+https://nytimes.com/2026/03/14/nyregion/german-tourist-new-york-lawsuit-walmart-nypd.html
+
 **The war has put Middle East water supplies at risk.**\
 `By Mira Rojanasakul, Claire Brown and Hiroko Tabuchi`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-war-has-put-middle-east-water-supplies-at-risk
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118281/2026/03/14/toledo-vs-akron-stream-how-to-wa
 **How to watch Kennesaw State vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
 `Find out how to watch the Kennesaw State Owls play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118270/2026/03/14/kennesaw-state-vs-louisiana-tech-stream-how-to-watch-march-14/
-
-**As WNBA negotiations drag, a look at women’s sports past labor disputes**\
-`The current WNBA contact dispute fits a historic trend of female athletes demanding better compensation and benefits across sports.`\
-https://nytimes.com/athletic/7117962/2026/03/14/wnba-contract-standoff-history-womens-labor-disputes/
-
-**How to watch UTSA vs. Rice women's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the UTSA Roadrunners play the Rice Owls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118228/2026/03/14/utsa-vs-rice-stream-how-to-watch-march-14/
 
