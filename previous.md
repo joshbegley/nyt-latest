@@ -1,3 +1,15 @@
+**How to watch Northern Iowa vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Northern Iowa Panthers play the Murray State Racers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117569/2026/03/14/northern-iowa-vs-murray-state-stream-how-to-watch-march-14/
+
+**How to watch Abilene Christian vs. Cal Baptist women's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Abilene Christian Wildcats play the Cal Baptist Lancers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117567/2026/03/14/abilene-christian-vs-cal-baptist-stream-how-to-watch-march-14/
+
+**How to watch Stony Brook vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Stony Brook Seawolves play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117565/2026/03/14/stony-brook-vs-charleston-sc-stream-how-to-watch-march-14/
+
 **How to watch Bruins vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117553/2026/03/14/bruins-vs-capitals-stream-how-to-watch-march-14/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/14/opinion/ezra-klein-podcast-ali-vaez.html
 **NHL season predictions 3.0: How did the trade deadline impact our picks?**\
 `Which teams will make the postseason? Who will take home individual awards? Where will the Cup spend its summer vacation?`\
 https://nytimes.com/athletic/7116375/2026/03/14/nhl-2025-26-season-predictions-trade-deadline/
-
-**Dominican Republic's latest dominance sets up semifinal showdown with Team USA**\
-`The Dominican Republic's relentless offense keeps piling up runs with electrifying style: "We're showing everyone who we are."`\
-https://nytimes.com/athletic/7117093/2026/03/14/wbc-dominican-republic-korea-2/
-
-**On Winnipeg Jets drafting history, development, and misses: Mailbag**\
-`Why have the Jets stopped unearthing late-round gems at the draft?`\
-https://nytimes.com/athletic/7111859/2026/03/14/on-winnipeg-jets-drafting-history-development-and-misses-mailbag/
-
-**Social Media Isn’t Just Speech. It’s Also a Defective, Hazardous Product.**\
-`Don’t let the First Amendment arguments fool you.`\
-https://nytimes.com/2026/03/14/opinion/social-media-trial-addiction.html
 
