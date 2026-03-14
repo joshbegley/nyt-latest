@@ -1,5 +1,9 @@
 **WNBA commissioner stresses urgency to get labor deal done as negotiations drag on**\
 `WNBA commissioner Cathy Engelbert told reporters the league needs to get a collective bargaining agreement in place by Monday.`\
+https://nytimes.com/athletic/7117251/2026/03/13/wnba-labor-negotiations-cathy-engelbert/
+
+**WNBA commissioner stresses urgency to get labor deal done as negotiations drag on**\
+`WNBA commissioner Cathy Engelbert told reporters the league needs to get a collective bargaining agreement in place by Monday.`\
 https://nytimes.com/athletic/7117251/2026/03/13/wnba-commissioner-stresses-urgency-to-get-labor-deal-done-as-negotiations-drag-on/
 
 **Trump Issues Executive Orders to Tackle Housing Supply, Demand**\
