@@ -1,3 +1,7 @@
+**Vanderbilt’s Chandler Bing has a stingy game to go with a Friend-ly name**\
+`And just like that, we’re on a break. From the usual basketball stuff.`\
+https://nytimes.com/athletic/7117543/2026/03/14/vanderbilt-chandler-bing-friends-tv-show/
+
 **How to watch Northern Iowa vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Northern Iowa Panthers play the Murray State Racers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117569/2026/03/14/northern-iowa-vs-murray-state-stream-how-to-watch-march-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117537/2026/03/14/bucks-vs-hawks-stream-how-to-wat
 **What Trump Didn’t Know About Iran**\
 `Ali Vaez, the Iran project director at the International Crisis Group, explains the history of miscalculations that led to the war in Iran.`\
 https://nytimes.com/2026/03/14/opinion/ezra-klein-podcast-ali-vaez.html
-
-**NHL season predictions 3.0: How did the trade deadline impact our picks?**\
-`Which teams will make the postseason? Who will take home individual awards? Where will the Cup spend its summer vacation?`\
-https://nytimes.com/athletic/7116375/2026/03/14/nhl-2025-26-season-predictions-trade-deadline/
 
