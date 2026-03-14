@@ -1,3 +1,11 @@
+**U.S. Bombs Iranian Oil Hub**\
+`The U.S. attack on Kharg Island, Iran’s main oil export hub, came as tensions continued over control of the Strait of Hormuz, a critical waterway for oil transport.`\
+https://nytimes.com/video/world/middleeast/100000010776741/us-bombs-iranian-oil-hub.html
+
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`The U.S. Embassy in Baghdad was attacked overnight. Israeli strikes continued to hit the capitals of Iran and Lebanon, as Iran refused to relinquish control over a vital oil route.`\
+https://nytimes.com/2026/03/14/world/middleeast/iran-war-recap-kharg-island-oil.html
+
 **Inside F1's decision to cancel Bahrain and Saudi Arabian GPs, and what comes next**\
 `How the decisions to cancel the Bahrain and Saudi Arabian F1 races in 2026 due to the ongoing Middle East conflict were taken`\
 https://nytimes.com/athletic/7118105/2026/03/14/f1-races-cancelled-bahrain-saudi-arabia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118502/2026/03/14/max-dowman-arsenal-premier-leagu
 **Oregon Waterfall Listed on a Real Estate Site Draws a State Offer**\
 `Lawmakers approved about $2 million to buy Abiqua Falls and surrounding land that had been advertised on the real estate site Redfin.`\
 https://nytimes.com/2026/03/14/us/oregon-lawmakers-buy-waterfall-for-sale.html
-
-**Rosenior criticises referee Tierney for interfering with Chelsea's huddle**\
-`The head coach said the ritual is to "respect the ball, show unity and leadership" and he was "disappointed" that Tierney didn't move away. `\
-https://nytimes.com/athletic/7118574/2026/03/14/liam-rosenior-chelsea-tierney-huddle/
-
-**Synagogue Attack Tests Bonds of Michigan Community**\
-`For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
-https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
 

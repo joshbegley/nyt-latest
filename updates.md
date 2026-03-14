@@ -1,3 +1,11 @@
+**U.S. Bombs Iranian Oil Hub**\
+`The U.S. attack on Kharg Island, Iran’s main oil export hub, came as tensions continued over control of the Strait of Hormuz, a critical waterway for oil transport.`\
+https://nytimes.com/video/world/middleeast/100000010776741/us-bombs-iranian-oil-hub.html
+
+**Here’s What Happened in the War in the Middle East on Saturday**\
+`The U.S. Embassy in Baghdad was attacked overnight. Israeli strikes continued to hit the capitals of Iran and Lebanon, as Iran refused to relinquish control over a vital oil route.`\
+https://nytimes.com/2026/03/14/world/middleeast/iran-war-recap-kharg-island-oil.html
+
 **Inside F1's decision to cancel Bahrain and Saudi Arabian GPs, and what comes next**\
 `How the decisions to cancel the Bahrain and Saudi Arabian F1 races in 2026 due to the ongoing Middle East conflict were taken`\
 https://nytimes.com/athletic/7118105/2026/03/14/f1-races-cancelled-bahrain-saudi-arabia/
