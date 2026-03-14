@@ -1,3 +1,7 @@
+**Genevieve Ko Absolutely Adores Making Pie**\
+`Our resident baking queen takes the Bake Time questionnaire.`\
+https://nytimes.com/2026/03/14/dining/genevieve-ko-absolutely-adores-making-pie.html
+
 **'We needed to get back rolling': Pistons blow out Memphis, win third straight**\
 `The Pistons have rebounded from a four-game skid with a three-game winning streak: "They never started doubting what they were capable of."`\
 https://nytimes.com/athletic/7117619/2026/03/14/pistons-cade-cunningham-jalen-duren/

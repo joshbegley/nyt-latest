@@ -1,3 +1,7 @@
+**Genevieve Ko Absolutely Adores Making Pie**\
+`Our resident baking queen takes the Bake Time questionnaire.`\
+https://nytimes.com/2026/03/14/dining/genevieve-ko-absolutely-adores-making-pie.html
+
 **'We needed to get back rolling': Pistons blow out Memphis, win third straight**\
 `The Pistons have rebounded from a four-game skid with a three-game winning streak: "They never started doubting what they were capable of."`\
 https://nytimes.com/athletic/7117619/2026/03/14/pistons-cade-cunningham-jalen-duren/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117706/2026/03/14/missouri-state-vs-louisiana-tech
 **How to watch Avalanche vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-watch-march-14/
-
-**How to watch Hornets vs. Spurs: Time, TV, streaming**\
-`Find out how to watch the Charlotte Hornets play the San Antonio Spurs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117661/2026/03/14/hornets-vs-spurs-stream-how-to-watch-march-14/
 
