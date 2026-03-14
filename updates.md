@@ -1,3 +1,7 @@
+**Three factors that will shape Team USA vs. Dominican Republic in WBC semifinals**\
+`Two teams that were on a collision course for a matchup at some point in the World Baseball Classic will now meet in the semifinals.`\
+https://nytimes.com/athletic/7117076/2026/03/13/world-baseball-classic-team-usa-dominican-republic-semifinals/
+
 **Team USA beats Canada, punches ticket to WBC semifinal clash with Dominican Republic**\
 `The Americans held off a late rally by Canada. Now they face a Dominican squad that has outscored opponents by 41 runs in five games.`\
 https://nytimes.com/athletic/7117145/2026/03/13/team-usa-wbc-dominican-republic-canada/

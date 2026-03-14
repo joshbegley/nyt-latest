@@ -1,3 +1,7 @@
+**Final bids in Padres' sale process expected in April; 4 groups in running: Sources**\
+`MLB franchise could fetch a price that exceeds the record $2.42 billion Steve Cohen paid for the New York Mets in 2020.`\
+https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/
+
 **Three factors that will shape Team USA vs. Dominican Republic in WBC semifinals**\
 `Two teams that were on a collision course for a matchup at some point in the World Baseball Classic will now meet in the semifinals.`\
 https://nytimes.com/athletic/7117076/2026/03/13/world-baseball-classic-team-usa-dominican-republic-semifinals/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/oklahoma-senate-trump-endorsement.htm
 **The 3.15.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/13/the-31526-issue
-
-**The Players Championship Round 2: What to know as Ludvig Åberg surges to lead**\
-`Aberg leads Xander Schauffele by two shots at the top of the leaderboard, with the game's top two players both in the back of the pack.`\
-https://nytimes.com/athletic/7116988/2026/03/13/players-championship-2026-round-2-what-to-know-ludvig-aberg/
 
