@@ -1,3 +1,11 @@
+**Dozens of Medical Workers Killed as Israel Hits Lebanon**\
+`Lebanese health officials say that 31 health workers have been killed by Israeli strikes. Israel claimed, without evidence, that Hezbollah has been using ambulances and medical facilities.`\
+https://nytimes.com/2026/03/14/world/middleeast/lebanon-medical-workers-killed.html
+
+**Chelsea's centre-circle ritual is winding up opponents, fans - and now even referees are involved**\
+`Chelsea have been doing their huddle over the match ball since the game at Napoli in January and now officials are starting to intervene`\
+https://nytimes.com/athletic/7098878/2026/03/14/chelsea-centre-circle-ritual-huddle/
+
 **Canada wins Paralympic curling gold on one of the more dramatic final shots possible**\
 `With their time running out and no one sure whether they had already won, Canada faced the biggest decision of the tournament. And won.`\
 https://nytimes.com/athletic/7118112/2026/03/14/canada-paralympic-curling-gold-final-shot-drama/
