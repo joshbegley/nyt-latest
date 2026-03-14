@@ -1,3 +1,7 @@
+**How to watch Toledo vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Toledo Rockets play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117447/2026/03/14/toledo-vs-miami-oh-stream-how-to-watch-march-14/
+
 **Guerrilla Battle Over Padlocks and Tourist Trash on the Brooklyn Bridge**\
 `Love Locks left behind were one thing. But when actual garbage (like tampons and condoms) started appearing, a righteous quest to remove it was born.`\
 https://nytimes.com/2026/03/14/nyregion/brooklyn-bridge-locks-garbage-removal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112989/2026/03/14/polish-football-ekstraklasa-best
 **Should Chelsea prioritise Newcastle or PSG? And who should play? Our writers have their say**\
 `The games against Newcastle and PSG could be season-defining. How should Chelsea manage them?`\
 https://nytimes.com/athletic/7114814/2026/03/14/chelsea-newcastle-psg-teams-analysis/
-
-**Kinsky, Tudor and what happens after a footballer is humiliated by his coach**\
-`The psychological impact of being hauled off after 15 minutes of a huge game is damaging — but it doesn't have to be terminal`\
-https://nytimes.com/athletic/7115045/2026/03/14/kinsky-tudor-tottenham-humiliated/
 
