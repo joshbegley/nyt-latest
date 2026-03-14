@@ -1,3 +1,7 @@
+**Rosenthal: Team USA hoping Paul Skenes can silence mighty bats of Dominican Republic**\
+`The Dominican Republic has been dominant in the WBC and would be overwhelming favorites in Sunday's semifinal if not for Paul Skenes.`\
+https://nytimes.com/athletic/7117587/2026/03/14/wbc-paul-skenes-usa-dominican-republic/
+
 **Ryan Reynolds and Rob Mac’s Wrexham commentary: Do they know football?**\
 `The Wrexham co-owners joined presenter David Prutton to deliver an alternative commentary for their game against Welsh rivals Swansea City`\
 https://nytimes.com/athletic/7117236/2026/03/14/reynolds-mac-wrexham-commentary-sky-parkinson/
