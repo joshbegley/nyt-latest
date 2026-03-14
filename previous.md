@@ -1,3 +1,7 @@
+**How to watch Bruins vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117553/2026/03/14/bruins-vs-capitals-stream-how-to-watch-march-14/
+
 **The Pulse: Team USA survives itself**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7117344/2026/03/14/team-usa-survives-itself-plus-the-fallout-from-a-nasty-hit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111859/2026/03/14/on-winnipeg-jets-drafting-histor
 **Social Media Isn’t Just Speech. It’s Also a Defective, Hazardous Product.**\
 `Don’t let the First Amendment arguments fool you.`\
 https://nytimes.com/2026/03/14/opinion/social-media-trial-addiction.html
-
-**Why is Andrew Mangiapane getting more playing time than Nick Lardis?**\
-`Mixed messages are being sent to a Chicago fan base that's justifiably antsy to get past the stopgap-journeymen stage of the rebuild.`\
-https://nytimes.com/athletic/7116212/2026/03/14/blackhawks-andrew-mangiapane-nick-lardis/
 

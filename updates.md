@@ -1,3 +1,7 @@
+**How to watch Bruins vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117553/2026/03/14/bruins-vs-capitals-stream-how-to-watch-march-14/
+
 **The Pulse: Team USA survives itself**\
 `Welcome to The Pulse, The Athletic's daily newsletter. `\
 https://nytimes.com/athletic/7117344/2026/03/14/team-usa-survives-itself-plus-the-fallout-from-a-nasty-hit/
