@@ -1,3 +1,7 @@
+**Kimi Antonelli tops Chinese GP qualifying to become F1's youngest ever pole-sitter**\
+`Kimi Antonelli led the way for Mercedes in GP qualifying in China, after his teammate George Russell hit car trouble`\
+https://nytimes.com/athletic/7117456/2026/03/14/chinese-gp-qualifying-results-kimi-antonelli-mercedes/
+
 **What's it like being your country's only Paralympian? 'I'm making history'**\
 `More countries than ever are represented at the Winter Paralympics. Some of them have just a single athlete, each with a unique path.`\
 https://nytimes.com/athletic/7116130/2026/03/14/winter-paralympics-solo-athletes-alpine-skiing/

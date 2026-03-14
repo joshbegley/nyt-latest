@@ -1,3 +1,7 @@
+**Kimi Antonelli tops Chinese GP qualifying to become F1's youngest ever pole-sitter**\
+`Kimi Antonelli led the way for Mercedes in GP qualifying in China, after his teammate George Russell hit car trouble`\
+https://nytimes.com/athletic/7117456/2026/03/14/chinese-gp-qualifying-results-kimi-antonelli-mercedes/
+
 **What's it like being your country's only Paralympian? 'I'm making history'**\
 `More countries than ever are represented at the Winter Paralympics. Some of them have just a single athlete, each with a unique path.`\
 https://nytimes.com/athletic/7116130/2026/03/14/winter-paralympics-solo-athletes-alpine-skiing/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/14/nyregion/met-routine-john-slattery.ht
 **Saturday Night at the Golden Corral, the Bronx Way**\
 `Two generations of one family have owned this restaurant in the Bronx, trying to change with the times while staying true to the borough.`\
 https://nytimes.com/2026/03/14/nyregion/golden-corral-bronx.html
-
-**Forget ‘Marty Supreme.’ Meet the Real Table Tennis Champion of New York.**\
-`Yasiris Ortiz, a 28-year-old star from the Bronx, is helping to bring free table tennis programing to children across the city.`\
-https://nytimes.com/2026/03/14/nyregion/marty-supreme-new-york-ping-pong.html
 
