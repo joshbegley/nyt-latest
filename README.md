@@ -1,3 +1,11 @@
+**'We needed to get back rolling': Pistons blow out Memphis, win third straight**\
+`The Pistons have rebounded from a four-game skid with a three-game winning streak: "They never started doubting what they were capable of."`\
+https://nytimes.com/athletic/7117619/2026/03/14/pistons-cade-cunningham-jalen-duren/
+
+**Are the Blues really doing this to us again? Well, it is March**\
+`With a 3-2 overtime win over the Oilers on Friday, the Blues have gone 7-1-1 in their last nine games.`\
+https://nytimes.com/athletic/7116803/2026/03/14/blues-oilers-win-streak-march/
+
 **How to watch Tulsa vs. Wichita State men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the Tulsa Golden Hurricane play the Wichita State Shockers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117771/2026/03/14/tulsa-vs-wichita-state-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-
 **How to watch Hornets vs. Spurs: Time, TV, streaming**\
 `Find out how to watch the Charlotte Hornets play the San Antonio Spurs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117661/2026/03/14/hornets-vs-spurs-stream-how-to-watch-march-14/
-
-**Gavi ready for Barcelona return against Sevilla after seven months out**\
-`Gavi, 20, underwent arthroscopy surgery to repair a meniscus tear which he sustained in training in August.`\
-https://nytimes.com/athletic/7117627/2026/03/14/gavi-return-barcelona-team-news-sevilla/
-
-**Blast at Dutch School Is 2nd Antisemitic Attack in 2 Days, Officials Say**\
-`No one was hurt in the explosion at a Jewish school in Amsterdam, or in an earlier one at a Rotterdam synagogue.`\
-https://nytimes.com/2026/03/14/world/europe/amsterdam-rotterdam-antisemitic-attacks.html
 
