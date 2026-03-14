@@ -1,3 +1,11 @@
+**Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**\
+`In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
+https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
+
+**Another WBC subplot: Will Cal Raleigh snub Julio Rodríguez for a handshake?**\
+`One Mariners teammate has already made light of Raleigh's aversion to in-game handshakes with opponents. Sunday presents another chance.`\
+https://nytimes.com/athletic/7117898/2026/03/14/handshake-wbc-cal-raleigh-julio-rodriguez/
+
 **How to watch Houston vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118036/2026/03/14/houston-vs-arizona-stream-how-to-watch-march-14/

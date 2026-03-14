@@ -1,3 +1,11 @@
+**Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**\
+`In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
+https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
+
+**Another WBC subplot: Will Cal Raleigh snub Julio Rodríguez for a handshake?**\
+`One Mariners teammate has already made light of Raleigh's aversion to in-game handshakes with opponents. Sunday presents another chance.`\
+https://nytimes.com/athletic/7117898/2026/03/14/handshake-wbc-cal-raleigh-julio-rodriguez/
+
 **How to watch Houston vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
 `Find out how to watch the Houston Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118036/2026/03/14/houston-vs-arizona-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7117945/2026/03/14/sharks-vs-canadiens-stream-how-t
 **How to watch Hurricanes vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117941/2026/03/14/hurricanes-vs-lightning-stream-how-to-watch-march-14/
-
-**How to watch Flames vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117939/2026/03/14/flames-vs-islanders-stream-how-to-watch-march-14/
-
-**How to watch Kings vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117936/2026/03/14/kings-vs-devils-stream-how-to-watch-march-14/
 
