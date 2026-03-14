@@ -1,3 +1,7 @@
+**Is There Method to Trump’s Madness?**\
+`Don’t hold your breath.`\
+https://nytimes.com/2026/03/14/opinion/trump-hegseth.html
+
 **How to watch Hawaii vs. UCSD women's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the Hawaii Rainbow Wahine play the UCSD Tritons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-watch-march-14/

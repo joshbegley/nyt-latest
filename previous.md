@@ -4,7 +4,7 @@ https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-wat
 
 **Is There Method to Trump’s Madness?**\
 `Don’t hold your breath.`\
-https://nytimes.com/2026/03/14/opinion/is-there-method-to-trumps-madness.html
+https://nytimes.com/2026/03/14/opinion/trump-hegseth.html
 
 **How to watch Sharks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Montreal Canadiens, with time, TV channel and streaming information.`\
