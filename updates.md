@@ -1,3 +1,11 @@
+**Tehran Seems Largely Empty, as Many Flee and Others Weary of the Fighting**\
+`Residents say a heavy, lifeless atmosphere hangs over the streets of Iran’s capital, which has endured relentless attacks throughout the war.`\
+https://nytimes.com/2026/03/14/world/middleeast/tehran-empty-iran-strikes.html
+
+**How to watch Kings vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118382/2026/03/14/kings-vs-clippers-stream-how-to-watch-march-14/
+
 **Liverpool trigger one-year extension in Alisson's contract**\
 `The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
 https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
