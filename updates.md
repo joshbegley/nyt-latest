@@ -1,3 +1,19 @@
+**The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness as referee is caught in the middle**\
+`Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
+https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
+
+**The Briefing: Arsenal 2 Everton 0 - Max Dowman to the rescue: youngest scorer in Premier League history keeps title bid on track**\
+`Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
+https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
+
+**Serie B club Cesena confident of appointing Cole as new head coach**\
+`It would be the first senior head coach role for the former Chelsea and Arsenal defender. `\
+https://nytimes.com/athletic/7118360/2026/03/14/ashley-cole-cesena-head-coach/
+
+**'Still get lost in the fun:' Steph Curry isn't thinking about retirement yet**\
+`At 38 and in his 17th NBA season, Curry says the fun of competing still fuels him. `\
+https://nytimes.com/athletic/7115752/2026/03/14/steph-curry-dell-warriors-retirement-nba/
+
 **How to watch Kraken vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118441/2026/03/14/kraken-vs-canucks-stream-how-to-watch-march-14/

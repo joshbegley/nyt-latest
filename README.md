@@ -1,4 +1,4 @@
-**The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness as referee is caught in the middle**\
+**The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness and rare away win as referee is caught in the middle**\
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
 https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
 
