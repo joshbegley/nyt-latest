@@ -1,3 +1,7 @@
+**This is what happened on March 13.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-13
+
 **Genevieve Ko Absolutely Adores Making Pie**\
 `Our resident baking queen takes the Bake Time questionnaire.`\
 https://nytimes.com/2026/03/14/dining/genevieve-ko-absolutely-adores-making-pie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117708/2026/03/14/hofstra-vs-drexel-stream-how-to-
 **How to watch Missouri State vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
 `Find out how to watch the Missouri State Bears play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117706/2026/03/14/missouri-state-vs-louisiana-tech-stream-how-to-watch-march-14/
-
-**How to watch Avalanche vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-watch-march-14/
 
