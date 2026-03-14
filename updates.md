@@ -1,3 +1,15 @@
+**Wrexham hope to conquer the world. But first they want to rule Wales**\
+`Beating Swansea really mattered to Werxham and their fans, regardless of their Premier League ambitions`\
+https://nytimes.com/athletic/7110969/2026/03/13/wrexham-swansea-championship-result/
+
+**Trump’s War Alliance With Israel Is Reshaping the Middle East. But It Carries Risks.**\
+`President Trump is the first American leader to embrace fighting a full-fledged, joint war with Israel. Washington has tried to avoid that level of coordination in the past.`\
+https://nytimes.com/2026/03/13/us/politics/trumps-war-alliance-with-israel-is-reshaping-the-middle-east-but-it-carries-risks.html
+
+**Here’s What Happened in the War in the Middle East on Friday**\
+`Defense Secretary Pete Hegseth said Friday would be the most intense day of the U.S. air campaign in Iran as a vital oil supply route remained choked off.`\
+https://nytimes.com/2026/03/13/world/middleeast/iran-war-middle-east-recap.html
+
 **A Restaurant Worker Was a Quiet Presence. Then He Attacked a Synagogue.**\
 `Days before the antisemitic violence, an imam recalled seeing Ayman Mohamad Ghazali at a service for his relatives who had been killed in the war in Lebanon.`\
 https://nytimes.com/2026/03/13/us/michigan-synagogue-suspect-ghazali.html
