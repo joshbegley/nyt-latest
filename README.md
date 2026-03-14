@@ -1,3 +1,23 @@
+**How to watch Sharks vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117945/2026/03/14/sharks-vs-canadiens-stream-how-to-watch-march-14/
+
+**How to watch Hurricanes vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117941/2026/03/14/hurricanes-vs-lightning-stream-how-to-watch-march-14/
+
+**How to watch Flames vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117939/2026/03/14/flames-vs-islanders-stream-how-to-watch-march-14/
+
+**How to watch Kings vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117936/2026/03/14/kings-vs-devils-stream-how-to-watch-march-14/
+
+**How to watch Maple Leafs vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117934/2026/03/14/maple-leafs-vs-sabres-stream-how-to-watch-march-14/
+
 **How to watch Rangers vs. Wild: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117925/2026/03/14/rangers-vs-wild-stream-how-to-watch-march-14/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shootin
 **We Got Wolfgang Puck’s Chicken Potpie Recipe**\
 `When eaten on the couch in your pajamas, it makes for a very nice Oscars night.`\
 https://nytimes.com/2026/03/14/dining/we-got-wolfgang-pucks-chicken-potpie-recipe.html
-
-**Notts County player sent off... for throwing away opponent's boot**\
-`The bizarre incident saw Oliver Norburn dismissed for throwing away Armando Dobra's boot during a League Two clash at Meadow Lane`\
-https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-throwing-boot/
-
-**Trump Administration Approves Ultra-Deepwater Oil Drilling Plan**\
-`The $5 billion project in the Gulf of Mexico is expected to produce up to 10 billion barrels of oil by the end of this decade. Critics say it could endanger people and marine life.`\
-https://nytimes.com/2026/03/14/climate/trump-bp-gulf-of-mexico-drilling.html
-
-**Lobbyist Arrested in Extortion Attempt of Client Who Received a Trump Pardon**\
-`Josh Nass, a lawyer and lobbyist, had recently represented Joseph Schwartz, a former nursing home executive pardoned by the president late last year.`\
-https://nytimes.com/2026/03/14/us/lobbyist-trump-pardon-extortion-charge.html
-
-**Snow business: How Alpine ski courses are chosen and set at the Winter Paralympics**\
-`The rules of setting the course vary between the disciplines, and coaches must keep a broad range of skiing abilities in mind.`\
-https://nytimes.com/athletic/7117599/2026/03/14/winter-paralympics-alpine-skiing-course/
-
-**‘We Miss Home’: Displaced Lebanese Face Cold Streets and an Uncertain Future**\
-`Israeli calls for the evacuation of huge swaths of southern Lebanon have led 830,000 people, about 14 percent of Lebanon’s population, to flee.`\
-https://nytimes.com/2026/03/14/world/middleeast/lebanon-beirut-israel-displaced.html
 

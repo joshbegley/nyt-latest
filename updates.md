@@ -1,3 +1,11 @@
+**How to watch Rangers vs. Wild: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117925/2026/03/14/rangers-vs-wild-stream-how-to-watch-march-14/
+
+**Lobbyist Arrested in Extortion Attempt of Client Who Received a Trump Pardon**\
+`Josh Nass, a lawyer and lobbyist, had recently represented Joseph Schwartz, a former nursing home executive pardoned by the president late last year.`\
+https://nytimes.com/2026/03/14/us/lobbyist-trump-pardon-extortion-charge.html
+
 **Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
 `Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m. (ET).`\
 https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
