@@ -1,3 +1,7 @@
+**How to watch Southern vs. Alabama State women's basketball: SWAC Tournament Time, TV, streaming**\
+`Find out how to watch the Southern Jaguars play the Alabama State Lady Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117497/2026/03/14/southern-vs-alabama-state-stream-how-to-watch-march-14/
+
 **The funniest 2026 March Madness bracket names from our staff**\
 `Winning your bracket pool involves a whole lot of luck. Picking the best bracket name? All in your hands. `\
 https://nytimes.com/athletic/7111905/2026/03/14/march-madness-2026-best-bracket-names-funny/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117492/2026/03/14/ducks-vs-senators-stream-how-to-
 **JB Pritzker Wants to Be Judged on His Heart, Not His Money**\
 `The governor of Illinois and Trump antagonist has become a national figure for Democrats. Where will that lead?`\
 https://nytimes.com/2026/03/14/magazine/jb-pritzker-interview.html
-
-**How to watch Nets vs. 76ers: Time, TV, streaming**\
-`Find out how to watch the Brooklyn Nets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117483/2026/03/14/nets-vs-76ers-stream-how-to-watch-march-14/
 
