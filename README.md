@@ -1,4 +1,4 @@
-**Max Verstappen calls his 2026 F1 car "undriveable" at the Chinese GP**\
+**Max Verstappen calls his 2026 F1 car 'undriveable' at the Chinese GP**\
 `Max Verstappen has called his new Red Bull F1 car "undriveable" after a day of poor results at the 2026 Chinese Grand prix`\
 https://nytimes.com/athletic/7117518/2026/03/14/max-verstappen-2026-f1-car-red-bull/
 
