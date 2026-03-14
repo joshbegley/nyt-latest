@@ -1,3 +1,19 @@
+**Inside F1's decision to cancel Bahrain and Saudi Arabian GPs, and what comes next**\
+`How the decisions to cancel the Bahrain and Saudi Arabian F1 races in 2026 due to the ongoing Middle East conflict were taken`\
+https://nytimes.com/athletic/7118105/2026/03/14/f1-races-cancelled-bahrain-saudi-arabia/
+
+**Bahrain and Saudi Arabian GPs canceled due to Middle East conflict**\
+`Both races being canceled leaves a 35-day gap between the Japanese GP on March 29 and the Miami GP on May 3.`\
+https://nytimes.com/athletic/7116058/2026/03/14/bahrain-saudi-grand-prix-canceled-f1/
+
+**Lily Collins’s Ring, Stolen Years Ago, Makes an Unexpected Return**\
+`The ring, which belonged to Ms. Collins, the “Emily in Paris” actress, was stolen in 2023. Joe Hakimian, a Chicago jeweler, unknowingly listed it for sale in December. Then came a surprising message.`\
+https://nytimes.com/2026/03/14/us/lily-collins-engagement-ring-found.html
+
+**The Briefing: West Ham 1 Man City 1 – Is the title race over?**\
+`Dissecting the major talking points from Saturday's big Premier League match at the London Stadium`\
+https://nytimes.com/athletic/7111106/2026/03/14/west-ham-manchester-city-result-analysis/
+
 **How to watch Cal Baptist vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the Cal Baptist Lancers play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118722/2026/03/14/cal-baptist-vs-utah-valley-stream-how-to-watch-march-15/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7118574/2026/03/14/liam-rosenior-chelsea-tierney-hu
 **Synagogue Attack Tests Bonds of Michigan Community**\
 `For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
 https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
-
-**Minnesota, North Carolina, West Virginia win big in women's NCAA Tournament top 16 reveal**\
-`The full bracket will be revealed on Sunday.`\
-https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-minnesota-north-carolina/
-
-**How to watch Hawaii vs. UC Irvine men's basketball: Big West Tournament Time, TV, streaming**\
-`Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118511/2026/03/14/how-to-watch-hawaii-vs-uc-irvine-mens-basketball-big-west-tournament-tv-channel-and-streaming-options-for-march-14/
-
-**The Briefing: Chelsea 0 Newcastle 1 – Hosts run aground on resilient visitors as referee is caught in the middle**\
-`Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
-https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
-
-**The Briefing: Arsenal 2 Everton 0 – Max Dowman to the rescue: Youngest scorer in Premier League history keeps title bid on track**\
-`Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
-https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
 
