@@ -1,3 +1,7 @@
+**Quote of the Day: To Grasp Modern Dance, Think Like a Child**\
+`Quotation of the Day for Saturday, March 14, 2026.`\
+https://nytimes.com/2026/03/13/pageoneplus/quote-of-the-day-to-grasp-modern-dance-think-like-a-child.html
+
 **WNBA commissioner stresses urgency to get labor deal done as negotiations drag on**\
 `WNBA commissioner Cathy Engelbert told reporters the league needs to get a collective bargaining agreement in place by Monday.`\
 https://nytimes.com/athletic/7117251/2026/03/13/wnba-labor-negotiations-cathy-engelbert/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html
 **TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
 `The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
 https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html
-
-**Sophia Wilson returns in first NWSL game since maternity leave**\
-`Wilson last played for the Thorns on Nov. 10, 2024`\
-https://nytimes.com/athletic/7116869/2026/03/13/sophia-wilson-returns-for-first-nwsl-game-since-taking-maternity-leave/
 
