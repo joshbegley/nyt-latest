@@ -1,3 +1,15 @@
+**TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
+`The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
+https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html
+
+**Sophia Wilson returns in first NWSL game since maternity leave**\
+`Wilson last played for the Thorns on Nov. 10, 2024`\
+https://nytimes.com/athletic/7116869/2026/03/13/sophia-wilson-returns-for-first-nwsl-game-since-taking-maternity-leave/
+
+**With Endorsement, Trump Clears Oklahoma Senate Path**\
+`The move, as other Republicans confirmed they would not run, all but assured Representative Kevin Hern would succeed Senator Markwayne Mullin.`\
+https://nytimes.com/2026/03/13/us/politics/oklahoma-senate-trump-endorsement.html
+
 **The 3.15.26 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2026/03/13/the-31526-issue
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/100000010767681/where-iran-is-hitting-back.html
 **Radko Gudas suspended 5 games for hit on Auston Matthews**\
 `It is the fifth suspension for Gudas in his 14-year NHL career and his first since 2019.`\
 https://nytimes.com/athletic/7114294/2026/03/13/radko-gudas-suspension-auston-matthews/
-
-**Pentagon’s Boat Bombings Are Illegal, Human Rights Panel Is Told**\
-`Experts condemned the U.S. campaign at a human rights meeting in Guatemala, and the Trump administration condemned the meeting.`\
-https://nytimes.com/2026/03/13/us/politics/pentagon-boat-bombings.html
-
-**Jared Kushner Solicits Funds for His Firm While Working as Mideast Envoy**\
-`President Trump’s son-in-law is trying to raise $5 billion or more from foreign governments and others for his private equity firm.`\
-https://nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.html
-
-**New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
-`The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
-https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
 
