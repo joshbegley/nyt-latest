@@ -1,3 +1,7 @@
+**Synagogue Attack Tests Bonds of Michigan Community**\
+`For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
+https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
+
 **Minnesota, North Carolina, West Virginia win big in women's NCAA Tournament top 16 reveal**\
 `The full bracket will be revealed on Sunday.`\
 https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-minnesota-north-carolina/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-mi
 `Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118511/2026/03/14/hawaii-vs-uc-irvine-stream-how-to-watch-march-14/
 
-**The Briefing: Chelsea 0 Newcastle 1 - Hosts run aground on resilient visitors as referee is caught in the middle**\
+**The Briefing: Chelsea 0 Newcastle 1 – Hosts run aground on resilient visitors as referee is caught in the middle**\
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
 https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
 
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/7118441/2026/03/14/kraken-vs-canucks-stream-how-to-
 https://nytimes.com/athletic/7118431/2026/03/14/blackhawks-vs-golden-knights-stream-how-to-watch-march-14/
 
 **Yaxel Lendeborg drills 3 with 0.4 left to send Michigan to Big Ten title game**\
-`Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Yaxel Lendeborg who called game.`\
+`Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Lendeborg who called game.`\
 https://nytimes.com/athletic/7118372/2026/03/14/yaxel-lendeborg-michigan-wisconsin-highlights/
-
-**Ex-State Trooper Convicted of Manslaughter in Death of Girl After Chase**\
-`Christopher Baldner, then a New York State trooper, rammed a family’s car during a high-speed chase in 2020, killing 11-year-old Monica Goods.`\
-https://nytimes.com/2026/03/14/nyregion/new-york-trooper-guilty-manslaughter-11-year-old.html
 

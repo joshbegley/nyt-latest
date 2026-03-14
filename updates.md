@@ -1,3 +1,15 @@
+**Synagogue Attack Tests Bonds of Michigan Community**\
+`For more than a century, Jewish, Arab and Muslim people have lived in and around Detroit, coexisting mostly peacefully.`\
+https://nytimes.com/2026/03/14/us/michigan-synagogue-attack-temple-israel.html
+
+**The Briefing: Chelsea 0 Newcastle 1 – Hosts run aground on resilient visitors as referee is caught in the middle**\
+`Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
+https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
+
+**Yaxel Lendeborg drills 3 with 0.4 left to send Michigan to Big Ten title game**\
+`Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Lendeborg who called game.`\
+https://nytimes.com/athletic/7118372/2026/03/14/yaxel-lendeborg-michigan-wisconsin-highlights/
+
 **Minnesota, North Carolina, West Virginia win big in women's NCAA Tournament top 16 reveal**\
 `The full bracket will be revealed on Sunday.`\
 https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-minnesota-north-carolina/
