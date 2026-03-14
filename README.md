@@ -1,3 +1,7 @@
+**What’s Good?**\
+`Introducing The Good List, a new weekly newsletter by Melissa Kirsch designed to bring joy and meaning to your days.`\
+https://nytimes.com/2026/03/14/briefing/whats-good.html
+
 **Two Ivy League brothers made each other better. Now they're competing for an NCAA bid**\
 `Brothers Adam and Robert Hinton play for Cornell and Harvard. This weekend, they could meet for an Ivy League title and tournament bid. `\
 https://nytimes.com/athletic/7116934/2026/03/14/ivy-league-tournament-harvard-cornell-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/14/magazine/sex-addiction-marriage-kids-ethics.html
 **Canada Takes Its Sovereignty Push to Space**\
 `The country aims to expand domestic satellite systems and cut dependence on American networks like Elon Musk’s Starlink.`\
 https://nytimes.com/2026/03/14/world/canada/starlink-satellites-defense-carney-canada.html
-
-**Connections Companion No. 1,008**\
-`Scroll down for hints and conversation about the puzzle for Sunday, March 15, 2026.`\
-https://nytimes.com/2026/03/14/crosswords/connections-companion-1008.html
 
