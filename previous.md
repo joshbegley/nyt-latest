@@ -27,7 +27,7 @@ https://nytimes.com/athletic/7111093/2026/03/14/arsenal-manchester-city-premier-
 https://nytimes.com/athletic/7058537/2026/03/14/liverpool-transfers-homegrown-players/
 
 **Here is the latest.**\
-`By Farnaz Fassihi`\
+`By Farnaz Fassihi and Francesca Regalado`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
 
 **Iran War Live Updates: U.S. Says It Bombed Key Iranian Island With Oil Hub**\

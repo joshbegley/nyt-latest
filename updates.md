@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Farnaz Fassihi and Francesca Regalado`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
+
 **Archie Gray is rare ray of hope for Spurs. He deserves the love fans are showing him**\
 `In a season of misery and anger for Spurs fans, their response to the club's birthday message for Gray said a lot about how he is viewed`\
 https://nytimes.com/athletic/7115130/2026/03/14/archie-gray-tottenham-2/
