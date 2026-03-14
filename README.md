@@ -1,3 +1,7 @@
+**Archie Gray is rare ray of hope for Spurs. He deserves the love fans are showing him**\
+`In a season of misery and anger for Spurs fans, their response to the club's birthday message for Gray said a lot about how he is viewed`\
+https://nytimes.com/athletic/7115130/2026/03/14/archie-gray-tottenham-2/
+
 **What to Know About Kharg Island**\
 `The Persian Gulf island, targeted by U.S. strikes, is home to Iran’s main oil export terminal. Any disruption could jolt global energy markets.`\
 https://nytimes.com/2026/03/14/world/middleeast/what-to-know-about-kharg-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel
 **The ex-England striker, Rangers forward, and Premier League stalwart who have found a home at the Nomads**\
 `David Nugent, Martyn Waghorn and Jack Colback are among the ex-pros at eighth-tier Anstey Nomads as they seek to prolong their careers`\
 https://nytimes.com/athletic/7107733/2026/03/14/anstey-nomads-nugent-waghorn-colback-leicester/
-
-**It's taken Iraq 20 matches and 28 months to get a shot at the World Cup. Now comes the hard part**\
-`Geopolitical tensions had raised the prospect of Iraq being denied the chance to compete at their first World Cup in 40 years`\
-https://nytimes.com/athletic/7115443/2026/03/14/iraq-world-cup-2026/
 

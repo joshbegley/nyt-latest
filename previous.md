@@ -1,3 +1,27 @@
+**What to Know About Kharg Island**\
+`The Persian Gulf island, targeted by U.S. strikes, is home to Iran’s main oil export terminal. Any disruption could jolt global energy markets.`\
+https://nytimes.com/2026/03/14/world/middleeast/what-to-know-about-kharg-island.html
+
+**Welcome to the wild Polish league, where all 18 teams can still win the title... or be relegated**\
+`The Polish Ekstraklasa is the most competitive league in European football and attendances are reaching record highs`\
+https://nytimes.com/athletic/7112989/2026/03/14/polish-football-ekstraklasa-best-league/
+
+**Should Chelsea prioritise Newcastle or PSG? And who should play? Our writers have their say**\
+`The games against Newcastle and PSG could be season-defining. How should Chelsea manage them?`\
+https://nytimes.com/athletic/7114814/2026/03/14/chelsea-newcastle-psg-teams-analysis/
+
+**Kinsky, Tudor and what happens after a footballer is humiliated by his coach**\
+`The psychological impact of being hauled off after 15 minutes of a huge game is damaging — but it doesn't have to be terminal`\
+https://nytimes.com/athletic/7115045/2026/03/14/kinsky-tudor-tottenham-humiliated/
+
+**Arsenal, Manchester City and Premier League swing weekends: Take nothing for granted**\
+`The Premier League title race has taken a huge number of twists on 'swing weekends' - and they may not be over yet...`\
+https://nytimes.com/athletic/7111093/2026/03/14/arsenal-manchester-city-premier-league-swing-weekends/
+
+**How Liverpool's summer transfer window could be shaped by the homegrown player rule**\
+`The Anfield club have to balance maintaining their homegrown quota with expatriate stars - and it is no easy task`\
+https://nytimes.com/athletic/7058537/2026/03/14/liverpool-transfers-homegrown-players/
+
 **Here is the latest.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7107733/2026/03/14/anstey-nomads-nugent-waghorn-col
 **It's taken Iraq 20 matches and 28 months to get a shot at the World Cup. Now comes the hard part**\
 `Geopolitical tensions had raised the prospect of Iraq being denied the chance to compete at their first World Cup in 40 years`\
 https://nytimes.com/athletic/7115443/2026/03/14/iraq-world-cup-2026/
-
-**The numbers to know ahead of Premier League Matchweek 30**\
-`A record nine English clubs competed in European knockout football this week, but now the focus shifts back to the domestic league`\
-https://nytimes.com/athletic/7115390/2026/03/14/premier-league-odds-matchweek-30-betting/
-
-**From Kevin Garnett to Pat Cash, these are sport's greatest celebration moments**\
-`The Dominican Republic’s celebrations at the World Baseball Classic got The Athletic thinking about the most memorable in sport`\
-https://nytimes.com/athletic/7115119/2026/03/14/greatest-celebration-moments-sport-dominican-republic/
-
-**Alyssa Thompson interview: Adapting to life in London, tumult at Chelsea and the League Cup final**\
-`In a challenging season, the USWNT winger has been arguably Chelsea's best player. Now she can win her first piece of major club silverware`\
-https://nytimes.com/athletic/7112038/2026/03/14/alyssa-thompson-interview-chelsea-uswnt/
-
-**The New York Times in Print for Saturday, March 14, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/14/todays-new-york-times
-
-**Why Aryna Sabalenka and Elena Rybakina's head to head has a hidden final twist**\
-`The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
-https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
-
-**Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
-`Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
-https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
 
