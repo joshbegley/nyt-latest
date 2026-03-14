@@ -1,3 +1,7 @@
+**"My heart beats for this club": Wolfsburg's Popp to join Dortmund in summer**\
+`Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
+https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/
+
 **Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**\
 `In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
 https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/14/opinion/trump-hegseth.html
 **How to watch Sharks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117945/2026/03/14/sharks-vs-canadiens-stream-how-to-watch-march-14/
-
-**How to watch Hurricanes vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117941/2026/03/14/hurricanes-vs-lightning-stream-how-to-watch-march-14/
 

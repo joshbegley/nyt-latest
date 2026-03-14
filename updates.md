@@ -1,3 +1,7 @@
+**"My heart beats for this club": Wolfsburg's Popp to join Dortmund in summer**\
+`Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
+https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/
+
 **Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**\
 `In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
 https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
