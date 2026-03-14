@@ -1,3 +1,15 @@
+**Liverpool trigger one-year extension in Alisson's contract**\
+`The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
+https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
+
+**Rains Inundate Hawaii, Closing Schools and Causing Landslides**\
+`A storm system lashing Hawaii since Tuesday has caused flooding and power outages. The wettest spot in Maui had gotten nearly two feet of rain in the past 24 hours.`\
+https://nytimes.com/2026/03/14/weather/hawaii-kona-storm-rain-flooding-landslides.html
+
+**How a Marine Unit in the Middle East Could Open New Phase of Iran War**\
+`The unit’s arrival in the coming days will give the Pentagon the ability to quickly launch raids.`\
+https://nytimes.com/2026/03/14/us/politics/marines-iran-war.html
+
 **Chelsea's centre-circle ritual is winding up opponents, fans – and now referees are involved**\
 `Chelsea have been doing their huddle over the match ball since the game at Napoli in January and now officials are starting to intervene`\
 https://nytimes.com/athletic/7098878/2026/03/14/chelsea-centre-circle-ritual-huddle/

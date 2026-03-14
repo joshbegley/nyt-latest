@@ -1,3 +1,11 @@
+**Tehran Seems Largely Empty, as Many Flee and Others Weary of the Fighting**\
+`Residents say a heavy, lifeless atmosphere hangs over the streets of Iran’s capital, which has endured relentless attacks throughout the war.`\
+https://nytimes.com/2026/03/14/world/middleeast/tehran-empty-iran-strikes.html
+
+**How to watch Kings vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the Sacramento Kings play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118382/2026/03/14/kings-vs-clippers-stream-how-to-watch-march-14/
+
 **Liverpool trigger one-year extension in Alisson's contract**\
 `The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
 https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/14/world/middleeast/lebanon-medical-workers-killed.h
 **Chelsea's centre-circle ritual is winding up opponents, fans – and now referees are involved**\
 `Chelsea have been doing their huddle over the match ball since the game at Napoli in January and now officials are starting to intervene`\
 https://nytimes.com/athletic/7098878/2026/03/14/chelsea-centre-circle-ritual-huddle/
-
-**Canada wins Paralympic curling gold on one of the more dramatic final shots possible**\
-`With their time running out and no one sure whether they had already won, Canada faced the biggest decision of the tournament. And won.`\
-https://nytimes.com/athletic/7118112/2026/03/14/canada-paralympic-curling-gold-final-shot-drama/
-
-**Maple Leafs players speak out on Radko Gudas suspension, losing Auston Matthews**\
-`'We lose our captain for the year. It doesn’t seem like enough for me,' Leafs coach Craig Berube said of the five-game suspension.`\
-https://nytimes.com/athletic/7118162/2026/03/14/maple-leafs-reaction-matthews-gudas-suspension/
 

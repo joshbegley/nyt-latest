@@ -1,3 +1,15 @@
+**Liverpool trigger one-year extension in Alisson's contract**\
+`The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
+https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
+
+**Rains Inundate Hawaii, Closing Schools and Causing Landslides**\
+`A storm system lashing Hawaii since Tuesday has caused flooding and power outages. The wettest spot in Maui had gotten nearly two feet of rain in the past 24 hours.`\
+https://nytimes.com/2026/03/14/weather/hawaii-kona-storm-rain-flooding-landslides.html
+
+**How a Marine Unit in the Middle East Could Open New Phase of Iran War**\
+`The unit’s arrival in the coming days will give the Pentagon the ability to quickly launch raids.`\
+https://nytimes.com/2026/03/14/us/politics/marines-iran-war.html
+
 **Sandstorm Batters Gaza, Slamming Makeshift Shelters**\
 `Millions of Gazans have remained without proper housing since the war, according to the United Nations.`\
 https://nytimes.com/2026/03/14/world/middleeast/sandstorm-batters-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7118112/2026/03/14/canada-paralympic-curling-gold-f
 **Maple Leafs players speak out on Radko Gudas suspension, losing Auston Matthews**\
 `'We lose our captain for the year. It doesn’t seem like enough for me,' Leafs coach Craig Berube said of the five-game suspension.`\
 https://nytimes.com/athletic/7118162/2026/03/14/maple-leafs-reaction-matthews-gudas-suspension/
-
-**How to watch Virginia vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
-`Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118288/2026/03/14/virginia-vs-duke-stream-how-to-watch-march-14/
-
-**How to watch Toledo vs. Akron men's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the Akron Zips, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118281/2026/03/14/toledo-vs-akron-stream-how-to-watch-march-14/
-
-**How to watch Kennesaw State vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Kennesaw State Owls play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118270/2026/03/14/kennesaw-state-vs-louisiana-tech-stream-how-to-watch-march-14/
 
