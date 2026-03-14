@@ -2,8 +2,8 @@
 `In dozens of books, he rejected postmodern cynicism about truth and reason, arguing that rational communication was the best way to redeem democratic society.`\
 https://nytimes.com/2026/03/14/books/jurgen-habermas-dead.html
 
-**Another WBC subplot: Will Cal Raleigh snub Julio Rodriguez for a handshake?**\
-`One Mariners teammate has already made light of Cal Raleigh's aversion to in-game handshakes with opponents. Sunday presents another chance.`\
+**Another WBC subplot: Will Cal Raleigh snub Julio Rodríguez for a handshake?**\
+`One Mariners teammate has already made light of Raleigh's aversion to in-game handshakes with opponents. Sunday presents another chance.`\
 https://nytimes.com/athletic/7117898/2026/03/14/handshake-wbc-cal-raleigh-julio-rodriguez/
 
 **How to watch Houston vs. Arizona men's basketball: Big 12 Tournament Time, TV, streaming**\
