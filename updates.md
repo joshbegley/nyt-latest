@@ -1,3 +1,11 @@
+**How to watch Cal Baptist vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Cal Baptist Lancers play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118722/2026/03/14/cal-baptist-vs-utah-valley-stream-how-to-watch-march-15/
+
+**How to watch Hawaii vs. UC Irvine men's basketball: Big West Tournament Time, TV, streaming**\
+`Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118511/2026/03/14/how-to-watch-hawaii-vs-uc-irvine-mens-basketball-big-west-tournament-tv-channel-and-streaming-options-for-march-14/
+
 **Sandstorm Batters Gaza, Destroying Makeshift Shelters**\
 `A sandstorm swept across the Gaza Strip on Saturday. Millions of displaced people remain there without proper shelter amid the Israel-Hamas war.`\
 https://nytimes.com/video/world/middleeast/100000010776578/gaza-sandstorm-shelters-israel-hamas-war.html
