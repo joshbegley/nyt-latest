@@ -1,3 +1,7 @@
+**Chelsea's centre-circle ritual is winding up opponents, fans – and now referees are involved**\
+`Chelsea have been doing their huddle over the match ball since the game at Napoli in January and now officials are starting to intervene`\
+https://nytimes.com/athletic/7098878/2026/03/14/chelsea-centre-circle-ritual-huddle/
+
 **Sandstorm Batters Gaza, Slamming Makeshift Shelters**\
 `Millions of Gazans have remained without proper housing since the war, according to the United Nations.`\
 https://nytimes.com/2026/03/14/world/middleeast/sandstorm-batters-gaza.html
