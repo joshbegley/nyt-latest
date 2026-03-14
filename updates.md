@@ -1,3 +1,19 @@
+**From Kevin Garnett to Pat Cash, these are sport's greatest celebration moments**\
+`The Dominican Republic’s celebrations at the World Baseball Classic got The Athletic thinking about the most memorable in sport`\
+https://nytimes.com/athletic/7115119/2026/03/14/greatest-celebration-moments-sport-dominican-republic/
+
+**Alyssa Thompson interview: Adapting to life in London, tumult at Chelsea and the League Cup final**\
+`In a challenging season, the USWNT winger has been arguably Chelsea's best player. Now she can win her first piece of major club silverware`\
+https://nytimes.com/athletic/7112038/2026/03/14/alyssa-thompson-interview-chelsea-uswnt/
+
+**The New York Times in Print for Saturday, March 14, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/14/todays-new-york-times
+
+**Why Aryna Sabalenka and Elena Rybakina's head to head has a hidden final twist**\
+`The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
+https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
+
 **Why Elena Rybakina and Aryna Sabalenka's head to head has a hidden final twist**\
 `The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
 https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
