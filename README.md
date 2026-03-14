@@ -1,5 +1,5 @@
 **Scottie Barnes' block seals Raptors' comeback, reinforces team's toughness**\
-`Two nights after his team's toughness was openly questioned, Scottie Barnes and the Raptors responded with one of the blocks of the year.`\
+`Two nights after his team's toughness was openly questioned, Barnes and the Raptors responded with one of the blocks of the season.`\
 https://nytimes.com/athletic/7117161/2026/03/13/scottie-barnes-block-raptors-suns/
 
 **Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
