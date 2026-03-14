@@ -1,3 +1,15 @@
+**Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
+`Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m.`\
+https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
+
+**We Got Wolfgang Puck’s Chicken Potpie Recipe**\
+`When eaten on the couch in your pajamas, it makes for a very nice Oscars night.`\
+https://nytimes.com/2026/03/14/dining/we-got-wolfgang-pucks-chicken-potpie-recipe.html
+
+**Notts County player sent off... for throwing away opponent's boot**\
+`Bizarre incident saw Oliver Norburn throws away Armando Dobra's boot during a League Two clash at Meadow Lane`\
+https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-throwing-boot/
+
 **Trump Administration Approves Ultra-Deepwater Oil Drilling Plan**\
 `The $5 billion project in the Gulf of Mexico is expected to produce up to 10 billion barrels of oil by the end of this decade. Critics say it could endanger people and marine life.`\
 https://nytimes.com/2026/03/14/climate/trump-bp-gulf-of-mexico-drilling.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7117073/2026/03/14/wada-report-trump-world-cup-la-o
 **Wolves survive Warriors, turn focus to 'great challenge' of their matchup with Thunder**\
 `The Wolves had to expend extra energy to topple a decimated Warriors team. Minnesota will get no such respite in OKC on Sunday.`\
 https://nytimes.com/athletic/7117464/2026/03/14/timberwolves-warriors-okc-thunder/
-
-**This is what happened on March 13.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-13
-
-**Genevieve Ko Absolutely Adores Making Pie**\
-`Our resident baking queen takes the Bake Time questionnaire.`\
-https://nytimes.com/2026/03/14/dining/genevieve-ko-absolutely-adores-making-pie.html
-
-**'We needed to get back rolling': Pistons blow out Memphis, win third straight**\
-`The Pistons have rebounded from a four-game skid with a three-game winning streak: "They never started doubting what they were capable of."`\
-https://nytimes.com/athletic/7117619/2026/03/14/pistons-cade-cunningham-jalen-duren/
 

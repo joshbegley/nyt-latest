@@ -1,3 +1,15 @@
+**Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
+`Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m.`\
+https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
+
+**We Got Wolfgang Puck’s Chicken Potpie Recipe**\
+`When eaten on the couch in your pajamas, it makes for a very nice Oscars night.`\
+https://nytimes.com/2026/03/14/dining/we-got-wolfgang-pucks-chicken-potpie-recipe.html
+
+**Notts County player sent off... for throwing away opponent's boot**\
+`Bizarre incident saw Oliver Norburn throws away Armando Dobra's boot during a League Two clash at Meadow Lane`\
+https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-throwing-boot/
+
 **Trump Administration Approves Ultra-Deepwater Oil Drilling Plan**\
 `The $5 billion project in the Gulf of Mexico is expected to produce up to 10 billion barrels of oil by the end of this decade. Critics say it could endanger people and marine life.`\
 https://nytimes.com/2026/03/14/climate/trump-bp-gulf-of-mexico-drilling.html
