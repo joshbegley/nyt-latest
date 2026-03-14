@@ -1,3 +1,23 @@
+**Guerrilla Battle Over Padlocks and Tourist Trash on the Brooklyn Bridge**\
+`Love Locks left behind were one thing. But when actual garbage (like tampons and condoms) started appearing, a righteous quest to remove it was born.`\
+https://nytimes.com/2026/03/14/nyregion/brooklyn-bridge-locks-garbage-removal.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/14/crosswords/spelling-bee-forum.html
+
+**How John Slattery, the ‘Mad Men’ Star, Does Whatever He Wants**\
+`Mr. Slattery makes plans, and then he breaks them. His fans still find him anywhere he goes.`\
+https://nytimes.com/interactive/2026/03/14/nyregion/met-routine-john-slattery.html
+
+**Saturday Night at the Golden Corral, the Bronx Way**\
+`Two generations of one family have owned this restaurant in the Bronx, trying to change with the times while staying true to the borough.`\
+https://nytimes.com/2026/03/14/nyregion/golden-corral-bronx.html
+
+**Forget ‘Marty Supreme.’ Meet the Real Table Tennis Champion of New York.**\
+`Yasiris Ortiz, a 28-year-old star from the Bronx, is helping to bring free table tennis programing to children across the city.`\
+https://nytimes.com/2026/03/14/nyregion/marty-supreme-new-york-ping-pong.html
+
 **Here is the latest.**\
 `By Farnaz Fassihi and Francesca Regalado`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
