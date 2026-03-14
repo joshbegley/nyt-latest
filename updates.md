@@ -1,3 +1,11 @@
+**How to watch Ducks vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117492/2026/03/14/ducks-vs-senators-stream-how-to-watch-march-14/
+
+**JB Pritzker Wants to Be Judged on His Heart, Not His Money**\
+`The governor of Illinois and Trump antagonist has become a national figure for Democrats. Where will that lead?`\
+https://nytimes.com/2026/03/14/magazine/jb-pritzker-interview.html
+
 **How to watch Nets vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Brooklyn Nets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117483/2026/03/14/nets-vs-76ers-stream-how-to-watch-march-14/
