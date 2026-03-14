@@ -1,3 +1,7 @@
+**How to watch Cal Baptist vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
+`Find out how to watch the Cal Baptist Lancers play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118722/2026/03/14/cal-baptist-vs-utah-valley-stream-how-to-watch-march-15/
+
 **Sandstorm Batters Gaza, Destroying Makeshift Shelters**\
 `A sandstorm swept across the Gaza Strip on Saturday. Millions of displaced people remain there without proper shelter amid the Israel-Hamas war.`\
 https://nytimes.com/video/world/middleeast/100000010776578/gaza-sandstorm-shelters-israel-hamas-war.html
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-mi
 
 **How to watch Hawaii vs. UC Irvine men's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the Hawaii Rainbow Warriors play the UC Irvine Anteaters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118511/2026/03/14/hawaii-vs-uc-irvine-stream-how-to-watch-march-14/
+https://nytimes.com/athletic/7118511/2026/03/14/how-to-watch-hawaii-vs-uc-irvine-mens-basketball-big-west-tournament-tv-channel-and-streaming-options-for-march-14/
 
 **The Briefing: Chelsea 0 Newcastle 1 – Hosts run aground on resilient visitors as referee is caught in the middle**\
 `Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-
 **The Briefing: Arsenal 2 Everton 0 – Max Dowman to the rescue: Youngest scorer in Premier League history keeps title bid on track**\
 `Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
 https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
-
-**Serie B club Cesena confident of appointing Cole as new head coach**\
-`It would be the first senior head coach role for the former Chelsea and Arsenal defender. `\
-https://nytimes.com/athletic/7118360/2026/03/14/ashley-cole-cesena-head-coach/
 
