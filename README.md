@@ -2,8 +2,8 @@
 `The comment from Brendan Carr came on the heels of a social media message from President Trump criticizing the news media’s coverage of the war with Iran.`\
 https://nytimes.com/2026/03/14/world/middleeast/fcc-broadcasters-iran-war.html
 
-**WR Darnell Mooney agrees to one-year deal with Giants**\
-`New York Giants add speed receiver Darnell Mooney on 1 year-deal.`\
+**WR Darnell Mooney agrees to one-year deal with Giants: Source**\
+`New York Giants add speed receiver Darnell Mooney on one-year-deal.`\
 https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
 
 **Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\

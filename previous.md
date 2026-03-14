@@ -1,3 +1,7 @@
+**F.C.C. Chair Threatens to Revoke Broadcasters’ Licenses Over War Coverage**\
+`The comment from Brendan Carr came on the heels of a social media message from President Trump criticizing the news media’s coverage of the war with Iran.`\
+https://nytimes.com/2026/03/14/world/middleeast/fcc-broadcasters-iran-war.html
+
 **WR Darnell Mooney agrees to one-year deal with Giants**\
 `New York Giants add speed receiver Darnell Mooney on 1 year-deal.`\
 https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/14/world/middleeast/iran-war-recap-kharg-island-oil.
 **Inside F1's decision to cancel Bahrain and Saudi Arabian GPs, and what comes next**\
 `How the decisions to cancel the Bahrain and Saudi Arabian F1 races in 2026 due to the ongoing Middle East conflict were taken`\
 https://nytimes.com/athletic/7118105/2026/03/14/f1-races-cancelled-bahrain-saudi-arabia/
-
-**Bahrain and Saudi Arabian GPs canceled due to Middle East conflict**\
-`Both races being canceled leaves a 35-day gap between the Japanese GP on March 29 and the Miami GP on May 3.`\
-https://nytimes.com/athletic/7116058/2026/03/14/bahrain-saudi-grand-prix-canceled-f1/
 
