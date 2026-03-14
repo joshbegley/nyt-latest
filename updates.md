@@ -1,3 +1,7 @@
+**Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\
+`The email from the group Never Surrender seeks donations for President Trump from those who want access to “private national security briefings” from him.`\
+https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html
+
 **Live Q&A: Talk Blue Jays with reporter Mitch Bannon at 10:30 a.m. ET on Monday**\
 `<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
 `\
