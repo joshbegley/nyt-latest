@@ -1,3 +1,11 @@
+**Canada wins Paralympic curling gold on one of the more dramatic final shots possible**\
+`With their time running out and no one sure whether they had already won, Canada faced the biggest decision of the tournament. And won.`\
+https://nytimes.com/athletic/7118112/2026/03/14/canada-paralympic-curling-gold-final-shot-drama/
+
+**Maple Leafs players speak out on Radko Gudas suspension, losing Auston Matthews**\
+`'We lose our captain for the year. It doesn’t seem like enough for me,' Leafs coach Craig Berube said of the five-game suspension.`\
+https://nytimes.com/athletic/7118162/2026/03/14/maple-leafs-reaction-matthews-gudas-suspension/
+
 **How to watch Virginia vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
 `Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118288/2026/03/14/virginia-vs-duke-stream-how-to-watch-march-14/
