@@ -1,3 +1,7 @@
+**Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
+`Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
+https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
+
 **His Film Is Spain’s Submission to the Oscars. He’s Not Sure How Spanish It Is.**\
 `Spanish cinema has entered a new and more diverse era, film experts say. Oliver Laxe, the director of Oscar-nominated “Sirat,” embodies the shift.`\
 https://nytimes.com/2026/03/14/world/europe/sirat-spain-film-oscars.html

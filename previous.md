@@ -1,3 +1,7 @@
+**Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
+`Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
+https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
+
 **His Film Is Spain’s Submission to the Oscars. He’s Not Sure How Spanish It Is.**\
 `Spanish cinema has entered a new and more diverse era, film experts say. Oliver Laxe, the director of Oscar-nominated “Sirat,” embodies the shift.`\
 https://nytimes.com/2026/03/14/world/europe/sirat-spain-film-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/trump-issues-housing-executive-orders
 **Final bids in Padres' sale process expected in April; 4 groups in running: Sources**\
 `MLB franchise could fetch a price that exceeds the record $2.42 billion Steve Cohen paid for the New York Mets in 2020.`\
 https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/
-
-**Three factors that will shape Team USA vs. Dominican Republic in WBC semifinals**\
-`Two teams that were on a collision course for a matchup at some point in the World Baseball Classic will now meet in the semifinals.`\
-https://nytimes.com/athletic/7117076/2026/03/13/world-baseball-classic-team-usa-dominican-republic-semifinals/
 
