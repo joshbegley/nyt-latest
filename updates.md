@@ -1,3 +1,7 @@
+**Why Elena Rybakina and Aryna Sabalenka's head to head has a hidden final twist**\
+`The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
+https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
+
 **Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
 `Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
 https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
