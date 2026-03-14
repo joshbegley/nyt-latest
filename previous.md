@@ -1,3 +1,7 @@
+**Judge Rules Lawmaker Must Be Allowed to Join Kennedy Center Board Meeting**\
+`A judge ordered that Representative Joyce Beatty, a Democrat, be given access to planning documents and have the chance to oppose changes to the center at a board meeting next week.`\
+https://nytimes.com/2026/03/14/us/politics/kennedy-center-judge-order.html
+
 **"My heart beats for this club": Wolfsburg's Popp to join Dortmund in summer**\
 `Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
 https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-wat
 **Is There Method to Trump’s Madness?**\
 `Don’t hold your breath.`\
 https://nytimes.com/2026/03/14/opinion/trump-hegseth.html
-
-**How to watch Sharks vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117945/2026/03/14/sharks-vs-canadiens-stream-how-to-watch-march-14/
 

@@ -1,3 +1,7 @@
+**John M. Perkins Dies at 95; Evangelical Minister Espoused Social Justice**\
+`Inspired by the Gospel, he helped create a national network of community-development ministries “styled on the life of Jesus, who had the greatest concern for the weakest of people.”`\
+https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
+
 **Judge Rules Lawmaker Must Be Allowed to Join Kennedy Center Board Meeting**\
 `A judge ordered that Representative Joyce Beatty, a Democrat, be given access to planning documents and have the chance to oppose changes to the center at a board meeting next week.`\
 https://nytimes.com/2026/03/14/us/politics/kennedy-center-judge-order.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118010/2026/03/14/prairie-view-a-m-vs-southern-str
 **How to watch Hawaii vs. UCSD women's basketball: Big West Tournament Time, TV, streaming**\
 `Find out how to watch the Hawaii Rainbow Wahine play the UCSD Tritons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117974/2026/03/14/hawaii-vs-ucsd-stream-how-to-watch-march-14/
-
-**Is There Method to Trump’s Madness?**\
-`Don’t hold your breath.`\
-https://nytimes.com/2026/03/14/opinion/trump-hegseth.html
 
