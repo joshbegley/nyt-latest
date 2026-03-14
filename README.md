@@ -1,3 +1,11 @@
+**How to watch Virginia vs. Duke men's basketball: ACC Tournament Time, TV, streaming**\
+`Find out how to watch the Virginia Cavaliers play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118288/2026/03/14/virginia-vs-duke-stream-how-to-watch-march-14/
+
+**How to watch Toledo vs. Akron men's basketball: MAC Tournament Time, TV, streaming**\
+`Find out how to watch the Toledo Rockets play the Akron Zips, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7118281/2026/03/14/toledo-vs-akron-stream-how-to-watch-march-14/
+
 **How to watch Kennesaw State vs. Louisiana Tech men's basketball: CUSA Tournament Time, TV, streaming**\
 `Find out how to watch the Kennesaw State Owls play the Louisiana Tech Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118270/2026/03/14/kennesaw-state-vs-louisiana-tech-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118198/2026/03/14/blue-jackets-vs-flyers-stream-ho
 **How to watch Magic vs. Heat: Time, TV, streaming**\
 `Find out how to watch the Orlando Magic play the Miami Heat, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118155/2026/03/14/magic-vs-heat-stream-how-to-watch-march-14/
-
-**How to watch Nuggets vs. Lakers: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Los Angeles Lakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118144/2026/03/14/nuggets-vs-lakers-stream-how-to-watch-march-14/
-
-**John M. Perkins Dies at 95; Evangelical Minister Espoused Social Justice**\
-`Inspired by the Gospel, he helped create a national network of community-development ministries “styled on the life of Jesus, who had the greatest concern for the weakest of people.”`\
-https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
 
