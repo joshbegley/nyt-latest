@@ -1,3 +1,23 @@
+**His Film Is Spain’s Submission to the Oscars. He’s Not Sure How Spanish It Is.**\
+`Spanish cinema has entered a new and more diverse era, film experts say. Oliver Laxe, the director of Oscar-nominated “Sirat,” embodies the shift.`\
+https://nytimes.com/2026/03/14/world/europe/sirat-spain-film-oscars.html
+
+**Surge in Oil Prices Shakes Pakistan’s Already Fragile Economy**\
+`Families preparing for Eid al-Fitr and farmers ready for harvest are being squeezed in a country that gets nearly all its oil through the Persian Gulf.`\
+https://nytimes.com/2026/03/14/world/asia/pakistan-oil-prices.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 14, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7117224/2026/03/14/connections-sports-edition-hints-answers-march-14-2026/
+
+**China’s Edge in an Oil Shock: Electric Cars and Renewables**\
+`Beijing’s decades-long push to reduce its dependence on foreign oil with huge investments in clean energy sources like electric vehicles is now paying off.`\
+https://nytimes.com/2026/03/14/business/china-oil-cars.html
+
+**Corrections: March 14, 2026**\
+`Corrections that appeared in print on Saturday, March 14, 2026.`\
+https://nytimes.com/2026/03/14/pageoneplus/corrections-march-14-2026.html
+
 **Quote of the Day: To Grasp Modern Dance, Think Like a Child**\
 `Quotation of the Day for Saturday, March 14, 2026.`\
 https://nytimes.com/2026/03/13/pageoneplus/quote-of-the-day-to-grasp-modern-dance-think-like-a-child.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/
 **Three factors that will shape Team USA vs. Dominican Republic in WBC semifinals**\
 `Two teams that were on a collision course for a matchup at some point in the World Baseball Classic will now meet in the semifinals.`\
 https://nytimes.com/athletic/7117076/2026/03/13/world-baseball-classic-team-usa-dominican-republic-semifinals/
-
-**Team USA beats Canada, punches ticket to WBC semifinal clash with Dominican Republic**\
-`The Americans held off a late rally by Canada. Now they face a Dominican squad that has outscored opponents by 41 runs in five games.`\
-https://nytimes.com/athletic/7117145/2026/03/13/team-usa-wbc-dominican-republic-canada/
-
-**Scottie Barnes' block seals Raptors' comeback, reinforces team's toughness**\
-`Two nights after his team's toughness was openly questioned, Barnes and the Raptors responded with one of the blocks of the season.`\
-https://nytimes.com/athletic/7117161/2026/03/13/scottie-barnes-block-raptors-suns/
-
-**Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
-`The man who rammed his truck into a Michigan synagogue on Thursday killed himself during a firefight with security guards, law enforcement officials said.`\
-https://nytimes.com/video/us/100000010775826/michigan-synagogue-attacker-update.html
-
-**Bosom Buddy**\
-`Kameron Austin Collins’s Saturday puzzle has tricks up its sleeve.`\
-https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html
-
-**TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
-`The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
-https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html
 
