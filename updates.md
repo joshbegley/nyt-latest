@@ -1,3 +1,11 @@
+**Ex-State Trooper Convicted of Manslaughter in Death of Girl After Chase**\
+`Christopher Baldner, then a New York State trooper, rammed a family’s car during a high-speed chase in 2020, killing 11-year-old Monica Goods.`\
+https://nytimes.com/2026/03/14/nyregion/new-york-trooper-guilty-manslaughter-11-year-old.html
+
+**Two Antisemitic Attacks in Two Days in the Netherlands Shake Residents**\
+`Explosive devices were set off at two Jewish institutions in the Netherlands within two days, Dutch officials said on Saturday, denouncing what they described as antisemitic attacks.`\
+https://nytimes.com/video/world/europe/100000010776569/netherlands-amsterdam-jewish-school-attack.html
+
 **Tehran Seems Largely Empty, as Many Flee and Others Weary of the Fighting**\
 `Residents say a heavy, lifeless atmosphere hangs over the streets of Iran’s capital, which has endured relentless attacks throughout the war.`\
 https://nytimes.com/2026/03/14/world/middleeast/tehran-empty-iran-strikes.html
