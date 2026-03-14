@@ -1,3 +1,7 @@
+**Bosom Buddy**\
+`Kameron Austin Collins’s Saturday puzzle has tricks up its sleeve.`\
+https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html
+
 **TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
 `The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
 https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html

@@ -1,3 +1,7 @@
+**Bosom Buddy**\
+`Kameron Austin Collins’s Saturday puzzle has tricks up its sleeve.`\
+https://nytimes.com/2026/03/13/crosswords/daily-puzzle-2026-03-14.html
+
 **TikTok Investors Set to Pay $10 Billion Fee to Trump Administration**\
 `The large fee is the latest example of the White House’s inserting itself into corporate deal making in unusual and aggressive ways.`\
 https://nytimes.com/2026/03/13/business/tiktok-investors-set-to-pay-10-billion-fee-to-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-susp
 **Where Iran Is Hitting Back**\
 `Iran is retaliating against the U.S. with strikes on American sites throughout the Middle East. Our reporter Eric Schmitt looks at the damage these attacks have caused and what they tell us about Iran’s strategy.`\
 https://nytimes.com/video/us/100000010767681/where-iran-is-hitting-back.html
-
-**Radko Gudas suspended 5 games for hit on Auston Matthews**\
-`It is the fifth suspension for Gudas in his 14-year NHL career and his first since 2019.`\
-https://nytimes.com/athletic/7114294/2026/03/13/radko-gudas-suspension-auston-matthews/
 
