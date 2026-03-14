@@ -1,3 +1,7 @@
+**Minnesota, North Carolina, West Virginia win big in women's NCAA Tournament top 16 reveal**\
+`The full bracket will be revealed on Sunday.`\
+https://nytimes.com/athletic/7118521/2026/03/14/ncaa-tournament-womens-top-16-minnesota-north-carolina/
+
 **The Briefing: Arsenal 2 Everton 0 – Max Dowman to the rescue: Youngest scorer in Premier League history keeps title bid on track**\
 `Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
 https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
