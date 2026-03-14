@@ -1,3 +1,11 @@
+**The pieces are falling into place for Portland Thorns after a preseason of uncertainty**\
+`The arrival of head coach Robert Vilahamn and Sophia Wilson's return signal a new chapter for Portland`\
+https://nytimes.com/athletic/7117454/2026/03/14/portland-thorns-nwsl-sophia-wilson-oliva-moultrie/
+
+**How to watch Wizards vs. Celtics: Time, TV, streaming**\
+`Find out how to watch the Washington Wizards play the Boston Celtics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117885/2026/03/14/wizards-vs-celtics-stream-how-to-watch-march-14/
+
 **Fatal shooting near TPC delays fan entry, suspect entered course during manhunt**\
 `Third-round play proceeded normally Saturday, but spectators were not permitted to enter the course until 9 a.m.`\
 https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shooting-course-manhunt/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/7117830/2026/03/14/the-players-championship-shootin
 https://nytimes.com/2026/03/14/dining/we-got-wolfgang-pucks-chicken-potpie-recipe.html
 
 **Notts County player sent off... for throwing away opponent's boot**\
-`Bizarre incident saw Oliver Norburn throws away Armando Dobra's boot during a League Two clash at Meadow Lane`\
+`Bizarre incident saw Oliver Norburn throw away Armando Dobra's boot during a League Two clash at Meadow Lane`\
 https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-throwing-boot/
 
 **Trump Administration Approves Ultra-Deepwater Oil Drilling Plan**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/14/world/middleeast/lebanon-beirut-israel-displaced.
 **The prime minister, the pitch invasion and a 53-year rugby league record broken**\
 `Anthony Albanese joined thousands of fans who entered the pitch to celebrate Alex Johnston becoming the leading try-scorer in NRL history`\
 https://nytimes.com/athletic/7117676/2026/03/14/johnston-albanese-pitch-invasion-irvine-nrl/
-
-**WADA refutes report it's considering banning Trump, U.S. officials from L.A. Games**\
-`The Associated Press reported that WADA is reviewing a proposal to ban government officials from major sporting events.`\
-https://nytimes.com/athletic/7117073/2026/03/14/wada-report-trump-world-cup-la-olympics/
-
-**Wolves survive Warriors, turn focus to 'great challenge' of their matchup with Thunder**\
-`The Wolves had to expend extra energy to topple a decimated Warriors team. Minnesota will get no such respite in OKC on Sunday.`\
-https://nytimes.com/athletic/7117464/2026/03/14/timberwolves-warriors-okc-thunder/
 

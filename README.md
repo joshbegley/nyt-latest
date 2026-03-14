@@ -22,8 +22,8 @@ https://nytimes.com/athletic/7117824/2026/03/14/notts-county-player-sent-off-thr
 `The $5 billion project in the Gulf of Mexico is expected to produce up to 10 billion barrels of oil by the end of this decade. Critics say it could endanger people and marine life.`\
 https://nytimes.com/2026/03/14/climate/trump-bp-gulf-of-mexico-drilling.html
 
-**Lobbyist Who Helped a Client Pursue a Pardon is Arrested on an Extortion Charge**\
-`Josh Nass, a lawyer and lobbyist, had recently represented Joseph Schwartz, a former nursing home executive pardoned by President Trump late last year.`\
+**Lobbyist Arrested in Extortion Attempt of Client Who Received a Trump Pardon**\
+`Josh Nass, a lawyer and lobbyist, had recently represented Joseph Schwartz, a former nursing home executive pardoned by the president late last year.`\
 https://nytimes.com/2026/03/14/us/lobbyist-who-helped-a-client-pursue-a-pardon-is-arrested-on-an-extortion-charge.html
 
 **Snow business: How Alpine ski courses are chosen and set at the Winter Paralympics**\
