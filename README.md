@@ -1,3 +1,7 @@
+**Team USA beats Canada, punches ticket to WBC semifinal clash with Dominican Republic**\
+`The Americans held off a late rally by Canada. Now they face a Dominican squad that has outscored opponents by 41 runs in five games.`\
+https://nytimes.com/athletic/7117145/2026/03/13/team-usa-wbc-dominican-republic-canada/
+
 **Scottie Barnes' block seals Raptors' comeback, reinforces team's toughness**\
 `Two nights after his team's toughness was openly questioned, Barnes and the Raptors responded with one of the blocks of the season.`\
 https://nytimes.com/athletic/7117161/2026/03/13/scottie-barnes-block-raptors-suns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116988/2026/03/13/players-championship-2026-round-
 **Arizona's Jaden Bradley hits buzzer-beater to sink Iowa State, reach Big 12 final**\
 `Arizona and Iowa State combined to make 11 of their final 13 shots in a thrilling finish.`\
 https://nytimes.com/athletic/7117057/2026/03/13/arizona-buzzer-beater-jaden-bradley-iowa-state-big-12-tournament/
-
-**Dominican Republic ties WBC HR record with walk-off blast that ousts Korea**\
-`The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
-https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
 
