@@ -1,3 +1,11 @@
+**How to watch Cornell vs. Yale men's basketball: Ivy League Tournament Time, TV, streaming**\
+`Find out how to watch the Cornell Big Red play the Yale Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117453/2026/03/14/cornell-vs-yale-stream-how-to-watch-march-14/
+
+**How to watch Vermont vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
+`Find out how to watch the Vermont Catamounts play the UMBC Retrievers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117451/2026/03/14/vermont-vs-umbc-stream-how-to-watch-march-14/
+
 **How to watch Toledo vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
 `Find out how to watch the Toledo Rockets play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117447/2026/03/14/toledo-vs-miami-oh-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7115130/2026/03/14/archie-gray-tottenham-2/
 **What to Know About Kharg Island**\
 `The Persian Gulf island, targeted by U.S. strikes, is home to Iran’s main oil export terminal. Any disruption could jolt global energy markets.`\
 https://nytimes.com/2026/03/14/world/middleeast/what-to-know-about-kharg-island.html
-
-**Welcome to the wild Polish league, where all 18 teams can still win the title... or be relegated**\
-`The Polish Ekstraklasa is the most competitive league in European football and attendances are reaching record highs`\
-https://nytimes.com/athletic/7112989/2026/03/14/polish-football-ekstraklasa-best-league/
-
-**Should Chelsea prioritise Newcastle or PSG? And who should play? Our writers have their say**\
-`The games against Newcastle and PSG could be season-defining. How should Chelsea manage them?`\
-https://nytimes.com/athletic/7114814/2026/03/14/chelsea-newcastle-psg-teams-analysis/
 
