@@ -1,3 +1,7 @@
+**Wolves survive Warriors, turn focus to 'great challenge' of their matchup with Thunder**\
+`The Wolves had to expend extra energy to topple a decimated Warriors team. Minnesota will get no such respite in OKC on Sunday.`\
+https://nytimes.com/athletic/7117464/2026/03/14/timberwolves-warriors-okc-thunder/
+
 **This is what happened on March 13.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-13
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117716/2026/03/14/norfolk-state-vs-howard-stream-h
 **How to watch Hofstra vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Hofstra Pride play the Drexel Dragons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117708/2026/03/14/hofstra-vs-drexel-stream-how-to-watch-march-14/
-
-**How to watch Missouri State vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
-`Find out how to watch the Missouri State Bears play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117706/2026/03/14/missouri-state-vs-louisiana-tech-stream-how-to-watch-march-14/
 
