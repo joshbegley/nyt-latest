@@ -1,3 +1,7 @@
+**Why Elena Rybakina and Aryna Sabalenka's head to head has a hidden final twist**\
+`The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
+https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
+
 **Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
 `Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
 https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117251/2026/03/13/wnba-labor-negotiations-cathy-en
 **Trump Issues Executive Orders to Tackle Housing Supply, Demand**\
 `The orders could undermine bipartisan legislation the Senate passed earlier this week, the most significant housing package in decades.`\
 https://nytimes.com/2026/03/13/us/politics/trump-issues-housing-executive-orders.html
-
-**Final bids in Padres' sale process expected in April; 4 groups in running: Sources**\
-`MLB franchise could fetch a price that exceeds the record $2.42 billion Steve Cohen paid for the New York Mets in 2020.`\
-https://nytimes.com/athletic/7116849/2026/03/13/padres-sale-final-bids/
 
