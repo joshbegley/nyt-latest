@@ -1,3 +1,23 @@
+**Here is the latest.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
+
+**Iran War Live Updates: U.S. Says It Bombed Key Iranian Island With Oil Hub**\
+`President Trump said he directed the Pentagon to “totally obliterate” military assets on Kharg Island. The U.S. said it was deploying thousands of Marines to the region.`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel
+
+**The ex-England striker, Rangers forward, and Premier League stalwart who have found a home at the Nomads**\
+`David Nugent, Martyn Waghorn and Jack Colback are among the ex-pros at eighth-tier Anstey Nomads as they seek to prolong their careers`\
+https://nytimes.com/athletic/7107733/2026/03/14/anstey-nomads-nugent-waghorn-colback-leicester/
+
+**It's taken Iraq 20 matches and 28 months to get a shot at the World Cup. Now comes the hard part**\
+`Geopolitical tensions had raised the prospect of Iraq being denied the chance to compete at their first World Cup in 40 years`\
+https://nytimes.com/athletic/7115443/2026/03/14/iraq-world-cup-2026/
+
+**The numbers to know ahead of Premier League Matchweek 30**\
+`A record nine English clubs competed in European knockout football this week, but now the focus shifts back to the domestic league`\
+https://nytimes.com/athletic/7115390/2026/03/14/premier-league-odds-matchweek-30-betting/
+
 **From Kevin Garnett to Pat Cash, these are sport's greatest celebration moments**\
 `The Dominican Republic’s celebrations at the World Baseball Classic got The Athletic thinking about the most memorable in sport`\
 https://nytimes.com/athletic/7115119/2026/03/14/greatest-celebration-moments-sport-dominican-republic/

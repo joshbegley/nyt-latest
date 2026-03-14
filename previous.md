@@ -1,3 +1,23 @@
+**Here is the latest.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
+
+**Iran War Live Updates: U.S. Says It Bombed Key Iranian Island With Oil Hub**\
+`President Trump said he directed the Pentagon to “totally obliterate” military assets on Kharg Island. The U.S. said it was deploying thousands of Marines to the region.`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel
+
+**The ex-England striker, Rangers forward, and Premier League stalwart who have found a home at the Nomads**\
+`David Nugent, Martyn Waghorn and Jack Colback are among the ex-pros at eighth-tier Anstey Nomads as they seek to prolong their careers`\
+https://nytimes.com/athletic/7107733/2026/03/14/anstey-nomads-nugent-waghorn-colback-leicester/
+
+**It's taken Iraq 20 matches and 28 months to get a shot at the World Cup. Now comes the hard part**\
+`Geopolitical tensions had raised the prospect of Iraq being denied the chance to compete at their first World Cup in 40 years`\
+https://nytimes.com/athletic/7115443/2026/03/14/iraq-world-cup-2026/
+
+**The numbers to know ahead of Premier League Matchweek 30**\
+`A record nine English clubs competed in European knockout football this week, but now the focus shifts back to the domestic league`\
+https://nytimes.com/athletic/7115390/2026/03/14/premier-league-odds-matchweek-30-betting/
+
 **From Kevin Garnett to Pat Cash, these are sport's greatest celebration moments**\
 `The Dominican Republic’s celebrations at the World Baseball Classic got The Athletic thinking about the most memorable in sport`\
 https://nytimes.com/athletic/7115119/2026/03/14/greatest-celebration-moments-sport-dominican-republic/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-t
 **Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
 `Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
 https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
-
-**His Film Is Spain’s Submission to the Oscars. He’s Not Sure How Spanish It Is.**\
-`Spanish cinema has entered a new and more diverse era, film experts say. Oliver Laxe, the director of Oscar-nominated “Sirat,” embodies the shift.`\
-https://nytimes.com/2026/03/14/world/europe/sirat-spain-film-oscars.html
-
-**Surge in Oil Prices Shakes Pakistan’s Already Fragile Economy**\
-`Families preparing for Eid al-Fitr and farmers ready for harvest are being squeezed in a country that gets nearly all its oil through the Persian Gulf.`\
-https://nytimes.com/2026/03/14/world/asia/pakistan-oil-prices.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 14, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7117224/2026/03/14/connections-sports-edition-hints-answers-march-14-2026/
-
-**China’s Edge in an Oil Shock: Electric Cars and Renewables**\
-`Beijing’s decades-long push to reduce its dependence on foreign oil with huge investments in clean energy sources like electric vehicles is now paying off.`\
-https://nytimes.com/2026/03/14/business/china-oil-cars.html
-
-**Corrections: March 14, 2026**\
-`Corrections that appeared in print on Saturday, March 14, 2026.`\
-https://nytimes.com/2026/03/14/pageoneplus/corrections-march-14-2026.html
 

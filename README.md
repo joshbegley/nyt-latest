@@ -1,3 +1,15 @@
+**Kinsky, Tudor and what happens after a footballer is humiliated by his coach**\
+`The psychological impact of being hauled off after 15 minutes of a huge game is damaging — but it doesn't have to be terminal`\
+https://nytimes.com/athletic/7115045/2026/03/14/kinsky-tudor-tottenham-humiliated/
+
+**Arsenal, Manchester City and Premier League swing weekends: Take nothing for granted**\
+`The Premier League title race has taken a huge number of twists on 'swing weekends' - and they may not be over yet...`\
+https://nytimes.com/athletic/7111093/2026/03/14/arsenal-manchester-city-premier-league-swing-weekends/
+
+**How Liverpool's summer transfer window could be shaped by the homegrown player rule**\
+`The Anfield club have to balance maintaining their homegrown quota with expatriate stars - and it is no easy task`\
+https://nytimes.com/athletic/7058537/2026/03/14/liverpool-transfers-homegrown-players/
+
 **Here is the latest.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/here-is-the-latest
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7115119/2026/03/14/greatest-celebration-moments-spo
 **Alyssa Thompson interview: Adapting to life in London, tumult at Chelsea and the League Cup final**\
 `In a challenging season, the USWNT winger has been arguably Chelsea's best player. Now she can win her first piece of major club silverware`\
 https://nytimes.com/athletic/7112038/2026/03/14/alyssa-thompson-interview-chelsea-uswnt/
-
-**The New York Times in Print for Saturday, March 14, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/14/todays-new-york-times
-
-**Why Aryna Sabalenka and Elena Rybakina's head to head has a hidden final twist**\
-`The world No. 1 and world No. 2-to-be will meet in the BNP Paribas Open final for the second time.`\
-https://nytimes.com/athletic/7117169/2026/03/14/tennis-rybakina-sabalenka-head-to-head-indian-wells-final/
-
-**Talk of the Devils debate: Arguing why Bruno Fernandes should win player of the year**\
-`Bruno Fernandes' goals and assists have been worth 23 points so far this campaign, more than anyone else in the Premier League`\
-https://nytimes.com/athletic/7115651/2026/03/14/bruno-fernandes-player-of-the-year/
 
