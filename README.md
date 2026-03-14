@@ -1,3 +1,15 @@
+**Auston Matthews' agent blasts NHL for Radko Gudas suspension: 'Laughable and preposterous'**\
+`“The player safety department should be suspended,” Matthews' agent, Judd Moldaver, told The Athletic.`\
+https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-suspension-nhl-agent/
+
+**Where Iran Is Hitting Back**\
+`Iran is retaliating against the U.S. with strikes on American sites throughout the Middle East. Our reporter Eric Schmitt looks at the damage these attacks have caused and what they tell us about Iran’s strategy.`\
+https://nytimes.com/video/us/100000010767681/where-iran-is-hitting-back.html
+
+**Radko Gudas suspended 5 games for hit on Auston Matthews**\
+`It is the fifth suspension for Gudas in his 14-year NHL career and his first since 2019.`\
+https://nytimes.com/athletic/7114294/2026/03/13/radko-gudas-suspension-auston-matthews/
+
 **Pentagon’s Boat Bombings Are Illegal, Human Rights Panel Is Told**\
 `Experts condemned the U.S. campaign at a human rights meeting in Guatemala, and the Trump administration condemned the meeting.`\
 https://nytimes.com/2026/03/13/us/politics/pentagon-boat-bombings.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/13/world/middleeast/iran-war-middle-east-recap.html
 **A Restaurant Worker Was a Quiet Presence. Then He Attacked a Synagogue.**\
 `Days before the antisemitic violence, an imam recalled seeing Ayman Mohamad Ghazali at a service for his relatives who had been killed in the war in Lebanon.`\
 https://nytimes.com/2026/03/13/us/michigan-synagogue-suspect-ghazali.html
-
-**U.S. Military Attacks Iran’s Oil Export Hub, Trump Says**\
-`The strikes on Kharg Island targeted Iranian military forces, not economic infrastructure on the island, a U.S. military official said.`\
-https://nytimes.com/2026/03/13/world/middleeast/kharg-island-iran-oil-trump.html
-
-**A Crash, Gunfire and Then a Race to Save a Synagogue Full of Children**\
-`“I didn’t breathe until I knew all of the kids were OK,” one teacher recalled after a truck crashed through the doors of a Michigan synagogue this week.`\
-https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
-
-**Federal Judge Blocks Order Ending Deportation Protections for Somalis**\
-`The judge said she was staying the order indefinitely in large part because the Trump administration had been unprepared to defend it in court.`\
-https://nytimes.com/2026/03/13/us/politics/somalis-tps-deportations-trump.html
 

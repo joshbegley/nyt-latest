@@ -1,3 +1,11 @@
+**Pentagon’s Boat Bombings Are Illegal, Human Rights Panel Is Told**\
+`Experts condemned the U.S. campaign at a human rights meeting in Guatemala, and the Trump administration condemned the meeting.`\
+https://nytimes.com/2026/03/13/us/politics/pentagon-boat-bombings.html
+
+**Jared Kushner Solicits Funds for His Firm While Working as Mideast Envoy**\
+`President Trump’s son-in-law is trying to raise $5 billion or more from foreign governments and others for his private equity firm.`\
+https://nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.html
+
 **New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
 `The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
 https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/13/us/temple-israel-michigan-synagogue-staff.html
 **Federal Judge Blocks Order Ending Deportation Protections for Somalis**\
 `The judge said she was staying the order indefinitely in large part because the Trump administration had been unprepared to defend it in court.`\
 https://nytimes.com/2026/03/13/us/politics/somalis-tps-deportations-trump.html
-
-**Old Dominion Attacker Appeared to Target R.O.T.C., Court Records Show**\
-`Before opening fire in a university classroom, the gunman asked people if they were there for a Reserve Officers Training Corps event, court documents said.`\
-https://nytimes.com/2026/03/13/us/old-dominion-shooting-gunman-rotc.html
-
-**Auston Matthews out for season after knee-on-knee hit**\
-`The Maple Leafs captain sustained the injury after a nasty collision with Radko Gudas during the second period of Thursday’s 6-4 win.`\
-https://nytimes.com/athletic/7115718/2026/03/13/maple-leafs-auston-matthews-injury-knee/
 

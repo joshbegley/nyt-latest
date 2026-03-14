@@ -1,3 +1,11 @@
+**Pentagon’s Boat Bombings Are Illegal, Human Rights Panel Is Told**\
+`Experts condemned the U.S. campaign at a human rights meeting in Guatemala, and the Trump administration condemned the meeting.`\
+https://nytimes.com/2026/03/13/us/politics/pentagon-boat-bombings.html
+
+**Jared Kushner Solicits Funds for His Firm While Working as Mideast Envoy**\
+`President Trump’s son-in-law is trying to raise $5 billion or more from foreign governments and others for his private equity firm.`\
+https://nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.html
+
 **New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
 `The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
 https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
