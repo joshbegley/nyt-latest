@@ -1,3 +1,11 @@
+**What's it like being your country's only Paralympian? 'I'm making history'**\
+`More countries than ever are represented at the Winter Paralympics. Some of them have just a single athlete, each with a unique path.`\
+https://nytimes.com/athletic/7116130/2026/03/14/winter-paralympics-solo-athletes-alpine-skiing/
+
+**'I see a different Verbruggen': Hurzeler impressed by No 1's transformation**\
+`Verbruggen was at fault for Bukayo Saka's winner in the defeat to Arsenal last time out.`\
+https://nytimes.com/athletic/7115170/2026/03/14/bart-verbruggen-brighton-hurzeler/
+
 **How to watch Cornell vs. Yale men's basketball: Ivy League Tournament Time, TV, streaming**\
 `Find out how to watch the Cornell Big Red play the Yale Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117453/2026/03/14/cornell-vs-yale-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/14/nyregion/golden-corral-bronx.html
 **Forget ‘Marty Supreme.’ Meet the Real Table Tennis Champion of New York.**\
 `Yasiris Ortiz, a 28-year-old star from the Bronx, is helping to bring free table tennis programing to children across the city.`\
 https://nytimes.com/2026/03/14/nyregion/marty-supreme-new-york-ping-pong.html
-
-**Archie Gray is rare ray of hope for Spurs. He deserves the love fans are showing him**\
-`In a season of misery and anger for Spurs fans, their response to the club's birthday message for Gray said a lot about how he is viewed`\
-https://nytimes.com/athletic/7115130/2026/03/14/archie-gray-tottenham-2/
-
-**What to Know About Kharg Island**\
-`The Persian Gulf island, targeted by U.S. strikes, is home to Iran’s main oil export terminal. Any disruption could jolt global energy markets.`\
-https://nytimes.com/2026/03/14/world/middleeast/what-to-know-about-kharg-island.html
 
