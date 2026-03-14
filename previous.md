@@ -1,3 +1,7 @@
+**History Course**\
+`Miranda Kany whips up a Sunday puzzle for the ages.`\
+https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
+
 **France win Six Nations with last kick of game against England**\
 `The rugby union championship was eventually decided by a stoppage time penalty to defeat England and crush Ireland's trophy hopes. `\
 https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7111106/2026/03/14/west-ham-manchester-city-result-
 **How to watch Cal Baptist vs. Utah Valley men's basketball: WAC Tournament Time, TV, streaming**\
 `Find out how to watch the Cal Baptist Lancers play the Utah Valley Wolverines, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7118722/2026/03/14/cal-baptist-vs-utah-valley-stream-how-to-watch-march-15/
-
-**Sandstorm Batters Gaza, Destroying Makeshift Shelters**\
-`A sandstorm swept across the Gaza Strip on Saturday. Millions of displaced people remain there without proper shelter amid the Israel-Hamas war.`\
-https://nytimes.com/video/world/middleeast/100000010776578/gaza-sandstorm-shelters-israel-hamas-war.html
 

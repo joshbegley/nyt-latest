@@ -1,3 +1,7 @@
+**History Course**\
+`Miranda Kany whips up a Sunday puzzle for the ages.`\
+https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
+
 **France win Six Nations with last kick of game against England**\
 `The rugby union championship was eventually decided by a stoppage time penalty to defeat England and crush Ireland's trophy hopes. `\
 https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england/
