@@ -1,3 +1,7 @@
+**The 3.15.26 Issue**\
+``\
+https://nytimes.com/issue/magazine/2026/03/13/the-31526-issue
+
 **The Players Championship Round 2: What to know as Ludvig Åberg surges to lead**\
 `Aberg leads Xander Schauffele by two shots at the top of the leaderboard, with the game's top two players both in the back of the pack.`\
 https://nytimes.com/athletic/7116988/2026/03/13/players-championship-2026-round-2-what-to-know-ludvig-aberg/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.htm
 **New York Academy of Art Gives Away Money Donated by Jeffrey Epstein**\
 `The school also said that it would review policies about philanthropy and donor engagement after new revelations about the disgraced financier were made public.`\
 https://nytimes.com/2026/03/13/nyregion/new-york-academy-of-art-epstein.html
-
-**Wrexham hope to conquer the world. But first they want to rule Wales**\
-`Beating Swansea really mattered to Werxham and their fans, regardless of their Premier League ambitions`\
-https://nytimes.com/athletic/7110969/2026/03/13/wrexham-swansea-championship-result/
 
