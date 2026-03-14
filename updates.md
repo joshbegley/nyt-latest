@@ -1,3 +1,11 @@
+**Sandstorm Batters Gaza, Slamming Makeshift Shelters**\
+`Millions of Gazans have remained without proper housing since the war, according to the United Nations.`\
+https://nytimes.com/2026/03/14/world/middleeast/sandstorm-batters-gaza.html
+
+**He Came to New York for Fun. He Left Seeking $20 Million in Damages.**\
+`Faycal Manz, a German tourist, claimed that a taco had given him diarrhea, a Walmart store had discriminated against him and that an interaction with the police had given him insomnia.`\
+https://nytimes.com/2026/03/14/nyregion/german-tourist-new-york-lawsuit-walmart-nypd.html
+
 **The war has put Middle East water supplies at risk.**\
 `By Mira Rojanasakul, Claire Brown and Hiroko Tabuchi`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-war-has-put-middle-east-water-supplies-at-risk
