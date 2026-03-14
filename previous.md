@@ -1,3 +1,19 @@
+**How to watch Evansville vs. Illinois State women's basketball: MVC Tournament Time, TV, streaming**\
+`Find out how to watch the Evansville Purple Aces play the Illinois State Redbirds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117727/2026/03/14/evansville-vs-illinois-state-stream-how-to-watch-march-14/
+
+**How to watch Norfolk State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
+`Find out how to watch the Norfolk State Spartans play the Howard Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117716/2026/03/14/norfolk-state-vs-howard-stream-how-to-watch-march-14/
+
+**How to watch Hofstra vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
+`Find out how to watch the Hofstra Pride play the Drexel Dragons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117708/2026/03/14/hofstra-vs-drexel-stream-how-to-watch-march-14/
+
+**How to watch Missouri State vs. Louisiana Tech women's basketball: CUSA Tournament Time, TV, streaming**\
+`Find out how to watch the Missouri State Bears play the Louisiana Tech Lady Techsters, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117706/2026/03/14/missouri-state-vs-louisiana-tech-stream-how-to-watch-march-14/
+
 **How to watch Avalanche vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117679/2026/03/14/avalanche-vs-jets-stream-how-to-watch-march-14/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7117587/2026/03/14/wbc-paul-skenes-usa-dominican-re
 **Ryan Reynolds and Rob Mac’s Wrexham commentary: Do they know football?**\
 `The Wrexham co-owners joined presenter David Prutton to deliver an alternative commentary for their game against Welsh rivals Swansea City`\
 https://nytimes.com/athletic/7117236/2026/03/14/reynolds-mac-wrexham-commentary-sky-parkinson/
-
-**California’s Billionaire Tax Battle**\
-`Wealthy residents of the state have put millions of dollars toward stopping a proposed 5 percent tax on their assets.`\
-https://nytimes.com/2026/03/14/business/dealbook/california-billionaire-tax.html
-
-**Men's NCAA Tournament auto-bids tracker: Who's headed for March Madness?**\
-`Follow here to learn about the 31 teams earning at-large berths to the 2026 men's NCAA Tournament.`\
-https://nytimes.com/athletic/7097219/2026/03/14/march-madness-2026-mens-ncaa-tournament-auto-bid-tracker/
-
-**How to watch Ole Miss vs. Arkansas men's basketball: SEC Tournament Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117598/2026/03/14/ole-miss-vs-arkansas-stream-how-to-watch-march-14/
-
-**How to watch Pennsylvania vs. Harvard men's basketball: Ivy League Tournament Time, TV, streaming**\
-`Find out how to watch the Pennsylvania Quakers play the Harvard Crimson, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117595/2026/03/14/pennsylvania-vs-harvard-stream-how-to-watch-march-14/
 

@@ -1,3 +1,11 @@
+**How to watch Tulsa vs. Wichita State men's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Tulsa Golden Hurricane play the Wichita State Shockers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117771/2026/03/14/tulsa-vs-wichita-state-stream-how-to-watch-march-14/
+
+**How to watch Harvard vs. Princeton women's basketball: Ivy League Tournament Time, TV, streaming**\
+`Find out how to watch the Harvard Crimson play the Princeton Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117733/2026/03/14/harvard-vs-princeton-stream-how-to-watch-march-14/
+
 **How to watch Evansville vs. Illinois State women's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Evansville Purple Aces play the Illinois State Redbirds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117727/2026/03/14/evansville-vs-illinois-state-stream-how-to-watch-march-14/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7117627/2026/03/14/gavi-return-barcelona-team-news-
 **Blast at Dutch School Is 2nd Antisemitic Attack in 2 Days, Officials Say**\
 `No one was hurt in the explosion at a Jewish school in Amsterdam, or in an earlier one at a Rotterdam synagogue.`\
 https://nytimes.com/2026/03/14/world/europe/amsterdam-rotterdam-antisemitic-attacks.html
-
-**Rosenthal: Team USA hoping Paul Skenes can silence mighty bats of Dominican Republic**\
-`The Dominican Republic has been dominant in the WBC and would be overwhelming favorites in Sunday's semifinal if not for Paul Skenes.`\
-https://nytimes.com/athletic/7117587/2026/03/14/wbc-paul-skenes-usa-dominican-republic/
-
-**Ryan Reynolds and Rob Mac’s Wrexham commentary: Do they know football?**\
-`The Wrexham co-owners joined presenter David Prutton to deliver an alternative commentary for their game against Welsh rivals Swansea City`\
-https://nytimes.com/athletic/7117236/2026/03/14/reynolds-mac-wrexham-commentary-sky-parkinson/
 
