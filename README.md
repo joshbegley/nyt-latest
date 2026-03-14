@@ -1,3 +1,7 @@
+**Dominican Republic ties WBC home run record on Austin Wells' blast**\
+`The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
+https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
+
 **Auston Matthews' agent blasts NHL for Radko Gudas suspension: 'Laughable and preposterous'**\
 `“The player safety department should be suspended,” Matthews' agent, Judd Moldaver, told The Athletic.`\
 https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-suspension-nhl-agent/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/13/us/politics/trumps-war-alliance-with-israel-is-re
 **Here’s What Happened in the War in the Middle East on Friday**\
 `Defense Secretary Pete Hegseth said Friday would be the most intense day of the U.S. air campaign in Iran as a vital oil supply route remained choked off.`\
 https://nytimes.com/2026/03/13/world/middleeast/iran-war-middle-east-recap.html
-
-**A Restaurant Worker Was a Quiet Presence. Then He Attacked a Synagogue.**\
-`Days before the antisemitic violence, an imam recalled seeing Ayman Mohamad Ghazali at a service for his relatives who had been killed in the war in Lebanon.`\
-https://nytimes.com/2026/03/13/us/michigan-synagogue-suspect-ghazali.html
 
