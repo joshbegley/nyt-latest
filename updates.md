@@ -1,3 +1,7 @@
+**Scottie Barnes' block seals Raptors' comeback, reinforces team's toughness**\
+`Two nights after his team's toughness was openly questioned, Barnes and the Raptors responded with one of the blocks of the season.`\
+https://nytimes.com/athletic/7117161/2026/03/13/scottie-barnes-block-raptors-suns/
+
 **Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
 `The man who rammed his truck into a Michigan synagogue on Thursday killed himself during a firefight with security guards, law enforcement officials said.`\
 https://nytimes.com/video/us/100000010775826/michigan-synagogue-attacker-update.html

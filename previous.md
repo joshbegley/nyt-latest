@@ -1,3 +1,7 @@
+**Scottie Barnes' block seals Raptors' comeback, reinforces team's toughness**\
+`Two nights after his team's toughness was openly questioned, Barnes and the Raptors responded with one of the blocks of the season.`\
+https://nytimes.com/athletic/7117161/2026/03/13/scottie-barnes-block-raptors-suns/
+
 **Michigan Synagogue Attacker Killed Himself During Gunfight, Officials Say**\
 `The man who rammed his truck into a Michigan synagogue on Thursday killed himself during a firefight with security guards, law enforcement officials said.`\
 https://nytimes.com/video/us/100000010775826/michigan-synagogue-attacker-update.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117057/2026/03/13/arizona-buzzer-beater-jaden-brad
 **Dominican Republic ties WBC HR record with walk-off blast that ousts Korea**\
 `The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
 https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
-
-**Auston Matthews' agent blasts NHL for Radko Gudas suspension: 'Laughable and preposterous'**\
-`“The player safety department should be suspended,” Matthews' agent, Judd Moldaver, told The Athletic.`\
-https://nytimes.com/athletic/7117017/2026/03/13/auston-matthews-radko-gudas-suspension-nhl-agent/
 
