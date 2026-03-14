@@ -1,3 +1,11 @@
+**The war has put Middle East water supplies at risk.**\
+`By Mira Rojanasakul, Claire Brown and Hiroko Tabuchi`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-war-has-put-middle-east-water-supplies-at-risk
+
+**Chelsea's centre-circle ritual is winding up opponents, fans – and now even referees are involved**\
+`Chelsea have been doing their huddle over the match ball since the game at Napoli in January and now officials are starting to intervene`\
+https://nytimes.com/athletic/7098878/2026/03/14/chelsea-centre-circle-ritual-huddle/
+
 **Dozens of Medical Workers Killed as Israel Hits Lebanon**\
 `Lebanese health officials say that 31 health workers have been killed by Israeli strikes. Israel claimed, without evidence, that Hezbollah has been using ambulances and medical facilities.`\
 https://nytimes.com/2026/03/14/world/middleeast/lebanon-medical-workers-killed.html
