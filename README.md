@@ -1,3 +1,7 @@
+**Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\
+`The email from the group Never Surrender seeks donations for President Trump from those who want access to “private national security briefings” from him.`\
+https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html
+
 **Live Q&A: Talk Blue Jays with reporter Mitch Bannon at 10:30 a.m. ET on Monday**\
 `<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7116058/2026/03/14/bahrain-saudi-grand-prix-cancele
 **Lily Collins’s Ring, Stolen Years Ago, Makes an Unexpected Return**\
 `The ring, which belonged to Ms. Collins, the “Emily in Paris” actress, was stolen in 2023. Joe Hakimian, a Chicago jeweler, unknowingly listed it for sale in December. Then came a surprising message.`\
 https://nytimes.com/2026/03/14/us/lily-collins-engagement-ring-found.html
-
-**The Briefing: West Ham 1 Man City 1 – Is the title race over?**\
-`Dissecting the major talking points from Saturday's big Premier League match at the London Stadium`\
-https://nytimes.com/athletic/7111106/2026/03/14/west-ham-manchester-city-result-analysis/
 
