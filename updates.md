@@ -1,3 +1,7 @@
+**WADA refutes report it's considering banning Trump, U.S. officials from L.A. Games**\
+`The Associated Press reported that WADA is reviewing a proposal to ban government officials from major sporting events.`\
+https://nytimes.com/athletic/7117073/2026/03/14/wada-report-trump-world-cup-la-olympics/
+
 **Wolves survive Warriors, turn focus to 'great challenge' of their matchup with Thunder**\
 `The Wolves had to expend extra energy to topple a decimated Warriors team. Minnesota will get no such respite in OKC on Sunday.`\
 https://nytimes.com/athletic/7117464/2026/03/14/timberwolves-warriors-okc-thunder/

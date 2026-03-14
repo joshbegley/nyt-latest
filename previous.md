@@ -1,3 +1,7 @@
+**WADA refutes report it's considering banning Trump, U.S. officials from L.A. Games**\
+`The Associated Press reported that WADA is reviewing a proposal to ban government officials from major sporting events.`\
+https://nytimes.com/athletic/7117073/2026/03/14/wada-report-trump-world-cup-la-olympics/
+
 **Wolves survive Warriors, turn focus to 'great challenge' of their matchup with Thunder**\
 `The Wolves had to expend extra energy to topple a decimated Warriors team. Minnesota will get no such respite in OKC on Sunday.`\
 https://nytimes.com/athletic/7117464/2026/03/14/timberwolves-warriors-okc-thunder/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117727/2026/03/14/evansville-vs-illinois-state-str
 **How to watch Norfolk State vs. Howard women's basketball: MEAC Tournament Time, TV, streaming**\
 `Find out how to watch the Norfolk State Spartans play the Howard Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117716/2026/03/14/norfolk-state-vs-howard-stream-how-to-watch-march-14/
-
-**How to watch Hofstra vs. Drexel women's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Hofstra Pride play the Drexel Dragons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117708/2026/03/14/hofstra-vs-drexel-stream-how-to-watch-march-14/
 
