@@ -1,3 +1,7 @@
+**Sir Jim Ratcliffe praises Carrick, claims Manchester United 'are thinking about the Champions League'**\
+`When asked if the interim head coach could get the job permanently, the 73-year-old co-owner declined to answer. `\
+https://nytimes.com/athletic/7117515/2026/03/14/man-united-champions-league-carrick-future-ratcliffe/
+
 **Max Verstappen calls his 2026 F1 car 'undriveable' at the Chinese GP**\
 `Max Verstappen has called his new Red Bull F1 car "undriveable" after a day of poor results at the 2026 Chinese Grand prix`\
 https://nytimes.com/athletic/7117518/2026/03/14/max-verstappen-2026-f1-car-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117023/2026/03/14/radko-gudas-suspension-nhl-ducks
 **Will anyone ever be happy with the Big Ten's basketball schedule?**\
 `As the Big Ten has grown coast to coast, the conference and coaches are still looking for answers to the travel grind. `\
 https://nytimes.com/athletic/7117026/2026/03/14/can-the-big-ten-build-a-better-basketball-schedule-its-coast-to-coast-conundrum-remains/
-
-**My Sex Addiction Nearly Wrecked Our Marriage. Do We Have to Tell the Kids?**\
-`My wife worries that withholding such a significant fact becomes an ongoing deception that could undermine trust.`\
-https://nytimes.com/2026/03/14/magazine/sex-addiction-marriage-kids-ethics.html
 

@@ -1,3 +1,7 @@
+**Max Verstappen calls his 2026 F1 car 'undriveable' at the Chinese GP**\
+`Max Verstappen has called his new Red Bull F1 car "undriveable" after a day of poor results at the 2026 Chinese Grand prix`\
+https://nytimes.com/athletic/7117518/2026/03/14/max-verstappen-2026-f1-car-red-bull/
+
 **What’s Good?**\
 `Introducing The Good List, a new weekly newsletter by Melissa Kirsch designed to bring joy and meaning to your days.`\
 https://nytimes.com/2026/03/14/briefing/whats-good.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117026/2026/03/14/can-the-big-ten-build-a-better-b
 **My Sex Addiction Nearly Wrecked Our Marriage. Do We Have to Tell the Kids?**\
 `My wife worries that withholding such a significant fact becomes an ongoing deception that could undermine trust.`\
 https://nytimes.com/2026/03/14/magazine/sex-addiction-marriage-kids-ethics.html
-
-**Canada Takes Its Sovereignty Push to Space**\
-`The country aims to expand domestic satellite systems and cut dependence on American networks like Elon Musk’s Starlink.`\
-https://nytimes.com/2026/03/14/world/canada/starlink-satellites-defense-carney-canada.html
 
