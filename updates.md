@@ -1,3 +1,7 @@
+**John M. Perkins Dies at 95; Evangelical Minister Espoused Social Justice**\
+`Inspired by the Gospel, he helped create a national network of community-development ministries “styled on the life of Jesus, who had the greatest concern for the weakest of people.”`\
+https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
+
 **Judge Rules Lawmaker Must Be Allowed to Join Kennedy Center Board Meeting**\
 `A judge ordered that Representative Joyce Beatty, a Democrat, be given access to planning documents and have the chance to oppose changes to the center at a board meeting next week.`\
 https://nytimes.com/2026/03/14/us/politics/kennedy-center-judge-order.html
