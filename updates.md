@@ -1,3 +1,7 @@
+**WR Darnell Mooney agrees to one-year deal with Giants**\
+`New York Giants add speed receiver Darnell Mooney on 1 year-deal.`\
+https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
+
 **Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\
 `The email from the group Never Surrender seeks donations for President Trump from those who want access to “private national security briefings” from him.`\
 https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html

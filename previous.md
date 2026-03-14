@@ -1,3 +1,7 @@
+**WR Darnell Mooney agrees to one-year deal with Giants**\
+`New York Giants add speed receiver Darnell Mooney on 1 year-deal.`\
+https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
+
 **Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\
 `The email from the group Never Surrender seeks donations for President Trump from those who want access to “private national security briefings” from him.`\
 https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7118105/2026/03/14/f1-races-cancelled-bahrain-saudi
 **Bahrain and Saudi Arabian GPs canceled due to Middle East conflict**\
 `Both races being canceled leaves a 35-day gap between the Japanese GP on March 29 and the Miami GP on May 3.`\
 https://nytimes.com/athletic/7116058/2026/03/14/bahrain-saudi-grand-prix-canceled-f1/
-
-**Lily Collins’s Ring, Stolen Years Ago, Makes an Unexpected Return**\
-`The ring, which belonged to Ms. Collins, the “Emily in Paris” actress, was stolen in 2023. Joe Hakimian, a Chicago jeweler, unknowingly listed it for sale in December. Then came a surprising message.`\
-https://nytimes.com/2026/03/14/us/lily-collins-engagement-ring-found.html
 
