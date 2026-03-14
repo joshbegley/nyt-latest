@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 0 Newcastle 1 - Hosts left to rue sloppiness as referee is caught in the middle**\
+`Newcastle had not won at Stamford Bridge for 14 years, but a resilient display frustrated Chelsea to dent their Champions League ambitions`\
+https://nytimes.com/athletic/7111105/2026/03/14/chelsea-newcastle-huddle-gordon-palmer-livramento-hall/
+
+**The Briefing: Arsenal 2 Everton 0 - Max Dowman to the rescue: youngest scorer in Premier League history keeps title bid on track**\
+`Amy Lawrence analyses Arsenal's dramatic 2-0 win against Everton at the Emirates Stadium `\
+https://nytimes.com/athletic/7111104/2026/03/14/arsenal-everton-premier-league-analysis-dowman/
+
 **Serie B club Cesena confident of appointing Cole as new head coach**\
 `It would be the first senior head coach role for the former Chelsea and Arsenal defender. `\
 https://nytimes.com/athletic/7118360/2026/03/14/ashley-cole-cesena-head-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000010776569/netherlands-amsterdam-jew
 **Tehran Seems Largely Empty, as Many Flee and Others Weary of the Fighting**\
 `Residents say a heavy, lifeless atmosphere hangs over the streets of Iran’s capital, which has endured relentless attacks throughout the war.`\
 https://nytimes.com/2026/03/14/world/middleeast/tehran-empty-iran-strikes.html
-
-**How to watch Kings vs. Clippers: Time, TV, streaming**\
-`Find out how to watch the Sacramento Kings play the Los Angeles Clippers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7118382/2026/03/14/kings-vs-clippers-stream-how-to-watch-march-14/
-
-**Liverpool trigger one-year extension in Alisson's contract**\
-`The first-choice goalkeeper will extend his stay into the 2026-27 season after joining in 2018. `\
-https://nytimes.com/athletic/7118342/2026/03/14/alisson-liverpool-contract-extension/
 
