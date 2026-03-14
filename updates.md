@@ -1,3 +1,11 @@
+**France win Six Nations with last kick of game against England**\
+`The rugby union championship was eventually decided by a stoppage time penalty to defeat England and crush Ireland's trophy hopes. `\
+https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england/
+
+**Italy earns first-ever trip to WBC semifinals with win over Puerto Rico**\
+`Team Italy's unexpected World Baseball Classic run will continue, thanks to four-run rallies in the first and fourth innings in Houston.`\
+https://nytimes.com/athletic/7118475/2026/03/14/world-baseball-classic-quarterfinal-italy-puerto-rico/
+
 **U.S. Bombs Iranian Oil Hub**\
 `The U.S. attack on Kharg Island, Iran’s main oil export hub, came as tensions continued over control of the Strait of Hormuz, a critical waterway for oil transport.`\
 https://nytimes.com/video/world/middleeast/100000010776741/us-bombs-iranian-oil-hub.html
