@@ -1,3 +1,7 @@
+**'My heart beats for this club': Wolfsburg's Popp to join Dortmund in summer**\
+`Popp, 34, has won the Champions League three times alongside seven Frauen-Bundesliga titles during her time at the top-tier side. `\
+https://nytimes.com/athletic/7117892/2026/03/14/alexandra-popp-wolfsburg-dortmund-germany-transfer/
+
 **John M. Perkins Dies at 95; Evangelical Minister Espoused Social Justice**\
 `Inspired by the Gospel, he helped create a national network of community-development ministries “styled on the life of Jesus, who had the greatest concern for the weakest of people.”`\
 https://nytimes.com/2026/03/14/us/john-m-perkins-dead.html
