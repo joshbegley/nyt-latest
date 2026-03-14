@@ -1,40 +1,40 @@
-**Kimi Antonelli tops Chinese GP qualifying to become F1's youngest ever pole-sitter**\
-`Kimi Antonelli led the way for Mercedes in GP qualifying in China, after his teammate George Russell hit car trouble`\
-https://nytimes.com/athletic/7117456/2026/03/14/chinese-gp-qualifying-results-kimi-antonelli-mercedes/
+**How to watch Nets vs. 76ers: Time, TV, streaming**\
+`Find out how to watch the Brooklyn Nets play the Philadelphia 76ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7117483/2026/03/14/nets-vs-76ers-stream-how-to-watch-march-14/
 
-**What's it like being your country's only Paralympian? 'I'm making history'**\
-`More countries than ever are represented at the Winter Paralympics. Some of them have just a single athlete, each with a unique path.`\
-https://nytimes.com/athletic/7116130/2026/03/14/winter-paralympics-solo-athletes-alpine-skiing/
+**Justice Dept. Legal Threat Complicates Trump’s Pick for Fed Chair**\
+`An investigation of the Federal Reserve was thwarted on Friday, but a department appeal could reimpose an obstacle in Kevin Warsh’s path.`\
+https://nytimes.com/2026/03/14/business/federal-reserve-warsh-chair-investigation.html
 
-**'I see a different Verbruggen': Hurzeler impressed by No 1's transformation**\
-`Verbruggen was at fault for Bukayo Saka's winner in the defeat to Arsenal last time out.`\
-https://nytimes.com/athletic/7115170/2026/03/14/bart-verbruggen-brighton-hurzeler/
+**At War With Iran, U.S. Sees More Violence at Home**\
+`Several incidents, including an attack on a synagogue in Michigan, a shooting in Virginia and a thwarted explosives attack in New York, may be linked to the fighting in the Middle East.`\
+https://nytimes.com/2026/03/14/us/iran-us-attacks-terrorism-michigan-old-dominion.html
 
-**How to watch Cornell vs. Yale men's basketball: Ivy League Tournament Time, TV, streaming**\
-`Find out how to watch the Cornell Big Red play the Yale Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117453/2026/03/14/cornell-vs-yale-stream-how-to-watch-march-14/
+**War in Iran Has Put Middle East Water Supplies at Risk**\
+`Millions of people in the Persian Gulf depend on desalination plants for their water, but recent fighting has highlighted the system's vulnerability.`\
+https://nytimes.com/interactive/2026/03/14/climate/iran-war-water-supply-desalination.html
 
-**How to watch Vermont vs. UMBC men's basketball: America East Tournament Time, TV, streaming**\
-`Find out how to watch the Vermont Catamounts play the UMBC Retrievers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117451/2026/03/14/vermont-vs-umbc-stream-how-to-watch-march-14/
+**MacKenzie-Childs Fans Mourn the Loss of a True Original**\
+`Victoria MacKenzie-Childs, whose whimsical housewares became a 1990s status symbol, died last week.`\
+https://nytimes.com/2026/03/14/realestate/victoria-mackenzie-childs-fans-remembrance.html
 
-**How to watch Toledo vs. Miami (OH) women's basketball: MAC Tournament Time, TV, streaming**\
-`Find out how to watch the Toledo Rockets play the Miami (OH) RedHawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7117447/2026/03/14/toledo-vs-miami-oh-stream-how-to-watch-march-14/
+**Netanyahu Has the War He Always Wanted, but on Trump’s Terms**\
+`Israel’s prime minister wanted regime change in Iran. But President Trump seems prepared to settle for something less.`\
+https://nytimes.com/2026/03/14/world/middleeast/netanyahu-iran-war-trump.html
 
-**Guerrilla Battle Over Padlocks and Tourist Trash on the Brooklyn Bridge**\
-`Love Locks left behind were one thing. But when actual garbage (like tampons and condoms) started appearing, a righteous quest to remove it was born.`\
-https://nytimes.com/2026/03/14/nyregion/brooklyn-bridge-locks-garbage-removal.html
+**When Changing Your Address Leads to Losing Your Medicare Coverage**\
+`Using a post office box shouldn’t cost you your health insurance. But in one woman’s case, it sure seemed to.`\
+https://nytimes.com/2026/03/14/business/address-change-medicare-coverage.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/14/crosswords/spelling-bee-forum.html
+**Tips to Avoid Becoming the ‘Dead Wife in a Movie’ Trope**\
+`You can’t win an Oscar if your death in Act I becomes your husband’s entire character arc. Our cartoonist has some plot-worthy ideas.`\
+https://nytimes.com/2026/03/14/arts/dead-wife-movie-trope-sketchpad.html
 
-**How John Slattery, the ‘Mad Men’ Star, Does Whatever He Wants**\
-`Mr. Slattery makes plans, and then he breaks them. His fans still find him anywhere he goes.`\
-https://nytimes.com/interactive/2026/03/14/nyregion/met-routine-john-slattery.html
+**Is Latin America Ready to Abandon Cuba?**\
+`Latin America’s left saw Cuba as its lodestar. Now leaders across the spectrum are hesitant to aid a nation in the Trump administration’s cross hairs.`\
+https://nytimes.com/2026/03/14/world/americas/cuba-support-latin-america-conservative.html
 
-**Saturday Night at the Golden Corral, the Bronx Way**\
-`Two generations of one family have owned this restaurant in the Bronx, trying to change with the times while staying true to the borough.`\
-https://nytimes.com/2026/03/14/nyregion/golden-corral-bronx.html
+**Tim Kaine Is Forcing the Iran War Debate From the Minority**\
+`Senator Tim Kaine, Democrat of Virginia, has found a way to repeatedly occupy floor time and force all senators to take votes challenging President Trump’s use of military force.`\
+https://nytimes.com/2026/03/14/us/politics/tim-kaine-iran-war-congress.html
 
