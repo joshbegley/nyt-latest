@@ -1,3 +1,7 @@
+**Dominican Republic ties WBC HR record with walk-off blast that ousts Korea**\
+`The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
+https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
+
 **Dominican Republic ties WBC home run record on Austin Wells' blast**\
 `The Dominican Republic is poised to break Mexico's standing record of 14 home runs in the World Baseball Classic. `\
 https://nytimes.com/athletic/7110443/2026/03/13/dominican-republic-wbc-home-run-record-austin-wells/
