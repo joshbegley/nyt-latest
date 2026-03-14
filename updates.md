@@ -1,3 +1,11 @@
+**What's it like being your country's only Paralympian? 'I'm making history'**\
+`More countries than ever are represented at the Winter Paralympics. Some of them have just a single athlete, each with a unique path.`\
+https://nytimes.com/athletic/7116130/2026/03/14/winter-paralympics-solo-athletes-alpine-skiing/
+
+**'I see a different Verbruggen': Hurzeler impressed by No 1's transformation**\
+`Verbruggen was at fault for Bukayo Saka's winner in the defeat to Arsenal last time out.`\
+https://nytimes.com/athletic/7115170/2026/03/14/bart-verbruggen-brighton-hurzeler/
+
 **How to watch Cornell vs. Yale men's basketball: Ivy League Tournament Time, TV, streaming**\
 `Find out how to watch the Cornell Big Red play the Yale Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7117453/2026/03/14/cornell-vs-yale-stream-how-to-watch-march-14/
