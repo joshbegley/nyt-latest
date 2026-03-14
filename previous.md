@@ -1,3 +1,7 @@
+**Yaxel Lendeborg drills 3 with 0.4 left to send Michigan to Big Ten title game**\
+`Wisconsin’s Austin Rapp couldn’t miss, but it was Michigan’s Yaxel Lendeborg who called game.`\
+https://nytimes.com/athletic/7118372/2026/03/14/yaxel-lendeborg-michigan-wisconsin-highlights/
+
 **Ex-State Trooper Convicted of Manslaughter in Death of Girl After Chase**\
 `Christopher Baldner, then a New York State trooper, rammed a family’s car during a high-speed chase in 2020, killing 11-year-old Monica Goods.`\
 https://nytimes.com/2026/03/14/nyregion/new-york-trooper-guilty-manslaughter-11-year-old.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/14/world/middleeast/sandstorm-batters-gaza.html
 **He Came to New York for Fun. He Left Seeking $20 Million in Damages.**\
 `Faycal Manz, a German tourist, claimed that a taco had given him diarrhea, a Walmart store had discriminated against him and that an interaction with the police had given him insomnia.`\
 https://nytimes.com/2026/03/14/nyregion/german-tourist-new-york-lawsuit-walmart-nypd.html
-
-**The war has put Middle East water supplies at risk.**\
-`By Mira Rojanasakul, Claire Brown and Hiroko Tabuchi`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/the-war-has-put-middle-east-water-supplies-at-risk
 
