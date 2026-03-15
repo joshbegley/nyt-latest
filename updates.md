@@ -1,3 +1,15 @@
+**NCAA Tournament Bracket Watch: Florida keeps the last No. 1 seed and other last calls**\
+`Vanderbilt, which beat Florida on Saturday, could move up to a No. 3 seed with a win over Arkansas in the SEC tournament title game. `\
+https://nytimes.com/athletic/7119236/2026/03/15/71192march-madness-2026-bracketology-prediction-florida-uconn/
+
+**How to watch Blues vs. Jets: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119597/2026/03/15/blues-vs-jets-stream-how-to-watch-march-15/
+
+**The Pulse: Selection Sunday is here**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7119284/2026/03/15/selection-sunday-is-here-plus-the-wbc-champs-are-knocked-out/
+
 **Yankees under-the-radar reliever quietly making case for roster: 'Got my attention'**\
 `Kervin Castro has continued to stand out in a field of talented candidates vying for the two open spots in the back of New York's bullpen.`\
 https://nytimes.com/athletic/7118685/2026/03/15/yankees-kervin-castro-reliever-roster/
