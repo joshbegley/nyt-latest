@@ -1,3 +1,7 @@
+**From Chelsea to Camp Nou, Newcastle now have a blueprint to beat Barca**\
+`A monumental week had the perfect start - but Eddie Howe knows Newcastle's standards cannot slip`\
+https://nytimes.com/athletic/7117462/2026/03/15/newcastle-chelsea-analysis/
+
 **Guardiola does not often make mistakes. At West Ham, he made a big one**\
 `Manchester City's manager admitted he got his team selection wrong at West Ham in not selecting Rayan Cherki`\
 https://nytimes.com/athletic/7118851/2026/03/15/pep-guardiola-manchester-city-team-selection/
