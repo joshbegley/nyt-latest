@@ -1,3 +1,7 @@
+**For Trump, a Promised Economic Boom Collides With the Costs of War**\
+`President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
+https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
+
 **Panthers re-signing safety Nick Scott to 1-year contract**\
 `The deal is worth up to $3.25 million.`\
 https://nytimes.com/athletic/7118918/2026/03/14/safety-nick-scott-panthers-contract/

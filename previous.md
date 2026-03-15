@@ -1,3 +1,7 @@
+**For Trump, a Promised Economic Boom Collides With the Costs of War**\
+`President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
+https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
+
 **Daniil Medvedev snaps Carlos Alcaraz win streak for Indian Wells final against Jannik Sinner**\
 `Medvedev blended his vintage hard-court prowess with all-out attack to reach his first ATP Masters 1000 final in two years.`\
 https://nytimes.com/athletic/7118846/2026/03/14/tennis-medvedev-alcaraz-indian-wells-result-analysis/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england
 **Italy earns first-ever trip to WBC semifinals with win over Puerto Rico**\
 `Team Italy's unexpected World Baseball Classic run will continue, thanks to four-run rallies in the first and fourth innings in Houston.`\
 https://nytimes.com/athletic/7118475/2026/03/14/world-baseball-classic-quarterfinal-italy-puerto-rico/
-
-**U.S. Bombs Iranian Oil Hub**\
-`The U.S. attack on Kharg Island, Iran’s main oil export hub, came as tensions continued over control of the Strait of Hormuz, a critical waterway for oil transport.`\
-https://nytimes.com/video/world/middleeast/100000010776741/us-bombs-iranian-oil-hub.html
 
