@@ -1,3 +1,7 @@
+**Oscars Photos: All the Looks From the 2026 Red Carpet**\
+`See what nominees and guests for the 98th Academy Awards wore to arrive to the ceremony.`\
+https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
+
 **The Iran War’s Global Reach**\
 `The fighting is raising energy prices, hitting farmers and reshaping geopolitics. We look at the ripple effects worldwide.`\
 https://nytimes.com/2026/03/15/world/iran-war-effects-oil-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120273/2026/03/15/connor-mcdavid-nhl-suspensions-r
 **Liverpool need to 'wake up' or face Conference League, Szoboszlai says**\
 `The Hungary international scored but said he felt "flat" after the league champions were held to a 1-1 draw with Tottenham Hotspur. `\
 https://nytimes.com/athletic/7120355/2026/03/15/dominik-szoboszlai-liverpool-tottenham/
-
-**A preview of The Athletic’s live coverage this week**\
-`Our live coverage this week includes the World Baseball Classic, March Madness, the Champions League and more.`\
-https://nytimes.com/athletic/7117834/2026/03/15/march-madness-world-baseball-classic-champions-league/
 
