@@ -1,3 +1,7 @@
+**Arkansas serves notice with SEC tournament title: Beware the Hogs**\
+`John Calipari won his seventh SEC tournament Sunday — and Darius Acuff Jr. looks ready to lead what might be a Final Four contender.`\
+https://nytimes.com/athletic/7120227/2026/03/15/arkansas-vs-vanderbilt-sec-championship-basketball-score-result/
+
 **Paul R. Ehrlich, Who Alarmed the World With ‘The Population Bomb,’ Dies at 93**\
 `His best-selling 1968 book, which forecast global famines, made him a leader of the environmental movement. But he faced criticism when his predictions proved premature.`\
 https://nytimes.com/2026/03/15/books/paul-r-ehrlich-dead.html
