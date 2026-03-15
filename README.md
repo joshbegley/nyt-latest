@@ -1,3 +1,7 @@
+**Nordic Leaders Praise Carney as They Discuss Arctic Security**\
+`Canada’s prime minister got a warm welcome from leaders still smarting about President Trump’s remarks two months ago about taking over Greenland.`\
+https://nytimes.com/2026/03/15/world/canada/nordic-leaders-praise-carney-as-they-discuss-arctic-security.html
+
 **2026 Finalissima between Spain and Argentina cancelled due to Middle East conflict**\
 `The match, was slated to take place in Doha, Qatar on March 27, with UEFA stating that Argentina rejected multiple alternative proposals.`\
 https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-argentina-uefa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119713/2026/03/15/mavericks-vs-cavaliers-stream-ho
 **How to watch Pistons vs. Raptors: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Toronto Raptors, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119709/2026/03/15/pistons-vs-raptors-stream-how-to-watch-march-15/
-
-**The Harm of Banning Care for Trans Youth**\
-`Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
-https://nytimes.com/2026/03/15/opinion/trans-youth-care.html
 
