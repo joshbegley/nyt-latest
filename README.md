@@ -1,3 +1,7 @@
+**Arkansas serves notice with SEC tournament title: Beware the Hogs**\
+`John Calipari won his seventh SEC tournament Sunday — and Darius Acuff Jr. looks ready to lead what might be a Final Four contender.`\
+https://nytimes.com/athletic/7120227/2026/03/15/arkansas-vs-vanderbilt-sec-championship-basketball-score-result/
+
 **Paul R. Ehrlich, Who Alarmed the World With ‘The Population Bomb,’ Dies at 93**\
 `His best-selling 1968 book, which forecast global famines, made him a leader of the environmental movement. But he faced criticism when his predictions proved premature.`\
 https://nytimes.com/2026/03/15/books/paul-r-ehrlich-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/books/paula-doress-worters-dead.html
 **How to watch Predators vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120163/2026/03/15/predators-vs-oilers-stream-how-to-watch-march-15/
-
-**How Trump’s Homeland Security Pick, a Prolific Investor, Got a Lot Wealthier in Congress**\
-`Markwayne Mullin’s financial dealings take on new importance as the Senate considers his nomination to lead an agency whose budget has vastly expanded.`\
-https://nytimes.com/2026/03/15/us/politics/trump-markwayne-mullin-homeland-security-stocks.html
 
