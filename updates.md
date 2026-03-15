@@ -1,3 +1,7 @@
+**Panthers re-signing safety Nick Scott to 1-year contract**\
+`The deal is worth up to $3.25 million.`\
+https://nytimes.com/athletic/7118918/2026/03/14/safety-nick-scott-panthers-contract/
+
 **Daniil Medvedev snaps Carlos Alcaraz win streak for Indian Wells final against Jannik Sinner**\
 `Medvedev blended his vintage hard-court prowess with all-out attack to reach his first ATP Masters 1000 final in two years.`\
 https://nytimes.com/athletic/7118846/2026/03/14/tennis-medvedev-alcaraz-indian-wells-result-analysis/
