@@ -1,3 +1,7 @@
+**‘Eyes Everywhere’: As Always, Security Is Tight at the Oscars**\
+`Top state and local officials have said there were no specific imminent threats despite the war unfolding in the Middle East.`\
+https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
+
 **Will Lindsey Vonn retire after Olympic injury? She's 'not ready to think about it'**\
 `As speculation swirls about Vonn's future, the American Alpine skiing star said Sunday that she's not ready to make any decisions.`\
 https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/

@@ -1,3 +1,15 @@
+**Purdue caps brilliant run through Big Ten tourney with upset of Michigan**\
+`The Boilermakers capped a dynamic week at the United Center with an 80-72 win against the top-seeded Wolverines.`\
+https://nytimes.com/athletic/7120656/2026/03/15/purdue-michigan-big-ten-championship-basketball-score-result/
+
+**Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and one more playoff push**\
+`The Penguins managed to tread water without two of their most important players. Now their closers are set to return.`\
+https://nytimes.com/athletic/7120278/2026/03/15/penguins-sidney-crosby-evgeni-malkin-playoffs-stretch-run/
+
+**Family Outing in West Bank Ends in Hail of Israeli Gunfire**\
+`Six members of a Palestinian family went out for a ride in the car. Only two made it back home.`\
+https://nytimes.com/2026/03/15/world/middleeast/palestinian-family-killed-west-bank.html
+
 **‘Eyes Everywhere’: As Always, Security Is Tight at the Oscars**\
 `Top state and local officials have said there were no specific imminent threats despite the war unfolding in the Middle East.`\
 https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7120119/2026/03/15/tennis-sabalenka-rybakina-indian
 **Anti-ICE campaign takes to the streets near the ceremony.**\
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/anti-ice-campaign-takes-to-the-streets-near-the-ceremony
-
-**Women's NCAA Tournament automatic qualifiers ready for March Madness**\
-`A few upsets in the conference tournaments could shake up the NCAA Tournament field.`\
-https://nytimes.com/athletic/7120547/2026/03/15/womens-ncaa-tournament-automatic-qualifiers-march-madness/
-
-**Meet our team covering the Oscars.**\
-`We’ll have TKTK Times reporters. Here’s how we plan to cover the presidential debate.`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/new-york-times-oscars
-
-**How many Oscars will 'F1 The Movie' win? Experts say don't get your hopes up**\
-`The Athletic spoke to academic experts and film critics to assess how 'F1 The Movie' stacks against the other nominees.`\
-https://nytimes.com/athletic/7117544/2026/03/15/f1-the-movie-oscars-four-nominations-brad-pitt-expert-analysis/
 

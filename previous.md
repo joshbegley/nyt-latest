@@ -1,3 +1,7 @@
+**‘Eyes Everywhere’: As Always, Security Is Tight at the Oscars**\
+`Top state and local officials have said there were no specific imminent threats despite the war unfolding in the Middle East.`\
+https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
+
 **Will Lindsey Vonn retire after Olympic injury? She's 'not ready to think about it'**\
 `As speculation swirls about Vonn's future, the American Alpine skiing star said Sunday that she's not ready to make any decisions.`\
 https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/n
 **How many Oscars will 'F1 The Movie' win? Experts say don't get your hopes up**\
 `The Athletic spoke to academic experts and film critics to assess how 'F1 The Movie' stacks against the other nominees.`\
 https://nytimes.com/athletic/7117544/2026/03/15/f1-the-movie-oscars-four-nominations-brad-pitt-expert-analysis/
-
-**Connor McDavid weighs in on 'frustration' over NHL player safety**\
-`McDavid's comments came days after Radko Gudas received a five-game suspension for ending Auston Matthews' season with a knee-on-knee hit.`\
-https://nytimes.com/athletic/7120273/2026/03/15/connor-mcdavid-nhl-suspensions-radko-gudas/
 
