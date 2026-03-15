@@ -1,3 +1,7 @@
+**State Department Cuts Price of Renouncing U.S. Citizenship to $450**\
+`The fee had been increased to $2,350 in 2014, prompting criticism and legal challenges from advocacy groups and Americans living abroad.`\
+https://nytimes.com/2026/03/15/us/us-citizenship-renounce-price-cut.html
+
 **Lewis Hamilton's perfect present to his mom: 'One of the most special times in my life'**\
 `Hamilton has had a constant travel companion so far in F1 2026: His mother. `\
 https://nytimes.com/athletic/7119830/2026/03/15/lewis-hamilton-mothers-day-uk-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/us/politics/energy-secretary-iran-oil-prices.html
 **Nordic Leaders Praise Carney as They Discuss Arctic Security**\
 `Canada’s prime minister got a warm welcome from leaders still smarting about President Trump’s remarks two months ago about taking over Greenland.`\
 https://nytimes.com/2026/03/15/world/canada/nordic-leaders-praise-carney-as-they-discuss-arctic-security.html
-
-**2026 Finalissima between Spain and Argentina cancelled due to Middle East conflict**\
-`The match, was slated to take place in Doha, Qatar on March 27, with UEFA stating that Argentina rejected multiple alternative proposals.`\
-https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-argentina-uefa/
 
