@@ -1,3 +1,15 @@
+**How Trump’s Homeland Security Pick, a Prolific Investor, Got a Lot Wealthier in Congress**\
+`Markwayne Mullin’s financial dealings take on new importance as the Senate considers his nomination to lead an agency whose budget has vastly expanded.`\
+https://nytimes.com/2026/03/15/us/politics/trump-markwayne-mullin-homeland-security-stocks.html
+
+**How to watch Panthers vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120148/2026/03/15/panthers-vs-kraken-stream-how-to-watch-march-15/
+
+**How to watch Maple Leafs vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120141/2026/03/15/maple-leafs-vs-wild-stream-how-to-watch-march-15/
+
 **Which bubble teams are in the NCAA tournament bracket? Here's what the odds say**\
 `A look at the odds, with thoughts from Jim Root and Doug Kezirian, to break down the bubble teams, including Miami (OH) and Auburn.`\
 https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odds-bracket/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudm
 **Manchester United 3 Aston Villa 1: Champions League spot secured? Bruno Fernandes assist record inevitable?**\
 `Analysis of Manchester United's 3-1 win against Aston Villa at Old Trafford`\
 https://nytimes.com/athletic/7115243/2026/03/15/manchester-united-aston-villa-premier-league-analysis/
-
-**Meet the Aigners, the new Paralympic dynasty family that just won nine medals**\
-`Siblings Veronika and Johannes Aigner teamed for seven golds and nine medals in Italy, further cementing their family's Paralympic legacy.`\
-https://nytimes.com/athletic/7119802/2026/03/15/winter-paralympics-aigner-family-veronika-johannes/
-
-**State Department Cuts Price of Renouncing U.S. Citizenship to $450**\
-`The fee had been increased to $2,350 in 2014, prompting criticism and legal challenges from advocacy groups and Americans living abroad.`\
-https://nytimes.com/2026/03/15/us/us-citizenship-renounce-price-cut.html
-
-**Lewis Hamilton's perfect present to his mom: 'One of the most special times in my life'**\
-`Hamilton has had a constant travel companion so far in F1 2026: His mother. `\
-https://nytimes.com/athletic/7119830/2026/03/15/lewis-hamilton-mothers-day-uk-f1/
 
