@@ -1,3 +1,11 @@
+**‘Trash’ Review: Bickering About Chores, in Sign Language**\
+`James Caverly and Andrew Morrill star as Deaf roommates in their new comedy at the Perelman Performing Arts Center.`\
+https://nytimes.com/2026/03/15/theater/trash-review-perelman.html
+
+**‘This Is the Best Dish I Have Ever Made From NYT Cooking’**\
+`Readers love Andy Baraghani’s slow-cooked fish with citrus and herbs (and so do I).`\
+https://nytimes.com/2026/03/15/dining/this-is-the-best-dish-i-have-ever-made-from-nyt-cooking.html
+
 **This is what happened on March 14.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-14
