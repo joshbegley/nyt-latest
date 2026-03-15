@@ -1,3 +1,7 @@
+**Liverpool need to 'wake up' or face Conference League, Szoboszlai says**\
+`The Hungary international scored but said he felt "flat" after the league champions were held to a 1-1 draw with Tottenham Hotspur. `\
+https://nytimes.com/athletic/7120355/2026/03/15/dominik-szoboszlai-liverpool-tottenham/
+
 **A preview of The Athletic’s live coverage this week**\
 `Our live coverage this week includes the World Baseball Classic, March Madness, the Champions League and more.`\
 https://nytimes.com/athletic/7117834/2026/03/15/the-athletics-weekly-live-coverage-march-madness-world-baseball-classic-champions-league-and-more/
