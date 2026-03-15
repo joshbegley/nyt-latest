@@ -1,3 +1,7 @@
+**Canadiens scratched Brendan Gallagher for the first time in 13 years. Here's what it meant**\
+`The respected veteran was a healthy scratch in Saturday's loss to the Sharks, a representation of an existential dilemma for Montreal.`\
+https://nytimes.com/athletic/7119364/2026/03/15/canadiens-brendan-gallagher-scratch-loss-sharks/
+
 **Met Police open investigation into crowd incident at Arsenal vs. Everton**\
 `Everton forward Thierno Barry called the behaviour "unacceptable" and said that his friends "were attacked" during the match.`\
 https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry/
