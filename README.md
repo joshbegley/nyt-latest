@@ -18,7 +18,7 @@ https://nytimes.com/athletic/7117818/2026/03/15/womens-league-cup-final-roundtab
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times
 
-**In Defense of Political Oscars Speeches**\
+**Oscar Winners, Will You Be Complicit?**\
 `Right now it does matter a lot whether actors can find the right words.`\
 https://nytimes.com/2026/03/15/opinion/oscar-winners-political-speeches.html
 
