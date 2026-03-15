@@ -1,3 +1,7 @@
+**St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
+`With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
+https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/
+
 **Warning to Americans to leave Iraq is a sign the Iran war is spilling over the border.**\
 `By Pranav Baskar and Eve Sampson`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/warning-to-americans-to-leave-iraq-is-a-sign-the-iran-war-is-spilling-over-the-border
