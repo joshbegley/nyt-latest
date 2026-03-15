@@ -1,3 +1,7 @@
+**How to watch Ducks vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119926/2026/03/15/ducks-vs-canadiens-stream-how-to-watch-march-15/
+
 **Nations Respond With Caution to Trump’s Call to Send Warships to Strait of Hormuz**\
 `President Trump has urged China, Britain, France, Japan and South Korea to send warships to help reopen the waterway, even though they were not involved in the U.S.-Israeli attack on Iran.`\
 https://nytimes.com/2026/03/15/world/middleeast/trump-strait-of-hormuz-iran-warships.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-arge
 **Mercedes picked Kimi Antonelli to succeed Lewis Hamilton. He's repaid the faith**\
 `Antonelli has transformed from young hopeful to F1 winner in just over a year with Mercedes.`\
 https://nytimes.com/athletic/7119684/2026/03/15/kimi-antonelli-lewis-hamilton-f1-2026-chinese-gp/
-
-**Oscars Eve in Beverly Hills With Teyana Taylor, Jeff Bezos and Nicole Kidman**\
-`Film’s top stars buzzed over lychee martinis at Chanel’s annual Polo Lounge bash, and a Netflix chief mused about Hollywood’s biggest drama of the year.`\
-https://nytimes.com/2026/03/15/style/oscars-chanel-armani-party.html
 
