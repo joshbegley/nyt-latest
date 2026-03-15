@@ -1,3 +1,7 @@
+**Pereira questions VAR decision vs. Fulham: 'You cannot celebrate goals'**\
+`Dan Ndoye thought he had given Forest the lead on Sunday but his goal was disallowed for a marginal offside.`\
+https://nytimes.com/athletic/7120117/2026/03/15/nottingham-forest-vitor-pereira-var-fulham/
+
 **Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
 `Boston plans to have Crochet pitch on a six-day schedule to early in the season to manage his workload.`\
 https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to
 **U.S. beats Canada to win fifth straight Paralympic sled hockey gold medal**\
 `The Americans beat Canada, completing an Olympic and Paralympic hockey sweep and winning their sixth overall Paralympic gold.`\
 https://nytimes.com/athletic/7120063/2026/03/15/winter-paralympics-sled-hockey-usa-canada-gold-medal-jack-wallace/
-
-**Countdown to the Oscars**\
-`Text by Amanda Webster`\
-https://nytimes.com/card/2026/03/15/arts/countdown-to-the-oscars
 

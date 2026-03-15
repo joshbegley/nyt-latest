@@ -1,3 +1,7 @@
+**Pereira questions VAR decision vs. Fulham: 'You cannot celebrate goals'**\
+`Dan Ndoye thought he had given Forest the lead on Sunday but his goal was disallowed for a marginal offside.`\
+https://nytimes.com/athletic/7120117/2026/03/15/nottingham-forest-vitor-pereira-var-fulham/
+
 **Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
 `Boston plans to have Crochet pitch on a six-day schedule to early in the season to manage his workload.`\
 https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
