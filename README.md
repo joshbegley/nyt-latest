@@ -1,3 +1,7 @@
+**‘Doctor Who’ Fans Have Fresh Chance to Time Travel With Found Episodes**\
+`Two unearthed episodes, which were discovered in film canisters wrapped in plastic bags among the possessions of a dead collector in England, were restored by BBC archivists.`\
+https://nytimes.com/2026/03/15/arts/television/doctor-who-found-episodes.html
+
 **On Iran’s Doorstep, 2 Sister Nations Wage Their Own Bloody War**\
 `Pakistani airstrikes have killed at least 75 civilians and displaced 115,000 in Afghanistan, with both sides vowing escalation and no talks in sight.`\
 https://nytimes.com/2026/03/15/world/asia/afghanistan-pakistan-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120117/2026/03/15/nottingham-forest-vitor-pereira-
 **Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
 `Boston plans to have Crochet pitch on a six-day schedule early in the season to manage his workload.`\
 https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
-
-**Paula Doress-Worters, an Author of ‘Our Bodies, Ourselves,’ Dies at 87**\
-`She wrote about postpartum depression when it was an unmentionable like abortion or birth control, and her research on her own suffering helped countless women.`\
-https://nytimes.com/2026/03/15/books/paula-doress-worters-dead.html
 
