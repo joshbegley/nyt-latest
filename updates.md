@@ -1,3 +1,15 @@
+**Guardiola does not often make mistakes. At West Ham, he made a big one**\
+`Manchester City's manager admitted he got his team selection wrong at West Ham in not selecting Rayan Cherki`\
+https://nytimes.com/athletic/7118851/2026/03/15/pep-guardiola-manchester-city-team-selection/
+
+**Should Spurs really rehire Redknapp? A debate between two of our writers**\
+`Harry Redknapp returning to his old club feels implausible... but would it be so mad? We debate the pros and cons`\
+https://nytimes.com/athletic/7116672/2026/03/15/harry-redknapp-tottenham-manager/
+
+**Women's League Cup final: Who needs the silverware more as Manchester United take on Chelsea?**\
+`The Athletic's writers debate the key storylines ahead of Sunday's showpiece occasion at Ashton Gate`\
+https://nytimes.com/athletic/7117818/2026/03/15/womens-league-cup-final-roundtable/
+
 **The New York Times in Print for Sunday, March 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times

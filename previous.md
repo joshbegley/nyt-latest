@@ -1,3 +1,15 @@
+**Guardiola does not often make mistakes. At West Ham, he made a big one**\
+`Manchester City's manager admitted he got his team selection wrong at West Ham in not selecting Rayan Cherki`\
+https://nytimes.com/athletic/7118851/2026/03/15/pep-guardiola-manchester-city-team-selection/
+
+**Should Spurs really rehire Redknapp? A debate between two of our writers**\
+`Harry Redknapp returning to his old club feels implausible... but would it be so mad? We debate the pros and cons`\
+https://nytimes.com/athletic/7116672/2026/03/15/harry-redknapp-tottenham-manager/
+
+**Women's League Cup final: Who needs the silverware more as Manchester United take on Chelsea?**\
+`The Athletic's writers debate the key storylines ahead of Sunday's showpiece occasion at Ashton Gate`\
+https://nytimes.com/athletic/7117818/2026/03/15/womens-league-cup-final-roundtable/
+
 **The New York Times in Print for Sunday, March 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7119238/2026/03/15/venezuela-japan-wbc-scores-resul
 **Marseille’s Tight Mayoral Race Is a Bellwether for France’s Future**\
 `Voters across France choose mayors this week. The far right is performing strongly in the country’s second city, making the contest there a test of national shifts.`\
 https://nytimes.com/2026/03/15/world/europe/france-marseille-mayor-election-far-right.html
-
-**Quote of the Day: It Came From Outer Space, and Conquered**\
-`Quotation of the Day for Sunday, March 15, 2026.`\
-https://nytimes.com/2026/03/15/pageoneplus/quote-of-the-day-it-came-from-outer-space-and-conquered.html
-
-**New U.S. Diplomat Was Not So Diplomatic. South Africa Pushed Back.**\
-`The latest clash between the two countries illustrates the depths to which relations have sunk and the struggle to forge a new path forward.`\
-https://nytimes.com/2026/03/15/world/africa/south-africa-ambassador-bozell.html
-
-**Iceland’s Chief ‘Lava Cooler’ Is Bracing for the Next Eruption**\
-`Helgi Hjorleifsson, a firefighter, is a leader in a national experiment to steer rivers of lava away from important sites. Some called it crazy, but it worked.`\
-https://nytimes.com/2026/03/15/world/europe/iceland-lava-volcano-eruption-grindavik.html
 
