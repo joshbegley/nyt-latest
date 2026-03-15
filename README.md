@@ -1,3 +1,7 @@
+**Canadiens scratched Brendan Gallagher for the first time in 13 years. Here's what it meant**\
+`The respected veteran was a healthy scratch in Saturday's loss to the Sharks, a representation of an existential dilemma for Montreal.`\
+https://nytimes.com/athletic/7119364/2026/03/15/canadiens-brendan-gallagher-scratch-loss-sharks/
+
 **Met Police open investigation into crowd incident at Arsenal vs. Everton**\
 `Everton forward Thierno Barry called the behaviour "unacceptable" and said that his friends "were attacked" during the match.`\
 https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119617/2026/03/15/purdue-vs-michigan-stream-how-to
 **How to watch Hofstra vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Hofstra Pride play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119610/2026/03/15/hofstra-vs-charleston-sc-stream-how-to-watch-march-15/
-
-**How to watch Evansville vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
-`Find out how to watch the Evansville Purple Aces play the Murray State Racers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119608/2026/03/15/evansville-vs-murray-state-stream-how-to-watch-march-15/
 

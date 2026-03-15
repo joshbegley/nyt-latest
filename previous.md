@@ -1,3 +1,7 @@
+**Met Police open investigation into crowd incident at Arsenal vs. Everton**\
+`Everton forward Thierno Barry called the behaviour "unacceptable" and said that his friends "were attacked" during the match.`\
+https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry/
+
 **Access All Areas with Motherwell as they visit Celtic Park**\
 `Jordan Campbell spent the week with Jens Berthel Askou and his upwardly mobile team as they prepared to visit Celtic `\
 https://nytimes.com/athletic/7116264/2026/03/15/motherwell-askou-scotland-tactics-celtic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119610/2026/03/15/hofstra-vs-charleston-sc-stream-
 **How to watch Evansville vs. Murray State women's basketball: MVC Tournament Time, TV, streaming**\
 `Find out how to watch the Evansville Purple Aces play the Murray State Racers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119608/2026/03/15/evansville-vs-murray-state-stream-how-to-watch-march-15/
-
-**NCAA Tournament Bracket Watch: Florida keeps the last No. 1 seed and other last calls**\
-`Vanderbilt, which beat Florida on Saturday, could move up to a No. 3 seed with a win over Arkansas in the SEC tournament title game. `\
-https://nytimes.com/athletic/7119236/2026/03/15/71192march-madness-2026-bracketology-prediction-florida-uconn/
 

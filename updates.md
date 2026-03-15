@@ -1,3 +1,7 @@
+**Met Police open investigation into crowd incident at Arsenal vs. Everton**\
+`Everton forward Thierno Barry called the behaviour "unacceptable" and said that his friends "were attacked" during the match.`\
+https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry/
+
 **Access All Areas with Motherwell as they visit Celtic Park**\
 `Jordan Campbell spent the week with Jens Berthel Askou and his upwardly mobile team as they prepared to visit Celtic `\
 https://nytimes.com/athletic/7116264/2026/03/15/motherwell-askou-scotland-tactics-celtic/
