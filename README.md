@@ -1,3 +1,7 @@
+**Women's NCAA Tournament automatic qualifiers ready for March Madness**\
+`A few upsets in the conference tournaments could shake up the NCAA Tournament field.`\
+https://nytimes.com/athletic/7120547/2026/03/15/womens-ncaa-tournament-automatic-qualifiers-march-madness/
+
 **Meet our team covering the Oscars.**\
 `We’ll have TKTK Times reporters. Here’s how we plan to cover the presidential debate.`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/new-york-times-oscars
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet
 **Here’s the latest.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscar-highlights
-
-**How to watch the ceremony tonight.**\
-`By Sarah Bahr`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/how-to-watch-the-ceremony-tonight
 
