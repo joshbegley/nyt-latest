@@ -1,3 +1,23 @@
+**‘We Had Flunked Out of College and Did Not Want to Face Our Parents’**\
+`Traveling from Cleveland by thumb, a wallet surfaces in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2026/03/15/nyregion/metropolitan-diary.html
+
+**A Refugee Died After Border Patrol Left Him at a Cafe. Fear Followed.**\
+`Buffalo’s Arakan Rohingya community was rattled after a disabled man’s death. “Our worry comes from future incidents that may happen,” one resident said.`\
+https://nytimes.com/2026/03/15/nyregion/refugee-border-patrol-buffalo-rohingya.html
+
+**She Was Paralyzed by a Subway Train. Today, She’s Reclaiming Her Life.**\
+`The artist Emine Yilmaz was shoved into a passing subway car three years ago. Six surgeries later, she’s drawing again.`\
+https://nytimes.com/2026/03/15/nyregion/subway-artist-recovery-trial.html
+
+**Commuters, Rejoice! The New Portal Bridge Is Ready for Riders.**\
+`The old Portal Bridge disrupted rail commutes in New Jersey for decades, frequently getting stuck when it swung to let boat traffic pass. Now a new bridge is open to the public.`\
+https://nytimes.com/2026/03/15/nyregion/portal-bridge-open-construction.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/15/crosswords/spelling-bee-forum.html
+
 **Max Dowman: How a new star was born in 23 minutes**\
 `Arsenal were crying out for a creative spark against Everton – it was provided by an extraordinary performance by a 16 year old`\
 https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premier-league-youngest/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7118851/2026/03/15/pep-guardiola-manchester-city-te
 **Should Spurs really rehire Redknapp? A debate between two of our writers**\
 `Harry Redknapp returning to his old club feels implausible... but would it be so mad? We debate the pros and cons`\
 https://nytimes.com/athletic/7116672/2026/03/15/harry-redknapp-tottenham-manager/
-
-**Women's League Cup final: Who needs the silverware more as Manchester United take on Chelsea?**\
-`The Athletic's writers debate the key storylines ahead of Sunday's showpiece occasion at Ashton Gate`\
-https://nytimes.com/athletic/7117818/2026/03/15/womens-league-cup-final-roundtable/
-
-**The New York Times in Print for Sunday, March 15, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times
-
-**Oscar Winners, Will You Be Complicit?**\
-`Right now it does matter a lot whether actors can find the right words.`\
-https://nytimes.com/2026/03/15/opinion/oscar-winners-political-speeches.html
-
-**Luka Dončić's first Lakers game winner lifts L.A. past Denver in OT**\
-`Dončić had possession with the score tied, beat Spencer Jones to the baseline and hit a fading midrange jumper with 0.5 seconds left.`\
-https://nytimes.com/athletic/7119277/2026/03/15/luka-doncic-lakers-game-winner-triple-double-nuggets/
-
-**WBC semifinals set with Italy vs. Venezuela. Here’s how it could play out**\
-`Neither team has won a WBC championship. They meet Monday to determine who will get that chance. `\
-https://nytimes.com/athletic/7119117/2026/03/15/world-baseball-classic-italy-venezuela-preview/
 
