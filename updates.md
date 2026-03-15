@@ -1,3 +1,15 @@
+**Access All Areas with Motherwell as they visit Celtic Park**\
+`Jordan Campbell spent the week with Jens Berthel Askou and his upwardly mobile team as they prepared to visit Celtic `\
+https://nytimes.com/athletic/7116264/2026/03/15/motherwell-askou-scotland-tactics-celtic/
+
+**Arda Guler and the 68-metre 'golazo' that sent the Bernabeu wild**\
+`On Saturday night the Real Madrid midfielder scored one of the most spectacular goals La Liga has ever witnessed`\
+https://nytimes.com/athletic/7115735/2026/03/15/arda-guler-real-madrid-68-metre-goal/
+
+**Lowetide: Why the Oilers need to invest in college free agents again**\
+`Here's a look at college free agency this season, and where the Oilers will be looking for help.`\
+https://nytimes.com/athletic/7117900/2026/03/15/edmonton-oilers-free-agents-college-2026/
+
 **And the Oscar Goes to …**\
 `A guide to the 2026 Academy Awards.`\
 https://nytimes.com/2026/03/15/briefing/and-the-oscar-goes-to.html
