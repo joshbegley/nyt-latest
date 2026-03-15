@@ -1,3 +1,7 @@
+**Countdown to the Oscars**\
+`Text by Amanda Webster`\
+https://nytimes.com/card/2026/03/15/arts/countdown-to-the-oscars
+
 **Vingegaard wins Paris-Nice, Del Toro gets Tirreno-Adriatico title**\
 `Vingegaard topped the general classification by over four minutes despite just missing out on the final stage win on Sunday. `\
 https://nytimes.com/athletic/7119977/2026/03/15/vingegaard-del-toro-paris-nice-tirreno-adriatico/

@@ -1,3 +1,7 @@
+**Countdown to the Oscars**\
+`Text by Amanda Webster`\
+https://nytimes.com/card/2026/03/15/arts/countdown-to-the-oscars
+
 **Vingegaard wins Paris-Nice, Del Toro gets Tirreno-Adriatico title**\
 `Vingegaard topped the general classification by over four minutes despite just missing out on the final stage win on Sunday. `\
 https://nytimes.com/athletic/7119977/2026/03/15/vingegaard-del-toro-paris-nice-tirreno-adriatico/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/world/middleeast/trump-strait-of-hormuz-iran-wars
 **How to watch Trail Blazers vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119889/2026/03/15/trail-blazers-vs-76ers-stream-how-to-watch-march-15/
-
-**‘Trash’ Review: Bickering About Chores, in Sign Language**\
-`James Caverly and Andrew Morrill star as Deaf roommates in their new comedy at the Perelman Performing Arts Center.`\
-https://nytimes.com/2026/03/15/theater/trash-review-perelman.html
 
