@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7119977/2026/03/15/vingegaard-del-toro-paris-nice-tirreno-adriatico/
 
 **The Briefing: Palace 0 Leeds 0 - Gudmundsson red, Calvert-Lewin penalty woe, but was this a critical point?**\
-`Daniel Farke's side missed a spot kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
+`Daniel Farke's side missed a spot-kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
 https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudmundsson-palace/
 
 **Manchester United 3 Aston Villa 1: Champions League spot secured? Bruno Fernandes assist record inevitable?**\
