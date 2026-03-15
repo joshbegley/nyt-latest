@@ -1,3 +1,5 @@
+
+
 **Confidential Report Calls for Sweeping Changes to Track Covid Vaccine Harms**\
 `A federal work group says Covid vaccine injuries deserve urgent attention, even as Health Secretary Robert F. Kennedy Jr. shifts away from talking about vaccine policy.`\
 https://nytimes.com/2026/03/15/health/covid-vaccine-side-effects-cdc-acip.html
