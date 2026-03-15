@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, March 15, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times
+
+**In Defense of Political Oscars Speeches**\
+`Right now it does matter a lot whether actors can find the right words.`\
+https://nytimes.com/2026/03/15/opinion/oscar-winners-political-speeches.html
+
 **WBC semifinals set with Italy vs. Venezuela. Here’s how it could play out**\
 `Neither team has won a WBC championship. They meet Monday to determine who will get that chance. `\
 https://nytimes.com/athletic/7119117/2026/03/15/world-baseball-classic-italy-venezuela-preview/

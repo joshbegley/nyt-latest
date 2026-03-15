@@ -1,3 +1,7 @@
+**Women's League Cup final: Who needs the silverware more as Manchester United take on Chelsea?**\
+`The Athletic's writers debate the key storylines ahead of Sunday's showpiece occasion at Ashton Gate`\
+https://nytimes.com/athletic/7117818/2026/03/15/womens-league-cup-final-roundtable/
+
 **The New York Times in Print for Sunday, March 15, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/15/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/pageoneplus/quote-of-the-day-it-came-from-outer-s
 **New U.S. Diplomat Was Not So Diplomatic. South Africa Pushed Back.**\
 `The latest clash between the two countries illustrates the depths to which relations have sunk and the struggle to forge a new path forward.`\
 https://nytimes.com/2026/03/15/world/africa/south-africa-ambassador-bozell.html
-
-**Iceland’s Chief ‘Lava Cooler’ Is Bracing for the Next Eruption**\
-`Helgi Hjorleifsson, a firefighter, is a leader in a national experiment to steer rivers of lava away from important sites. Some called it crazy, but it worked.`\
-https://nytimes.com/2026/03/15/world/europe/iceland-lava-volcano-eruption-grindavik.html
 
