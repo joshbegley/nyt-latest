@@ -1,3 +1,31 @@
+**Marseille’s Tight Mayoral Race Is a Bellwether for France’s Future**\
+`Voters across France choose mayors this week. The far right is performing strongly in the country’s second city, making the contest there a test of national shifts.`\
+https://nytimes.com/2026/03/15/world/europe/france-marseille-mayor-election-far-right.html
+
+**Quote of the Day: It Came From Outer Space, and Conquered**\
+`Quotation of the Day for Sunday, March 15, 2026.`\
+https://nytimes.com/2026/03/15/pageoneplus/quote-of-the-day-it-came-from-outer-space-and-conquered.html
+
+**New U.S. Diplomat Was Not So Diplomatic. South Africa Pushed Back.**\
+`The latest clash between the two countries illustrates the depths to which relations have sunk and the struggle to forge a new path forward.`\
+https://nytimes.com/2026/03/15/world/africa/south-africa-ambassador-bozell.html
+
+**Iceland’s Chief ‘Lava Cooler’ Is Bracing for the Next Eruption**\
+`Helgi Hjorleifsson, a firefighter, is a leader in a national experiment to steer rivers of lava away from important sites. Some called it crazy, but it worked.`\
+https://nytimes.com/2026/03/15/world/europe/iceland-lava-volcano-eruption-grindavik.html
+
+**Some Olympic Leaders Want to See Fixed Winter Games Host Cities**\
+`Fewer cities are bidding for Olympics, and those that are can’t always accommodate every event. The Milan-Cortina Games were the most sprawling Olympics in history.`\
+https://nytimes.com/2026/03/15/world/europe/winter-olympics-future-sites.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 15, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7119244/2026/03/15/connections-sports-edition-hints-answers-march-15-2026/
+
+**Corrections: March 15, 2026**\
+`No corrections appeared in print on Sunday, March 15, 2026.`\
+https://nytimes.com/2026/03/15/pageoneplus/corrections-march-15-2026.html
+
 **What the Maple Leafs looked like in their first game without Auston Matthews**\
 `The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance offered glimmers of hope.`\
 https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-mi
 **Another 'stinker' at home spoils Spurgeon's 1,000th game: Takeaways**\
 `The Wild dominated the second half but couldn't overcome a 4-1 deficit despite peppering Igor Shesterkin with 48 shots.`\
 https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/
-
-**Duke outlasts Virginia to complete second straight ACC regular-season and tournament sweep**\
-`Down two starters, Duke becomes the first team in over 25 years to sweep the ACC regular-season and tournament title in consecutive seasons.`\
-https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/
-
-**Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
-`Åberg will try to make it consecutive European winners at TPC Sawgrass after Rory McIlroy's victory last year.`\
-https://nytimes.com/athletic/7118971/2026/03/14/ludvig-aberg-players-championship-day-three-notes/
-
-**Three More Iranian Soccer Players Withdraw Bid for Asylum in Australia**\
-`Seven members of the national women’s team had sought refuge in the country after they were labeled ‘traitors’ at home. Four of them have since changed their minds.`\
-https://nytimes.com/2026/03/14/world/australia/iranian-soccer-asylum-australia.html
-
-**Daniil Medvedev snaps Carlos Alcaraz win streak for Indian Wells final against Jannik Sinner**\
-`Medvedev blended his vintage hard-court prowess with all-out attack to reach his first ATP Masters 1000 final in two years.`\
-https://nytimes.com/athletic/7118846/2026/03/14/tennis-medvedev-alcaraz-indian-wells-result-analysis/
-
-**U.S. Military Names 6 Service Members Killed in Crash of Refueling Tanker in Iraq**\
-`The crew members had been part of the U.S. and Israel’s war on Iran, bringing the death toll of American service members in the conflict to at least 13.`\
-https://nytimes.com/2026/03/14/us/names-of-us-soliders-killed-tanker-crash.html
-
-**Anže Kopitar becomes L.A. Kings' all-time leading scorer**\
-`Kopitar, the Kings' captain and a two-time Stanley Cup champion, is in his 20th and final NHL season.`\
-https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record-dionne/
-
-**What we saw, heard at The Players Championship: Åberg grinds to 3-shot lead**\
-`A look inside the third round of The Players Championship, where Scottie Scheffler made another Saturday charge.`\
-https://nytimes.com/athletic/7118650/2026/03/14/pga-players-championship-third-round-ludvig-aberg/
 

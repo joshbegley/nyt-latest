@@ -1,3 +1,7 @@
+**What the Maple Leafs looked like in their first game without Auston Matthews**\
+`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance offered glimmers of hope.`\
+https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
+
 **Duke outlasts Virginia to complete second straight ACC regular-season and tournament sweep**\
 `Down two starters, Duke becomes the first team in over 25 years to sweep the ACC regular-season and tournament title in consecutive seasons.`\
 https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/

@@ -1,5 +1,5 @@
 **What the Maple Leafs looked like in their first game without Auston Matthews**\
-`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance still offered a glimmer of hope.`\
+`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance offered glimmers of hope.`\
 https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
 
 **Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
