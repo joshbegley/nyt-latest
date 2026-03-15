@@ -1,3 +1,7 @@
+**Meet the Paralympic 'wax bros': Inside the fine art of perfecting para snowboards**\
+`Ever-changing snow conditions make finding the right wax a constant challenge for wax techs.`\
+https://nytimes.com/athletic/7118829/2026/03/15/winter-paralympics-wax-techs-snowboard-skiing/
+
 **Here is the latest.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel/here-is-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premi
 **Two Arrested in Death of Anti-Iranian Regime Activist in Canada**\
 `A man and a woman were charged with murder in what the authorities described as a “targeted incident” against Masood Masjoody, who had gone missing weeks ago in British Columbia.`\
 https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
-
-**Chelsea and 'Huddlegate': Is Liam Rosenior focusing on the wrong issue?**\
-`Chelsea's form is not good – and huddling around the match ball or even a stone-faced referee is unlikely to make things better`\
-https://nytimes.com/athletic/7119033/2026/03/15/chelsea-huddle-newcastle-liam-rosenior-form/
 
