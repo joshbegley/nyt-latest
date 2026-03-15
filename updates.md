@@ -1,3 +1,7 @@
+**Nordic Leaders Praise Carney as They Discuss Arctic Security**\
+`Canada’s prime minister got a warm welcome from leaders still smarting about President Trump’s remarks two months ago about taking over Greenland.`\
+https://nytimes.com/2026/03/15/world/canada/nordic-leaders-praise-carney-as-they-discuss-arctic-security.html
+
 **2026 Finalissima between Spain and Argentina cancelled due to Middle East conflict**\
 `The match, was slated to take place in Doha, Qatar on March 27, with UEFA stating that Argentina rejected multiple alternative proposals.`\
 https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-argentina-uefa/
