@@ -1,3 +1,11 @@
+**Amy Madigan wins best supporting actress.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
+
+**Men's 2026 March Madness NCAA tournament forecast bracket**\
+``\
+https://nytimes.com/athletic/7087750/2026/03/15/mens-2026-march-madness-ncaa-tournament-forecast-bracket/
+
 **Laporta re-elected as Barcelona president**\
 `The 63-year-old beat his only opponent Victor Fort with 68 per cent of the 48,480 votes cast.  `\
 https://nytimes.com/athletic/7116797/2026/03/15/joan-laporta-barcelona-president-election/
