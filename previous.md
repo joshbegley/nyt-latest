@@ -1,3 +1,11 @@
+**Our Favorite Photos From the Oscars Red Carpet**\
+`Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
+https://nytimes.com/2026/03/15/arts/our-favorite-photos-from-the-oscars-red-carpet.html
+
+**Auburn left out of NCAA Tournament as Miami (Ohio) lands last at-large spot**\
+`Auburn had one of the best wins of the regular season, beating Florida in Gainesville, and had the nation's third-toughest schedule.`\
+https://nytimes.com/athletic/7120820/2026/03/15/auburn-miami-ohio-march-madness-ncaa-tournament-snubs/
+
 **Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
 `Florida was the only mild question mark among the top seeds before the NCAA selection committee unveiled the bracket Sunday on CBS.`\
 https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/crosswords/daily-puzzle-2026-03-16.html
 **Francisco Lindor returns to action, speaks optimistically about Opening Day**\
 `Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
 https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
-
-**Desperation in Cuba Ignites Unusual Acts of Defiance**\
-`A protest in the city of Morón in central Cuba culminated in fiery vandalism at the local Communist Party headquarters.`\
-https://nytimes.com/2026/03/15/world/americas/desperation-in-cuba-ignites-unusual-acts-of-defiance.html
-
-**Purdue caps brilliant run through Big Ten tourney with upset of Michigan**\
-`Smith sits one assist shy of tying the NCAA career assist record held by Bobby Hurley after leading the Boilermakers past Michigan.`\
-https://nytimes.com/athletic/7120656/2026/03/15/purdue-michigan-big-ten-championship-basketball-score-result/
 

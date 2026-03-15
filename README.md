@@ -1,3 +1,7 @@
+**March Madness bracket prep 2026: Strengths, weaknesses, previews for all 68 teams**\
+`Get all the info you need on this year's Big Dance with an in-depth look at all 68 teams in the men's NCAA Tournament.`\
+https://nytimes.com/athletic/7090849/2026/03/15/mens-march-madness-team-preview-big-board/
+
 **Our Favorite Photos From the Oscars Red Carpet**\
 `Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
 https://nytimes.com/2026/03/15/arts/our-favorite-photos-from-the-oscars-red-carpet.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/o
 **Wide-Eyed and Eager**\
 `In Jamey Smith’s puzzle, school is in session.`\
 https://nytimes.com/2026/03/15/crosswords/daily-puzzle-2026-03-16.html
-
-**Francisco Lindor returns to action, speaks optimistically about Opening Day**\
-`Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
-https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
 

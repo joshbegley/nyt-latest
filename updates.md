@@ -1,3 +1,11 @@
+**Our Favorite Photos From the Oscars Red Carpet**\
+`Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
+https://nytimes.com/2026/03/15/arts/our-favorite-photos-from-the-oscars-red-carpet.html
+
+**Auburn left out of NCAA Tournament as Miami (Ohio) lands last at-large spot**\
+`Auburn had one of the best wins of the regular season, beating Florida in Gainesville, and had the nation's third-toughest schedule.`\
+https://nytimes.com/athletic/7120820/2026/03/15/auburn-miami-ohio-march-madness-ncaa-tournament-snubs/
+
 **Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
 `Florida was the only mild question mark among the top seeds before the NCAA selection committee unveiled the bracket Sunday on CBS.`\
 https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
