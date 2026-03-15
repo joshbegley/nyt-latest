@@ -1,3 +1,7 @@
+**No Corrections: March 16, 2026**\
+`No corrections appeared in print on Monday, March 16, 2026.`\
+https://nytimes.com/2026/03/15/corrections/no-corrections-march-16-2026.html
+
 **Game, Set, Match: Jannik Sinner stops surging Daniil Medvedev for first desert title**\
 `Sinner staved off Medvedev's increased aggressiveness to claim the title and begin a push back toward catching Carlos Alcaraz as world No. 1`\
 https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/
@@ -10,8 +14,8 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/a
 ``\
 https://nytimes.com/athletic/7087750/2026/03/15/mens-2026-march-madness-ncaa-tournament-forecast-bracket/
 
-**Laporta re-elected as Barcelona president**\
-`The 63-year-old beat his only opponent Victor Fort with 68 per cent of the 48,480 votes cast.  `\
+**Laporta re-elected as Barcelona president with 68 per cent of vote**\
+`The 63-year-old said he was sure the upcoming years would be "some of the best in our lives" as he beat opponent Victor Font. `\
 https://nytimes.com/athletic/7116797/2026/03/15/joan-laporta-barcelona-president-election/
 
 **Young's clutch play at The Players gives him biggest win of his career**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/arts/2026-oscars-red-carpet-fashion-looks.html
 **Auburn left out of NCAA Tournament as Miami (Ohio) lands last at-large spot**\
 `Auburn had one of the best wins of the regular season, beating Florida in Gainesville, and had the nation's third-toughest schedule.`\
 https://nytimes.com/athletic/7120820/2026/03/15/auburn-miami-ohio-march-madness-ncaa-tournament-snubs/
-
-**Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
-`Miami (Ohio) makes the field as a No. 11 seed and will play SMU in the First Four in Dayton, Ohio.`\
-https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
 

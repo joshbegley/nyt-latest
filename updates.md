@@ -1,3 +1,7 @@
+**Amy Madigan wins best supporting actress.**\
+`The actress won for her role as Aunt Gladys in the horror movie “Weapons.”`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
+
 **Game, Set, Match: Jannik Sinner stops surging Daniil Medvedev for first desert title**\
 `Sinner staved off Medvedev's increased aggressiveness to claim the title and begin a push back toward catching Carlos Alcaraz as world No. 1`\
 https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/

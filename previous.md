@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/
 
 **Amy Madigan wins best supporting actress.**\
-`By Emmanuel Morgan`\
+`The actress won for her role as Aunt Gladys in the horror movie “Weapons.”`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
 
 **Men's 2026 March Madness NCAA tournament forecast bracket**\
