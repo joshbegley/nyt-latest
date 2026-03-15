@@ -1,3 +1,7 @@
+**Meet the Paralympic 'wax bros': Inside the fine art of perfecting para snowboards**\
+`Ever-changing snow conditions make finding the right wax a constant challenge for wax techs.`\
+https://nytimes.com/athletic/7118829/2026/03/15/winter-paralympics-wax-techs-snowboard-skiing/
+
 **Here is the latest.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel/here-is-the-latest
