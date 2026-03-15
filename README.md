@@ -1,3 +1,15 @@
+**NCAA Tournament Bracket Watch: Florida keeps the last No. 1 seed and other last calls**\
+`Vanderbilt, which beat Florida on Saturday, could move up to a No. 3 seed with a win over Arkansas in the SEC tournament title game. `\
+https://nytimes.com/athletic/7119236/2026/03/15/71192march-madness-2026-bracketology-prediction-florida-uconn/
+
+**How to watch Blues vs. Jets: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119597/2026/03/15/blues-vs-jets-stream-how-to-watch-march-15/
+
+**The Pulse: Selection Sunday is here**\
+`Welcome to The Pulse, The Athletic's daily newsletter. `\
+https://nytimes.com/athletic/7119284/2026/03/15/selection-sunday-is-here-plus-the-wbc-champs-are-knocked-out/
+
 **Yankees under-the-radar reliever quietly making case for roster: 'Got my attention'**\
 `Kervin Castro has continued to stand out in a field of talented candidates vying for the two open spots in the back of New York's bullpen.`\
 https://nytimes.com/athletic/7118685/2026/03/15/yankees-kervin-castro-reliever-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/15/weather/tornado-warning-severe-weather-storm.html
 **Chinese GP: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 experts after F1's 2026 Chinese GP?`\
 https://nytimes.com/athletic/7119562/2026/03/15/chinese-gp-submit-your-questions-for-our-f1-mailbag/
-
-**Penguins claw their way back from 2-goal deficit for enormous win in Utah**\
-`With what felt like half the Eastern Conference breathing down their necks, the Penguins pulled off the comeback against the Mammoth.`\
-https://nytimes.com/athletic/7119266/2026/03/15/penguins-mantha-playoff-race-skinner-mammoth/
-
-**Metsa's big night vs. Leafs, blue-line competition and more: Sabres thoughts**\
-`Though it took a shootout to get there, the Sabres bounced back from Thursday's loss with a win over the Maple Leafs.`\
-https://nytimes.com/athletic/7119240/2026/03/15/sabres-metsa-schenn-stanley-defense-quinn-maple-leafs/
-
-**With a friend's help, Marchenko sends Blue Jackets to shootout win vs. Flyers**\
-`Marchenko also became the ninth player in Columbus franchise history to hit triple digits in goals.`\
-https://nytimes.com/athletic/7119154/2026/03/15/blue-jackets-kirill-marchenko-shootout-egor-zamula-flyers/
 
