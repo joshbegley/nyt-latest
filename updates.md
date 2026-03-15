@@ -1,3 +1,7 @@
+**How to watch Predators vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120163/2026/03/15/how-to-watch-predators-vs-oilers-tv-channel-and-streaming-options-for-march-15/
+
 **Arkansas serves notice with SEC tournament title: Beware the Hogs**\
 `John Calipari won his seventh SEC tournament Sunday — and Darius Acuff Jr. looks ready to lead what might be a Final Four contender.`\
 https://nytimes.com/athletic/7120227/2026/03/15/arkansas-vs-vanderbilt-sec-championship-basketball-score-result/
