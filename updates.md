@@ -1,3 +1,11 @@
+**Oscars Photos: All the Looks From the 2026 Red Carpet**\
+`See what nominees and guests for the 98th Academy Awards wore to arrive to the ceremony.`\
+https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
+
+**The Iran War’s Global Reach**\
+`The fighting is raising energy prices, hitting farmers and reshaping geopolitics. We look at the ripple effects worldwide.`\
+https://nytimes.com/2026/03/15/world/iran-war-effects-oil-oscars.html
+
 **Eagles re-signing tight end Dallas Goedert to 1-year deal: Sources**\
 `With the Eagles since 2018, Goedert is a proven pass catcher with a strong connection with quarterback Jalen Hurts.`\
 https://nytimes.com/athletic/7096773/2026/03/15/dallas-goedert-eagles-nfl-free-agency-2026/
