@@ -1,3 +1,7 @@
+**Vingegaard wins Paris-Nice, Del Toro gets Tirreno-Adriatico title**\
+`Vingegaard topped the general classification by over four minutes despite just missing out on the final stage win on Sunday. `\
+https://nytimes.com/athletic/7119977/2026/03/15/vingegaard-del-toro-paris-nice-tirreno-adriatico/
+
 **The Briefing: Palace 0 Leeds 0 - Gudmundsson red, Calvert-Lewin penalty woe, but was this a critical point?**\
 `Daniel Farke's side missed a spot kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
 https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudmundsson-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119889/2026/03/15/trail-blazers-vs-76ers-stream-ho
 **‘Trash’ Review: Bickering About Chores, in Sign Language**\
 `James Caverly and Andrew Morrill star as Deaf roommates in their new comedy at the Perelman Performing Arts Center.`\
 https://nytimes.com/2026/03/15/theater/trash-review-perelman.html
-
-**‘This Is the Best Dish I Have Ever Made From NYT Cooking’**\
-`Readers love Andy Baraghani’s slow-cooked fish with citrus and herbs (and so do I).`\
-https://nytimes.com/2026/03/15/dining/this-is-the-best-dish-i-have-ever-made-from-nyt-cooking.html
 
