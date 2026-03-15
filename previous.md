@@ -1,3 +1,15 @@
+**At WBC, Ronald Acuña Jr.’s chant of ‘we ate sushi!’ mirrors chiding amongst fans**\
+`Acuña became the latest to reach for what’s become an easy way to troll opponents this WBC: invoking a rival nation’s most popular dish.`\
+https://nytimes.com/athletic/7120387/2026/03/15/wbc-ronald-acuna-sushi-venezuela-japan/
+
+**Game, Set, Match: Aryna Sabalenka beats Elena Rybakina for first Indian Wells title**\
+`Sabalenka came from a set down to win her first WTA 1000 title since May 2025. `\
+https://nytimes.com/athletic/7120119/2026/03/15/tennis-sabalenka-rybakina-indian-wells-final-result-analysis/
+
+**Anti-ICE campaign takes to the streets near the ceremony.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/anti-ice-campaign-takes-to-the-streets-near-the-ceremony
+
 **Women's NCAA Tournament automatic qualifiers ready for March Madness**\
 `A few upsets in the conference tournaments could shake up the NCAA Tournament field.`\
 https://nytimes.com/athletic/7120547/2026/03/15/womens-ncaa-tournament-automatic-qualifiers-march-madness/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7117834/2026/03/15/march-madness-world-baseball-cla
 **Eagles re-signing tight end Dallas Goedert to 1-year deal: Sources**\
 `Goedert agreed to a reduced salary with the Eagles last season.`\
 https://nytimes.com/athletic/7096773/2026/03/15/dallas-goedert-eagles-nfl-free-agency-2026/
-
-**What to expect on Sunday.**\
-`By Kyle Buchanan`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/what-to-expect-on-sunday
-
-**Oscars 2026 Live Updates: What to Expect on Hollywood’s Biggest Night**\
-`Conan O’Brien will return to host tonight’s Academy Awards ceremony, where the acting and other top categories remain highly competitive.`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet
-
-**Here’s the latest.**\
-`By Brooks Barnes`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscar-highlights
 

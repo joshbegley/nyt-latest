@@ -35,6 +35,6 @@ https://nytimes.com/athletic/7120355/2026/03/15/dominik-szoboszlai-liverpool-tot
 https://nytimes.com/athletic/7117834/2026/03/15/march-madness-world-baseball-classic-champions-league/
 
 **Eagles re-signing tight end Dallas Goedert to 1-year deal: Sources**\
-`Goedert agreed to a reduced salary with the Eagles last season.`\
+`With the Eagles since 2018, Goedert is a proven pass catcher with a strong connection with quarterback Jalen Hurts.`\
 https://nytimes.com/athletic/7096773/2026/03/15/dallas-goedert-eagles-nfl-free-agency-2026/
 
