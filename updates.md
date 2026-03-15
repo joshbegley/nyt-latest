@@ -1,3 +1,7 @@
+**‘Doctor Who’ Fans Have Fresh Chance to Time Travel With Found Episodes**\
+`Two unearthed episodes, which were discovered in film canisters wrapped in plastic bags among the possessions of a dead collector in England, were restored by BBC archivists.`\
+https://nytimes.com/2026/03/15/arts/television/doctor-who-found-episodes.html
+
 **On Iran’s Doorstep, 2 Sister Nations Wage Their Own Bloody War**\
 `Pakistani airstrikes have killed at least 75 civilians and displaced 115,000 in Afghanistan, with both sides vowing escalation and no talks in sight.`\
 https://nytimes.com/2026/03/15/world/asia/afghanistan-pakistan-war.html
