@@ -1,3 +1,7 @@
+**Venezuela knocks out defending WBC champ Japan with a mighty blow**\
+`Venezuela advances to Monday’s semifinal against Italy.`\
+https://nytimes.com/athletic/7119238/2026/03/15/venezuela-japan-wbc-scores-results/
+
 **Marseille’s Tight Mayoral Race Is a Bellwether for France’s Future**\
 `Voters across France choose mayors this week. The far right is performing strongly in the country’s second city, making the contest there a test of national shifts.`\
 https://nytimes.com/2026/03/15/world/europe/france-marseille-mayor-election-far-right.html
