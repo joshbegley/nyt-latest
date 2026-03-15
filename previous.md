@@ -1,3 +1,11 @@
+**Another 'stinker' at home spoils Spurgeon's 1,000th game: Takeaways**\
+`The Wild dominated the second half but couldn't overcome a 4-1 deficit despite peppering Igor Shesterkin with 48 shots.`\
+https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/
+
+**Duke outlasts Virginia in final minutes to win second consecutive ACC Tournament**\
+`Down two starters in Caleb Foster and Patrick Ngongba, Duke survives Virginia to secure back-to-back ACC Tournament titles.`\
+https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/
+
 **Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
 `Åberg will try to make it consecutive European winners at TPC Sawgrass after Rory McIlroy's victory last year.`\
 https://nytimes.com/athletic/7118971/2026/03/14/ludvig-aberg-players-championship-day-three-notes/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tourname
 **Warning to Americans to leave Iraq is a sign the Iran war is spilling over the border.**\
 `By Pranav Baskar and Eve Sampson`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/warning-to-americans-to-leave-iraq-is-a-sign-the-iran-war-is-spilling-over-the-border
-
-**Arizona fights off Houston rally to win Big 12 tournament, completing championship double**\
-`Now, Arizona likely heads west as the No. 1 seed and will try to make its first Final Four since 2001.`\
-https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-big-12-tournament-final/
-
-**For Trump, a Promised Economic Boom Collides With the Costs of War**\
-`President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
-https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
 

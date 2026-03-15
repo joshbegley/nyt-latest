@@ -1,3 +1,11 @@
+**Another 'stinker' at home spoils Spurgeon's 1,000th game: Takeaways**\
+`The Wild dominated the second half but couldn't overcome a 4-1 deficit despite peppering Igor Shesterkin with 48 shots.`\
+https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/
+
+**Duke outlasts Virginia in final minutes to win second consecutive ACC Tournament**\
+`Down two starters in Caleb Foster and Patrick Ngongba, Duke survives Virginia to secure back-to-back ACC Tournament titles.`\
+https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/
+
 **Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
 `Åberg will try to make it consecutive European winners at TPC Sawgrass after Rory McIlroy's victory last year.`\
 https://nytimes.com/athletic/7118971/2026/03/14/ludvig-aberg-players-championship-day-three-notes/
