@@ -1,3 +1,7 @@
+**Chinese GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after F1's 2026 Chinese GP?`\
+https://nytimes.com/athletic/7119562/2026/03/15/chinese-gp-submit-your-questions-for-our-f1-mailbag/
+
 **Penguins claw their way back from 2-goal deficit for enormous win in Utah**\
 `With what felt like half the Eastern Conference breathing down their necks, the Penguins pulled off the comeback against the Mammoth.`\
 https://nytimes.com/athletic/7119266/2026/03/15/penguins-mantha-playoff-race-skinner-mammoth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119066/2026/03/15/dmitri-young-baseball-card-colle
 **Flyers' most persistent problems cost them chance to get back in playoff chase**\
 `"Sluggish group tonight," coach Rick Tocchet said after a 2-1 shootout loss to the Blue Jackets. "We didn't have our A-game."`\
 https://nytimes.com/athletic/7119267/2026/03/15/flyers-lose-blue-jackets-playoff-chase/
-
-**2026 NHL prospect pool rankings: No. 26 Ottawa Senators**\
-`Over the years, the Senators have focused on pro-style, pro-built role player types outside of Round 1.`\
-https://nytimes.com/athletic/6882354/2026/03/15/ottawa-senators-nhl-prospect-rankings-2026/
 
