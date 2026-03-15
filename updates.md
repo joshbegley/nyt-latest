@@ -1,3 +1,7 @@
+**Will Lindsey Vonn retire after Olympic injury? She's 'not ready to think about it'**\
+`As speculation swirls about Vonn's future, the American Alpine skiing star said Sunday that she's not ready to make any decisions.`\
+https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/
+
 **Oscars Photos: All the Looks From the 2026 Red Carpet**\
 `See what nominees and guests for the 98th Academy Awards wore to arrive to the ceremony.`\
 https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html

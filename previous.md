@@ -1,3 +1,7 @@
+**Will Lindsey Vonn retire after Olympic injury? She's 'not ready to think about it'**\
+`As speculation swirls about Vonn's future, the American Alpine skiing star said Sunday that she's not ready to make any decisions.`\
+https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/
+
 **Oscars Photos: All the Looks From the 2026 Red Carpet**\
 `See what nominees and guests for the 98th Academy Awards wore to arrive to the ceremony.`\
 https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7117544/2026/03/15/f1-the-movie-oscars-four-nominat
 **Connor McDavid weighs in on 'frustration' over NHL player safety**\
 `McDavid's comments came days after Radko Gudas received a five-game suspension for ending Auston Matthews' season with a knee-on-knee hit.`\
 https://nytimes.com/athletic/7120273/2026/03/15/connor-mcdavid-nhl-suspensions-radko-gudas/
-
-**Liverpool need to 'wake up' or face Conference League, Szoboszlai says**\
-`The Hungary international scored but said he felt "flat" after the league champions were held to a 1-1 draw with Tottenham Hotspur. `\
-https://nytimes.com/athletic/7120355/2026/03/15/dominik-szoboszlai-liverpool-tottenham/
 
