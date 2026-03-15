@@ -1,3 +1,15 @@
+**Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
+`Florida was the only mild question mark among the top seeds before the NCAA selection committee unveiled the bracket Sunday on CBS.`\
+https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
+
+**Oscars 2026 Winners: Updating List**\
+`The winning actors, directors, pictures and more at the 98th annual Academy Awards.`\
+https://nytimes.com/2026/03/15/movies/oscars-winners-list.html
+
+**Matt Berry will be this year’s ‘Voice of God.’**\
+`By Maya Salam`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/matt-berry-will-be-this-years-voice-of-god
+
 **U.S. Names Six Service Members Killed In Iraq**\
 `The Pentagon has identified the six United States service members who died last week when a refueling aircraft crashed in Iraq. With their deaths, the total number of service members killed in the war with Iran has risen to at least 13.`\
 https://nytimes.com/video/world/middleeast/100000010777505/us-names-six-service-members-killed-in-iraq.html
