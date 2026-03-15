@@ -1,3 +1,7 @@
+**What the Maple Leafs looked like in their first game without Auston Matthews**\
+`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance still offered a glimmer of hope.`\
+https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
+
 **Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
 `The Celtics forward played a season-high 32 minutes Saturday in another positive sign in his return from an Achilles injury.`\
 https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-minutes-restriction-wizards/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-mi
 https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/
 
 **Duke outlasts Virginia in final minutes to win second consecutive ACC Tournament**\
-`Down two starters in Caleb Foster and Patrick Ngongba, Duke survives Virginia to secure back-to-back ACC Tournament titles.`\
+`Down two starters in Caleb Foster and Patrick Ngongba, Duke survived Virginia to secure back-to-back ACC Tournament titles.`\
 https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/
 
 **Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record
 **What we saw, heard at The Players Championship: Åberg grinds to 3-shot lead**\
 `A look inside the third round of The Players Championship, where Scottie Scheffler made another Saturday charge.`\
 https://nytimes.com/athletic/7118650/2026/03/14/pga-players-championship-third-round-ludvig-aberg/
-
-**St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
-`With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
-https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/
 

@@ -1,3 +1,11 @@
+**What the Maple Leafs looked like in their first game without Auston Matthews**\
+`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance still offered a glimmer of hope.`\
+https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
+
+**Duke outlasts Virginia in final minutes to win second consecutive ACC Tournament**\
+`Down two starters in Caleb Foster and Patrick Ngongba, Duke survived Virginia to secure back-to-back ACC Tournament titles.`\
+https://nytimes.com/athletic/7119023/2026/03/14/duke-virginia-acc-tournament-title/
+
 **Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
 `The Celtics forward played a season-high 32 minutes Saturday in another positive sign in his return from an Achilles injury.`\
 https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-minutes-restriction-wizards/
