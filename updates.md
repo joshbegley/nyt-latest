@@ -1,3 +1,7 @@
+**Arizona fights off Houston rally to win Big 12 tournament, completing championship double**\
+`Now, Arizona likely heads west as the No. 1 seed and will try to make its first Final Four since 2001.`\
+https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-big-12-tournament-final/
+
 **For Trump, a Promised Economic Boom Collides With the Costs of War**\
 `President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
 https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html

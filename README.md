@@ -1,3 +1,7 @@
+**Warning to Americans to leave Iraq is a sign the Iran war is spilling over the border.**\
+`By Pranav Baskar and Eve Sampson`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/warning-to-americans-to-leave-iraq-is-a-sign-the-iran-war-is-spilling-over-the-border
+
 **Arizona fights off Houston rally to win Big 12 tournament, completing championship double**\
 `Now, Arizona likely heads west as the No. 1 seed and will try to make its first Final Four since 2001.`\
 https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-big-12-tournament-final/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7118827/2026/03/14/blue-jays-live-mitch-bannon/
 **History Course**\
 `Miranda Kany whips up a Sunday puzzle for the ages.`\
 https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
-
-**France win Six Nations with last kick of game against England**\
-`The rugby union championship was eventually decided by a stoppage time penalty to defeat England and crush Ireland's trophy hopes. `\
-https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england/
 

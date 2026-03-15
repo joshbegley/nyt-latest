@@ -1,3 +1,7 @@
+**Arizona fights off Houston rally to win Big 12 tournament, completing championship double**\
+`Now, Arizona likely heads west as the No. 1 seed and will try to make its first Final Four since 2001.`\
+https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-big-12-tournament-final/
+
 **For Trump, a Promised Economic Boom Collides With the Costs of War**\
 `President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
 https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
 **France win Six Nations with last kick of game against England**\
 `The rugby union championship was eventually decided by a stoppage time penalty to defeat England and crush Ireland's trophy hopes. `\
 https://nytimes.com/athletic/7118786/2026/03/14/france-rugby-six-nations-england/
-
-**Italy earns first-ever trip to WBC semifinals with win over Puerto Rico**\
-`Team Italy's unexpected World Baseball Classic run will continue, thanks to four-run rallies in the first and fourth innings in Houston.`\
-https://nytimes.com/athletic/7118475/2026/03/14/world-baseball-classic-quarterfinal-italy-puerto-rico/
 
