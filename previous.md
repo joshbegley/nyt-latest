@@ -1,3 +1,11 @@
+**Luka Dončić's first Lakers game winner lifts L.A. past Denver in OT**\
+`Dončić had possession with the score tied, beat Spencer Jones to the baseline and hit a fading midrange jumper with 0.5 seconds left.`\
+https://nytimes.com/athletic/7119277/2026/03/15/luka-doncic-lakers-game-winner-triple-double-nuggets/
+
+**WBC semifinals now set with Italy vs. Venezuela. Here’s how it could play out**\
+`Neither team has won a WBC championship before. They meet on Monday to determine who will get that chance. `\
+https://nytimes.com/athletic/7119117/2026/03/15/world-baseball-classic-italy-venezuela-preview/
+
 **Trump adds to speculation about Iranian leader’s condition.**\
 `By Traci Carl and Luke Broadwater`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/trump-adds-to-speculation-about-iranian-leaders-condition
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/world/europe/winter-olympics-future-sites.html
 **Connections: Sports Edition Coach: Hints and answers for March 15, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7119244/2026/03/15/connections-sports-edition-hints-answers-march-15-2026/
-
-**Corrections: March 15, 2026**\
-`No corrections appeared in print on Sunday, March 15, 2026.`\
-https://nytimes.com/2026/03/15/pageoneplus/corrections-march-15-2026.html
-
-**What the Maple Leafs looked like in their first game without Auston Matthews**\
-`The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance offered glimmers of hope.`\
-https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
 
