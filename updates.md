@@ -1,3 +1,19 @@
+**Here is the latest.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel/here-is-the-latest
+
+**Live Updates: Trump Urges World to Help Protect Strait of Hormuz**\
+`The president said all countries that use the vital shipping route should send warships. Iran has effectively choked off traffic in the narrow waterway, through which a fifth of the world’s oil must transit.`\
+https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel
+
+**Max Dowman: How a new star was born in 23 minutes**\
+`Arsenal were crying out for a creative spark against Everton — and it was provided by an extraordinary performance by a 16-year-old`\
+https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premier-league-youngest/
+
+**Chelsea and 'Huddlegate': Is Liam Rosenior focusing on the wrong issue?**\
+`Chelsea's form is not good – and huddling around the match ball or even a stone-faced referee is unlikely to make things better`\
+https://nytimes.com/athletic/7119033/2026/03/15/chelsea-huddle-newcastle-liam-rosenior-form/
+
 **‘We Had Flunked Out of College and Did Not Want to Face Our Parents’**\
 `Traveling from Cleveland by thumb, a wallet surfaces in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2026/03/15/nyregion/metropolitan-diary.html
