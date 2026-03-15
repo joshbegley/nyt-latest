@@ -1,3 +1,15 @@
+**Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
+`Florida was the only mild question mark among the top seeds before the NCAA selection committee unveiled the bracket Sunday on CBS.`\
+https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
+
+**Oscars 2026 Winners: Updating List**\
+`The winning actors, directors, pictures and more at the 98th annual Academy Awards.`\
+https://nytimes.com/2026/03/15/movies/oscars-winners-list.html
+
+**Matt Berry will be this year’s ‘Voice of God.’**\
+`By Maya Salam`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/matt-berry-will-be-this-years-voice-of-god
+
 **U.S. Names Six Service Members Killed In Iraq**\
 `The Pentagon has identified the six United States service members who died last week when a refueling aircraft crashed in Iraq. With their deaths, the total number of service members killed in the war with Iran has risen to at least 13.`\
 https://nytimes.com/video/world/middleeast/100000010777505/us-names-six-service-members-killed-in-iraq.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/15/world/americas/desperation-in-cuba-ignites-unusua
 **Purdue caps brilliant run through Big Ten tourney with upset of Michigan**\
 `Smith sits one assist shy of tying the NCAA career assist record held by Bobby Hurley after leading the Boilermakers past Michigan.`\
 https://nytimes.com/athletic/7120656/2026/03/15/purdue-michigan-big-ten-championship-basketball-score-result/
-
-**Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and 1 more playoff push**\
-`The Penguins managed to tread water without two of their most important players. Now their closers are set to return.`\
-https://nytimes.com/athletic/7120278/2026/03/15/penguins-sidney-crosby-evgeni-malkin-playoffs-stretch-run/
-
-**Family Outing in West Bank Ends in Hail of Israeli Gunfire**\
-`Six members of a Palestinian family went out for a ride in the car. Only two made it back home.`\
-https://nytimes.com/2026/03/15/world/middleeast/palestinian-family-killed-west-bank.html
-
-**‘Eyes Everywhere’: As Always, Security Is Tight at the Oscars**\
-`Top state and local officials have said there were no specific imminent threats despite the war unfolding in the Middle East.`\
-https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
 

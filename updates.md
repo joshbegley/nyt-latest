@@ -1,3 +1,7 @@
+**U.S. Names Six Service Members Killed In Iraq**\
+`The Pentagon has identified the six United States service members who died last week when a refueling aircraft crashed in Iraq. With their deaths, the total number of service members killed in the war with Iran has risen to at least 13.`\
+https://nytimes.com/video/world/middleeast/100000010777505/us-names-six-service-members-killed-in-iraq.html
+
 **Here’s What Happened in the War in the Middle East on Sunday**\
 `Five missiles struck the Baghdad International Airport and injured four people. Israeli and Iranian attacks continued as global economic concerns about the war mounted.`\
 https://nytimes.com/2026/03/15/world/middleeast/baghdad-airport-missiles.html
