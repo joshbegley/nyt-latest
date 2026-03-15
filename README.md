@@ -1,3 +1,7 @@
+**Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
+`In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
+https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
+
 **No Corrections: March 16, 2026**\
 `No corrections appeared in print on Monday, March 16, 2026.`\
 https://nytimes.com/2026/03/15/corrections/no-corrections-march-16-2026.html
@@ -6,9 +10,9 @@ https://nytimes.com/2026/03/15/corrections/no-corrections-march-16-2026.html
 `Sinner staved off Medvedev's increased aggressiveness to claim the title and begin a push back toward catching Carlos Alcaraz as world No. 1`\
 https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/
 
-**Amy Madigan wins best supporting actress.**\
-`The actress won for her role as Aunt Gladys in the horror movie “Weapons.”`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
+**Amy Madigan Wins Best Supporting Actress for ‘Weapons’**\
+`The actress won for her role as Aunt Gladys in Zach Cregger’s horror hit.`\
+https://nytimes.com/2026/03/15/movies/amy-madigan-wins-best-supporting-actress.html
 
 **Men's 2026 March Madness NCAA tournament forecast bracket**\
 ``\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7090849/2026/03/15/mens-march-madness-team-preview-
 **Our Favorite Photos From the Oscars Red Carpet**\
 `Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
 https://nytimes.com/2026/03/15/arts/2026-oscars-red-carpet-fashion-looks.html
-
-**Auburn left out of NCAA Tournament as Miami (Ohio) lands last at-large spot**\
-`Auburn had one of the best wins of the regular season, beating Florida in Gainesville, and had the nation's third-toughest schedule.`\
-https://nytimes.com/athletic/7120820/2026/03/15/auburn-miami-ohio-march-madness-ncaa-tournament-snubs/
 
