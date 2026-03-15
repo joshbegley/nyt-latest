@@ -1,3 +1,15 @@
+**How to watch Pacers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119715/2026/03/15/pacers-vs-bucks-stream-how-to-watch-march-15/
+
+**How to watch Mavericks vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119713/2026/03/15/mavericks-vs-cavaliers-stream-how-to-watch-march-15/
+
+**How to watch Pistons vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119709/2026/03/15/pistons-vs-raptors-stream-how-to-watch-march-15/
+
 **The Harm of Banning Care for Trans Youth**\
 `Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
 https://nytimes.com/2026/03/15/opinion/trans-youth-care.html

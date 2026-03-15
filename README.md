@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, in first slalom since Olympics, continues her dominant season**\
+`The American Alpine skiing star won Sunday for the eighth time in nine World Cup slalom races as she eyes another overall season title.`\
+https://nytimes.com/athletic/7119638/2026/03/15/mikaela-shiffrin-olympics-world-cup-slalom-are-sweden-win/
+
 **How to watch Pacers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119715/2026/03/15/pacers-vs-bucks-stream-how-to-watch-march-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119593/2026/03/15/iran-football-australia-asylum-l
 **After an Antisemitic Attack, Some Jews Are Giving Thanks**\
 `They are using an ancient prayer to express gratitude.`\
 https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
-
-**In WBC semifinal between U.S. and Dominican Republic, which team has the edge?**\
-`Both lineups are littered with MVP candidates, All-Stars and Gold Glovers, but which will advance to the WBC championship?`\
-https://nytimes.com/athletic/7119354/2026/03/15/world-baseball-classic-united-states-dominican-republic-semifinals/
 

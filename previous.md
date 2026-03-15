@@ -1,3 +1,15 @@
+**How to watch Pacers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119715/2026/03/15/pacers-vs-bucks-stream-how-to-watch-march-15/
+
+**How to watch Mavericks vs. Cavaliers: Time, TV, streaming**\
+`Find out how to watch the Dallas Mavericks play the Cleveland Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119713/2026/03/15/mavericks-vs-cavaliers-stream-how-to-watch-march-15/
+
+**How to watch Pistons vs. Raptors: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Toronto Raptors, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119709/2026/03/15/pistons-vs-raptors-stream-how-to-watch-march-15/
+
 **The Harm of Banning Care for Trans Youth**\
 `Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
 https://nytimes.com/2026/03/15/opinion/trans-youth-care.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-ar
 **In WBC semifinal between U.S. and Dominican Republic, which team has the edge?**\
 `Both lineups are littered with MVP candidates, All-Stars and Gold Glovers, but which will advance to the WBC championship?`\
 https://nytimes.com/athletic/7119354/2026/03/15/world-baseball-classic-united-states-dominican-republic-semifinals/
-
-**Canadiens scratched Brendan Gallagher for the first time in 13 years. Here's what it meant**\
-`The respected veteran was a healthy scratch in Saturday's loss to the Sharks, a representation of an existential dilemma for Montreal.`\
-https://nytimes.com/athletic/7119364/2026/03/15/canadiens-brendan-gallagher-scratch-loss-sharks/
-
-**Met Police open investigation into crowd incident at Arsenal vs. Everton**\
-`Everton forward Thierno Barry called the behaviour "unacceptable" and said that his friends "were attacked" during the match.`\
-https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry/
-
-**Access All Areas with Motherwell as they visit Celtic Park**\
-`Jordan Campbell spent the week with Jens Berthel Askou and his upwardly mobile team as they prepared to visit Celtic `\
-https://nytimes.com/athletic/7116264/2026/03/15/motherwell-askou-scotland-tactics-celtic/
 
