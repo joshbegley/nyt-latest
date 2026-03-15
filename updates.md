@@ -1,3 +1,7 @@
+**Paul R. Ehrlich, Who Alarmed the World With ‘The Population Bomb,’ Dies at 93**\
+`His best-selling 1968 book, which forecast global famines, made him a leader of the environmental movement. But he faced criticism when his predictions proved premature.`\
+https://nytimes.com/2026/03/15/books/paul-r-ehrlich-dead.html
+
 **How to watch Jazz vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120333/2026/03/15/jazz-vs-kings-stream-how-to-watch-march-15/
