@@ -1,5 +1,13 @@
+**Francisco Lindor returns to action, speaks optimistically about Opening Day**\
+`Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
+https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
+
+**Desperation in Cuba Ignites Unusual Acts of Defiance**\
+`A protest in the city of Morón in central Cuba culminated in fiery vandalism at the local Communist Party headquarters.`\
+https://nytimes.com/2026/03/15/world/americas/desperation-in-cuba-ignites-unusual-acts-of-defiance.html
+
 **Purdue caps brilliant run through Big Ten tourney with upset of Michigan**\
-`The Boilermakers capped a dynamic week at the United Center with an 80-72 win against the top-seeded Wolverines.`\
+`Smith sits one assist shy of tying the NCAA career assist record held by Bobby Hurley after leading the Boilermakers past Michigan.`\
 https://nytimes.com/athletic/7120656/2026/03/15/purdue-michigan-big-ten-championship-basketball-score-result/
 
 **Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and one more playoff push**\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/world/iran-war-effects-oil-oscars.html
 **At WBC, Ronald Acuña Jr.’s chant of ‘we ate sushi!’ mirrors chiding amongst fans**\
 `Acuña became the latest to reach for what’s become an easy way to troll opponents this WBC: invoking a rival nation’s most popular dish.`\
 https://nytimes.com/athletic/7120387/2026/03/15/wbc-ronald-acuna-sushi-venezuela-japan/
-
-**Game, Set, Match: Aryna Sabalenka beats Elena Rybakina for first Indian Wells title**\
-`Sabalenka came from a set down to win her first WTA 1000 title since May 2025. `\
-https://nytimes.com/athletic/7120119/2026/03/15/tennis-sabalenka-rybakina-indian-wells-final-result-analysis/
-
-**Anti-ICE campaign takes to the streets near the ceremony.**\
-`By Melena Ryzik`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/anti-ice-campaign-takes-to-the-streets-near-the-ceremony
 
