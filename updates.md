@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Tottenham 1- Richarlison rescues Spurs, Szoboszlai free kick not enough for Slot**\
+`Richarlison struck in the 90th minute to secure a point for Tottenham against Liverpool. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/7115244/2026/03/15/liverpool-1-tottenham-1-szoboszlai-richarlison-premier-league/
+
 **Entering War’s Third Week, Trump Faces Stark Choices**\
 `As the conflict with Iran expands and intensifies, President Trump’s options — to fight on, or to move toward declaring victory and pulling back — both carry deeply problematic consequences.`\
 https://nytimes.com/2026/03/15/us/politics/trump-stark-choices-iran-war.html

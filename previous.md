@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 1 Tottenham 1- Richarlison rescues Spurs, Szoboszlai free kick not enough for Slot**\
+`Richarlison struck in the 90th minute to secure a point for Tottenham against Liverpool. Our writers break down the key talking points...`\
+https://nytimes.com/athletic/7115244/2026/03/15/liverpool-1-tottenham-1-szoboszlai-richarlison-premier-league/
+
 **Entering War’s Third Week, Trump Faces Stark Choices**\
 `As the conflict with Iran expands and intensifies, President Trump’s options — to fight on, or to move toward declaring victory and pulling back — both carry deeply problematic consequences.`\
 https://nytimes.com/2026/03/15/us/politics/trump-stark-choices-iran-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120141/2026/03/15/maple-leafs-vs-wild-stream-how-t
 **Which bubble teams are in the NCAA tournament bracket? Here's what the odds say**\
 `A look at the odds, with thoughts from Jim Root and Doug Kezirian, to break down the bubble teams, including Miami (OH) and Auburn.`\
 https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odds-bracket/
-
-**How to watch Warriors vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Golden State Warriors play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to-watch-march-15/
 
