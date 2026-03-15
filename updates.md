@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`Five missiles struck the Baghdad International Airport and injured four people. Israeli and Iranian attacks continued as global economic concerns about the war mounted.`\
+https://nytimes.com/2026/03/15/world/middleeast/baghdad-airport-missiles.html
+
+**Best picture nominees had mixed box office firepower.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscars-box-office-best-picture
+
+**Wide-Eyed and Eager**\
+`In Jamey Smith’s puzzle, school is in session.`\
+https://nytimes.com/2026/03/15/crosswords/daily-puzzle-2026-03-16.html
+
 **Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and 1 more playoff push**\
 `The Penguins managed to tread water without two of their most important players. Now their closers are set to return.`\
 https://nytimes.com/athletic/7120278/2026/03/15/penguins-sidney-crosby-evgeni-malkin-playoffs-stretch-run/
