@@ -1,3 +1,7 @@
+**Two Arrested in Death of Anti-Iranian Regime Activist in Canada**\
+`A man and a woman were charged with murder in what the authorities described as a “targeted incident” against Masood Masjoody, who had gone missing weeks ago in British Columbia.`\
+https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
+
 **Oscar Winners, Will You Be Complicit?**\
 `Right now it does matter a lot whether actors can find the right words.`\
 https://nytimes.com/2026/03/15/opinion/oscar-winners-political-speeches.html
