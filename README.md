@@ -1,3 +1,15 @@
+**Here’s What Happened in the War in the Middle East on Sunday**\
+`Five missiles struck the Baghdad International Airport and injured four people. Israeli and Iranian attacks continued as global economic concerns about the war mounted.`\
+https://nytimes.com/2026/03/15/world/middleeast/baghdad-airport-missiles.html
+
+**Best picture nominees had mixed box office firepower.**\
+`By Brooks Barnes`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscars-box-office-best-picture
+
+**Wide-Eyed and Eager**\
+`In Jamey Smith’s puzzle, school is in session.`\
+https://nytimes.com/2026/03/15/crosswords/daily-puzzle-2026-03-16.html
+
 **Francisco Lindor returns to action, speaks optimistically about Opening Day**\
 `Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
 https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
 **Will Lindsey Vonn retire after Olympic injury? She's 'not ready to think about it'**\
 `As speculation swirls about Vonn's future, the American Alpine skiing star said Sunday that she's not ready to make any decisions.`\
 https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/
-
-**Oscars Photos: All the Looks From the 2026 Red Carpet**\
-`See what nominees and guests for the 98th Academy Awards — including Jessie Buckley, Odessa A’zion and Renate Reinsve — wore to arrive to the ceremony.`\
-https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
-
-**The Iran War’s Global Reach**\
-`The fighting is raising energy prices, hitting farmers and reshaping geopolitics. We look at the ripple effects worldwide.`\
-https://nytimes.com/2026/03/15/world/iran-war-effects-oil-oscars.html
-
-**At WBC, Ronald Acuña Jr.’s chant of ‘we ate sushi!’ mirrors chiding amongst fans**\
-`Acuña became the latest to reach for what’s become an easy way to troll opponents this WBC: invoking a rival nation’s most popular dish.`\
-https://nytimes.com/athletic/7120387/2026/03/15/wbc-ronald-acuna-sushi-venezuela-japan/
 

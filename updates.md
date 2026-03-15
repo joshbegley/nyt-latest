@@ -1,3 +1,11 @@
+**Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and 1 more playoff push**\
+`The Penguins managed to tread water without two of their most important players. Now their closers are set to return.`\
+https://nytimes.com/athletic/7120278/2026/03/15/penguins-sidney-crosby-evgeni-malkin-playoffs-stretch-run/
+
+**Oscars Photos: All the Looks From the 2026 Red Carpet**\
+`See what nominees and guests for the 98th Academy Awards — including Jessie Buckley, Odessa A’zion and Renate Reinsve — wore to arrive to the ceremony.`\
+https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
+
 **Francisco Lindor returns to action, speaks optimistically about Opening Day**\
 `Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
 https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
