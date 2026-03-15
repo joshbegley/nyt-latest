@@ -1,3 +1,7 @@
+**Powerful Winter Storm Disrupts Travel and Knocks Out Power in the Upper Midwest**\
+`Officials in Minnesota and Wisconsin warned drivers to stay off the roads as more blowing and drifting snow was expected on Sunday.`\
+https://nytimes.com/2026/03/15/weather/snow-storm-blizzard-minnesota-wisconsin.html
+
 **The Briefing: Liverpool 1 Tottenham 1- Richarlison rescues Spurs, Szoboszlai free kick not enough for Slot**\
 `Richarlison struck in the 90th minute to secure a point for Tottenham against Liverpool. Our writers break down the key talking points...`\
 https://nytimes.com/athletic/7115244/2026/03/15/liverpool-1-tottenham-1-szoboszlai-richarlison-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120148/2026/03/15/panthers-vs-kraken-stream-how-to
 **How to watch Maple Leafs vs. Wild: Time, TV, streaming**\
 `Find out how to watch the Toronto Maple Leafs play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120141/2026/03/15/maple-leafs-vs-wild-stream-how-to-watch-march-15/
-
-**Which bubble teams are in the NCAA tournament bracket? Here's what the odds say**\
-`A look at the odds, with thoughts from Jim Root and Doug Kezirian, to break down the bubble teams, including Miami (OH) and Auburn.`\
-https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odds-bracket/
 
