@@ -1,3 +1,7 @@
+**Max Dowman: How a new star was born in 23 minutes**\
+`Arsenal were crying out for a creative spark against Everton – it was provided by an extraordinary performance by a 16 year old`\
+https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premier-league-youngest/
+
 **Two Arrested in Death of Anti-Iranian Regime Activist in Canada**\
 `A man and a woman were charged with murder in what the authorities described as a “targeted incident” against Masood Masjoody, who had gone missing weeks ago in British Columbia.`\
 https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119277/2026/03/15/luka-doncic-lakers-game-winner-t
 **WBC semifinals set with Italy vs. Venezuela. Here’s how it could play out**\
 `Neither team has won a WBC championship. They meet Monday to determine who will get that chance. `\
 https://nytimes.com/athletic/7119117/2026/03/15/world-baseball-classic-italy-venezuela-preview/
-
-**Trump adds to speculation about Iranian leader’s condition.**\
-`By Traci Carl and Luke Broadwater`\
-https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/trump-adds-to-speculation-about-iranian-leaders-condition
 
