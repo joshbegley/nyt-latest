@@ -1,3 +1,7 @@
+**Three More Iranian Soccer Players Withdraw Bid for Asylum in Australia**\
+`Seven members of the national women’s team had sought refuge in the country after they were labeled ‘traitors’ at home. Four of them have since changed their minds.`\
+https://nytimes.com/2026/03/14/world/australia/iranian-soccer-asylum-australia.html
+
 **U.S. Military Names 6 Service Members Killed in Crash of Refueling Tanker in Iraq**\
 `The crew members had been part of the U.S. and Israel’s war on Iran, bringing the death toll of American service members in the conflict to at least 13.`\
 https://nytimes.com/2026/03/14/us/names-of-us-soliders-killed-tanker-crash.html

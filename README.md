@@ -2,6 +2,10 @@
 `Seven members of the national women’s team had sought refuge in the country after they were labeled ‘traitors’ at home. Four of them have since changed their minds.`\
 https://nytimes.com/2026/03/14/world/australia/iranian-soccer-asylum-australia.html
 
+**Daniil Medvedev snaps Carlos Alcaraz win streak for Indian Wells final against Jannik Sinner**\
+`Medvedev blended his vintage hard-court prowess with all-out attack to reach his first ATP Masters 1000 final in two years.`\
+https://nytimes.com/athletic/7118846/2026/03/14/tennis-medvedev-alcaraz-indian-wells-result-analysis/
+
 **U.S. Military Names 6 Service Members Killed in Crash of Refueling Tanker in Iraq**\
 `The crew members had been part of the U.S. and Israel’s war on Iran, bringing the death toll of American service members in the conflict to at least 13.`\
 https://nytimes.com/2026/03/14/us/names-of-us-soliders-killed-tanker-crash.html
@@ -29,10 +33,6 @@ https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-bi
 **For Trump, a Promised Economic Boom Collides With the Costs of War**\
 `President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
 https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
-
-**Daniil Medvedev snaps Carlos Alcaraz win streak for Indian Wells final against Jannik Sinner**\
-`Medvedev blended his vintage hard-court prowess with all-out attack to reach his first ATP Masters 1000 final in two years.`\
-https://nytimes.com/athletic/7118846/2026/03/14/tennis-medvedev-alcaraz-indian-wells-result-analysis/
 
 **Panthers re-signing safety Nick Scott to 1-year contract**\
 `The deal is worth up to $3.25 million.`\
