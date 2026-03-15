@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7120117/2026/03/15/nottingham-forest-vitor-pereira-var-fulham/
 
 **Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
-`Boston plans to have Crochet pitch on a six-day schedule to early in the season to manage his workload.`\
+`Boston plans to have Crochet pitch on a six-day schedule early in the season to manage his workload.`\
 https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
 
 **Paula Doress-Worters, an Author of ‘Our Bodies, Ourselves,’ Dies at 87**\
