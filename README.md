@@ -1,3 +1,15 @@
+**Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
+`Boston plans to have Crochet pitch on a six-day schedule to early in the season to manage his workload.`\
+https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
+
+**Paula Doress-Worters, an Author of ‘Our Bodies, Ourselves,’ Dies at 87**\
+`She wrote about postpartum depression when it was an unmentionable like abortion or birth control, and her research on her own suffering helped countless women.`\
+https://nytimes.com/2026/03/15/books/paula-doress-worters-dead.html
+
+**How to watch Predators vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120163/2026/03/15/predators-vs-oilers-stream-how-to-watch-march-15/
+
 **How Trump’s Homeland Security Pick, a Prolific Investor, Got a Lot Wealthier in Congress**\
 `Markwayne Mullin’s financial dealings take on new importance as the Senate considers his nomination to lead an agency whose budget has vastly expanded.`\
 https://nytimes.com/2026/03/15/us/politics/trump-markwayne-mullin-homeland-security-stocks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7120063/2026/03/15/winter-paralympics-sled-hockey-u
 **Countdown to the Oscars**\
 `Text by Amanda Webster`\
 https://nytimes.com/card/2026/03/15/arts/countdown-to-the-oscars
-
-**Vingegaard wins Paris-Nice, Del Toro gets Tirreno-Adriatico title**\
-`Vingegaard topped the general classification by over four minutes despite just missing out on the final stage win on Sunday. `\
-https://nytimes.com/athletic/7119977/2026/03/15/vingegaard-del-toro-paris-nice-tirreno-adriatico/
-
-**The Briefing: Palace 0 Leeds 0 - Gudmundsson red, Calvert-Lewin penalty woe, but was this a critical point?**\
-`Daniel Farke's side missed a spot-kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
-https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudmundsson-palace/
-
-**Manchester United 3 Aston Villa 1: Champions League spot secured? Bruno Fernandes assist record inevitable?**\
-`Analysis of Manchester United's 3-1 win against Aston Villa at Old Trafford`\
-https://nytimes.com/athletic/7115243/2026/03/15/manchester-united-aston-villa-premier-league-analysis/
 
