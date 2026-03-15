@@ -1,3 +1,7 @@
+**U.S. Military Names 6 Service Members Killed in Crash of Refueling Tanker in Iraq**\
+`The crew members had been part of the U.S. and Israel’s war on Iran, bringing the death toll of American service members in the conflict to at least 13.`\
+https://nytimes.com/2026/03/14/us/names-of-us-soliders-killed-tanker-crash.html
+
 **Anže Kopitar becomes L.A. Kings' all-time leading scorer**\
 `Kopitar, the Kings' captain and a two-time Stanley Cup champion, is in his 20th and final NHL season.`\
 https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record-dionne/
