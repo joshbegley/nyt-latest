@@ -1,3 +1,7 @@
+**Damson Idris joined 'F1: The Movie' as a casual fan. He left hooked for life**\
+`The British actor says he wants to be part of the movement broadening F1's appeal.`\
+https://nytimes.com/athletic/7118563/2026/03/15/damson-idris-f1-movie/
+
 **How to watch Sharks vs. Senators: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119736/2026/03/15/sharks-vs-senators-stream-how-to-watch-march-15/
