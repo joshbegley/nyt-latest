@@ -1,3 +1,15 @@
+**2026 Finalissima between Spain and Argentina cancelled due to Middle East conflict**\
+`The match, was slated to take place in Doha, Qatar on March 27, with UEFA stating that Argentina rejected multiple alternative proposals.`\
+https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-argentina-uefa/
+
+**Mercedes picked Kimi Antonelli to succeed Lewis Hamilton. He's repaid the faith**\
+`Antonelli has transformed from young hopeful to F1 winner in just over a year with Mercedes.`\
+https://nytimes.com/athletic/7119684/2026/03/15/kimi-antonelli-lewis-hamilton-f1-2026-chinese-gp/
+
+**Oscars Eve in Beverly Hills With Teyana Taylor, Jeff Bezos and Nicole Kidman**\
+`Film’s top stars buzzed over lychee martinis at Chanel’s annual Polo Lounge bash, and a Netflix chief mused about Hollywood’s biggest drama of the year.`\
+https://nytimes.com/2026/03/15/style/oscars-chanel-armani-party.html
+
 **Damson Idris joined 'F1: The Movie' as a casual fan. He left hooked for life**\
 `The British actor says he wants to be part of the movement broadening F1's appeal.`\
 https://nytimes.com/athletic/7118563/2026/03/15/damson-idris-f1-movie/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7119709/2026/03/15/pistons-vs-raptors-stream-how-to
 **The Harm of Banning Care for Trans Youth**\
 `Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
 https://nytimes.com/2026/03/15/opinion/trans-youth-care.html
-
-**She Has a Knack for Stylish Films**\
-`Mona Fastvold has become associated with visually rich feature films and to shorter videos for fashion brands. How does she square art with commerce?`\
-https://nytimes.com/2026/03/15/style/tiffany-campaign-natalie-portman-mona-fastvold.html
-
-**Why Are We in Iran? On ‘S.N.L.’, Pete Hegseth Has the Answer: ‘I Don’t Know’**\
-`Harry Styles is host and musical guest, while James Austin Johnson and Colin Jost cement their duo as President Trump and his defense secretary on “Saturday Night Live.”`\
-https://nytimes.com/2026/03/15/arts/television/why-iran-hegseth-has-the-answer-on-snl-i-dont-know.html
-
-**Israel Says Michigan Synagogue Attacker’s Brother Was a Hezbollah Commander**\
-`The Israeli military said it killed the brother of Ayman Mohamad Ghazali in an airstrike in Lebanon a week before the assault on the synagogue.`\
-https://nytimes.com/2026/03/15/world/middleeast/israel-lebanon-michigan-synagogue-hezbollah.html
 

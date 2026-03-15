@@ -1,3 +1,15 @@
+**2026 Finalissima between Spain and Argentina cancelled due to Middle East conflict**\
+`The match, was slated to take place in Doha, Qatar on March 27, with UEFA stating that Argentina rejected multiple alternative proposals.`\
+https://nytimes.com/athletic/7079646/2026/03/15/finalissima-cancelled-spain-argentina-uefa/
+
+**Mercedes picked Kimi Antonelli to succeed Lewis Hamilton. He's repaid the faith**\
+`Antonelli has transformed from young hopeful to F1 winner in just over a year with Mercedes.`\
+https://nytimes.com/athletic/7119684/2026/03/15/kimi-antonelli-lewis-hamilton-f1-2026-chinese-gp/
+
+**Oscars Eve in Beverly Hills With Teyana Taylor, Jeff Bezos and Nicole Kidman**\
+`Film’s top stars buzzed over lychee martinis at Chanel’s annual Polo Lounge bash, and a Netflix chief mused about Hollywood’s biggest drama of the year.`\
+https://nytimes.com/2026/03/15/style/oscars-chanel-armani-party.html
+
 **Damson Idris joined 'F1: The Movie' as a casual fan. He left hooked for life**\
 `The British actor says he wants to be part of the movement broadening F1's appeal.`\
 https://nytimes.com/athletic/7118563/2026/03/15/damson-idris-f1-movie/
