@@ -1,3 +1,7 @@
+**Game, Set, Match: Jannik Sinner stops surging Daniil Medvedev for first desert title**\
+`Sinner staved off Medvedev's increased aggressiveness to claim the title and begin a push back toward catching Carlos Alcaraz as world No. 1`\
+https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/
+
 **Amy Madigan wins best supporting actress.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120820/2026/03/15/auburn-miami-ohio-march-madness-
 **Duke, Arizona, Michigan and Florida earn No. 1 seeds in men's NCAA Tournament**\
 `Miami (Ohio) makes the field as a No. 11 seed and will play SMU in the First Four in Dayton, Ohio.`\
 https://nytimes.com/athletic/7120730/2026/03/15/ncaa-tournament-bracket-duke-michigan-arizona/
-
-**Oscars 2026 Winners: Updating List**\
-`The winning actors, directors, pictures and more at the 98th annual Academy Awards.`\
-https://nytimes.com/2026/03/15/movies/oscars-winners-list.html
 
