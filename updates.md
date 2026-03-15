@@ -1,3 +1,19 @@
+**Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
+`In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
+https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
+
+**No Corrections: March 16, 2026**\
+`No corrections appeared in print on Monday, March 16, 2026.`\
+https://nytimes.com/2026/03/15/corrections/no-corrections-march-16-2026.html
+
+**Amy Madigan Wins Best Supporting Actress for ‘Weapons’**\
+`The actress won for her role as Aunt Gladys in Zach Cregger’s horror hit.`\
+https://nytimes.com/2026/03/15/movies/amy-madigan-wins-best-supporting-actress.html
+
+**Laporta re-elected as Barcelona president with 68 per cent of vote**\
+`The 63-year-old said he was sure the upcoming years would be "some of the best in our lives" as he beat opponent Victor Font. `\
+https://nytimes.com/athletic/7116797/2026/03/15/joan-laporta-barcelona-president-election/
+
 **Amy Madigan wins best supporting actress.**\
 `The actress won for her role as Aunt Gladys in the horror movie “Weapons.”`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/amy-madigan-wins-best-supporting-actress
