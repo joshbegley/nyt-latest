@@ -1,3 +1,7 @@
+**How to watch Ducks vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119926/2026/03/15/ducks-vs-canadiens-stream-how-to-watch-march-15/
+
 **Nations Respond With Caution to Trump’s Call to Send Warships to Strait of Hormuz**\
 `President Trump has urged China, Britain, France, Japan and South Korea to send warships to help reopen the waterway, even though they were not involved in the U.S.-Israeli attack on Iran.`\
 https://nytimes.com/2026/03/15/world/middleeast/trump-strait-of-hormuz-iran-warships.html
