@@ -1,3 +1,7 @@
+**Nations Respond With Caution to Trump’s Call to Send Warships to Strait of Hormuz**\
+`President Trump has urged China, Britain, France, Japan and South Korea to send warships to help reopen the waterway, even though they were not involved in the U.S.-Israeli attack on Iran.`\
+https://nytimes.com/2026/03/15/world/middleeast/trump-strait-of-hormuz-iran-warships.html
+
 **How to watch Trail Blazers vs. 76ers: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Philadelphia 76ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119889/2026/03/15/trail-blazers-vs-76ers-stream-how-to-watch-march-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119684/2026/03/15/kimi-antonelli-lewis-hamilton-f1
 **Oscars Eve in Beverly Hills With Teyana Taylor, Jeff Bezos and Nicole Kidman**\
 `Film’s top stars buzzed over lychee martinis at Chanel’s annual Polo Lounge bash, and a Netflix chief mused about Hollywood’s biggest drama of the year.`\
 https://nytimes.com/2026/03/15/style/oscars-chanel-armani-party.html
-
-**Damson Idris joined 'F1: The Movie' as a casual fan. He left hooked for life**\
-`The British actor says he wants to be part of the movement broadening F1's appeal.`\
-https://nytimes.com/athletic/7118563/2026/03/15/damson-idris-f1-movie/
 
