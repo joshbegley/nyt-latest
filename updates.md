@@ -1,3 +1,7 @@
+**Oscar Winners, Will You Be Complicit?**\
+`Right now it does matter a lot whether actors can find the right words.`\
+https://nytimes.com/2026/03/15/opinion/oscar-winners-political-speeches.html
+
 **From Chelsea to Camp Nou, Newcastle now have a blueprint to beat Barca**\
 `A monumental week had the perfect start - but Eddie Howe knows Newcastle's standards cannot slip`\
 https://nytimes.com/athletic/7117462/2026/03/15/newcastle-chelsea-analysis/
