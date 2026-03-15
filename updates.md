@@ -1,3 +1,7 @@
+**Which bubble teams are in the NCAA tournament bracket? Here's what the odds say**\
+`A look at the odds, with thoughts from Jim Root and Doug Kezirian, to break down the bubble teams, including Miami (OH) and Auburn.`\
+https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odds-bracket/
+
 **How to watch Warriors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to-watch-march-15/
