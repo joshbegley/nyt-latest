@@ -1,3 +1,19 @@
+**And the Oscar Goes to …**\
+`A guide to the 2026 Academy Awards.`\
+https://nytimes.com/2026/03/15/briefing/and-the-oscar-goes-to.html
+
+**Verstappen calls those enjoying new F1 racing style 'not real' fans**\
+`The four-time world champion described the new regulations as “anti-racing” and “not a lot of fun” during preseason testing.`\
+https://nytimes.com/athletic/7119613/2026/03/15/max-verstappen-f1-racing-2026-red-bull/
+
+**How to watch Wichita State vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
+`Find out how to watch the Wichita State Shockers play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119619/2026/03/15/wichita-state-vs-south-florida-stream-how-to-watch-march-15/
+
+**How to watch Purdue vs. Michigan men's basketball: Big Ten Tournament Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119617/2026/03/15/purdue-vs-michigan-stream-how-to-watch-march-15/
+
 **How to watch Hofstra vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
 `Find out how to watch the Hofstra Pride play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119610/2026/03/15/hofstra-vs-charleston-sc-stream-how-to-watch-march-15/
