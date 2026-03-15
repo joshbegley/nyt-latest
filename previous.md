@@ -1,3 +1,7 @@
+**On Iran’s Doorstep, 2 Sister Nations Wage Their Own Bloody War**\
+`Pakistani airstrikes have killed at least 75 civilians and displaced 115,000 in Afghanistan, with both sides vowing escalation and no talks in sight.`\
+https://nytimes.com/2026/03/15/world/asia/afghanistan-pakistan-war.html
+
 **Arkansas serves notice with SEC tournament title: Beware the Hogs**\
 `John Calipari won his seventh SEC tournament Sunday — and Darius Acuff Jr. looks ready to lead what might be a Final Four contender.`\
 https://nytimes.com/athletic/7120227/2026/03/15/arkansas-vs-vanderbilt-sec-championship-basketball-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-t
 **Paula Doress-Worters, an Author of ‘Our Bodies, Ourselves,’ Dies at 87**\
 `She wrote about postpartum depression when it was an unmentionable like abortion or birth control, and her research on her own suffering helped countless women.`\
 https://nytimes.com/2026/03/15/books/paula-doress-worters-dead.html
-
-**How to watch Predators vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7120163/2026/03/15/how-to-watch-predators-vs-oilers-tv-channel-and-streaming-options-for-march-15/
 
