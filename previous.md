@@ -1,3 +1,7 @@
+**Entering War’s Third Week, Trump Faces Stark Choices**\
+`As the conflict with Iran expands and intensifies, President Trump’s options — to fight on, or to move toward declaring victory and pulling back — both carry deeply problematic consequences.`\
+https://nytimes.com/2026/03/15/us/politics/trump-stark-choices-iran-war.html
+
 **Pereira questions VAR decision vs. Fulham: 'You cannot celebrate goals'**\
 `Dan Ndoye thought he had given Forest the lead on Sunday but his goal was disallowed for a marginal offside.`\
 https://nytimes.com/athletic/7120117/2026/03/15/nottingham-forest-vitor-pereira-var-fulham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odd
 **How to watch Warriors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to-watch-march-15/
-
-**U.S. beats Canada to win fifth straight Paralympic sled hockey gold medal**\
-`The Americans beat Canada, completing an Olympic and Paralympic hockey sweep and winning their sixth overall Paralympic gold.`\
-https://nytimes.com/athletic/7120063/2026/03/15/winter-paralympics-sled-hockey-usa-canada-gold-medal-jack-wallace/
 

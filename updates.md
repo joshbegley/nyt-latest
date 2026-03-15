@@ -1,3 +1,7 @@
+**Entering War’s Third Week, Trump Faces Stark Choices**\
+`As the conflict with Iran expands and intensifies, President Trump’s options — to fight on, or to move toward declaring victory and pulling back — both carry deeply problematic consequences.`\
+https://nytimes.com/2026/03/15/us/politics/trump-stark-choices-iran-war.html
+
 **Why the Red Sox pushed Garrett Crochet's scheduled spring start back one day**\
 `Boston plans to have Crochet pitch on a six-day schedule early in the season to manage his workload.`\
 https://nytimes.com/athletic/7120025/2026/03/15/red-sox-garrett-crochet-spring-training-schedule/
