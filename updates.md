@@ -1,3 +1,11 @@
+**State Department Cuts Price of Renouncing U.S. Citizenship to $450**\
+`The fee had been increased to $2,350 in 2014, prompting criticism and legal challenges from advocacy groups and Americans living abroad.`\
+https://nytimes.com/2026/03/15/us/us-citizenship-renounce-price-cut.html
+
+**Lewis Hamilton's perfect present to his mom: 'One of the most special times in my life'**\
+`Hamilton has had a constant travel companion so far in F1 2026: His mother. `\
+https://nytimes.com/athletic/7119830/2026/03/15/lewis-hamilton-mothers-day-uk-f1/
+
 **How to watch Ducks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119926/2026/03/15/ducks-vs-canadiens-stream-how-to-watch-march-15/
