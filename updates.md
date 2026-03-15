@@ -1,3 +1,11 @@
+**After an Antisemitic Attack, Some Jews Are Giving Thanks**\
+`They are using an ancient prayer to express gratitude.`\
+https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
+
+**In WBC semifinal between U.S. and Dominican Republic, which team has the edge?**\
+`Both lineups are littered with MVP candidates, All-Stars and Gold Glovers, but which will advance to the WBC championship?`\
+https://nytimes.com/athletic/7119354/2026/03/15/world-baseball-classic-united-states-dominican-republic-semifinals/
+
 **Canadiens scratched Brendan Gallagher for the first time in 13 years. Here's what it meant**\
 `The respected veteran was a healthy scratch in Saturday's loss to the Sharks, a representation of an existential dilemma for Montreal.`\
 https://nytimes.com/athletic/7119364/2026/03/15/canadiens-brendan-gallagher-scratch-loss-sharks/

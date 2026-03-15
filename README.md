@@ -1,3 +1,7 @@
+**Three more Iran players decide to return home after claiming asylum, says Australian immigration minister**\
+`Six members of Iran's women's team initially claimed humanitarian asylum in Australia due to the war in the Middle East.`\
+https://nytimes.com/athletic/7119593/2026/03/15/iran-football-australia-asylum-latest/
+
 **After an Antisemitic Attack, Some Jews Are Giving Thanks**\
 `They are using an ancient prayer to express gratitude.`\
 https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/briefing/and-the-oscar-goes-to.html
 **Verstappen calls those enjoying new F1 racing style 'not real' fans**\
 `The four-time world champion described the new regulations as “anti-racing” and “not a lot of fun” during preseason testing.`\
 https://nytimes.com/athletic/7119613/2026/03/15/max-verstappen-f1-racing-2026-red-bull/
-
-**How to watch Wichita State vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Wichita State Shockers play the South Florida Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119619/2026/03/15/wichita-state-vs-south-florida-stream-how-to-watch-march-15/
 
