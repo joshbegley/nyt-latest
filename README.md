@@ -1,3 +1,11 @@
+**The Briefing: Palace 0 Leeds 0 - Gudmundsson red, Calvert-Lewin penalty woe, but was this a critical point?**\
+`Daniel Farke's side missed a spot kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
+https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudmundsson-palace/
+
+**Manchester United 3 Aston Villa 1: Champions League spot secured? Bruno Fernandes assist record inevitable?**\
+`Analysis of Manchester United's 3-1 win against Aston Villa at Old Trafford`\
+https://nytimes.com/athletic/7115243/2026/03/15/manchester-united-aston-villa-premier-league-analysis/
+
 **Meet the Aigners, the new Paralympic dynasty family that just won nine medals**\
 `Siblings Veronika and Johannes Aigner teamed for seven golds and nine medals in Italy, further cementing their family's Paralympic legacy.`\
 https://nytimes.com/athletic/7119802/2026/03/15/winter-paralympics-aigner-family-veronika-johannes/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/theater/trash-review-perelman.html
 **‘This Is the Best Dish I Have Ever Made From NYT Cooking’**\
 `Readers love Andy Baraghani’s slow-cooked fish with citrus and herbs (and so do I).`\
 https://nytimes.com/2026/03/15/dining/this-is-the-best-dish-i-have-ever-made-from-nyt-cooking.html
-
-**This is what happened on March 14.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-14
-
-**Energy Secretary Says ‘No Guarantees’ Oil Prices Will Fall Soon**\
-`Energy Secretary Chris Wright said the Strait of Hormuz, a critical passageway for oil shipments, remained unsafe for tanker passage. Iran has been firing projectiles and laying mines.`\
-https://nytimes.com/2026/03/15/us/politics/energy-secretary-iran-oil-prices.html
 
