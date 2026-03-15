@@ -1,3 +1,15 @@
+**Why Are We in Iran? On ‘S.N.L.’, Pete Hegseth Has the Answer: ‘I Don’t Know’**\
+`Harry Styles is host and musical guest, while James Austin Johnson and Colin Jost cement their duo as President Trump and his defense secretary on “Saturday Night Live.”`\
+https://nytimes.com/2026/03/15/arts/television/why-iran-hegseth-has-the-answer-on-snl-i-dont-know.html
+
+**Israel Says Michigan Synagogue Attacker’s Brother Was a Hezbollah Commander**\
+`The Israeli military said it killed the brother of Ayman Mohamad Ghazali in an airstrike in Lebanon a week before the assault on the synagogue.`\
+https://nytimes.com/2026/03/15/world/middleeast/israel-lebanon-michigan-synagogue-hezbollah.html
+
+**Three more Iran players decide to return home after claiming asylum, says Australian immigration minister**\
+`Six members of Iran's women's team initially claimed humanitarian asylum in Australia due to the war in the Middle East.`\
+https://nytimes.com/athletic/7119593/2026/03/15/iran-football-australia-asylum-latest/
+
 **After an Antisemitic Attack, Some Jews Are Giving Thanks**\
 `They are using an ancient prayer to express gratitude.`\
 https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7115735/2026/03/15/arda-guler-real-madrid-68-metre-
 **Lowetide: Why the Oilers need to invest in college free agents again**\
 `Here's a look at college free agency this season, and where the Oilers will be looking for help.`\
 https://nytimes.com/athletic/7117900/2026/03/15/edmonton-oilers-free-agents-college-2026/
-
-**And the Oscar Goes to …**\
-`A guide to the 2026 Academy Awards.`\
-https://nytimes.com/2026/03/15/briefing/and-the-oscar-goes-to.html
-
-**Verstappen calls those enjoying new F1 racing style 'not real' fans**\
-`The four-time world champion described the new regulations as “anti-racing” and “not a lot of fun” during preseason testing.`\
-https://nytimes.com/athletic/7119613/2026/03/15/max-verstappen-f1-racing-2026-red-bull/
-
-**How to watch Wichita State vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
-`Find out how to watch the Wichita State Shockers play the South Florida Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119619/2026/03/15/wichita-state-vs-south-florida-stream-how-to-watch-march-15/
 

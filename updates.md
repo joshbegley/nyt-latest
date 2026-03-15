@@ -1,3 +1,15 @@
+**Why Are We in Iran? On ‘S.N.L.’, Pete Hegseth Has the Answer: ‘I Don’t Know’**\
+`Harry Styles is host and musical guest, while James Austin Johnson and Colin Jost cement their duo as President Trump and his defense secretary on “Saturday Night Live.”`\
+https://nytimes.com/2026/03/15/arts/television/why-iran-hegseth-has-the-answer-on-snl-i-dont-know.html
+
+**Israel Says Michigan Synagogue Attacker’s Brother Was a Hezbollah Commander**\
+`The Israeli military said it killed the brother of Ayman Mohamad Ghazali in an airstrike in Lebanon a week before the assault on the synagogue.`\
+https://nytimes.com/2026/03/15/world/middleeast/israel-lebanon-michigan-synagogue-hezbollah.html
+
+**Three more Iran players decide to return home after claiming asylum, says Australian immigration minister**\
+`Six members of Iran's women's team initially claimed humanitarian asylum in Australia due to the war in the Middle East.`\
+https://nytimes.com/athletic/7119593/2026/03/15/iran-football-australia-asylum-latest/
+
 **After an Antisemitic Attack, Some Jews Are Giving Thanks**\
 `They are using an ancient prayer to express gratitude.`\
 https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
