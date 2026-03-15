@@ -1,3 +1,7 @@
+**Paul R. Ehrlich, Who Alarmed the World With ‘The Population Bomb,’ Dies at 93**\
+`His best-selling 1968 book, which forecast global famines, made him a leader of the environmental movement. But he faced criticism when his predictions proved premature.`\
+https://nytimes.com/2026/03/15/books/paul-r-ehrlich-dead.html
+
 **How to watch Jazz vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Utah Jazz play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120333/2026/03/15/jazz-vs-kings-stream-how-to-watch-march-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120163/2026/03/15/predators-vs-oilers-stream-how-t
 **How Trump’s Homeland Security Pick, a Prolific Investor, Got a Lot Wealthier in Congress**\
 `Markwayne Mullin’s financial dealings take on new importance as the Senate considers his nomination to lead an agency whose budget has vastly expanded.`\
 https://nytimes.com/2026/03/15/us/politics/trump-markwayne-mullin-homeland-security-stocks.html
-
-**How to watch Panthers vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7120148/2026/03/15/panthers-vs-kraken-stream-how-to-watch-march-15/
 
