@@ -1,3 +1,7 @@
+**How to watch Warriors vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to-watch-march-15/
+
 **U.S. beats Canada to win fifth straight Paralympic sled hockey gold medal**\
 `The Americans beat Canada, completing an Olympic and Paralympic hockey sweep and winning their sixth overall Paralympic gold.`\
 https://nytimes.com/athletic/7120063/2026/03/15/winter-paralympics-sled-hockey-usa-canada-gold-medal-jack-wallace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119830/2026/03/15/lewis-hamilton-mothers-day-uk-f1
 **How to watch Ducks vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119926/2026/03/15/ducks-vs-canadiens-stream-how-to-watch-march-15/
-
-**Nations Respond With Caution to Trump’s Call to Send Warships to Strait of Hormuz**\
-`President Trump has urged China, Britain, France, Japan and South Korea to send warships to help reopen the waterway, even though they were not involved in the U.S.-Israeli attack on Iran.`\
-https://nytimes.com/2026/03/15/world/middleeast/trump-strait-of-hormuz-iran-warships.html
 

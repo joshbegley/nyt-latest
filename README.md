@@ -1,3 +1,7 @@
+**Which bubble teams are in the NCAA tournament bracket? Here's what the odds say**\
+`A look at the odds, with thoughts from Jim Root and Doug Kezirian, to break down the bubble teams, including Miami (OH) and Auburn.`\
+https://nytimes.com/athletic/7116330/2026/03/15/ncaa-tournament-bubble-teams-odds-bracket/
+
 **How to watch Warriors vs. Knicks: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the New York Knicks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120105/2026/03/15/warriors-vs-knicks-stream-how-to-watch-march-15/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/us/us-citizenship-renounce-price-cut.html
 **Lewis Hamilton's perfect present to his mom: 'One of the most special times in my life'**\
 `Hamilton has had a constant travel companion so far in F1 2026: His mother. `\
 https://nytimes.com/athletic/7119830/2026/03/15/lewis-hamilton-mothers-day-uk-f1/
-
-**How to watch Ducks vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119926/2026/03/15/ducks-vs-canadiens-stream-how-to-watch-march-15/
 
