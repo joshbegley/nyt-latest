@@ -1,3 +1,11 @@
+**‘Trash’ Review: Bickering About Chores, in Sign Language**\
+`James Caverly and Andrew Morrill star as Deaf roommates in their new comedy at the Perelman Performing Arts Center.`\
+https://nytimes.com/2026/03/15/theater/trash-review-perelman.html
+
+**‘This Is the Best Dish I Have Ever Made From NYT Cooking’**\
+`Readers love Andy Baraghani’s slow-cooked fish with citrus and herbs (and so do I).`\
+https://nytimes.com/2026/03/15/dining/this-is-the-best-dish-i-have-ever-made-from-nyt-cooking.html
+
 **This is what happened on March 14.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-14
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118563/2026/03/15/damson-idris-f1-movie/
 **How to watch Sharks vs. Senators: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119736/2026/03/15/sharks-vs-senators-stream-how-to-watch-march-15/
-
-**Mikaela Shiffrin, in first slalom since Olympics, continues her dominant season**\
-`The American Alpine skiing star won Sunday for the eighth time in nine World Cup slalom races as she eyes another overall season title.`\
-https://nytimes.com/athletic/7119638/2026/03/15/mikaela-shiffrin-olympics-world-cup-slalom-are-sweden-win/
-
-**How to watch Pacers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119715/2026/03/15/pacers-vs-bucks-stream-how-to-watch-march-15/
 
