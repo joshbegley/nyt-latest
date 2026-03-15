@@ -1,3 +1,11 @@
+**After an Antisemitic Attack, Some Jews Are Giving Thanks**\
+`They are using an ancient prayer to express gratitude.`\
+https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
+
+**In WBC semifinal between U.S. and Dominican Republic, which team has the edge?**\
+`Both lineups are littered with MVP candidates, All-Stars and Gold Glovers, but which will advance to the WBC championship?`\
+https://nytimes.com/athletic/7119354/2026/03/15/world-baseball-classic-united-states-dominican-republic-semifinals/
+
 **Canadiens scratched Brendan Gallagher for the first time in 13 years. Here's what it meant**\
 `The respected veteran was a healthy scratch in Saturday's loss to the Sharks, a representation of an existential dilemma for Montreal.`\
 https://nytimes.com/athletic/7119364/2026/03/15/canadiens-brendan-gallagher-scratch-loss-sharks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7119613/2026/03/15/max-verstappen-f1-racing-2026-re
 **How to watch Wichita State vs. South Florida men's basketball: AAC Tournament Time, TV, streaming**\
 `Find out how to watch the Wichita State Shockers play the South Florida Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119619/2026/03/15/wichita-state-vs-south-florida-stream-how-to-watch-march-15/
-
-**How to watch Purdue vs. Michigan men's basketball: Big Ten Tournament Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119617/2026/03/15/purdue-vs-michigan-stream-how-to-watch-march-15/
-
-**How to watch Hofstra vs. Charleston (SC) women's basketball: CAA Tournament Time, TV, streaming**\
-`Find out how to watch the Hofstra Pride play the Charleston (SC) Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7119610/2026/03/15/hofstra-vs-charleston-sc-stream-how-to-watch-march-15/
 
