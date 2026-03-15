@@ -1,6 +1,14 @@
+**Confidential Report Calls for Sweeping Changes to Track Covid Vaccine Harms**\
+`A federal work group says Covid vaccine injuries deserve urgent attention, even as Health Secretary Robert F. Kennedy Jr. shifts away from talking about vaccine policy.`\
+https://nytimes.com/2026/03/15/health/covid-vaccine-side-effects-cdc-acip.html
+
+**March Madness bracket prep 2026: Strengths, weaknesses, previews for all 68 teams**\
+`Get all the info you need on this year's Big Dance with an in-depth look at all 68 teams in the men's NCAA Tournament.`\
+https://nytimes.com/athletic/7090849/2026/03/15/mens-march-madness-team-preview-big-board/
+
 **Our Favorite Photos From the Oscars Red Carpet**\
 `Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
-https://nytimes.com/2026/03/15/arts/our-favorite-photos-from-the-oscars-red-carpet.html
+https://nytimes.com/2026/03/15/arts/2026-oscars-red-carpet-fashion-looks.html
 
 **Auburn left out of NCAA Tournament as Miami (Ohio) lands last at-large spot**\
 `Auburn had one of the best wins of the regular season, beating Florida in Gainesville, and had the nation's third-toughest schedule.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/world/middleeast/baghdad-airport-missiles.html
 **Best picture nominees had mixed box office firepower.**\
 `By Brooks Barnes`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscars-box-office-best-picture
-
-**Wide-Eyed and Eager**\
-`In Jamey Smith’s puzzle, school is in session.`\
-https://nytimes.com/2026/03/15/crosswords/daily-puzzle-2026-03-16.html
-
-**Francisco Lindor returns to action, speaks optimistically about Opening Day**\
-`Lindor declared everything is "going in the right direction." His status could have a ripple effect on the Mets' situation in right field.`\
-https://nytimes.com/athletic/7120589/2026/03/15/mets-francisco-lindor-injury-update/
 
