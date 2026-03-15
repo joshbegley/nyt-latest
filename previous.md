@@ -1,3 +1,7 @@
+**Trump adds to speculation about Iranian leader’s condition.**\
+`By Traci Carl and Luke Broadwater`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/trump-adds-to-speculation-about-iranian-leaders-condition
+
 **Venezuela knocks out defending WBC champ Japan with a mighty blow**\
 `Venezuela advances to Monday’s semifinal against Italy.`\
 https://nytimes.com/athletic/7119238/2026/03/15/venezuela-japan-wbc-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/pageoneplus/corrections-march-15-2026.html
 **What the Maple Leafs looked like in their first game without Auston Matthews**\
 `The Leafs fell in a shootout to the Sabres, but despite missing their captain, the performance offered glimmers of hope.`\
 https://nytimes.com/athletic/7119193/2026/03/14/maple-leafs-matthews-absence-nylander-cowan-knies-groulx-sabres/
-
-**Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
-`The Celtics forward played a season-high 32 minutes Saturday in another positive sign in his return from an Achilles injury.`\
-https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-minutes-restriction-wizards/
 

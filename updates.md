@@ -1,3 +1,7 @@
+**Trump adds to speculation about Iranian leader’s condition.**\
+`By Traci Carl and Luke Broadwater`\
+https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/trump-adds-to-speculation-about-iranian-leaders-condition
+
 **Venezuela knocks out defending WBC champ Japan with a mighty blow**\
 `Venezuela advances to Monday’s semifinal against Italy.`\
 https://nytimes.com/athletic/7119238/2026/03/15/venezuela-japan-wbc-scores-results/
