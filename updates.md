@@ -1,3 +1,7 @@
+**U.S. beats Canada to win fifth straight Paralympic sled hockey gold medal**\
+`The Americans beat Canada, completing an Olympic and Paralympic hockey sweep and winning their sixth overall Paralympic gold.`\
+https://nytimes.com/athletic/7120063/2026/03/15/winter-paralympics-sled-hockey-usa-canada-gold-medal-jack-wallace/
+
 **Countdown to the Oscars**\
 `Text by Amanda Webster`\
 https://nytimes.com/card/2026/03/15/arts/countdown-to-the-oscars
