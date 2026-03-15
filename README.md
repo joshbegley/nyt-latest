@@ -1,40 +1,40 @@
-**Kimi Antonelli wins, McLaren disaster, Hamilton is back: Chinese Grand Prix briefing**\
-`Antonelli, 19, is the second-youngest winner in F1 history after Max Verstappen`\
-https://nytimes.com/athletic/7119409/2026/03/15/chinese-grand-prix-briefing-kimi-antonelli-wins/
+**How to watch Timberwolves vs. Thunder: Time, TV, streaming**\
+`Find out how to watch the Minnesota Timberwolves play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119503/2026/03/15/timberwolves-vs-thunder-stream-how-to-watch-march-15/
 
-**Meet the Paralympic 'wax bros': Inside the fine art of perfecting para snowboards**\
-`Ever-changing snow conditions make finding the right wax a constant challenge for wax techs.`\
-https://nytimes.com/athletic/7118829/2026/03/15/winter-paralympics-wax-techs-snowboard-skiing/
+**Brené Brown and Adam Grant Want to Repair the Discourse**\
+`With a new video podcast, the influential authors and former nemeses aim to inject a dose of rationality and humility into your algorithm.`\
+https://nytimes.com/2026/03/15/arts/brene-brown-adam-grant-podcast.html
 
-**Here is the latest.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel/here-is-the-latest
+**War Has Grounded High-Flying Gulf Airlines Like Emirates**\
+`Emirates, Qatar Airways and Etihad Airways have become some of the world’s largest and most profitable thanks to their location at the center of busy travel routes.`\
+https://nytimes.com/2026/03/15/business/iran-war-emirates-qatar-airways-etihad.html
 
-**Live Updates: Trump Urges World to Help Protect Strait of Hormuz**\
-`The president said all countries that use the vital shipping route should send warships. Iran has effectively choked off traffic in the narrow waterway, through which a fifth of the world’s oil must transit.`\
-https://nytimes.com/live/2026/03/15/world/iran-war-trump-oil-israel
+**Iran and the United States: A Long History of Antagonism**\
+`The governments of both countries have repeatedly cast the other as evil, perpetuating a cycle that has culminated in the present war.`\
+https://nytimes.com/2026/03/15/world/middleeast/united-states-iran-history.html
 
-**‘We Had Flunked Out of College and Did Not Want to Face Our Parents’**\
-`Traveling from Cleveland by thumb, a wallet surfaces in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2026/03/15/nyregion/metropolitan-diary.html
+**As Rockets Fly Overhead, Residents of Israel’s Border City Stay Underground**\
+`The Israeli government evacuated Kiryat Shmona during the last round of fighting with Hezbollah in 2023. Residents who were told it was safe to return are again under fire.`\
+https://nytimes.com/2026/03/15/world/middleeast/israel-kiryat-shmona.html
 
-**A Refugee Died After Border Patrol Left Him at a Cafe. Fear Followed.**\
-`Buffalo’s Arakan Rohingya community was rattled after a disabled man’s death. “Our worry comes from future incidents that may happen,” one resident said.`\
-https://nytimes.com/2026/03/15/nyregion/refugee-border-patrol-buffalo-rohingya.html
+**In Texas, an Unyielding Gun Culture Jumps Off YouTube and Into Politics**\
+`Brandon Herrera, a Republican candidate for Congress, built a large online fan base as a “guntuber.”`\
+https://nytimes.com/2026/03/15/us/politics/brandon-hererra-guns-youtube.html
 
-**She Was Paralyzed by a Subway Train. Today, She’s Reclaiming Her Life.**\
-`The artist Emine Yilmaz was shoved into a passing subway car three years ago. Six surgeries later, she’s drawing again.`\
-https://nytimes.com/2026/03/15/nyregion/subway-artist-recovery-trial.html
+**It Was Going to Be Magic City Night at the Atlanta Hawks. Then the Outrage Poured In.**\
+`The famous strip club is a symbol of the authentic city to many people in Atlanta. But others wondered whether the N.B.A. should be promoting it.`\
+https://nytimes.com/2026/03/15/business/magic-city-atlanta-hawks-strip-club.html
 
-**Commuters, Rejoice! The New Portal Bridge Is Ready for Riders.**\
-`The old Portal Bridge disrupted rail commutes in New Jersey for decades, frequently getting stuck when it swung to let boat traffic pass. Now a new bridge is open to the public.`\
-https://nytimes.com/2026/03/15/nyregion/portal-bridge-open-construction.html
+**War in Mideast Tests Europe’s Military Might. The Verdict? Mixed.**\
+`To defend allies from Iran, the continent’s powers have mounted a rare show of force. But those efforts have diverted limited resources from other hot spots.`\
+https://nytimes.com/2026/03/15/world/europe/europe-iran-military.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/15/crosswords/spelling-bee-forum.html
+**Are Driverless Cars Safe? Waymo’s C.E.O. Has Been Trying to Make the Case.**\
+`Waymo’s co-chief executive, Tekedra Mawakana, knows she needs to earn the public’s trust. It won’t be easy.`\
+https://nytimes.com/2026/03/15/business/waymo-ceo-robotaxi.html
 
-**Max Dowman: How a new star was born in 23 minutes**\
-`Arsenal were crying out for a creative spark against Everton — and it was provided by an extraordinary performance by a 16-year-old`\
-https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premier-league-youngest/
+**'I think we are the leaders': Gender equality in tennis, 10 years after scandal at Indian Wells**\
+`In 2016, BNP Paribas Open official Raymond Moore claimed that women's tennis “rides on the coattails” of men's. He resigned 36 hours later.`\
+https://nytimes.com/athletic/7114869/2026/03/15/tennis-women-equality-prize-money-scheduling/
 
