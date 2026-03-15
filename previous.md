@@ -12,7 +12,7 @@ https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-we
 
 **Amy Madigan Wins Best Supporting Actress for ‘Weapons’**\
 `The actress won for her role as Aunt Gladys in Zach Cregger’s horror hit.`\
-https://nytimes.com/2026/03/15/movies/amy-madigan-wins-best-supporting-actress.html
+https://nytimes.com/2026/03/15/movies/amy-madigan-best-supporting-actress-weapons.html
 
 **Men's 2026 March Madness NCAA tournament forecast bracket**\
 ``\

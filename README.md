@@ -1,3 +1,7 @@
+**The most likely team to win the 2026 men's NCAA tournament**\
+`Statistically, only one team has what it takes to cut down the nets in the NCAA men's basketball tournament.`\
+https://nytimes.com/athletic/7101735/2026/03/15/the-most-likely-team-to-win-the-2026-mens-ncaa-tournament/
+
 **Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
 `In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
 https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/health/covid-vaccine-side-effects-cdc-acip.html
 **March Madness bracket prep 2026: Strengths, weaknesses, previews for all 68 teams**\
 `Get all the info you need on this year's Big Dance with an in-depth look at all 68 teams in the men's NCAA Tournament.`\
 https://nytimes.com/athletic/7090849/2026/03/15/mens-march-madness-team-preview-big-board/
-
-**Our Favorite Photos From the Oscars Red Carpet**\
-`Grand entrances, statement-making fashion and the occasional candid moment, on a night geared for gold.`\
-https://nytimes.com/2026/03/15/arts/2026-oscars-red-carpet-fashion-looks.html
 

@@ -1,3 +1,7 @@
+**Amy Madigan Wins Best Supporting Actress for ‘Weapons’**\
+`The actress won for her role as Aunt Gladys in Zach Cregger’s horror hit.`\
+https://nytimes.com/2026/03/15/movies/amy-madigan-best-supporting-actress-weapons.html
+
 **Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
 `In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
 https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
