@@ -1,3 +1,7 @@
+**Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
+`The Celtics forward played a season-high 32 minutes Saturday in another positive sign in his return from an Achilles injury.`\
+https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-minutes-restriction-wizards/
+
 **Another 'stinker' at home spoils Spurgeon's 1,000th game: Takeaways**\
 `The Wild dominated the second half but couldn't overcome a 4-1 deficit despite peppering Igor Shesterkin with 48 shots.`\
 https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/

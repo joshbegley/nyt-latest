@@ -1,3 +1,7 @@
+**Tatum after Celtics loosen minutes restriction: 'I've been responding really well'**\
+`The Celtics forward played a season-high 32 minutes Saturday in another positive sign in his return from an Achilles injury.`\
+https://nytimes.com/athletic/7119097/2026/03/14/jayson-tatum-celtics-achilles-minutes-restriction-wizards/
+
 **Another 'stinker' at home spoils Spurgeon's 1,000th game: Takeaways**\
 `The Wild dominated the second half but couldn't overcome a 4-1 deficit despite peppering Igor Shesterkin with 48 shots.`\
 https://nytimes.com/athletic/7119133/2026/03/14/wild-jared-spurgeon-1000th-game-gustavsson-hynes-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118650/2026/03/14/pga-players-championship-third-r
 **St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
 `With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
 https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/
-
-**Warning to Americans to leave Iraq is a sign the Iran war is spilling over the border.**\
-`By Pranav Baskar and Eve Sampson`\
-https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/warning-to-americans-to-leave-iraq-is-a-sign-the-iran-war-is-spilling-over-the-border
 
