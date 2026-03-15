@@ -1,3 +1,7 @@
+**Two Arrested in Death of Anti-Iranian Regime Activist in Canada**\
+`A man and a woman were charged with murder in what the authorities described as a “targeted incident” against Masood Masjoody, who had gone missing weeks ago in British Columbia.`\
+https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
+
 **From Chelsea to Camp Nou, Newcastle now have a blueprint to beat Barca**\
 `A monumental week had the perfect start - but Eddie Howe knows Newcastle's standards cannot slip`\
 https://nytimes.com/athletic/7117462/2026/03/15/newcastle-chelsea-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7119117/2026/03/15/world-baseball-classic-italy-ven
 **Trump adds to speculation about Iranian leader’s condition.**\
 `By Traci Carl and Luke Broadwater`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/trump-adds-to-speculation-about-iranian-leaders-condition
-
-**Venezuela knocks out defending WBC champ Japan with a mighty blow**\
-`Venezuela advances to Monday’s semifinal against Italy.`\
-https://nytimes.com/athletic/7119238/2026/03/15/venezuela-japan-wbc-scores-results/
 
