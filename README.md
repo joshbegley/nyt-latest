@@ -1,3 +1,7 @@
+**U.S. Military Names 6 Service Members Killed in Crash of Refueling Tanker in Iraq**\
+`The crew members had been part of the U.S. and Israel’s war on Iran, bringing the death toll of American service members in the conflict to at least 13.`\
+https://nytimes.com/2026/03/14/us/names-of-us-soliders-killed-tanker-crash.html
+
 **Anže Kopitar becomes L.A. Kings' all-time leading scorer**\
 `Kopitar, the Kings' captain and a two-time Stanley Cup champion, is in his 20th and final NHL season.`\
 https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record-dionne/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118918/2026/03/14/safety-nick-scott-panthers-contr
 **F.C.C. Chair Threatens to Revoke Broadcasters’ Licenses Over War Coverage**\
 `The comment from Brendan Carr came on the heels of a social media message from President Trump criticizing the news media’s coverage of the war with Iran.`\
 https://nytimes.com/2026/03/14/world/middleeast/fcc-broadcasters-iran-war.html
-
-**WR Darnell Mooney agrees to 1-year deal with Giants: Source**\
-`New York Giants add speed receiver Darnell Mooney on one-year-deal.`\
-https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
 
