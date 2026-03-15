@@ -1,3 +1,7 @@
+**How to watch Jazz vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Utah Jazz play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7120333/2026/03/15/jazz-vs-kings-stream-how-to-watch-march-15/
+
 **Powerful Winter Storm Disrupts Travel and Knocks Out Power in the Upper Midwest**\
 `Officials in Minnesota and Wisconsin warned drivers to stay off the roads as more blowing and drifting snow was expected on Sunday.`\
 https://nytimes.com/2026/03/15/weather/snow-storm-blizzard-minnesota-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/us/politics/trump-markwayne-mullin-homeland-secur
 **How to watch Panthers vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7120148/2026/03/15/panthers-vs-kraken-stream-how-to-watch-march-15/
-
-**How to watch Maple Leafs vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7120141/2026/03/15/maple-leafs-vs-wild-stream-how-to-watch-march-15/
 
