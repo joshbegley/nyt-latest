@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/15/world/americas/desperation-in-cuba-ignites-unusua
 `Smith sits one assist shy of tying the NCAA career assist record held by Bobby Hurley after leading the Boilermakers past Michigan.`\
 https://nytimes.com/athletic/7120656/2026/03/15/purdue-michigan-big-ten-championship-basketball-score-result/
 
-**Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and one more playoff push**\
+**Ahead of pivotal returns, the nostalgic thrill of Sid, Geno and 1 more playoff push**\
 `The Penguins managed to tread water without two of their most important players. Now their closers are set to return.`\
 https://nytimes.com/athletic/7120278/2026/03/15/penguins-sidney-crosby-evgeni-malkin-playoffs-stretch-run/
 
@@ -27,7 +27,7 @@ https://nytimes.com/2026/03/15/movies/oscars-academy-awards-security-safety.html
 https://nytimes.com/athletic/7120457/2026/03/15/lindsey-vonn-olympics-injury-retirement/
 
 **Oscars Photos: All the Looks From the 2026 Red Carpet**\
-`See what nominees and guests for the 98th Academy Awards wore to arrive to the ceremony.`\
+`See what nominees and guests for the 98th Academy Awards — including Jessie Buckley, Odessa A’zion and Renate Reinsve — wore to arrive to the ceremony.`\
 https://nytimes.com/2026/03/15/style/oscars-2026-red-carpet-photos.html
 
 **The Iran War’s Global Reach**\
