@@ -1,3 +1,11 @@
+**The Briefing: Palace 0 Leeds 0 - Gudmundsson red, Calvert-Lewin penalty woe, but was this a critical point?**\
+`Daniel Farke's side missed a spot kick and were reduced to 10 men before the break, but still prevented Palace having a shot on target`\
+https://nytimes.com/athletic/7115242/2026/03/15/leeds-calvert-lewin-penalty-gudmundsson-palace/
+
+**Manchester United 3 Aston Villa 1: Champions League spot secured? Bruno Fernandes assist record inevitable?**\
+`Analysis of Manchester United's 3-1 win against Aston Villa at Old Trafford`\
+https://nytimes.com/athletic/7115243/2026/03/15/manchester-united-aston-villa-premier-league-analysis/
+
 **Meet the Aigners, the new Paralympic dynasty family that just won nine medals**\
 `Siblings Veronika and Johannes Aigner teamed for seven golds and nine medals in Italy, further cementing their family's Paralympic legacy.`\
 https://nytimes.com/athletic/7119802/2026/03/15/winter-paralympics-aigner-family-veronika-johannes/
