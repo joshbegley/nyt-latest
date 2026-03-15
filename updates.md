@@ -1,3 +1,11 @@
+**Anže Kopitar becomes L.A. Kings' all-time leading scorer**\
+`Kopitar, the Kings' captain and a two-time Stanley Cup champion, is in his 20th and final NHL season.`\
+https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record-dionne/
+
+**What we saw, heard at The Players Championship: Åberg grinds to 3-shot lead**\
+`A look inside the third round of The Players Championship, where Scottie Scheffler made another Saturday charge.`\
+https://nytimes.com/athletic/7118650/2026/03/14/pga-players-championship-third-round-ludvig-aberg/
+
 **St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
 `With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
 https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/

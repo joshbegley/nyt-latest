@@ -1,3 +1,11 @@
+**Anže Kopitar becomes L.A. Kings' all-time leading scorer**\
+`Kopitar, the Kings' captain and a two-time Stanley Cup champion, is in his 20th and final NHL season.`\
+https://nytimes.com/athletic/7118370/2026/03/14/anze-kopitar-kings-points-record-dionne/
+
+**What we saw, heard at The Players Championship: Åberg grinds to 3-shot lead**\
+`A look inside the third round of The Players Championship, where Scottie Scheffler made another Saturday charge.`\
+https://nytimes.com/athletic/7118650/2026/03/14/pga-players-championship-third-round-ludvig-aberg/
+
 **St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
 `With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
 https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/
@@ -29,13 +37,4 @@ https://nytimes.com/2026/03/14/world/middleeast/fcc-broadcasters-iran-war.html
 **WR Darnell Mooney agrees to 1-year deal with Giants: Source**\
 `New York Giants add speed receiver Darnell Mooney on one-year-deal.`\
 https://nytimes.com/athletic/7118821/2026/03/14/wr-darnell-mooney-contract-new-york-giants/
-
-**Fund-raising Email Features Trump at Ritual for Soldiers Killed in Iran War**\
-`The email from the group Never Surrender seeks donations for President Trump from those who want access to “private national security briefings” from him.`\
-https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html
-
-**Live Q&A: Talk Blue Jays with reporter Mitch Bannon at 10:30 a.m. ET on Monday**\
-`<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
-`\
-https://nytimes.com/athletic/7118827/2026/03/14/blue-jays-live-mitch-bannon/
 
