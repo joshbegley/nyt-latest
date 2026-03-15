@@ -1,3 +1,11 @@
+**The Harm of Banning Care for Trans Youth**\
+`Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
+https://nytimes.com/2026/03/15/opinion/trans-youth-care.html
+
+**She Has a Knack for Stylish Films**\
+`Mona Fastvold has become associated with visually rich feature films and to shorter videos for fashion brands. How does she square art with commerce?`\
+https://nytimes.com/2026/03/15/style/tiffany-campaign-natalie-portman-mona-fastvold.html
+
 **Why Are We in Iran? On ‘S.N.L.’, Pete Hegseth Has the Answer: ‘I Don’t Know’**\
 `Harry Styles is host and musical guest, while James Austin Johnson and Colin Jost cement their duo as President Trump and his defense secretary on “Saturday Night Live.”`\
 https://nytimes.com/2026/03/15/arts/television/why-iran-hegseth-has-the-answer-on-snl-i-dont-know.html

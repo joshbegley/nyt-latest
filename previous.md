@@ -1,3 +1,11 @@
+**The Harm of Banning Care for Trans Youth**\
+`Readers respond to a guest essay that argued that medical associations have lost credibility over their approach to care for transgender youth.`\
+https://nytimes.com/2026/03/15/opinion/trans-youth-care.html
+
+**She Has a Knack for Stylish Films**\
+`Mona Fastvold has become associated with visually rich feature films and to shorter videos for fashion brands. How does she square art with commerce?`\
+https://nytimes.com/2026/03/15/style/tiffany-campaign-natalie-portman-mona-fastvold.html
+
 **Why Are We in Iran? On ‘S.N.L.’, Pete Hegseth Has the Answer: ‘I Don’t Know’**\
 `Harry Styles is host and musical guest, while James Austin Johnson and Colin Jost cement their duo as President Trump and his defense secretary on “Saturday Night Live.”`\
 https://nytimes.com/2026/03/15/arts/television/why-iran-hegseth-has-the-answer-on-snl-i-dont-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7118847/2026/03/15/everton-arsenal-fan-police-barry
 **Access All Areas with Motherwell as they visit Celtic Park**\
 `Jordan Campbell spent the week with Jens Berthel Askou and his upwardly mobile team as they prepared to visit Celtic `\
 https://nytimes.com/athletic/7116264/2026/03/15/motherwell-askou-scotland-tactics-celtic/
-
-**Arda Guler and the 68-metre 'golazo' that sent the Bernabeu wild**\
-`On Saturday night the Real Madrid midfielder scored one of the most spectacular goals La Liga has ever witnessed`\
-https://nytimes.com/athletic/7115735/2026/03/15/arda-guler-real-madrid-68-metre-goal/
-
-**Lowetide: Why the Oilers need to invest in college free agents again**\
-`Here's a look at college free agency this season, and where the Oilers will be looking for help.`\
-https://nytimes.com/athletic/7117900/2026/03/15/edmonton-oilers-free-agents-college-2026/
 
