@@ -1,3 +1,7 @@
+**Kimi Antonelli wins, McLaren disaster, Hamilton is back: Chinese Grand Prix briefing**\
+`Antonelli, 19, is the second-youngest winner in F1 history after Max Verstappen`\
+https://nytimes.com/athletic/7119409/2026/03/15/chinese-grand-prix-briefing-kimi-antonelli-wins/
+
 **Meet the Paralympic 'wax bros': Inside the fine art of perfecting para snowboards**\
 `Ever-changing snow conditions make finding the right wax a constant challenge for wax techs.`\
 https://nytimes.com/athletic/7118829/2026/03/15/winter-paralympics-wax-techs-snowboard-skiing/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/crosswords/spelling-bee-forum.html
 **Max Dowman: How a new star was born in 23 minutes**\
 `Arsenal were crying out for a creative spark against Everton — and it was provided by an extraordinary performance by a 16-year-old`\
 https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premier-league-youngest/
-
-**Two Arrested in Death of Anti-Iranian Regime Activist in Canada**\
-`A man and a woman were charged with murder in what the authorities described as a “targeted incident” against Masood Masjoody, who had gone missing weeks ago in British Columbia.`\
-https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
 

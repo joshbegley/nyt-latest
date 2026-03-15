@@ -1,3 +1,7 @@
+**Kimi Antonelli wins, McLaren disaster, Hamilton is back: Chinese Grand Prix briefing**\
+`Antonelli, 19, is the second-youngest winner in F1 history after Max Verstappen`\
+https://nytimes.com/athletic/7119409/2026/03/15/chinese-grand-prix-briefing-kimi-antonelli-wins/
+
 **Meet the Paralympic 'wax bros': Inside the fine art of perfecting para snowboards**\
 `Ever-changing snow conditions make finding the right wax a constant challenge for wax techs.`\
 https://nytimes.com/athletic/7118829/2026/03/15/winter-paralympics-wax-techs-snowboard-skiing/
