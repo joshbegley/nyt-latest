@@ -1,3 +1,7 @@
+**Mikaela Shiffrin, in first slalom since Olympics, continues her dominant season**\
+`The American Alpine skiing star won Sunday for the eighth time in nine World Cup slalom races as she eyes another overall season title.`\
+https://nytimes.com/athletic/7119638/2026/03/15/mikaela-shiffrin-olympics-world-cup-slalom-are-sweden-win/
+
 **How to watch Pacers vs. Bucks: Time, TV, streaming**\
 `Find out how to watch the Indiana Pacers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119715/2026/03/15/pacers-vs-bucks-stream-how-to-watch-march-15/

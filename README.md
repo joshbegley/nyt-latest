@@ -1,3 +1,7 @@
+**How to watch Sharks vs. Senators: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119736/2026/03/15/sharks-vs-senators-stream-how-to-watch-march-15/
+
 **Mikaela Shiffrin, in first slalom since Olympics, continues her dominant season**\
 `The American Alpine skiing star won Sunday for the eighth time in nine World Cup slalom races as she eyes another overall season title.`\
 https://nytimes.com/athletic/7119638/2026/03/15/mikaela-shiffrin-olympics-world-cup-slalom-are-sweden-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/world/middleeast/israel-lebanon-michigan-synagogu
 **Three more Iran players decide to return home after claiming asylum, says Australian immigration minister**\
 `Six members of Iran's women's team initially claimed humanitarian asylum in Australia due to the war in the Middle East.`\
 https://nytimes.com/athletic/7119593/2026/03/15/iran-football-australia-asylum-latest/
-
-**After an Antisemitic Attack, Some Jews Are Giving Thanks**\
-`They are using an ancient prayer to express gratitude.`\
-https://nytimes.com/2026/03/15/briefing/after-an-antisemitic-attack-some-jews-are-giving-thanks.html
 
