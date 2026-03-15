@@ -27,7 +27,7 @@ https://nytimes.com/athletic/7119209/2026/03/15/max-dowman-arsenal-everton-premi
 https://nytimes.com/2026/03/15/world/canada/canada-iran-arrests-death.html
 
 **From Chelsea to Camp Nou, Newcastle now have a blueprint to beat Barca**\
-`A monumental week had the perfect start - but Eddie Howe knows Newcastle's standards cannot slip`\
+`A monumental week had the perfect start — but Eddie Howe knows Newcastle's standards cannot slip`\
 https://nytimes.com/athletic/7117462/2026/03/15/newcastle-chelsea-analysis/
 
 **Guardiola does not often make mistakes. At West Ham, he made a big one**\
