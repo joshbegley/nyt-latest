@@ -1,3 +1,7 @@
+**St. John's repeats as Big East tourney champ with wire-to-wire rout of UConn**\
+`With a chance to make a case for a top seed in the NCAA Tournament, the Huskies got jumped early by the Johnnies and never fully recovered.`\
+https://nytimes.com/athletic/7118888/2026/03/14/st-johns-uconn-big-east-tournament/
+
 **Warning to Americans to leave Iraq is a sign the Iran war is spilling over the border.**\
 `By Pranav Baskar and Eve Sampson`\
 https://nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel/warning-to-americans-to-leave-iraq-is-a-sign-the-iran-war-is-spilling-over-the-border
@@ -34,8 +38,4 @@ https://nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html
 `<p>As the defending American League champs barrel toward Opening Day, our beat writer Mitch Bannon is here to answer your burning questions. If you&#8217;re looking for intel on injuries, the roster or the vibe of camp, please join us for an hour of spirited conversation on Monday at 10:30 a.m.</p>
 `\
 https://nytimes.com/athletic/7118827/2026/03/14/blue-jays-live-mitch-bannon/
-
-**History Course**\
-`Miranda Kany whips up a Sunday puzzle for the ages.`\
-https://nytimes.com/2026/03/14/crosswords/daily-puzzle-2026-03-15.html
 
