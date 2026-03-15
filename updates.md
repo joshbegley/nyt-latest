@@ -1,3 +1,7 @@
+**Eagles re-signing tight end Dallas Goedert to 1-year deal: Sources**\
+`With the Eagles since 2018, Goedert is a proven pass catcher with a strong connection with quarterback Jalen Hurts.`\
+https://nytimes.com/athletic/7096773/2026/03/15/dallas-goedert-eagles-nfl-free-agency-2026/
+
 **At WBC, Ronald Acuña Jr.’s chant of ‘we ate sushi!’ mirrors chiding amongst fans**\
 `Acuña became the latest to reach for what’s become an easy way to troll opponents this WBC: invoking a rival nation’s most popular dish.`\
 https://nytimes.com/athletic/7120387/2026/03/15/wbc-ronald-acuna-sushi-venezuela-japan/
