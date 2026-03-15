@@ -1,3 +1,19 @@
+**How to watch Lehigh vs. Holy Cross women's basketball: Patriot Tournament Time, TV, streaming**\
+`Find out how to watch the Lehigh Mountain Hawks play the Holy Cross Crusaders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119530/2026/03/15/lehigh-vs-holy-cross-stream-how-to-watch-march-15/
+
+**How to watch LIU vs. Fairleigh Dickinson women's basketball: NEC Tournament Time, TV, streaming**\
+`Find out how to watch the Long Island Sharks play the Fairleigh Dickinson Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7119528/2026/03/15/liu-vs-fairleigh-dickinson-stream-how-to-watch-march-15/
+
+**WBC semifinals explainer: Clash of the Titans as Team USA takes on Dominican Republic**\
+`All eyes will be on Team USA's Paul Skenes as he faces off against the most fearsome lineup in the entire tournament in Team DR.`\
+https://nytimes.com/athletic/7117466/2026/03/15/wbc-semifinals-explainer-clash-of-the-titans-as-team-usa-takes-on-dominican-republic/
+
+**The New York Times International Edition in Print for Monday, March 16, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/15/todays-new-york-times-international-edition
+
 **How to watch Timberwolves vs. Thunder: Time, TV, streaming**\
 `Find out how to watch the Minnesota Timberwolves play the Oklahoma City Thunder, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7119503/2026/03/15/timberwolves-vs-thunder-stream-how-to-watch-march-15/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/15/world/middleeast/israel-kiryat-shmona.html
 **In Texas, an Unyielding Gun Culture Jumps Off YouTube and Into Politics**\
 `Brandon Herrera, a Republican candidate for Congress, built a large online fan base as a “guntuber.”`\
 https://nytimes.com/2026/03/15/us/politics/brandon-hererra-guns-youtube.html
-
-**It Was Going to Be Magic City Night at the Atlanta Hawks. Then the Outrage Poured In.**\
-`The famous strip club is a symbol of the authentic city to many people in Atlanta. But others wondered whether the N.B.A. should be promoting it.`\
-https://nytimes.com/2026/03/15/business/magic-city-atlanta-hawks-strip-club.html
-
-**War in Mideast Tests Europe’s Military Might. The Verdict? Mixed.**\
-`To defend allies from Iran, the continent’s powers have mounted a rare show of force. But those efforts have diverted limited resources from other hot spots.`\
-https://nytimes.com/2026/03/15/world/europe/europe-iran-military.html
-
-**Are Driverless Cars Safe? Waymo’s C.E.O. Has Been Trying to Make the Case.**\
-`Waymo’s co-chief executive, Tekedra Mawakana, knows she needs to earn the public’s trust. It won’t be easy.`\
-https://nytimes.com/2026/03/15/business/waymo-ceo-robotaxi.html
-
-**'I think we are the leaders': Gender equality in tennis, 10 years after scandal at Indian Wells**\
-`In 2016, BNP Paribas Open official Raymond Moore claimed that women's tennis “rides on the coattails” of men's. He resigned 36 hours later.`\
-https://nytimes.com/athletic/7114869/2026/03/15/tennis-women-equality-prize-money-scheduling/
 
