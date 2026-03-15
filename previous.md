@@ -1,3 +1,7 @@
+**Meet the Aigners, the new Paralympic dynasty family that just won nine medals**\
+`Siblings Veronika and Johannes Aigner teamed for seven golds and nine medals in Italy, further cementing their family's Paralympic legacy.`\
+https://nytimes.com/athletic/7119802/2026/03/15/winter-paralympics-aigner-family-veronika-johannes/
+
 **State Department Cuts Price of Renouncing U.S. Citizenship to $450**\
 `The fee had been increased to $2,350 in 2014, prompting criticism and legal challenges from advocacy groups and Americans living abroad.`\
 https://nytimes.com/2026/03/15/us/us-citizenship-renounce-price-cut.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happ
 **Energy Secretary Says ‘No Guarantees’ Oil Prices Will Fall Soon**\
 `Energy Secretary Chris Wright said the Strait of Hormuz, a critical passageway for oil shipments, remained unsafe for tanker passage. Iran has been firing projectiles and laying mines.`\
 https://nytimes.com/2026/03/15/us/politics/energy-secretary-iran-oil-prices.html
-
-**Nordic Leaders Praise Carney as They Discuss Arctic Security**\
-`Canada’s prime minister got a warm welcome from leaders still smarting about President Trump’s remarks two months ago about taking over Greenland.`\
-https://nytimes.com/2026/03/15/world/canada/nordic-leaders-praise-carney-as-they-discuss-arctic-security.html
 
