@@ -1,3 +1,7 @@
+**Chinese GP: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 experts after F1's 2026 Chinese GP?`\
+https://nytimes.com/athletic/7119562/2026/03/15/chinese-gp-submit-your-questions-for-our-f1-mailbag/
+
 **Penguins claw their way back from 2-goal deficit for enormous win in Utah**\
 `With what felt like half the Eastern Conference breathing down their necks, the Penguins pulled off the comeback against the Mammoth.`\
 https://nytimes.com/athletic/7119266/2026/03/15/penguins-mantha-playoff-race-skinner-mammoth/
