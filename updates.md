@@ -1,3 +1,7 @@
+**Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
+`Åberg will try to make it consecutive European winners at TPC Sawgrass after Rory McIlroy's victory last year.`\
+https://nytimes.com/athletic/7118971/2026/03/14/ludvig-aberg-players-championship-day-three-notes/
+
 **Three More Iranian Soccer Players Withdraw Bid for Asylum in Australia**\
 `Seven members of the national women’s team had sought refuge in the country after they were labeled ‘traitors’ at home. Four of them have since changed their minds.`\
 https://nytimes.com/2026/03/14/world/australia/iranian-soccer-asylum-australia.html

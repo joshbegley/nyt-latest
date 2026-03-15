@@ -1,3 +1,7 @@
+**Ludvig Åberg takes lead into final day at The Players, and more Day 3 notes**\
+`Åberg will try to make it consecutive European winners at TPC Sawgrass after Rory McIlroy's victory last year.`\
+https://nytimes.com/athletic/7118971/2026/03/14/ludvig-aberg-players-championship-day-three-notes/
+
 **Three More Iranian Soccer Players Withdraw Bid for Asylum in Australia**\
 `Seven members of the national women’s team had sought refuge in the country after they were labeled ‘traitors’ at home. Four of them have since changed their minds.`\
 https://nytimes.com/2026/03/14/world/australia/iranian-soccer-asylum-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118931/2026/03/14/arizona-vs-houston-basketball-bi
 **For Trump, a Promised Economic Boom Collides With the Costs of War**\
 `President Trump had envisioned a growing economy and improving fortunes for American families in 2026. That appears at risk in his war with Iran.`\
 https://nytimes.com/2026/03/14/business/economy/trump-economic-boom-iran-war.html
-
-**Panthers re-signing safety Nick Scott to 1-year contract**\
-`The deal is worth up to $3.25 million.`\
-https://nytimes.com/athletic/7118918/2026/03/14/safety-nick-scott-panthers-contract/
 
