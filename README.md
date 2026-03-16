@@ -1,3 +1,7 @@
+**With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
+`President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
+https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
+
 **The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7121448/2026/03/16/whatnot-sports-cards-breaks-repa
 **Tanking NBA teams will be watching these NCAA Tournament players with keen interest**\
 `Plus, who's hot (Lakers, Magic) and not (Wolves, Warriors) and the battle for playoff seeding in this week's NBA Rewind.`\
 https://nytimes.com/athletic/7120076/2026/03/16/ncaa-tournament-nba-draft-prospects-nba-rewind/
-
-**No H.I.V. Aid Without More Access to Minerals: U.S. Ponders ‘Sticks’ Against Zambia**\
-`A draft State Department memo outlines ways the Trump administration may ratchet up pressure on the African country by ending health support “on a massive scale.”`\
-https://nytimes.com/2026/03/16/health/zambia-hiv-aid-minerals-trump.html
 
