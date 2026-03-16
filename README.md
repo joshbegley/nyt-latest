@@ -1,3 +1,7 @@
+**Trump Is Choosing ‘Risk Over Process’ in Iran**\
+`Does the president need congressional approval to engage in a war? A former Trump official, Nadia Schadlow, says it’s more complicated than you might think on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010758679/trump-is-choosing-risk-over-process-in-iran.html
+
 **Vanity Fair Oscar Party: Arrival Looks From the Night’s Biggest After-Party**\
 `The magazine’s new editor slashed the guest list in hopes of increasing the event’s starriness per capita. Here’s what those who made the cut wore to party at LACMA.`\
 https://nytimes.com/2026/03/16/style/vanity-fair-oscars-party-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/realestate/chicago-imagists-inspired-home-renovat
 **Intrigue, Power Plays and Rivalries: Inside the Rise of Mojtaba Khamenei**\
 `The weeklong fight over Iran’s next leader pitted the Revolutionary Guards against moderates. The generals won, but only over spirited resistance.`\
 https://nytimes.com/2026/03/16/world/middleeast/iran-mojtaba-khamenei-election-supreme-leader.html
-
-**Iran War Risks Sharpening Fed Divisions Over Rate Cuts**\
-`The Federal Reserve is set to hold interest rates steady this week as officials grapple with a host of new economic risks stemming from the conflict in the Middle East.`\
-https://nytimes.com/2026/03/16/business/iran-war-fed-rate-cuts.html
 

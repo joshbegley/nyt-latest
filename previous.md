@@ -1,3 +1,7 @@
+**Vanity Fair Oscar Party: Arrival Looks From the Night’s Biggest After-Party**\
+`The magazine’s new editor slashed the guest list in hopes of increasing the event’s starriness per capita. Here’s what those who made the cut wore to party at LACMA.`\
+https://nytimes.com/2026/03/16/style/vanity-fair-oscars-party-photos.html
+
 **Best and Worst Moments From the 2026 Oscars**\
 `There was a lot to take in, from Michael B. Jordan’s thrilling win to the perplexing “bum drum.”`\
 https://nytimes.com/2026/03/16/movies/oscars-moments-best-worst.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/world/middleeast/iran-mojtaba-khamenei-election-s
 **Iran War Risks Sharpening Fed Divisions Over Rate Cuts**\
 `The Federal Reserve is set to hold interest rates steady this week as officials grapple with a host of new economic risks stemming from the conflict in the Middle East.`\
 https://nytimes.com/2026/03/16/business/iran-war-fed-rate-cuts.html
-
-**How an Artist Lives on $36,000 a Year on the Upper West Side**\
-`Gaya Palmer credits her rent-stabilized apartment for making a life filled with art, monthly lunch dates at Cafe Luxembourg and spontaneous dance parties possible.`\
-https://nytimes.com/interactive/2026/03/16/nyregion/nyc-budgeting-affordability-palmer.html
 
