@@ -1,3 +1,15 @@
+**‘Not acceptable’: Bill Guerin demands urgency as Wild stumble against non-playoff teams**\
+`The Wild have lost three straight games to non-playoff teams. Guerin: “We're too loose right now, and that's everybody.”`\
+https://nytimes.com/athletic/7123367/2026/03/16/wild-losing-streak-bill-guerin/
+
+**Neymar misses out on Brazil squad, Igor Thiago receives first call-up**\
+`Rayan, Leo Pereira and Gabriel Sara have been called up for the first time, while Endrick returns to the squad.`\
+https://nytimes.com/athletic/7111720/2026/03/16/brazil-squad-march-neymar-igor-thiago/
+
+**Battered Cuba, Seeking Lifeline, May Open Itself to Outside Investment**\
+`Cuba’s deputy prime minister said his country would announce on Monday a move to allow Cubans abroad to own businesses on the island and to invest in infrastructure.`\
+https://nytimes.com/2026/03/16/world/americas/cuba-us-foreign-investment-businesses.html
+
 **What Are Trump’s Positions on Iran? They Can Change by the Sentence.**\
 `The president is no stranger to staking out contradictory stands, part of what his aides say is his negotiating style. But on Iran, his shifting positions are colliding with the consequences of war.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-war.html
@@ -11,7 +23,7 @@ https://nytimes.com/video/us/politics/100000010782675/trump-nato-strait-of-hormu
 https://nytimes.com/athletic/7123051/2026/03/16/the-definitive-guide-to-march-madness-2026-first-round-upsets/
 
 **3 Are Dead, Including a Child, in Fast-Moving Queens Fire**\
-`The building in Flushing was engulfed in flames by the time firefighters arrived four minutes after a 911 call. Three people jumped out of windows.`\
+`The building in Flushing was engulfed in flames by the time firefighters arrived four minutes after a 911 call. Three other people jumped out of windows and were injured.`\
 https://nytimes.com/2026/03/16/nyregion/fatal-fire-queens-three-dead.html
 
 **Nvidia Built the A.I. Era. Now It Has to Defend It.**\
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/16/technology/nvidia-gtc-ai-chips-huang.html
 **Detailing Chelsea's payments to agents and clubs, FaceTimes and avoiding bigger punishment**\
 `The Athletic has broken down the Premier League's sanction agreement with Chelsea over suspended ban`\
 https://nytimes.com/athletic/7122929/2026/03/16/chelsea-transfer-ban-explained/
-
-**NCAA Tournament bracket observations: 12 things that stand out**\
-`Duke and Michigan State in the same region, again? Mizzou's home-court draw and Zuby Ejiofor's dream matchup, plus more bracket tidbits.`\
-https://nytimes.com/athletic/7122998/2026/03/16/ncaa-tournament-bracket-observations/
-
-**How to watch Penguins vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7123348/2026/03/16/penguins-vs-avalanche-stream-how-to-watch-march-16/
-
-**Oscars Cuts Off ‘Golden’ Songwriter, From ‘KPop Demon Hunters’**\
-`The Oscars mercilessly cut off the speech of a songwriter of “Golden,” from “KPop Demon Hunters,” which won best original song on Sunday.`\
-https://nytimes.com/video/arts/television/100000010781854/kpop-demon-hunters-ejae-oscars.html
 
