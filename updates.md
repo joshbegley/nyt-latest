@@ -1,3 +1,7 @@
+**Trump Hits Out at Allies After Cool Response to Requests for War Ships**\
+`Australia, Germany and Japan said they weren’t planning to participate in efforts to reopen the Strait of Hormuz. President Trump said his call for help was really a loyalty test.`\
+https://nytimes.com/2026/03/16/world/middleeast/trump-hits-out-at-allies-after-cool-response-to-requests-for-war-ships.html
+
 **USF coach Bryan Hodgson gets a March Madness moment his father can see live**\
 `A first-round site of Buffalo, N.Y., for Hodgson's first NCAA Tournament felt almost like divine intervention.`\
 https://nytimes.com/athletic/7123580/2026/03/16/usf-coach-bryan-hodgson-march-madness-father-moment/
