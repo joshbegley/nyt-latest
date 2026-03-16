@@ -1,3 +1,7 @@
+**As Israel Expands Ground Assault in Lebanon, One Strategic Town Resists**\
+`The town of Khiam’s location on high ground just a few miles north of the border between Israel and Lebanon has made it coveted territory over multiple conflicts.`\
+https://nytimes.com/2026/03/16/world/middleeast/lebanon-strategic-town-khiam.html
+
 **Review: A Belated New York Arrival for a Broadway Operetta**\
 `Erich Wolfgang Korngold’s “The Silent Serenade,” written in the 1940s, was given its English-language, United States premiere by Mannes Opera.`\
 https://nytimes.com/2026/03/16/arts/music/mannes-opera-silent-serenade-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122487/2026/03/16/nba-expansion-board-of-govenors-
 **7 tips to help you own all of your March Madness bracket pools**\
 `Need help filling out your bracket? Look to history for how many upsets to pick and which seeds are usually the most vulnerable.`\
 https://nytimes.com/athletic/7100652/2026/03/16/march-madness-bracket-tips-advice-guide/
-
-**NWSL 2026 opening weekend: Big comebacks, red cards and packed stadiums**\
-`These are the key moments from the 2026 NWSL opening weekend`\
-https://nytimes.com/athletic/7122331/2026/03/16/nwsl-season-opening-comebacks-stadiums-fans-goals/
 

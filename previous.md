@@ -1,3 +1,27 @@
+**Review: A Belated New York Arrival for a Broadway Operetta**\
+`Erich Wolfgang Korngold’s “The Silent Serenade,” written in the 1940s, was given its English-language, United States premiere by Mannes Opera.`\
+https://nytimes.com/2026/03/16/arts/music/mannes-opera-silent-serenade-review.html
+
+**March Madness 2026 betting cheat sheet: Odds, upsets and predictions for NCAA tournaments**\
+`Tired of bracket-busting by Friday? The Athletic has you covered with upset picks, predictions, odds, previews and more.`\
+https://nytimes.com/athletic/7107835/2026/03/16/march-madness-2026-betting-odds-favorites-underdogs/
+
+**Review: A Handel Flop Reveals Itself as a Work of Brilliance**\
+`At Carnegie Hall, the English Concert made a case for “Hercules” as a strikingly modern dramatic oratorio of psychological and musical depth.`\
+https://nytimes.com/2026/03/16/arts/music/english-concert-hercules-carnegie-hall-review.html
+
+**Susie Wiles, Trump’s White House Chief of Staff, Has Breast Cancer**\
+`Ms. Wiles said that the disease was caught in its early stages and that she would remain in her role.`\
+https://nytimes.com/2026/03/16/us/politics/susie-wiles-breast-cancer.html
+
+**Rooney, Olise, Agyemang – Memorable moments when young stars announced themselves**\
+`In 23 minutes against Everton, Max Dowman arrived. This got us thinking about other prodigies who declared themselves stars to the world`\
+https://nytimes.com/athletic/7120064/2026/03/16/max-dowman-arsenal-premier-league/
+
+**In Deep-Red Idaho, a Republican Rift Over Schools and ‘Parental Choice’**\
+`Does “choice” in Idaho mean vouchers for private-school tuition or publicly funded remote learning that has brought AP classes and advanced math to the state’s rural reaches?`\
+https://nytimes.com/2026/03/16/us/idaho-education-republican-rift.html
+
 **Manchester United academy head Steve Torpey: 'I want this to be the greatest academy ever'**\
 `Manchester United's academy director explains how he plans to improve what has come before at a club "built on youth"`\
 https://nytimes.com/athletic/7122058/2026/03/16/manchester-united-steve-torpey-greatest-academy-ever/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/7100652/2026/03/16/march-madness-bracket-tips-advic
 **NWSL 2026 opening weekend: Big comebacks, red cards and packed stadiums**\
 `These are the key moments from the 2026 NWSL opening weekend`\
 https://nytimes.com/athletic/7122331/2026/03/16/nwsl-season-opening-comebacks-stadiums-fans-goals/
-
-**NBA Power Rankings: OKC on top; checking in on Flagg, Knueppel and other rookies**\
-`With a month to go in the regular season, what have first-year players added to their respective teams?`\
-https://nytimes.com/athletic/7122214/2026/03/16/nba-power-rankings-thunder-rockets-knicks-rookies/
-
-**Where to Stream the 2026 Oscar Winners, From ‘One Battle After Another’ to ‘Sinners’**\
-`Most of the awarded films, including the winner of best picture, can be watched at home. Here’s a guide to catch up.`\
-https://nytimes.com/2026/03/16/movies/oscar-winners-streaming.html
-
-**Butler's Thad Matta retiring from coaching after 21 seasons**\
-`Matta failed to guide his alma mater to the NCAA Tournament in any of his four seasons since his return to Butler.`\
-https://nytimes.com/athletic/7109819/2026/03/16/butler-thad-matta-retiring-college-basketball/
-
-**Why Republicans are Changing Course on Immigration**\
-`What did Speaker Mike Johnson mean when he talked about a “course correction” in the Trump administration’s deportation approach? Our White House correspondent Zolan Kanno-Youngs analyzes how the message around deportation is changing.`\
-https://nytimes.com/video/us/politics/100000010769509/why-trumps-immigration-policy-is-becoming-unpopular-with-voters.html
-
-**Fifth Member of Iranian Soccer Team Reverses Decision on Asylum**\
-`Five of the seven members of the Iranian women’s national team who originally sought asylum in Australia after a tournament have changed their minds.`\
-https://nytimes.com/2026/03/16/world/middleeast/iran-soccer-team-asylum-australia.html
-
-**Rosenior hints Chelsea will stop doing pre-game huddle over match ball**\
-`The routine saw referee Paul Tierney caught in the middle of the huddle before Chelsea's 1-0 defeat against Newcastle.`\
-https://nytimes.com/athletic/7122334/2026/03/16/chelsea-huddle-ball-liam-rosenior/
 
