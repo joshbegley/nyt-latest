@@ -1,3 +1,11 @@
+**Severe Storms Push Tornado Threat to the East on Monday**\
+`More than 12 million people are at risk from damaging winds and strong tornadoes, including in Washington, D.C.`\
+https://nytimes.com/2026/03/16/weather/tornadoes-storms-maryland-virginia-delaware-dc-forecast.html
+
+**The Pulse: The brackets are here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7120791/2026/03/16/men-women-ncaa-brackets-the-pulse/
+
 **Trump Asks for Help With Strait of Hormuz, and Israeli Forces Kill Family in West Bank**\
 `Plus, highlights from the Oscars.`\
 https://nytimes.com/2026/03/16/podcasts/the-headlines/trump-strait-of-hormuz-israeli-forces-kill-family-in-west-bank.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6875944/2026/03/16/vegas-golden-knights-nhl-prospec
 **Can the Ducks win the Pacific Division? Here's how their surprise season is happening**\
 `Here are five major reasons why the Ducks have exceeded expectations this season.`\
 https://nytimes.com/athletic/7121316/2026/03/16/anaheim-ducks-playoff-pacific-division/
-
-**Double-edged sword of talent burns Canadiens at a time of year they can't afford it**\
-`The Canadiens are young and talented but still need to learn when to apply that talent and when to be smart as the playoffs approach.`\
-https://nytimes.com/athletic/7121791/2026/03/16/canadiens-ducks-double-edged-sword-suzuki-carlsson/
-
-**Lewis Hamilton's podium at the Chinese Grand Prix was a storybook moment: 'I had to bide my time'**\
-`Hamilton finished third in the Chinese Grand Prix for his first podium finish for Ferrari and it was a result he cherished. `\
-https://nytimes.com/athletic/7119639/2026/03/16/lewis-hamilton-chinese-grand-prix-podium-analysis/
 
