@@ -1,3 +1,7 @@
+**Israel Denies That It Is Running Out of Missile Interceptors**\
+`Israeli military says it had prepared for a prolonged conflict after a news report said its supplies of ballistic missile interceptors were running “critically low.”`\
+https://nytimes.com/2026/03/16/world/middleeast/israel-interceptors.html
+
 **Toasting Oscars Night With Alysa Liu and Dua Lipa Under Elton John’s Giant Tent**\
 `At his annual fund-raiser, the rock star hosted Keke Palmer, Donatella Versace and Brooklyn Beckham for a private Oscars watch party in West Hollywood.`\
 https://nytimes.com/2026/03/16/style/elton-john-oscars-viewing-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/travel/flight-layover-sightsee-tips.html
 **Dodger Details: Checking in on Kyle Tucker and the second-base battle**\
 `Hyeseong Kim looks like the narrow front-runner over Alex Freeland in the battle to start at second against right-handers.`\
 https://nytimes.com/athletic/7121058/2026/03/16/dodgers-kyle-tucker-second-base-update/
-
-**Norway Celebrates Its Big Oscar Win**\
-`“Sentimental Value,” set in Oslo, was named best international feature film. After a slew of negative news in Norway, it was a welcome victory.`\
-https://nytimes.com/2026/03/16/world/europe/norway-oscar-win-sentimental-value.html
 
