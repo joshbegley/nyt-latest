@@ -1,41 +1,40 @@
-**Can Hyperbaric Oxygen Therapy Help You Live Longer?**\
-`Pressurized oxygen is proven to help the body heal faster. Now it’s being touted for reversing aging, boosting your brain and tightening your skin.`\
-https://nytimes.com/2026/03/16/well/live/hyperbaric-oxygen-therapy-longevity-health.html
+**Jets to trade QB Justin Fields to Chiefs: Sources**\
+`The quarterback struggled in his lone season in New York.`\
+https://nytimes.com/athletic/7095883/2026/03/16/justin-fields-trade-nfl-free-agency-2026/
 
-**Bundesliga Briefing: Top tifos, Undav's World Cup chance, Dingert admits error and Ulreich on the night**\
-`Referee Christian Dingert was magnanimous after a display that was harshly labelled the ‘worst’ by Bayern honorary president Uli Hoeness`\
-https://nytimes.com/athletic/7122010/2026/03/16/bundesliga-briefing-dingert-referee-bayern-sven-ulreich-deniz-undav/
+**USMNT Player Tracker: Tessmann experiment, Balogun work pays off, and is Pulisic in need of a reset?**\
+`Our round up of the U.S. contingent's weekend contribution in Europe also includes Malik Tillman helping Leverkusen to a draw against Bayern`\
+https://nytimes.com/athletic/7122287/2026/03/16/usmnt-pulisic-tessmann-balogun-tracker/
 
-**With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
-`President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
-https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
+**How to watch Warriors vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Golden State Warriors play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122564/2026/03/16/warriors-vs-wizards-stream-how-to-watch-march-16/
 
-**The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.
-`\
-https://nytimes.com/athletic/7122427/2026/03/16/lakers-magic-ncaa-tournament-nba-draftthe-bounce/
+**How to watch Magic vs. Hawks: Time, TV, streaming**\
+`Find out how to watch the Orlando Magic play the Atlanta Hawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122563/2026/03/16/magic-vs-hawks-stream-how-to-watch-march-16/
 
-**Bracketology 101: What you need to know to fill out your March Madness bracket**\
-`Never filled out a bracket before? Need a quick refresher that won't turn into a calculus class? We've got you.`\
-https://nytimes.com/athletic/7099624/2026/03/16/march-madness-bracket-guide-for-beginners/
+**The Windup: USA advances! With a touch of controversy**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7122530/2026/03/16/usa-dominican-republic-italy-venezuela-world-baseball-classic-the-windup/
 
-**Ranking the USMNT's most iconic modern-era World Cup kits**\
-`The USMNT's 2026 World Cup kits are out, and this is what they're up against for a place in U.S. men's soccer lore`\
-https://nytimes.com/athletic/7100518/2026/03/16/usmnt-all-time-world-cup-kits-ranking/
+**Chelsea's Neto escapes sanction but warned by UEFA after pushing ball boy**\
+`Neto apologised to the ball boy immediately after the 5-2 defeat to Paris Saint-Germain in the Champions League last 16 first leg.`\
+https://nytimes.com/athletic/7112006/2026/03/16/pedro-neto-uefa-ball-boy-chelsea-push/
 
-**Israel Denies That It Is Running Out of Missile Interceptors**\
-`Israeli military says it had prepared for a prolonged conflict after a news report said its supplies of ballistic missile interceptors were running “critically low.”`\
-https://nytimes.com/2026/03/16/world/middleeast/israel-interceptors.html
+**Prospect Sacha Boisvert signs with Blackhawks after NCAA season**\
+`Boisvert, the 18th pick in the 2024 NHL Draft, has decided to turn pro and has signed a three-year entry-level contract.`\
+https://nytimes.com/athletic/7110011/2026/03/16/blackhawks-sacha-boisvert-contract-ncaa-nhl/
 
-**Toasting Oscars Night With Alysa Liu and Dua Lipa Under Elton John’s Giant Tent**\
-`At his annual fund-raiser, the rock star hosted Keke Palmer, Donatella Versace and Brooklyn Beckham for a private Oscars watch party in West Hollywood.`\
-https://nytimes.com/2026/03/16/style/elton-john-oscars-viewing-party.html
+**Do You Recognize These Lines From Great Irish Poets?**\
+`Try this short quiz on some of Ireland’s most memorable verses from its celebrated poets.`\
+https://nytimes.com/interactive/2026/03/16/books/review/irish-poetry-quiz.html
 
-**Chelsea's James suffers hamstring injury, expected to miss several weeks**\
-`This is the 10th different hamstring injury the 26-year-old has had since December 2020.`\
-https://nytimes.com/athletic/7120796/2026/03/16/reece-james-chelsea-injury-news/
+**Inside the Governors Ball 2026 Oscars Party**\
+`Michael B. Jordan, Jessie Buckley, Paul Thomas Anderson, Leonardo DiCaprio and other nominees and winners celebrated at the official Academy Awards after-party.`\
+https://nytimes.com/2026/03/16/movies/governors-ball-oscars-after-party.html
 
-**What is the latest on Man City's 115 charges and football's other outstanding cases?**\
-`Chelsea’s case regarding a rules breach during Abramovich’s time as owner has concluded. However, many ongoing cases are awaiting an outcome`\
-https://nytimes.com/athletic/7122190/2026/03/16/chelsea-ban-man-city-charges/
+**These Bouncy Rice Cakes Are Springy**\
+`Eleanore Park’s miso rice cakes with spinach and peas is a textural, flavorful delight.`\
+https://nytimes.com/2026/03/16/dining/these-bouncy-rice-cakes-are-springy.html
 

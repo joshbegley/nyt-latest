@@ -1,3 +1,7 @@
+**The Politics of ‘One Battle After Another’ Are Clear on One Point**\
+`Teyana Taylor’s character of Perfidia Beverly Hills is the most radical part of Paul Thomas Anderson’s Oscar-winning movie.`\
+https://nytimes.com/2026/03/16/movies/one-battle-after-another-black-sexuality.html
+
 **Jets to trade QB Justin Fields to Chiefs: Sources**\
 `The quarterback struggled in his lone season in New York.`\
 https://nytimes.com/athletic/7095883/2026/03/16/justin-fields-trade-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/16/books/review/irish-poetry-quiz.html
 **Inside the Governors Ball 2026 Oscars Party**\
 `Michael B. Jordan, Jessie Buckley, Paul Thomas Anderson, Leonardo DiCaprio and other nominees and winners celebrated at the official Academy Awards after-party.`\
 https://nytimes.com/2026/03/16/movies/governors-ball-oscars-after-party.html
-
-**These Bouncy Rice Cakes Are Springy**\
-`Eleanore Park’s miso rice cakes with spinach and peas is a textural, flavorful delight.`\
-https://nytimes.com/2026/03/16/dining/these-bouncy-rice-cakes-are-springy.html
 
