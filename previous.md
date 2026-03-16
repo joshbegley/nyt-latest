@@ -1,40 +1,40 @@
+**Manchester United must enjoy this moment and savour Casemiro, Carrick and Fernandes**\
+`The months ahead will decide whether next season’s United looks like this season’s United and if those key to their revival are still around`\
+https://nytimes.com/athletic/7120455/2026/03/16/manchester-united-casemiro-carrick-bruno/
+
+**Max Dowman is becoming a global story – the real work of protecting him begins now**\
+`How will a 16-year-old boy cope with pressure, scrutiny, success and failure?`\
+https://nytimes.com/athletic/7119788/2026/03/16/max-dowman-arsenal-prodigy-protection/
+
+**'I'm working to get back': Steph Curry still wants to play this season**\
+`Curry wants to return to the court because the Warriors don't know how many postseason runs they have left.`\
+https://nytimes.com/athletic/7121634/2026/03/16/steph-curry-warriors-injury-return-nba/
+
+**Spikes, brief lulls and a Dowman-induced frenzy: What watching Arsenal does to your heart rate**\
+`With so many of the club's games this season going right to the wire, we decided to test just how stressful it is to be an Arsenal fan`\
+https://nytimes.com/athletic/7119018/2026/03/16/arsenal-premier-league-heart-rate/
+
+**What has and hasn't changed at Newcastle since winning the Carabao Cup**\
+`Newcastle won the Carabao Cup a year ago, their first trophy since 1969. George Caulkin and Chris Waugh look at how the club is different`\
+https://nytimes.com/athletic/7100793/2026/03/16/what-has-changed-newcastle-carabao-cup/
+
+**For Manchester United, the riddle remains: how do you beat Chelsea in a cup final?**\
+`Marc Skinner's side succumbed to familiar failings in the League Cup final as Chelsea, inspired by Lauren James, lifted the trophy yet again`\
+https://nytimes.com/athletic/7120537/2026/03/16/manchester-united-chelsea-james-league-cup-final/
+
+**The New York Times in Print for Monday, March 16, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/16/todays-new-york-times
+
+**‘Imperfect Women,’ Plus 7 Things to Watch on TV This Week**\
+`A new show starring Elisabeth Moss and Kerry Washington premieres. And Taylor Frankie Paul leads the new season of “The Bachelorette.”`\
+https://nytimes.com/2026/03/16/arts/television/imperfect-women-watch-on-tv-this-week.html
+
+**Don’t Put Your Hopes on a New Middle East**\
+`A defeated Iran will not produce the transformation of the Middle East sought by many.`\
+https://nytimes.com/2026/03/16/opinion/iran-war-us-israel-mideast-transformation.html
+
 **This is what happened on March 15.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-15
-
-**The 10 most likely men's NCAA tournament upsets for March Madness 2026**\
-`McNeese, VCU and High Point: We're sizing you up for glass slippers.`\
-https://nytimes.com/athletic/7121264/2026/03/16/march-madness-upsets-ncaa-tournament-2026-10-most-likely/
-
-**How concerned should the Wild be after recent home slump? Takeaways**\
-`The Wild started the game strong, but gave up three goals in the second period to the Leafs for a deficit they couldn't quite overcome.`\
-https://nytimes.com/athletic/7121643/2026/03/16/wild-home-slump-tarasenko-defense-maple-leafs/
-
-**Fulham fans and memes of cheeseboards on trains: How much truth is in them?**\
-`Viral tweets suggest Fulham fans are brie-eating Champagne quaffers. But is it really true? Tim Spiers went to find out...`\
-https://nytimes.com/athletic/7119601/2026/03/16/fulham-cheeseboards-train-viral-truth/
-
-**The War Is Making It Harder to Keep the Lights On, 2,000 Miles Away**\
-`Bangladesh is taking steps to conserve electricity, which its factories need to keep stitching together the world’s clothing.`\
-https://nytimes.com/2026/03/16/business/iran-bangladesh-imported-gas.html
-
-**Quote of the Day: Belonging To America, But True To Herself**\
-`Quotation of the Day for Monday, March 16, 2026.`\
-https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-belonging-to-america-but-true-to-herself.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 16, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7121659/2026/03/16/connections-sports-edition-hints-answers-march-16-2026/
-
-**17 Unforgettable Looks at the Oscars**\
-`Jewel-tone gowns, bumblebee brooches, overalls and more.`\
-https://nytimes.com/2026/03/15/style/oscars-red-carpet-2026.html
-
-**Savy King returns to Angel City for first NWSL game since cardiac incident**\
-`The defender had a shot on goal and a crucial tackle in her return to the NWSL.`\
-https://nytimes.com/athletic/7121517/2026/03/15/angel-city-defender-savy-king-return-cardiac-event/
-
-**Team USA wins heavyweight bout with Dominican Republic to reach WBC final**\
-`If there were lingering questions about the group’s level of interest in this tournament, Team USA answered them resoundingly.`\
-https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-with-dominican-republic-to-reach-finals-of-wbc/
 

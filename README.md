@@ -1,3 +1,7 @@
+**The Briefing: Will late goals cost Slot's Liverpool? Has Dowman calmed Arsenal anxiety?**\
+`Nick Miller brings you all the big talking points from the weekend's Premier League action.`\
+https://nytimes.com/athletic/7120666/2026/03/16/liverpool-slot-late-goals-dowman-arsenal/
+
 **Manchester United must enjoy this moment and savour Casemiro, Carrick and Fernandes**\
 `The months ahead will decide whether next season’s United looks like this season’s United and if those key to their revival are still around`\
 https://nytimes.com/athletic/7120455/2026/03/16/manchester-united-casemiro-carrick-bruno/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/arts/television/imperfect-women-watch-on-tv-this-
 **Don’t Put Your Hopes on a New Middle East**\
 `A defeated Iran will not produce the transformation of the Middle East sought by many.`\
 https://nytimes.com/2026/03/16/opinion/iran-war-us-israel-mideast-transformation.html
-
-**This is what happened on March 15.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-15
 
