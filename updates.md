@@ -1,3 +1,11 @@
+**Dominican Republic sets WBC home run record with record 15th blast**\
+`Junior Caminero took reigning NL Cy Young Award winner Paul Skenes deep, and the pro-Dominican Republic crowd went into a frenzy. `\
+https://nytimes.com/athletic/7121227/2026/03/15/world-baseball-classic-dominican-republic-home-run-record/
+
+**Denny Hamlin gets emotional win in Las Vegas, his first since his father's death**\
+`Hamlin notched his 61st career victory, in the same place as his 60th, just months after the tragedy that took his father's life.`\
+https://nytimes.com/athletic/7121129/2026/03/15/denny-hamlin-nascar-las-vegas-win-takeaways/
+
 **Anna Wintour at the Oscars: In on the Joke, Out of Her Sunglasses**\
 `The Vogue empress presented alongside Anne Hathaway on Sunday evening for a not-so-subtle riff on “The Devil Wears Prada.”`\
 https://nytimes.com/2026/03/15/style/anna-wintour-oscars-anne-hathaway.html

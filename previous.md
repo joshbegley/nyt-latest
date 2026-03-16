@@ -1,3 +1,11 @@
+**Dominican Republic sets WBC home run record with record 15th blast**\
+`Junior Caminero took reigning NL Cy Young Award winner Paul Skenes deep, and the pro-Dominican Republic crowd went into a frenzy. `\
+https://nytimes.com/athletic/7121227/2026/03/15/world-baseball-classic-dominican-republic-home-run-record/
+
+**Denny Hamlin gets emotional win in Las Vegas, his first since his father's death**\
+`Hamlin notched his 61st career victory, in the same place as his 60th, just months after the tragedy that took his father's life.`\
+https://nytimes.com/athletic/7121129/2026/03/15/denny-hamlin-nascar-las-vegas-win-takeaways/
+
 **Anna Wintour at the Oscars: In on the Joke, Out of Her Sunglasses**\
 `The Vogue empress presented alongside Anne Hathaway on Sunday evening for a not-so-subtle riff on “The Devil Wears Prada.”`\
 https://nytimes.com/2026/03/15/style/anna-wintour-oscars-anne-hathaway.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-ro
 **Sean Penn Wins Best Supporting Actor but Opts for Ukraine, Not the Oscars**\
 `The actor has a history with the country’s president, Volodymyr Zelensky, and had been skipping awards ceremonies.`\
 https://nytimes.com/2026/03/15/movies/sean-penn-oscars.html
-
-**UConn, UCLA, Texas and South Carolina earn No. 1 seeds in women's NCAA Tournament**\
-`Will these teams make the Final Four for a second-straight season?`\
-https://nytimes.com/athletic/7120634/2026/03/15/uconn-ncaa-tournament-bracket-reveal/
-
-**Al Horford (calf strain), Seth Curry (adductor strain) out as Steph Curry's rehab continues**\
-`Both Horford and Curry were injured in Friday's loss to the Minnesota Timberwolves.`\
-https://nytimes.com/athletic/7121125/2026/03/15/steph-curry-seth-curry-al-horford-injury-status-warriors-nba/
 
