@@ -1,3 +1,7 @@
+**Padres' Joe Musgrove to begin season on injured list**\
+`The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
+https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
+
 **With Threats and Claims of ‘Treason,’ Trump Pressures Media on the War**\
 `A president who calls journalists the “enemy of the people” has accused news organizations of undermining a military effort that many Americans oppose.`\
 https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7123078/2026/03/16/submit-a-question-for-stewart-ma
 **Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
 `Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
 https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/
-
-**Trump Defends Need for Kennedy Center Renovation Project**\
-`Ahead of a vote on whether to close the center for two years of construction, the president criticized its previous financial management and physical condition.`\
-https://nytimes.com/2026/03/16/arts/design/kennedy-center-renovations-trump.html
 
