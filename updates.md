@@ -1,3 +1,12 @@
+**With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
+`President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
+https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
+
+**The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7122427/2026/03/16/lakers-magic-ncaa-tournament-nba-draftthe-bounce/
+
 **Bracketology 101: What you need to know to fill out your March Madness bracket**\
 `Never filled out a bracket before? Need a quick refresher that won't turn into a calculus class? We've got you.`\
 https://nytimes.com/athletic/7099624/2026/03/16/march-madness-bracket-guide-for-beginners/

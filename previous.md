@@ -1,3 +1,12 @@
+**With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
+`President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
+https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
+
+**The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7122427/2026/03/16/lakers-magic-ncaa-tournament-nba-draftthe-bounce/
+
 **Bracketology 101: What you need to know to fill out your March Madness bracket**\
 `Never filled out a bracket before? Need a quick refresher that won't turn into a calculus class? We've got you.`\
 https://nytimes.com/athletic/7099624/2026/03/16/march-madness-bracket-guide-for-beginners/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/7121448/2026/03/16/whatnot-sports-cards-breaks-repa
 **Tanking NBA teams will be watching these NCAA Tournament players with keen interest**\
 `Plus, who's hot (Lakers, Magic) and not (Wolves, Warriors) and the battle for playoff seeding in this week's NBA Rewind.`\
 https://nytimes.com/athletic/7120076/2026/03/16/ncaa-tournament-nba-draft-prospects-nba-rewind/
-
-**No H.I.V. Aid Without More Access to Minerals: U.S. Ponders ‘Sticks’ Against Zambia**\
-`A draft State Department memo outlines ways the Trump administration may ratchet up pressure on the African country by ending health support “on a massive scale.”`\
-https://nytimes.com/2026/03/16/health/zambia-hiv-aid-minerals-trump.html
-
-**How Tragedy, Wealth and Trump Shaped JB Pritzker**\
-`JB Pritzker, the governor of Illinois and a Trump antagonist, has become a national figure for Democrats. Where will that lead?`\
-https://nytimes.com/video/podcasts/100000010781281/how-tragedy-wealth-and-trump-shaped-jb-pritzker.html
 
