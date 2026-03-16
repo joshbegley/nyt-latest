@@ -1,3 +1,15 @@
+**The FA's Silent Support Weekend is meant to help kids enjoy football. Did it work?**\
+`The scheme is designed to help children 'find their voice' in youth football. Here is what some of our writers witnessed...`\
+https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/
+
+**Five more years for Joan Laporta, Barcelona's Teflon president**\
+`The 63-year-old was re-elected as Barcelona president in a vote held among the club's members on Sunday evening`\
+https://nytimes.com/athletic/7122040/2026/03/16/barcelona-laporta-election-victory-victor-font/
+
+**What Displays Get Scrapped at America’s Parks? It Looks Like Anyone’s Guess.**\
+`President Trump ordered officials to remove information deemed disparaging to the United States. A review of government documents shows little guidance and striking inconsistencies.`\
+https://nytimes.com/2026/03/16/climate/national-parks-removal-displays.html
+
 **How USMNT players, after 2022 kit rebellion, took control of their 2026 World Cup jerseys**\
 `Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
 https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
