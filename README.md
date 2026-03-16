@@ -1,3 +1,23 @@
+**How to watch Grizzlies vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Memphis Grizzlies play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122922/2026/03/16/grizzlies-vs-bulls-stream-how-to-watch-march-16/
+
+**Wild insider: After Quinn Hughes blockbuster, Bill Guerin is setting up his next superstar swing**\
+`ST.`\
+https://nytimes.com/athletic/7122449/2026/03/16/wild-insider-after-quinn-hughes-blockbuster-bill-guerin-is-setting-up-his-next-superstar-swing/
+
+**England 2026 World Cup watch: What are Tuchel's right-back options if James' body lets him down?**\
+`New injury for the Chelsea captain shines a light on other candidates at his position and may have implications for Tuchel's World Cup plans`\
+https://nytimes.com/athletic/7122277/2026/03/16/england-james-tuchel-right-back-2026-world-cup/
+
+**Liam Livingstone criticises England setup, claims 'no one cares' about players not in inner circle**\
+`The all-rounder has played 100 times for the national team across formats but does not expect to feature again under the current regime`\
+https://nytimes.com/athletic/7122706/2026/03/16/liam-livingstone-england-mccullum-key-ipl/
+
+**What are Sabres getting in Logan Stanley? Jay McKee and Matthew Barnaby have an idea**\
+`Stanley has the potential to solidify himself as a regular in the Sabres' lineup ahead of the playoffs.`\
+https://nytimes.com/athletic/7122646/2026/03/16/buffalo-sabres-logan-stanley-mckee-barnaby/
+
 **Italy starting Aaron Nola in WBC semis vs. Venezuela, not Michael Lorenzen**\
 `Both teams are looking for their first appearance in the WBC title game.`\
 https://nytimes.com/athletic/7122777/2026/03/16/aaron-nola-wbc-seimfinals-italy-venezuela/
@@ -17,24 +37,4 @@ https://nytimes.com/video/podcasts/100000010782069/are-workers-suffering-from-ai
 **Submit your questions for Jesse Newell's Chiefs mailbag**\
 `The Chiefs have had a lot of comings and goings in free agency and have two first-round picks in next month's draft. What's on your mind?`\
 https://nytimes.com/athletic/7122870/2026/03/16/chiefs-mailbag-questions-2/
-
-**USWNT's Macario set to join San Diego Wave from Chelsea**\
-`The Athletic reported in January that Macario was considering her options and had been the subject of interest from NWSL sides.`\
-https://nytimes.com/athletic/7028972/2026/03/16/macario-catarina-transfer-san-diego-wave-chelsea/
-
-**Alabama basketball player Aden Holloway arrested on felony drug charge**\
-`Holloway was arrested and taken to Tuscaloosa County jail on Monday.`\
-https://nytimes.com/athletic/7122817/2026/03/16/alabama-aden-holloway-arrest-drug-charge/
-
-**Why McLaren's cars couldn't race in China – and what it means for its F1 title defense**\
-`McLaren's early reliability issues are costing it significant ground in the championship standings`\
-https://nytimes.com/athletic/7122299/2026/03/16/mclaren-dns-chinese-grand-prix-f1/
-
-**Michael B. Jordan Wins Best Actor**\
-`Our awards season columnist Kyle Buchanan talks about the most suspenseful Oscar of 2026 — for best actor.`\
-https://nytimes.com/video/movies/100000010763815/michael-b-jordan-wins-best-actor.html
-
-**World Cup of Hockey to be hosted by Calgary, Prague and Edmonton in 2028, NHL announces**\
-`Calgary and Prague will host seven games each, and Edmonton will host the semifinals and championship.`\
-https://nytimes.com/athletic/7122688/2026/03/16/world-cup-hockey-calgary-prague-edmonton/
 
