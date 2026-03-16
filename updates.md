@@ -1,3 +1,11 @@
+**UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
+`Are UConn and UCLA on a collision course for the national championship game?`\
+https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
+
+**Jessie Buckley Wins Best Actress for ‘Hamnet’**\
+`The actress closes out a season of wins in this category with an Academy Award.`\
+https://nytimes.com/2026/03/15/movies/jessie-buckley-wins-best-actress.html
+
 **Women's March Madness 2026 bracket NCAA tournament forecast**\
 ``\
 https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
