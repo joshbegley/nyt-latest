@@ -1,3 +1,7 @@
+**'Not acceptable': Bill Guerin demands urgency as Wild stumble against non-playoff teams**\
+`The Wild have lost three straight games to non-playoff teams. "We're too loose right now," Guerin said, "and that's everybody."`\
+https://nytimes.com/athletic/7123367/2026/03/16/wild-losing-streak-bill-guerin/
+
 **‘Not acceptable’: Bill Guerin demands urgency as Wild stumble against non-playoff teams**\
 `The Wild have lost three straight games to non-playoff teams. Guerin: “We're too loose right now, and that's everybody.”`\
 https://nytimes.com/athletic/7123367/2026/03/16/wild-losing-streak-bill-guerin/
