@@ -1,3 +1,11 @@
+**Thunder triad of Isaiah Hartenstein, Jared McCain and Isaiah Joe fueling wins**\
+`Isaiah Hartenstein has become a key fixture for the Thunder on both ends, including his growing chemistry with their best shooters.`\
+https://nytimes.com/athletic/7121366/2026/03/16/hartenstein-mccain-joe-chemistry-thunder-timberwolves-nba/
+
+**The Athletic college baseball top 25: Arkansas back in the top 5, LSU drops out**\
+`Kentucky, Oregon and Arizona State replace Wake Forest, LSU and UTSA in this week's rankings. `\
+https://nytimes.com/athletic/7122274/2026/03/16/college-baseball-rankings-arkansas-lsu/
+
 **Tottenham went back to basics at Liverpool – and it could be what keeps them up**\
 `There has been speculation Spurs could replace Tudor with a Premier League specialist. At Anfield, they played like it had happened already`\
 https://nytimes.com/athletic/7122043/2026/03/16/tottenham-liverpool-tactics-tudor-richarlison/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/16/style/oscars-fashion-best-trend.html
 **Chukwuemeka receives first Austria call up after switching allegiance from England**\
 `For Austria coach Ralf Rangnick, Chukwuemeka's call up is the culmination of a two-year pursuit.`\
 https://nytimes.com/athletic/7122163/2026/03/16/carney-chukwuemeka-austria-englabd-borussia-dortmund/
-
-**The FA's Silent Support Weekend is meant to help kids enjoy football. Did it work?**\
-`The scheme is designed to help children 'find their voice' in youth football. Here is what some of our writers witnessed...`\
-https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/
-
-**Five more years for Joan Laporta, Barcelona's Teflon president**\
-`The 63-year-old was re-elected as Barcelona president in a vote held among the club's members on Sunday evening`\
-https://nytimes.com/athletic/7122040/2026/03/16/barcelona-laporta-election-victory-victor-font/
 
