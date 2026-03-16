@@ -1,3 +1,7 @@
+**Troy Aikman says he will continue role with Dolphins after consulting on GM hire**\
+`Aikman will continue to work as a "Monday Night Football" broadcaster and next season will be his 25th alongside Joe Buck.`\
+https://nytimes.com/athletic/7122796/2026/03/16/troy-aikman-consultant-miami-dolphins/
+
 **How Trump Drove a Wedge Between Florida Republicans Over A.I.**\
 `A Florida bill that would have regulated artificial intelligence, backed by Gov. Ron DeSantis, failed to gain traction after President Trump made it clear he did not want states to rein in the technology.`\
 https://nytimes.com/2026/03/16/technology/ai-florida-republicans.html

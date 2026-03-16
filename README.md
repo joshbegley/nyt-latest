@@ -1,3 +1,23 @@
+**USWNT's Macario set to join San Diego Wave from Chelsea**\
+`The Athletic reported in January that Macario was considering her options and had been the subject of interest from NWSL sides.`\
+https://nytimes.com/athletic/7028972/2026/03/16/macario-catarina-transfer-san-diego-wave-chelsea/
+
+**Alabama men’s basketball player Aden Holloway arrested on felony drug charge**\
+`Holloway was arrested and taken to Tuscaloosa County jail on Monday.`\
+https://nytimes.com/athletic/7122817/2026/03/16/alabama-aden-holloway-arrest-drug-charge/
+
+**Why McLaren's cars couldn't race in China – and what it means for its F1 title defense**\
+`McLaren's early reliability issues are costing it significant ground in the championship standings`\
+https://nytimes.com/athletic/7122299/2026/03/16/mclaren-dns-chinese-grand-prix-f1/
+
+**Michael B. Jordan Wins Best Actor**\
+`Our awards season columnist Kyle Buchanan talks about the most suspenseful Oscar of 2026 — for best actor.`\
+https://nytimes.com/video/movies/100000010763815/michael-b-jordan-wins-best-actor.html
+
+**World Cup of Hockey to be hosted by Calgary, Prague and Edmonton in 2028, NHL announces**\
+`Calgary and Prague will host seven games each, and Edmonton will host the semifinals and championship.`\
+https://nytimes.com/athletic/7122688/2026/03/16/world-cup-hockey-calgary-prague-edmonton/
+
 **Troy Aikman says he will continue role with Dolphins after consulting on GM hire**\
 `Aikman will continue to work as a "Monday Night Football" broadcaster and next season will be his 25th alongside Joe Buck.`\
 https://nytimes.com/athletic/7122796/2026/03/16/troy-aikman-consultant-miami-dolphins/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7122522/2026/03/16/march-madness-2026-top-seeds-ups
 **Weighing Risks vs. Gains in Iran**\
 `Readers respond to a column by Nicholas Kristof. Also: Artificial intelligence pitfalls in school.`\
 https://nytimes.com/2026/03/16/opinion/iran-war-risks-gains.html
-
-**As Israel Expands Ground Assault in Lebanon, One Strategic Town Resists**\
-`The town of Khiam’s location on high ground just a few miles north of the border between Israel and Lebanon has made it coveted territory over multiple conflicts.`\
-https://nytimes.com/2026/03/16/world/middleeast/lebanon-strategic-town-khiam.html
-
-**Review: A Belated New York Arrival for a Broadway Operetta**\
-`Erich Wolfgang Korngold’s “The Silent Serenade,” written in the 1940s, was given its English-language, United States premiere by Mannes Opera.`\
-https://nytimes.com/2026/03/16/arts/music/mannes-opera-silent-serenade-review.html
-
-**March Madness 2026 betting cheat sheet: Odds, upsets and predictions for NCAA tournaments**\
-`Tired of bracket-busting by Friday? The Athletic has you covered with upset picks, predictions, odds, previews and more.`\
-https://nytimes.com/athletic/7107835/2026/03/16/march-madness-2026-betting-odds-favorites-underdogs/
-
-**Review: A Handel Flop Reveals Itself as a Work of Brilliance**\
-`At Carnegie Hall, the English Concert made a case for “Hercules” as a strikingly modern dramatic oratorio of psychological and musical depth.`\
-https://nytimes.com/2026/03/16/arts/music/english-concert-hercules-carnegie-hall-review.html
-
-**Susie Wiles, Trump’s White House Chief of Staff, Has Breast Cancer**\
-`Ms. Wiles said that the disease was caught in its early stages and that she would remain in her role.`\
-https://nytimes.com/2026/03/16/us/politics/susie-wiles-breast-cancer.html
 
