@@ -1,3 +1,15 @@
+**Tottenham went back to basics at Liverpool – and it could be what keeps them up**\
+`There has been speculation Spurs could replace Tudor with a Premier League specialist. At Anfield, they played like it had happened already`\
+https://nytimes.com/athletic/7122043/2026/03/16/tottenham-liverpool-tactics-tudor-richarlison/
+
+**College baseball week in review: Georgia's heroics cap a wild opening week in the SEC**\
+`Georgia Tech looks like a national title contender. UCSB right-hander Jackson Flora looks like a top-five draft pick. And more. `\
+https://nytimes.com/athletic/7121340/2026/03/16/college-baseball-georgia-tennessee-arkansas-mississippi-state/
+
+**Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
+`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches`\
+https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
+
 **Why Trump’s Hormuz Problem Is Going Global**\
 `President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
 https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html

@@ -1,3 +1,15 @@
+**Tottenham went back to basics at Liverpool – and it could be what keeps them up**\
+`There has been speculation Spurs could replace Tudor with a Premier League specialist. At Anfield, they played like it had happened already`\
+https://nytimes.com/athletic/7122043/2026/03/16/tottenham-liverpool-tactics-tudor-richarlison/
+
+**College baseball week in review: Georgia's heroics cap a wild opening week in the SEC**\
+`Georgia Tech looks like a national title contender. UCSB right-hander Jackson Flora looks like a top-five draft pick. And more. `\
+https://nytimes.com/athletic/7121340/2026/03/16/college-baseball-georgia-tennessee-arkansas-mississippi-state/
+
+**Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
+`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches`\
+https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
+
 **Why Trump’s Hormuz Problem Is Going Global**\
 `President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
 https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/
 **Five more years for Joan Laporta, Barcelona's Teflon president**\
 `The 63-year-old was re-elected as Barcelona president in a vote held among the club's members on Sunday evening`\
 https://nytimes.com/athletic/7122040/2026/03/16/barcelona-laporta-election-victory-victor-font/
-
-**What Displays Get Scrapped at America’s Parks? It Looks Like Anyone’s Guess.**\
-`President Trump ordered officials to remove information deemed disparaging to the United States. A review of government documents shows little guidance and striking inconsistencies.`\
-https://nytimes.com/2026/03/16/climate/national-parks-removal-displays.html
-
-**How USMNT players, after 2022 kit rebellion, took control of their 2026 World Cup jerseys**\
-`Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
-https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
-
-**Canada had no new kits at the 2022 World Cup, so it's swinging big in 2026**\
-`Canada missed its chance to make a mark on the global stage in 2022. It's looking to make up for that and then some in 2026`\
-https://nytimes.com/athletic/7121409/2026/03/16/canada-2026-world-cup-kits-jerseys-nike-photos/
 
