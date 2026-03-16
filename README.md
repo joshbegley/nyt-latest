@@ -1,3 +1,7 @@
+**After Family’s Fatal Encounter With Israeli Forces, 2 Boys Speak**\
+`Khaled and Mustafa Bani Odeh were riding home with sweets after a family night out in the West Bank when Israeli forces opened fire on their car, killing their parents and two brothers.`\
+https://nytimes.com/video/world/middleeast/100000010780924/palestinian-family-killed-west-bank.html
+
 **Julius Randle finally breaks through, but Timberwolves have unshakeable problem**\
 `Julius Randle can be inconsistent, but they have seen him reach real, sustained highs over the last two seasons.`\
 https://nytimes.com/athletic/7120052/2026/03/16/julius-randle-timberwolves-thunder-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/podcasts/the-headlines/trump-strait-of-hormuz-isr
 **Cowboys free-agency breakdown: 5 best moves, biggest remaining questions**\
 `In Thompson, the Cowboys have a player who can line up at either safety spot or play nickel cornerback.`\
 https://nytimes.com/athletic/7120576/2026/03/16/cowboys-free-agency-best-moves-jalen-thompson/
-
-**Seahawks Week 1 free-agency reset: Finding fits but spending much less than year ago**\
-`Seattle has chosen to be economical about adding bodies to the depth chart, while shifting focus to the 2026 NFL Draft.`\
-https://nytimes.com/athletic/7120624/2026/03/16/seahawks-free-agency-update-2026/
 
