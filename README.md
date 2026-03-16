@@ -1,3 +1,11 @@
+**America’s Parks Need More Than Love. They Need Us.**\
+`Stunning landscapes and meaningful memorials tell the story of our nation’s past. Working together, we can ensure they remain part of our future.`\
+https://nytimes.com/paidpost/2025-09-24/.html
+
+**Michael B. Jordan Celebrates Oscar Win at In-N-Out**\
+`Michael B. Jordan, who won his first Oscar for best actor on Sunday for his role in “Sinners,” celebrated his win at In-N-Out Burger.`\
+https://nytimes.com/video/us/100000010781567/michael-b-jordan-celebrates-oscar-win-at-in-n-out.html
+
 **How to watch Mavericks vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122931/2026/03/16/mavericks-vs-pelicans-stream-how-to-watch-march-16/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7122706/2026/03/16/liam-livingstone-england-mccullu
 **What are Sabres getting in Logan Stanley? Jay McKee and Matthew Barnaby have an idea**\
 `Stanley has the potential to solidify himself as a regular in the Sabres' lineup ahead of the playoffs.`\
 https://nytimes.com/athletic/7122646/2026/03/16/buffalo-sabres-logan-stanley-mckee-barnaby/
-
-**Italy starting Aaron Nola in WBC semis vs. Venezuela, not Michael Lorenzen**\
-`Both teams are looking for their first appearance in the WBC title game.`\
-https://nytimes.com/athletic/7122777/2026/03/16/aaron-nola-wbc-seimfinals-italy-venezuela/
-
-**Submit your questions for James Boyd's Colts mailbag**\
-`The Chiefs re-signed Daniel Jones and Alec Pierce, but there's plenty of roster turnover, too. Let us know what's on your mind.`\
-https://nytimes.com/athletic/7122889/2026/03/16/colts-mailbag-questions/
 
