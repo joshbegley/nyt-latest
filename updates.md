@@ -1,3 +1,7 @@
+**Inside Real Madrid: Can Alvaro Arbeloa win something with kids?**\
+`Five Madrid youth players featured against Elche, in an encouraging — and canny — move from Arbeloa`\
+https://nytimes.com/athletic/7122032/2026/03/16/inside-real-madrid-alvaro-arbeloa-academy/
+
 **It’s Nice to See (Some) Actresses Wearing Dresses They Can Breathe In**\
 `It was the best trend on the Oscars red carpet.`\
 https://nytimes.com/2026/03/16/style/oscars-fashion-best-trend.html

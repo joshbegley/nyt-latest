@@ -1,3 +1,7 @@
+**Inside Real Madrid: Can Alvaro Arbeloa win something with kids?**\
+`Five Madrid youth players featured against Elche, in an encouraging — and canny — move from Arbeloa`\
+https://nytimes.com/athletic/7122032/2026/03/16/inside-real-madrid-alvaro-arbeloa-academy/
+
 **It’s Nice to See (Some) Actresses Wearing Dresses They Can Breathe In**\
 `It was the best trend on the Oscars red carpet.`\
 https://nytimes.com/2026/03/16/style/oscars-fashion-best-trend.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-t
 **Which March Madness favorites are upset-proof? Here's what history and analytics say**\
 `Did past contenders who played a similar way to this year's top teams make deep runs, or were they prone to upsets?`\
 https://nytimes.com/athletic/7111545/2026/03/16/march-madness-favorites-top-seed-comparisons/
-
-**USA unveils 2026 World Cup kits: Photos, first look at the cohosts' jerseys**\
-`'We just want something we can wear to the (night) club," was one of the preferences expressed to Nike by USMNT players`\
-https://nytimes.com/athletic/7120620/2026/03/16/usmnt-world-cup-usa-kit-jersey-photos/
 
