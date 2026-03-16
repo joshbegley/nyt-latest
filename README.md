@@ -1,3 +1,7 @@
+**How to watch Penguins vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123348/2026/03/16/penguins-vs-avalanche-stream-how-to-watch-march-16/
+
 **Oscars Cuts Off ‘Golden’ Songwriter, From ‘KPop Demon Hunters’**\
 `The Oscars mercilessly cut off the speech of a songwriter of “Golden,” from “KPop Demon Hunters,” which won best original song on Sunday.`\
 https://nytimes.com/video/arts/television/100000010781854/kpop-demon-hunters-ejae-oscars.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/16/us/politics/trump-operation-epic-fury-anger.html
 **Padres' Joe Musgrove to begin season on injured list**\
 `The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
 https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
-
-**With Threats and Claims of ‘Treason,’ Trump Pressures Media on the War**\
-`A president who calls journalists the “enemy of the people” has accused news organizations of undermining a military effort that many Americans oppose.`\
-https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
 

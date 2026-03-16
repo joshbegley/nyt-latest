@@ -1,3 +1,7 @@
+**Oscars Cuts Off ‘Golden’ Songwriter, From ‘KPop Demon Hunters’**\
+`The Oscars mercilessly cut off the speech of a songwriter of “Golden,” from “KPop Demon Hunters,” which won best original song on Sunday.`\
+https://nytimes.com/video/arts/television/100000010781854/kpop-demon-hunters-ejae-oscars.html
+
 **How to watch Spurs vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7123289/2026/03/16/spurs-vs-clippers-stream-how-to-watch-march-16/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list
 **With Threats and Claims of ‘Treason,’ Trump Pressures Media on the War**\
 `A president who calls journalists the “enemy of the people” has accused news organizations of undermining a military effort that many Americans oppose.`\
 https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
-
-**‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**\
-`After the hit song from “KPop Demon Hunters” made Oscars history, a snare drum and a crashing cymbal mercilessly drowned out the winners.`\
-https://nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html
 

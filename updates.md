@@ -1,3 +1,7 @@
+**Oscars Cuts Off ‘Golden’ Songwriter, From ‘KPop Demon Hunters’**\
+`The Oscars mercilessly cut off the speech of a songwriter of “Golden,” from “KPop Demon Hunters,” which won best original song on Sunday.`\
+https://nytimes.com/video/arts/television/100000010781854/kpop-demon-hunters-ejae-oscars.html
+
 **How to watch Spurs vs. Clippers: Time, TV, streaming**\
 `Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7123289/2026/03/16/spurs-vs-clippers-stream-how-to-watch-march-16/
