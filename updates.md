@@ -1,3 +1,19 @@
+**Team USA wins heavyweight bout with Dominican Republic to reach finals of WBC**\
+`If there were lingering questions about the group’s level of interest in this tournament, Team USA answered them resoundingly.`\
+https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-with-dominican-republic-to-reach-finals-of-wbc/
+
+**UCLA's path to the Final Four requires getting through the tough Sacramento 2 Region**\
+`UCLA potentially would have to get past No. 2 seed LSU. `\
+https://nytimes.com/athletic/7120426/2026/03/15/ucla-final-four-path/
+
+**Women's March Madness 2026 bracket NCAA Tournament forecast**\
+``\
+https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
+
+**Jessie Buckley Wins Best Actress for ‘Hamnet’**\
+`The actress closes out a season of wins in this category with an Academy Award.`\
+https://nytimes.com/2026/03/15/movies/jessie-buckley-oscars-hamnet.html
+
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
 `Are UConn and UCLA on a collision course for the national championship game?`\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
