@@ -1,3 +1,19 @@
+**College Basketball Crown unveils eight-team field for Year 2 as NIT alternative**\
+`Teams that advance in the Crown earn name, image and likeness money for their players. Nebraska received $300,000 for winning last year.`\
+https://nytimes.com/athletic/7123757/2026/03/16/college-basketball-crown-field-bracket-nit/
+
+**Scoop City: Early free agency risers**\
+`Today, teams and units trending up after the first week of free agency, a list that includes Patrick Mahomes and ... the Raiders`\
+https://nytimes.com/athletic/7123817/2026/03/16/nfl-free-agency-risers-2026-rams-chiefs/
+
+**Trump Is Trying to Sell War Like Steaks**\
+`The president is approaching the war in Iran as if he’s selling another Trump product, the writer E.J. Dionne Jr. says on “The Opinions.” But “selling war is a very serious business,” he adds, unlike selling Trump Steaks or Trump University.`\
+https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-like-steaks.html
+
+**How NBA expansion to Seattle, Vegas would have a seismic impact on the league**\
+`From expansion drafts to conference realignment to playoff changes, adding two teams to the NBA is complicated.`\
+https://nytimes.com/athletic/7123704/2026/03/16/nba-expansion-next-steps-seattle-las-vegas/
+
 **Why Affordability Still Hurts Democrats**\
 `Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
