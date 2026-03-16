@@ -1,3 +1,7 @@
+**How Trump Destroyed the Aura of the Wartime President**\
+`Even as he’s wrecking American institutions, he is revealing the limits of his cultural influence.`\
+https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
+
 **Fast-Moving Fire in Queens Kills 4, Including a Child**\
 `Fierce winds fueled a blaze in a mixed-use building on Monday, killing at least four people and injuring 12 others, officials said.`\
 https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/world/americas/trump-cuba-president-diaz-canel.ht
 **House Adopts Bill to Ease Recovery by Heirs of Nazi Looted Art**\
 `The Senate had already passed an extension of the so-called HEAR Act, which is scheduled to expire at the end of the year. The bill now heads to President Trump’s desk.`\
 https://nytimes.com/2026/03/16/arts/design/nazi-art-looted-heirs-recovery.html
-
-**Cubs' Seiya Suzuki goes for MRI to determine extent of WBC injury**\
-`Suzuki was projected to help replace Kyle Tucker as Chicago's regular right fielder.`\
-https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
 
