@@ -1,3 +1,7 @@
+**The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
+`Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
+https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/
+
 **Trump Claims to Have Reversed a House Republican’s Terminal Diagnosis**\
 `The president leaned on House Speaker Mike Johnson to name a Florida Republican whose grave prognosis was imperiling the party’s already slim voting margin. Both said his prospects had improved.`\
 https://nytimes.com/2026/03/16/us/politics/trump-neal-dunn-terminal-diagnosis-johnson.html
