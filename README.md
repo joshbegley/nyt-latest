@@ -1,3 +1,7 @@
+**Manchester United academy head Steve Torpey: 'I want this to be the greatest academy ever'**\
+`Manchester United's academy director explains how he plans to improve what has come before at a club "built on youth"`\
+https://nytimes.com/athletic/7122058/2026/03/16/manchester-united-steve-torpey-greatest-academy-ever/
+
 **Owners expected to take 'next step' on possible expansion to Seattle, Las Vegas**\
 `The Board of Governors meetings is the most significant step in the long-awaited push to expand the NBA to 32 teams.`\
 https://nytimes.com/athletic/7122487/2026/03/16/nba-expansion-board-of-govenors-meeting-seattle-las-vegas/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/world/middleeast/iran-soccer-team-asylum-australi
 **Rosenior hints Chelsea will stop doing pre-game huddle over match ball**\
 `The routine saw referee Paul Tierney caught in the middle of the huddle before Chelsea's 1-0 defeat against Newcastle.`\
 https://nytimes.com/athletic/7122334/2026/03/16/chelsea-huddle-ball-liam-rosenior/
-
-**Arsenal's Odegaard could be available for Carabao Cup final, says Arteta**\
-`Odegaard, along with Jurrien Timber, will miss Champions League tie against Bayer Leverkusen, though Leandro Trossard is available.`\
-https://nytimes.com/athletic/7122579/2026/03/16/martin-odegaard-arsenal-carabao-cup-final/
 

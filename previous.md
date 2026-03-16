@@ -1,3 +1,11 @@
+**Owners expected to take 'next step' on possible expansion to Seattle, Las Vegas**\
+`The Board of Governors meetings is the most significant step in the long-awaited push to expand the NBA to 32 teams.`\
+https://nytimes.com/athletic/7122487/2026/03/16/nba-expansion-board-of-govenors-meeting-seattle-las-vegas/
+
+**7 tips to help you own all of your March Madness bracket pools**\
+`Need help filling out your bracket? Look to history for how many upsets to pick and which seeds are usually the most vulnerable.`\
+https://nytimes.com/athletic/7100652/2026/03/16/march-madness-bracket-tips-advice-guide/
+
 **NWSL 2026 opening weekend: Big comebacks, red cards and packed stadiums**\
 `These are the key moments from the 2026 NWSL opening weekend`\
 https://nytimes.com/athletic/7122331/2026/03/16/nwsl-season-opening-comebacks-stadiums-fans-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7122334/2026/03/16/chelsea-huddle-ball-liam-rosenio
 **Arsenal's Odegaard could be available for Carabao Cup final, says Arteta**\
 `Odegaard, along with Jurrien Timber, will miss Champions League tie against Bayer Leverkusen, though Leandro Trossard is available.`\
 https://nytimes.com/athletic/7122579/2026/03/16/martin-odegaard-arsenal-carabao-cup-final/
-
-**How to watch Kings vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122629/2026/03/16/kings-vs-rangers-stream-how-to-watch-march-16/
-
-**How to watch Flames vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122623/2026/03/16/flames-vs-red-wings-stream-how-to-watch-march-16/
 
