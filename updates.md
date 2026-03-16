@@ -1,3 +1,11 @@
+**America’s Parks Need More Than Love. They Need Us.**\
+`Stunning landscapes and meaningful memorials tell the story of our nation’s past. Working together, we can ensure they remain part of our future.`\
+https://nytimes.com/paidpost/2025-09-24/.html
+
+**Michael B. Jordan Celebrates Oscar Win at In-N-Out**\
+`Michael B. Jordan, who won his first Oscar for best actor on Sunday for his role in “Sinners,” celebrated his win at In-N-Out Burger.`\
+https://nytimes.com/video/us/100000010781567/michael-b-jordan-celebrates-oscar-win-at-in-n-out.html
+
 **How to watch Mavericks vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122931/2026/03/16/mavericks-vs-pelicans-stream-how-to-watch-march-16/
