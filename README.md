@@ -1,3 +1,7 @@
+**In Joe Gibbs Racing vs. Chris Gabehart, judge grants expedited discovery**\
+`The lawsuit took another turn Monday as the judge granted expedited discovery while JGR's team made more claims about Gabehart's actions.`\
+https://nytimes.com/athletic/7123568/2026/03/16/joe-gibbs-racing-chris-gabehart-lawsuit-judge-discovery/
+
 **Sacha Boisvert ready to prove himself with Blackhawks after leaving BU**\
 `Boisvert, who turns 20 on Tuesday, arrived in Chicago excited to start his pro career. Here's what the young forward had to say.`\
 https://nytimes.com/athletic/7123875/2026/03/16/sacha-boisvert-blackhawks-prospect-boston-university-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123757/2026/03/16/college-basketball-crown-field-b
 **Scoop City: Risers after the first wave of free agency**\
 `Today, teams and units trending up after the first week of free agency, a list that includes Patrick Mahomes and ... the Raiders`\
 https://nytimes.com/athletic/7123817/2026/03/16/nfl-free-agency-risers-2026-rams-chiefs/
-
-**Trump Is Trying to Sell War Like Steaks**\
-`The president is approaching the war in Iran as if he’s selling another Trump product, the writer E.J. Dionne Jr. says on “The Opinions.” But “selling war is a very serious business,” he adds, unlike selling Trump Steaks or Trump University.`\
-https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-like-steaks.html
 

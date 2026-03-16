@@ -1,3 +1,11 @@
+**Sacha Boisvert ready to prove himself with Blackhawks after leaving BU**\
+`Boisvert, who turns 20 on Tuesday, arrived in Chicago excited to start his pro career. Here's what the young forward had to say.`\
+https://nytimes.com/athletic/7123875/2026/03/16/sacha-boisvert-blackhawks-prospect-boston-university-contract/
+
+**Phillies' Johan Rojas loses appeal, suspended 80 games for PED violation**\
+`Rojas tested positive for boldenone, a banned substance. He is not allowed to play until late June.`\
+https://nytimes.com/athletic/7113526/2026/03/16/johan-rojas-phillies-ped-suspension/
+
 **Gregory Bovino to Retire From Border Patrol**\
 `The outspoken border official drove the agency’s aggressive immigration policy in U.S. cities, including Minneapolis, until January.`\
 https://nytimes.com/2026/03/16/us/politics/gregory-bovino-retire-border-patrol.html
