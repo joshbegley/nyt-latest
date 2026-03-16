@@ -1,3 +1,15 @@
+**Nvidia Built the A.I. Era. Now It Has to Defend It.**\
+`At the opening of the company’s annual conference, Jensen Huang leaned on technology from a recent deal to show how artificial intelligence is changing.`\
+https://nytimes.com/2026/03/16/technology/nvidia-gtc-ai-chips-huang.html
+
+**Detailing Chelsea's payments to agents and clubs, FaceTimes and avoiding bigger punishment**\
+`The Athletic has broken down the Premier League's sanction agreement with Chelsea over suspended ban`\
+https://nytimes.com/athletic/7122929/2026/03/16/chelsea-transfer-ban-explained/
+
+**NCAA Tournament bracket observations: 12 things that stand out**\
+`Duke and Michigan State in the same region, again? Mizzou's home-court draw and Zuby Ejiofor's dream matchup, plus more bracket tidbits.`\
+https://nytimes.com/athletic/7122998/2026/03/16/ncaa-tournament-bracket-observations/
+
 **How to watch Penguins vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7123348/2026/03/16/penguins-vs-avalanche-stream-how-to-watch-march-16/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7122963/2026/03/16/tennis-doping-ban-marinko-matose
 **How the Makers of ‘Mr. Nobody Against Putin’ Addressed ‘an Ethical Minefield’**\
 `The documentary about Vladimir V. Putin’s wartime indoctrination of Russian schoolchildren won an Oscar at Sunday’s Academy Awards.`\
 https://nytimes.com/2026/03/16/world/europe/oscar-documentary-mr-nobody-against-putin.html
-
-**At Dance Reflections, Embodied Acts of Memory**\
-`Works by Soa Ratsifandrihana and Robin Orlin evoked Malagasy line dances and Zulu rickshaw drivers.`\
-https://nytimes.com/2026/03/16/arts/dance/dance-reflections-groove-we-wear-our-wheels-with-pride-robin-orlin.html
-
-**In Choosing ‘Epic Fury,’ Trump Names a War and Defines His Presidency**\
-`The branding of the U.S. military operation against Iran is a quintessentially Trumpian choice for a leader whose tenure has been marked by anger.`\
-https://nytimes.com/2026/03/16/us/politics/trump-operation-epic-fury-anger.html
-
-**Padres' Joe Musgrove to begin season on injured list**\
-`The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
-https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
 
