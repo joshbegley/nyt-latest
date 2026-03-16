@@ -1,4 +1,24 @@
-**‘This is Not Our War’: Europe and U.K. Push Back Against Trump’s Demands**\
+**How to watch Kings vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122629/2026/03/16/kings-vs-rangers-stream-how-to-watch-march-16/
+
+**How to watch Flames vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122623/2026/03/16/flames-vs-red-wings-stream-how-to-watch-march-16/
+
+**How to watch Bruins vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122620/2026/03/16/bruins-vs-devils-stream-how-to-watch-march-16/
+
+**Trump Demands NATO Allies Send Warships to Strait of Hormuz**\
+`President Trump on Sunday called on NATO allies to help end the de facto Iranian blockade of the Strait of Hormuz, a key shipping lane for about one-fifth of the world’s oil.`\
+https://nytimes.com/video/world/middleeast/100000010781392/trump-nato-strait-hormuz-ships.html
+
+**Suns' Mat Ishbia, minority owners agree to mediation over 'personal piggy bank' claims**\
+`Ishbia and two Suns minority owners had sued each other over funding, transparency dispute.`\
+https://nytimes.com/athletic/7122455/2026/03/16/nba-suns-mat-ishbia-lawsuit-mediation/
+
+**‘This Is Not Our War’: Europe and U.K. Push Back Against Trump’s Demands**\
 `While some European countries said they were discussing ways to help reopen the Strait of Hormuz, several rejected President Trump’s calls to send warships.`\
 https://nytimes.com/2026/03/16/world/europe/europe-iran-war-trump-hormuz-warships.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7122287/2026/03/16/usmnt-pulisic-tessmann-balogun-t
 **How to watch Warriors vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122564/2026/03/16/warriors-vs-wizards-stream-how-to-watch-march-16/
-
-**How to watch Magic vs. Hawks: Time, TV, streaming**\
-`Find out how to watch the Orlando Magic play the Atlanta Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122563/2026/03/16/magic-vs-hawks-stream-how-to-watch-march-16/
-
-**The Windup: USA advances! With a touch of controversy**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7122530/2026/03/16/usa-dominican-republic-italy-venezuela-world-baseball-classic-the-windup/
-
-**Chelsea's Neto escapes sanction but warned by UEFA after pushing ball boy**\
-`Neto apologised to the ball boy immediately after the 5-2 defeat to Paris Saint-Germain in the Champions League last 16 first leg.`\
-https://nytimes.com/athletic/7112006/2026/03/16/pedro-neto-uefa-ball-boy-chelsea-push/
-
-**Prospect Sacha Boisvert signs with Blackhawks after NCAA season**\
-`Boisvert, the 18th pick in the 2024 NHL Draft, has decided to turn pro and has signed a three-year entry-level contract.`\
-https://nytimes.com/athletic/7110011/2026/03/16/blackhawks-sacha-boisvert-contract-ncaa-nhl/
-
-**Do You Recognize These Lines From Great Irish Poets?**\
-`Try this short quiz on some of Ireland’s most memorable verses from its celebrated poets.`\
-https://nytimes.com/interactive/2026/03/16/books/review/irish-poetry-quiz.html
 
