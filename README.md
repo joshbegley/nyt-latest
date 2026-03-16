@@ -1,3 +1,7 @@
+**Troy Aikman says he will continue role with Dolphins after consulting on GM hire**\
+`Aikman will continue to work as a "Monday Night Football" broadcaster and next season will be his 25th alongside Joe Buck.`\
+https://nytimes.com/athletic/7122796/2026/03/16/troy-aikman-consultant-miami-dolphins/
+
 **How Trump Drove a Wedge Between Florida Republicans Over A.I.**\
 `A Florida bill that would have regulated artificial intelligence, backed by Gov. Ron DeSantis, failed to gain traction after President Trump made it clear he did not want states to rein in the technology.`\
 https://nytimes.com/2026/03/16/technology/ai-florida-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/arts/music/english-concert-hercules-carnegie-hall
 **Susie Wiles, Trump’s White House Chief of Staff, Has Breast Cancer**\
 `Ms. Wiles said that the disease was caught in its early stages and that she would remain in her role.`\
 https://nytimes.com/2026/03/16/us/politics/susie-wiles-breast-cancer.html
-
-**Rooney, Olise, Agyemang – Memorable moments when young stars announced themselves**\
-`In 23 minutes against Everton, Max Dowman arrived. This got us thinking about other prodigies who declared themselves stars to the world`\
-https://nytimes.com/athletic/7120064/2026/03/16/max-dowman-arsenal-premier-league/
 
