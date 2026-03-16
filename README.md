@@ -1,3 +1,15 @@
+**The FA's Silent Support Weekend is meant to help kids enjoy football. Did it work?**\
+`The scheme is designed to help children 'find their voice' in youth football. Here is what some of our writers witnessed...`\
+https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/
+
+**Five more years for Joan Laporta, Barcelona's Teflon president**\
+`The 63-year-old was re-elected as Barcelona president in a vote held among the club's members on Sunday evening`\
+https://nytimes.com/athletic/7122040/2026/03/16/barcelona-laporta-election-victory-victor-font/
+
+**What Displays Get Scrapped at America’s Parks? It Looks Like Anyone’s Guess.**\
+`President Trump ordered officials to remove information deemed disparaging to the United States. A review of government documents shows little guidance and striking inconsistencies.`\
+https://nytimes.com/2026/03/16/climate/national-parks-removal-displays.html
+
 **How USMNT players, after 2022 kit rebellion, took control of their 2026 World Cup jerseys**\
 `Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
 https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/16/us/trump-news
 **Astros roster projection 3.0: Josh Hader and Jeremy Peña are out**\
 `Notes on every position group, including how if Peña isn't ready for Opening Day, there could be an opening for Houston's top prospect.`\
 https://nytimes.com/athletic/7120328/2026/03/16/astros-opening-day-roster-projection/
-
-**Twins' Brooks Lee hopes explosive training will help him on the diamond**\
-`Lee did workouts he never thought he'd be able to accomplish in effort to stick at shortstop in the majors.`\
-https://nytimes.com/athletic/7116105/2026/03/16/twins-brooks-lee-offseason-training-agility/
-
-**Trump’s Threat to Delay Summit With Xi Casts New Shadow Over China Relations**\
-`President Trump warned that he could postpone a meeting set to begin in just over two weeks if China refuses to help reopen the Strait of Hormuz.`\
-https://nytimes.com/2026/03/16/world/middleeast/trump-visit-xi-china-iran.html
-
-**Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
-`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a stacked Dominican Republic lineup.`\
-https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
 
