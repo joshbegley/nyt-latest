@@ -1,3 +1,15 @@
+**Conan O’Brien Delivers a Punchy Cold Open With His ‘Weapons’ Parody**\
+`In his second turn as Oscars host, his monologue wasn’t as loopy as last year’s, but he displayed a range of jokes — nerdy, topical and physical.`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/conan-o-brien-oscars-monologue
+
+**March Madness 2026 national title odds: Michigan, Duke early favorites, Arkansas rising**\
+`Breaking down favorites, contenders and long shots in the odds ahead of the 2026 tournament.`\
+https://nytimes.com/athletic/7121052/2026/03/15/march-madness-2026-national-title-odds-betting-favorites-michigan-duke-purdue/
+
+**What to know from Cameron Young's Players Championship victory**\
+`Young played the back nine Sunday in 33 strokes, bogey-free.`\
+https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-round-4-what-to-know-cameron-young/
+
 **Sean Penn Wins Best Supporting Actor but Opts for Ukraine, Not the Oscars**\
 `The actor has a history with the country’s president, Volodymyr Zelensky, and had been skipping awards ceremonies.`\
 https://nytimes.com/2026/03/15/movies/sean-penn-oscars.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/a
 **The most likely team to win the 2026 men's NCAA tournament**\
 `Statistically, only one team has what it takes to cut down the nets in the NCAA men's basketball tournament.`\
 https://nytimes.com/athletic/7101735/2026/03/15/the-most-likely-team-to-win-the-2026-mens-ncaa-tournament/
-
-**Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
-`In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
-https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
-
-**No Corrections: March 16, 2026**\
-`No corrections appeared in print on Monday, March 16, 2026.`\
-https://nytimes.com/2026/03/15/corrections/no-corrections-march-16-2026.html
-
-**Game, Set, Match: Jannik Sinner stops surging Daniil Medvedev for first desert title**\
-`Sinner staved off Medvedev's increased aggressiveness to claim the title and begin a push back toward catching Carlos Alcaraz as world No. 1`\
-https://nytimes.com/athletic/7120699/2026/03/15/tennis-sinner-medvedev-indian-wells-final-result-analysis/
 

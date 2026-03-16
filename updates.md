@@ -1,3 +1,15 @@
+**Conan O’Brien Delivers a Punchy Cold Open With His ‘Weapons’ Parody**\
+`In his second turn as Oscars host, his monologue wasn’t as loopy as last year’s, but he displayed a range of jokes — nerdy, topical and physical.`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/conan-o-brien-oscars-monologue
+
+**March Madness 2026 national title odds: Michigan, Duke early favorites, Arkansas rising**\
+`Breaking down favorites, contenders and long shots in the odds ahead of the 2026 tournament.`\
+https://nytimes.com/athletic/7121052/2026/03/15/march-madness-2026-national-title-odds-betting-favorites-michigan-duke-purdue/
+
+**What to know from Cameron Young's Players Championship victory**\
+`Young played the back nine Sunday in 33 strokes, bogey-free.`\
+https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-round-4-what-to-know-cameron-young/
+
 **Sean Penn Wins Best Supporting Actor but Opts for Ukraine, Not the Oscars**\
 `The actor has a history with the country’s president, Volodymyr Zelensky, and had been skipping awards ceremonies.`\
 https://nytimes.com/2026/03/15/movies/sean-penn-oscars.html
