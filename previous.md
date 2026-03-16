@@ -1,3 +1,7 @@
+**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
+`Follow our guide to help you fill out your bracket. `\
+https://nytimes.com/athletic/7118600/2026/03/15/womens-march-madness-68-team-previews-bracket-prep-2026/
+
 **2026 NCAA Tournament bracket picks: Why C.J. Moore has Michigan winning the title**\
 `Duke, Michigan and Arizona have put up historically good numbers — meaning favorites could dominate the Final Four again this March.`\
 https://nytimes.com/athletic/7094724/2026/03/15/mens-ncaa-tournament-2026-bracket-picks-all-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7121125/2026/03/15/steph-curry-seth-curry-al-horfor
 **Vote for Your Favorite (and Least Favorite) Red Carpet Looks from the Oscars**\
 `You’ve seen the fashion from the Oscars red carpet. Now, the Styles desk wants you to rank your favorites.`\
 https://nytimes.com/interactive/2026/03/15/style/oscars-red-carpet-best-dressed-vote.html
-
-**Dodgers agree to deal with Uniqlo as official field presenting partner: Sources**\
-`The Dodgers did not sell the naming rights to their ballpark and were not open to doing so throughout the process.`\
-https://nytimes.com/athletic/7120747/2026/03/15/dodger-stadium-field-presenting-partner-uniqlo/
 

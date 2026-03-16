@@ -1,3 +1,7 @@
+**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
+`Follow our guide to help you fill out your bracket. `\
+https://nytimes.com/athletic/7118600/2026/03/15/womens-march-madness-68-team-previews-bracket-prep-2026/
+
 **2026 NCAA Tournament bracket picks: Why C.J. Moore has Michigan winning the title**\
 `Duke, Michigan and Arizona have put up historically good numbers — meaning favorites could dominate the Final Four again this March.`\
 https://nytimes.com/athletic/7094724/2026/03/15/mens-ncaa-tournament-2026-bracket-picks-all-games/
