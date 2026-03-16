@@ -1,3 +1,7 @@
+**Fast-Moving Fire in Queens Kills 4, Including a Child**\
+`Fierce winds fueled a blaze in a mixed-use building on Monday, killing at least four people and injuring 12 others, officials said.`\
+https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
+
 **Aide Accused by Hegseth of Leaking Is Hired for Intelligence Job**\
 `Dan Caldwell will serve as an adviser to senior intelligence officials. His hiring signals the end of a high-profile investigation.`\
 https://nytimes.com/2026/03/16/us/politics/dan-caldwell-pentagon-dni.html
