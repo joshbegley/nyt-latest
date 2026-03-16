@@ -1,3 +1,19 @@
+**Why Affordability Still Hurts Democrats**\
+`Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
+
+**As NBA eyes expansion in Seattle and Las Vegas, how will it get done?**\
+`From expansion drafts to conference realignment to playoff changes, adding two teams to the NBA is complicated.`\
+https://nytimes.com/athletic/7123704/2026/03/16/nba-expansion-next-steps-seattle-las-vegas/
+
+**How ‘Marty Supreme’ and Timothée Chalamet Went Home Empty-Handed**\
+`A few years ago, the indie studio A24 was luxuriating in Academy Awards. On Sunday it was shut out entirely.`\
+https://nytimes.com/2026/03/16/movies/a24-marty-supreme-chalamet-safdie.html
+
+**ICE Releases Columbia Protester Who Was Held For 1 Year**\
+`Leqaa Kordia, 33, had been held in a Texas facility, where she said her health had declined. She was arrested during a 2024 protest and then detained by ICE in March 2025.`\
+https://nytimes.com/2026/03/16/nyregion/ice-columbia-protester-leqaa-kordia.html
+
 **Greg Olsen, Kevin Burkhardt to reunite on Fox to call flag football event**\
 `The Fanatics Flag Football Classic was moved from Riyadh to L.A.`\
 https://nytimes.com/athletic/7123514/2026/03/16/greg-olsen-kevin-burkhardt-fox-flag-football-tom-brady/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7123613/2026/03/16/mason-miller-world-baseball-clas
 **U.S. Court Ruling Against R.F.K. Jr.’s Vaccine Policies**\
 `The decision by Judge Brian Murphy immediately halted implementation of a series of measures imposed by the Trump administration that were aimed at upending decades of immunization standards.`\
 https://nytimes.com/interactive/2026/03/16/us/pi-opinion.html
-
-**Fire on U.S. Aircraft Carrier Raged for Hours, Sailors Say**\
-`The Ford is now entering its 10th month of deployment after arriving in the Middle East from the Caribbean.`\
-https://nytimes.com/2026/03/16/us/politics/uss-ford-fire-iran-venezuela.html
-
-**Trump Hits Out at Allies After Cool Response to Requests for War Ships**\
-`Australia, Germany and Japan said they weren’t planning to participate in efforts to reopen the Strait of Hormuz. President Trump said his call for help was really a loyalty test.`\
-https://nytimes.com/2026/03/16/world/middleeast/trump-us-allies-strait-of-hormuz-warships.html
-
-**USF coach Bryan Hodgson gets a March Madness moment his father can see live**\
-`A first-round site of Buffalo, N.Y., for Hodgson's first NCAA Tournament felt almost like divine intervention.`\
-https://nytimes.com/athletic/7123580/2026/03/16/usf-coach-bryan-hodgson-march-madness-father-moment/
-
-**Judy Pace, 83, Dies; Actress Brought Layers to Black Characters**\
-`On the prime-time soap opera “Peyton Place,” she played one of TV’s first Black female antagonists. She was also a fixture in blaxploitation films.`\
-https://nytimes.com/2026/03/16/arts/television/judy-pace-dead.html
 

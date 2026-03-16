@@ -1,3 +1,19 @@
+**Why Affordability Still Hurts Democrats**\
+`Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
+
+**As NBA eyes expansion in Seattle and Las Vegas, how will it get done?**\
+`From expansion drafts to conference realignment to playoff changes, adding two teams to the NBA is complicated.`\
+https://nytimes.com/athletic/7123704/2026/03/16/nba-expansion-next-steps-seattle-las-vegas/
+
+**How ‘Marty Supreme’ and Timothée Chalamet Went Home Empty-Handed**\
+`A few years ago, the indie studio A24 was luxuriating in Academy Awards. On Sunday it was shut out entirely.`\
+https://nytimes.com/2026/03/16/movies/a24-marty-supreme-chalamet-safdie.html
+
+**ICE Releases Columbia Protester Who Was Held For 1 Year**\
+`Leqaa Kordia, 33, had been held in a Texas facility, where she said her health had declined. She was arrested during a 2024 protest and then detained by ICE in March 2025.`\
+https://nytimes.com/2026/03/16/nyregion/ice-columbia-protester-leqaa-kordia.html
+
 **Greg Olsen, Kevin Burkhardt to reunite on Fox to call flag football event**\
 `The Fanatics Flag Football Classic was moved from Riyadh to L.A.`\
 https://nytimes.com/athletic/7123514/2026/03/16/greg-olsen-kevin-burkhardt-fox-flag-football-tom-brady/

@@ -1,3 +1,7 @@
+**Trump Is Trying to Sell War Like Steaks**\
+`The president is approaching the war in Iran as if he’s selling another Trump product, the writer E.J. Dionne Jr. says on “The Opinions.” But “selling war is a very serious business,” he adds, unlike selling Trump Steaks or Trump University.`\
+https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-like-steaks.html
+
 **Why Affordability Still Hurts Democrats**\
 `Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/world/iran-hormuz-oil-oscars-iceland.html
 **Team USA closer Mason Miller may not be available to pitch in World Baseball Classic final**\
 `Miller has secured saves in two of the United States’ victories.`\
 https://nytimes.com/athletic/7123613/2026/03/16/mason-miller-world-baseball-classic-final-usa/
-
-**U.S. Court Ruling Against R.F.K. Jr.’s Vaccine Policies**\
-`The decision by Judge Brian Murphy immediately halted implementation of a series of measures imposed by the Trump administration that were aimed at upending decades of immunization standards.`\
-https://nytimes.com/interactive/2026/03/16/us/pi-opinion.html
 
