@@ -1,3 +1,23 @@
+**USF coach Bryan Hodgson gets a March Madness moment his father can see live**\
+`A first-round site of Buffalo, N.Y., for Hodgson's first NCAA Tournament felt almost like divine intervention.`\
+https://nytimes.com/athletic/7123580/2026/03/16/usf-coach-bryan-hodgson-march-madness-father-moment/
+
+**Judy Pace, 83, Dies; Actress Brought Layers to Black Characters**\
+`On the prime-time soap opera “Peyton Place,” she played one of TV’s first Black female antagonists. She was also a fixture in blaxploitation films.`\
+https://nytimes.com/2026/03/16/arts/television/judy-pace-dead.html
+
+**Live Nation Antitrust Case Resumes With Testimony About Springsteen Fees**\
+`After the Justice Department announced a deal with the concert giant, the trial picked up after a week’s break, with a coalition of states leading the way.`\
+https://nytimes.com/2026/03/16/arts/music/live-nation-ticketmaster-antitrust-trial-resume.html
+
+**S.E.C.’s Enforcement Chief Abruptly Resigns**\
+`Margaret A. Ryan is leaving the agency just six months after joining it, a surprise given that most people hold the position for years.`\
+https://nytimes.com/2026/03/16/us/politics/sec-enforcement-chief-resigns.html
+
+**Submit your questions to Vic Tafur's 49ers mailbag**\
+`How are fans feeling about the 49ers' approach in free agency? Send in all questions, complaints and suggestions.`\
+https://nytimes.com/athletic/7123667/2026/03/16/49ers-mailbag-free-agency-questions/
+
 **Supreme Court Defers Decision on Trump’s Bid to End Protections for Migrants**\
 `The justices will hear arguments over the president’s efforts to terminate the program, known as Temporary Protected Status, for migrants from Haiti and Syria as part of his mass deportation efforts.`\
 https://nytimes.com/2026/03/16/us/politics/supreme-court-defers-tps.html
