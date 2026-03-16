@@ -2,7 +2,7 @@
 `The Huskies could repeat as back-to-back NCAA champions for the first time since 2015-2016. `\
 https://nytimes.com/athletic/7120634/2026/03/15/uconn-ncaa-tournament-bracket-reveal/
 
-**Al Horford (calf strain), Seth Curry (adductor strain) as Steph Curry's rehab continues**\
+**Al Horford (calf strain), Seth Curry (adductor strain) out as Steph Curry's rehab continues**\
 `Both Horford and Curry were injured in Friday's loss to the Minnesota Timberwolves.`\
 https://nytimes.com/athletic/7121125/2026/03/15/steph-curry-seth-curry-al-horford-injury-status-warriors-nba/
 
