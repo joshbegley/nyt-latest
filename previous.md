@@ -1,3 +1,11 @@
+**Can Hyperbaric Oxygen Therapy Help You Live Longer?**\
+`Pressurized oxygen is proven to help the body heal faster. Now it’s being touted for reversing aging, boosting your brain and tightening your skin.`\
+https://nytimes.com/2026/03/16/well/live/hyperbaric-oxygen-therapy-longevity-health.html
+
+**Bundesliga Briefing: Top tifos, Undav's World Cup chance, Dingert admits error and Ulreich on the night**\
+`Referee Christian Dingert was magnanimous after a display that was harshly labelled the ‘worst’ by Bayern honorary president Uli Hoeness`\
+https://nytimes.com/athletic/7122010/2026/03/16/bundesliga-briefing-dingert-referee-bayern-sven-ulreich-deniz-undav/
+
 **With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
 `President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7120796/2026/03/16/reece-james-chelsea-injury-news/
 **What is the latest on Man City's 115 charges and football's other outstanding cases?**\
 `Chelsea’s case regarding a rules breach during Abramovich’s time as owner has concluded. However, many ongoing cases are awaiting an outcome`\
 https://nytimes.com/athletic/7122190/2026/03/16/chelsea-ban-man-city-charges/
-
-**Customers accuse Whatnot of illegal sports card gambling operation**\
-`One of the largest online live-selling platforms, Whatnot sold more than 76 million sports cards last year.`\
-https://nytimes.com/athletic/7121448/2026/03/16/whatnot-sports-cards-breaks-repacks-gambling/
-
-**Tanking NBA teams will be watching these NCAA Tournament players with keen interest**\
-`Plus, who's hot (Lakers, Magic) and not (Wolves, Warriors) and the battle for playoff seeding in this week's NBA Rewind.`\
-https://nytimes.com/athletic/7120076/2026/03/16/ncaa-tournament-nba-draft-prospects-nba-rewind/
 

@@ -1,3 +1,16 @@
+**Can Hyperbaric Oxygen Therapy Help You Live Longer?**\
+`Pressurized oxygen is proven to help the body heal faster. Now it’s being touted for reversing aging, boosting your brain and tightening your skin.`\
+https://nytimes.com/2026/03/16/well/live/hyperbaric-oxygen-therapy-longevity-health.html
+
+**Bundesliga Briefing: Top tifos, Undav's World Cup chance, Dingert admits error and Ulreich on the night**\
+`Referee Christian Dingert was magnanimous after a display that was harshly labelled the ‘worst’ by Bayern honorary president Uli Hoeness`\
+https://nytimes.com/athletic/7122010/2026/03/16/bundesliga-briefing-dingert-referee-bayern-sven-ulreich-deniz-undav/
+
+**The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7122427/2026/03/16/lakers-magic-ncaa-tournament-nba-draftthe-bounce/
+
 **With Iran War, Trump Risks Stepping on Gains From His Own Tax Cuts**\
 `President Trump’s war in Iran has raised some costs just as many Americans are starting to see savings from last year’s tax cuts.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-tax-cuts.html
