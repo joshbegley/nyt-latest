@@ -1,3 +1,7 @@
+**Trump Is Choosing ‘Risk Over Process’ in Iran**\
+`Does the president need congressional approval to engage in a war? A former Trump official, Nadia Schadlow, says it’s more complicated than you might think on “The Ezra Klein Show.”`\
+https://nytimes.com/video/opinion/100000010758679/trump-is-choosing-risk-over-process-in-iran.html
+
 **Vanity Fair Oscar Party: Arrival Looks From the Night’s Biggest After-Party**\
 `The magazine’s new editor slashed the guest list in hopes of increasing the event’s starriness per capita. Here’s what those who made the cut wore to party at LACMA.`\
 https://nytimes.com/2026/03/16/style/vanity-fair-oscars-party-photos.html
