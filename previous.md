@@ -1,3 +1,15 @@
+**How to watch Spurs vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123289/2026/03/16/spurs-vs-clippers-stream-how-to-watch-march-16/
+
+**How to watch Lakers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123283/2026/03/16/lakers-vs-rockets-stream-how-to-watch-march-16/
+
+**Ex-tennis player who called anti-doping agency 'corrupt' gets four-year ban for several offenses**\
+`Marinko Matosevic, now a coach, was suspended for blood doping, which he has admitted, as well as other breaches between 2018 and 2020.`\
+https://nytimes.com/athletic/7122963/2026/03/16/tennis-doping-ban-marinko-matosevic-itia-corruption-allegations/
+
 **How the Makers of ‘Mr. Nobody Against Putin’ Addressed ‘an Ethical Minefield’**\
 `The documentary about Vladimir V. Putin’s wartime indoctrination of Russian schoolchildren won an Oscar at Sunday’s Academy Awards.`\
 https://nytimes.com/2026/03/16/world/europe/oscar-documentary-mr-nobody-against-putin.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
 **‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**\
 `After the hit song from “KPop Demon Hunters” made Oscars history, a snare drum and a crashing cymbal mercilessly drowned out the winners.`\
 https://nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html
-
-**The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
-`Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
-https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/
-
-**Trump Claims to Have Reversed a House Republican’s Terminal Diagnosis**\
-`The president leaned on House Speaker Mike Johnson to name a Florida Republican whose grave prognosis was imperiling the party’s already slim voting margin. Both said his prospects had improved.`\
-https://nytimes.com/2026/03/16/us/politics/trump-neal-dunn-terminal-diagnosis-johnson.html
-
-**David A. Keene, Leader of Two Right-Wing Groups, Dies at 80**\
-`He led the N.R.A. and, for 29 years, the American Conservative Union, which organizes the influential annual Conservative Political Action Conference, or CPAC. He was also a columnist.`\
-https://nytimes.com/2026/03/16/us/politics/david-a-keene-dead.html
 

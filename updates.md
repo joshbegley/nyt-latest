@@ -1,3 +1,15 @@
+**How to watch Spurs vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123289/2026/03/16/spurs-vs-clippers-stream-how-to-watch-march-16/
+
+**How to watch Lakers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123283/2026/03/16/lakers-vs-rockets-stream-how-to-watch-march-16/
+
+**Ex-tennis player who called anti-doping agency 'corrupt' gets four-year ban for several offenses**\
+`Marinko Matosevic, now a coach, was suspended for blood doping, which he has admitted, as well as other breaches between 2018 and 2020.`\
+https://nytimes.com/athletic/7122963/2026/03/16/tennis-doping-ban-marinko-matosevic-itia-corruption-allegations/
+
 **How the Makers of ‘Mr. Nobody Against Putin’ Addressed ‘an Ethical Minefield’**\
 `The documentary about Vladimir V. Putin’s wartime indoctrination of Russian schoolchildren won an Oscar at Sunday’s Academy Awards.`\
 https://nytimes.com/2026/03/16/world/europe/oscar-documentary-mr-nobody-against-putin.html
