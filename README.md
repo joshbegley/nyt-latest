@@ -1,4 +1,12 @@
-**Women's March Madness 2026 bracket NCAA tournament forecast**\
+**Team USA wins heavyweight bout with Dominican Republic to reach finals of WBC**\
+`If there were lingering questions about the group’s level of interest in this tournament, Team USA answered them resoundingly.`\
+https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-with-dominican-republic-to-reach-finals-of-wbc/
+
+**UCLA's path to the Final Four requires getting through the tough Sacramento 2 Region**\
+`UCLA potentially would have to get past No. 2 seed LSU. `\
+https://nytimes.com/athletic/7120426/2026/03/15/ucla-final-four-path/
+
+**Women's March Madness 2026 bracket NCAA Tournament forecast**\
 ``\
 https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
 
@@ -24,17 +32,9 @@ https://nytimes.com/athletic/7090126/2026/03/15/womens-2026-march-madness-ncaa-t
 
 **Jessie Buckley Wins Best Actress for ‘Hamnet’**\
 `The actress closes out a season of wins in this category with an Academy Award.`\
-https://nytimes.com/2026/03/15/movies/jessie-buckley-wins-best-actress.html
+https://nytimes.com/2026/03/15/movies/jessie-buckley-oscars-hamnet.html
 
 **Michael B. Jordan Wins the Best Actor Oscar for ‘Sinners’**\
 `It was the actor’s first nomination for an Academy Award.`\
 https://nytimes.com/2026/03/15/movies/michael-b-jordan-best-actor-oscar-win.html
-
-**Paul Thomas Anderson Wins Best Director for ‘One Battle After Another’**\
-`It was his second win, after taking home the award for best adapted screenplay on Sunday.`\
-https://nytimes.com/2026/03/15/movies/paul-thomas-anderson-oscar-win-best-director.html
-
-**Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
-`Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
-https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/
 
