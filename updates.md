@@ -1,3 +1,15 @@
+**Gregory Bovino to Retire From Border Patrol**\
+`The outspoken border official drove the agency’s aggressive immigration policy in U.S. cities, including Minneapolis, until January.`\
+https://nytimes.com/2026/03/16/us/politics/gregory-bovino-retire-border-patrol.html
+
+**Trump Administration Said to Tell Cuba That Its President Has to Go**\
+`The United States has told Cuba that for meaningful progress to be made in negotiations, President Miguel Díaz-Canel must step down, said people familiar with the talks.`\
+https://nytimes.com/2026/03/16/world/americas/trump-cuba-president-diaz-canel.html
+
+**House Adopts Bill to Ease Recovery by Heirs of Nazi Looted Art**\
+`The Senate had already passed an extension of the so-called HEAR Act, which is scheduled to expire at the end of the year. The bill now heads to President Trump’s desk.`\
+https://nytimes.com/2026/03/16/arts/design/nazi-art-looted-heirs-recovery.html
+
 **Cubs' Seiya Suzuki goes for MRI to determine extent of WBC injury**\
 `Suzuki was projected to help replace Kyle Tucker as Chicago's regular right fielder.`\
 https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
