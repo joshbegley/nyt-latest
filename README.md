@@ -1,3 +1,7 @@
+**The N.B.A.’s Curry Family Royalty, Market Moves and the Inside Scoop on N.F.L. Free Agency**\
+`Steph and Dell Curry sit down with The Athletic’s Marcus Thompson.`\
+https://nytimes.com/2026/03/16/us/the-nbas-curry-family-royalty-market-moves-and-the-inside-scoop-on-nfl-free-agency.html
+
 **What should future Winter Paralympics look like? Bigger, better and maybe earlier**\
 `Multiple Paralympians expressed a desire for the Games to begin earlier, potentially staging them before the Olympics.`\
 https://nytimes.com/athletic/7120154/2026/03/16/winter-paralympics-future-events-timing-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/arts/design/art-trump-collins-humanities.html
 **N.Y.C. to Get Green Energy From Canadian Hydropower**\
 `Our climate reporter Hilary Howard explores the Champlain Hudson Power Express, a new transmission line that will deliver hydro power from Quebec to New York City. It’s planned to provide up to 20% of the city’s energy needs.`\
 https://nytimes.com/video/nyregion/100000010692162/nyc-canada-hydropower-green-energy.html
-
-**Behind Mamdani’s Smile, a Politician Who Can Be a Ruthless Operator**\
-`Mayor Zohran Mamdani, while charming in public, has thrown sharp elbows in private as he pushes his political brand and agenda among fellow Democrats.`\
-https://nytimes.com/2026/03/16/nyregion/mamdani-politics-nyc.html
 
