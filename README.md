@@ -1,9 +1,21 @@
+**Absent From the Red Carpet? Dramatic Makeup.**\
+`On the Oscars red carpet, many celebrities opted for subtle pops of color over dramatic, high-glam makeup.`\
+https://nytimes.com/2026/03/15/style/oscars-makeup-red-carpet-trend.html
+
+**Women's March Madness 2026 national title odds: UConn, UCLA, Texas early betting favorites**\
+`Breaking down the favorites, contenders and potential long shots of the women's NCAA Tournament.`\
+https://nytimes.com/athletic/7121284/2026/03/15/womens-march-madness-2026-national-title-odds-uconn-ucla-texas-early-betting-favorites-uconn-ucla-texas/
+
+**Autumn Durald Arkapaw makes history as the first woman of color to win best cinematography.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
+
 **There have now been seven ties in Oscars history.**\
 `In 1969, Katharine Hepburn and Barbra Streisand each received an Oscar in the best actress category.`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscar-tie-history-academy-awards
 
 **MLB players vs. minor leaguers? Midseason exhibitions could come in 2028**\
-`Under the current L.A. Olympics schedule, no MLB games would be played for 11 days in 2028. `\
+`Under the current L.A. Olympics schedule, no MLB games would be played for around 10 days in 2028. `\
 https://nytimes.com/athletic/7121246/2026/03/15/olympics-effects-on-2028-mlb-schedule/
 
 **Play The Athletic’s 2026 March Madness prop bets game**\
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/7121132/2026/03/15/mens-march-madness-selection-sho
 **Barbra Streisand Honors Robert Redford at Oscars**\
 `Streisand and Redford built a lengthy friendship after acting together in 1973’s “The Way We Were.”`\
 https://nytimes.com/2026/03/15/movies/barbra-streisand-robert-redford-oscars.html
-
-**Actors From Rob Reiner Films Fill the Oscars Stage**\
-`Billy Crystal led a tribute to the director several months after he and his wife were murdered.`\
-https://nytimes.com/2026/03/15/movies/rob-reiner-oscars-tribute-billy-crystal.html
-
-**Dominican Republic sets WBC home run record with record 15th blast**\
-`Junior Caminero took reigning NL Cy Young Award winner Paul Skenes deep, and the pro-Dominican Republic crowd went into a frenzy. `\
-https://nytimes.com/athletic/7121227/2026/03/15/world-baseball-classic-dominican-republic-home-run-record/
-
-**Denny Hamlin gets emotional win in Las Vegas, his first since father's death**\
-`Hamlin notched his 61st career victory in the same place as his 60th, just months after his father died in a house fire.`\
-https://nytimes.com/athletic/7121129/2026/03/15/denny-hamlin-nascar-las-vegas-win-takeaways/
 
