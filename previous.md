@@ -1,3 +1,27 @@
+**After Family’s Fatal Encounter With Israeli Forces, 2 Boys Speak**\
+`Khaled and Mustafa Bani Odeh were riding home with sweets after a family night out in the West Bank when Israeli forces opened fire on their car, killing their parents and two brothers.`\
+https://nytimes.com/video/world/middleeast/100000010780924/palestinian-family-killed-west-bank.html
+
+**Julius Randle finally breaks through, but Timberwolves have unshakeable problem**\
+`Julius Randle can be inconsistent, but they have seen him reach real, sustained highs over the last two seasons.`\
+https://nytimes.com/athletic/7120052/2026/03/16/julius-randle-timberwolves-thunder-nba/
+
+**Your Iran Questions**\
+`We’re answering some of your questions about the war.`\
+https://nytimes.com/2026/03/16/briefing/your-iran-questions.html
+
+**Gunnar Henderson proves Mark DeRosa right as his breakout WBC continues**\
+`Henderson's history of success against Luis Severino played a role in him getting the start over Alex Bregman. `\
+https://nytimes.com/athletic/7121773/2026/03/16/mlb-gunnar-henderson-wbc/
+
+**This Week in Mets: Carson Benge should start on Opening Day**\
+`Making his debut on Opening Day might actually be easier and less stressful than coming up once the season is in gear.`\
+https://nytimes.com/athletic/7121393/2026/03/16/this-week-in-mets-carson-benge-should-start-on-opening-day/
+
+**How undefeated Team Italy became the 'shot' heard 'round the World Baseball Classic**\
+`The way the players see it, they are doing their part to spread the sport they love to their ancestral home.`\
+https://nytimes.com/athletic/7120022/2026/03/16/world-baseball-classic-team-italy-semifinals-journey/
+
 **Severe Storms Push Tornado Threat to the East on Monday**\
 `More than 12 million people are at risk from damaging winds and strong tornadoes, including in Washington, D.C.`\
 https://nytimes.com/2026/03/16/weather/tornadoes-storms-maryland-virginia-delaware-dc-forecast.html
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/16/podcasts/the-headlines/trump-strait-of-hormuz-isr
 **Cowboys free-agency breakdown: 5 best moves, biggest remaining questions**\
 `In Thompson, the Cowboys have a player who can line up at either safety spot or play nickel cornerback.`\
 https://nytimes.com/athletic/7120576/2026/03/16/cowboys-free-agency-best-moves-jalen-thompson/
-
-**Seahawks Week 1 free-agency reset: Finding fits but spending much less than year ago**\
-`Seattle has chosen to be economical about adding bodies to the depth chart, while shifting focus to the 2026 NFL Draft.`\
-https://nytimes.com/athletic/7120624/2026/03/16/seahawks-free-agency-update-2026/
-
-**Packers mock draft: O-line help, a new RB and the country's best return man**\
-`After the first wave of free agency, how many pressing needs do the Packers still have?`\
-https://nytimes.com/athletic/7120073/2026/03/16/packers-mock-draft-offensive-line-2026/
-
-**The key to the 2026 Braves: Can they lead the league in bounce-backs?**\
-`The talent is there. The projection systems like them. But if the Braves are going to be a force in '26, they'll need lots of bounce-backs. `\
-https://nytimes.com/athletic/7120429/2026/03/16/atlanta-braves-2026-season-bounce-back-players/
-
-**Are the Knicks better prepared for a deep playoff run under Mike Brown?**\
-`The team's 3-point shooting is one aspect that provides hope.`\
-https://nytimes.com/athletic/7119836/2026/03/16/knicks-post-season-run-mike-brown-nba/
-
-**2026 NHL prospect pool rankings: No. 25 Vegas Golden Knights**\
-`Trevor Connelly is Vegas' only first-round prospect, but the Golden Knights have a couple of solid goalies and some relevant forwards.`\
-https://nytimes.com/athletic/6875944/2026/03/16/vegas-golden-knights-nhl-prospect-rankings-2026/
-
-**Can the Ducks win the Pacific Division? Here's how their surprise season is happening**\
-`Here are five major reasons why the Ducks have exceeded expectations this season.`\
-https://nytimes.com/athletic/7121316/2026/03/16/anaheim-ducks-playoff-pacific-division/
 
