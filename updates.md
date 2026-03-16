@@ -1,3 +1,7 @@
+**‘One Battle After Another Was Totally Meh’: 3 Opinion Writers Size Up the Oscars**\
+`What did the academy get right? Wrong? What was just weird? Three culture fans discuss Hollywood’s biggest night.`\
+https://nytimes.com/2026/03/16/opinion/one-battle-after-another-was-totally-meh-3-opinion-writers-size-up-the-oscars.html
+
 **Will Crystal Palace ever have a better chance to try something different?**\
 `Oliver Glasner opted against experimenting to discomfort Leeds' 10 men and saw Palace end scoreless for an eighth time at home this season`\
 https://nytimes.com/athletic/7113774/2026/03/16/crystal-palace-glasner-mateta-strand-larsen-leeds/
