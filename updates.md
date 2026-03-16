@@ -1,3 +1,7 @@
+**No H.I.V. Aid Without More Access to Minerals: U.S. Ponders ‘Sticks’ Against Zambia**\
+`A draft State Department memo outlines ways the Trump administration may ratchet up pressure on the African country by ending health support “on a massive scale.”`\
+https://nytimes.com/2026/03/16/health/zambia-hiv-aid-minerals-trump.html
+
 **How Tragedy, Wealth and Trump Shaped JB Pritzker**\
 `JB Pritzker, the governor of Illinois and a Trump antagonist, has become a national figure for Democrats. Where will that lead?`\
 https://nytimes.com/video/podcasts/100000010781281/how-tragedy-wealth-and-trump-shaped-jb-pritzker.html
