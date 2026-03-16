@@ -1,3 +1,7 @@
+**Judge Strikes Down Kennedy’s Vaccine Policies**\
+`Ruling on a lawsuit brought by several prominent medical organizations, a district court said the federal government did not base its decisions on science in limiting Covid shots and changing the childhood immunization schedule.`\
+https://nytimes.com/2026/03/16/health/childhood-vaccines-lawsuit-kennedy.html
+
 **49ers, Christian Kirk agree to deal to add veteran receiver**\
 `Kirk had a largely quiet 2025 season but had a big game in the Texans' wild-card playoff win.`\
 https://nytimes.com/athletic/7091831/2026/03/16/christian-kirk-49ers-nfl-free-agency-2026/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7111720/2026/03/16/brazil-squad-march-neymar-igor-t
 **Battered Cuba, Seeking Lifeline, May Open Itself to Outside Investment**\
 `Cuba’s deputy prime minister said his country would announce on Monday a move to allow Cubans abroad to own businesses on the island and to invest in infrastructure.`\
 https://nytimes.com/2026/03/16/world/americas/cuba-us-foreign-investment-businesses.html
-
-**What Are Trump’s Positions on Iran? They Can Change by the Sentence.**\
-`The president is no stranger to staking out contradictory stands, part of what his aides say is his negotiating style. But on Iran, his shifting positions are colliding with the consequences of war.`\
-https://nytimes.com/2026/03/16/us/politics/trump-iran-war.html
 

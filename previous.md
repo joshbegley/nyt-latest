@@ -1,3 +1,15 @@
+**49ers, Christian Kirk agree to deal to add veteran receiver**\
+`Kirk had a largely quiet 2025 season but had a big game in the Texans' wild-card playoff win.`\
+https://nytimes.com/athletic/7091831/2026/03/16/christian-kirk-49ers-nfl-free-agency-2026/
+
+**Trump Officials Look to More Managed Approach to Trade With China**\
+`The administration has begun discussing a new “Board of Trade” with China to try to balance what U.S. officials see as an unequal economic relationship.`\
+https://nytimes.com/2026/03/16/us/politics/trump-administration-china-managed-trade.html
+
+**Administration to Convene ‘God Squad’ With Power to Override Environmental Law**\
+`The meeting, planned for this month, will focus on oil and gas drilling in the Gulf of Mexico.`\
+https://nytimes.com/2026/03/16/climate/god-squad-whales-gulf-oil.html
+
 **'Not acceptable': Bill Guerin demands urgency as Wild stumble against non-playoff teams**\
 `The Wild have lost three straight games to non-playoff teams. "We're too loose right now," Guerin said, "and that's everybody."`\
 https://nytimes.com/athletic/7123367/2026/03/16/wild-losing-streak-bill-guerin/
@@ -13,24 +25,4 @@ https://nytimes.com/2026/03/16/world/americas/cuba-us-foreign-investment-busines
 **What Are Trump’s Positions on Iran? They Can Change by the Sentence.**\
 `The president is no stranger to staking out contradictory stands, part of what his aides say is his negotiating style. But on Iran, his shifting positions are colliding with the consequences of war.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-war.html
-
-**‘We Don’t Need Anybody’: Trump Lashes Out at U.S. Allies**\
-`President Trump lashed out at U.S. allies for not agreeing to help reopen the Strait of Hormuz during a news conference on Monday.`\
-https://nytimes.com/video/us/politics/100000010782675/trump-nato-strait-of-hormuz.html
-
-**Breaking down men's NCAA tournament upset potential in Round 1**\
-`An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
-https://nytimes.com/athletic/7123051/2026/03/16/the-definitive-guide-to-march-madness-2026-first-round-upsets/
-
-**3 Are Dead, Including a Child, in Fast-Moving Queens Fire**\
-`The building in Flushing was engulfed in flames by the time firefighters arrived four minutes after a 911 call. Three other people jumped out of windows and were injured.`\
-https://nytimes.com/2026/03/16/nyregion/fatal-fire-queens-three-dead.html
-
-**Nvidia Built the A.I. Era. Now It Has to Defend It.**\
-`At the opening of the company’s annual conference, Jensen Huang leaned on technology from a recent deal to show how artificial intelligence is changing.`\
-https://nytimes.com/2026/03/16/technology/nvidia-gtc-ai-chips-huang.html
-
-**Detailing Chelsea's payments to agents and clubs, FaceTimes and avoiding bigger punishment**\
-`The Athletic has broken down the Premier League's sanction agreement with Chelsea over suspended ban`\
-https://nytimes.com/athletic/7122929/2026/03/16/chelsea-transfer-ban-explained/
 
