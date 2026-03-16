@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Kennedy Center Is Ordered to Allow Lawmaker to Join Board Meeting**\
+``\
+https://nytimes.com/live/2026/03/16/us/trump-news
+
 **Astros roster projection 3.0: Josh Hader and Jeremy Peña are out**\
 `Notes on every position group, including how if Peña isn't ready for Opening Day, there could be an opening for Houston's top prospect.`\
 https://nytimes.com/athletic/7120328/2026/03/16/astros-opening-day-roster-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7118745/2026/03/16/detroit-tigers-tv-2026-skubal-ho
 **Tigers roster projection 3.0: The Kevin McGonigle decision comes down to the wire**\
 `McGonigle posted a .444 on-base percentage and .963 OPS this spring, but the Tigers will take his roster decision to the last minute. `\
 https://nytimes.com/athletic/7120142/2026/03/16/tigers-roster-projection-kevin-mcgonigle-opening-day-decision/
-
-**The NCAA Tournament's 15 most intriguing players to watch**\
-`From the scoring power of Arkansas' Darius Acuff Jr. to the chance at redemption for Houston's Emanuel Sharp, intriguing players abound.`\
-https://nytimes.com/athletic/7119814/2026/03/16/ncaa-tournament-march-madness-aj-dybantsa-darryn-peterson/
 
