@@ -1,3 +1,7 @@
+**Anna Wintour at the Oscars: In on the Joke, Out of Her Sunglasses**\
+`The Vogue empress presented alongside Anne Hathaway on Sunday evening for a not-so-subtle riff on “The Devil Wears Prada.”`\
+https://nytimes.com/2026/03/15/style/anna-wintour-oscars-anne-hathaway.html
+
 **Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
 `Follow our guide to help you fill out your bracket. `\
 https://nytimes.com/athletic/7118600/2026/03/15/womens-march-madness-68-team-previews-bracket-prep-2026/

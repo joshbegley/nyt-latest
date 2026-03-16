@@ -1,3 +1,7 @@
+**Anna Wintour at the Oscars: In on the Joke, Out of Her Sunglasses**\
+`The Vogue empress presented alongside Anne Hathaway on Sunday evening for a not-so-subtle riff on “The Devil Wears Prada.”`\
+https://nytimes.com/2026/03/15/style/anna-wintour-oscars-anne-hathaway.html
+
 **Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
 `Follow our guide to help you fill out your bracket. `\
 https://nytimes.com/athletic/7118600/2026/03/15/womens-march-madness-68-team-previews-bracket-prep-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120634/2026/03/15/uconn-ncaa-tournament-bracket-re
 **Al Horford (calf strain), Seth Curry (adductor strain) out as Steph Curry's rehab continues**\
 `Both Horford and Curry were injured in Friday's loss to the Minnesota Timberwolves.`\
 https://nytimes.com/athletic/7121125/2026/03/15/steph-curry-seth-curry-al-horford-injury-status-warriors-nba/
-
-**Vote for Your Favorite (and Least Favorite) Red Carpet Looks from the Oscars**\
-`You’ve seen the fashion from the Oscars red carpet. Now, the Styles desk wants you to rank your favorites.`\
-https://nytimes.com/interactive/2026/03/15/style/oscars-red-carpet-best-dressed-vote.html
 
