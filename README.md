@@ -26,7 +26,3 @@ https://nytimes.com/2026/03/16/world/americas/cuba-us-foreign-investment-busines
 `The president is no stranger to staking out contradictory stands, part of what his aides say is his negotiating style. But on Iran, his shifting positions are colliding with the consequences of war.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-war.html
 
-**‘We Don’t Need Anybody’: Trump Lashes Out at U.S. Allies**\
-`President Trump lashed out at U.S. allies for not agreeing to help reopen the Strait of Hormuz during a news conference on Monday.`\
-https://nytimes.com/video/us/politics/100000010782675/trump-nato-strait-of-hormuz.html
-
