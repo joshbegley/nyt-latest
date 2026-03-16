@@ -1,3 +1,7 @@
+**Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
+`Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
+https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/
+
 **Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
 `Wallace recorded a hat trick in Sunday's gold-medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
 https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
@@ -31,11 +35,7 @@ https://nytimes.com/athletic/7121246/2026/03/15/olympics-effects-on-2028-mlb-sch
 Trade in that leather-wrapped orb for a crystal ball, friends, and take The Athletic’s March Madness Prediction Challenge.`\
 https://nytimes.com/athletic/7090264/2026/03/15/play-the-athletics-2026-march-madness-prop-bets-game/
 
-**A rare Oscars tie made for hectic moments onstage.**\
+**A Rare Oscars Tie Made for Hectic Moments Onstage**\
 `“I’m not joking,” Kumail Nanjiani said while presenting the award for best live action short film.`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/a-rare-oscars-tie-made-for-hectic-moments-onstage
-
-**Giannis Antetokounmpo hurts knee on fall but bristles at concern: 'I do trust my body'**\
-`Despite this latest injury, Antetokounmpo bristled at the idea of losing trust in his body to make moves he normally makes on the floor.`\
-https://nytimes.com/athletic/7120808/2026/03/15/giannis-antetokounmpo-season-injury-woes-bucks-nba/
+https://nytimes.com/2026/03/15/movies/oscars-tie-two-people-exchanging-saliva-singers.html
 

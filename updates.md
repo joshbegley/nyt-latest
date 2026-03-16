@@ -1,3 +1,11 @@
+**Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
+`Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
+https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/
+
+**A Rare Oscars Tie Made for Hectic Moments Onstage**\
+`“I’m not joking,” Kumail Nanjiani said while presenting the award for best live action short film.`\
+https://nytimes.com/2026/03/15/movies/oscars-tie-two-people-exchanging-saliva-singers.html
+
 **Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
 `Wallace recorded a hat trick in Sunday's gold-medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
 https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
