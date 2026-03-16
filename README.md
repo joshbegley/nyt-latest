@@ -1,3 +1,23 @@
+**FPL Gameweek 30 review: Going Timber, future-proof Fulham and bracing for blanks**\
+`With several teams not playing next gameweek and European fixtures still to come, patience will be key before locking in transfers`\
+https://nytimes.com/athletic/7121015/2026/03/16/fantasy-premier-league-fpl-tips-gameweek-review/
+
+**How to win your March Madness pool**\
+`Austin Mock provides strategic advice and highlights which teams to target for upsets based on the size of your bracket pool.`\
+https://nytimes.com/athletic/7122452/2026/03/16/march-madness-2026-bracket-tips-strategies-upset-targets/
+
+**Jaelan Phillips' goal: Turning 'disruption into production' as Panthers' alpha pass rusher**\
+`Last season with the Dolphins and Eagles, Phillips was fourth in the NFL in pressure rate among players with at least 250 pass-rush reps.`\
+https://nytimes.com/athletic/7122472/2026/03/16/panthers-jaelan-phillips-contract-edge-rusher/
+
+**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series heroics**\
+`Yamamoto will join an exclusive list of pitchers who recorded the final out of a World Series and threw the first pitch of the next season.`\
+https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-opening-day-start/
+
+**How to watch Mammoth vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122991/2026/03/16/mammoth-vs-stars-stream-how-to-watch-march-16/
+
 **John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
 `Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
 https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7122931/2026/03/16/mavericks-vs-pelicans-stream-how
 **How to watch Trail Blazers vs. Nets: Time, TV, streaming**\
 `Find out how to watch the Portland Trail Blazers play the Brooklyn Nets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122928/2026/03/16/trail-blazers-vs-nets-stream-how-to-watch-march-16/
-
-**How to watch Suns vs. Celtics: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Boston Celtics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122924/2026/03/16/suns-vs-celtics-stream-how-to-watch-march-16/
-
-**How to watch Grizzlies vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Memphis Grizzlies play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122922/2026/03/16/grizzlies-vs-bulls-stream-how-to-watch-march-16/
-
-**Wild insider: After Quinn Hughes blockbuster, Bill Guerin is setting up his next superstar swing**\
-`Auston Matthews, Jack Hughes and Robert Thomas are among the names the Wild could make a play for this offseason.`\
-https://nytimes.com/athletic/7122449/2026/03/16/wild-bill-guerin-offseason-trades/
-
-**England 2026 World Cup watch: What are Tuchel's right-back options if James' body lets him down?**\
-`New injury for the Chelsea captain shines a light on other candidates at his position and may have implications for Tuchel's World Cup plans`\
-https://nytimes.com/athletic/7122277/2026/03/16/england-james-tuchel-right-back-2026-world-cup/
-
-**Liam Livingstone criticises England setup, claims 'no one cares' about players not in inner circle**\
-`The all-rounder has played 100 times for the national team across formats but does not expect to feature again under the current regime`\
-https://nytimes.com/athletic/7122706/2026/03/16/liam-livingstone-england-mccullum-key-ipl/
 

@@ -1,3 +1,7 @@
+**John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
+`Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
+https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
+
 **America’s Parks Need More Than Love. They Need Us.**\
 `Stunning landscapes and meaningful memorials tell the story of our nation’s past. Working together, we can ensure they remain part of our future.`\
 https://nytimes.com/paidpost/2025-09-24/.html
