@@ -1,3 +1,7 @@
+**Judge Strikes Down Kennedy’s Vaccine Policies**\
+`Ruling on a lawsuit brought by several prominent medical organizations, a district court said the federal government did not base its decisions on science in limiting Covid shots and changing the childhood immunization schedule.`\
+https://nytimes.com/2026/03/16/health/childhood-vaccines-lawsuit-kennedy.html
+
 **49ers, Christian Kirk agree to deal to add veteran receiver**\
 `Kirk had a largely quiet 2025 season but had a big game in the Texans' wild-card playoff win.`\
 https://nytimes.com/athletic/7091831/2026/03/16/christian-kirk-49ers-nfl-free-agency-2026/

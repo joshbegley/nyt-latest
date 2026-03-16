@@ -1,3 +1,7 @@
+**From Spirit to Legacy: Traveling 820 miles in two days for two NWSL home openers**\
+`The new season began with the Spirit hosting the Thorns on Friday night, followed by Boston Legacy making its home debut on Saturday.`\
+https://nytimes.com/athletic/7122412/2026/03/16/travel-washington-spirit-boston-legacy-nwsl-season/
+
 **Judge Strikes Down Kennedy’s Vaccine Policies**\
 `Ruling on a lawsuit brought by several prominent medical organizations, a district court said the federal government did not base its decisions on science in limiting Covid shots and changing the childhood immunization schedule.`\
 https://nytimes.com/2026/03/16/health/childhood-vaccines-lawsuit-kennedy.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/7123367/2026/03/16/wild-losing-streak-bill-guerin/
 **Neymar misses out on Brazil squad, Igor Thiago receives first call-up**\
 `Rayan, Leo Pereira and Gabriel Sara have been called up for the first time, while Endrick returns to the squad.`\
 https://nytimes.com/athletic/7111720/2026/03/16/brazil-squad-march-neymar-igor-thiago/
-
-**Battered Cuba, Seeking Lifeline, May Open Itself to Outside Investment**\
-`Cuba’s deputy prime minister said his country would announce on Monday a move to allow Cubans abroad to own businesses on the island and to invest in infrastructure.`\
-https://nytimes.com/2026/03/16/world/americas/cuba-us-foreign-investment-businesses.html
 
