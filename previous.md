@@ -1,3 +1,11 @@
+**Bracketology 101: What you need to know to fill out your March Madness bracket**\
+`Never filled out a bracket before? Need a quick refresher that won't turn into a calculus class? We've got you.`\
+https://nytimes.com/athletic/7099624/2026/03/16/march-madness-bracket-guide-for-beginners/
+
+**Ranking the USMNT's most iconic modern-era World Cup kits**\
+`The USMNT's 2026 World Cup kits are out, and this is what they're up against for a place in U.S. men's soccer lore`\
+https://nytimes.com/athletic/7100518/2026/03/16/usmnt-all-time-world-cup-kits-ranking/
+
 **Israel Denies That It Is Running Out of Missile Interceptors**\
 `Israeli military says it had prepared for a prolonged conflict after a news report said its supplies of ballistic missile interceptors were running “critically low.”`\
 https://nytimes.com/2026/03/16/world/middleeast/israel-interceptors.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/16/health/zambia-hiv-aid-minerals-trump.html
 **How Tragedy, Wealth and Trump Shaped JB Pritzker**\
 `JB Pritzker, the governor of Illinois and a Trump antagonist, has become a national figure for Democrats. Where will that lead?`\
 https://nytimes.com/video/podcasts/100000010781281/how-tragedy-wealth-and-trump-shaped-jb-pritzker.html
-
-**7 Hours in a City? You’ve Got Time to Sightsee.**\
-`On a layover at the airport, the lounge may beckon, but in the right places, you can get into town and cap your vacation with a micro-vacation.`\
-https://nytimes.com/2026/03/16/travel/flight-layover-sightsee-tips.html
-
-**Dodger Details: Checking in on Kyle Tucker and the second-base battle**\
-`Hyeseong Kim looks like the narrow front-runner over Alex Freeland in the battle to start at second against right-handers.`\
-https://nytimes.com/athletic/7121058/2026/03/16/dodgers-kyle-tucker-second-base-update/
 

@@ -1,3 +1,11 @@
+**Bracketology 101: What you need to know to fill out your March Madness bracket**\
+`Never filled out a bracket before? Need a quick refresher that won't turn into a calculus class? We've got you.`\
+https://nytimes.com/athletic/7099624/2026/03/16/march-madness-bracket-guide-for-beginners/
+
+**Ranking the USMNT's most iconic modern-era World Cup kits**\
+`The USMNT's 2026 World Cup kits are out, and this is what they're up against for a place in U.S. men's soccer lore`\
+https://nytimes.com/athletic/7100518/2026/03/16/usmnt-all-time-world-cup-kits-ranking/
+
 **Israel Denies That It Is Running Out of Missile Interceptors**\
 `Israeli military says it had prepared for a prolonged conflict after a news report said its supplies of ballistic missile interceptors were running “critically low.”`\
 https://nytimes.com/2026/03/16/world/middleeast/israel-interceptors.html
