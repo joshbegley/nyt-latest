@@ -1,3 +1,7 @@
+**Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
+`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a Dominican Republic lineup stacked with sluggers.`\
+https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
+
 **Bryson Stott shifted his hands last season, and he's still seeing the rewards**\
 `Stott's adjustments at the plate during last season's second half have made him a better hitter — one who embraces his pull-side. `\
 https://nytimes.com/athletic/7113517/2026/03/16/phillies-bryson-stott-hitting-adjustments/
