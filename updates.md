@@ -1,3 +1,16 @@
+**Israeli Schools Begin Reopening in Some Areas Seen as Safer**\
+`Some classes resumed on Monday in areas far from the populous cities and border regions that have come under attack in the conflict with Iran and the Iran-backed militia, Hezbollah.`\
+https://nytimes.com/2026/03/16/world/middleeast/israel-schools.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>In honor of my favorite week of the sports calendar, I will give preference this week to any combo college football-March Madness questions you can come up with.</p>
+<p>Leave them here. Please include your city.</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/7123078/2026/03/16/submit-a-question-for-stewart-mandels-college-football-mailbag-338/
+
 **Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
 `Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
 https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/

@@ -1,3 +1,16 @@
+**Israeli Schools Begin Reopening in Some Areas Seen as Safer**\
+`Some classes resumed on Monday in areas far from the populous cities and border regions that have come under attack in the conflict with Iran and the Iran-backed militia, Hezbollah.`\
+https://nytimes.com/2026/03/16/world/middleeast/israel-schools.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>In honor of my favorite week of the sports calendar, I will give preference this week to any combo college football-March Madness questions you can come up with.</p>
+<p>Leave them here. Please include your city.</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+<p>&nbsp;</p>
+`\
+https://nytimes.com/athletic/7123078/2026/03/16/submit-a-question-for-stewart-mandels-college-football-mailbag-338/
+
 **Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
 `Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
 https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/7121015/2026/03/16/fantasy-premier-league-fpl-tips-
 **How to win your March Madness pool**\
 `Austin Mock provides strategic advice and highlights which teams to target for upsets based on the size of your bracket pool.`\
 https://nytimes.com/athletic/7122452/2026/03/16/march-madness-2026-bracket-tips-strategies-upset-targets/
-
-**Jaelan Phillips' goal: Turning 'disruption into production' as Panthers' alpha pass rusher**\
-`Last season with the Dolphins and Eagles, Phillips was fourth in the NFL in pressure rate among players with at least 250 pass-rush reps.`\
-https://nytimes.com/athletic/7122472/2026/03/16/panthers-jaelan-phillips-contract-edge-rusher/
-
-**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series run**\
-`Yamamoto will join an exclusive list of pitchers who recorded the final out of a World Series and threw the first pitch of the next season.`\
-https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-opening-day-start/
-
-**How to watch Mammoth vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122991/2026/03/16/mammoth-vs-stars-stream-how-to-watch-march-16/
 
