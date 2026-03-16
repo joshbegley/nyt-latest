@@ -23,7 +23,7 @@ https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-t
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
 
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
-`Are UConn and UCLA on a collision course for the national championship game?`\
+`Are UConn and UCLA on a collision course for the national title game? The Huskies blew them out in the Final Four last season.`\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
 
 **‘One Battle After Another’ Wins Best Picture After Season-Long Sweep**\
