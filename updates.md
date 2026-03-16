@@ -1,3 +1,11 @@
+**Severe Storms Push Tornado Threat to the East on Monday**\
+`More than 12 million people are at risk from damaging winds and strong tornadoes, including in Washington, D.C.`\
+https://nytimes.com/2026/03/16/weather/tornadoes-storms-maryland-virginia-delaware-dc-forecast.html
+
+**The Pulse: The brackets are here**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7120791/2026/03/16/men-women-ncaa-brackets-the-pulse/
+
 **Trump Asks for Help With Strait of Hormuz, and Israeli Forces Kill Family in West Bank**\
 `Plus, highlights from the Oscars.`\
 https://nytimes.com/2026/03/16/podcasts/the-headlines/trump-strait-of-hormuz-israeli-forces-kill-family-in-west-bank.html
