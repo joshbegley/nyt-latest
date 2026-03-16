@@ -15,7 +15,7 @@ https://nytimes.com/athletic/7122043/2026/03/16/tottenham-liverpool-tactics-tudo
 https://nytimes.com/athletic/7121340/2026/03/16/college-baseball-georgia-tennessee-arkansas-mississippi-state/
 
 **Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
-`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches`\
+`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches.`\
 https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
 
 **Why Trump’s Hormuz Problem Is Going Global**\

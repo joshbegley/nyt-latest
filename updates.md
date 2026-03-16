@@ -1,3 +1,7 @@
+**Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
+`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches.`\
+https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
+
 **Thunder triad of Isaiah Hartenstein, Jared McCain and Isaiah Joe fueling wins**\
 `Isaiah Hartenstein has become a key fixture for the Thunder on both ends, including his growing chemistry with their best shooters.`\
 https://nytimes.com/athletic/7121366/2026/03/16/hartenstein-mccain-joe-chemistry-thunder-timberwolves-nba/
