@@ -1,3 +1,8 @@
+**The Bounce: Lakers and Magic are rolling. Plus, an NBA fan's guide to March Madness**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7122427/2026/03/16/lakers-magic-ncaa-tournament-nba-draftthe-bounce/
+
 **Can Hyperbaric Oxygen Therapy Help You Live Longer?**\
 `Pressurized oxygen is proven to help the body heal faster. Now it’s being touted for reversing aging, boosting your brain and tightening your skin.`\
 https://nytimes.com/2026/03/16/well/live/hyperbaric-oxygen-therapy-longevity-health.html
