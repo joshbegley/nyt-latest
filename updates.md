@@ -1,3 +1,7 @@
+**Chukwuemeka receives first Austria call up after switching allegiance from England**\
+`For Austria coach Ralf Rangnick, Chukwuemeka's call up is the culmination of a two-year pursuit.`\
+https://nytimes.com/athletic/7122163/2026/03/16/carney-chukwuemeka-austria-englabd-borussia-dortmund/
+
 **The FA's Silent Support Weekend is meant to help kids enjoy football. Did it work?**\
 `The scheme is designed to help children 'find their voice' in youth football. Here is what some of our writers witnessed...`\
 https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/

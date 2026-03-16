@@ -1,3 +1,7 @@
+**Chukwuemeka receives first Austria call up after switching allegiance from England**\
+`For Austria coach Ralf Rangnick, Chukwuemeka's call up is the culmination of a two-year pursuit.`\
+https://nytimes.com/athletic/7122163/2026/03/16/carney-chukwuemeka-austria-englabd-borussia-dortmund/
+
 **The FA's Silent Support Weekend is meant to help kids enjoy football. Did it work?**\
 `The scheme is designed to help children 'find their voice' in youth football. Here is what some of our writers witnessed...`\
 https://nytimes.com/athletic/7120647/2026/03/16/fa-silent-support-weekend/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7121961/2026/03/16/dowman-arsenal-premier-league-gu
 **Trump Administration Live Updates: Kennedy Center Is Ordered to Allow Lawmaker to Join Board Meeting**\
 ``\
 https://nytimes.com/live/2026/03/16/us/trump-news
-
-**Astros roster projection 3.0: Josh Hader and Jeremy Peña are out**\
-`Notes on every position group, including how if Peña isn't ready for Opening Day, there could be an opening for Houston's top prospect.`\
-https://nytimes.com/athletic/7120328/2026/03/16/astros-opening-day-roster-projection/
 

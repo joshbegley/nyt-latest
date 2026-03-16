@@ -18,6 +18,10 @@ https://nytimes.com/2026/03/16/climate/national-parks-removal-displays.html
 `Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
 https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
 
+**Canada had no new kits at the 2022 World Cup, so it's swinging big in 2026**\
+`Canada missed its chance to make a mark on the global stage in 2022. It's looking to make up for that and then some in 2026`\
+https://nytimes.com/athletic/7121409/2026/03/16/canada-2026-world-cup-kits-jerseys-nike-photos/
+
 **Arizona Diamondbacks streaming guide: How to watch games throughout 2026 season**\
 `The D-Backs should be fun to watch, but finding their games can be confusing. Here's your refresher on the TV and streaming options.`\
 https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-tv-how-to-watch-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120620/2026/03/16/usmnt-world-cup-usa-kit-jersey-p
 **TAFC: Protecting Dowman, history maker. Plus: Guler golazo and Chelsea huddle muddle**\
 `Today in TAFC: Max Dowman, 16, takes Arsenal a step close to title. Plus: Guler scores from deep in his own half, Chelsea's huddle muddle.`\
 https://nytimes.com/athletic/7121961/2026/03/16/dowman-arsenal-premier-league-guler-own-half/
-
-**Trump Administration Live Updates: Kennedy Center Is Ordered to Allow Lawmaker to Join Board Meeting**\
-``\
-https://nytimes.com/live/2026/03/16/us/trump-news
 
