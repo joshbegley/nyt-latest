@@ -1,8 +1,20 @@
+**Cubs' Seiya Suzuki goes for MRI to determine extent of WBC injury**\
+`Suzuki was projected to help replace Kyle Tucker as Chicago's regular right fielder.`\
+https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
+
+**Phillies' Johan Rojas loses appeal, suspended 80 games for PED violation**\
+`Rojas has been suspended 80 games after testing positive for Boldenone, a banned substance. He is not allowed to play until late June.`\
+https://nytimes.com/athletic/7113526/2026/03/16/johan-rojas-phillies-ped-suspension/
+
+**A Judge Strikes Down Kennedy’s Vaccine Policies**\
+`Also, Trump raises the possibility of the U.S. “taking Cuba.” Here’s the latest at the end of Monday.`\
+https://nytimes.com/2026/03/16/briefing/a-judge-strikes-down-kennedys-vaccine-policies.html
+
 **College Basketball Crown unveils eight-team field for Year 2 as NIT alternative**\
 `Teams that advance in the Crown earn name, image and likeness money for their players. Nebraska received $300,000 for winning last year.`\
 https://nytimes.com/athletic/7123757/2026/03/16/college-basketball-crown-field-bracket-nit/
 
-**Scoop City: Early free agency risers**\
+**Scoop City: Risers after the first wave of free agency**\
 `Today, teams and units trending up after the first week of free agency, a list that includes Patrick Mahomes and ... the Raiders`\
 https://nytimes.com/athletic/7123817/2026/03/16/nfl-free-agency-risers-2026-rams-chiefs/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/16/movies/a24-marty-supreme-chalamet-safdie.html
 **ICE Releases Columbia Protester Who Was Held For 1 Year**\
 `Leqaa Kordia, 33, had been held in a Texas facility, where she said her health had declined. She was arrested during a 2024 protest and then detained by ICE in March 2025.`\
 https://nytimes.com/2026/03/16/nyregion/ice-columbia-protester-leqaa-kordia.html
-
-**Greg Olsen, Kevin Burkhardt to reunite on Fox to call flag football event**\
-`The Fanatics Flag Football Classic was moved from Riyadh to L.A.`\
-https://nytimes.com/athletic/7123514/2026/03/16/greg-olsen-kevin-burkhardt-fox-flag-football-tom-brady/
-
-**Inside the Democratic Infighting in Illinois**\
-`We talked to our Peoria-born reporter about Primary Day in what he claims is America’s best state.`\
-https://nytimes.com/2026/03/16/us/politics/illinois-democrat-primary-brandon-herrera-mamdani.html
-
-**War Isn’t the Only Thing on Trump’s Mind**\
-`President Trump spoke to journalists for about 40 minutes before holding a news conference on Monday, offering a glimpse into his priorities.`\
-https://nytimes.com/2026/03/16/us/politics/trump-news-conference-kennedy-center-iran.html
 
