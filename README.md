@@ -1,3 +1,7 @@
+**John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
+`Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
+https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
+
 **America’s Parks Need More Than Love. They Need Us.**\
 `Stunning landscapes and meaningful memorials tell the story of our nation’s past. Working together, we can ensure they remain part of our future.`\
 https://nytimes.com/paidpost/2025-09-24/.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122277/2026/03/16/england-james-tuchel-right-back-
 **Liam Livingstone criticises England setup, claims 'no one cares' about players not in inner circle**\
 `The all-rounder has played 100 times for the national team across formats but does not expect to feature again under the current regime`\
 https://nytimes.com/athletic/7122706/2026/03/16/liam-livingstone-england-mccullum-key-ipl/
-
-**What are Sabres getting in Logan Stanley? Jay McKee and Matthew Barnaby have an idea**\
-`Stanley has the potential to solidify himself as a regular in the Sabres' lineup ahead of the playoffs.`\
-https://nytimes.com/athletic/7122646/2026/03/16/buffalo-sabres-logan-stanley-mckee-barnaby/
 
