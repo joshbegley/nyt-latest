@@ -1,3 +1,11 @@
+**The 10 most likely men's NCAA tournament upsets for March Madness 2026**\
+`McNeese, VCU and High Point: We're sizing you up for glass slippers.`\
+https://nytimes.com/athletic/7121264/2026/03/16/march-madness-upsets-ncaa-tournament-2026-10-most-likely/
+
+**How concerned should the Wild be after recent home slump? Takeaways**\
+`The Wild started the game strong, but gave up three goals in the second period to the Leafs for a deficit they couldn't quite overcome.`\
+https://nytimes.com/athletic/7121643/2026/03/16/wild-home-slump-tarasenko-defense-maple-leafs/
+
 **Fulham fans and memes of cheeseboards on trains: How much truth is in them?**\
 `Viral tweets suggest Fulham fans are brie-eating Champagne quaffers. But is it really true? Tim Spiers went to find out...`\
 https://nytimes.com/athletic/7119601/2026/03/16/fulham-cheeseboards-train-viral-truth/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-w
 **UCLA's path to the Final Four requires getting through the tough Sacramento 2 Region**\
 `UCLA potentially would have to get past No. 2 seed LSU. `\
 https://nytimes.com/athletic/7120426/2026/03/15/ucla-final-four-path/
-
-**Women's March Madness 2026 bracket NCAA Tournament forecast**\
-``\
-https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
-
-**Free speech and wars are noted from the Oscars stage.**\
-`By Matt Stevens`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
 
