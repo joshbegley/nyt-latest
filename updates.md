@@ -1,3 +1,15 @@
+**Security Lines Snake Out of More Terminals as T.S.A. Goes Unpaid**\
+`“There’s going to be a breaking point sooner or later,” one union official warned, with travelers at some airports being told to arrive three hours ahead of time.`\
+https://nytimes.com/2026/03/16/travel/tsa-airport-delays-shutdown.html
+
+**Justin Fields trade analysis: How new Chiefs QB fits with Patrick Mahomes, K.C.**\
+`Here's what the Chiefs see in Fields, the five-year veteran quarterback they acquired in a trade with the New York Jets.`\
+https://nytimes.com/athletic/7123293/2026/03/16/chiefs-justin-fields-trade-analysis/
+
+**The Grand Canyon I Never Got to See**\
+`I thought I’d always have the chance to see the rare beauty of the secluded North Rim. But after a devastating wildfire, I returned to a park forever changed.`\
+https://nytimes.com/interactive/2026/03/16/magazine/grand-canyons-north-rim-wildfire.html
+
 **Weekly Student News Quiz: Iran, Cats, N.B.A. Feat**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2026/03/16/learning/16StudentNewsQuiz.html
