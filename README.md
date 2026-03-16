@@ -18,8 +18,8 @@ https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-ro
 `The actor has a history with the country’s president, Volodymyr Zelensky, and had been skipping awards ceremonies.`\
 https://nytimes.com/2026/03/15/movies/sean-penn-oscars.html
 
-**UConn earns No. 1 overall seed in women's NCAA Tournament**\
-`The Huskies could repeat as back-to-back NCAA champions for the first time since 2015-2016. `\
+**UConn, UCLA, Texas and South Carolina earn No. 1 seeds in women's NCAA Tournament**\
+`Will these teams make the Final Four for a second-straight season?`\
 https://nytimes.com/athletic/7120634/2026/03/15/uconn-ncaa-tournament-bracket-reveal/
 
 **Al Horford (calf strain), Seth Curry (adductor strain) out as Steph Curry's rehab continues**\
