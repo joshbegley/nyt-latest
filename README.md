@@ -10,9 +10,9 @@ https://nytimes.com/athletic/7121284/2026/03/15/womens-march-madness-2026-nation
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
 
-**There have now been seven ties in Oscars history.**\
+**A Surprising Oscars Tie Is the Seventh in Academy Awards History**\
 `In 1969, Katharine Hepburn and Barbra Streisand each received an Oscar in the best actress category.`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscar-tie-history-academy-awards
+https://nytimes.com/2026/03/15/movies/oscar-tie-history-academy-awards.html
 
 **MLB players vs. minor leaguers? Midseason exhibitions could come in 2028**\
 `Under the current L.A. Olympics schedule, no MLB games would be played for around 10 days in 2028. `\
