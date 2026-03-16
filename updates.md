@@ -1,3 +1,7 @@
+**In Joe Gibbs Racing vs. Chris Gabehart, judge grants expedited discovery**\
+`The lawsuit took another turn Monday as the judge granted expedited discovery while JGR's team made more claims about Gabehart's actions.`\
+https://nytimes.com/athletic/7123568/2026/03/16/joe-gibbs-racing-chris-gabehart-lawsuit-judge-discovery/
+
 **Sacha Boisvert ready to prove himself with Blackhawks after leaving BU**\
 `Boisvert, who turns 20 on Tuesday, arrived in Chicago excited to start his pro career. Here's what the young forward had to say.`\
 https://nytimes.com/athletic/7123875/2026/03/16/sacha-boisvert-blackhawks-prospect-boston-university-contract/
