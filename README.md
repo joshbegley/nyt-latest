@@ -1,3 +1,7 @@
+**Colorado Funeral Home Owner Is Sentenced to 18 Years on Federal Fraud Charges**\
+`Carie Hallford, 49, and her husband failed to provide cremation and burial services they had promised to grieving families, prosecutors said.`\
+https://nytimes.com/2026/03/16/us/carie-hallford-funeral-home-fraud-sentence.html
+
 **NFL players earn $542 million in 2025 performance-based pay: How the process works**\
 `The total number is up by $90 million from last offseason's distribution.`\
 https://nytimes.com/athletic/7123193/2026/03/16/nfl-performance-based-pay-2/
@@ -17,8 +21,4 @@ https://nytimes.com/athletic/7122412/2026/03/16/travel-washington-spirit-boston-
 **Judge Strikes Down Kennedy’s Vaccine Policies**\
 `Ruling on a lawsuit brought by several prominent medical organizations, a district court said the federal government did not base its decisions on science in limiting Covid shots and changing the childhood immunization schedule.`\
 https://nytimes.com/2026/03/16/health/childhood-vaccines-lawsuit-kennedy.html
-
-**49ers, Christian Kirk agree to deal to add veteran receiver**\
-`Kirk had a largely quiet 2025 season but had a big game in the Texans' wild-card playoff win.`\
-https://nytimes.com/athletic/7091831/2026/03/16/christian-kirk-49ers-nfl-free-agency-2026/
 
