@@ -1,3 +1,7 @@
+**Fast-Moving Fire in Queens Kills 4, Including a Child**\
+`Fierce winds fueled a blaze in a mixed-use building on Monday, killing at least four people and injuring 12 others, officials said.`\
+https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
+
 **Aide Accused by Hegseth of Leaking Is Hired for Intelligence Job**\
 `Dan Caldwell will serve as an adviser to senior intelligence officials. His hiring signals the end of a high-profile investigation.`\
 https://nytimes.com/2026/03/16/us/politics/dan-caldwell-pentagon-dni.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/arts/design/nazi-art-looted-heirs-recovery.html
 **Cubs' Seiya Suzuki goes for MRI to determine extent of WBC injury**\
 `Suzuki was projected to help replace Kyle Tucker as Chicago's regular right fielder.`\
 https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
-
-**Phillies' Johan Rojas loses appeal, suspended 80 games for PED violation**\
-`Rojas tested positive for boldenone, a banned substance. He is not allowed to play until late June.`\
-https://nytimes.com/athletic/7113526/2026/03/16/johan-rojas-phillies-ped-suspension/
 
