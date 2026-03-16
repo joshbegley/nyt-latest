@@ -1,3 +1,11 @@
+**Toasting Oscars Night With Alysa Liu and Dua Lipa Under Elton John’s Giant Tent**\
+`At his annual fund-raiser, the rock star hosted Keke Palmer, Donatella Versace and Brooklyn Beckham for a private Oscars watch party in West Hollywood.`\
+https://nytimes.com/2026/03/16/style/elton-john-oscars-viewing-party.html
+
+**Chelsea's James suffers hamstring injury, expected to miss several weeks**\
+`This is the 10th different hamstring injury the 26-year-old has had since December 2020.`\
+https://nytimes.com/athletic/7120796/2026/03/16/reece-james-chelsea-injury-news/
+
 **What is the latest on Man City's 115 charges and football's other outstanding cases?**\
 `Chelsea’s case regarding a rules breach during Abramovich’s time as owner has concluded. However, many ongoing cases are awaiting an outcome`\
 https://nytimes.com/athletic/7122190/2026/03/16/chelsea-ban-man-city-charges/

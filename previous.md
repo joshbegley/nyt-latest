@@ -1,3 +1,11 @@
+**Toasting Oscars Night With Alysa Liu and Dua Lipa Under Elton John’s Giant Tent**\
+`At his annual fund-raiser, the rock star hosted Keke Palmer, Donatella Versace and Brooklyn Beckham for a private Oscars watch party in West Hollywood.`\
+https://nytimes.com/2026/03/16/style/elton-john-oscars-viewing-party.html
+
+**Chelsea's James suffers hamstring injury, expected to miss several weeks**\
+`This is the 10th different hamstring injury the 26-year-old has had since December 2020.`\
+https://nytimes.com/athletic/7120796/2026/03/16/reece-james-chelsea-injury-news/
+
 **What is the latest on Man City's 115 charges and football's other outstanding cases?**\
 `Chelsea’s case regarding a rules breach during Abramovich’s time as owner has concluded. However, many ongoing cases are awaiting an outcome`\
 https://nytimes.com/athletic/7122190/2026/03/16/chelsea-ban-man-city-charges/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7121058/2026/03/16/dodgers-kyle-tucker-second-base-
 **Norway Celebrates Its Big Oscar Win**\
 `“Sentimental Value,” set in Oslo, was named best international feature film. After a slew of negative news in Norway, it was a welcome victory.`\
 https://nytimes.com/2026/03/16/world/europe/norway-oscar-win-sentimental-value.html
-
-**Thunder triad of Isaiah Hartenstein, Jared McCain and Isaiah Joe fueling wins**\
-`Isaiah Hartenstein has become a key fixture for the Thunder on both ends, including his growing chemistry with their best shooters.`\
-https://nytimes.com/athletic/7121366/2026/03/16/hartenstein-mccain-joe-chemistry-thunder-timberwolves-nba/
-
-**The Athletic college baseball top 25: Arkansas back in the top 5, LSU drops out**\
-`Kentucky, Oregon and Arizona State replace Wake Forest, LSU and UTSA in this week's rankings. `\
-https://nytimes.com/athletic/7122274/2026/03/16/college-baseball-rankings-arkansas-lsu/
 
