@@ -1,3 +1,15 @@
+**Raptors might be tough and scrappy enough to be a version of last year's Pistons**\
+`The Raptors have pulled themselves out of a weeks-long funk, showing the toughness and confidence that defined them earlier in the season.`\
+https://nytimes.com/athletic/7121012/2026/03/15/toronto-raptors-detroit-pistons-toughness-playoffs-nba/
+
+**Conan O’Brien Delivers a Punchy Cold Open With His ‘Weapons’ Parody**\
+`In his second turn as Oscars host, his monologue wasn’t as loopy as last year’s, but he displayed a range of jokes — nerdy, topical and physical.`\
+https://nytimes.com/2026/03/15/movies/conan-o-brien-oscars-monologue.html
+
+**UConn, UCLA, Texas and South Carolina earn No. 1 seeds in women's NCAA Tournament**\
+`Will these teams make the Final Four for a second-straight season?`\
+https://nytimes.com/athletic/7120634/2026/03/15/uconn-ncaa-tournament-bracket-reveal/
+
 **Conan O’Brien Delivers a Punchy Cold Open With His ‘Weapons’ Parody**\
 `In his second turn as Oscars host, his monologue wasn’t as loopy as last year’s, but he displayed a range of jokes — nerdy, topical and physical.`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/conan-o-brien-oscars-monologue
