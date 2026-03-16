@@ -1,3 +1,7 @@
+**How the Makers of ‘Mr. Nobody Against Putin’ Addressed ‘an Ethical Minefield’**\
+`The documentary about Vladimir V. Putin’s wartime indoctrination of Russian schoolchildren won an Oscar at Sunday’s Academy Awards.`\
+https://nytimes.com/2026/03/16/world/europe/oscar-documentary-mr-nobody-against-putin.html
+
 **At Dance Reflections, Embodied Acts of Memory**\
 `Works by Soa Ratsifandrihana and Robin Orlin evoked Malagasy line dances and Zulu rickshaw drivers.`\
 https://nytimes.com/2026/03/16/arts/dance/dance-reflections-groove-we-wear-our-wheels-with-pride-robin-orlin.html
