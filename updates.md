@@ -1,3 +1,7 @@
+**2026 NCAA Tournament bracket picks: Why C.J. Moore has Michigan winning the title**\
+`Duke, Michigan and Arizona have put up historically good numbers — meaning favorites could dominate the Final Four again this March.`\
+https://nytimes.com/athletic/7094724/2026/03/15/mens-ncaa-tournament-2026-bracket-picks-all-games/
+
 **Raptors might be tough and scrappy enough to be a version of last year's Pistons**\
 `The Raptors have pulled themselves out of a weeks-long funk, showing the toughness and confidence that defined them earlier in the season.`\
 https://nytimes.com/athletic/7121012/2026/03/15/toronto-raptors-detroit-pistons-toughness-playoffs-nba/

@@ -1,3 +1,7 @@
+**2026 NCAA Tournament bracket picks: Why C.J. Moore has Michigan winning the title**\
+`Duke, Michigan and Arizona have put up historically good numbers — meaning favorites could dominate the Final Four again this March.`\
+https://nytimes.com/athletic/7094724/2026/03/15/mens-ncaa-tournament-2026-bracket-picks-all-games/
+
 **Raptors might be tough and scrappy enough to be a version of last year's Pistons**\
 `The Raptors have pulled themselves out of a weeks-long funk, showing the toughness and confidence that defined them earlier in the season.`\
 https://nytimes.com/athletic/7121012/2026/03/15/toronto-raptors-detroit-pistons-toughness-playoffs-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/15/style/oscars-red-carpet-best-dressed-
 **Dodgers agree to deal with Uniqlo as official field presenting partner: Sources**\
 `The Dodgers did not sell the naming rights to their ballpark and were not open to doing so throughout the process.`\
 https://nytimes.com/athletic/7120747/2026/03/15/dodger-stadium-field-presenting-partner-uniqlo/
-
-**All about the new Oscar for casting.**\
-`By Esther Zuckerman`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/all-about-the-new-oscar-for-casting
 
