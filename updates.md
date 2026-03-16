@@ -1,3 +1,15 @@
+**Greg Olsen, Kevin Burkhardt to reunite on Fox to call flag football event**\
+`The Fanatics Flag Football Classic was moved from Riyadh to L.A.`\
+https://nytimes.com/athletic/7123514/2026/03/16/greg-olsen-kevin-burkhardt-fox-flag-football-tom-brady/
+
+**Inside the Democratic Infighting in Illinois**\
+`We talked to our Peoria-born reporter about Primary Day in what he claims is America’s best state.`\
+https://nytimes.com/2026/03/16/us/politics/illinois-democrat-primary-brandon-herrera-mamdani.html
+
+**War Isn’t the Only Thing on Trump’s Mind**\
+`President Trump spoke to journalists for about 40 minutes before holding a news conference on Monday, offering a glimpse into his priorities.`\
+https://nytimes.com/2026/03/16/us/politics/trump-news-conference-kennedy-center-iran.html
+
 **A Predictable Problem**\
 `Iran’s closure of the Strait of Hormuz, a well-known problem, appears to have caught Trump off guard.`\
 https://nytimes.com/2026/03/16/world/iran-hormuz-oil-oscars-iceland.html
