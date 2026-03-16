@@ -1,3 +1,7 @@
+**Sacha Boisvert ready to prove himself with Blackhawks after leaving BU**\
+`Boisvert, who turns 20 on Tuesday, arrived in Chicago excited to start his pro career. Here's what the young forward had to say.`\
+https://nytimes.com/athletic/7123875/2026/03/16/sacha-boisvert-blackhawks-prospect-boston-university-contract/
+
 **Gregory Bovino to Retire From Border Patrol**\
 `The outspoken border official drove the agency’s aggressive immigration policy in U.S. cities, including Minneapolis, until January.`\
 https://nytimes.com/2026/03/16/us/politics/gregory-bovino-retire-border-patrol.html
@@ -15,7 +19,7 @@ https://nytimes.com/2026/03/16/arts/design/nazi-art-looted-heirs-recovery.html
 https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
 
 **Phillies' Johan Rojas loses appeal, suspended 80 games for PED violation**\
-`Rojas has been suspended 80 games after testing positive for Boldenone, a banned substance. He is not allowed to play until late June.`\
+`Rojas tested positive for boldenone, a banned substance. He is not allowed to play until late June.`\
 https://nytimes.com/athletic/7113526/2026/03/16/johan-rojas-phillies-ped-suspension/
 
 **A Judge Strikes Down Kennedy’s Vaccine Policies**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123817/2026/03/16/nfl-free-agency-risers-2026-rams
 **Trump Is Trying to Sell War Like Steaks**\
 `The president is approaching the war in Iran as if he’s selling another Trump product, the writer E.J. Dionne Jr. says on “The Opinions.” But “selling war is a very serious business,” he adds, unlike selling Trump Steaks or Trump University.`\
 https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-like-steaks.html
-
-**Why Affordability Still Hurts Democrats**\
-`Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
 
