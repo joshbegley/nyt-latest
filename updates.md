@@ -1,3 +1,7 @@
+**Word of the Day: cultivate**\
+`This word has appeared in 356 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/16/learning/word-of-the-day-cultivate.html
+
 **‘One Battle After Another Was Totally Meh’: 3 Opinion Writers Size Up the Oscars**\
 `What did the academy get right? Wrong? What was just weird? Three culture fans discuss Hollywood’s biggest night.`\
 https://nytimes.com/2026/03/16/opinion/one-battle-after-another-was-totally-meh-3-opinion-writers-size-up-the-oscars.html
