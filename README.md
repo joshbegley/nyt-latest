@@ -1,10 +1,22 @@
+**Kennedy Center Board to Vote Monday on Trump’s Proposed Closure**\
+`The planned vote to close the center for renovations was listed on an agenda circulated to the center’s board of trustees on Sunday, less than a day before the meeting.`\
+https://nytimes.com/2026/03/15/us/politics/trump-kennedy-center-board-closure.html
+
+**Women's 2026 March Madness NCAA tournament forecast bracket**\
+``\
+https://nytimes.com/athletic/7090126/2026/03/15/womens-2026-march-madness-ncaa-tournament-forecast-bracket/
+
+**Jessie Buckley wins best actress.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/jessie-buckley-wins-best-actress
+
 **Michael B. Jordan Wins the Best Actor Oscar for ‘Sinners’**\
-`On Sunday, Chalamet became one of the youngest actors to ever win a best actor Oscar.`\
-https://nytimes.com/2026/03/15/movies/michael-b-jordan-wins-the-best-actor-oscar-for-sinners.html
+`It was the actor’s first nomination for an Academy Award.`\
+https://nytimes.com/2026/03/15/movies/michael-b-jordan-best-actor-oscar-win.html
 
 **Paul Thomas Anderson wins best director.**\
 `By Esther Zuckerman`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/paul-thomas-anderson-wins-best-director
+https://nytimes.com/2026/03/15/movies/paul-thomas-anderson-oscar-win-best-director.html
 
 **Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
 `Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/15/style/oscars-makeup-red-carpet-trend.html
 **Women's March Madness 2026 national title odds: UConn, UCLA, Texas early betting favorites**\
 `Breaking down the favorites, contenders and potential long shots of the women's NCAA Tournament.`\
 https://nytimes.com/athletic/7121284/2026/03/15/womens-march-madness-2026-national-title-odds-uconn-ucla-texas-early-betting-favorites-uconn-ucla-texas/
-
-**Autumn Durald Arkapaw makes history as the first woman to win best cinematography.**\
-`By Melena Ryzik`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
-
-**A Surprising Oscars Tie Is the Seventh in Academy Awards History**\
-`In 1969, Katharine Hepburn and Barbra Streisand each received an Oscar in the best actress category.`\
-https://nytimes.com/2026/03/15/movies/oscar-tie-history-academy-awards.html
-
-**MLB players vs. minor leaguers? Midseason exhibitions could come in 2028**\
-`Under the current L.A. Olympics schedule, no MLB games would be played for around 10 days in 2028. `\
-https://nytimes.com/athletic/7121246/2026/03/15/olympics-effects-on-2028-mlb-schedule/
 

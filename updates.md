@@ -1,3 +1,15 @@
+**Michael B. Jordan Wins the Best Actor Oscar for ‘Sinners’**\
+`On Sunday, Chalamet became one of the youngest actors to ever win a best actor Oscar.`\
+https://nytimes.com/2026/03/15/movies/michael-b-jordan-wins-the-best-actor-oscar-for-sinners.html
+
+**Paul Thomas Anderson wins best director.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/paul-thomas-anderson-wins-best-director
+
+**Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
+`Wallace recorded a hat trick in Sunday's gold medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
+https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
+
 **Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
 `Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
 https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/

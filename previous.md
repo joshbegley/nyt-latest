@@ -1,9 +1,17 @@
+**Michael B. Jordan Wins the Best Actor Oscar for ‘Sinners’**\
+`On Sunday, Chalamet became one of the youngest actors to ever win a best actor Oscar.`\
+https://nytimes.com/2026/03/15/movies/michael-b-jordan-wins-the-best-actor-oscar-for-sinners.html
+
+**Paul Thomas Anderson wins best director.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/paul-thomas-anderson-wins-best-director
+
 **Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
 `Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
 https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/
 
 **Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
-`Wallace recorded a hat trick in Sunday's gold-medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
+`Wallace recorded a hat trick in Sunday's gold medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
 https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
 
 **2026 women's March Madness bracket picks: Why Chantel Jennings picked UConn to win it all**\
@@ -29,13 +37,4 @@ https://nytimes.com/2026/03/15/movies/oscar-tie-history-academy-awards.html
 **MLB players vs. minor leaguers? Midseason exhibitions could come in 2028**\
 `Under the current L.A. Olympics schedule, no MLB games would be played for around 10 days in 2028. `\
 https://nytimes.com/athletic/7121246/2026/03/15/olympics-effects-on-2028-mlb-schedule/
-
-**Play The Athletic’s 2026 March Madness prop bets game**\
-`Think you have what it takes to predict March Madness? Perfect brackets are one thing, but can you also correctly answer questions that extend beyond the sidelines and provide further nuttiness to the NCAA Tournament season?
-Trade in that leather-wrapped orb for a crystal ball, friends, and take The Athletic’s March Madness Prediction Challenge.`\
-https://nytimes.com/athletic/7090264/2026/03/15/play-the-athletics-2026-march-madness-prop-bets-game/
-
-**A Rare Oscars Tie Made for Hectic Moments Onstage**\
-`“I’m not joking,” Kumail Nanjiani said while presenting the award for best live action short film.`\
-https://nytimes.com/2026/03/15/movies/oscars-tie-two-people-exchanging-saliva-singers.html
 
