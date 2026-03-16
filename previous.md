@@ -1,3 +1,11 @@
+**Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
+`Wallace recorded a hat trick in Sunday's gold-medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
+https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
+
+**2026 women's March Madness bracket picks: Why Chantel Jennings picked UConn to win it all**\
+`Who will win the women's NCAA Tournament? Check our expert's predictions.`\
+https://nytimes.com/athletic/7120037/2026/03/15/2026-womens-march-madness-bracket-picks-chantel-jennings/
+
 **Absent From the Red Carpet? Dramatic Makeup.**\
 `On the Oscars red carpet, many celebrities opted for subtle pops of color over dramatic, high-glam makeup.`\
 https://nytimes.com/2026/03/15/style/oscars-makeup-red-carpet-trend.html
@@ -30,12 +38,4 @@ https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/a
 **Giannis Antetokounmpo hurts knee on fall but bristles at concern: 'I do trust my body'**\
 `Despite this latest injury, Antetokounmpo bristled at the idea of losing trust in his body to make moves he normally makes on the floor.`\
 https://nytimes.com/athletic/7120808/2026/03/15/giannis-antetokounmpo-season-injury-woes-bucks-nba/
-
-**On Selection Sunday's biggest stage, Bruce Pearl loses and college basketball wins**\
-`Miami (Ohio) is in. Auburn is out. And Bruce Pearl will not be going anywhere.`\
-https://nytimes.com/athletic/7121132/2026/03/15/mens-march-madness-selection-show-bruce-pearl/
-
-**Barbra Streisand Honors Robert Redford at Oscars**\
-`Streisand and Redford built a lengthy friendship after acting together in 1973’s “The Way We Were.”`\
-https://nytimes.com/2026/03/15/movies/barbra-streisand-robert-redford-oscars.html
 

@@ -1,3 +1,11 @@
+**Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
+`Wallace recorded a hat trick in Sunday's gold-medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
+https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
+
+**2026 women's March Madness bracket picks: Why Chantel Jennings picked UConn to win it all**\
+`Who will win the women's NCAA Tournament? Check our expert's predictions.`\
+https://nytimes.com/athletic/7120037/2026/03/15/2026-womens-march-madness-bracket-picks-chantel-jennings/
+
 **Autumn Durald Arkapaw makes history as the first woman to win best cinematography.**\
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
