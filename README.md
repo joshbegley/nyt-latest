@@ -1,3 +1,7 @@
+**How to watch Spurs vs. Clippers: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Los Angeles Clippers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7123289/2026/03/16/spurs-vs-clippers-stream-how-to-watch-march-16/
+
 **How to watch Lakers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7123283/2026/03/16/lakers-vs-rockets-stream-how-to-watch-march-16/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
 **‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**\
 `After the hit song from “KPop Demon Hunters” made Oscars history, a snare drum and a crashing cymbal mercilessly drowned out the winners.`\
 https://nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html
-
-**The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
-`Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
-https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/
 
