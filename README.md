@@ -1,3 +1,7 @@
+**Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
+`Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
+https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/
+
 **Trump Defends Need for Kennedy Center Renovation Project**\
 `Ahead of a vote on whether to close the center for two years of construction, the president criticized its previous financial management and physical condition.`\
 https://nytimes.com/2026/03/16/arts/design/kennedy-center-renovations-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-openi
 **How to watch Mammoth vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122991/2026/03/16/mammoth-vs-stars-stream-how-to-watch-march-16/
-
-**John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
-`Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
-https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
 
