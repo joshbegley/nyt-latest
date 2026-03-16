@@ -1,3 +1,7 @@
+**Fulham fans and memes of cheeseboards on trains: How much truth is in them?**\
+`Viral tweets suggest Fulham fans are brie-eating Champagne quaffers. But is it really true? Tim Spiers went to find out...`\
+https://nytimes.com/athletic/7119601/2026/03/16/fulham-cheeseboards-train-viral-truth/
+
 **The War Is Making It Harder to Keep the Lights On, 2,000 Miles Away**\
 `Bangladesh is taking steps to conserve electricity, which its factories need to keep stitching together the world’s clothing.`\
 https://nytimes.com/2026/03/16/business/iran-bangladesh-imported-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-t
 **Free speech and wars are noted from the Oscars stage.**\
 `By Matt Stevens`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
-
-**UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
-`Are UConn and UCLA on a collision course for the national title game? The Huskies blew them out in the Final Four last season.`\
-https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
 

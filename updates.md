@@ -1,3 +1,7 @@
+**Fulham fans and memes of cheeseboards on trains: How much truth is in them?**\
+`Viral tweets suggest Fulham fans are brie-eating Champagne quaffers. But is it really true? Tim Spiers went to find out...`\
+https://nytimes.com/athletic/7119601/2026/03/16/fulham-cheeseboards-train-viral-truth/
+
 **The War Is Making It Harder to Keep the Lights On, 2,000 Miles Away**\
 `Bangladesh is taking steps to conserve electricity, which its factories need to keep stitching together the world’s clothing.`\
 https://nytimes.com/2026/03/16/business/iran-bangladesh-imported-gas.html
