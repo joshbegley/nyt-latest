@@ -1,3 +1,7 @@
+**‘This is Not Our War’: Europe and U.K. Push Back Against Trump’s Demands**\
+`While some European countries said they were discussing ways to help reopen the Strait of Hormuz, several rejected President Trump’s calls to send warships.`\
+https://nytimes.com/2026/03/16/world/europe/europe-iran-war-trump-hormuz-warships.html
+
 **The Politics of ‘One Battle After Another’ Are Clear on One Point**\
 `Teyana Taylor’s character of Perfidia Beverly Hills is the most radical part of Paul Thomas Anderson’s Oscar-winning movie.`\
 https://nytimes.com/2026/03/16/movies/one-battle-after-another-black-sexuality.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7110011/2026/03/16/blackhawks-sacha-boisvert-contra
 **Do You Recognize These Lines From Great Irish Poets?**\
 `Try this short quiz on some of Ireland’s most memorable verses from its celebrated poets.`\
 https://nytimes.com/interactive/2026/03/16/books/review/irish-poetry-quiz.html
-
-**Inside the Governors Ball 2026 Oscars Party**\
-`Michael B. Jordan, Jessie Buckley, Paul Thomas Anderson, Leonardo DiCaprio and other nominees and winners celebrated at the official Academy Awards after-party.`\
-https://nytimes.com/2026/03/16/movies/governors-ball-oscars-after-party.html
 
