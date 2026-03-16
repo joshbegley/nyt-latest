@@ -1,3 +1,7 @@
+**UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
+`Are UConn and UCLA on a collision course for the national title game? The Huskies blew them out in the Final Four last season.`\
+https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
+
 **17 Unforgettable Looks at the Oscars**\
 `Jewel-tone gowns, bumblebee brooches, overalls and more.`\
 https://nytimes.com/2026/03/15/style/oscars-red-carpet-2026.html
