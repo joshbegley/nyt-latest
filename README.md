@@ -1,3 +1,7 @@
+**Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
+`The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches`\
+https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
+
 **Why Trump’s Hormuz Problem Is Going Global**\
 `President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
 https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/climate/national-parks-removal-displays.html
 **How USMNT players, after 2022 kit rebellion, took control of their 2026 World Cup jerseys**\
 `Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
 https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
-
-**Canada had no new kits at the 2022 World Cup, so it's swinging big in 2026**\
-`Canada missed its chance to make a mark on the global stage in 2022. It's looking to make up for that and then some in 2026`\
-https://nytimes.com/athletic/7121409/2026/03/16/canada-2026-world-cup-kits-jerseys-nike-photos/
 
