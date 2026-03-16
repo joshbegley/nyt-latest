@@ -1,3 +1,7 @@
+**The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
+`Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
+https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/
+
 **Trump Claims to Have Reversed a House Republican’s Terminal Diagnosis**\
 `The president leaned on House Speaker Mike Johnson to name a Florida Republican whose grave prognosis was imperiling the party’s already slim voting margin. Both said his prospects had improved.`\
 https://nytimes.com/2026/03/16/us/politics/trump-neal-dunn-terminal-diagnosis-johnson.html
@@ -34,8 +38,4 @@ https://nytimes.com/card/2026/03/16/world/asia/south-korea-strawberry-farming
 **Darius Slay, 6-time Pro Bowl CB with Lions and Eagles, announces retirement**\
 `Slay had 28 career interceptions and was named first-team All-Pro in 2017 with the Lions.`\
 https://nytimes.com/athletic/7122999/2026/03/16/darius-slay-retires-lions-eagles/
-
-**The 10 most likely women’s NCAA Tournament upsets for March Madness 2026**\
-`One team in particular looks poised to make an upset splash — if they can get out of the First Four.`\
-https://nytimes.com/athletic/7122807/2026/03/16/womens-march-madness-2026-upsets-first-round/
 
