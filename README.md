@@ -1,3 +1,7 @@
+**Trump Hits Out at Allies After Cool Response to Requests for War Ships**\
+`Australia, Germany and Japan said they weren’t planning to participate in efforts to reopen the Strait of Hormuz. President Trump said his call for help was really a loyalty test.`\
+https://nytimes.com/2026/03/16/world/middleeast/trump-hits-out-at-allies-after-cool-response-to-requests-for-war-ships.html
+
 **USF coach Bryan Hodgson gets a March Madness moment his father can see live**\
 `A first-round site of Buffalo, N.Y., for Hodgson's first NCAA Tournament felt almost like divine intervention.`\
 https://nytimes.com/athletic/7123580/2026/03/16/usf-coach-bryan-hodgson-march-madness-father-moment/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/travel/tsa-airport-delays-shutdown.html
 **Justin Fields trade analysis: How new Chiefs QB fits with Patrick Mahomes, K.C.**\
 `Here's what the Chiefs see in Fields, the five-year veteran quarterback they acquired in a trade with the New York Jets.`\
 https://nytimes.com/athletic/7123293/2026/03/16/chiefs-justin-fields-trade-analysis/
-
-**The Grand Canyon I Never Got to See**\
-`I thought I’d always have the chance to see the rare beauty of the secluded North Rim. But after a devastating wildfire, I returned to a park forever changed.`\
-https://nytimes.com/interactive/2026/03/16/magazine/grand-canyons-north-rim-wildfire.html
 
