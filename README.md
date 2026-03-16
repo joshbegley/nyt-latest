@@ -6,7 +6,7 @@ https://nytimes.com/2026/03/15/style/oscars-makeup-red-carpet-trend.html
 `Breaking down the favorites, contenders and potential long shots of the women's NCAA Tournament.`\
 https://nytimes.com/athletic/7121284/2026/03/15/womens-march-madness-2026-national-title-odds-uconn-ucla-texas-early-betting-favorites-uconn-ucla-texas/
 
-**Autumn Durald Arkapaw makes history as the first woman of color to win best cinematography.**\
+**Autumn Durald Arkapaw makes history as the first woman to win best cinematography.**\
 `By Melena Ryzik`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
 
