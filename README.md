@@ -1,3 +1,11 @@
+**Manchester United must enjoy this moment and savour Casemiro, Carrick and Fernandes**\
+`The months ahead will decide whether next season’s United looks like this season’s United and if those key to their revival are still around`\
+https://nytimes.com/athletic/7120455/2026/03/16/manchester-united-casemiro-carrick-bruno/
+
+**Max Dowman is becoming a global story – the real work of protecting him begins now**\
+`How will a 16-year-old boy cope with pressure, scrutiny, success and failure?`\
+https://nytimes.com/athletic/7119788/2026/03/16/max-dowman-arsenal-prodigy-protection/
+
 **'I'm working to get back': Steph Curry still wants to play this season**\
 `Curry wants to return to the court because the Warriors don't know how many postseason runs they have left.`\
 https://nytimes.com/athletic/7121634/2026/03/16/steph-curry-warriors-injury-return-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/16/opinion/iran-war-us-israel-mideast-transformation
 **This is what happened on March 15.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-15
-
-**The 10 most likely men's NCAA tournament upsets for March Madness 2026**\
-`McNeese, VCU and High Point: We're sizing you up for glass slippers.`\
-https://nytimes.com/athletic/7121264/2026/03/16/march-madness-upsets-ncaa-tournament-2026-10-most-likely/
-
-**How concerned should the Wild be after recent home slump? Takeaways**\
-`The Wild started the game strong, but gave up three goals in the second period to the Leafs for a deficit they couldn't quite overcome.`\
-https://nytimes.com/athletic/7121643/2026/03/16/wild-home-slump-tarasenko-defense-maple-leafs/
 
