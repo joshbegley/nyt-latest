@@ -1,3 +1,7 @@
+**Why Republicans are Changing Course on Immigration**\
+`What did House Speaker Mike Johnson mean when he talked about a “course correction” in the Trump administration’s deportation agenda? Our White House correspondent Zolan Kanno-Youngs analyzes how the message around deportation is changing.`\
+https://nytimes.com/video/us/politics/100000010769509/why-trumps-immigration-policy-is-becoming-unpopular-with-voters.html
+
 **Fifth Member of Iranian Soccer Team Reverses Decision on Asylum**\
 `Five of the seven members of the Iranian women’s national team who originally sought asylum in Australia after a tournament have changed their minds.`\
 https://nytimes.com/2026/03/16/world/middleeast/iran-soccer-team-asylum-australia.html

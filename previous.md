@@ -1,3 +1,7 @@
+**Why Republicans are Changing Course on Immigration**\
+`What did House Speaker Mike Johnson mean when he talked about a “course correction” in the Trump administration’s deportation agenda? Our White House correspondent Zolan Kanno-Youngs analyzes how the message around deportation is changing.`\
+https://nytimes.com/video/us/politics/100000010769509/why-trumps-immigration-policy-is-becoming-unpopular-with-voters.html
+
 **Fifth Member of Iranian Soccer Team Reverses Decision on Asylum**\
 `Five of the seven members of the Iranian women’s national team who originally sought asylum in Australia after a tournament have changed their minds.`\
 https://nytimes.com/2026/03/16/world/middleeast/iran-soccer-team-asylum-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122455/2026/03/16/nba-suns-mat-ishbia-lawsuit-medi
 **‘This Is Not Our War’: Europe and U.K. Push Back Against Trump’s Demands**\
 `While some European countries said they were discussing ways to help reopen the Strait of Hormuz, several rejected President Trump’s calls to send warships.`\
 https://nytimes.com/2026/03/16/world/europe/europe-iran-war-trump-hormuz-warships.html
-
-**The Politics of ‘One Battle After Another’ Are Clear on One Point**\
-`Teyana Taylor’s character of Perfidia Beverly Hills is the most radical part of Paul Thomas Anderson’s Oscar-winning movie.`\
-https://nytimes.com/2026/03/16/movies/one-battle-after-another-black-sexuality.html
 
