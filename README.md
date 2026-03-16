@@ -1,3 +1,11 @@
+**College Basketball Crown unveils eight-team field for Year 2 as NIT alternative**\
+`Teams that advance in the Crown earn name, image and likeness money for their players. Nebraska received $300,000 for winning last year.`\
+https://nytimes.com/athletic/7123757/2026/03/16/college-basketball-crown-field-bracket-nit/
+
+**Scoop City: Early free agency risers**\
+`Today, teams and units trending up after the first week of free agency, a list that includes Patrick Mahomes and ... the Raiders`\
+https://nytimes.com/athletic/7123817/2026/03/16/nfl-free-agency-risers-2026-rams-chiefs/
+
 **Trump Is Trying to Sell War Like Steaks**\
 `The president is approaching the war in Iran as if he’s selling another Trump product, the writer E.J. Dionne Jr. says on “The Opinions.” But “selling war is a very serious business,” he adds, unlike selling Trump Steaks or Trump University.`\
 https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-like-steaks.html
@@ -6,7 +14,7 @@ https://nytimes.com/video/opinion/100000010775353/trump-is-trying-to-sell-war-li
 `Affordability is Democrats’ new buzzword, the Republican pollster Kristen Soltis Anderson says. But what’s their plan to actually lower prices? She explains on “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010771238/why-affordability-still-hurts-democrats.html
 
-**As NBA eyes expansion in Seattle and Las Vegas, how will it get done?**\
+**How NBA expansion to Seattle, Vegas would have a seismic impact on the league**\
 `From expansion drafts to conference realignment to playoff changes, adding two teams to the NBA is complicated.`\
 https://nytimes.com/athletic/7123704/2026/03/16/nba-expansion-next-steps-seattle-las-vegas/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/illinois-democrat-primary-brandon-her
 **War Isn’t the Only Thing on Trump’s Mind**\
 `President Trump spoke to journalists for about 40 minutes before holding a news conference on Monday, offering a glimpse into his priorities.`\
 https://nytimes.com/2026/03/16/us/politics/trump-news-conference-kennedy-center-iran.html
-
-**A Predictable Problem**\
-`Iran’s closure of the Strait of Hormuz, a well-known problem, appears to have caught Trump off guard.`\
-https://nytimes.com/2026/03/16/world/iran-hormuz-oil-oscars-iceland.html
-
-**Team USA closer Mason Miller may not be available to pitch in World Baseball Classic final**\
-`Miller has secured saves in two of the United States’ victories.`\
-https://nytimes.com/athletic/7123613/2026/03/16/mason-miller-world-baseball-classic-final-usa/
 
