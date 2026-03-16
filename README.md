@@ -1,3 +1,7 @@
+**Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
+`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a Dominican Republic lineup stacked with sluggers.`\
+https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
+
 **Bryson Stott shifted his hands last season, and he's still seeing the rewards**\
 `Stott's adjustments at the plate during last season's second half have made him a better hitter — one who embraces his pull-side. `\
 https://nytimes.com/athletic/7113517/2026/03/16/phillies-bryson-stott-hitting-adjustments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120844/2026/03/16/reds-roster-projection-3-0/
 **New Perreault, Zibanejad, Lafrenière top line offers promise for Rangers' future**\
 `Even with the season circling the drain, the new-look top line has the trio playing their best hockey of the season.`\
 https://nytimes.com/athletic/7119826/2026/03/16/rangers-top-line-perreault-zibanejad-lafreniere-communication/
-
-**Leafs need another leader with a vision more than ever: Monday Morning Leafs Report**\
-`This offseason, the Leafs' most pressing issue is following in their own 2014 footsteps to find someone with a plan.`\
-https://nytimes.com/athletic/7120051/2026/03/16/maple-leafs-shanahan-president-leadership-vision-pelley-treliving/
 
