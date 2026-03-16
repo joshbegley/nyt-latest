@@ -1,3 +1,11 @@
+**At Dance Reflections, Embodied Acts of Memory**\
+`Works by Soa Ratsifandrihana and Robin Orlin evoked Malagasy line dances and Zulu rickshaw drivers.`\
+https://nytimes.com/2026/03/16/arts/dance/dance-reflections-groove-we-wear-our-wheels-with-pride-robin-orlin.html
+
+**In Choosing ‘Epic Fury,’ Trump Names a War and Defines His Presidency**\
+`The branding of the U.S. military operation against Iran is a quintessentially Trumpian choice for a leader whose tenure has been marked by anger.`\
+https://nytimes.com/2026/03/16/us/politics/trump-operation-epic-fury-anger.html
+
 **Padres' Joe Musgrove to begin season on injured list**\
 `The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
 https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
