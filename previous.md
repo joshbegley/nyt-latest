@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump Administration’s Third-Country Deportations, for Now**\
+`The administration’s policy of deporting people to South Sudan, Rwanda and other distant countries has been a striking attempt to create uncertainty for immigrants.`\
+https://nytimes.com/2026/03/16/us/politics/trump-deportations-appeals-ruling.html
+
+**Why these three teams are on upset watch in March Madness 2026**\
+`Taking risks is necessary to come away a March Madness bracket champion. Here are three top-seeded teams that could falter early on. `\
+https://nytimes.com/athletic/7122522/2026/03/16/march-madness-2026-top-seeds-upset-watch/
+
 **Weighing Risks vs. Gains in Iran**\
 `Readers respond to a column by Nicholas Kristof. Also: Artificial intelligence pitfalls in school.`\
 https://nytimes.com/2026/03/16/opinion/iran-war-risks-gains.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7120064/2026/03/16/max-dowman-arsenal-premier-leagu
 **In Deep-Red Idaho, a Republican Rift Over Schools and ‘Parental Choice’**\
 `Does “choice” in Idaho mean vouchers for private-school tuition or publicly funded remote learning that has brought AP classes and advanced math to the state’s rural reaches?`\
 https://nytimes.com/2026/03/16/us/idaho-education-republican-rift.html
-
-**Manchester United academy head Steve Torpey: 'I want this to be the greatest academy ever'**\
-`Manchester United's academy director explains how he plans to improve what has come before at a club "built on youth"`\
-https://nytimes.com/athletic/7122058/2026/03/16/manchester-united-steve-torpey-greatest-academy-ever/
-
-**Owners expected to take 'next step' on possible expansion to Seattle, Las Vegas**\
-`The Board of Governors meetings is the most significant step in the long-awaited push to expand the NBA to 32 teams.`\
-https://nytimes.com/athletic/7122487/2026/03/16/nba-expansion-board-of-govenors-meeting-seattle-las-vegas/
 

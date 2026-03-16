@@ -1,3 +1,11 @@
+**Appeals Court Allows Trump Administration’s Third-Country Deportations, for Now**\
+`The administration’s policy of deporting people to South Sudan, Rwanda and other distant countries has been a striking attempt to create uncertainty for immigrants.`\
+https://nytimes.com/2026/03/16/us/politics/trump-deportations-appeals-ruling.html
+
+**Why these three teams are on upset watch in March Madness 2026**\
+`Taking risks is necessary to come away a March Madness bracket champion. Here are three top-seeded teams that could falter early on. `\
+https://nytimes.com/athletic/7122522/2026/03/16/march-madness-2026-top-seeds-upset-watch/
+
 **Weighing Risks vs. Gains in Iran**\
 `Readers respond to a column by Nicholas Kristof. Also: Artificial intelligence pitfalls in school.`\
 https://nytimes.com/2026/03/16/opinion/iran-war-risks-gains.html
