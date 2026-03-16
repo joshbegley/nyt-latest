@@ -1,3 +1,11 @@
+**Weighing Risks vs. Gains in Iran**\
+`Readers respond to a column by Nicholas Kristof. Also: Artificial intelligence pitfalls in school.`\
+https://nytimes.com/2026/03/16/opinion/iran-war-risks-gains.html
+
+**As Israel Expands Ground Assault in Lebanon, One Strategic Town Resists**\
+`The town of Khiam’s location on high ground just a few miles north of the border between Israel and Lebanon has made it coveted territory over multiple conflicts.`\
+https://nytimes.com/2026/03/16/world/middleeast/lebanon-strategic-town-khiam.html
+
 **Review: A Belated New York Arrival for a Broadway Operetta**\
 `Erich Wolfgang Korngold’s “The Silent Serenade,” written in the 1940s, was given its English-language, United States premiere by Mannes Opera.`\
 https://nytimes.com/2026/03/16/arts/music/mannes-opera-silent-serenade-review.html
