@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Edward Wong and Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon/heres-the-latest
+
+**Iran War Live Updates: Trump Pressures Countries to Open Vital Shipping Route**\
+`As fighting in the Middle East entered its third week, President Trump warned that failing to help secure the Strait of Hormuz would be “very bad for the future of NATO.”`\
+https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon
+
+**Liverpool were shambolic against Spurs. Slot cannot afford another game like this**\
+`Tedious football, sloppy errors, wretched game management... the problems are piling up for Liverpool's under-fire head coach`\
+https://nytimes.com/athletic/7120380/2026/03/16/arne-slot-liverpool-pressure-fans/
+
 **Word of the Day: cultivate**\
 `This word has appeared in 356 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/16/learning/word-of-the-day-cultivate.html

@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By Edward Wong and Farnaz Fassihi`\
+https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon/heres-the-latest
+
+**Iran War Live Updates: Trump Pressures Countries to Open Vital Shipping Route**\
+`As fighting in the Middle East entered its third week, President Trump warned that failing to help secure the Strait of Hormuz would be “very bad for the future of NATO.”`\
+https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon
+
+**Liverpool were shambolic against Spurs. Slot cannot afford another game like this**\
+`Tedious football, sloppy errors, wretched game management... the problems are piling up for Liverpool's under-fire head coach`\
+https://nytimes.com/athletic/7120380/2026/03/16/arne-slot-liverpool-pressure-fans/
+
 **Word of the Day: cultivate**\
 `This word has appeared in 356 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/16/learning/word-of-the-day-cultivate.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7117739/2026/03/16/yankuba-minteh-brighton-performa
 **How Everton came so close to the perfect away performance at Arsenal**\
 `Saturday's game will be remembered for Max Dowman and the late drama, but Everton’s wider performance should not be lost in the mayhem`\
 https://nytimes.com/athletic/7119489/2026/03/16/everton-away-performance-arsenal-moyes/
-
-**West Ham's new-found defensive solidity bodes well in struggle against the drop**\
-`A back-line that was once so porous has been steeled by Axel Disasi's arrival, with Konstantinos Mavropanos' commitment typifying new belief`\
-https://nytimes.com/athletic/7118488/2026/03/16/west-ham-defence-nuno-mavropanos-todibo/
-
-**Nottingham Forest simply must start scoring goals – their Premier League status depends on it**\
-`The relegation-threatened side drew another blank on Sunday — an issue that has plagued them all season and that shows no signs of abating`\
-https://nytimes.com/athletic/7120358/2026/03/16/nottingham-forest-premier-league-relegation/
-
-**Villa are giving away familiar goals in cheap fashion. It could cost them a Champions League spot**\
-`Unai Emery's side were exposed at Old Trafford on Sunday, they have to stop making the same mistakes`\
-https://nytimes.com/athletic/7120054/2026/03/16/aston-villa-emery-manchester-united/
 
