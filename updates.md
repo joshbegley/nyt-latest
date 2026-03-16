@@ -1,3 +1,7 @@
+**Israel Denies That It Is Running Out of Missile Interceptors**\
+`Israeli military says it had prepared for a prolonged conflict after a news report said its supplies of ballistic missile interceptors were running “critically low.”`\
+https://nytimes.com/2026/03/16/world/middleeast/israel-interceptors.html
+
 **Toasting Oscars Night With Alysa Liu and Dua Lipa Under Elton John’s Giant Tent**\
 `At his annual fund-raiser, the rock star hosted Keke Palmer, Donatella Versace and Brooklyn Beckham for a private Oscars watch party in West Hollywood.`\
 https://nytimes.com/2026/03/16/style/elton-john-oscars-viewing-party.html
