@@ -1,3 +1,16 @@
+**There have now been seven ties in Oscars history.**\
+`In 1969, Katharine Hepburn and Barbra Streisand each received an Oscar in the best actress category.`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/oscar-tie-history-academy-awards
+
+**MLB players vs. minor leaguers? Midseason exhibitions could come in 2028**\
+`Under the current L.A. Olympics schedule, no MLB games would be played for 11 days in 2028. `\
+https://nytimes.com/athletic/7121246/2026/03/15/olympics-effects-on-2028-mlb-schedule/
+
+**Play The Athletic’s 2026 March Madness prop bets game**\
+`Think you have what it takes to predict March Madness? Perfect brackets are one thing, but can you also correctly answer questions that extend beyond the sidelines and provide further nuttiness to the NCAA Tournament season?
+Trade in that leather-wrapped orb for a crystal ball, friends, and take The Athletic’s March Madness Prediction Challenge.`\
+https://nytimes.com/athletic/7090264/2026/03/15/play-the-athletics-2026-march-madness-prop-bets-game/
+
 **A rare Oscars tie made for hectic moments onstage.**\
 `“I’m not joking,” Kumail Nanjiani said while presenting the award for best live action short film.`\
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/a-rare-oscars-tie-made-for-hectic-moments-onstage
@@ -22,19 +35,7 @@ https://nytimes.com/2026/03/15/movies/rob-reiner-oscars-tribute-billy-crystal.ht
 `Junior Caminero took reigning NL Cy Young Award winner Paul Skenes deep, and the pro-Dominican Republic crowd went into a frenzy. `\
 https://nytimes.com/athletic/7121227/2026/03/15/world-baseball-classic-dominican-republic-home-run-record/
 
-**Denny Hamlin gets emotional win in Las Vegas, his first since his father's death**\
-`Hamlin notched his 61st career victory, in the same place as his 60th, just months after the tragedy that took his father's life.`\
+**Denny Hamlin gets emotional win in Las Vegas, his first since father's death**\
+`Hamlin notched his 61st career victory in the same place as his 60th, just months after his father died in a house fire.`\
 https://nytimes.com/athletic/7121129/2026/03/15/denny-hamlin-nascar-las-vegas-win-takeaways/
-
-**Anna Wintour at the Oscars: In on the Joke, Out of Her Sunglasses**\
-`The Vogue empress presented alongside Anne Hathaway on Sunday evening for a not-so-subtle riff on “The Devil Wears Prada.”`\
-https://nytimes.com/2026/03/15/style/anna-wintour-oscars-anne-hathaway.html
-
-**Women’s March Madness bracket prep: Strengths, weaknesses for all 68 teams, outlooks and more**\
-`Follow our guide to help you fill out your bracket. `\
-https://nytimes.com/athletic/7118600/2026/03/15/womens-march-madness-68-team-previews-bracket-prep-2026/
-
-**2026 NCAA Tournament bracket picks: Why C.J. Moore has Michigan winning the title**\
-`Duke, Michigan and Arizona have put up historically good numbers — meaning favorites could dominate the Final Four again this March.`\
-https://nytimes.com/athletic/7094724/2026/03/15/mens-ncaa-tournament-2026-bracket-picks-all-games/
 
