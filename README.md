@@ -1,3 +1,11 @@
+**On Selection Sunday's biggest stage, Bruce Pearl loses and college basketball wins**\
+`Miami (Ohio) is in. Auburn is out. And Bruce Pearl will not be going anywhere.`\
+https://nytimes.com/athletic/7121132/2026/03/15/mens-march-madness-selection-show-bruce-pearl/
+
+**Barbra Streisand Honors Robert Redford at Oscars**\
+`Streisand and Redford built a lengthy friendship after acting together in 1973’s “The Way We Were.”`\
+https://nytimes.com/2026/03/15/movies/barbra-streisand-robert-redford-oscars.html
+
 **Actors From Rob Reiner Films Fill the Oscars Stage**\
 `Billy Crystal led a tribute to the director several months after he and his wife were murdered.`\
 https://nytimes.com/2026/03/15/movies/rob-reiner-oscars-tribute-billy-crystal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7121012/2026/03/15/toronto-raptors-detroit-pistons-
 **Conan O’Brien Delivers a Punchy Cold Open With His ‘Weapons’ Parody**\
 `In his second turn as Oscars host, his monologue wasn’t as loopy as last year’s, but he displayed a range of jokes — nerdy, topical and physical.`\
 https://nytimes.com/2026/03/15/movies/conan-o-brien-oscars-monologue.html
-
-**March Madness 2026 national title odds: Michigan, Duke early favorites, Arkansas rising**\
-`Breaking down favorites, contenders and long shots in the odds ahead of the 2026 tournament.`\
-https://nytimes.com/athletic/7121052/2026/03/15/march-madness-2026-national-title-odds-betting-favorites-michigan-duke-purdue/
-
-**What to know from Cameron Young's Players Championship victory**\
-`Young played the back nine Sunday in 33 strokes, bogey-free.`\
-https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-round-4-what-to-know-cameron-young/
 

@@ -1,3 +1,7 @@
+**Actors From Rob Reiner Films Fill the Oscars Stage**\
+`Billy Crystal led a tribute to the director several months after he and his wife were murdered.`\
+https://nytimes.com/2026/03/15/movies/rob-reiner-oscars-tribute-billy-crystal.html
+
 **Dominican Republic sets WBC home run record with record 15th blast**\
 `Junior Caminero took reigning NL Cy Young Award winner Paul Skenes deep, and the pro-Dominican Republic crowd went into a frenzy. `\
 https://nytimes.com/athletic/7121227/2026/03/15/world-baseball-classic-dominican-republic-home-run-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7121052/2026/03/15/march-madness-2026-national-titl
 **What to know from Cameron Young's Players Championship victory**\
 `Young played the back nine Sunday in 33 strokes, bogey-free.`\
 https://nytimes.com/athletic/7121079/2026/03/15/the-players-championship-2026-round-4-what-to-know-cameron-young/
-
-**Sean Penn Wins Best Supporting Actor but Opts for Ukraine, Not the Oscars**\
-`The actor has a history with the country’s president, Volodymyr Zelensky, and had been skipping awards ceremonies.`\
-https://nytimes.com/2026/03/15/movies/sean-penn-oscars.html
 
