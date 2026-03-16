@@ -26,13 +26,13 @@ https://nytimes.com/athletic/7120142/2026/03/16/tigers-roster-projection-kevin-m
 `From the scoring power of Arkansas' Darius Acuff Jr. to the chance at redemption for Houston's Emanuel Sharp, intriguing players abound.`\
 https://nytimes.com/athletic/7119814/2026/03/16/ncaa-tournament-march-madness-aj-dybantsa-darryn-peterson/
 
-**Red Sox not surprised Wilyer Abreu rose to the occasion in Venezuela's biggest moment**\
-`“Everyone knows what he can do, and now he’s just becoming a star,” Carlos Narváez said. “That’s who he is."`\
-https://nytimes.com/athletic/7120232/2026/03/16/wilyer-abreu-home-run-venezuela-wbc-semifinal-japan/
-
 **Reds roster projection 3.0: Hunter Greene injury gives others chance to start**\
 `Greene's absence until July changed the Reds' discussion from three pitchers competing for one starting spot to three competing for two.`\
 https://nytimes.com/athletic/7120844/2026/03/16/reds-roster-projection-3-0/
+
+**Red Sox not surprised Wilyer Abreu rose to the occasion in Venezuela's biggest moment**\
+`“Everyone knows what he can do, and now he’s just becoming a star,” Carlos Narváez said. “That’s who he is."`\
+https://nytimes.com/athletic/7120232/2026/03/16/wilyer-abreu-home-run-venezuela-wbc-semifinal-japan/
 
 **New Perreault, Zibanejad, Lafrenière top line offers promise for Rangers' future**\
 `Even with the season circling the drain, the new-look top line has the trio playing their best hockey of the season.`\
