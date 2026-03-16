@@ -1,3 +1,7 @@
+**17 Unforgettable Looks at the Oscars**\
+`Jewel-tone gowns, bumblebee brooches, overalls and more.`\
+https://nytimes.com/2026/03/15/style/oscars-red-carpet-2026.html
+
 **Savy King returns to Angel City for first NWSL game since cardiac incident**\
 `The defender had a shot on goal and a crucial tackle in her return to the NWSL.`\
 https://nytimes.com/athletic/7121517/2026/03/15/angel-city-defender-savy-king-return-cardiac-event/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/15/us/politics/trump-kennedy-center-board-closure.ht
 **Women's 2026 March Madness NCAA tournament forecast bracket**\
 ``\
 https://nytimes.com/athletic/7090126/2026/03/15/womens-2026-march-madness-ncaa-tournament-forecast-bracket/
-
-**Jessie Buckley Wins Best Actress for ‘Hamnet’**\
-`The actress closes out a season of wins in this category with an Academy Award.`\
-https://nytimes.com/2026/03/15/movies/jessie-buckley-oscars-hamnet.html
 
