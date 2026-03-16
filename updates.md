@@ -1,3 +1,7 @@
+**How USMNT players, after 2022 kit rebellion, took control of their 2026 World Cup jerseys**\
+`Go inside the making of the USA's new World Cup kits – which are a player-driven, direct response to the previous edition`\
+https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-design-kits-adams-pulisic-nike/
+
 **Arizona Diamondbacks streaming guide: How to watch games throughout 2026 season**\
 `The D-Backs should be fun to watch, but finding their games can be confusing. Here's your refresher on the TV and streaming options.`\
 https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-tv-how-to-watch-2026/
