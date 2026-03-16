@@ -1,3 +1,11 @@
+**Why Trump’s Hormuz Problem Is Going Global**\
+`President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
+https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html
+
+**Lowetide: What we’ve learned about the Oilers since NHL trade deadline**\
+`How are things looking for the Oilers in the early post-deadline games? Here's a look.`\
+https://nytimes.com/athletic/7120019/2026/03/16/edmonton-oilers-leon-draisaitl-connor-ingram-stats-standings/
+
 **Inside Real Madrid: Can Alvaro Arbeloa win something with kids?**\
 `Five Madrid youth players featured against Elche, in an encouraging — and canny — move from Arbeloa`\
 https://nytimes.com/athletic/7122032/2026/03/16/inside-real-madrid-alvaro-arbeloa-academy/

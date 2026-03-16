@@ -1,3 +1,11 @@
+**Why Trump’s Hormuz Problem Is Going Global**\
+`President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
+https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html
+
+**Lowetide: What we’ve learned about the Oilers since NHL trade deadline**\
+`How are things looking for the Oilers in the early post-deadline games? Here's a look.`\
+https://nytimes.com/athletic/7120019/2026/03/16/edmonton-oilers-leon-draisaitl-connor-ingram-stats-standings/
+
 **Inside Real Madrid: Can Alvaro Arbeloa win something with kids?**\
 `Five Madrid youth players featured against Elche, in an encouraging — and canny — move from Arbeloa`\
 https://nytimes.com/athletic/7122032/2026/03/16/inside-real-madrid-alvaro-arbeloa-academy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7120715/2026/03/16/usmnt-players-world-cup-jersey-d
 **Canada had no new kits at the 2022 World Cup, so it's swinging big in 2026**\
 `Canada missed its chance to make a mark on the global stage in 2022. It's looking to make up for that and then some in 2026`\
 https://nytimes.com/athletic/7121409/2026/03/16/canada-2026-world-cup-kits-jerseys-nike-photos/
-
-**Arizona Diamondbacks streaming guide: How to watch games throughout 2026 season**\
-`The D-Backs should be fun to watch, but finding their games can be confusing. Here's your refresher on the TV and streaming options.`\
-https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-tv-how-to-watch-2026/
-
-**Which March Madness favorites are upset-proof? Here's what history and analytics say**\
-`Did past contenders who played a similar way to this year's top teams make deep runs, or were they prone to upsets?`\
-https://nytimes.com/athletic/7111545/2026/03/16/march-madness-favorites-top-seed-comparisons/
 
