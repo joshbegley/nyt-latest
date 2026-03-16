@@ -1,3 +1,19 @@
+**How Tragedy, Wealth and Trump Shaped JB Pritzker**\
+`JB Pritzker, the governor of Illinois and a Trump antagonist, has become a national figure for Democrats. Where will that lead?`\
+https://nytimes.com/video/podcasts/100000010781281/how-tragedy-wealth-and-trump-shaped-jb-pritzker.html
+
+**7 Hours in a City? You’ve Got Time to Sightsee.**\
+`On a layover at the airport, the lounge may beckon, but in the right places, you can get into town and cap your vacation with a micro-vacation.`\
+https://nytimes.com/2026/03/16/travel/flight-layover-sightsee-tips.html
+
+**Dodger Details: Checking in on Kyle Tucker and the second-base battle**\
+`Hyeseong Kim looks like the narrow front-runner over Alex Freeland in the battle to start at second against right-handers.`\
+https://nytimes.com/athletic/7121058/2026/03/16/dodgers-kyle-tucker-second-base-update/
+
+**Norway Celebrates Its Big Oscar Win**\
+`“Sentimental Value,” set in Oslo, was named best international feature film. After a slew of negative news in Norway, it was a welcome victory.`\
+https://nytimes.com/2026/03/16/world/europe/norway-oscar-win-sentimental-value.html
+
 **Thunder triad of Isaiah Hartenstein, Jared McCain and Isaiah Joe fueling wins**\
 `Isaiah Hartenstein has become a key fixture for the Thunder on both ends, including his growing chemistry with their best shooters.`\
 https://nytimes.com/athletic/7121366/2026/03/16/hartenstein-mccain-joe-chemistry-thunder-timberwolves-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-lea
 **Why Trump’s Hormuz Problem Is Going Global**\
 `President Trump is getting little to no support so far for his call that other countries do their part to try to ease an energy crisis prompted by U.S.-Israeli attacks on Iran.`\
 https://nytimes.com/2026/03/16/business/dealbook/trump-hormuz-problem.html
-
-**Lowetide: What we’ve learned about the Oilers since NHL trade deadline**\
-`How are things looking for the Oilers in the early post-deadline games? Here's a look.`\
-https://nytimes.com/athletic/7120019/2026/03/16/edmonton-oilers-leon-draisaitl-connor-ingram-stats-standings/
-
-**Inside Real Madrid: Can Alvaro Arbeloa win something with kids?**\
-`Five Madrid youth players featured against Elche, in an encouraging — and canny — move from Arbeloa`\
-https://nytimes.com/athletic/7122032/2026/03/16/inside-real-madrid-alvaro-arbeloa-academy/
-
-**It’s Nice to See (Some) Actresses Wearing Dresses They Can Breathe In**\
-`It was the best trend on the Oscars red carpet.`\
-https://nytimes.com/2026/03/16/style/oscars-fashion-best-trend.html
-
-**Chukwuemeka receives first Austria call up after switching allegiance from England**\
-`For Austria coach Ralf Rangnick, Chukwuemeka's call up is the culmination of a two-year pursuit.`\
-https://nytimes.com/athletic/7122163/2026/03/16/carney-chukwuemeka-austria-englabd-borussia-dortmund/
 

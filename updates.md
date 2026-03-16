@@ -1,3 +1,19 @@
+**How Tragedy, Wealth and Trump Shaped JB Pritzker**\
+`JB Pritzker, the governor of Illinois and a Trump antagonist, has become a national figure for Democrats. Where will that lead?`\
+https://nytimes.com/video/podcasts/100000010781281/how-tragedy-wealth-and-trump-shaped-jb-pritzker.html
+
+**7 Hours in a City? You’ve Got Time to Sightsee.**\
+`On a layover at the airport, the lounge may beckon, but in the right places, you can get into town and cap your vacation with a micro-vacation.`\
+https://nytimes.com/2026/03/16/travel/flight-layover-sightsee-tips.html
+
+**Dodger Details: Checking in on Kyle Tucker and the second-base battle**\
+`Hyeseong Kim looks like the narrow front-runner over Alex Freeland in the battle to start at second against right-handers.`\
+https://nytimes.com/athletic/7121058/2026/03/16/dodgers-kyle-tucker-second-base-update/
+
+**Norway Celebrates Its Big Oscar Win**\
+`“Sentimental Value,” set in Oslo, was named best international feature film. After a slew of negative news in Norway, it was a welcome victory.`\
+https://nytimes.com/2026/03/16/world/europe/norway-oscar-win-sentimental-value.html
+
 **Chelsea handed suspended transfer ban, £10m fine for breaching PL rules**\
 `The ban is suspended over two years, meaning Chelsea will still be able to register senior players if they do not commit any other breaches.`\
 https://nytimes.com/athletic/7081285/2026/03/16/chelsea-transfer-ban-premier-league/
