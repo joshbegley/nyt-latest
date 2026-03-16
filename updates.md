@@ -1,3 +1,15 @@
+**Mbappe and Bellingham both included in Madrid squad for City game**\
+`Bellingham has been sidelined with a hamstring injury since February 1, while a lingering knee problem has kept Mbappe out since February 1.`\
+https://nytimes.com/athletic/7101373/2026/03/16/real-madrid-mbappe-bellingham-injury-update/
+
+**Inside Barcelona: Laporta voted back in, Camp Nou capacity grows, a new La Masia star steps up**\
+`Sunday's 5-2 home La Liga win over Sevilla came hours before Joan Laporta's success in the club's presidential election was confirmed`\
+https://nytimes.com/athletic/7121898/2026/03/16/barcelona-laporta-sevilla-la-liga-raphinha/
+
+**Tips for filling out your NCAA Tournament bracket from a college basketball expert**\
+`Want help picking a champion or identifying first-round upsets? Here's where to start with your March Madness bracket.`\
+https://nytimes.com/athletic/7121604/2026/03/16/march-madness-filling-out-bracket-tips-2026/
+
 **Jauan Jennings, Denico Autry among 10 available options for Ravens to consider**\
 `We list a handful of players who could help Baltimore fill some of its roster holes as it enters the second week of the new league year.`\
 https://nytimes.com/athletic/7119129/2026/03/16/ravens-best-available-free-agency-trade-targets/
