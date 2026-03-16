@@ -1,3 +1,7 @@
+**Weighing Risks vs. Gains in Iran**\
+`Readers respond to a column by Nicholas Kristof. Also: Artificial intelligence pitfalls in school.`\
+https://nytimes.com/2026/03/16/opinion/iran-war-risks-gains.html
+
 **As Israel Expands Ground Assault in Lebanon, One Strategic Town Resists**\
 `The town of Khiam’s location on high ground just a few miles north of the border between Israel and Lebanon has made it coveted territory over multiple conflicts.`\
 https://nytimes.com/2026/03/16/world/middleeast/lebanon-strategic-town-khiam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122058/2026/03/16/manchester-united-steve-torpey-g
 **Owners expected to take 'next step' on possible expansion to Seattle, Las Vegas**\
 `The Board of Governors meetings is the most significant step in the long-awaited push to expand the NBA to 32 teams.`\
 https://nytimes.com/athletic/7122487/2026/03/16/nba-expansion-board-of-govenors-meeting-seattle-las-vegas/
-
-**7 tips to help you own all of your March Madness bracket pools**\
-`Need help filling out your bracket? Look to history for how many upsets to pick and which seeds are usually the most vulnerable.`\
-https://nytimes.com/athletic/7100652/2026/03/16/march-madness-bracket-tips-advice-guide/
 
