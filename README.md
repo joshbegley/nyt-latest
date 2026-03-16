@@ -1,5 +1,9 @@
+**Cubs' Seiya Suzuki goes for MRI to determine extent of WBC injury**\
+`Suzuki was projected to help replace Kyle Tucker as Chicago's regular right fielder.`\
+https://nytimes.com/athletic/7123842/2026/03/16/cubs-seiya-suzuki-wbc-injury-japan/
+
 **Phillies' Johan Rojas loses appeal, suspended 80 games for PED violation**\
-`MLB announced Rojas has been suspended for 80 games for violating its PED policy. He is not allowed to play at any level until late June.`\
+`Rojas has been suspended 80 games after testing positive for Boldenone, a banned substance. He is not allowed to play until late June.`\
 https://nytimes.com/athletic/7113526/2026/03/16/johan-rojas-phillies-ped-suspension/
 
 **A Judge Strikes Down Kennedy’s Vaccine Policies**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/movies/a24-marty-supreme-chalamet-safdie.html
 **ICE Releases Columbia Protester Who Was Held For 1 Year**\
 `Leqaa Kordia, 33, had been held in a Texas facility, where she said her health had declined. She was arrested during a 2024 protest and then detained by ICE in March 2025.`\
 https://nytimes.com/2026/03/16/nyregion/ice-columbia-protester-leqaa-kordia.html
-
-**Greg Olsen, Kevin Burkhardt to reunite on Fox to call flag football event**\
-`The Fanatics Flag Football Classic was moved from Riyadh to L.A.`\
-https://nytimes.com/athletic/7123514/2026/03/16/greg-olsen-kevin-burkhardt-fox-flag-football-tom-brady/
 
