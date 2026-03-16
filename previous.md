@@ -1,3 +1,11 @@
+**Blown strike calls in Dominican WBC loss to Team USA prompt question: Is ABS coming?**\
+`Players and coaches hope the automatic ball-strike system will be introduced for the next World Baseball Classic.`\
+https://nytimes.com/athletic/7121843/2026/03/16/world-baseball-classic-automated-ball-strike-system/
+
+**Is This Cuddly, Big-Eared Rascal Leading Russia to Ruin?**\
+`Instead of obsessing over the fictional Cheburashka, Russians should be focused on more important things like the rebirth of a Russian empire, influential conservatives say.`\
+https://nytimes.com/2026/03/16/world/europe/russia-cheburashka-movie.html
+
 **Mbappe and Bellingham both included in Madrid squad for City game**\
 `Bellingham has been sidelined with a hamstring injury since February 1, while a lingering knee problem has kept Mbappe out since February 1.`\
 https://nytimes.com/athletic/7101373/2026/03/16/real-madrid-mbappe-bellingham-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7119116/2026/03/16/new-york-jets-projected-depth-ch
 **WBC semifinals explainer: Venezuela, Italy face off in battle of the giant slayers**\
 `This may not have been the semifinal matchup most were expecting, but Italy and Venezuela earned their place by beating the favorites.`\
 https://nytimes.com/athletic/7120698/2026/03/16/wbc-semifinals-explainer-italy-venezuela/
-
-**Men’s March Madness power rankings: The 16 teams most likely to win it all**\
-`The goal for every team, from Duke to Prairie View A&M, is to end the season with two wins in Indianapolis. Who is most likely to get there?`\
-https://nytimes.com/athletic/7121400/2026/03/16/mens-ncaa-tournament-march-madness-power-rankings/
-
-**Win-now? Rebuild? What NFL teams' initial free agency moves revealed**\
-`The first days of free agency can provide us invaluable clues about what NFL teams think about their team-building calendars.`\
-https://nytimes.com/athletic/7119743/2026/03/16/nfl-free-agency-2026-analysis-summary/
 

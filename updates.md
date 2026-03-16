@@ -1,3 +1,11 @@
+**Blown strike calls in Dominican WBC loss to Team USA prompt question: Is ABS coming?**\
+`Players and coaches hope the automatic ball-strike system will be introduced for the next World Baseball Classic.`\
+https://nytimes.com/athletic/7121843/2026/03/16/world-baseball-classic-automated-ball-strike-system/
+
+**Is This Cuddly, Big-Eared Rascal Leading Russia to Ruin?**\
+`Instead of obsessing over the fictional Cheburashka, Russians should be focused on more important things like the rebirth of a Russian empire, influential conservatives say.`\
+https://nytimes.com/2026/03/16/world/europe/russia-cheburashka-movie.html
+
 **Mbappe and Bellingham both included in Madrid squad for City game**\
 `Bellingham has been sidelined with a hamstring injury since February 1, while a lingering knee problem has kept Mbappe out since February 1.`\
 https://nytimes.com/athletic/7101373/2026/03/16/real-madrid-mbappe-bellingham-injury-update/
