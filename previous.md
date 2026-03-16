@@ -1,3 +1,35 @@
+**Will Crystal Palace ever have a better chance to try something different?**\
+`Oliver Glasner opted against experimenting to discomfort Leeds' 10 men and saw Palace end scoreless for an eighth time at home this season`\
+https://nytimes.com/athletic/7113774/2026/03/16/crystal-palace-glasner-mateta-strand-larsen-leeds/
+
+**Tottenham finally embodied an underdog attitude. It’s their first step towards survival**\
+`Yes, it wasn’t pretty at Anfield — but that doesn't matter. In their current position, Spurs must approach every game with this ethos`\
+https://nytimes.com/athletic/7120448/2026/03/16/tottenham-hotspur-premier-league-richarlison-tudor/
+
+**The old Leeds United might have capitulated at Palace. This Leeds is different**\
+`Daniel Farke saw his side miss a penalty and then reduced to 10 men in the moments before half-time, but their fighting spirit remained`\
+https://nytimes.com/athletic/7120783/2026/03/16/leeds-farke-lewin-gudmundsson-farke-palace/
+
+**Yankuba Minteh and the strange goal that sums up his season**\
+`The Brighton winger's form has been unpredictable this season – but that can be a good thing`\
+https://nytimes.com/athletic/7117739/2026/03/16/yankuba-minteh-brighton-performance-sunderland/
+
+**How Everton came so close to the perfect away performance at Arsenal**\
+`Saturday's game will be remembered for Max Dowman and the late drama, but Everton’s wider performance should not be lost in the mayhem`\
+https://nytimes.com/athletic/7119489/2026/03/16/everton-away-performance-arsenal-moyes/
+
+**West Ham's new-found defensive solidity bodes well in struggle against the drop**\
+`A back-line that was once so porous has been steeled by Axel Disasi's arrival, with Konstantinos Mavropanos' commitment typifying new belief`\
+https://nytimes.com/athletic/7118488/2026/03/16/west-ham-defence-nuno-mavropanos-todibo/
+
+**Nottingham Forest simply must start scoring goals – their Premier League status depends on it**\
+`The relegation-threatened side drew another blank on Sunday — an issue that has plagued them all season and that shows no signs of abating`\
+https://nytimes.com/athletic/7120358/2026/03/16/nottingham-forest-premier-league-relegation/
+
+**Villa are giving away familiar goals in cheap fashion. It could cost them a Champions League spot**\
+`Unai Emery's side were exposed at Old Trafford on Sunday, they have to stop making the same mistakes`\
+https://nytimes.com/athletic/7120054/2026/03/16/aston-villa-emery-manchester-united/
+
 **The Briefing: Will late goals cost Slot's Liverpool? Has Dowman calmed Arsenal anxiety?**\
 `Nick Miller brings you all the big talking points from the weekend's Premier League action.`\
 https://nytimes.com/athletic/7120666/2026/03/16/liverpool-slot-late-goals-dowman-arsenal/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/7120666/2026/03/16/liverpool-slot-late-goals-dowman
 **Manchester United must enjoy this moment and savour Casemiro, Carrick and Fernandes**\
 `The months ahead will decide whether next season’s United looks like this season’s United and if those key to their revival are still around`\
 https://nytimes.com/athletic/7120455/2026/03/16/manchester-united-casemiro-carrick-bruno/
-
-**Max Dowman is becoming a global story – the real work of protecting him begins now**\
-`How will a 16-year-old boy cope with pressure, scrutiny, success and failure?`\
-https://nytimes.com/athletic/7119788/2026/03/16/max-dowman-arsenal-prodigy-protection/
-
-**'I'm working to get back': Steph Curry still wants to play this season**\
-`Curry wants to return to the court because the Warriors don't know how many postseason runs they have left.`\
-https://nytimes.com/athletic/7121634/2026/03/16/steph-curry-warriors-injury-return-nba/
-
-**Spikes, brief lulls and a Dowman-induced frenzy: What watching Arsenal does to your heart rate**\
-`With so many of the club's games this season going right to the wire, we decided to test just how stressful it is to be an Arsenal fan`\
-https://nytimes.com/athletic/7119018/2026/03/16/arsenal-premier-league-heart-rate/
-
-**What has and hasn't changed at Newcastle since winning the Carabao Cup**\
-`Newcastle won the Carabao Cup a year ago, their first trophy since 1969. George Caulkin and Chris Waugh look at how the club is different`\
-https://nytimes.com/athletic/7100793/2026/03/16/what-has-changed-newcastle-carabao-cup/
-
-**For Manchester United, the riddle remains: how do you beat Chelsea in a cup final?**\
-`Marc Skinner's side succumbed to familiar failings in the League Cup final as Chelsea, inspired by Lauren James, lifted the trophy yet again`\
-https://nytimes.com/athletic/7120537/2026/03/16/manchester-united-chelsea-james-league-cup-final/
-
-**The New York Times in Print for Monday, March 16, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/16/todays-new-york-times
-
-**‘Imperfect Women,’ Plus 7 Things to Watch on TV This Week**\
-`A new show starring Elisabeth Moss and Kerry Washington premieres. And Taylor Frankie Paul leads the new season of “The Bachelorette.”`\
-https://nytimes.com/2026/03/16/arts/television/imperfect-women-watch-on-tv-this-week.html
-
-**Don’t Put Your Hopes on a New Middle East**\
-`A defeated Iran will not produce the transformation of the Middle East sought by many.`\
-https://nytimes.com/2026/03/16/opinion/iran-war-us-israel-mideast-transformation.html
 
