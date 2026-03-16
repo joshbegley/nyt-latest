@@ -1,3 +1,7 @@
+**How the Makers of ‘Mr. Nobody Against Putin’ Addressed ‘an Ethical Minefield’**\
+`The documentary about Vladimir V. Putin’s wartime indoctrination of Russian schoolchildren won an Oscar at Sunday’s Academy Awards.`\
+https://nytimes.com/2026/03/16/world/europe/oscar-documentary-mr-nobody-against-putin.html
+
 **At Dance Reflections, Embodied Acts of Memory**\
 `Works by Soa Ratsifandrihana and Robin Orlin evoked Malagasy line dances and Zulu rickshaw drivers.`\
 https://nytimes.com/2026/03/16/arts/dance/dance-reflections-groove-we-wear-our-wheels-with-pride-robin-orlin.html
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/16/us/politics/trump-neal-dunn-terminal-diagnosis-jo
 **David A. Keene, Leader of Two Right-Wing Groups, Dies at 80**\
 `He led the N.R.A. and, for 29 years, the American Conservative Union, which organizes the influential annual Conservative Political Action Conference, or CPAC. He was also a columnist.`\
 https://nytimes.com/2026/03/16/us/politics/david-a-keene-dead.html
-
-**Israeli Schools Begin Reopening in Some Areas Seen as Safer**\
-`Some classes resumed on Monday in areas far from the populous cities and border regions that have come under attack in the conflict with Iran and the Iran-backed militia, Hezbollah.`\
-https://nytimes.com/2026/03/16/world/middleeast/israel-schools.html
 
