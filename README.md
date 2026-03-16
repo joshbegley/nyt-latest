@@ -1,3 +1,7 @@
+**The 10 most likely women’s NCAA Tournament upsets for March Madness 2026**\
+`One team in particular looks poised to make an upset splash — if they can get out of the First Four.`\
+https://nytimes.com/athletic/7122807/2026/03/16/womens-march-madness-2026-upsets-first-round/
+
 **FPL Gameweek 30 review: Going Timber, future-proof Fulham and bracing for blanks**\
 `With several teams not playing next gameweek and European fixtures still to come, patience will be key before locking in transfers`\
 https://nytimes.com/athletic/7121015/2026/03/16/fantasy-premier-league-fpl-tips-gameweek-review/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/7122452/2026/03/16/march-madness-2026-bracket-tips-
 `Last season with the Dolphins and Eagles, Phillips was fourth in the NFL in pressure rate among players with at least 250 pass-rush reps.`\
 https://nytimes.com/athletic/7122472/2026/03/16/panthers-jaelan-phillips-contract-edge-rusher/
 
-**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series heroics**\
+**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series run**\
 `Yamamoto will join an exclusive list of pitchers who recorded the final out of a World Series and threw the first pitch of the next season.`\
 https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-opening-day-start/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010781567/michael-b-jordan-celebrates-oscar-w
 **How to watch Mavericks vs. Pelicans: Time, TV, streaming**\
 `Find out how to watch the Dallas Mavericks play the New Orleans Pelicans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7122931/2026/03/16/mavericks-vs-pelicans-stream-how-to-watch-march-16/
-
-**How to watch Trail Blazers vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7122928/2026/03/16/trail-blazers-vs-nets-stream-how-to-watch-march-16/
 

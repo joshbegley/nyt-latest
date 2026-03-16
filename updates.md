@@ -1,3 +1,23 @@
+**FPL Gameweek 30 review: Going Timber, future-proof Fulham and bracing for blanks**\
+`With several teams not playing next gameweek and European fixtures still to come, patience will be key before locking in transfers`\
+https://nytimes.com/athletic/7121015/2026/03/16/fantasy-premier-league-fpl-tips-gameweek-review/
+
+**How to win your March Madness pool**\
+`Austin Mock provides strategic advice and highlights which teams to target for upsets based on the size of your bracket pool.`\
+https://nytimes.com/athletic/7122452/2026/03/16/march-madness-2026-bracket-tips-strategies-upset-targets/
+
+**Jaelan Phillips' goal: Turning 'disruption into production' as Panthers' alpha pass rusher**\
+`Last season with the Dolphins and Eagles, Phillips was fourth in the NFL in pressure rate among players with at least 250 pass-rush reps.`\
+https://nytimes.com/athletic/7122472/2026/03/16/panthers-jaelan-phillips-contract-edge-rusher/
+
+**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series heroics**\
+`Yamamoto will join an exclusive list of pitchers who recorded the final out of a World Series and threw the first pitch of the next season.`\
+https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-opening-day-start/
+
+**How to watch Mammoth vs. Stars: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Dallas Stars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7122991/2026/03/16/mammoth-vs-stars-stream-how-to-watch-march-16/
+
 **John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
 `Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
 https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
