@@ -1,40 +1,40 @@
-**After Family’s Fatal Encounter With Israeli Forces, 2 Boys Speak**\
-`Khaled and Mustafa Bani Odeh were riding home with sweets after a family night out in the West Bank when Israeli forces opened fire on their car, killing their parents and two brothers.`\
-https://nytimes.com/video/world/middleeast/100000010780924/palestinian-family-killed-west-bank.html
+**Bryson Stott shifted his hands last season, and he's still seeing the rewards**\
+`Stott's adjustments at the plate during last season's second half have made him a better hitter — one who embraces his pull-side. `\
+https://nytimes.com/athletic/7113517/2026/03/16/phillies-bryson-stott-hitting-adjustments/
 
-**Julius Randle finally breaks through, but Timberwolves have unshakeable problem**\
-`Julius Randle can be inconsistent, but they have seen him reach real, sustained highs over the last two seasons.`\
-https://nytimes.com/athletic/7120052/2026/03/16/julius-randle-timberwolves-thunder-nba/
+**Yankees roster projection 2.0: Luis Gil's stock sliding; bench picture clearing up**\
+`As the season opener against the San Francisco Giants draws near, here’s our latest 26-man roster projection.`\
+https://nytimes.com/athletic/7121071/2026/03/16/ny-yankees-opening-day-roster-projection/
 
-**Your Iran Questions**\
-`We’re answering some of your questions about the war.`\
-https://nytimes.com/2026/03/16/briefing/your-iran-questions.html
+**Which Red Wings are most in the spotlight as crucial week looms?**\
+`With pivotal swing games over the next week, the Red Wings don't have much room for error.`\
+https://nytimes.com/athletic/7120213/2026/03/16/red-wings-nhl-playoffs-john-gibson-marco-kasper-jt-compher/
 
-**Gunnar Henderson proves Mark DeRosa right as his breakout WBC continues**\
-`Henderson's history of success against Luis Severino played a role in him getting the start over Alex Bregman. `\
-https://nytimes.com/athletic/7121773/2026/03/16/mlb-gunnar-henderson-wbc/
+**How to watch Detroit Tigers games: New local, national TV options in 2026**\
+`There's a new in-market home for Tigers baseball. Here's how fans both near Detroit and far away can tune in to their games this season. `\
+https://nytimes.com/athletic/7118745/2026/03/16/detroit-tigers-tv-2026-skubal-how-to-watch/
 
-**This Week in Mets: Carson Benge should start on Opening Day**\
-`Making his debut on Opening Day might actually be easier and less stressful than coming up once the season is in gear.`\
-https://nytimes.com/athletic/7121393/2026/03/16/this-week-in-mets-carson-benge-should-start-on-opening-day/
+**Tigers roster projection 3.0: The Kevin McGonigle decision comes down to the wire**\
+`McGonigle posted a .444 on-base percentage and .963 OPS this spring, but the Tigers will take his roster decision to the last minute. `\
+https://nytimes.com/athletic/7120142/2026/03/16/tigers-roster-projection-kevin-mcgonigle-opening-day-decision/
 
-**How undefeated Team Italy became the 'shot' heard 'round the World Baseball Classic**\
-`The way the players see it, they are doing their part to spread the sport they love to their ancestral home.`\
-https://nytimes.com/athletic/7120022/2026/03/16/world-baseball-classic-team-italy-semifinals-journey/
+**The NCAA Tournament's 15 most intriguing players to watch**\
+`From the scoring power of Arkansas' Darius Acuff Jr. to the chance at redemption for Houston's Emanuel Sharp, intriguing players abound.`\
+https://nytimes.com/athletic/7119814/2026/03/16/ncaa-tournament-march-madness-aj-dybantsa-darryn-peterson/
 
-**Severe Storms Push Tornado Threat to the East on Monday**\
-`More than 12 million people are at risk from damaging winds and strong tornadoes, including in Washington, D.C.`\
-https://nytimes.com/2026/03/16/weather/tornadoes-storms-maryland-virginia-delaware-dc-forecast.html
+**Red Sox not surprised Wilyer Abreu rose to the occasion in Venezuela's biggest moment**\
+`“Everyone knows what he can do, and now he’s just becoming a star,” Carlos Narváez said. “That’s who he is."`\
+https://nytimes.com/athletic/7120232/2026/03/16/wilyer-abreu-home-run-venezuela-wbc-semifinal-japan/
 
-**The Pulse: The brackets are here**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7120791/2026/03/16/men-women-ncaa-brackets-the-pulse/
+**Reds roster projection 3.0: Hunter Greene injury gives others chance to start**\
+`Greene's absence until July changed the Reds' discussion from three pitchers competing for one starting spot to three competing for two.`\
+https://nytimes.com/athletic/7120844/2026/03/16/reds-roster-projection-3-0/
 
-**Trump Asks for Help With Strait of Hormuz, and Israeli Forces Kill Family in West Bank**\
-`Plus, highlights from the Oscars.`\
-https://nytimes.com/2026/03/16/podcasts/the-headlines/trump-strait-of-hormuz-israeli-forces-kill-family-in-west-bank.html
+**New Perreault, Zibanejad, Lafrenière top line offers promise for Rangers' future**\
+`Even with the season circling the drain, the new-look top line has the trio playing their best hockey of the season.`\
+https://nytimes.com/athletic/7119826/2026/03/16/rangers-top-line-perreault-zibanejad-lafreniere-communication/
 
-**Cowboys free-agency breakdown: 5 best moves, biggest remaining questions**\
-`In Thompson, the Cowboys have a player who can line up at either safety spot or play nickel cornerback.`\
-https://nytimes.com/athletic/7120576/2026/03/16/cowboys-free-agency-best-moves-jalen-thompson/
+**Leafs need another leader with a vision more than ever: Monday Morning Leafs Report**\
+`This offseason, the Leafs' most pressing issue is following in their own 2014 footsteps to find someone with a plan.`\
+https://nytimes.com/athletic/7120051/2026/03/16/maple-leafs-shanahan-president-leadership-vision-pelley-treliving/
 
