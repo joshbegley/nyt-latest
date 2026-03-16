@@ -1,3 +1,11 @@
+**It’s Nice to See (Some) Actresses Wearing Dresses They Can Breathe In**\
+`It was the best trend on the Oscars red carpet.`\
+https://nytimes.com/2026/03/16/style/oscars-fashion-best-trend.html
+
+**Canada had no new kits at the 2022 World Cup, so it's swinging big in 2026**\
+`Canada missed its chance to make a mark on the global stage in 2022. It's looking to make up for that and then some in 2026`\
+https://nytimes.com/athletic/7121409/2026/03/16/canada-2026-world-cup-kits-jerseys-nike-photos/
+
 **Chukwuemeka receives first Austria call up after switching allegiance from England**\
 `For Austria coach Ralf Rangnick, Chukwuemeka's call up is the culmination of a two-year pursuit.`\
 https://nytimes.com/athletic/7122163/2026/03/16/carney-chukwuemeka-austria-englabd-borussia-dortmund/
