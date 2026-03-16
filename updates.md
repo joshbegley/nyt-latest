@@ -1,3 +1,15 @@
+**Astros roster projection 3.0: Josh Hader and Jeremy Peña are out**\
+`Notes on every position group, including how if Peña isn't ready for Opening Day, there could be an opening for Houston's top prospect.`\
+https://nytimes.com/athletic/7120328/2026/03/16/astros-opening-day-roster-projection/
+
+**Twins' Brooks Lee hopes explosive training will help him on the diamond**\
+`Lee did workouts he never thought he'd be able to accomplish in effort to stick at shortstop in the majors.`\
+https://nytimes.com/athletic/7116105/2026/03/16/twins-brooks-lee-offseason-training-agility/
+
+**Trump’s Threat to Delay Summit With Xi Casts New Shadow Over China Relations**\
+`President Trump warned that he could postpone a meeting set to begin in just over two weeks if China refuses to help reopen the Strait of Hormuz.`\
+https://nytimes.com/2026/03/16/world/middleeast/trump-visit-xi-china-iran.html
+
 **Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
 `The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a Dominican Republic lineup stacked with sluggers.`\
 https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
