@@ -1,3 +1,7 @@
+**The N.B.A.’s Curry Family Royalty, Market Moves and the Inside Scoop on N.F.L. Free Agency**\
+`Steph and Dell Curry sit down with The Athletic’s Marcus Thompson.`\
+https://nytimes.com/2026/03/16/us/the-nbas-curry-family-royalty-market-moves-and-the-inside-scoop-on-nfl-free-agency.html
+
 **What should future Winter Paralympics look like? Bigger, better and maybe earlier**\
 `Multiple Paralympians expressed a desire for the Games to begin earlier, potentially staging them before the Olympics.`\
 https://nytimes.com/athletic/7120154/2026/03/16/winter-paralympics-future-events-timing-olympics/
