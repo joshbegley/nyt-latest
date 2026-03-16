@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-t
 https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
 
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
-`Are UConn and UCLA on a collision course for the national championship game? `\
+`Are UConn and UCLA on a collision course for the national championship game?`\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
 
 **‘One Battle After Another’ wins best picture after season-long sweep.**\
@@ -22,9 +22,9 @@ https://nytimes.com/2026/03/15/us/politics/trump-kennedy-center-board-closure.ht
 ``\
 https://nytimes.com/athletic/7090126/2026/03/15/womens-2026-march-madness-ncaa-tournament-forecast-bracket/
 
-**Jessie Buckley wins best actress.**\
-`By Esther Zuckerman`\
-https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/jessie-buckley-wins-best-actress
+**Jessie Buckley Wins Best Actress for ‘Hamnet’**\
+`The actress closes out a season of wins in this category with an Academy Award.`\
+https://nytimes.com/2026/03/15/movies/jessie-buckley-wins-best-actress.html
 
 **Michael B. Jordan Wins the Best Actor Oscar for ‘Sinners’**\
 `It was the actor’s first nomination for an Academy Award.`\

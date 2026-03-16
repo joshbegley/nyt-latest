@@ -1,3 +1,11 @@
+**Women's March Madness 2026 bracket NCAA tournament forecast**\
+``\
+https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
+
+**Free speech and wars are noted from the Oscars stage.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
+
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
 `Are UConn and UCLA on a collision course for the national championship game? `\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/15/movies/paul-thomas-anderson-oscar-win-best-direct
 **Seiya Suzuki’s WBC injury creates uncertainty in the Cubs' outfield**\
 `Suzuki limped off the field in Saturday's WBC quarterfinal game between Japan and Venezuela after trying to steal second base.`\
 https://nytimes.com/athletic/7121251/2026/03/15/seiya-suzuki-cubs-injury-update-wbc/
-
-**Jack Wallace becomes USA Hockey's newest star: 'This is what it's all about'**\
-`Wallace recorded a hat trick in Sunday's gold medal win, stamping his place in U.S. hockey lore after an Olympic and Paralympic sweep.`\
-https://nytimes.com/athletic/7121199/2026/03/15/jack-wallace-usa-sled-hockey-paralympics-hat-trick/
-
-**2026 women's March Madness bracket picks: Why Chantel Jennings picked UConn to win it all**\
-`Who will win the women's NCAA Tournament? Check our expert's predictions.`\
-https://nytimes.com/athletic/7120037/2026/03/15/2026-womens-march-madness-bracket-picks-chantel-jennings/
 

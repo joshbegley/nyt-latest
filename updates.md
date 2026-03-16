@@ -1,3 +1,11 @@
+**Women's March Madness 2026 bracket NCAA tournament forecast**\
+``\
+https://nytimes.com/athletic/7087514/2026/03/15/womens-2026-march-madness-ncaa-tournament-bracket-forecast/
+
+**Free speech and wars are noted from the Oscars stage.**\
+`By Matt Stevens`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/politics-jimmy-kimmel-conan-obrien
+
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
 `Are UConn and UCLA on a collision course for the national championship game? `\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
