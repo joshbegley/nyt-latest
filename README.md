@@ -1,3 +1,7 @@
+**Word of the Day: cultivate**\
+`This word has appeared in 356 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/16/learning/word-of-the-day-cultivate.html
+
 **‘One Battle After Another Was Totally Meh’: 3 Opinion Writers Size Up the Oscars**\
 `What did the academy get right? Wrong? What was just weird? Three culture fans discuss Hollywood’s biggest night.`\
 https://nytimes.com/2026/03/16/opinion/one-battle-after-another-was-totally-meh-3-opinion-writers-size-up-the-oscars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120358/2026/03/16/nottingham-forest-premier-league
 **Villa are giving away familiar goals in cheap fashion. It could cost them a Champions League spot**\
 `Unai Emery's side were exposed at Old Trafford on Sunday, they have to stop making the same mistakes`\
 https://nytimes.com/athletic/7120054/2026/03/16/aston-villa-emery-manchester-united/
-
-**The Briefing: Will late goals cost Slot's Liverpool? Has Dowman calmed Arsenal anxiety?**\
-`Nick Miller brings you all the big talking points from the weekend's Premier League action.`\
-https://nytimes.com/athletic/7120666/2026/03/16/liverpool-slot-late-goals-dowman-arsenal/
 
