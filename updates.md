@@ -1,3 +1,11 @@
+**Oil Tops $106 a Barrel as Worries Persist About Global Supplies**\
+`As the broader war in the Middle East begins its third week, worries over the fallout of crippled energy supplies continue to roil markets.`\
+https://nytimes.com/2026/03/16/business/oil-stock-gas-markets-iran.html
+
+**Here’s the latest.**\
+`By Yan Zhuang and Aaron Boxerman`\
+https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon/heres-the-latest
+
 **Poverty in New York City Inched Higher in 2024 for Third Year in a Row**\
 `The cost of basics like housing and food rose, while incomes and other resources, like public benefits, did not keep up.`\
 https://nytimes.com/2026/03/16/nyregion/poverty-new-york-city-report.html

@@ -1,3 +1,7 @@
+**Oil Tops $106 a Barrel as Worries Persist About Global Supplies**\
+`As the broader war in the Middle East begins its third week, worries over the fallout of crippled energy supplies continue to roil markets.`\
+https://nytimes.com/2026/03/16/business/oil-stock-gas-markets-iran.html
+
 **Poverty in New York City Inched Higher in 2024 for Third Year in a Row**\
 `The cost of basics like housing and food rose, while incomes and other resources, like public benefits, did not keep up.`\
 https://nytimes.com/2026/03/16/nyregion/poverty-new-york-city-report.html
@@ -31,10 +35,6 @@ https://nytimes.com/video/nyregion/100000010692162/nyc-canada-hydropower-green-e
 https://nytimes.com/2026/03/16/nyregion/mamdani-politics-nyc.html
 
 **Here’s the latest.**\
-`By Edward Wong and Farnaz Fassihi`\
+`By Yan Zhuang and Aaron Boxerman`\
 https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon/heres-the-latest
-
-**Iran War Live Updates: Trump Pressures Countries to Open Vital Shipping Route**\
-`As fighting in the Middle East entered its third week, President Trump warned that failing to help secure the Strait of Hormuz would be “very bad for the future of NATO.”`\
-https://nytimes.com/live/2026/03/16/world/iran-war-trump-oil-lebanon
 
