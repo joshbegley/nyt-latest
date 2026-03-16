@@ -1,3 +1,15 @@
+**Dodgers agree to deal with Uniqlo as official field presenting partner: Sources**\
+`The Dodgers did not sell the naming rights to their ballpark and were not open to doing so throughout the process.`\
+https://nytimes.com/athletic/7120747/2026/03/15/dodger-stadium-field-presenting-partner-uniqlo/
+
+**All about the new Oscar for casting.**\
+`By Esther Zuckerman`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/all-about-the-new-oscar-for-casting
+
+**The most likely team to win the 2026 men's NCAA tournament**\
+`Statistically, only one team has what it takes to cut down the nets in the NCAA men's basketball tournament.`\
+https://nytimes.com/athletic/7101735/2026/03/15/the-most-likely-team-to-win-the-2026-mens-ncaa-tournament/
+
 **Why a House Candidate in Illinois Is Attacking an Ad Praising Her**\
 `In a Democratic primary, accusations are flying that allies of a hard-line pro-Israel group are trying to divide progressives, exploiting a broader rift in the party.`\
 https://nytimes.com/2026/03/15/us/politics/illinois-democrats-ad-israel-congress-aipac.html
