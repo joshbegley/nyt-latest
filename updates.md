@@ -1,3 +1,15 @@
+**The War Is Making It Harder to Keep the Lights On, 2,000 Miles Away**\
+`Bangladesh is taking steps to conserve electricity, which its factories need to keep stitching together the world’s clothing.`\
+https://nytimes.com/2026/03/16/business/iran-bangladesh-imported-gas.html
+
+**Quote of the Day: Belonging To America, But True To Herself**\
+`Quotation of the Day for Monday, March 16, 2026.`\
+https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-belonging-to-america-but-true-to-herself.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 16, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7121659/2026/03/16/connections-sports-edition-hints-answers-march-16-2026/
+
 **UConn's path to the Final Four could include a guard showdown against Vanderbilt**\
 `Are UConn and UCLA on a collision course for the national title game? The Huskies blew them out in the Final Four last season.`\
 https://nytimes.com/athletic/7120508/2026/03/15/uconn-final-four-path-vanderbilt/
