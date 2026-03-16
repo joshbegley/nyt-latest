@@ -1,6 +1,22 @@
+**A Predictable Problem**\
+`Iran’s closure of the Strait of Hormuz, a well-known problem, appears to have caught Trump off guard.`\
+https://nytimes.com/2026/03/16/world/iran-hormuz-oil-oscars-iceland.html
+
+**Team USA closer Mason Miller may not be available to pitch in World Baseball Classic final**\
+`Miller has secured saves in two of the United States’ victories.`\
+https://nytimes.com/athletic/7123613/2026/03/16/mason-miller-world-baseball-classic-final-usa/
+
+**U.S. Court Ruling Against R.F.K. Jr.’s Vaccine Policies**\
+`The decision by Judge Brian Murphy immediately halted implementation of a series of measures imposed by the Trump administration that were aimed at upending decades of immunization standards.`\
+https://nytimes.com/interactive/2026/03/16/us/pi-opinion.html
+
+**Fire on U.S. Aircraft Carrier Raged for Hours, Sailors Say**\
+`The Ford is now entering its 10th month of deployment after arriving in the Middle East from the Caribbean.`\
+https://nytimes.com/2026/03/16/us/politics/uss-ford-fire-iran-venezuela.html
+
 **Trump Hits Out at Allies After Cool Response to Requests for War Ships**\
 `Australia, Germany and Japan said they weren’t planning to participate in efforts to reopen the Strait of Hormuz. President Trump said his call for help was really a loyalty test.`\
-https://nytimes.com/2026/03/16/world/middleeast/trump-hits-out-at-allies-after-cool-response-to-requests-for-war-ships.html
+https://nytimes.com/2026/03/16/world/middleeast/trump-us-allies-strait-of-hormuz-warships.html
 
 **USF coach Bryan Hodgson gets a March Madness moment his father can see live**\
 `A first-round site of Buffalo, N.Y., for Hodgson's first NCAA Tournament felt almost like divine intervention.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/sec-enforcement-chief-resigns.html
 **Submit your questions to Vic Tafur's 49ers mailbag**\
 `How are fans feeling about the 49ers' approach in free agency? Send in all questions, complaints and suggestions.`\
 https://nytimes.com/athletic/7123667/2026/03/16/49ers-mailbag-free-agency-questions/
-
-**Supreme Court Defers Decision on Trump’s Bid to End Protections for Migrants**\
-`The justices will hear arguments over the president’s efforts to terminate the program, known as Temporary Protected Status, for migrants from Haiti and Syria as part of his mass deportation efforts.`\
-https://nytimes.com/2026/03/16/us/politics/supreme-court-defers-tps.html
-
-**PSG, AC Milan and Newcastle owners expected to bid for NBA Europe teams**\
-`The NBA wants to expand in Europe and possibly in the United States. Here's how those plans could be related.`\
-https://nytimes.com/athletic/7123440/2026/03/16/nba-europe-license-deadline-bids-adam-silver/
-
-**Security Lines Snake Out of More Terminals as T.S.A. Goes Unpaid**\
-`“There’s going to be a breaking point sooner or later,” one union official warned, with travelers at some airports being told to arrive three hours ahead of time.`\
-https://nytimes.com/2026/03/16/travel/tsa-airport-delays-shutdown.html
-
-**Justin Fields trade analysis: How new Chiefs QB fits with Patrick Mahomes, K.C.**\
-`Here's what the Chiefs see in Fields, the five-year veteran quarterback they acquired in a trade with the New York Jets.`\
-https://nytimes.com/athletic/7123293/2026/03/16/chiefs-justin-fields-trade-analysis/
 
