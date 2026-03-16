@@ -1,3 +1,19 @@
+**17 Unforgettable Looks at the Oscars**\
+`Jewel-tone gowns, bumblebee brooches, overalls and more.`\
+https://nytimes.com/2026/03/15/style/oscars-red-carpet-2026.html
+
+**Savy King returns to Angel City for first NWSL game since cardiac incident**\
+`The defender had a shot on goal and a crucial tackle in her return to the NWSL.`\
+https://nytimes.com/athletic/7121517/2026/03/15/angel-city-defender-savy-king-return-cardiac-event/
+
+**Team USA wins heavyweight bout with Dominican Republic to reach WBC final**\
+`If there were lingering questions about the group’s level of interest in this tournament, Team USA answered them resoundingly.`\
+https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-with-dominican-republic-to-reach-finals-of-wbc/
+
+**‘One Battle After Another’ Wins Best Picture After Season-Long Sweep**\
+`The epic about radicals and reactionaries also took best director for Paul Thomas Anderson, his first Academy Awards after 11 losses.`\
+https://nytimes.com/2026/03/15/movies/one-battle-after-another-oscar-best-picture.html
+
 **Team USA wins heavyweight bout with Dominican Republic to reach finals of WBC**\
 `If there were lingering questions about the group’s level of interest in this tournament, Team USA answered them resoundingly.`\
 https://nytimes.com/athletic/7120468/2026/03/15/team-usa-wins-heavyweight-bout-with-dominican-republic-to-reach-finals-of-wbc/
