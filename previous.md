@@ -1,3 +1,15 @@
+**Padres' Joe Musgrove to begin season on injured list**\
+`The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
+https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
+
+**With Threats and Claims of ‘Treason,’ Trump Pressures Media on the War**\
+`A president who calls journalists the “enemy of the people” has accused news organizations of undermining a military effort that many Americans oppose.`\
+https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
+
+**‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**\
+`After the hit song from “KPop Demon Hunters” made Oscars history, a snare drum and a crashing cymbal mercilessly drowned out the winners.`\
+https://nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html
+
 **The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
 `Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
 https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/7123078/2026/03/16/submit-a-question-for-stewart-ma
 **Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
 `Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
 https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/
-
-**Trump Defends Need for Kennedy Center Renovation Project**\
-`Ahead of a vote on whether to close the center for two years of construction, the president criticized its previous financial management and physical condition.`\
-https://nytimes.com/2026/03/16/arts/design/kennedy-center-renovations-trump.html
-
-**Why South Korea’s Strawberry Farmers Indulge a ‘Fussy Fruit’**\
-`Strawberries, one of the country’s top fresh agricultural exports, are grown year-round in greenhouses. The harvest hinges on technical prowess and a great degree of care.`\
-https://nytimes.com/card/2026/03/16/world/asia/south-korea-strawberry-farming
-
-**Darius Slay, 6-time Pro Bowl CB with Lions and Eagles, announces retirement**\
-`Slay had 28 career interceptions and was named first-team All-Pro in 2017 with the Lions.`\
-https://nytimes.com/athletic/7122999/2026/03/16/darius-slay-retires-lions-eagles/
 

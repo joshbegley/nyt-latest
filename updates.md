@@ -1,3 +1,15 @@
+**Padres' Joe Musgrove to begin season on injured list**\
+`The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
+https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
+
+**With Threats and Claims of ‘Treason,’ Trump Pressures Media on the War**\
+`A president who calls journalists the “enemy of the people” has accused news organizations of undermining a military effort that many Americans oppose.`\
+https://nytimes.com/2026/03/16/business/media/trump-iran-media-coverage.html
+
+**‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**\
+`After the hit song from “KPop Demon Hunters” made Oscars history, a snare drum and a crashing cymbal mercilessly drowned out the winners.`\
+https://nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html
+
 **The NY-born teenage GK who could be thrust into Bayern's UCL spotlight**\
 `Bayern Munich has a massive goalkeeping injury crisis on its hands, which could lead to a young, German-American beneficiary`\
 https://nytimes.com/athletic/7122996/2026/03/16/leonard-prescott-bayern-munich-usa-germany-champions-league/

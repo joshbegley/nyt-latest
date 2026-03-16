@@ -1,3 +1,11 @@
+**At Dance Reflections, Embodied Acts of Memory**\
+`Works by Soa Ratsifandrihana and Robin Orlin evoked Malagasy line dances and Zulu rickshaw drivers.`\
+https://nytimes.com/2026/03/16/arts/dance/dance-reflections-groove-we-wear-our-wheels-with-pride-robin-orlin.html
+
+**In Choosing ‘Epic Fury,’ Trump Names a War and Defines His Presidency**\
+`The branding of the U.S. military operation against Iran is a quintessentially Trumpian choice for a leader whose tenure has been marked by anger.`\
+https://nytimes.com/2026/03/16/us/politics/trump-operation-epic-fury-anger.html
+
 **Padres' Joe Musgrove to begin season on injured list**\
 `The Padres aren't overly concerned about Musgrove's health — calling it a "cranky arm" — but there is no set date for his return.`\
 https://nytimes.com/athletic/7123053/2026/03/16/padres-joe-musgrove-injured-list/
@@ -25,17 +33,4 @@ https://nytimes.com/2026/03/16/us/politics/david-a-keene-dead.html
 **Israeli Schools Begin Reopening in Some Areas Seen as Safer**\
 `Some classes resumed on Monday in areas far from the populous cities and border regions that have come under attack in the conflict with Iran and the Iran-backed militia, Hezbollah.`\
 https://nytimes.com/2026/03/16/world/middleeast/israel-schools.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>In honor of my favorite week of the sports calendar, I will give preference this week to any combo college football-March Madness questions you can come up with.</p>
-<p>Leave them here. Please include your city.</p>
-<p>&nbsp;</p>
-<p>&nbsp;</p>
-<p>&nbsp;</p>
-`\
-https://nytimes.com/athletic/7123078/2026/03/16/submit-a-question-for-stewart-mandels-college-football-mailbag-338/
-
-**Q&A: Breaking down 5 Blue Jays spring training roster decisions**\
-`Jays fans must treat Yimi García and Shane Bieber as if they essentially started spring training this week.`\
-https://nytimes.com/athletic/7122707/2026/03/16/5-blue-jays-spring-training-roster-decisions-qa/
 
