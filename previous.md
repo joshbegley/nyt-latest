@@ -1,40 +1,40 @@
+**Jauan Jennings, Denico Autry among 10 available options for Ravens to consider**\
+`We list a handful of players who could help Baltimore fill some of its roster holes as it enters the second week of the new league year.`\
+https://nytimes.com/athletic/7119129/2026/03/16/ravens-best-available-free-agency-trade-targets/
+
+**Can anyone beat UConn? Not likely, but if anyone has a shot, it's these teams**\
+`Could Vanderbilt get hot on 3-pointers and stun the Huskies? Could Texas' defense disrupt their game plan? `\
+https://nytimes.com/athletic/7121762/2026/03/16/uconn-upset-opponents-march-madness/
+
+**One player from each MLB team who is turning heads this spring**\
+`Spring training is full of optimism, and these 30 players have their teams especially giddy as we inch toward the regular season.`\
+https://nytimes.com/athletic/7116528/2026/03/16/mlb-spring-training-standouts-2026/
+
+**Projecting the Jets' depth chart after free agency — and what roster holes remain**\
+`How the roster sizes up as the team transitions into draft season.`\
+https://nytimes.com/athletic/7119116/2026/03/16/new-york-jets-projected-depth-chart-draft-needs/
+
+**WBC semifinals explainer: Venezuela, Italy face off in battle of the giant slayers**\
+`This may not have been the semifinal matchup most were expecting, but Italy and Venezuela earned their place by beating the favorites.`\
+https://nytimes.com/athletic/7120698/2026/03/16/wbc-semifinals-explainer-italy-venezuela/
+
+**Men’s March Madness power rankings: The 16 teams most likely to win it all**\
+`The goal for every team, from Duke to Prairie View A&M, is to end the season with two wins in Indianapolis. Who is most likely to get there?`\
+https://nytimes.com/athletic/7121400/2026/03/16/mens-ncaa-tournament-march-madness-power-rankings/
+
+**Win-now? Rebuild? What NFL teams' initial free agency moves revealed**\
+`The first days of free agency can provide us invaluable clues about what NFL teams think about their team-building calendars.`\
+https://nytimes.com/athletic/7119743/2026/03/16/nfl-free-agency-2026-analysis-summary/
+
+**‘Dangerous’ and ‘Unprecedented’: How Bad Will This March Heat Wave Get?**\
+`Meteorologists are not mincing words in their forecasts for record-high temperatures in California and the desert Southwest.`\
+https://nytimes.com/2026/03/16/weather/la-sf-callifornia-heat-dome-phoenix.html
+
+**The New York Times International Edition in Print for Tuesday, March 17, 2026**\
+``\
+https://nytimes.com/issue/todaysinyt/2026/03/16/todays-new-york-times-international-edition
+
 **Trump Is Choosing ‘Risk Over Process’ in Iran**\
 `Does the president need congressional approval to engage in a war? A former Trump official, Nadia Schadlow, says it’s more complicated than you might think on “The Ezra Klein Show.”`\
 https://nytimes.com/video/opinion/100000010758679/trump-is-choosing-risk-over-process-in-iran.html
-
-**Vanity Fair Oscar Party: Arrival Looks From the Night’s Biggest After-Party**\
-`The magazine’s new editor slashed the guest list in hopes of increasing the event’s starriness per capita. Here’s what those who made the cut wore to party at LACMA.`\
-https://nytimes.com/2026/03/16/style/vanity-fair-oscars-party-photos.html
-
-**Best and Worst Moments From the 2026 Oscars**\
-`There was a lot to take in, from Michael B. Jordan’s thrilling win to the perplexing “bum drum.”`\
-https://nytimes.com/2026/03/16/movies/oscars-moments-best-worst.html
-
-**Justice Dept. Struggles to Take Basic Steps in Targeting Trump’s Rivals**\
-`A ruling Friday that derailed an investigation into the Federal Reserve chair at an exceptionally early stage showed the limits of President Trump’s campaign of legal retribution.`\
-https://nytimes.com/2026/03/16/us/politics/trump-justice-department-investigations.html
-
-**Will a Buggy Spring and Summer Follow a Tough Winter?**\
-`Recent weather trends favor ticks, which may proliferate this year. Expect a lot of stink bugs, too.`\
-https://nytimes.com/2026/03/16/nyregion/ticks-stinkbugs-lanternflies.html
-
-**Spaceflight Started 100 Years Ago in a Massachusetts Cabbage Patch**\
-`Before humanity sent satellites, telescopes, humans and weapons into space, Robert Goddard experimented with the first liquid-fueled rocket on his aunt’s farm.`\
-https://nytimes.com/2026/03/16/science/robert-goddard-rocket-100th-anniversary.html
-
-**Illinois Primary Shows Rising Political Influence of Indian Americans**\
-`On Tuesday, Representative Raja Krishnamoorthi is looking to take a major step toward becoming only the second Indian American elected to the Senate.`\
-https://nytimes.com/2026/03/16/us/politics/illinois-krishnamoorthi-indian-americans-elections.html
-
-**In Iraq, the U.S. Tried to Bring Allies on Board. Not in Iran.**\
-`This time, President Trump went to war without preparing the public, seeking U.N. approval or even consulting allies. But they will have to pick up the pieces.`\
-https://nytimes.com/2026/03/16/world/europe/iraq-iran-us-allies.html
-
-**In Chicago, an Eye-Catching Renovation Drenched With Color**\
-`New construction was too expensive, but a couple was determined to transform a house with their own playful sensibilities.`\
-https://nytimes.com/2026/03/16/realestate/chicago-imagists-inspired-home-renovation.html
-
-**Intrigue, Power Plays and Rivalries: Inside the Rise of Mojtaba Khamenei**\
-`The weeklong fight over Iran’s next leader pitted the Revolutionary Guards against moderates. The generals won, but only over spirited resistance.`\
-https://nytimes.com/2026/03/16/world/middleeast/iran-mojtaba-khamenei-election-supreme-leader.html
 
