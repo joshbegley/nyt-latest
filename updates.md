@@ -1,3 +1,23 @@
+**Arizona Diamondbacks streaming guide: How to watch games throughout 2026 season**\
+`The D-Backs should be fun to watch, but finding their games can be confusing. Here's your refresher on the TV and streaming options.`\
+https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-tv-how-to-watch-2026/
+
+**Which March Madness favorites are upset-proof? Here's what history and analytics say**\
+`Did past contenders who played a similar way to this year's top teams make deep runs, or were they prone to upsets?`\
+https://nytimes.com/athletic/7111545/2026/03/16/march-madness-favorites-top-seed-comparisons/
+
+**USA unveils 2026 World Cup kits: Photos, first look at the cohosts' jerseys**\
+`'We just want something we can wear to the (night) club," was one of the preferences expressed to Nike by USMNT players`\
+https://nytimes.com/athletic/7120620/2026/03/16/usmnt-world-cup-usa-kit-jersey-photos/
+
+**TAFC: Protecting Dowman, history maker. Plus: Guler golazo and Chelsea huddle muddle**\
+`Today in TAFC: Max Dowman, 16, takes Arsenal a step close to title. Plus: Guler scores from deep in his own half, Chelsea's huddle muddle.`\
+https://nytimes.com/athletic/7121961/2026/03/16/dowman-arsenal-premier-league-guler-own-half/
+
+**Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
+`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a stacked Dominican Republic lineup.`\
+https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
+
 **Trump Administration Live Updates: Kennedy Center Is Ordered to Allow Lawmaker to Join Board Meeting**\
 ``\
 https://nytimes.com/live/2026/03/16/us/trump-news

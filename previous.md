@@ -1,3 +1,19 @@
+**Arizona Diamondbacks streaming guide: How to watch games throughout 2026 season**\
+`The D-Backs should be fun to watch, but finding their games can be confusing. Here's your refresher on the TV and streaming options.`\
+https://nytimes.com/athletic/7118758/2026/03/16/arizona-diamondbacks-streaming-tv-how-to-watch-2026/
+
+**Which March Madness favorites are upset-proof? Here's what history and analytics say**\
+`Did past contenders who played a similar way to this year's top teams make deep runs, or were they prone to upsets?`\
+https://nytimes.com/athletic/7111545/2026/03/16/march-madness-favorites-top-seed-comparisons/
+
+**USA unveils 2026 World Cup kits: Photos, first look at the cohosts' jerseys**\
+`'We just want something we can wear to the (night) club," was one of the preferences expressed to Nike by USMNT players`\
+https://nytimes.com/athletic/7120620/2026/03/16/usmnt-world-cup-usa-kit-jersey-photos/
+
+**TAFC: Protecting Dowman, history maker. Plus: Guler golazo and Chelsea huddle muddle**\
+`Today in TAFC: Max Dowman, 16, takes Arsenal a step close to title. Plus: Guler scores from deep in his own half, Chelsea's huddle muddle.`\
+https://nytimes.com/athletic/7121961/2026/03/16/dowman-arsenal-premier-league-guler-own-half/
+
 **Trump Administration Live Updates: Kennedy Center Is Ordered to Allow Lawmaker to Join Board Meeting**\
 ``\
 https://nytimes.com/live/2026/03/16/us/trump-news
@@ -15,26 +31,10 @@ https://nytimes.com/athletic/7116105/2026/03/16/twins-brooks-lee-offseason-train
 https://nytimes.com/2026/03/16/world/middleeast/trump-visit-xi-china-iran.html
 
 **Rosenthal: In front of family and former Air Force teammates, Paul Skenes shows why he's a 'special presence'**\
-`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a Dominican Republic lineup stacked with sluggers.`\
+`The NL Cy Young winner allowed one run over 4 1/3 innings in the WBC semifinal against a stacked Dominican Republic lineup.`\
 https://nytimes.com/athletic/7122026/2026/03/16/paul-skenes-team-usa-world-baseball-classic-dominican-republic/
 
 **Bryson Stott shifted his hands last season, and he's still seeing the rewards**\
 `Stott's adjustments at the plate during last season's second half have made him a better hitter — one who embraces his pull-side. `\
 https://nytimes.com/athletic/7113517/2026/03/16/phillies-bryson-stott-hitting-adjustments/
-
-**Yankees roster projection 2.0: Luis Gil's stock sliding; bench picture clearing up**\
-`As the season opener against the San Francisco Giants draws near, here’s our latest 26-man roster projection.`\
-https://nytimes.com/athletic/7121071/2026/03/16/ny-yankees-opening-day-roster-projection/
-
-**Which Red Wings are most in the spotlight as crucial week looms?**\
-`With pivotal swing games over the next week, the Red Wings don't have much room for error.`\
-https://nytimes.com/athletic/7120213/2026/03/16/red-wings-nhl-playoffs-john-gibson-marco-kasper-jt-compher/
-
-**How to watch Detroit Tigers games: New local, national TV options in 2026**\
-`There's a new in-market home for Tigers baseball. Here's how fans both near Detroit and far away can tune in to their games this season. `\
-https://nytimes.com/athletic/7118745/2026/03/16/detroit-tigers-tv-2026-skubal-how-to-watch/
-
-**Tigers roster projection 3.0: The Kevin McGonigle decision comes down to the wire**\
-`McGonigle posted a .444 on-base percentage and .963 OPS this spring, but the Tigers will take his roster decision to the last minute. `\
-https://nytimes.com/athletic/7120142/2026/03/16/tigers-roster-projection-kevin-mcgonigle-opening-day-decision/
 
