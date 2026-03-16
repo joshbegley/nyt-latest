@@ -1,3 +1,7 @@
+**What should future Winter Paralympics look like? Bigger, better and maybe earlier**\
+`Multiple Paralympians expressed a desire for the Games to begin earlier, potentially staging them before the Olympics.`\
+https://nytimes.com/athletic/7120154/2026/03/16/winter-paralympics-future-events-timing-olympics/
+
 **Oil Tops $106 a Barrel as Worries Persist About Global Supplies**\
 `As the broader war in the Middle East begins its third week, worries over the fallout of crippled energy supplies continue to roil markets.`\
 https://nytimes.com/2026/03/16/business/oil-stock-gas-markets-iran.html
