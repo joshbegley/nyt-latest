@@ -1,3 +1,23 @@
+**NWSL 2026 opening weekend: Big comebacks, red cards and packed stadiums**\
+`These are the key moments from the 2026 NWSL opening weekend`\
+https://nytimes.com/athletic/7122331/2026/03/16/nwsl-season-opening-comebacks-stadiums-fans-goals/
+
+**NBA Power Rankings: OKC on top; checking in on Flagg, Knueppel and other rookies**\
+`With a month to go in the regular season, what have first-year players added to their respective teams?`\
+https://nytimes.com/athletic/7122214/2026/03/16/nba-power-rankings-thunder-rockets-knicks-rookies/
+
+**Where to Stream the 2026 Oscar Winners, From ‘One Battle After Another’ to ‘Sinners’**\
+`Most of the awarded films, including the winner of best picture, can be watched at home. Here’s a guide to catch up.`\
+https://nytimes.com/2026/03/16/movies/oscar-winners-streaming.html
+
+**Butler's Thad Matta retiring from coaching after 21 seasons**\
+`Matta failed to guide his alma mater to the NCAA Tournament in any of his four seasons since his return to Butler.`\
+https://nytimes.com/athletic/7109819/2026/03/16/butler-thad-matta-retiring-college-basketball/
+
+**Why Republicans are Changing Course on Immigration**\
+`What did Speaker Mike Johnson mean when he talked about a “course correction” in the Trump administration’s deportation approach? Our White House correspondent Zolan Kanno-Youngs analyzes how the message around deportation is changing.`\
+https://nytimes.com/video/us/politics/100000010769509/why-trumps-immigration-policy-is-becoming-unpopular-with-voters.html
+
 **Why Republicans are Changing Course on Immigration**\
 `What did House Speaker Mike Johnson mean when he talked about a “course correction” in the Trump administration’s deportation agenda? Our White House correspondent Zolan Kanno-Youngs analyzes how the message around deportation is changing.`\
 https://nytimes.com/video/us/politics/100000010769509/why-trumps-immigration-policy-is-becoming-unpopular-with-voters.html
