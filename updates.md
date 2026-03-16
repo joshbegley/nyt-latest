@@ -1,3 +1,15 @@
+**Darius Slay, 6-time Pro Bowl cornerback with Lions and Eagles, announces retirement**\
+`Slay had 28 career interceptions and was named first-team All-Pro in 2017 with the Lions.`\
+https://nytimes.com/athletic/7122999/2026/03/16/darius-slay-retires-lions-eagles/
+
+**The 10 most likely women’s NCAA Tournament upsets for March Madness 2026**\
+`One team in particular looks poised to make an upset splash — if they can get out of the First Four.`\
+https://nytimes.com/athletic/7122807/2026/03/16/womens-march-madness-2026-upsets-first-round/
+
+**Yoshinobu Yamamoto earns Dodgers Opening Day start after World Series run**\
+`Yamamoto will join an exclusive list of pitchers who recorded the final out of a World Series and threw the first pitch of the next season.`\
+https://nytimes.com/athletic/7122689/2026/03/16/yoshinobu-yamamoto-dodgers-opening-day-start/
+
 **FPL Gameweek 30 review: Going Timber, future-proof Fulham and bracing for blanks**\
 `With several teams not playing next gameweek and European fixtures still to come, patience will be key before locking in transfers`\
 https://nytimes.com/athletic/7121015/2026/03/16/fantasy-premier-league-fpl-tips-gameweek-review/

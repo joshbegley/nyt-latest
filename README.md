@@ -1,4 +1,12 @@
-**Darius Slay, 6-time Pro Bowl cornerback with Lions and Eagles, announces retirement**\
+**Trump Defends Need for Kennedy Center Renovation Project**\
+`Ahead of a vote on whether to close the center for two years of construction, the president criticized its previous financial management and physical condition.`\
+https://nytimes.com/2026/03/16/arts/design/kennedy-center-renovations-trump.html
+
+**Why South Korea’s Strawberry Farmers Indulge a ‘Fussy Fruit’**\
+`Strawberries, one of the country’s top fresh agricultural exports, are grown year-round in greenhouses. The harvest hinges on technical prowess and a great degree of care.`\
+https://nytimes.com/card/2026/03/16/world/asia/south-korea-strawberry-farming
+
+**Darius Slay, 6-time Pro Bowl CB with Lions and Eagles, announces retirement**\
 `Slay had 28 career interceptions and was named first-team All-Pro in 2017 with the Lions.`\
 https://nytimes.com/athletic/7122999/2026/03/16/darius-slay-retires-lions-eagles/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7122991/2026/03/16/mammoth-vs-stars-stream-how-to-w
 **John Bengtson, Modern-Day Silent-Film Sleuth, Dies at 68**\
 `Enamored of stars like Charlie Chaplin, he matched outdoor scenes from their movies to contemporary locales, creating a visual record of vanished cityscapes.`\
 https://nytimes.com/2026/03/16/movies/john-bengtson-dead.html
-
-**America’s Parks Need More Than Love. They Need Us.**\
-`Stunning landscapes and meaningful memorials tell the story of our nation’s past. Working together, we can ensure they remain part of our future.`\
-https://nytimes.com/paidpost/2025-09-24/.html
-
-**Michael B. Jordan Celebrates Oscar Win at In-N-Out**\
-`Michael B. Jordan, who won his first Oscar for best actor on Sunday for his role in “Sinners,” celebrated his win at In-N-Out Burger.`\
-https://nytimes.com/video/us/100000010781567/michael-b-jordan-celebrates-oscar-win-at-in-n-out.html
 
