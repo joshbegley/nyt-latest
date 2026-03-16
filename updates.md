@@ -1,3 +1,11 @@
+**Autumn Durald Arkapaw makes history as the first woman to win best cinematography.**\
+`By Melena Ryzik`\
+https://nytimes.com/live/2026/03/15/movies/oscars-2026-live-updates-red-carpet/autumn-durald-arkapaw-oscar-sinners-cinematography
+
+**A Surprising Oscars Tie Is the Seventh in Academy Awards History**\
+`In 1969, Katharine Hepburn and Barbra Streisand each received an Oscar in the best actress category.`\
+https://nytimes.com/2026/03/15/movies/oscar-tie-history-academy-awards.html
+
 **Absent From the Red Carpet? Dramatic Makeup.**\
 `On the Oscars red carpet, many celebrities opted for subtle pops of color over dramatic, high-glam makeup.`\
 https://nytimes.com/2026/03/15/style/oscars-makeup-red-carpet-trend.html
