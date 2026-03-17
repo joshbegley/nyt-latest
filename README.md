@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/16/world/middleeast/iran-war-recap-lebanon-ground-invasion.html
 
 **In WBC championship between U.S. and Venezuela, which team has the edge?**\
-`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game. `\
+`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game.`\
 https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-championship-united-states-venezuela-lineup-edge/
 
 **Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
