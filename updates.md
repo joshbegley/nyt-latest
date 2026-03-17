@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 2-8) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
+`Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
+https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
+
 **Did ‘KPop Demon Hunters’ ... Get Robbed?**\
 `Wesley Morris talks about the big Oscars wins for “KPop Demon Hunters” and asks: Should it have been nominated in even more categories?`\
 https://nytimes.com/video/podcasts/100000010784953/did-kpop-demon-hunters-get-robbed.html
