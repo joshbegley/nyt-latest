@@ -1,41 +1,41 @@
-**‘It’s insane’: Inside the early days of the Washington Nationals’ tech revolution**\
-`The Nationals have a new front office, a new manager and tons of new technology they lacked under former GM Mike Rizzo.
+**2026 NHL Draft ranking: Gavin McKenna returns to top of Wheeler's list**\
+`McKenna and Stenberg have been 1-2 on all five of Wheeler's lists, but the Penn State star has regained the No. 1 spot.`\
+https://nytimes.com/athletic/7105520/2026/03/17/2026-nhl-draft-ranking-gavin-mckenna-ivar-stenberg-prospects/
+
+**Lions depth chart: Decisions on offensive line and edge rusher loom large**\
+`Will Penei Sewell move from right to left tackle? Who will start opposite edge rusher Aidan Hutchinson?`\
+https://nytimes.com/athletic/7123770/2026/03/17/lions-depth-chart-2026-free-agency/
+
+**Kane's big game powers Red Wings win to kick off crucial homestand: 5 thoughts**\
+`Kane is Detroit's most proven big-game player, and he delivered with two big goals in Monday's 5-2 win.`\
+https://nytimes.com/athletic/7124445/2026/03/17/detroit-red-wings-patrick-kane-nhl-playoff-race/
+
+**‘I know better than that’: McAvoy and Bruins fumble a point in awful second period**\
+`A failure to execute their coach's instructions bit the Bruins hard in a frustrating loss to the Devils.`\
+https://nytimes.com/athletic/7124497/2026/03/17/bruins-turnovers-mcavoy-pastrnak-overtime-devils/
+
+**Mets' last bullpen spot up for grabs, a new fascination with the cutter and other notes**\
+`Devin Williams is locked in at closer, while veteran Craig Kimbrel and Bryan Hudson are among the relievers battling for the final job.`\
+https://nytimes.com/athletic/7123208/2026/03/17/mets-bullpen-relievers-roster/
+
+**How to watch men’s March Madness First Four: Texas-NC State, UMBC-Howard on Day 1**\
+`March Madness begins in Dayton with the First Four. First up Tuesday night is UMBC vs. Howard, followed by Texas vs. NC State. `\
+https://nytimes.com/athletic/7123656/2026/03/17/march-madness-first-four-texas-nc-state-how-to-watch/
+
+**Jaylen Brown feeling the love from Boston during rewarding Celtics season**\
+`Brown heard several more M-V-P chants while scoring 41 points in the Celtics' 120-112 win over the Phoenix Suns.
 `\
-https://nytimes.com/athletic/7124468/2026/03/17/washington-nationals-technology-new-front-office/
+https://nytimes.com/athletic/7124639/2026/03/17/jaylen-brown-celtics-feeling-love-boston/
 
-**Here’s the latest.**\
-`By Lisa Lerer`\
-https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-the-latest
+**Maple Leafs were embarrassed enough to fight back. Now what?**\
+`Sure, the Leafs eventually woke up. The problem is, this has happened before, and there's no clear solution in sight.`\
+https://nytimes.com/athletic/7123256/2026/03/17/maple-leafs-matthews-hit-response-roster-culture/
 
-**Election Live Updates: Illinois Holds Primary to Succeed Durbin in Senate**\
-`Lt. Gov. Juliana Stratton and two House members, Raja Krishnamoorthi and Robin Kelly, are competing for the Democratic nomination to run for Senator Richard J. Durbin’s seat.`\
-https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms
+**At the WBC final, Roman Anthony's journey comes full circle with Team USA**\
+`Three years ago, Roman Anthony paid for his ticket to the WBC championship. Tuesday night, he'll play in it.`\
+https://nytimes.com/athletic/7124871/2026/03/17/world-baseball-classic-team-usa-roman-anthony-journey/
 
-**Trump Suggests ‘Taking’ Cuba as Island Deals With Blackout**\
-`The president said he believed he would have the “honor of taking Cuba” on Monday. His comments came as a nationwide blackout and an energy crisis cripple the island.`\
-https://nytimes.com/video/world/americas/100000010783511/cuba-blackout-trump-take.html
-
-**Another Tanker Is Attacked Near the Strait of Hormuz**\
-`The ship was struck near an Emirati port, in the first such attack in five days. The United Arab Emirates also said it was intercepting Iranian drones and missiles.`\
-https://nytimes.com/2026/03/17/world/middleeast/tanker-attack-iran-war-strait-hormuz-oil.html
-
-**Why Team USA has a rookie pitcher starting with a WBC title on the line**\
-`Nolan McLean is a still a rookie, but Team USA is putting their trust in his electric fastball and poise in the WBC final.`\
-https://nytimes.com/athletic/7123241/2026/03/17/nolan-mclean-world-baseball-classic-finale-mets/
-
-**Why robo-umps have made 5-foot-6 Jose Altuve and 6-foot-7 Aaron Judge coursework for MLB catchers**\
-`Some thought robo-umps would kill pitch framing. Instead, catchers are making it a weapon, learning each hitter's zone to use against them.`\
-https://nytimes.com/athletic/7122786/2026/03/17/mlb-catchers-strike-zone-umpire-judge-altuve/
-
-**Browns QB tracker: Shedeur Sanders appears to be early leader to win starting job**\
-`After one week of free agency and no additions to the QB room, Sanders may have a runway to begin the 2026 season as Cleveland's starter.`\
-https://nytimes.com/athletic/7123750/2026/03/17/browns-shedeur-sanders-2026-starting-quarterback/
-
-**WBC final explainer: Determined Venezuela looks to play spoiler for Dream Team USA**\
-`There’s never been this much American buzz around a World Baseball Classic. Could Team Venezuela put an end to the WBC Dream Team's run?`\
-https://nytimes.com/athletic/7124166/2026/03/17/wbc-final-explainer-usa-venezuela/
-
-**Colts depth chart: Glaring holes at linebacker, defensive end after start of free agency**\
-`Free agency continues and the draft looms, but if the Colts want to end their five-year playoff drought, they have a lot more work to do.`\
-https://nytimes.com/athletic/7123847/2026/03/17/colts-depth-chart-nfl-free-agency/
+**2026 NHL prospect pool rankings: No. 24 Tampa Bay Lightning**\
+`It has been a long time since the Lightning hit on a prospect at the draft. Still, they have a few relevant prospects in their pool.`\
+https://nytimes.com/athletic/6963887/2026/03/17/tampa-bay-lightning-nhl-prospect-rankings-2026/
 
