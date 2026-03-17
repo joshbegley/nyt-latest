@@ -1,3 +1,11 @@
+**'A horse': John Carlson gives the Ducks everything they hoped to see**\
+`Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
+https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
+
+**Channeling a Plaid Blanket, Down to the Fringe**\
+`Electric colors and a soft texture distinguished an ensemble seen on the streets of London.`\
+https://nytimes.com/2026/03/17/style/plaid-wool-sweater-pants.html
+
 **Peter Thiel Fears the Antichrist Is Coming. In Rome, Some Call His View Heresy.**\
 `The right-wing tech investor is giving lectures near the Catholic church’s administrative heart. Commentators there are rejecting his apocalyptic vision.`\
 https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholics.html

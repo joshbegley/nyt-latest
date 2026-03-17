@@ -1,3 +1,11 @@
+**'A horse': John Carlson gives the Ducks everything they hoped to see**\
+`Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
+https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
+
+**Channeling a Plaid Blanket, Down to the Fringe**\
+`Electric colors and a soft texture distinguished an ensemble seen on the streets of London.`\
+https://nytimes.com/2026/03/17/style/plaid-wool-sweater-pants.html
+
 **Peter Thiel Fears the Antichrist Is Coming. In Rome, Some Call His View Heresy.**\
 `The right-wing tech investor is giving lectures near the Catholic church’s administrative heart. Commentators there are rejecting his apocalyptic vision.`\
 https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporte
 **The 12 men's basketball teams with the best chance of winning their first championship**\
 `With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
 https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
-
-**How to watch the 2026 Houston Astros: Streaming info for Altuve, Correa and crew**\
-`Amid the ever-changing rules of streaming live sports, we lay out how to watch all 162 (or more) Astros games this season.`\
-https://nytimes.com/athletic/7121402/2026/03/17/houston-astros-altuve-correa-how-to-watch-2026/
-
-**The spring of Kevin McGonigle isn’t slowing down. Will he skip Triple A?**\
-`Detroit prospect, just 21, has answered every question this spring as he has grown more comfortable in the big league clubhouse.`\
-https://nytimes.com/athletic/7123690/2026/03/17/tigers-kevin-mcgonigle-spring-training/
 
