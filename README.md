@@ -1,3 +1,19 @@
+**How to watch Pistons vs. Wizards: Time, TV, streaming**\
+`Find out how to watch the Detroit Pistons play the Washington Wizards, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125509/2026/03/17/pistons-vs-wizards-stream-how-to-watch-march-17/
+
+**Israel Says It Killed Ali Larijani, Iran’s De Facto Leader**\
+`Israel said it had killed Ali Larijani, Iran’s de facto leader and close confidant of Ayatollah Ali Khamenei, the supreme leader who was killed in an Israeli airstrike at the start of the war.`\
+https://nytimes.com/video/world/middleeast/100000010783824/israel-ali-larijani-iran-strike.html
+
+**Gerrit Cole to make spring debut, another key step in return from Tommy John surgery**\
+`Cole will make his spring training debut Wednesday against the Red Sox and is expected to pitch one inning. `\
+https://nytimes.com/athletic/7125240/2026/03/17/gerrit-cole-yankees-spring-training-debut-red-sox/
+
+**How to watch Heat vs. Hornets: Time, TV, streaming**\
+`Find out how to watch the Miami Heat play the Charlotte Hornets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125479/2026/03/17/heat-vs-hornets-stream-how-to-watch-march-17/
+
 **How to watch Thunder vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125477/2026/03/17/thunder-vs-magic-stream-how-to-watch-march-17/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7121630/2026/03/17/blue-jackets-playoff-spot-nhl-st
 **What a MAHA Activist and a Yale Scientist Can Agree On**\
 `In Ohio after a toxic chemical accident, finding common ground in the country’s health wars.`\
 https://nytimes.com/2026/03/17/opinion/health/maha-public-health.html
-
-**Gorgeously Green Kale Sauce Pasta**\
-`Says one reader: “I made this and called it ‘Shrek pasta.’ Was delicious.”`\
-https://nytimes.com/2026/03/17/dining/gorgeously-green-kale-sauce-pasta.html
-
-**The Windup: Tonight's WBC final is set**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/7125437/2026/03/17/venezuela-usa-wbc-final-the-windup/
-
-**What to know about the World Cup of Hockey**\
-`The 2028 World Cup of Hockey will feature eight to-be-determined teams playing in Alberta and Prague. Here's what else to know.`\
-https://nytimes.com/athletic/7125359/2026/03/17/nhl-world-cup-of-hockey-2028-information/
-
-**Trump’s Next Target: ‘Taking Cuba’**\
-`Still at war with Iran and in control in Venezuela, President Trump is signaling that he is about to intervene in another country.`\
-https://nytimes.com/2026/03/17/world/americas/trump-cuba-intervention.html
 
