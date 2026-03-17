@@ -1,3 +1,7 @@
+**Matt Leinart won't allow USC to unretire his No. 11 jersey for high-level recruits**\
+`Matt Leinart said the only way he would consider allowing another player at USC to wear No. 11 is if one of his sons was a Trojan.`\
+https://nytimes.com/athletic/7125732/2026/03/17/matt-leinart-usc-unretire-jersey-college-football-recruiting/
+
 **Everyone Deserves a Teeny Turner**\
 `My family treasures this tiny but mighty precision screwdriver. Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
 https://nytimes.com/wirecutter/reviews/teeny-turner-review/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
 **Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
 `New York City has been paying for the lawyers representing former Mayor Eric Adams in a civil lawsuit concerning an alleged sexual assault in the 1990s.`\
 https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
-
-**Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
-`Adolescents said they were more likely to share photos with a dating partner, or when they had been worn down with repeated requests.`\
-https://nytimes.com/2026/03/17/well/family/teen-sextortion-sexting-nude-images.html
 

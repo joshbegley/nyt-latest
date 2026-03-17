@@ -1,3 +1,19 @@
+**Everyone Deserves a Teeny Turner**\
+`My family treasures this tiny but mighty precision screwdriver. Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
+https://nytimes.com/wirecutter/reviews/teeny-turner-review/
+
+**Submit your questions for Mike DeFabo’s Steelers mailbag**\
+`The Steelers are through the first wave of free agency with plenty of work still to do.`\
+https://nytimes.com/athletic/7125784/2026/03/17/steelers-mailbag-free-agency-draft/
+
+**How to watch Cavaliers vs. Bucks: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125809/2026/03/17/cavaliers-vs-bucks-stream-how-to-watch-march-17/
+
+**How to watch Pacers vs. Knicks: Time, TV, streaming**\
+`Find out how to watch the Indiana Pacers play the New York Knicks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125802/2026/03/17/pacers-vs-knicks-stream-how-to-watch-march-17/
+
 **How to watch Suns vs. Timberwolves: Time, TV, streaming**\
 `Find out how to watch the Phoenix Suns play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125798/2026/03/17/suns-vs-timberwolves-stream-how-to-watch-march-17/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
 **Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
 `Adolescents said they were more likely to share photos with a dating partner, or when they had been worn down with repeated requests.`\
 https://nytimes.com/2026/03/17/well/family/teen-sextortion-sexting-nude-images.html
-
-**Illinois Primaries Flooded With Money From AIPAC and Cryptocurrency**\
-`Various groups connected to the pro-Israel lobby have spent millions on House races, while cryptocurrency super PACs have spent heavily in the Democratic primary for Senate.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-primaries-aipac-cryptocurrency-ai-superpacs.html
-
-**Marquise Brown agrees to free-agent deal with Eagles: Source**\
-`Brown had 49 catches for 587 yards with five TDs last season, providing the Chiefs with one of their most consistent offensive options.`\
-https://nytimes.com/athletic/7087940/2026/03/17/marquise-brown-nfl-free-agency-2026/
-
-**An ‘Unprecedented’ Outbreak of Meningitis Raises Alarm in Britain**\
-`Two people have died in an outbreak of meningococcal disease. Many cases were traced to a nightclub in Canterbury that is popular with students at the University of Kent.`\
-https://nytimes.com/2026/03/17/world/europe/meningitis-b-outbreak-kent-uk.html
-
-**Christopher A. Sims, 83, Dies; Won Nobel for Modeling Economic Policy**\
-`He and Thomas J. Sargent shared the prize in 2011 for devising statistical tools to help guide economic policymakers.`\
-https://nytimes.com/2026/03/17/business/economy/christopher-a-sims-dead.html
 
