@@ -30,8 +30,8 @@ https://nytimes.com/2026/03/17/us/politics/trump-voter-id-bill.html
 `Parros has come under fire for suspending the Ducks captain five games for a knee-on-knee hit that ended Auston Matthews' season.`\
 https://nytimes.com/athletic/7125195/2026/03/17/george-parros-nhl-player-safety-radko-gudas/
 
-**A Top U.S. Counterterrorism Official Resigns, Citing the Iran War**\
-`Joe Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
+**Joe Kent, a Top U.S. Counterterrorism Official Resigns Over the Iran War**\
+`Mr. Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
 https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
 
 **Diagramming the Latest Blows to Iran’s Leadership**\
