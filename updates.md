@@ -1,3 +1,11 @@
+**Wolves, unity and a pre-match huddle that actually appears to work**\
+`Rob Edwards' side are doomed to relegation but, having improved dramatically in recent weeks, are rebuilding the relationship with the fans`\
+https://nytimes.com/athletic/7124336/2026/03/17/wolves-huddle-edwards-unity/
+
+**Jimmy Kimmel Has a Bone to Pick With Trump’s War Plans**\
+`“The only war Trump had an exit plan for was Vietnam,” Kimmel remarked after the president said he would end the war in Iran when he “feels it in his bones.”`\
+https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
+
 **Jimmy Kimmel Says the ‘Only War Trump Had an Exit Plan for Was Vietnam’**\
 `The host made the remark about Donald Trump avoiding the draft after the president said he would end the war in Iran when he “feels it in his bones.”`\
 https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html

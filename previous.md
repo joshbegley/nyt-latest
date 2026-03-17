@@ -1,5 +1,9 @@
-**Jimmy Kimmel Says the ‘Only War Trump Had an Exit Plan for Was Vietnam’**\
-`The host made the remark about Donald Trump avoiding the draft after the president said he would end the war in Iran when he “feels it in his bones.”`\
+**Wolves, unity and a pre-match huddle that actually appears to work**\
+`Rob Edwards' side are doomed to relegation but, having improved dramatically in recent weeks, are rebuilding the relationship with the fans`\
+https://nytimes.com/athletic/7124336/2026/03/17/wolves-huddle-edwards-unity/
+
+**Jimmy Kimmel Has a Bone to Pick With Trump’s War Plans**\
+`“The only war Trump had an exit plan for was Vietnam,” Kimmel remarked after the president said he would end the war in Iran when he “feels it in his bones.”`\
 https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
 
 **Word of the Day: adverse**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123253/2026/03/17/chelsea-roman-abramovich-era-pun
 **England's 2026 World Cup squad: Who our writers are picking - and who is missing out**\
 `Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
 https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
-
-**Anfield's faith in Liverpool and Slot is eroding. The season is at a tipping point**\
-`Fans' support for their team has never been unconditional and patience has been stretched to breaking point by a poor campaign`\
-https://nytimes.com/athletic/7112667/2026/03/17/liverpool-anfield-fans-arne-slot/
 
