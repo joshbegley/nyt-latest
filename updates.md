@@ -1,3 +1,7 @@
+**Trump Says U.S. Doesn’t Need Help From U.S. Allies in Iran**\
+`Amid mounting criticism from other countries and his own administration, President Trump told reporters that the U.S. didn’t need help opening the Strait of Hormuz.`\
+https://nytimes.com/video/us/politics/100000010785651/trump-nato-iran-war.html
+
 **The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 2-8) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
 `Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
 https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/

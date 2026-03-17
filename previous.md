@@ -1,3 +1,7 @@
+**Trump Says U.S. Doesn’t Need Help From U.S. Allies in Iran**\
+`Amid mounting criticism from other countries and his own administration, President Trump told reporters that the U.S. didn’t need help opening the Strait of Hormuz.`\
+https://nytimes.com/video/us/politics/100000010785651/trump-nato-iran-war.html
+
 **Did ‘KPop Demon Hunters’ ... Get Robbed?**\
 `Wesley Morris talks about the big Oscars wins for “KPop Demon Hunters” and asks: Should it have been nominated in even more categories?`\
 https://nytimes.com/video/podcasts/100000010784953/did-kpop-demon-hunters-get-robbed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-
 **Read the White House Letter to Senate Republicans**\
 `In a letter sent to two Republican senators, White House officials outlined narrow changes it would be willing to make to its immigration enforcement operations.`\
 https://nytimes.com/interactive/2026/03/17/us/politics/homeland-security-funding-letter.html
-
-**White House Offers Narrow Immigration Enforcement Changes As Talks Drag On**\
-`Administration officials have put forth several proposals to answer Democratic demands for major changes in President Trump’s crackdown in exchange for reopening the Department of Homeland Security.`\
-https://nytimes.com/2026/03/17/us/politics/trump-immigration-dhs-shutdown.html
 
