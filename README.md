@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-the-latest
+
+**Election Live Updates: Illinois Holds Primary to Succeed Durbin in Senate**\
+`Lt. Gov. Juliana Stratton and two House members, Raja Krishnamoorthi and Robin Kelly, are competing for the Democratic nomination to run for Senator Richard J. Durbin’s seat.`\
+https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms
+
 **Trump Suggests ‘Taking’ Cuba as Island Deals With Blackout**\
 `The president said he believed he would have the “honor of taking Cuba” on Monday. His comments came as a nationwide blackout and an energy crisis cripple the island.`\
 https://nytimes.com/video/world/americas/100000010783511/cuba-blackout-trump-take.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7123847/2026/03/17/colts-depth-chart-nfl-free-agenc
 **Hand cramps, hydration, history: Heat's official scorer on Adebayo's 83-point night**\
 `“To document everything, to do it by hand, it’s still important to do,” said Jamie Carrig, the Heat's scorekeeper.`\
 https://nytimes.com/athletic/7123510/2026/03/17/heat-bam-adebayo-official-scorekeeper/
-
-**Ranking 2.0 for the top 2026 MLB starting fantasy pitchers with Stuff+ powered projections**\
-`It's the last week-plus for fantasy teams to draft their squads. These updated starting pitching ranks could help those last-minute drafts.`\
-https://nytimes.com/athletic/7123481/2026/03/17/mlb-starting-pitcher-rankings-2026-fantasy-baseball-updated/
-
-**NFL free agency 2026 winners and losers: Ravens' value play; Raiders left hanging**\
-`The Ravens may have gotten a bad rap for canceling the Maxx Crosby trade, but won in terms of adding a pass rusher and keeping draft picks.`\
-https://nytimes.com/athletic/7116434/2026/03/17/nfl-free-agency-2026-winners-loses-ravens-raiders/
 
