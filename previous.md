@@ -1,3 +1,7 @@
+**Champions League odds: Will the Premier League’s trailing clubs prevail?**\
+`Chelsea, Liverpool, Manchester City and Tottenham Hotspur all face an uphill task to make the final eight of the Champions League`\
+https://nytimes.com/athletic/7124952/2026/03/17/champions-league-odds-man-city-chelsea-liverpool-spurs/
+
 **What to Know About Ali Larijani, Iran’s Top Security Official**\
 `One of Ayatollah Ali Khamenei’s closest confidants, Mr. Larijani emerged as the face of the government after Mr. Khamenei was killed.`\
 https://nytimes.com/2026/03/17/world/middleeast/who-is-ali-larijani.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/why-a-
 **Expert picks for the 2026 NCAA Tournament bracket: Why Brendan Marks has Duke winning it all**\
 `A Duke team led by a freshman Player of the Year candidate is Brendan Marks' pick for the second consecutive year.`\
 https://nytimes.com/athletic/7123628/2026/03/17/march-madness-expert-bracket-picks-duke-champion/
-
-**The Pulse: How to actually win your bracket pool**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/7122905/2026/03/17/ncaa-bracket-strategy-the-pulse/
 

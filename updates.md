@@ -1,3 +1,7 @@
+**Champions League odds: Will the Premier League’s trailing clubs prevail?**\
+`Chelsea, Liverpool, Manchester City and Tottenham Hotspur all face an uphill task to make the final eight of the Champions League`\
+https://nytimes.com/athletic/7124952/2026/03/17/champions-league-odds-man-city-chelsea-liverpool-spurs/
+
 **What to Know About Ali Larijani, Iran’s Top Security Official**\
 `One of Ayatollah Ali Khamenei’s closest confidants, Mr. Larijani emerged as the face of the government after Mr. Khamenei was killed.`\
 https://nytimes.com/2026/03/17/world/middleeast/who-is-ali-larijani.html
