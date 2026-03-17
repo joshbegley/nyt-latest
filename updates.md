@@ -1,3 +1,11 @@
+**How Fox Sports landed Zlatan Ibrahimović: 'He was at the top of the list'**\
+`Fox began its pursuit of Ibrahimović last fall. The Swedish star will join Thierry Henry and Alexi Lalas atop its lineup of analysts.`\
+https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox-sports/
+
+**NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
+`Bowman, a playoff participant in seven of the past eight seasons, is almost certain to miss out this year with the extended absence.`\
+https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
+
 **No Trump Pick as Deadline Locks In Texas Senate Race**\
 `President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
 https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
