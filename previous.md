@@ -1,3 +1,27 @@
+**Row Z: Paul Tierney channels his inner David Brent, and will no one respect the football?**\
+`Our weekly roundup of football's absurder side also takes in Roy Keane's assessments of totally random Premier League managers`\
+https://nytimes.com/athletic/7122144/2026/03/17/tierney-rosenior-brent-keane-tottenham-row-z/
+
+**Why have English sides underperformed in the Champions League round of 16? It's complicated**\
+`None of the Premier League's six sides in the Champions League won their round of 16 first legs. Why not?`\
+https://nytimes.com/athletic/7006499/2026/03/17/premier-league-champions-league-round-of-16-analysis/
+
+**Serie A Briefing: Lazio fans end stadium boycott for one match only — and inspire team to beat Milan**\
+`The Olimpico filled in what was described by Lazio's ultras as one “last act of love for this season”. Elsewhere, Napoli and Como impress`\
+https://nytimes.com/athletic/7121984/2026/03/17/lazio-fan-stadium-boycott-lolito-ownership/
+
+**After Premier League sides stuttered in the Champions League, who will bounce back?**\
+`None of the English sides left in Europe's top competition won last week. Will it be a different story in the round-of-16 second legs?`\
+https://nytimes.com/athletic/7123167/2026/03/17/after-premier-league-sides-stuttered-in-the-champions-league-who-will-bounce-back/
+
+**The New York Times in Print for Tuesday, March 17, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/17/todays-new-york-times
+
+**Trump’s Dangerous Lack of a Strategy in Iran**\
+`The early reality of the Iran war is not cooperating with President Trump’s bluster.`\
+https://nytimes.com/2026/03/17/opinion/trump-iran-war-strategy.html
+
 **Former Syracuse QB Rex Culpepper dies at 28 after dirt bike accident**\
 `Culpepper spent most of his career at Syracuse as a backup quarterback and was diagnosed with testicular cancer in 2018. `\
 https://nytimes.com/athletic/7124514/2026/03/17/syracuse-rex-culpepper-dies-brad-qb/
@@ -13,28 +37,4 @@ https://nytimes.com/2026/03/17/world/europe/iran-uk-raf-fairford-starmer-trump.h
 **Connections: Sports Edition Coach: Hints and answers for March 17, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7124610/2026/03/17/connections-sports-edition-hints-answers-march-17-2026/
-
-**As War With Iran Hurts Oil Prices, U.S. Turns to Iranian Boats for Help**\
-`Iranian-linked ships carrying Russian oil were among those that received temporary exemptions from sanctions, a sign of how dire the energy crisis is becoming.`\
-https://nytimes.com/2026/03/17/business/iran-war-boats-russian-oil.html
-
-**Corrections: March 17, 2026**\
-`Corrections that appeared in print on Tuesday, March 17, 2026.`\
-https://nytimes.com/2026/03/17/pageoneplus/corrections-march-17-2026.html
-
-**Quote of the Day: Trump Faults Allies Over Their Lukewarm Responses to Securing Strait**\
-`Quotation of the Day for Tuesday, March 17, 2026.`\
-https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-trump-faults-allies-over-their-lukewarm-responses-to-securing-strait.html
-
-**Oil Begins Flowing Through California Pipeline Under Trump Order**\
-`Oil had not flowed through the pipeline since a 2015 rupture caused an environmental disaster on California’s Central Coast. It sets up a new fight between the Trump administration and state officials.`\
-https://nytimes.com/2026/03/16/us/santa-barbara-oil-pipeline-trump.html
-
-**Here’s What Happened in the War in the Middle East on Monday**\
-`President Trump said he might postpone a trip to China to focus on the war. More than a million people have been displaced in Lebanon this month, according to the country’s health ministry.`\
-https://nytimes.com/2026/03/16/world/middleeast/iran-war-recap-lebanon-ground-invasion.html
-
-**In WBC championship between U.S. and Venezuela, which team has the edge?**\
-`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game in Miami.`\
-https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-championship-united-states-venezuela-lineup-edge/
 
