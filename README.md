@@ -1,3 +1,11 @@
+**The Art of the Fashion Farewell**\
+`How designers took their bows this season.`\
+https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
+
+**Alfredo Bryce Echenique, 87, Dies; Novelist Bared Peru’s Privileged Class**\
+`“The other Peruvian” (alongside Mario Vargas Llosa), he exposed the heedlessness of the upper crust, which he knew well, and the quiet suffering of the classes underneath.`\
+https://nytimes.com/2026/03/17/books/alfred-bryce-echenique-dead.html
+
 **Creative, Quick and Not ‘Dumb’ at All: What It’s Like to Have Dyslexia**\
 `As many as 20 percent of Americans have dyslexia, a learning disorder that is not connected to IQ.`\
 https://nytimes.com/2026/03/17/well/dyslexia-trump-newsom-stigma.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010784868/the-mlb-prospect-who-also
 **Will 2026 World Cup Games Be Played on Artificial Turf?**\
 `Some 2026 World Cup matches will be played in N.F.L. stadiums, which typically use artificial turf. In preparation, many stadiums are getting big makeovers.`\
 https://nytimes.com/video/the-athletic/100000010784843/will-2026-world-cup-games-be-played-on-artificial-turf.html
-
-**As Trump belittled European allies, the Irish leader pushed back, gently.**\
-`By Megan Specia`\
-https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/trump-ireland-european-allies
-
-**Health Groups Hailed a Vaccine Ruling, but Their Relief May Be Short-Lived**\
-`Lawyers for both sides in the federal lawsuit, brought by six medical organizations, are trying to understand the ramifications of the judge’s decision.`\
-https://nytimes.com/2026/03/17/health/rfk-jr-vaccine-policy-lawsuit-court-ruling.html
 
