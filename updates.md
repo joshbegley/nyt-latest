@@ -1,3 +1,7 @@
+**Breaking down men's NCAA tournament upset potential in Round 1**\
+`An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
+https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
+
 **In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
 `Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
