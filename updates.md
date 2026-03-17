@@ -1,3 +1,8 @@
+**‘It’s insane’: Inside the early days of the Washington Nationals’ tech revolution**\
+`The Nationals have a new front office, a new manager and tons of new technology they lacked under former GM Mike Rizzo.
+`\
+https://nytimes.com/athletic/7124468/2026/03/17/washington-nationals-technology-new-front-office/
+
 **Here’s the latest.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-the-latest
