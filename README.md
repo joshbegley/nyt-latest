@@ -1,3 +1,11 @@
+**How to watch UMBC vs. Howard men's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the UMBC Retrievers play the Howard Bison, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125609/2026/03/17/umbc-vs-howard-stream-how-to-watch-march-17/
+
+**How a Melting Glacier Could Affect Millions**\
+`As our climate reporter Raymond Zhong wraps up his reporting trip to Antarctica, he reflects on how the collapse of the Thwaites Glacier could redraw coastlines and displace millions of people in some of the world’s fastest-growing cities.`\
+https://nytimes.com/video/climate/100000010734830/how-a-melting-glacier-could-affect-millions.html
+
 **Under Roman Abramovich, Chelsea Broke Rules for Years, Premier League Says**\
 `The Russian oligarch spent nearly two decades building the London soccer club into a sporting superpower. That success was built partly on regulation breaches, an investigation found.`\
 https://nytimes.com/2026/03/17/world/europe/chelsea-soccer-abramovich-premier-league.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7125554/2026/03/17/islanders-vs-maple-leafs-stream-
 **Broncos trade for Jaylen Waddle, send picks to Dolphins: Sources**\
 `Waddle, a first-round pick in 2021 out of Alabama, played five years for the Dolphins and had three 1,000-yard receiving seasons.`\
 https://nytimes.com/athletic/7125519/2026/03/17/jaylen-waddle-trade-broncos-dolphins-nfl-news/
-
-**How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125540/2026/03/17/hurricanes-vs-blue-jackets-stream-how-to-watch-march-17/
-
-**How to watch Bruins vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125537/2026/03/17/bruins-vs-canadiens-stream-how-to-watch-march-17/
 
