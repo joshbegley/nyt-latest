@@ -1,3 +1,19 @@
+**Why Tanking Doesn’t Work in the N.B.A.**\
+`Losing more games means a better odd to a No. 1 draft pick, but it doesn’t guarantee a successful rebuild. Zach Harper, a basketball writer for The Athletic, explains why.`\
+https://nytimes.com/video/the-athletic/100000010784835/why-tanking-doesnt-work-in-the-nba.html
+
+**The M.L.B. Prospect Who Also Cuts Hair for Free**\
+`The Houston Astros’ future might rest on Xavier Neyens, a shortstop and budding barber off the field.`\
+https://nytimes.com/video/the-athletic/100000010784868/the-mlb-prospect-who-also-cuts-hair-for-free.html
+
+**Will 2026 World Cup Games Be Played on Artificial Turf?**\
+`Some 2026 World Cup matches will be played in N.F.L. stadiums, which typically use artificial turf. In preparation, many stadiums are getting big makeovers.`\
+https://nytimes.com/video/the-athletic/100000010784843/will-2026-world-cup-games-be-played-on-artificial-turf.html
+
+**As Trump belittled European allies, the Irish leader pushed back, gently.**\
+`By Megan Specia`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/trump-ireland-european-allies
+
 **Health Groups Hailed a Vaccine Ruling, but Their Relief May Be Short-Lived**\
 `Lawyers for both sides in the federal lawsuit, brought by six medical organizations, are trying to understand the ramifications of the judge’s decision.`\
 https://nytimes.com/2026/03/17/health/rfk-jr-vaccine-policy-lawsuit-court-ruling.html
@@ -21,20 +37,4 @@ https://nytimes.com/wirecutter/reviews/teeny-turner-review/
 **USA closer Mason Miller available for World Baseball Classic final**\
 `Should he pitch Tuesday, it would mark three appearances in five days — a significant workload considering the calendar and the intensity.`\
 https://nytimes.com/athletic/7125207/2026/03/17/usa-closer-mason-miller-available-for-world-baseball-classic-final/
-
-**Bipartisan Bill Would Waive $100,000 Visa Fees for Medical Professionals**\
-`The bill, sponsored by two Republicans and two Democrats in the House, seeks to alleviate shortages of doctors and nurses in the U.S.`\
-https://nytimes.com/2026/03/17/us/politics/h1b-visa-fees-doctors-nurses-waived-bill.html
-
-**Israel Keeps Killing Key Iranian Leaders. Will It Work?**\
-`Israeli officials trumpeted airstrikes that killed Iran’s de facto leader and the commanders of a militia notorious for violently suppressing protests. But “decapitation has its limits,” an analyst warns.`\
-https://nytimes.com/2026/03/17/world/middleeast/israel-iran-leader-deaths.html
-
-**Israel, Generational Divide Animate Democratic House Primaries in Illinois**\
-`Crowded Democratic fields will determine the power of pro-Israel lobbying dollars and how eager voters are for a new crop of leaders.`\
-https://nytimes.com/2026/03/17/us/elections/democratic-house-primaries-illinois-elections.html
-
-**Ex-Sheriff’s Deputy in Cryptocurrency Extortion Plot Sentenced to 5 Years**\
-`The former deputy with the Los Angeles County Sheriff’s Department pleaded guilty last year to conspiracy charges for his role in the scheme, according to federal prosecutors.`\
-https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencing.html
 
