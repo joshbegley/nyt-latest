@@ -1,3 +1,8 @@
+**Jaylen Brown feeling the love from Boston during rewarding Celtics season**\
+`Brown heard several more M-V-P chants while scoring 41 points in the Celtics' 120-112 win over the Phoenix Suns.
+`\
+https://nytimes.com/athletic/7124639/2026/03/17/jaylen-brown-celtics-feeling-love-boston/
+
 **Expert picks for the 2026 NCAA Tournament bracket: Why Brendan Marks has Duke winning it all**\
 `A Duke team led by a freshman Player of the Year candidate is Brendan Marks' pick for the second consecutive year.`\
 https://nytimes.com/athletic/7123628/2026/03/17/march-madness-expert-bracket-picks-duke-champion/
