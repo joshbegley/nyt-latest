@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Ephrat Livni and John Yoon`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/heres-the-latest
+
+**Iran War Live Updates: Another Tanker Is Hit Near Strait of Hormuz**\
+`A tanker anchored near an Emirati port was hit by a projectile, the first strike on a ship in and around the strait in five days. President Trump criticized countries that have declined to help unblock the vital oil route.`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon
+
 **As Income Gap Grows, So Do Fears Over Access to a Quality Education**\
 `Leaders and parents worry that a widening economic divide amid the current affordability crisis could amplify the role that money plays in access to a robust education in New York.`\
 https://nytimes.com/2026/03/17/nyregion/affordable-education-income-inequality.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-st
 **Word of the Day: adverse**\
 `This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
-
-**What Mavropanos's viral face block says about his West Ham revival**\
-`When Erling Haaland let fly, it seemed certain the Manchester City striker would score. But Mavropanos had other ideas`\
-https://nytimes.com/athletic/7122063/2026/03/17/konstantinos-mavropanos-block-man-city-west-ham/
-
-**Carrick is offering Man Utd's flexible front four just enough freedom to thrive**\
-`How decoy runs, Fernandes' brilliance and a carefully struck balance are behind their rise to third`\
-https://nytimes.com/athletic/7121944/2026/03/17/manchester-united-attack-tactics-carrick/
 

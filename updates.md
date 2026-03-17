@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Ephrat Livni and John Yoon`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/heres-the-latest
+
+**Iran War Live Updates: Another Tanker Is Hit Near Strait of Hormuz**\
+`A tanker anchored near an Emirati port was hit by a projectile, the first strike on a ship in and around the strait in five days. President Trump criticized countries that have declined to help unblock the vital oil route.`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon
+
 **As Income Gap Grows, So Do Fears Over Access to a Quality Education**\
 `Leaders and parents worry that a widening economic divide amid the current affordability crisis could amplify the role that money plays in access to a robust education in New York.`\
 https://nytimes.com/2026/03/17/nyregion/affordable-education-income-inequality.html
