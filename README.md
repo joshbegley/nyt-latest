@@ -10,6 +10,10 @@ https://nytimes.com/live/2026/03/17/us/trump-news
 `The designer is embarking on a partnership with Zara.`\
 https://nytimes.com/2026/03/17/style/john-galliano-zara.html
 
+**'It’s just an addiction' – Travelling with Manchester United's Irish supporters**\
+`For many Irish Manchester United fans, following the team home and away is a way of life`\
+https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporters/
+
 **The 12 men's basketball teams with the best chance of winning their first championship**\
 `With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
 https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/theater/school-girls-bioh-broadway.html
 **Who should Slot pick in Liverpool's biggest game of the season?**\
 `Our writers pick their XIs for the visit of the Turkish champions, which could define the Merseysiders' campaign`\
 https://nytimes.com/athletic/7123119/2026/03/17/liverpool-galatasaray-predictions-team/
-
-**Iran’s Hormuz Stranglehold Upends Markets and Geopolitics**\
-`Energy prices continued to climb around the world as war in the Middle East intensifies. That has scrambled President Trump’s foreign policy strategy.`\
-https://nytimes.com/2026/03/17/business/dealbook/iran-hormuz-markets-geopolitics.html
 
