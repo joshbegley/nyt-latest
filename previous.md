@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/17/dining/nyc-restaurant-news.html
 `Since a school and a synagogue were attacked over two days, an unsettling feeling has spread among Jews in the Netherlands.`\
 https://nytimes.com/2026/03/17/world/europe/antisemitism-netherlands-amsterdam-rotterdam.html
 
-**What I'm hearing about the Penguins incredible march toward playoffs**\
+**What I'm hearing about the Penguins' incredible march toward playoffs**\
 `The Penguins, the surprise of the NHL, might not be a one-year fluke. `\
 https://nytimes.com/athletic/7125717/2026/03/17/penguins-nhl-playoffs-standings-race/
 
@@ -29,8 +29,4 @@ https://nytimes.com/athletic/7125582/2026/03/17/jaylen-waddle-broncos-dolphins-t
 **Eau de Chocolat: A Smelly Ice Cream Ad Tempts Few London Commuters**\
 `Magnum Ice Cream is scaling back a scented ad at King’s Cross station after commuters complained that the aroma was “sickly” and “artificial.”`\
 https://nytimes.com/2026/03/17/world/europe/magnum-ice-cream-scent-ad-campaign-london.html
-
-**Democrats Hammer Trump on ‘Energy Affordability’ as Iran War Continues**\
-`A new Senate report argues the Trump administration has also pushed costs up by stifling clean energy.`\
-https://nytimes.com/2026/03/17/climate/trump-iran-war-oil-gas-prices-affordability.html
 
