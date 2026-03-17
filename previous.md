@@ -1,3 +1,19 @@
+**Jaylen Waddle trade grades: Has Dolphins' teardown gone too far?**\
+`On the other side, the Broncos get a needed complement to Courtland Sutton.`\
+https://nytimes.com/athletic/7125582/2026/03/17/jaylen-waddle-broncos-dolphins-trade-grades/
+
+**Eau de Chocolat: A Smelly Ice Cream Ad Tempts Few London Commuters**\
+`Magnum Ice Cream is scaling back a scented ad at King’s Cross station after commuters complained that the aroma was “sickly” and “artificial.”`\
+https://nytimes.com/2026/03/17/world/europe/magnum-ice-cream-scent-ad-campaign-london.html
+
+**Democrats Hammer Trump on ‘Energy Affordability’ as Iran War Continues**\
+`A new Senate report argues the Trump administration has also pushed costs up by stifling clean energy.`\
+https://nytimes.com/2026/03/17/climate/trump-iran-war-oil-gas-prices-affordability.html
+
+**8 Great Songs That Make It Easy to Be Green**\
+`Celebrate St. Patrick’s Day with Ray Charles’s take on Kermit the Frog’s classic and tracks from Lorde, Booker T. & the M.G.’s, Joni Mitchell and more.`\
+https://nytimes.com/2026/03/17/arts/music/amplifier-newsletter-green-songs.html
+
 **Ali Larijani Killing Fuels Anxiety in Iran**\
 `The death of Iran’s top national security official has ignited concern about the country’s future.`\
 https://nytimes.com/2026/03/17/world/middleeast/larijani-iran-reaction.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-pennsylvania-state-hou
 **Illinois Primary Election Results**\
 `Get live results and maps from the 2026 Illinois primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-illinois-primary.html
-
-**Pochettino on the case for Gio and USMNT's key pre-World Cup injuries**\
-`It's been two months since Gio Reyna last played for his club, but he'll have another chance to show he's World Cup-worthy`\
-https://nytimes.com/athletic/7125733/2026/03/17/mauricio-pochettino-gio-reyna-usmnt-march-roster-injuries-adams-pulisic/
-
-**Art But Make It Sports creator discusses his new book**\
-`Rader's popular social media accounts have now been translated into book form.`\
-https://nytimes.com/athletic/7105411/2026/03/17/art-but-make-it-sports-book-lj-rader/
-
-**Academy ‘Extremely Upset’ After Teyana Taylor Says Oscars Security Shoved Her**\
-`The academy said an employee of an outside security firm hired for the Oscars had “incidental contact” with the actress, which it called “not acceptable.”`\
-https://nytimes.com/2026/03/17/movies/teyana-taylor-oscars-security.html
-
-**Illinois U.S. Senate Primary Election Results**\
-`Get live results and maps from the 2026 Illinois primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-illinois-us-senate-primary.html
 
