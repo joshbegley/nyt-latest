@@ -1,3 +1,19 @@
+**Trump Says Newsom Shouldn’t Be President Because He Is Dyslexic**\
+`President Trump said “a president should not have learning disabilities,” prompting criticism from a group that advocates for people with learning disabilities.`\
+https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disabilities.html
+
+**Jonathan Groff in ‘Merrily We Roll Along,’ and More Theater to Stream**\
+`Joined by Daniel Radcliffe, Groff stars in the hit Broadway production of the Sondheim musical. And there are (count ’em) three productions of “The Importance of Being Earnest” this month.`\
+https://nytimes.com/2026/03/17/theater/jonathan-groff-merrily-we-roll-along-theater-to-stream.html
+
+**Micky van de Ven says noise around Spurs 'brings more trouble'**\
+`The Netherlands international said their season has been "really tough for everyone at the club" but that the squad still cares. `\
+https://nytimes.com/athletic/7125527/2026/03/17/micky-van-de-ven-tottenham-noise/
+
+**Loud Boom in Ohio and Pennsylvania Was Likely a Meteor, Forecasters Say**\
+`The National Weather Service said its lightning mapper and cameras picked up what appeared to be a meteor streaking across the sky Tuesday morning.`\
+https://nytimes.com/2026/03/17/us/ohio-cleveland-meteor.html
+
 **How to watch UMBC vs. Howard men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the UMBC Retrievers play the Howard Bison, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125609/2026/03/17/umbc-vs-howard-stream-how-to-watch-march-17/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7125224/2026/03/17/march-madness-2026-player-injuri
 **China Is Embracing OpenClaw a New A.I. Agent, and the Government Is Wary**\
 `Excitement about A.I. assistant tools is running into growing concerns about the security risks of software that operates autonomously on user’s devices.`\
 https://nytimes.com/2026/03/17/business/china-ai-agent.html
-
-**USMNT March roster: Pochettino includes Reyna for USA's last pre-World Cup squad**\
-`Reyna's lack of club playing time is no problem for Mauricio Pochettino, while injuries to some have opened the door to others at a key time`\
-https://nytimes.com/athletic/7123469/2026/03/17/usmnt-march-roster-belgium-portugal-pochettino-gio-reyna/
-
-**Judge Orders Prosecutors to Testify**\
-`Judge Zahid Quraishi of U.S. District Court ejected a federal prosecutor from his courtroom and ordered the three leaders designated to run the U.S. attorney’s office in New Jersey to return to court to testify.`\
-https://nytimes.com/interactive/2026/03/17/nyregion/judge-quraishi-hearing-transcript.html
-
-**How to watch Islanders vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125554/2026/03/17/islanders-vs-maple-leafs-stream-how-to-watch-march-17/
-
-**Broncos trade for Jaylen Waddle, send picks to Dolphins: Sources**\
-`Waddle, a first-round pick in 2021 out of Alabama, played five years for the Dolphins and had three 1,000-yard receiving seasons.`\
-https://nytimes.com/athletic/7125519/2026/03/17/jaylen-waddle-trade-broncos-dolphins-nfl-news/
 
