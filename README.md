@@ -1,3 +1,11 @@
+**Trump’s Next Target: ‘Taking Cuba’**\
+`Still at war with Iran and in control in Venezuela, President Trump is signaling that he is about to intervene in another country.`\
+https://nytimes.com/2026/03/17/world/americas/trump-cuba-intervention.html
+
+**A radical approach Canucks should take in free agency: Mailbag, part 1**\
+`The answer for Vancouver, at least in the short-term, is to go back to the old way of doing business when money talked.`\
+https://nytimes.com/athletic/7124764/2026/03/17/canucks-salary-cap-free-agency-strategy-mailbag/
+
 **Voting on St. Patrick’s Day? Chicago Politicians Look for Luck in the Timing.**\
 `In a county with the largest Irish American population in the U.S., a crush of parades has been a bounty for candidates searching for votes.`\
 https://nytimes.com/2026/03/17/us/elections/st-patricks-day-election-chicago.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/17/us/quake-tracker-northern-california.
 **Spain and Argentina's Qatar Finalissima was cancelled. Why couldn't Messi vs Yamal be moved?**\
 `One of football’s most lucrative and high-profile contests ended up collapsing in a cloud of acrimony this week. What happened?`\
 https://nytimes.com/athletic/7125028/2026/03/17/messi-yamal-spain-argentina-finalissima/
-
-**Trump’s Gutting of Election Security Fuels Worries for Midterms**\
-`Officials say the crippling of the Cybersecurity and Infrastructure Security Agency, which the president himself created, could open elections to cyberattacks and foreign influence.`\
-https://nytimes.com/2026/03/17/us/politics/trump-cisa-election-security.html
-
-**What’s in the Voter ID Bill Trump and Republicans Are Pushing?**\
-`The legislation would require voters to prove their citizenship in person upon registration, ban IDs without a photo at polling places and criminalize failures to enforce such requirements.`\
-https://nytimes.com/2026/03/17/us/politics/trump-voter-id-bill.html
 

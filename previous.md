@@ -1,6 +1,18 @@
+**Voting on St. Patrick’s Day? Chicago Politicians Look for Luck in the Timing.**\
+`In a county with the largest Irish American population in the U.S., a crush of parades has been a bounty for candidates searching for votes.`\
+https://nytimes.com/2026/03/17/us/elections/st-patricks-day-election-chicago.html
+
+**Bergvall, Romero to return for Spurs vs. Atletico, Tudor says**\
+`The head coach said Destiny Udogie will be on the bench for Wednesday's game, while Joao Palhinha is "doing worse" and remains out. `\
+https://nytimes.com/athletic/7125122/2026/03/17/bergvall-romero-udogie-tottenham-injury-update/
+
+**Judge Ejects Federal Prosecutor From Court, Orders His Bosses to Testify**\
+`Judge Zahid Quraishi ordered a hearing on who had the authority to lead New Jersey’s top federal law enforcement office.`\
+https://nytimes.com/2026/03/17/nyregion/judge-quraishi-new-jersey-attorneys-office.html
+
 **Why I'm picking Michigan to win it all in my March Madness bracket**\
 `The committee has done better recently at seeding, but it might have faltered this season when dealing with injuries.`\
-https://nytimes.com/athletic/7125220/2026/03/17/ncaa-tournament-march-madness-picks-arizona-michigan-houston/
+https://nytimes.com/athletic/7125220/2026/03/17/michigan-wins-march-madness-ncaa-tournament-prediction/
 
 **Read Joe Kent’s Resignation Letter**\
 `Joe Kent, the director of the National Counterterrorism Center, announced on Tuesday that he would resign immediately, citing his opposition to the Iran war.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/17/us/politics/trump-cisa-election-security.html
 **What’s in the Voter ID Bill Trump and Republicans Are Pushing?**\
 `The legislation would require voters to prove their citizenship in person upon registration, ban IDs without a photo at polling places and criminalize failures to enforce such requirements.`\
 https://nytimes.com/2026/03/17/us/politics/trump-voter-id-bill.html
-
-**NHL Player Safety’s Parros stands by Gudas suspension: ‘We came to it for good reason’**\
-`Parros has come under fire for suspending the Ducks captain five games for a knee-on-knee hit that ended Auston Matthews' season.`\
-https://nytimes.com/athletic/7125195/2026/03/17/george-parros-nhl-player-safety-radko-gudas/
-
-**Joe Kent, a Top U.S. Counterterrorism Official Resigns Over the Iran War**\
-`Mr. Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
-https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
-
-**Diagramming the Latest Blows to Iran’s Leadership**\
-`Israel said on Tuesday that it had killed two more high-ranking figures, including the man who had essentially been running Iran for weeks.`\
-https://nytimes.com/2026/03/17/world/middleeast/iran-leaders-killed-war-strikes.html
 

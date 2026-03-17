@@ -1,3 +1,19 @@
+**Voting on St. Patrick’s Day? Chicago Politicians Look for Luck in the Timing.**\
+`In a county with the largest Irish American population in the U.S., a crush of parades has been a bounty for candidates searching for votes.`\
+https://nytimes.com/2026/03/17/us/elections/st-patricks-day-election-chicago.html
+
+**Bergvall, Romero to return for Spurs vs. Atletico, Tudor says**\
+`The head coach said Destiny Udogie will be on the bench for Wednesday's game, while Joao Palhinha is "doing worse" and remains out. `\
+https://nytimes.com/athletic/7125122/2026/03/17/bergvall-romero-udogie-tottenham-injury-update/
+
+**Judge Ejects Federal Prosecutor From Court, Orders His Bosses to Testify**\
+`Judge Zahid Quraishi ordered a hearing on who had the authority to lead New Jersey’s top federal law enforcement office.`\
+https://nytimes.com/2026/03/17/nyregion/judge-quraishi-new-jersey-attorneys-office.html
+
+**Why I'm picking Michigan to win it all in my March Madness bracket**\
+`The committee has done better recently at seeding, but it might have faltered this season when dealing with injuries.`\
+https://nytimes.com/athletic/7125220/2026/03/17/michigan-wins-march-madness-ncaa-tournament-prediction/
+
 **Why I'm picking Michigan to win it all in my March Madness bracket**\
 `The committee has done better recently at seeding, but it might have faltered this season when dealing with injuries.`\
 https://nytimes.com/athletic/7125220/2026/03/17/ncaa-tournament-march-madness-picks-arizona-michigan-houston/
