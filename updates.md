@@ -1,3 +1,11 @@
+**Boston Fleet acquire Jessie Eldridge from Seattle Torrent in exchange for Theresa Schafzal**\
+`“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
+https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
+
+**A Hard-Knock Life: A Trump Cabinet Hopeful Is Moved Offstage**\
+`Richard Grenell once hoped to be President Trump’s secretary of state. Instead, Mr. Trump just replaced him as Kennedy Center president.`\
+https://nytimes.com/2026/03/16/us/politics/grenell-kennedy-center.html
+
 **Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
 `Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
 https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/

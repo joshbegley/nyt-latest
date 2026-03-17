@@ -1,3 +1,7 @@
+**Utah Mother Found Guilty of Poisoning Husband**\
+`Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
+https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
+
 **Boston Fleet acquire Jessie Eldridge from Seattle Torrent in exchange for Theresa Schafzal**\
 `“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
 https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123985/2026/03/16/football-regulator-investment-ri
 **Trump Is Trying to Bully America Into Supporting His War. It Won’t Work.**\
 `Even as he’s wrecking American institutions, he is revealing the limits of his cultural influence.`\
 https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
-
-**Fast-Moving Fire in Queens Kills 4, Including a Child**\
-`Fierce winds fueled a blaze in a mixed-use building on Monday, killing four people and injuring 12 others, officials said.`\
-https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
 
