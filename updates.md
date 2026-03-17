@@ -1,3 +1,7 @@
+**Warriors' Steve Kerr becomes NBA's 28th coach to reach 600 regular-season wins**\
+`Kerr became just the 28th coach in league history to reach the 600-win mark, a win that came at an opportune time for the Warriors.`\
+https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
+
 **Utah Mother Found Guilty of Fatally Poisoning Husband**\
 `Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
 https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
