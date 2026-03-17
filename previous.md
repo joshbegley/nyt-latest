@@ -1,3 +1,7 @@
+**At Least 23 Killed in Nigeria as Insurgent Attacks Go On Despite U.S. Help**\
+`A teaching hospital and two markets in the city of Maiduguri were hit in what a military spokesman said were suicide bombings by Boko Haram.`\
+https://nytimes.com/2026/03/17/world/africa/nigeria-suicide-bombings-maiduguri.html
+
 **When does your state vote? Here’s the 2026 primary calendar.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-does-your-state-vote-heres-the-2026-primary-calendar
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124068/2026/03/17/reds-francona-confident-in-2b-ma
 **Anton Frondell has more to accomplish in Sweden before joining Blackhawks**\
 `After a second-half surge, Frondell is set to start a three-game playoff series with Djurgårdens on Tuesday.`\
 https://nytimes.com/athletic/7123312/2026/03/17/anton-frondell-blackhawks-prospect-world-juniors-djurgardens/
-
-**Should the Cubs be concerned about Jameson Taillon's spring training?**\
-`"We got (two) more starts left to get this turned around. That's kind of where we're at ... I'm confident Jame-o will," Craig Counsell said.`\
-https://nytimes.com/athletic/7124496/2026/03/17/cubs-jameson-taillon-spring-training-concern/
 

@@ -1,3 +1,7 @@
+**At Least 23 Killed in Nigeria as Insurgent Attacks Go On Despite U.S. Help**\
+`A teaching hospital and two markets in the city of Maiduguri were hit in what a military spokesman said were suicide bombings by Boko Haram.`\
+https://nytimes.com/2026/03/17/world/africa/nigeria-suicide-bombings-maiduguri.html
+
 **When does your state vote? Here’s the 2026 primary calendar.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-does-your-state-vote-heres-the-2026-primary-calendar
