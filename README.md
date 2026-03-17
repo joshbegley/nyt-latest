@@ -1,3 +1,11 @@
+**Marquise Brown agrees to free-agent deal with Eagles: Source**\
+`Brown had 49 catches for 587 yards with five TDs last season, providing the Chiefs with one of their most consistent offensive options.`\
+https://nytimes.com/athletic/7087940/2026/03/17/marquise-brown-nfl-free-agency-2026/
+
+**An ‘Unprecedented’ Outbreak of Meningitis Raises Alarm in Britain**\
+`Two people have died in an outbreak of meningococcal disease. Many cases were traced to a nightclub in Canterbury that is popular with students at the University of Kent.`\
+https://nytimes.com/2026/03/17/world/europe/meningitis-b-outbreak-kent-uk.html
+
 **Christopher A. Sims, 83, Dies; Won Nobel for Modeling Economic Policy**\
 `He and Thomas J. Sargent shared the prize in 2011 for devising statistical tools to help guide economic policymakers.`\
 https://nytimes.com/2026/03/17/business/economy/christopher-a-sims-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disab
 **Jonathan Groff in ‘Merrily We Roll Along,’ and More Theater to Stream**\
 `Joined by Daniel Radcliffe, Groff stars in the hit Broadway production of the Sondheim musical. And there are (count ’em) three productions of “The Importance of Being Earnest” this month.`\
 https://nytimes.com/2026/03/17/theater/jonathan-groff-merrily-we-roll-along-theater-to-stream.html
-
-**Micky van de Ven says noise around Spurs 'brings more trouble'**\
-`The Netherlands international said their season has been "really tough for everyone at the club" but that the squad still cares. `\
-https://nytimes.com/athletic/7125527/2026/03/17/micky-van-de-ven-tottenham-noise/
-
-**Loud Boom in Ohio and Pennsylvania Was Likely a Meteor, Forecasters Say**\
-`The National Weather Service said its lightning mapper and cameras picked up what appeared to be a meteor streaking across the sky Tuesday morning.`\
-https://nytimes.com/2026/03/17/us/ohio-cleveland-meteor.html
 
