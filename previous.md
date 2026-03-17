@@ -1,3 +1,11 @@
+**USA closer Mason Miller available for World Baseball Classic final**\
+`Should he pitch Tuesday, it would mark three appearances in five days — a significant workload considering the calendar and the intensity.`\
+https://nytimes.com/athletic/7125207/2026/03/17/usa-closer-mason-miller-available-for-world-baseball-classic-final/
+
+**Bipartisan Bill Would Waive $100,000 Visa Fees for Medical Professionals**\
+`The bill, sponsored by two Republicans and two Democrats in the House, seeks to alleviate shortages of doctors and nurses in the U.S.`\
+https://nytimes.com/2026/03/17/us/politics/h1b-visa-fees-doctors-nurses-waived-bill.html
+
 **Israel Keeps Killing Key Iranian Leaders. Will It Work?**\
 `Israeli officials trumpeted airstrikes that killed Iran’s de facto leader and the commanders of a militia notorious for violently suppressing protests. But “decapitation has its limits,” an analyst warns.`\
 https://nytimes.com/2026/03/17/world/middleeast/israel-iran-leader-deaths.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/7126284/2026/03/17/seahawks-mailbag-free-agency-que
 **Anthony Edwards to miss time with injury, threatening Wolves' playoff seeding**\
 `Edwards will be re-evaluated in 1-2 weeks, the team announced, which could also threaten his all-NBA eligibility. `\
 https://nytimes.com/athletic/7126261/2026/03/17/anthony-edwards-injury-update-status-timberwolves-nba/
-
-**Meteor Streaks Across the Sky Over Pennsylvania and Ohio**\
-`A meteor was captured on cameras in Ohio and Pennsylvania on Tuesday morning, NASA said. The fireball created a sonic boom around the Lake Erie region, a meteorologist said.`\
-https://nytimes.com/video/us/100000010784787/meteor-ohio-nasa.html
-
-**U.N. Says Attacks on Iran Set to Drive Hunger to Record Levels**\
-`Tens of millions more people around the world could face acute hunger as the war in the Middle East continues to disrupt shipping and drive up oil prices.`\
-https://nytimes.com/2026/03/17/world/middleeast/iran-strikes-hunger-record-levels.html
 

@@ -1,3 +1,11 @@
+**USA closer Mason Miller available for World Baseball Classic final**\
+`Should he pitch Tuesday, it would mark three appearances in five days — a significant workload considering the calendar and the intensity.`\
+https://nytimes.com/athletic/7125207/2026/03/17/usa-closer-mason-miller-available-for-world-baseball-classic-final/
+
+**Bipartisan Bill Would Waive $100,000 Visa Fees for Medical Professionals**\
+`The bill, sponsored by two Republicans and two Democrats in the House, seeks to alleviate shortages of doctors and nurses in the U.S.`\
+https://nytimes.com/2026/03/17/us/politics/h1b-visa-fees-doctors-nurses-waived-bill.html
+
 **Israel Keeps Killing Key Iranian Leaders. Will It Work?**\
 `Israeli officials trumpeted airstrikes that killed Iran’s de facto leader and the commanders of a militia notorious for violently suppressing protests. But “decapitation has its limits,” an analyst warns.`\
 https://nytimes.com/2026/03/17/world/middleeast/israel-iran-leader-deaths.html
