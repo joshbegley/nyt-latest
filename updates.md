@@ -1,3 +1,15 @@
+**Why I'm picking Michigan to win it all in my March Madness bracket**\
+`The committee has done better recently at seeding, but it might have faltered this season when dealing with injuries.`\
+https://nytimes.com/athletic/7125220/2026/03/17/ncaa-tournament-march-madness-picks-arizona-michigan-houston/
+
+**NHL Player Safety’s Parros stands by Gudas suspension: ‘We came to it for good reason’**\
+`Parros has come under fire for suspending the Ducks captain five games for a knee-on-knee hit that ended Auston Matthews' season.`\
+https://nytimes.com/athletic/7125195/2026/03/17/george-parros-nhl-player-safety-radko-gudas/
+
+**Joe Kent, a Top U.S. Counterterrorism Official Resigns Over the Iran War**\
+`Mr. Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
+https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
+
 **Read Joe Kent’s Resignation Letter**\
 `Joe Kent, the director of the National Counterterrorism Center, announced on Tuesday that he would resign immediately, citing his opposition to the Iran war.`\
 https://nytimes.com/interactive/2026/03/17/us/joe-kent-resignation-letter-iran.html
