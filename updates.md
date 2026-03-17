@@ -1,3 +1,15 @@
+**Christopher A. Sims, 83, Dies; Won Nobel for Modeling Economic Policy**\
+`He and Thomas J. Sargent shared the prize in 2011 for devising statistical tools to help guide economic policymakers.`\
+https://nytimes.com/2026/03/17/business/economy/christopher-a-sims-dead.html
+
+**Oregon's Dante Moore reveals mental health struggles, asks governor for more state resources**\
+`In a letter to Oregon's governor, Moore cited the pressure thrust upon him as an 18-year-old freshman starting quarterback at UCLA in 2023.`\
+https://nytimes.com/athletic/7125574/2026/03/17/dante-moore-mental-health-oregon/
+
+**Doctors Say Court Ruling Can’t Undo Kennedy’s Vaccine Damage**\
+`A federal judge halted the Trump administration’s changes to vaccine recommendations, but the mistrust and fear they have stoked may last for years.`\
+https://nytimes.com/2026/03/17/well/childhood-vaccines-parents-cdc-rfk-jr.html
+
 **Retiro Park **\
 ``\
 https://nytimes.com/card/2026/03/17/travel/
