@@ -1,3 +1,7 @@
+**Jesse Jackson Jr. Seeks Comeback After Corruption Scandal**\
+`After his promising career was halted by a corruption scandal that sent him to prison, the former Democratic congressman is trying to return to the House.`\
+https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-illinois-house-primary.html
+
 **Predicting second-round 2026 NCAA Tournament upsets: Can McNeese make the Sweet Sixteen?**\
 `Which underdogs have a chance at the Sweet 16? Jordan Brenner and Peter Keating use their proprietary model to help you build your bracket. `\
 https://nytimes.com/athletic/7126238/2026/03/17/predicting-second-round-2026-ncaa-tournament-upsets/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/17/world/cuba-latin-america-iran-larijani-kabul.html
 **Kenny Pickett still wants to start, but focused on being 'positive addition' with Panthers**\
 `Pickett is eager to work with Bryce Young and Dave Canales: “I really just wanted to get in a great system with great people."`\
 https://nytimes.com/athletic/7125862/2026/03/17/panthers-kenny-pickett-quarterback-free-agency/
-
-**Israel Says It Has Killed Ali Larijani, Iran’s De Facto Political Leader**\
-`The killing, which Iran has not yet confirmed, could embolden Iranian hard-liners, as the U.S.-Israeli bombing campaign continues.`\
-https://nytimes.com/2026/03/17/world/middleeast/israel-ali-larijani-iran-death.html
 
