@@ -1,4 +1,16 @@
-**U.S.-Israeli Strikes on Iran Set to Drive Hunger to Record Levels**\
+**Submit your questions for Michael-Shawn Dugar's mailbag**\
+`With the first wave of NFL free agency past, what's on your mind, Seahawks fans? Michael-Shawn Dugar is here to answer your questions.`\
+https://nytimes.com/athletic/7126284/2026/03/17/seahawks-mailbag-free-agency-questions/
+
+**Edwards to miss time with injury, threatening Timberwolves' playoff seeding**\
+`Edwards will be re-evaluated in 1-2 weeks, the team announced, which could also threaten his all-NBA eligibility. `\
+https://nytimes.com/athletic/7126261/2026/03/17/anthony-edwards-injury-update-status-timberwolves-nba/
+
+**Meteor Streaks Across the Sky Over Pennsylvania and Ohio**\
+`A meteor was captured on cameras in Ohio and Pennsylvania on Tuesday morning, NASA said. The fireball created a sonic boom around the Lake Erie region, a meteorologist said.`\
+https://nytimes.com/video/us/100000010784787/meteor-ohio-nasa.html
+
+**U.N. Says Attacks on Iran Set to Drive Hunger to Record Levels**\
 `Tens of millions more people around the world could face acute hunger as the war in the Middle East continues to disrupt shipping and drive up oil prices.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-strikes-hunger-record-levels.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7126198/2026/03/17/chinese-gp-max-verstappen-prime-
 **Tasting Six Mystery Chips**\
 `Which of these uniquely-flavored potato chips would be your favorite? Watch Wirecutter’s full potato chip taste test with special guest and cookbook author Maxine Sharf on YouTube.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010781871/tasting-six-mystery-chips.html
-
-**Chief Justice Says Personal Attacks on Judges Are ‘Dangerous’ and Must Stop**\
-`The public remarks from Chief Justice John Roberts were his first since President Trump excoriated the justices who ruled against his tariffs in harsh and personal terms.`\
-https://nytimes.com/2026/03/17/us/politics/chief-justice-trump-personal-attacks.html
-
-**How to Season Cast-Iron Pans**\
-`Use soap on your cast iron. Seriously! For more tips on how to best restore, clean, and season cast-iron cookware, read more of Michael Sullivan’s advice on Wirecutter.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010781818/how-to-season-cast-iron-pans.html
-
-**Cloth Diapers Are Great for Cleaning**\
-`Hear us out: cloth diapers are actually the perfect cleaning tool. They clean up spills, they dust well, and the cotton weave leaves no fuzz.`\
-https://nytimes.com/video/smarter-living/wirecutter/100000010781704/cloth-diapers-are-great-for-cleaning.html
 
