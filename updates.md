@@ -1,3 +1,7 @@
+**Iran negotiating with FIFA to move World Cup matches from Unites States to Mexico, says embassy**\
+`Last week, President Trump said that he does not believe it is “appropriate” for Iran’s men’s soccer team to participate in the World Cup.`\
+https://nytimes.com/athletic/7124876/2026/03/17/iran-trump-world-cup-news-games-mexico/
+
 **This is what happened on March 16.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-16
