@@ -1,3 +1,15 @@
+**Read the White House Letter to Senate Republicans**\
+`In a letter sent to two Republican senators, White House officials outlined narrow changes it would be willing to make to its immigration enforcement operations.`\
+https://nytimes.com/interactive/2026/03/17/us/politics/homeland-security-funding-letter.html
+
+**White House Offers Narrow Immigration Enforcement Changes As Talks Drag On**\
+`Administration officials have put forth several proposals to answer Democratic demands for major changes in President Trump’s crackdown in exchange for reopening the Department of Homeland Security.`\
+https://nytimes.com/2026/03/17/us/politics/trump-immigration-dhs-shutdown.html
+
+**Iran’s Leadership Suffers a Double Blow**\
+`Also, the Senate begins a bitter debate about voting rules. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/17/briefing/irans-leadership-suffers-a-double-blow.html
+
 **Until Saturday: Underdogs still matter**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-illinois-house-prim
 **Predicting second-round 2026 NCAA Tournament upsets: Can McNeese make the Sweet Sixteen?**\
 `Which underdogs have a chance at the Sweet 16? Jordan Brenner and Peter Keating use their proprietary model to help you build your bracket. `\
 https://nytimes.com/athletic/7126238/2026/03/17/predicting-second-round-2026-ncaa-tournament-upsets/
-
-**Why Mamdani Mentioned Palestinians in His St. Patrick’s Day Message**\
-`Mayor Zohran Mamdani of New York hailed Ireland’s fight for self-determination and its history of solidarity, including with Palestinians.`\
-https://nytimes.com/2026/03/17/nyregion/mamdani-st-patricks-day-palestinians.html
-
-**Small U.S. Airports Could Close if Shutdown Continues, Official Warns**\
-`T.S.A. officers, working without pay for more than a month, have called out of work and quit in growing numbers as the shutdown drags on.`\
-https://nytimes.com/2026/03/17/travel/tsa-small-airport-closures.html
-
-**The Art of the Fashion Farewell**\
-`How designers took their bows this season.`\
-https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
 

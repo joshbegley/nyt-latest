@@ -1,3 +1,15 @@
+**Read the White House Letter to Senate Republicans**\
+`In a letter sent to two Republican senators, White House officials outlined narrow changes it would be willing to make to its immigration enforcement operations.`\
+https://nytimes.com/interactive/2026/03/17/us/politics/homeland-security-funding-letter.html
+
+**White House Offers Narrow Immigration Enforcement Changes As Talks Drag On**\
+`Administration officials have put forth several proposals to answer Democratic demands for major changes in President Trump’s crackdown in exchange for reopening the Department of Homeland Security.`\
+https://nytimes.com/2026/03/17/us/politics/trump-immigration-dhs-shutdown.html
+
+**Iran’s Leadership Suffers a Double Blow**\
+`Also, the Senate begins a bitter debate about voting rules. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/17/briefing/irans-leadership-suffers-a-double-blow.html
+
 **Until Saturday: Underdogs still matter**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/

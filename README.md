@@ -1,3 +1,23 @@
+**Kharg Island Is an Appealing Target for Trump, With High Risks**\
+`A U.S. attack or a move to seize control of Iran’s main oil export hub could cripple the country’s ability to profit from its natural resources. But it would also risk sending energy prices even higher.`\
+https://nytimes.com/2026/03/17/us/politics/kharg-island-iran-trump-risks.html
+
+**Ali Larijani, a Top Iranian Politician and Emissary, Is Dead at 67**\
+`Mr. Larijani, the top national security official and a confidante of the former supreme leader, expertly navigated Iran’s internal politics and led the brutal crackdown on protests this year.`\
+https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death.html
+
+**Arsenal 2 Bayer Leverkusen 0 (3-1 agg) - Was Eze's one of this season's best Champions League goals? What next?**\
+`Analysis of Arsenal's Champions League last 16 victory over Bayer Leverkusen`\
+https://nytimes.com/athletic/7122000/2026/03/17/arsenal-2-bayer-leverkusen-0-eze-highlights/
+
+**Senegal declared to have forfeited AFCON 2025 final with Morocco crowned winners**\
+`CAF's statement on Tuesday, 57 days after January's final, said “all other motions or prayers for relief are dismissed”.`\
+https://nytimes.com/athletic/7126755/2026/03/17/afcon-morocco-senegal-final-overturned/
+
+**The Briefing: Chelsea 0 Paris Saint-Germain 3 – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
+`Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
+https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
+
 **Read the White House Letter to Senate Republicans**\
 `In a letter sent to two Republican senators, White House officials outlined narrow changes it would be willing to make to its immigration enforcement operations.`\
 https://nytimes.com/interactive/2026/03/17/us/politics/homeland-security-funding-letter.html
@@ -17,20 +37,4 @@ https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-sa
 **Ross Chastain, Daniel Suárez still hot after Las Vegas run-in: 'We don't get along'**\
 `After trading paint with each other Sunday in the cool-down lap, the former teammates had more words for each other Tuesday.`\
 https://nytimes.com/athletic/7126592/2026/03/17/nascar-ross-chastain-daniel-suarez-incident-argument-fight/
-
-**An Unexploded Bomb on a Colombian Farm Leads to a Diplomatic Clash**\
-`The Times photographed an unexploded munition in southern Colombia, near the Ecuadorean border. A high-stakes feud between both countries quickly ensued.`\
-https://nytimes.com/2026/03/17/world/americas/colombia-ecuador-bomb-petro-noboa.html
-
-**She Needed a Rug. One Dumpster Dive Later, She Had the Red Carpet.**\
-`Paige Thalia’s apartment floor got an upgrade this week thanks to some leftovers from the Academy Awards.`\
-https://nytimes.com/2026/03/17/style/oscars-red-carpet-dumpster-dive.html
-
-**Jesse Jackson Jr. Seeks Comeback After Corruption Scandal**\
-`After his promising career was halted by a corruption scandal that sent him to prison, the former Democratic congressman is trying to return to the House.`\
-https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-illinois-house-primary.html
-
-**Predicting second-round 2026 NCAA Tournament upsets: Can McNeese make the Sweet Sixteen?**\
-`Which underdogs have a chance at the Sweet 16? Jordan Brenner and Peter Keating use their proprietary model to help you build your bracket. `\
-https://nytimes.com/athletic/7126238/2026/03/17/predicting-second-round-2026-ncaa-tournament-upsets/
 
