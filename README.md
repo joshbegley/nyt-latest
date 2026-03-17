@@ -1,3 +1,7 @@
+**Peter Thiel Fears the Antichrist Is Coming. In Rome, Some Call His View Heresy.**\
+`The right-wing tech investor is giving lectures near the Catholic church’s administrative heart. Commentators there are rejecting his apocalyptic vision.`\
+https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholics.html
+
 **Breaking down men's NCAA tournament upset potential in Round 1**\
 `An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
 https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7121402/2026/03/17/houston-astros-altuve-correa-how
 **The spring of Kevin McGonigle isn’t slowing down. Will he skip Triple A?**\
 `Detroit prospect, just 21, has answered every question this spring as he has grown more comfortable in the big league clubhouse.`\
 https://nytimes.com/athletic/7123690/2026/03/17/tigers-kevin-mcgonigle-spring-training/
-
-**Mookie Betts hopes new bat speed, workout routine will restore his offense**\
-`A mysterious stomach ailment last spring training helped put Betts on a path to his worst offensive season. Now, he says he's back.`\
-https://nytimes.com/athletic/7124077/2026/03/17/dodgers-mookie-betts-bat-speed/
 
