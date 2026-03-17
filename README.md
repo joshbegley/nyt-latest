@@ -1,3 +1,15 @@
+**Why the Broncos swung big for Jaylen Waddle and what he can bring to their offense**\
+`The Broncos were willing to pay a big price to add a playmaker who has averaged more than 75 receptions and 1,000 yards per season.`\
+https://nytimes.com/athletic/7125744/2026/03/17/broncos-jaylen-waddle-trade-dolphins/
+
+**Sam Kerr is Australia's 'immense' captain and match winner again as Matildas reach final**\
+`Reaching the final represents the nation's first shot at soccer silverware for eight years`\
+https://nytimes.com/athletic/7125597/2026/03/17/australia-china-asian-cup-sam-kerr/
+
+**New York Theater Settles Case That Argued Discounts Were Discriminatory**\
+`The lawsuit objected to a “BIPOC night” program at Playwrights Horizons, an Off Broadway nonprofit.`\
+https://nytimes.com/2026/03/17/theater/playwrights-horizons-lawsuit-race-discounts.html
+
 **Matt Leinart won't allow USC to unretire his No. 11 jersey for high-level recruits**\
 `Matt Leinart said the only way he would consider allowing another player at USC to wear No. 11 is if one of his sons was a Trojan.`\
 https://nytimes.com/athletic/7125732/2026/03/17/matt-leinart-usc-unretire-jersey-college-football-recruiting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7125798/2026/03/17/suns-vs-timberwolves-stream-how-
 **Krishnamoorthi Has a Huge Ad Spending Advantage**\
 `More than two-thirds of the media buys in the Illinois Senate race have gone toward Representative Raja Krishnamoorthi, with much of that coming from his own campaign.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-ad-spending.html
-
-**QA: Our new Nationals beat writer on Daylen Lile, options at first and defense**\
-`Also, a look at whether Seaver King will be fast tracked to the big leagues, and if Dylan Crews may get a reset in the minors`\
-https://nytimes.com/athletic/7125364/2026/03/17/washington-nationals-q-and-a-daylen-lile/
-
-**Flight Costs Are Up, but Travelers Aren’t Deterred, U.S. Airlines Say**\
-`Airline executives said the war in Iran had raised fuel costs and, as a result, fares, but that had not yet hurt demand for tickets from individuals and businesses.`\
-https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
-
-**Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
-`New York City has been paying for the lawyers representing former Mayor Eric Adams in a civil lawsuit concerning an alleged sexual assault in the 1990s.`\
-https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
 
