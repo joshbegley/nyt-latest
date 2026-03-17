@@ -1,3 +1,19 @@
+**How to watch Sharks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125916/2026/03/17/sharks-vs-oilers-stream-how-to-watch-march-17/
+
+**How to watch Predators vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125893/2026/03/17/predators-vs-jets-stream-how-to-watch-march-17/
+
+**How to watch Wild vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125882/2026/03/17/wild-vs-blackhawks-stream-how-to-watch-march-17/
+
+**Slot 'must have done a lot wrong' to receive Anfield boos**\
+`Slot had boos directed at him following Liverpool's 1-1 draw with Tottenham Hotspur.`\
+https://nytimes.com/athletic/7125787/2026/03/17/arne-slot-liverpool-fans-boos/
+
 **Why the Broncos swung big for Jaylen Waddle and what he can bring to their offense**\
 `The Broncos were willing to pay a big price to add a playmaker who has averaged more than 75 receptions and 1,000 yards per season.`\
 https://nytimes.com/athletic/7125744/2026/03/17/broncos-jaylen-waddle-trade-dolphins/
