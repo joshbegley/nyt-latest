@@ -1,3 +1,11 @@
+**The Windup: Tonight's WBC final is set**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7125437/2026/03/17/venezuela-usa-wbc-final-the-windup/
+
+**What to know about the World Cup of Hockey**\
+`The 2028 World Cup of Hockey will feature eight to-be-determined teams playing in Alberta and Prague. Here's what else to know.`\
+https://nytimes.com/athletic/7125359/2026/03/17/nhl-world-cup-of-hockey-2028-information/
+
 **Trump’s Next Target: ‘Taking Cuba’**\
 `Still at war with Iran and in control in Venezuela, President Trump is signaling that he is about to intervene in another country.`\
 https://nytimes.com/2026/03/17/world/americas/trump-cuba-intervention.html
