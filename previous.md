@@ -1,3 +1,7 @@
+**Key March Madness injuries to know while filling out your men's tournament bracket**\
+`From Duke and Michigan to Texas Tech and Louisville, a number of teams with hopes of a deep tournament run are battling injuries.`\
+https://nytimes.com/athletic/7125224/2026/03/17/march-madness-2026-player-injuries-caleb-foster-mikel-brown/
+
 **China Is Embracing OpenClaw a New A.I. Agent, and the Government Is Wary**\
 `Excitement about A.I. assistant tools is running into growing concerns about the security risks of software that operates autonomously on user’s devices.`\
 https://nytimes.com/2026/03/17/business/china-ai-agent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/world/europe/europe-trump-strait-hormuz-oil.html
 **What is the Basij?**\
 `The large, plainclothes militia group is deeply embedded in Iranian society and has been used to crush dissent, often with brutal tactics.`\
 https://nytimes.com/2026/03/17/world/middleeast/basij-militia-iran.html
-
-**Albert Zuckerman, Literary Agent Called the ‘Hero of the Blockbuster,’ Dies at 94**\
-`During his 50-year career, he represented dozens of best-selling authors, including Ken Follett, Stephen Hawking and Michael Lewis.`\
-https://nytimes.com/2026/03/17/books/albert-zuckerman-dead.html
 

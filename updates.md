@@ -1,3 +1,7 @@
+**Key March Madness injuries to know while filling out your men's tournament bracket**\
+`From Duke and Michigan to Texas Tech and Louisville, a number of teams with hopes of a deep tournament run are battling injuries.`\
+https://nytimes.com/athletic/7125224/2026/03/17/march-madness-2026-player-injuries-caleb-foster-mikel-brown/
+
 **China Is Embracing OpenClaw a New A.I. Agent, and the Government Is Wary**\
 `Excitement about A.I. assistant tools is running into growing concerns about the security risks of software that operates autonomously on user’s devices.`\
 https://nytimes.com/2026/03/17/business/china-ai-agent.html
