@@ -1,3 +1,7 @@
+**What the Oscars Got Right**\
+`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, recap the live broadcast of the 98th Academy Awards.`\
+https://nytimes.com/video/podcasts/100000010783223/what-the-oscars-got-right.html
+
 **Iran negotiating with FIFA to move World Cup matches from U.S. to Mexico, says embassy**\
 `Last week, President Trump said that he does not believe it is “appropriate” for Iran’s men’s soccer team to participate in the World Cup.`\
 https://nytimes.com/athletic/7124876/2026/03/17/iran-trump-world-cup-news-games-mexico/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/learning/hollywoods-big-night.html
 **A Red Fox’s Fantastic Voyage Starts in England and Leads to the Bronx**\
 `The fox is convalescing at the Bronx Zoo after an unlikely 3,600-mile sea crossing from England to the Port of New York and New Jersey.`\
 https://nytimes.com/2026/03/17/nyregion/bronx-zoo-red-fox-stowaway-europe.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2026/03/17/crosswords/spelling-bee-forum.html
 

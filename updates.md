@@ -1,3 +1,7 @@
+**What the Oscars Got Right**\
+`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, recap the live broadcast of the 98th Academy Awards.`\
+https://nytimes.com/video/podcasts/100000010783223/what-the-oscars-got-right.html
+
 **Iran negotiating with FIFA to move World Cup matches from U.S. to Mexico, says embassy**\
 `Last week, President Trump said that he does not believe it is “appropriate” for Iran’s men’s soccer team to participate in the World Cup.`\
 https://nytimes.com/athletic/7124876/2026/03/17/iran-trump-world-cup-news-games-mexico/
