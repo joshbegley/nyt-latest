@@ -1,3 +1,11 @@
+**Here’s how The Times reports live election results and calls races.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-how-the-times-reports-live-election-results-and-calls-races
+
+**Manchester City 1 Real Madrid 2 (Madrid 5-1 agg) — Vinicius Jr's double, where does this leave Pep?**\
+`Madrid made their first-leg advantage over City count as Vinicius Jr had the last laugh at the Etihad`\
+https://nytimes.com/athletic/7122002/2026/03/17/manchester-city-1-real-madrid-2-vinicius-junior-pep-guardiola/
+
 **Kharg Island Is an Appealing Target for Trump, With High Risks**\
 `A U.S. attack or a move to seize control of Iran’s main oil export hub could cripple the country’s ability to profit from its natural resources. But it would also risk sending energy prices even higher.`\
 https://nytimes.com/2026/03/17/us/politics/kharg-island-iran-trump-risks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/us/politics/trump-immigration-dhs-shutdown.html
 **Iran’s Leadership Suffers a Double Blow**\
 `Also, the Senate begins a bitter debate about voting rules. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2026/03/17/briefing/irans-leadership-suffers-a-double-blow.html
-
-**Until Saturday: Underdogs still matter**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/
-
-**Ross Chastain, Daniel Suárez still hot after Las Vegas run-in: 'We don't get along'**\
-`After trading paint with each other Sunday in the cool-down lap, the former teammates had more words for each other Tuesday.`\
-https://nytimes.com/athletic/7126592/2026/03/17/nascar-ross-chastain-daniel-suarez-incident-argument-fight/
 
