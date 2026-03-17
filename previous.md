@@ -1,3 +1,11 @@
+**Fernandez casts doubt on Chelsea future after PSG loss**\
+`The 25-year-old's contract runs until 2032.`\
+https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/
+
+**Reds to start season with 6 pitchers in 5-man rotation**\
+`Pitchers Chase Burns, Rhett Lowder and Brandon Williamson were told Tuesday they had made the team coming out of spring.`\
+https://nytimes.com/athletic/7126859/2026/03/17/reds-rotation-6-pitchers-5-spots/
+
 **5 Things to Know About Raja Krishnamoorthi**\
 `The congressman, an Ivy League-educated lawyer known for his fund-raising prowess, is aiming to become the second Indian American elected to the Senate.`\
 https://nytimes.com/2026/03/17/us/elections/raja-krishnamoorthi-illinois-democratic-senate-candidate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-faile
 **Oscars Viewership Slides 9%, Its First Drop Since 2021**\
 `The 17.9 million total followed similar drops for the Grammys and the Golden Globes.`\
 https://nytimes.com/2026/03/17/business/media/oscars-academy-awards-ratings.html
-
-**NFLPA elects JC Tretter as executive director 8 months after he resigned from union**\
-`Tretter won a three-way election that included interim executive director David White and American Conference commissioner Tim Pernetti.`\
-https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-director-elected/
-
-**Trump Says U.S. Doesn’t Need Help From U.S. Allies in Iran**\
-`Amid mounting criticism from other countries and his own administration, President Trump told reporters that the U.S. didn’t need help opening the Strait of Hormuz.`\
-https://nytimes.com/video/us/politics/100000010785651/trump-nato-iran-war.html
 

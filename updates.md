@@ -1,3 +1,11 @@
+**Fernandez casts doubt on Chelsea future after PSG loss**\
+`The 25-year-old's contract runs until 2032.`\
+https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/
+
+**Reds to start season with 6 pitchers in 5-man rotation**\
+`Pitchers Chase Burns, Rhett Lowder and Brandon Williamson were told Tuesday they had made the team coming out of spring.`\
+https://nytimes.com/athletic/7126859/2026/03/17/reds-rotation-6-pitchers-5-spots/
+
 **5 Things to Know About Raja Krishnamoorthi**\
 `The congressman, an Ivy League-educated lawyer known for his fund-raising prowess, is aiming to become the second Indian American elected to the Senate.`\
 https://nytimes.com/2026/03/17/us/elections/raja-krishnamoorthi-illinois-democratic-senate-candidate.html
