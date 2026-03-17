@@ -1,3 +1,11 @@
+**Word of the Day: adverse**\
+`This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
+
+**England's 2026 World Cup squad: Who our writers are picking - and who is missing out**\
+`Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
+https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
+
 **What Mavropanos's viral face block says about his West Ham revival**\
 `When Erling Haaland let fly, it seemed certain the Manchester City striker would score. But Mavropanos had other ideas`\
 https://nytimes.com/athletic/7122063/2026/03/17/konstantinos-mavropanos-block-man-city-west-ham/
