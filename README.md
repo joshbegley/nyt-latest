@@ -1,5 +1,9 @@
+**Diagramming the Latest Blows to Iran’s Leadership**\
+`Israel said on Tuesday that it had killed two more high-ranking figures, including the man who had essentially been running Iran for weeks.`\
+https://nytimes.com/2026/03/17/world/middleeast/iran-leaders-killed-war-strikes.html
+
 **Mark Gastineau's lawsuit over viral Brett Favre clip dismissed**\
-`A judge ruled that the former Jets star didn't have the right to decide what was included in a 30 for 30 film that showed the confrontation.`\
+`A judge ruled the former Jets star didn't have the right to decide what a "30 for 30" documentary that showed the confrontation included.`\
 https://nytimes.com/athletic/7124577/2026/03/17/mark-gastineau-brett-favre-lawsuit-espn-dismissed/
 
 **M.T.A. Sues Trump Administration to Release 2nd Avenue Subway Funding**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholic
 **Breaking down men's NCAA tournament upset potential in Round 1**\
 `An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
 https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
-
-**In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
-`Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
 

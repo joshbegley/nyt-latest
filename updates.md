@@ -1,3 +1,11 @@
+**Mark Gastineau's lawsuit over viral Brett Favre clip dismissed**\
+`A judge ruled that the former Jets star didn't have the right to decide what was included in a 30 for 30 film that showed the confrontation.`\
+https://nytimes.com/athletic/7124577/2026/03/17/mark-gastineau-brett-favre-lawsuit-espn-dismissed/
+
+**M.T.A. Sues Trump Administration to Release 2nd Avenue Subway Funding**\
+`New York transit officials are seeking nearly $60 million in overdue federal funding to extend the subway line to East Harlem. The administration’s rationale for the freeze has been inconsistent.`\
+https://nytimes.com/2026/03/17/nyregion/2nd-avenue-subway-lawsuit-mta-trump.html
+
 **Flick says he will retire from management when he leaves Barcelona**\
 `Re-elected club president Joan Laporta has said that they want to announce Flick's contract extension "as soon as possible".  `\
 https://nytimes.com/athletic/7125131/2026/03/17/barcelona-news-flick-retire-future-update-contract/

@@ -1,3 +1,11 @@
+**Mark Gastineau's lawsuit over viral Brett Favre clip dismissed**\
+`A judge ruled that the former Jets star didn't have the right to decide what was included in a 30 for 30 film that showed the confrontation.`\
+https://nytimes.com/athletic/7124577/2026/03/17/mark-gastineau-brett-favre-lawsuit-espn-dismissed/
+
+**M.T.A. Sues Trump Administration to Release 2nd Avenue Subway Funding**\
+`New York transit officials are seeking nearly $60 million in overdue federal funding to extend the subway line to East Harlem. The administration’s rationale for the freeze has been inconsistent.`\
+https://nytimes.com/2026/03/17/nyregion/2nd-avenue-subway-lawsuit-mta-trump.html
+
 **Flick says he will retire from management when he leaves Barcelona**\
 `Re-elected club president Joan Laporta has said that they want to announce Flick's contract extension "as soon as possible".  `\
 https://nytimes.com/athletic/7125131/2026/03/17/barcelona-news-flick-retire-future-update-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-ma
 **In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
 `Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
-
-**Why Do Men Buy Shoes That Are Too Big?**\
-`It’s an affliction — and not one relegated to the Trump administration.`\
-https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html
-
-**Trump Administration Live Updates: Senate to Open Debate on Bill to Stiffen Voting Rules**\
-``\
-https://nytimes.com/live/2026/03/17/us/trump-news
 
