@@ -1,3 +1,7 @@
+**How Michael B. Jordan Won Best Actor**\
+`The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
+https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
+
 **Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
 `Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
 https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010763738/trumps-failed-diplomacy-in-ira
 **Airport Security Lines Grow Amid Partial Government Shutdown**\
 `Travelers face long lines at airport security checkpoints at a growing number of U.S. airports as Congress remains at an impasse over funding for the Department of Homeland Security, which oversees the T.S.A.`\
 https://nytimes.com/video/travel/100000010782015/tsa-lines-dhs-shutdown.html
-
-**Football regulator 'positive' for investment, chief executive says**\
-`Richard Monks said the independent regulator would raise ownership standards and drive down borrowing costs for clubs.`\
-https://nytimes.com/athletic/7123985/2026/03/16/football-regulator-investment-richard-monks/
 

@@ -1,3 +1,7 @@
+**How Michael B. Jordan Won Best Actor**\
+`The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
+https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
+
 **Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
 `Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
 https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
