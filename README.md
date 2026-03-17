@@ -1,3 +1,7 @@
+**What Mavropanos's viral face block says about his West Ham revival**\
+`When Erling Haaland let fly, it seemed certain the Manchester City striker would score. But Mavropanos had other ideas`\
+https://nytimes.com/athletic/7122063/2026/03/17/konstantinos-mavropanos-block-man-city-west-ham/
+
 **Carrick is offering Man Utd's flexible front four just enough freedom to thrive**\
 `How decoy runs, Fernandes' brilliance and a carefully struck balance are behind their rise to third`\
 https://nytimes.com/athletic/7121944/2026/03/17/manchester-united-attack-tactics-carrick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122686/2026/03/17/most-underrated-player-world-foo
 **Can London City Lionesses build a fanbase to rival the likes of Arsenal?**\
 `Without the support of a men's team, London City are using a different approach to attract fans`\
 https://nytimes.com/athletic/7120217/2026/03/17/london-city-lionesses-build-fanbase-rival-arsenal/
-
-**Row Z: Paul Tierney channels his inner David Brent, and will no one respect the football?**\
-`Our weekly roundup of football's absurder side also takes in Roy Keane's assessments of totally random Premier League managers`\
-https://nytimes.com/athletic/7122144/2026/03/17/tierney-rosenior-brent-keane-tottenham-row-z/
 

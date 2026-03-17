@@ -1,3 +1,23 @@
+**Carrick is offering Man Utd's flexible front four just enough freedom to thrive**\
+`How decoy runs, Fernandes' brilliance and a carefully struck balance are behind their rise to third`\
+https://nytimes.com/athletic/7121944/2026/03/17/manchester-united-attack-tactics-carrick/
+
+**Decoding Guardiola — and what doing so tells us about this version of Manchester City**\
+`There is far more high-speed running and much less patience from City this season — but how much of it is by design?`\
+https://nytimes.com/athletic/7119602/2026/03/17/manchester-city-style-guardiola/
+
+**Dowman for England's World Cup squad? History tells us prodigious talents must be handled with care**\
+`Some will say if you are good enough you are old enough, but Arsenal and England's coaches have a duty to protect the 16-year-old`\
+https://nytimes.com/athletic/7123676/2026/03/17/max-dowman-england-world-cup/
+
+**War in the Gulf Is Now Churning the U.S.-China Relationship**\
+`With the Xi-Trump summit now almost certainly delayed, and tensions rising over the war in Iran, vital issues for both the U.S. and China are also being cast into uncertainty.`\
+https://nytimes.com/2026/03/17/world/asia/iran-war-china-us-trump-xi.html
+
+**Chelsea's Premier League punishment should temper rose-tinted view of Abramovich era**\
+`Chelsea were handed a suspended transfer ban and a substantial fine for Abramovich-era rule breaches on Monday`\
+https://nytimes.com/athletic/7123253/2026/03/17/chelsea-roman-abramovich-era-punishment-analysis/
+
 **England's 2026 World Cup squad: Who are our writers picking - and who is missing out?**\
 `Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
 https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7120217/2026/03/17/london-city-lionesses-build-fanb
 **Row Z: Paul Tierney channels his inner David Brent, and will no one respect the football?**\
 `Our weekly roundup of football's absurder side also takes in Roy Keane's assessments of totally random Premier League managers`\
 https://nytimes.com/athletic/7122144/2026/03/17/tierney-rosenior-brent-keane-tottenham-row-z/
-
-**Why have English sides underperformed in the Champions League round of 16? It's complicated**\
-`None of the Premier League's six sides in the Champions League won their round of 16 first legs. Why not?`\
-https://nytimes.com/athletic/7006499/2026/03/17/premier-league-champions-league-round-of-16-analysis/
-
-**Serie A Briefing: Lazio fans end stadium boycott for one match only — and inspire team to beat Milan**\
-`The Olimpico filled in what was described by Lazio's ultras as one “last act of love for this season”. Elsewhere, Napoli and Como impress`\
-https://nytimes.com/athletic/7121984/2026/03/17/lazio-fan-stadium-boycott-lolito-ownership/
-
-**After Premier League sides stuttered in the Champions League, who will bounce back?**\
-`None of the English sides left in Europe's top competition won last week. Will it be a different story in the round-of-16 second legs?`\
-https://nytimes.com/athletic/7123167/2026/03/17/after-premier-league-sides-stuttered-in-the-champions-league-who-will-bounce-back/
-
-**The New York Times in Print for Tuesday, March 17, 2026**\
-``\
-https://nytimes.com/issue/todayspaper/2026/03/17/todays-new-york-times
-
-**Trump’s Dangerous Lack of a Strategy in Iran**\
-`The early reality of the Iran war is not cooperating with President Trump’s bluster.`\
-https://nytimes.com/2026/03/17/opinion/trump-iran-war-strategy.html
 
