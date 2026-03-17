@@ -1,3 +1,7 @@
+**In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
+`Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
+
 **'It’s just an addiction' – Travelling with Manchester United's Irish supporters**\
 `For many Irish Manchester United fans, following the team home and away is a way of life`\
 https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporters/
