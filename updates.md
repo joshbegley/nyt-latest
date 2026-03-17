@@ -1,3 +1,11 @@
+**What the Oscars Got Right**\
+`Giving Michael B. Jordan and “KPop Demon Hunters” their due, to start.`\
+https://nytimes.com/2026/03/16/podcasts/cannonball-oscar-recap.html
+
+**Old-Fashioned, for One**\
+`Kiran Pandey presents a puzzle for our modern times.`\
+https://nytimes.com/2026/03/16/crosswords/daily-puzzle-2026-03-17.html
+
 **Florida College Republican Group Penalized Over Antisemitism Accusations**\
 `After the University of Florida restricted the Republican organization from operating on campus, the group sued the university arguing its First Amendment rights were violated.`\
 https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-antisemitism.html
