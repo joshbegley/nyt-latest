@@ -1,3 +1,11 @@
+**Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
+`New York City has been representing former Mayor Eric Adams in a civil lawsuit filed in 2024.`\
+https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
+
+**Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
+`Adolescents said they were more likely to share photos with a dating partner, or when they had been worn down with repeated requests.`\
+https://nytimes.com/2026/03/17/well/family/teen-sextortion-sexting-nude-images.html
+
 **Illinois Primaries Flooded With Money From AIPAC and Cryptocurrency**\
 `Various groups connected to the pro-Israel lobby have spent millions on House races, while cryptocurrency super PACs have spent heavily in the Democratic primary for Senate.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-primaries-aipac-cryptocurrency-ai-superpacs.html

@@ -1,3 +1,7 @@
+**Flight Costs Are Up, but Travelers Aren’t Deterred, U.S. Airlines Say**\
+`Airline executives said the war in Iran had raised fuel costs and, as a result, fares, but that had not yet hurt demand for tickets from individuals and businesses.`\
+https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
+
 **Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
 `New York City has been representing former Mayor Eric Adams in a civil lawsuit filed in 2024.`\
 https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/well/childhood-vaccines-parents-cdc-rfk-jr.html
 **Retiro Park **\
 ``\
 https://nytimes.com/card/2026/03/17/travel/
-
-**Netanyahu Posts ‘Proof of Life’ Video as A.I. Sows Doubts About What’s Real**\
-`The unusual video is the latest demonstration that artificial intelligence is undermining trust — even in footage that is authentic.`\
-https://nytimes.com/2026/03/17/technology/netanyahu-ai-video-iran-israel.html
 
