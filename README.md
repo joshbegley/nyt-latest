@@ -1,3 +1,7 @@
+**What to Know About Ali Larijani, Iran’s Top Security Official**\
+`One of Ayatollah Ali Khamenei’s closest confidants, Mr. Larijani emerged as the face of the government after Mr. Khamenei was killed.`\
+https://nytimes.com/2026/03/17/world/middleeast/who-is-ali-larijani.html
+
 **Venezuela manager Omar López on verge of his WBC goal: 'To give joy to my country'**\
 `The mastermind behind Venezuela's success in the WBC took some lumps in 2017, but he only came back stronger.`\
 https://nytimes.com/athletic/7124634/2026/03/17/wbc-venezuela-omar-lopez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123628/2026/03/17/march-madness-expert-bracket-pic
 **The Pulse: How to actually win your bracket pool**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7122905/2026/03/17/ncaa-bracket-strategy-the-pulse/
-
-**2026 NHL Draft ranking: Gavin McKenna returns to top of Wheeler's list**\
-`McKenna and Stenberg have been 1-2 on all five of Wheeler's lists, but the Penn State star has regained the No. 1 spot.`\
-https://nytimes.com/athletic/7105520/2026/03/17/2026-nhl-draft-ranking-gavin-mckenna-ivar-stenberg-prospects/
 
