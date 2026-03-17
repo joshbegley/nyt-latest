@@ -1,3 +1,7 @@
+**Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
+`Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
+https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/
+
 **The Shortsightedness of Trump’s War in Iran**\
 `Is the U.S. repeating a century-old mistake in Iran? On “The Ezra Klein Show,” Ali Vaez, the Iran project director for the International Crisis Group, warns that Western-backed “short-term gains” often lead to unintended consequences.`\
 https://nytimes.com/video/opinion/100000010763736/the-shortsightedness-of-trumps-war-in-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/dan-caldwell-pentagon-dni.html
 **Administration Targeted Climate Lab in Effort to Free Trump Ally, Lawsuit Claims**\
 `The complaint says efforts to dismantle an atmospheric research center are part of a broader political campaign that endangers climate and weather studies.`\
 https://nytimes.com/2026/03/16/climate/ncar-climate-lab-lawsuit-trump.html
-
-**Moving second base? No batter timeouts? Minor leagues will feature major rule changes in 2026**\
-`A host of fascinating rule change experiments are coming to the minor leagues in 2026. Here's what you need to know. `\
-https://nytimes.com/athletic/7123746/2026/03/16/minor-league-rule-changes-2026/
 

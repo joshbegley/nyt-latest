@@ -1,3 +1,7 @@
+**Fast-Moving Fire in Queens Kills 4, Including a Child**\
+`Fierce winds fueled a blaze in a mixed-use building on Monday, killing four people and injuring 12 others, officials said.`\
+https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
+
 **Trump Is Trying to Bully America Into Supporting His War. It Won’t Work.**\
 `Even as he’s wrecking American institutions, he is revealing the limits of his cultural influence.`\
 https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
