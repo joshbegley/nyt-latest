@@ -1,3 +1,7 @@
+**LA 2028 soccer schedule: San Diego to host bronze-medal matches, men's tournament to open Games**\
+`The distribution of soccer matches across the seven cities was announced by the Games organisers.`\
+https://nytimes.com/athletic/7124928/2026/03/17/la-2028-soccer-schedule-venues/
+
 **Phillies minor-league notes: Aidan Miller's back injury, hitters who impressed**\
 `The Phillies feel encouraged by Miller's recovery from a back injury, although it appears he won't begin the season on time. `\
 https://nytimes.com/athletic/7123800/2026/03/17/phillies-prospects-aidan-miller-back-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123948/2026/03/17/flyers-trevor-zegras-matvei-mich
 **Artemi Panarin's return gives Rangers chance to reminisce and look ahead**\
 `"It's obviously weird to see him in a different jersey and play against him," Mika Zibanejad said after the Rangers' 4-1 loss to the Kings.`\
 https://nytimes.com/athletic/7124501/2026/03/17/artemi-panarin-return-rangers-loss-kings/
-
-**TGL playoff preview: Can Rory McIlroy's Boston Common win the SoFi Cup?**\
-`After not winning a match in 2025, Boston Common is the top seed in the 2026 playoffs with a 4-1 record.`\
-https://nytimes.com/athletic/7123877/2026/03/17/tgl-playoff-preview-sofi-cup/
 
