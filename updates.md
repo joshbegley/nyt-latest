@@ -1,3 +1,15 @@
+**The Art of the Fashion Farewell**\
+`How designers took their bows this season.`\
+https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
+
+**Alfredo Bryce Echenique, 87, Dies; Novelist Bared Peru’s Privileged Class**\
+`“The other Peruvian” (alongside Mario Vargas Llosa), he exposed the heedlessness of the upper crust, which he knew well, and the quiet suffering of the classes underneath.`\
+https://nytimes.com/2026/03/17/books/alfred-bryce-echenique-dead.html
+
+**Creative, Quick and Not ‘Dumb’ at All: What It’s Like to Have Dyslexia**\
+`As many as 20 percent of Americans have dyslexia, a learning disorder that is not connected to IQ.`\
+https://nytimes.com/2026/03/17/well/dyslexia-trump-newsom-stigma.html
+
 **Is Latin America Abandoning Cuba?**\
 `President Trump is turning up the pressure on Cuba, but other Latin American countries, even those on the left, are staying quiet. We look at why.`\
 https://nytimes.com/2026/03/17/world/cuba-latin-america-iran-larijani-kabul.html
