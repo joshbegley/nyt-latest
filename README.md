@@ -1,5 +1,5 @@
-**How Michael B. Jordan Won (and Timothée Chalamet Lost) Best Actor**\
-`The “Sinners” star became the consensus pick as voters soured on the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
+**How Michael B. Jordan Won Best Actor**\
+`The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
 https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
 
 **Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
