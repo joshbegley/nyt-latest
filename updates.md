@@ -1,3 +1,11 @@
+**Brent Burns passes Bobby Orr on list of goals by NHL defensemen**\
+`The goal also marks the 14th time Burns has reached double-digits in goals for a season.`\
+https://nytimes.com/athletic/7014541/2026/03/16/brent-burns-bobby-orr-nhl-goals-defensemen/
+
+**Boston Fleet acquire Jessie Eldridge from Seattle Torrent: Why the trade was made**\
+`“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
+https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
+
 **Hawks' 10-game win streak marks longest in over a decade as postseason push continues**\
 `The win also puts Atlanta just 1 1/2 games behind Orlando for the fifth spot in the East, in a pack of five teams between fifth and ninth.`\
 https://nytimes.com/athletic/7124404/2026/03/16/hawks-winning-streak-10-magic-nba/
