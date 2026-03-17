@@ -1,3 +1,11 @@
+**Ali Larijani Killing Fuels Anxiety in Iran**\
+`The death of Iran’s top national security official has ignited concern about the country’s future.`\
+https://nytimes.com/2026/03/17/world/middleeast/larijani-iran-reaction.html
+
+**Five things we learned about Michigan as Kyle Whittingham's first spring begins**\
+`Whittingham isn't running from immediate high expectations as his first spring in charge at Michigan gets underway.`\
+https://nytimes.com/athletic/7125919/2026/03/17/kyle-whittingham-quotes-michigan-spring-football/
+
 **How to watch Texas vs. NC State men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125972/2026/03/17/texas-vs-nc-state-stream-how-to-watch-march-17-2/

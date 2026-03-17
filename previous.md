@@ -1,3 +1,11 @@
+**Ali Larijani Killing Fuels Anxiety in Iran**\
+`The death of Iran’s top national security official has ignited concern about the country’s future.`\
+https://nytimes.com/2026/03/17/world/middleeast/larijani-iran-reaction.html
+
+**Five things we learned about Michigan as Kyle Whittingham's first spring begins**\
+`Whittingham isn't running from immediate high expectations as his first spring in charge at Michigan gets underway.`\
+https://nytimes.com/athletic/7125919/2026/03/17/kyle-whittingham-quotes-michigan-spring-football/
+
 **How to watch Texas vs. NC State men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the NC State Wolfpack, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125972/2026/03/17/texas-vs-nc-state-stream-how-to-watch-march-17-2/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/movies/teyana-taylor-oscars-security.html
 **Illinois U.S. Senate Primary Election Results**\
 `Get live results and maps from the 2026 Illinois primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-illinois-us-senate-primary.html
-
-**Illinois Ninth Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Illinois primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-9-primary.html
-
-**Illinois Second Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Illinois primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-2-primary.html
 
