@@ -1,3 +1,7 @@
+**A Top U.S. Counterterrorism Official Resigns, Citing the Iran War**\
+`Joe Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
+https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
+
 **Diagramming the Latest Blows to Iran’s Leadership**\
 `Israel said on Tuesday that it had killed two more high-ranking figures, including the man who had essentially been running Iran for weeks.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-leaders-killed-war-strikes.html
@@ -26,15 +30,11 @@ https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html
 `Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
 https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
 
-**Channeling a Plaid Blanket, Down to the Fringe**\
-`Electric colors and a soft texture distinguished an ensemble seen on the streets of London.`\
-https://nytimes.com/2026/03/17/style/plaid-wool-sweater-pants.html
+**Printable women’s March Madness 2026 bracket**\
+`Fill out your brackets before Selection Sunday.`\
+https://nytimes.com/athletic/7108435/2026/03/17/womens-march-madness-2026-printable-bracket/
 
-**Peter Thiel Fears the Antichrist Is Coming. In Rome, Some Call His View Heresy.**\
-`The right-wing tech investor is giving lectures near the Catholic church’s administrative heart. Commentators there are rejecting his apocalyptic vision.`\
-https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholics.html
-
-**Breaking down men's NCAA tournament upset potential in Round 1**\
-`An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
-https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
+**Printable March Madness bracket for the men's NCAA Tournament**\
+`Prefer to fill out your bracket by hand? We've got you covered.`\
+https://nytimes.com/athletic/7109751/2026/03/17/mens-march-madness-2026-printable-bracket/
 
