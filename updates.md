@@ -1,3 +1,15 @@
+**A Top U.S. Counterterrorism Official Resigns, Citing the Iran War**\
+`Joe Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
+https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
+
+**Printable women’s March Madness 2026 bracket**\
+`Fill out your brackets before Selection Sunday.`\
+https://nytimes.com/athletic/7108435/2026/03/17/womens-march-madness-2026-printable-bracket/
+
+**Printable March Madness bracket for the men's NCAA Tournament**\
+`Prefer to fill out your bracket by hand? We've got you covered.`\
+https://nytimes.com/athletic/7109751/2026/03/17/mens-march-madness-2026-printable-bracket/
+
 **Diagramming the Latest Blows to Iran’s Leadership**\
 `Israel said on Tuesday that it had killed two more high-ranking figures, including the man who had essentially been running Iran for weeks.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-leaders-killed-war-strikes.html

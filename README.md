@@ -30,11 +30,11 @@ https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html
 `Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
 https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
 
-**Printable women’s March Madness 2026 bracket**\
-`Fill out your brackets before Selection Sunday.`\
-https://nytimes.com/athletic/7108435/2026/03/17/womens-march-madness-2026-printable-bracket/
-
 **Printable March Madness bracket for the men's NCAA Tournament**\
 `Prefer to fill out your bracket by hand? We've got you covered.`\
 https://nytimes.com/athletic/7109751/2026/03/17/mens-march-madness-2026-printable-bracket/
+
+**Printable women’s March Madness 2026 bracket**\
+`Fill out your brackets before Selection Sunday.`\
+https://nytimes.com/athletic/7108435/2026/03/17/womens-march-madness-2026-printable-bracket/
 
