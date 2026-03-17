@@ -1,3 +1,15 @@
+**How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125540/2026/03/17/hurricanes-vs-blue-jackets-stream-how-to-watch-march-17/
+
+**How to watch Bruins vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125537/2026/03/17/bruins-vs-canadiens-stream-how-to-watch-march-17/
+
+**Why Won’t Europe Help Trump in Iran? Let’s Count the Reasons.**\
+`President Trump says his NATO allies are disloyal for not helping the United States to clear an oil blockade. But they have a long list of incentives to refuse.`\
+https://nytimes.com/2026/03/17/world/europe/europe-trump-strait-hormuz-oil.html
+
 **What is the Basij?**\
 `The large, plainclothes militia group is deeply embedded in Iranian society and has been used to crush dissent, often with brutal tactics.`\
 https://nytimes.com/2026/03/17/world/middleeast/basij-militia-iran.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7125479/2026/03/17/heat-vs-hornets-stream-how-to-wa
 **How to watch Thunder vs. Magic: Time, TV, streaming**\
 `Find out how to watch the Oklahoma City Thunder play the Orlando Magic, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125477/2026/03/17/thunder-vs-magic-stream-how-to-watch-march-17/
-
-**How SGA, Luka and the West's 'Fab 5' are dominating the league**\
-`But when we look back at this season, it's possible we see a completely different story thanks to the 65-game rule.`\
-https://nytimes.com/athletic/7124696/2026/03/17/nba-awards-eligibility-luka-sga-wemby/
-
-**Len Deighton, Author of Espionage Best-Sellers, Dies at 97**\
-`His Cold War thrillers “The Ipcress File” and “Funeral in Berlin” brought a documentary-style realism to the spy genre.`\
-https://nytimes.com/2026/03/17/books/len-deighton-dead.html
-
-**Dozens Killed in Airstrike on Kabul Drug Treatment Center**\
-`Dozens of people died on Monday in an airstrike that hit a drug rehabilitation center in Kabul. Pakistani officials said the strike was targeting a weapons depot.`\
-https://nytimes.com/video/world/middleeast/100000010783791/airstrike-pakistan-drug-treatment-center-kabul.html
 
