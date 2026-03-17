@@ -1,3 +1,7 @@
+**Albert Zuckerman, Literary Agent Called the ‘Hero of the Blockbuster,’ Dies at 94**\
+`During his 50-year career, he represented dozens of best-selling authors, including Ken Follett, Stephen Hawking and Michael Lewis.`\
+https://nytimes.com/2026/03/17/books/albert-zuckerman-dead.html
+
 **How to watch Pistons vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125509/2026/03/17/pistons-vs-wizards-stream-how-to-watch-march-17/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010783791/airstrike-pakistan-dr
 **Blue Jackets are still fighting for a playoff spot. Here's what they're up against**\
 `The Blue Jackets have been the hottest club in the NHL since Jan. 11. It hasn't been enough to earn them a playoff spot yet. `\
 https://nytimes.com/athletic/7121630/2026/03/17/blue-jackets-playoff-spot-nhl-standings/
-
-**What a MAHA Activist and a Yale Scientist Can Agree On**\
-`In Ohio after a toxic chemical accident, finding common ground in the country’s health wars.`\
-https://nytimes.com/2026/03/17/opinion/health/maha-public-health.html
 
