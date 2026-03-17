@@ -1,3 +1,11 @@
+**QA: Our new Nationals beat writer on Daylen Lile, options at first and defense**\
+`Also, a look at whether Seaver King will be fast tracked to the big leagues, and if Dylan Crews may get a reset in the minors`\
+https://nytimes.com/athletic/7125364/2026/03/17/washington-nationals-q-and-a-daylen-lile/
+
+**Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
+`New York City has been paying for the lawyers representing former Mayor Eric Adams in a civil lawsuit concerning an alleged sexual assault in the 1990s.`\
+https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
+
 **Flight Costs Are Up, but Travelers Aren’t Deterred, U.S. Airlines Say**\
 `Airline executives said the war in Iran had raised fuel costs and, as a result, fares, but that had not yet hurt demand for tickets from individuals and businesses.`\
 https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html

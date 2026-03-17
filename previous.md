@@ -1,9 +1,13 @@
+**QA: Our new Nationals beat writer on Daylen Lile, options at first and defense**\
+`Also, a look at whether Seaver King will be fast tracked to the big leagues, and if Dylan Crews may get a reset in the minors`\
+https://nytimes.com/athletic/7125364/2026/03/17/washington-nationals-q-and-a-daylen-lile/
+
 **Flight Costs Are Up, but Travelers Aren’t Deterred, U.S. Airlines Say**\
 `Airline executives said the war in Iran had raised fuel costs and, as a result, fares, but that had not yet hurt demand for tickets from individuals and businesses.`\
 https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
 
 **Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
-`New York City has been representing former Mayor Eric Adams in a civil lawsuit filed in 2024.`\
+`New York City has been paying for the lawyers representing former Mayor Eric Adams in a civil lawsuit concerning an alleged sexual assault in the 1990s.`\
 https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
 
 **Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125574/2026/03/17/dante-moore-mental-health-oregon
 **Doctors Say Court Ruling Can’t Undo Kennedy’s Vaccine Damage**\
 `A federal judge halted the Trump administration’s changes to vaccine recommendations, but the mistrust and fear they have stoked may last for years.`\
 https://nytimes.com/2026/03/17/well/childhood-vaccines-parents-cdc-rfk-jr.html
-
-**Retiro Park **\
-``\
-https://nytimes.com/card/2026/03/17/travel/
 
