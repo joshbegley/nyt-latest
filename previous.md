@@ -1,3 +1,15 @@
+**Trump’s Gutting of Election Security Fuels Worries for Midterms**\
+`Officials say the crippling of the Cybersecurity and Infrastructure Security Agency, which the president himself created, could open elections to cyberattacks and foreign influence.`\
+https://nytimes.com/2026/03/17/us/politics/trump-cisa-election-security.html
+
+**What’s in the Voter ID Bill Trump and Republicans Are Pushing?**\
+`The legislation would require voters to prove their citizenship in person upon registration, ban IDs without a photo at polling places and criminalize failures to enforce such requirements.`\
+https://nytimes.com/2026/03/17/us/politics/trump-voter-id-bill.html
+
+**NHL Player Safety's George Parros stands by Gudas suspension: 'Our process, I feel very confident in'**\
+`Parros has come under fire for suspending the Ducks captain five games for a knee-on-knee hit that ended Auston Matthews' season.`\
+https://nytimes.com/athletic/7125195/2026/03/17/george-parros-nhl-player-safety-radko-gudas/
+
 **A Top U.S. Counterterrorism Official Resigns, Citing the Iran War**\
 `Joe Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
 https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death-iran-military
 **A Posthumous Endorsement From Jesse Jackson Was Not Final, His Son Says**\
 `Days after Lt. Gov. Juliana Stratton said the late civil rights leader had supported her campaign, one of his sons said the elder Mr. Jackson had not made a final choice.`\
 https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html
-
-**'A horse': John Carlson gives the Ducks everything they hoped to see**\
-`Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
-https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
-
-**Printable women’s March Madness 2026 bracket**\
-`Fill out your brackets before Selection Sunday.`\
-https://nytimes.com/athletic/7108435/2026/03/17/womens-march-madness-2026-printable-bracket/
-
-**Printable March Madness bracket for the men's NCAA Tournament**\
-`Prefer to fill out your bracket by hand? We've got you covered.`\
-https://nytimes.com/athletic/7109751/2026/03/17/mens-march-madness-2026-printable-bracket/
 

@@ -1,3 +1,15 @@
+**Trump’s Gutting of Election Security Fuels Worries for Midterms**\
+`Officials say the crippling of the Cybersecurity and Infrastructure Security Agency, which the president himself created, could open elections to cyberattacks and foreign influence.`\
+https://nytimes.com/2026/03/17/us/politics/trump-cisa-election-security.html
+
+**What’s in the Voter ID Bill Trump and Republicans Are Pushing?**\
+`The legislation would require voters to prove their citizenship in person upon registration, ban IDs without a photo at polling places and criminalize failures to enforce such requirements.`\
+https://nytimes.com/2026/03/17/us/politics/trump-voter-id-bill.html
+
+**NHL Player Safety's George Parros stands by Gudas suspension: 'Our process, I feel very confident in'**\
+`Parros has come under fire for suspending the Ducks captain five games for a knee-on-knee hit that ended Auston Matthews' season.`\
+https://nytimes.com/athletic/7125195/2026/03/17/george-parros-nhl-player-safety-radko-gudas/
+
 **A Top U.S. Counterterrorism Official Resigns, Citing the Iran War**\
 `Joe Kent announced his resignation as director of the National Counterterrorism Center. He said that pressure from Israel had pushed President Trump into war against Iran.`\
 https://nytimes.com/2026/03/17/world/middleeast/joe-kent-counterterrorism-resigns-iran-war.html
