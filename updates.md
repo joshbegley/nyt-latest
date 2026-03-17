@@ -1,3 +1,7 @@
+**What to Know About Ali Larijani, Iran’s Top Security Official**\
+`One of Ayatollah Ali Khamenei’s closest confidants, Mr. Larijani emerged as the face of the government after Mr. Khamenei was killed.`\
+https://nytimes.com/2026/03/17/world/middleeast/who-is-ali-larijani.html
+
 **Venezuela manager Omar López on verge of his WBC goal: 'To give joy to my country'**\
 `The mastermind behind Venezuela's success in the WBC took some lumps in 2017, but he only came back stronger.`\
 https://nytimes.com/athletic/7124634/2026/03/17/wbc-venezuela-omar-lopez/
