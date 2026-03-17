@@ -1,3 +1,7 @@
+**Hawks' 10-game win streak marks longest in over a decade as postseason push continues**\
+`The win also puts Atlanta just 1 1/2 games behind Orlando for the fifth spot in the East, in a pack of five teams between fifth and ninth.`\
+https://nytimes.com/athletic/7124404/2026/03/16/hawks-winning-streak-10-magic-nba/
+
 **What the Oscars Got Right**\
 `Giving Michael B. Jordan and “KPop Demon Hunters” their due, to start.`\
 https://nytimes.com/2026/03/16/podcasts/cannonball-oscar-recap.html
