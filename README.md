@@ -1,3 +1,7 @@
+**Warriors' Steve Kerr becomes NBA's 28th coach to reach 600 regular-season wins**\
+`Kerr became just the 28th coach in league history to reach the 600-win mark, a win that came at an opportune time for the Warriors.`\
+https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
+
 **How Michael B. Jordan Won Best Actor**\
 `The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
 https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/trump-iran-presidents-democrats.html
 **Trump’s Failed Diplomacy in Iran**\
 `What is the price of President Trump’s failed diplomacy? Ali Vaez, the Iran project director at the International Crisis Group, tells Ezra Klein that Trump’s preference for “surrender” over “marginal improvements” cost the U.S. a historic nuclear breakthrough.`\
 https://nytimes.com/video/opinion/100000010763738/trumps-failed-diplomacy-in-iran.html
-
-**Airport Security Lines Grow Amid Partial Government Shutdown**\
-`Travelers face long lines at airport security checkpoints at a growing number of U.S. airports as Congress remains at an impasse over funding for the Department of Homeland Security, which oversees the T.S.A.`\
-https://nytimes.com/video/travel/100000010782015/tsa-lines-dhs-shutdown.html
 

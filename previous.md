@@ -6,7 +6,7 @@ https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.
 `Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
 https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
 
-**Utah Mother Found Guilty of Poisoning Husband**\
+**Utah Mother Found Guilty of Fatally Poisoning Husband**\
 `Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
 https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
 

@@ -1,3 +1,7 @@
+**Utah Mother Found Guilty of Fatally Poisoning Husband**\
+`Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
+https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
+
 **How Michael B. Jordan Won Best Actor**\
 `The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
 https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
