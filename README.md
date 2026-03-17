@@ -1,3 +1,7 @@
+**Word of the Day: adverse**\
+`This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
+
 **What Mavropanos's viral face block says about his West Ham revival**\
 `When Erling Haaland let fly, it seemed certain the Manchester City striker would score. But Mavropanos had other ideas`\
 https://nytimes.com/athletic/7122063/2026/03/17/konstantinos-mavropanos-block-man-city-west-ham/
@@ -22,7 +26,7 @@ https://nytimes.com/2026/03/17/world/asia/iran-war-china-us-trump-xi.html
 `Chelsea were handed a suspended transfer ban and a substantial fine for Abramovich-era rule breaches on Monday`\
 https://nytimes.com/athletic/7123253/2026/03/17/chelsea-roman-abramovich-era-punishment-analysis/
 
-**England's 2026 World Cup squad: Who are our writers picking - and who is missing out?**\
+**England's 2026 World Cup squad: Who our writers are picking - and who is missing out**\
 `Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
 https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7112667/2026/03/17/liverpool-anfield-fans-arne-slot
 **Who is the most underrated player in world football?**\
 `Real Madrid's Trent Alexander-Arnold suggested Federico Valverde was the most underrated player in the game. Is he right?`\
 https://nytimes.com/athletic/7122686/2026/03/17/most-underrated-player-world-football-analysis/
-
-**Can London City Lionesses build a fanbase to rival the likes of Arsenal?**\
-`Without the support of a men's team, London City are using a different approach to attract fans`\
-https://nytimes.com/athletic/7120217/2026/03/17/london-city-lionesses-build-fanbase-rival-arsenal/
 
