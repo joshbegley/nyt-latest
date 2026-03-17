@@ -1,3 +1,7 @@
+**Brighton's Wieffer says he prefers playing in midfield rather than at right-back**\
+`The 26-year-old has primarily been deployed as a full-back under head coach Fabian Hurzeler.`\
+https://nytimes.com/athletic/7122503/2026/03/17/brighton-mats-wieffer-right-back-midfield/
+
 **Here’s the latest.**\
 `By Francesca Regalado, Ephrat Livni and John Yoon`\
 https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/heres-the-latest

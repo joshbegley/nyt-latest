@@ -1,3 +1,7 @@
+**Brighton's Wieffer says he prefers playing in midfield rather than at right-back**\
+`The 26-year-old has primarily been deployed as a full-back under head coach Fabian Hurzeler.`\
+https://nytimes.com/athletic/7122503/2026/03/17/brighton-mats-wieffer-right-back-midfield/
+
 **Here’s the latest.**\
 `By Francesca Regalado, Ephrat Livni and John Yoon`\
 https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124336/2026/03/17/wolves-huddle-edwards-unity/
 **Jimmy Kimmel Has a Bone to Pick With Trump’s War Plans**\
 `“The only war Trump had an exit plan for was Vietnam,” Kimmel remarked after the president said he would end the war in Iran when he “feels it in his bones.”`\
 https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
-
-**Word of the Day: adverse**\
-`This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
 
