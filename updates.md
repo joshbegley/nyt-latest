@@ -1,3 +1,11 @@
+**Diagramming the Latest Blows to Iran’s Leadership**\
+`Israel said on Tuesday that it had killed two more high-ranking figures, including the man who had essentially been running Iran for weeks.`\
+https://nytimes.com/2026/03/17/world/middleeast/iran-leaders-killed-war-strikes.html
+
+**Mark Gastineau's lawsuit over viral Brett Favre clip dismissed**\
+`A judge ruled the former Jets star didn't have the right to decide what a "30 for 30" documentary that showed the confrontation included.`\
+https://nytimes.com/athletic/7124577/2026/03/17/mark-gastineau-brett-favre-lawsuit-espn-dismissed/
+
 **Mark Gastineau's lawsuit over viral Brett Favre clip dismissed**\
 `A judge ruled that the former Jets star didn't have the right to decide what was included in a 30 for 30 film that showed the confrontation.`\
 https://nytimes.com/athletic/7124577/2026/03/17/mark-gastineau-brett-favre-lawsuit-espn-dismissed/
