@@ -1,3 +1,15 @@
+**Miami Cubans Fear Trump Won’t Go Far Enough: ‘The Castros Have to Go’**\
+`Many Cubans in Florida have sought regime change for decades. They fear that President Trump’s talks with Cuba will not lead to wholesale political transformation.`\
+https://nytimes.com/2026/03/17/us/politics/florida-cuba-trump.html
+
+**Bodo/Glimt's UCL fairytale ends as Sporting complete improbable comeback**\
+`Sporting are only the fifth in the team in the competition’s history to overturn a three-goal deficit from the first leg.`\
+https://nytimes.com/athletic/7126448/2026/03/17/bodo-glimt-champions-league-sporting/
+
+**How much do WBC winners get? Thanks to Netflix dollars, payouts have spiked**\
+`Payouts have more than doubled across the board since the 2023 WBC, partly thanks to a new streaming rights deal. `\
+https://nytimes.com/athletic/7126269/2026/03/17/world-baseball-classic-payouts-netflix/
+
 **Everyone Deserves a Teeny Turner**\
 `My family treasures this tiny but mighty precision screwdriver. Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
 https://nytimes.com/wirecutter/reviews/teeny-turner-review/
@@ -25,12 +37,4 @@ https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencin
 **The Iran War Is Pushing Some Countries to Cut Back On Energy Use**\
 `As the conflict enters its third week, some nations are trying to reduce energy use, including a mandatory energy holiday in Sri Lanka.`\
 https://nytimes.com/2026/03/17/climate/iran-war-energy-use.html
-
-**What to Know About Banksy and the Effort to Unmask Him**\
-`An investigation by Reuters, which says it has identified the street artist, hinges on a police report from his arrest in New York two decades ago.`\
-https://nytimes.com/2026/03/17/arts/design/banksy-identity-robin-gunningham-david-jones.html
-
-**Submit your questions for Michael-Shawn Dugar's mailbag**\
-`With the first wave of NFL free agency past, what's on your mind, Seahawks fans? Michael-Shawn Dugar is here to answer your questions.`\
-https://nytimes.com/athletic/7126284/2026/03/17/seahawks-mailbag-free-agency-questions/
 
