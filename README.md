@@ -1,3 +1,7 @@
+**Florida College Republican Group Penalized Over Antisemitism Accusations**\
+`After the University of Florida restricted the Republican organization from operating on campus, the group sued the university arguing its First Amendment rights were violated.`\
+https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-antisemitism.html
+
 **Warriors' Steve Kerr becomes NBA's 28th coach to reach 600 regular-season wins**\
 `Kerr became just the 28th coach in league history to reach the 600-win mark, a win that came at an opportune time for the Warriors.`\
 https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010763736/the-shortsightedness-of-trumps
 **Trump Claims an Ex-President Confided His Regrets on Iran. But Who?**\
 `The New York Times reached out to people close to President Trump’s predecessors. They disputed Mr. Trump’s claims.`\
 https://nytimes.com/2026/03/16/us/politics/trump-iran-presidents-democrats.html
-
-**Trump’s Failed Diplomacy in Iran**\
-`What is the price of President Trump’s failed diplomacy? Ali Vaez, the Iran project director at the International Crisis Group, tells Ezra Klein that Trump’s preference for “surrender” over “marginal improvements” cost the U.S. a historic nuclear breakthrough.`\
-https://nytimes.com/video/opinion/100000010763738/trumps-failed-diplomacy-in-iran.html
 
