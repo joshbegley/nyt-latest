@@ -1,3 +1,11 @@
+**Trump’s Next Target: ‘Taking Cuba’**\
+`Still at war with Iran and in control in Venezuela, President Trump is signaling that he is about to intervene in another country.`\
+https://nytimes.com/2026/03/17/world/americas/trump-cuba-intervention.html
+
+**A radical approach Canucks should take in free agency: Mailbag, part 1**\
+`The answer for Vancouver, at least in the short-term, is to go back to the old way of doing business when money talked.`\
+https://nytimes.com/athletic/7124764/2026/03/17/canucks-salary-cap-free-agency-strategy-mailbag/
+
 **Voting on St. Patrick’s Day? Chicago Politicians Look for Luck in the Timing.**\
 `In a county with the largest Irish American population in the U.S., a crush of parades has been a bounty for candidates searching for votes.`\
 https://nytimes.com/2026/03/17/us/elections/st-patricks-day-election-chicago.html

@@ -1,3 +1,11 @@
+**The Windup: Tonight's WBC final is set**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7125437/2026/03/17/venezuela-usa-wbc-final-the-windup/
+
+**What to know about the World Cup of Hockey**\
+`The 2028 World Cup of Hockey will feature eight to-be-determined teams playing in Alberta and Prague. Here's what else to know.`\
+https://nytimes.com/athletic/7125359/2026/03/17/nhl-world-cup-of-hockey-2028-information/
+
 **Trump’s Next Target: ‘Taking Cuba’**\
 `Still at war with Iran and in control in Venezuela, President Trump is signaling that he is about to intervene in another country.`\
 https://nytimes.com/2026/03/17/world/americas/trump-cuba-intervention.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/03/17/us/joe-kent-resignation-letter-iran.h
 **The Bounce: The NBA's baby steps toward expanding to Seattle and Las Vegas**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7125180/2026/03/17/nba-expansion-seattle-las-vegas-the-bounce/
-
-**Map: Small Earthquake Shakes Northern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2026/03/17/us/quake-tracker-northern-california.html
-
-**Spain and Argentina's Qatar Finalissima was cancelled. Why couldn't Messi vs Yamal be moved?**\
-`One of football’s most lucrative and high-profile contests ended up collapsing in a cloud of acrimony this week. What happened?`\
-https://nytimes.com/athletic/7125028/2026/03/17/messi-yamal-spain-argentina-finalissima/
 
