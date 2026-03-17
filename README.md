@@ -1,40 +1,40 @@
-**America, Alone**\
-`We explain why America’s allies aren’t coming to the rescue in the Strait of Hormuz.`\
-https://nytimes.com/2026/03/17/briefing/america-alone.html
+**Phillies minor-league notes: Aidan Miller's back injury, hitters who impressed**\
+`The Phillies feel encouraged by Miller's recovery from a back injury, although it appears he won't begin the season on time. `\
+https://nytimes.com/athletic/7123800/2026/03/17/phillies-prospects-aidan-miller-back-injury/
 
-**Champions League odds: Will the Premier League’s trailing clubs prevail?**\
-`Chelsea, Liverpool, Manchester City and Tottenham Hotspur all face an uphill task to make the final eight of the Champions League`\
-https://nytimes.com/athletic/7124952/2026/03/17/champions-league-odds-man-city-chelsea-liverpool-spurs/
+**Yankees' camp has been eerily quiet so far — but shhh, don't jinx it**\
+`Unlike last spring's, this year's camp has been smooth sailing — no injuries, no trades, no drama — and the Yankees are just fine with that.`\
+https://nytimes.com/athletic/7123446/2026/03/17/yankees-quiet-spring-training/
 
-**What to Know About Ali Larijani, Iran’s Top Security Official**\
-`One of Ayatollah Ali Khamenei’s closest confidants, Mr. Larijani emerged as the face of the government after Mr. Khamenei was killed.`\
-https://nytimes.com/2026/03/17/world/middleeast/who-is-ali-larijani.html
+**Judging top NHL draft prospects by Jets fit: Who should Winnipeg pick?**\
+`The NHL draft might be the Jets' best shot at acquiring a truly high-end player this offseason. But which one?`\
+https://nytimes.com/athletic/7123150/2026/03/17/winnipeg-jets-nhl-draft-top-10-fit-need/
 
-**Venezuela manager Omar López on verge of his WBC goal: 'To give joy to my country'**\
-`The mastermind behind Venezuela's success in the WBC took some lumps in 2017, but he only came back stronger.`\
-https://nytimes.com/athletic/7124634/2026/03/17/wbc-venezuela-omar-lopez/
+**Broncos mock draft: Is first-round playmaker a must after quiet free-agent approach?**\
+`Indiana wide receiver Omar Cooper Jr. could be a strong fit in Sean Payton's Broncos offense.`\
+https://nytimes.com/athletic/7123067/2026/03/17/broncos-mock-draft-free-agency/
 
-**As Team Venezuela enters WBC final, complicated feelings arise from natives**\
-`In Doral, Fla., home of the largest population of Venezuelans in the U.S., natives discussed their feelings of watching the WBC. `\
-https://nytimes.com/athletic/7124627/2026/03/17/world-baseball-classic-venezuela-finals-natives/
+**Matt McLain's monster spring reinforces the Reds' confidence in their 2B**\
+`No matter what happened at the plate, McLain was the same person and player in the field, on the bases and in the clubhouse.`\
+https://nytimes.com/athletic/7124068/2026/03/17/reds-francona-confident-in-2b-matt-mclain/
 
-**Women's NCAA Tournament consensus bracket predictions: The Athletic’s staff makes its picks**\
-`The Athletic's reporters shared their brackets and we combined them for one expert bracket. `\
-https://nytimes.com/athletic/7123829/2026/03/17/womens-ncaa-tournament-march-madness-consensus-staff-picks/
+**Anton Frondell has more to accomplish in Sweden before joining Blackhawks**\
+`After a second-half surge, Frondell is set to start a three-game playoff series with Djurgårdens on Tuesday.`\
+https://nytimes.com/athletic/7123312/2026/03/17/anton-frondell-blackhawks-prospect-world-juniors-djurgardens/
 
-**The biggest attraction at the First Four might be Charles Barkley and Dick Vitale on the call**\
-`The First Four might be inconsequential for your bracket, but "Dickie V" and "Sir Charles" should be entertaining.`\
-https://nytimes.com/athletic/7124213/2026/03/17/charles-barkley-dick-vitale-ncaa-tournament-broadcast-first-four/
+**Should the Cubs be concerned about Jameson Taillon's spring training?**\
+`"We got (two) more starts left to get this turned around. That's kind of where we're at ... I'm confident Jame-o will," Craig Counsell said.`\
+https://nytimes.com/athletic/7124496/2026/03/17/cubs-jameson-taillon-spring-training-concern/
 
-**Europe Has Helped the U.S. Protect Shipping. The Strait of Hormuz Is Different.**\
-`European Union ministers and leaders pushed back on ideas to protect the strait, including expanding a maritime operation already in place in the Red Sea.`\
-https://nytimes.com/2026/03/17/world/europe/operation-aspides-strait-hormuz.html
+**Mixed results for two key Flyers who recently changed positions**\
+`Trevor Zegras and Matvei Michkov have played their preferred positions since the trade deadline. Early returns show a work in progress.`\
+https://nytimes.com/athletic/7123948/2026/03/17/flyers-trevor-zegras-matvei-michkov-positions-faceoffs/
 
-**Afghan Officials Say Hundreds Dead in Pakistani Airstrike on Kabul**\
-`The attack hit a drug rehabilitation facility, Afghanistan said, suggesting that civilians were among the victims. Pakistan said it had targeted a weapons depot.`\
-https://nytimes.com/2026/03/17/world/asia/afghanistan-pakistan-kabul-hospital.html
+**Artemi Panarin's return gives Rangers chance to reminisce and look ahead**\
+`"It's obviously weird to see him in a different jersey and play against him," Mika Zibanejad said after the Rangers' 4-1 loss to the Kings.`\
+https://nytimes.com/athletic/7124501/2026/03/17/artemi-panarin-return-rangers-loss-kings/
 
-**Why a House candidate is attacking an ad praising her.**\
-`By Tim Balk`\
-https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/why-a-house-candidate-is-attacking-an-ad-praising-her
+**TGL playoff preview: Can Rory McIlroy's Boston Common win the SoFi Cup?**\
+`After not winning a match in 2025, Boston Common is the top seed in the 2026 playoffs with a 4-1 record.`\
+https://nytimes.com/athletic/7123877/2026/03/17/tgl-playoff-preview-sofi-cup/
 
