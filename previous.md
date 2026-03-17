@@ -1,3 +1,15 @@
+**How to watch Sabres vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126263/2026/03/17/sabres-vs-golden-knights-stream-how-to-watch-march-17/
+
+**How to watch Lightning vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126254/2026/03/17/lightning-vs-kraken-stream-how-to-watch-march-17/
+
+**How to watch Panthers vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126248/2026/03/17/panthers-vs-canucks-stream-how-to-watch-march-17/
+
 **Tribunal Calls for Retrial of the Vatican’s ‘Trial of the Century’**\
 `Three years ago, the Vatican’s criminal court convicted a cardinal for the first time in history. Now, an appeals court has ruled there were irregularities in his prosecution.`\
 https://nytimes.com/2026/03/17/world/europe/vatican-cardinal-retrial.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010781704/cloth-diaper
 **How to Cook Eggs on Stainless Steel**\
 `Yes, you can actually cook eggs that slide off a stainless steel pan.`\
 https://nytimes.com/video/smarter-living/wirecutter/100000010781623/how-to-cook-eggs-on-stainless-steel.html
-
-**Arizona Files Criminal Charges Against Kalshi, the Prediction Site**\
-`The state accused Kalshi on Tuesday of operating an illegal gambling business, escalating the legal battle between states and prediction markets.`\
-https://nytimes.com/2026/03/17/technology/arizona-criminal-charges-kalshi.html
-
-**Aren't We All Rooting for Michael B. Jordan?**\
-`Wesley Morris talks about why Michael B. Jordan’s Oscar win for best actor was such a feel-good moment for the audience.`\
-https://nytimes.com/video/podcasts/100000010784992/arent-we-all-rooting-for-michael-b-jordan.html
-
-**Gâteau Nana**\
-`Fashioned after a traditional French gâteau Breton, the gâteau Basque and even the galette des rois — all cakes made of sweet or quick puff dough doubled up and filled with fruit or cream or nuts — this cake, uniquely Louisianan and lovingly called gâteau nana, takes inspiration from each.`\
-https://nytimes.com/video/dining/100000010784402/gateau-nana.html
 

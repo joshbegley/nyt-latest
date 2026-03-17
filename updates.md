@@ -1,3 +1,15 @@
+**How to watch Sabres vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126263/2026/03/17/sabres-vs-golden-knights-stream-how-to-watch-march-17/
+
+**How to watch Lightning vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126254/2026/03/17/lightning-vs-kraken-stream-how-to-watch-march-17/
+
+**How to watch Panthers vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126248/2026/03/17/panthers-vs-canucks-stream-how-to-watch-march-17/
+
 **Tribunal Calls for Retrial of the Vatican’s ‘Trial of the Century’**\
 `Three years ago, the Vatican’s criminal court convicted a cardinal for the first time in history. Now, an appeals court has ruled there were irregularities in his prosecution.`\
 https://nytimes.com/2026/03/17/world/europe/vatican-cardinal-retrial.html
