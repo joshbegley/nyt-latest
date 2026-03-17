@@ -1,3 +1,11 @@
+**How to watch Suns vs. Timberwolves: Time, TV, streaming**\
+`Find out how to watch the Phoenix Suns play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125798/2026/03/17/suns-vs-timberwolves-stream-how-to-watch-march-17/
+
+**Krishnamoorthi Has a Huge Ad Spending Advantage**\
+`More than two-thirds of the media buys in the Illinois Senate race have gone toward Representative Raja Krishnamoorthi, with much of that coming from his own campaign.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-ad-spending.html
+
 **QA: Our new Nationals beat writer on Daylen Lile, options at first and defense**\
 `Also, a look at whether Seaver King will be fast tracked to the big leagues, and if Dylan Crews may get a reset in the minors`\
 https://nytimes.com/athletic/7125364/2026/03/17/washington-nationals-q-and-a-daylen-lile/
