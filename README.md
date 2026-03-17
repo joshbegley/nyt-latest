@@ -1,3 +1,7 @@
+**Hawks' 10-game win streak marks longest in over a decade as postseason push continues**\
+`The win also puts Atlanta just 1 1/2 games behind Orlando for the fifth spot in the East, in a pack of five teams between fifth and ninth.`\
+https://nytimes.com/athletic/7124404/2026/03/16/hawks-winning-streak-10-magic-nba/
+
 **What the Oscars Got Right**\
 `Giving Michael B. Jordan and “KPop Demon Hunters” their due, to start.`\
 https://nytimes.com/2026/03/16/podcasts/cannonball-oscar-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schaf
 **A Hard-Knock Life: A Trump Cabinet Hopeful Is Moved Offstage**\
 `Richard Grenell once hoped to be President Trump’s secretary of state. Instead, Mr. Trump just replaced him as Kennedy Center president.`\
 https://nytimes.com/2026/03/16/us/politics/grenell-kennedy-center.html
-
-**Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
-`Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
-https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/
 
