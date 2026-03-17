@@ -1,3 +1,31 @@
+**The 12 men's basketball teams with the best chance of winning their first championship**\
+`With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
+https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
+
+**How to watch the 2026 Houston Astros: Streaming info for Altuve, Correa and crew**\
+`Amid the ever-changing rules of streaming live sports, we lay out how to watch all 162 (or more) Astros games this season.`\
+https://nytimes.com/athletic/7121402/2026/03/17/houston-astros-altuve-correa-how-to-watch-2026/
+
+**The spring of Kevin McGonigle isn’t slowing down. Will he skip Triple A?**\
+`Detroit prospect, just 21, has answered every question this spring as he has grown more comfortable in the big league clubhouse.`\
+https://nytimes.com/athletic/7123690/2026/03/17/tigers-kevin-mcgonigle-spring-training/
+
+**Mookie Betts hopes new bat speed, workout routine will restore his offense**\
+`A mysterious stomach ailment last spring training helped put Betts on a path to his worst offensive season. Now, he says he's back.`\
+https://nytimes.com/athletic/7124077/2026/03/17/dodgers-mookie-betts-bat-speed/
+
+**African Mean Girls? Fresh Take on Teen Cliques Is Broadway Bound.**\
+`“School Girls; Or, The African Mean Girls Play,” written by Jocelyn Bioh and directed by Whitney White, will start performances in September.`\
+https://nytimes.com/2026/03/17/theater/school-girls-bioh-broadway.html
+
+**Who should Slot pick in Liverpool's biggest game of the season?**\
+`Our writers pick their XIs for the visit of the Turkish champions, which could define the Merseysiders' campaign`\
+https://nytimes.com/athletic/7123119/2026/03/17/liverpool-galatasaray-predictions-team/
+
+**Iran’s Hormuz Stranglehold Upends Markets and Geopolitics**\
+`Energy prices continued to climb around the world as war in the Middle East intensifies. That has scrambled President Trump’s foreign policy strategy.`\
+https://nytimes.com/2026/03/17/business/dealbook/iran-hormuz-markets-geopolitics.html
+
 **At Least 23 Killed in Nigeria as Insurgent Attacks Go On Despite U.S. Help**\
 `A teaching hospital and two markets in the city of Maiduguri were hit in what a military spokesman said were suicide bombings by Boko Haram.`\
 https://nytimes.com/2026/03/17/world/africa/nigeria-suicide-bombings-maiduguri.html
@@ -9,32 +37,4 @@ https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-d
 **Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
 `"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
 https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/
-
-**LA 2028 soccer schedule: San Diego to host bronze-medal matches, men's tournament to open Games**\
-`The distribution of soccer matches across the seven cities was announced by the Games organisers.`\
-https://nytimes.com/athletic/7124928/2026/03/17/la-2028-soccer-schedule-venues/
-
-**Phillies minor-league notes: Aidan Miller's back injury, hitters who impressed**\
-`The Phillies feel encouraged by Miller's recovery from a back injury, although it appears he won't begin the season on time. `\
-https://nytimes.com/athletic/7123800/2026/03/17/phillies-prospects-aidan-miller-back-injury/
-
-**Yankees' camp has been eerily quiet so far — but shhh, don't jinx it**\
-`Unlike last spring's, this year's camp has been smooth sailing — no injuries, no trades, no drama — and the Yankees are just fine with that.`\
-https://nytimes.com/athletic/7123446/2026/03/17/yankees-quiet-spring-training/
-
-**Judging top NHL draft prospects by Jets fit: Who should Winnipeg pick?**\
-`The NHL draft might be the Jets' best shot at acquiring a truly high-end player this offseason. But which one?`\
-https://nytimes.com/athletic/7123150/2026/03/17/winnipeg-jets-nhl-draft-top-10-fit-need/
-
-**Broncos mock draft: Is first-round playmaker a must after quiet free-agent approach?**\
-`Indiana wide receiver Omar Cooper Jr. could be a strong fit in Sean Payton's Broncos offense.`\
-https://nytimes.com/athletic/7123067/2026/03/17/broncos-mock-draft-free-agency/
-
-**Matt McLain's monster spring reinforces the Reds' confidence in their 2B**\
-`No matter what happened at the plate, McLain was the same person and player in the field, on the bases and in the clubhouse.`\
-https://nytimes.com/athletic/7124068/2026/03/17/reds-francona-confident-in-2b-matt-mclain/
-
-**Anton Frondell has more to accomplish in Sweden before joining Blackhawks**\
-`After a second-half surge, Frondell is set to start a three-game playoff series with Djurgårdens on Tuesday.`\
-https://nytimes.com/athletic/7123312/2026/03/17/anton-frondell-blackhawks-prospect-world-juniors-djurgardens/
 
