@@ -1,40 +1,40 @@
-**What the Oscars Got Right**\
-`Wesley Morris and Sasha Weiss, the culture editor of The New York Times Magazine, recap the live broadcast of the 98th Academy Awards.`\
-https://nytimes.com/video/podcasts/100000010783223/what-the-oscars-got-right.html
+**Trump Administration to Music Fans: Just Kidding About Coming to Save You**\
+`The Justice Department’s Live Nation settlement took everyone by surprise, even its lead counsel.`\
+https://nytimes.com/2026/03/17/opinion/trump-administration-music-fans-kid-rock.html
 
-**Iran negotiating with FIFA to move World Cup matches from U.S. to Mexico, says embassy**\
-`Last week, President Trump said that he does not believe it is “appropriate” for Iran’s men’s soccer team to participate in the World Cup.`\
-https://nytimes.com/athletic/7124876/2026/03/17/iran-trump-world-cup-news-games-mexico/
+**The Prospect Park Rose Garden Is Being Reimagined**\
+`The garden, in the Vale, hasn’t had roses for decades. Now it will become a pollinator garden as part of a $37.5 million restoration project.`\
+https://nytimes.com/2026/03/17/nyregion/prospect-park-rose-garden-vale.html
 
-**This is what happened on March 16.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-16
+**As Carney Travels the Globe for New Alliances, He Looks Away on Human Rights**\
+`Canada’s prime minister chooses pragmatism in a turbulent world, which means doing business with countries that do not share Canada’s democratic values. Some critics see this as weakness.`\
+https://nytimes.com/2026/03/17/world/canada/canada-carney-alliances-human-rights.html
 
-**After Pulling Back, Oil Prices Resume Their Rise**\
-`Shipping routes crucial to global commerce remained disrupted as the conflict in the Middle East continued.`\
-https://nytimes.com/2026/03/17/business/oil-stock-gas-markets-iran.html
+**Trump Officials Weigh New $1 Billion Deal to Stop Offshore Wind Farms**\
+`Proposed settlements would block wind farms off New York State and North Carolina, according to documents reviewed by The New York Times.`\
+https://nytimes.com/2026/03/17/climate/offshore-wind-settlements-trump.html
 
-**Brighton's Wieffer says he prefers playing in midfield rather than at right-back**\
-`The 26-year-old has primarily been deployed as a full-back under head coach Fabian Hurzeler.`\
-https://nytimes.com/athletic/7122503/2026/03/17/brighton-mats-wieffer-right-back-midfield/
+**How Readers Voted on Miscast Roles in the Movies**\
+`Given a list of 14 mismatches, they quickly picked Ben Platt in “Dear Evan Hansen.” But they took issue (loudly) with one of our choices.`\
+https://nytimes.com/2026/03/17/movies/miscast-roles-readers-poll.html
 
-**Here’s the latest.**\
-`By Francesca Regalado, Ephrat Livni and John Yoon`\
-https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/heres-the-latest
+**A Leprechaun in Alabama? 20 Years Later, the Legend Lives On.**\
+`The purported sighting in March 2006, covered by a local TV news station, made a lasting impression on the internet — and on Mobile, Ala.`\
+https://nytimes.com/2026/03/17/us/mobile-alabama-leprechaun-st-patricks-day.html
 
-**Iran War Live Updates: Another Tanker Is Hit Near Strait of Hormuz**\
-`A tanker anchored near an Emirati port was hit by a projectile, the first strike on a ship in and around the strait in five days. President Trump criticized countries that have declined to help unblock the vital oil route.`\
-https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon
+**Is There Too Much Screen Time in School?**\
+`A Times survey of 350 teachers shows that technology has become ingrained in classrooms since the pandemic. Is that true for you? How do you feel about it?`\
+https://nytimes.com/2026/03/17/learning/is-there-too-much-screen-time-in-school.html
 
-**As Income Gap Grows, So Do Fears Over Access to a Quality Education**\
-`Leaders and parents worry that a widening economic divide amid the current affordability crisis could amplify the role that money plays in access to a robust education in New York.`\
-https://nytimes.com/2026/03/17/nyregion/affordable-education-income-inequality.html
+**China is tight-lipped on Trump’s request to delay his trip to Beijing.**\
+`By Alexandra Stevenson`\
+https://nytimes.com/live/2026/03/17/world/iran-war-trump-oil-lebanon/china-is-tight-lipped-on-trumps-request-to-delay-his-trip-to-beijing
 
-**Hollywood’s Big Night**\
-`What was the best movie you saw in the past year?`\
-https://nytimes.com/2026/03/17/learning/hollywoods-big-night.html
+**With Twin Babies, the Opera Star Lise Davidsen Wonders What Comes Next**\
+`Davidsen, who has returned triumphantly to the Met in “Tristan und Isolde,” said that singing “has been my world, my everything. And now it’s not.”`\
+https://nytimes.com/2026/03/17/arts/music/lise-davidsen-isolde-pregnancy.html
 
-**A Red Fox’s Fantastic Voyage Starts in England and Leads to the Bronx**\
-`The fox is convalescing at the Bronx Zoo after an unlikely 3,600-mile sea crossing from England to the Port of New York and New Jersey.`\
-https://nytimes.com/2026/03/17/nyregion/bronx-zoo-red-fox-stowaway-europe.html
+**How to Grow a Mainly Native Garden**\
+`In her book “Plant This, Not That,” Elise Howard offers more than 200 substitution ideas for invasive plants.`\
+https://nytimes.com/2026/03/17/realestate/plant-this-not-that-native-garden-swaps.html
 
