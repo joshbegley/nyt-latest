@@ -1,3 +1,7 @@
+**LA 2028 soccer schedule: San Diego to host bronze-medal matches, men's tournament to open Games**\
+`The distribution of soccer matches across the seven cities was announced by the Games organisers.`\
+https://nytimes.com/athletic/7124928/2026/03/17/la-2028-soccer-schedule-venues/
+
 **Phillies minor-league notes: Aidan Miller's back injury, hitters who impressed**\
 `The Phillies feel encouraged by Miller's recovery from a back injury, although it appears he won't begin the season on time. `\
 https://nytimes.com/athletic/7123800/2026/03/17/phillies-prospects-aidan-miller-back-injury/
