@@ -1,3 +1,15 @@
+**Retiro Park **\
+``\
+https://nytimes.com/card/2026/03/17/travel/
+
+**Netanyahu Posts ‘Proof of Life’ Video as A.I. Sows Doubts About What’s Real**\
+`The unusual video is the latest demonstration that artificial intelligence is undermining trust — even in footage that is authentic.`\
+https://nytimes.com/2026/03/17/technology/netanyahu-ai-video-iran-israel.html
+
+**How a Melting Glacier Could Affect Tens of Millions Around the Globe**\
+`A collapse of the Thwaites Glacier in Antarctica would sharply accelerate sea-level rise in coastal cities.`\
+https://nytimes.com/interactive/2026/03/17/climate/thwaites-glacier-rising-sea-level-risk-floods.html
+
 **Trump Says Newsom Shouldn’t Be President Because He Is Dyslexic**\
 `President Trump said “a president should not have learning disabilities,” prompting criticism from a group that advocates for people with learning disabilities.`\
 https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disabilities.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/climate/100000010734830/how-a-melting-glacier-could-af
 **Under Roman Abramovich, Chelsea Broke Rules for Years, Premier League Says**\
 `The Russian oligarch spent nearly two decades building the London soccer club into a sporting superpower. That success was built partly on regulation breaches, an investigation found.`\
 https://nytimes.com/2026/03/17/world/europe/chelsea-soccer-abramovich-premier-league.html
-
-**Park factors: MLB venues that will help or hinder your players in fantasy baseball**\
-`Dalton Del Don highlights the MLB parks that rank the best for hitters and pitchers heading into the 2026 campaign.`\
-https://nytimes.com/athletic/7123523/2026/03/17/fantasy-baseball-2026-park-field-factors/
-
-**Key March Madness injuries to know while filling out your men's tournament bracket**\
-`From Duke and Michigan to Texas Tech and Louisville, a number of teams with hopes of a deep tournament run are battling injuries.`\
-https://nytimes.com/athletic/7125224/2026/03/17/march-madness-2026-player-injuries-caleb-foster-mikel-brown/
-
-**China Is Embracing OpenClaw a New A.I. Agent, and the Government Is Wary**\
-`Excitement about A.I. assistant tools is running into growing concerns about the security risks of software that operates autonomously on user’s devices.`\
-https://nytimes.com/2026/03/17/business/china-ai-agent.html
 
