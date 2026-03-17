@@ -18,7 +18,7 @@ https://nytimes.com/video/travel/100000010782015/tsa-lines-dhs-shutdown.html
 `Richard Monks said the independent regulator would raise ownership standards and drive down borrowing costs for clubs.`\
 https://nytimes.com/athletic/7123985/2026/03/16/football-regulator-investment-richard-monks/
 
-**How Trump Destroyed the Aura of the Wartime President**\
+**Trump Is Trying to Bully America Into Supporting His War. It Won’t Work.**\
 `Even as he’s wrecking American institutions, he is revealing the limits of his cultural influence.`\
 https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
 
