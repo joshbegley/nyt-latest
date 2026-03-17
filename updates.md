@@ -1,3 +1,7 @@
+**Flight Costs Are Up, but Travelers Aren’t Deterred, U.S. Airlines Say**\
+`Airline executives said the war in Iran had raised fuel costs and, as a result, fares, but that had not yet hurt demand for tickets from individuals and businesses.`\
+https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
+
 **Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
 `New York City has been representing former Mayor Eric Adams in a civil lawsuit filed in 2024.`\
 https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
