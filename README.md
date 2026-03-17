@@ -1,3 +1,19 @@
+**5 Things to Know About Raja Krishnamoorthi**\
+`The congressman, an Ivy League-educated lawyer known for his fund-raising prowess, is aiming to become the second Indian American elected to the Senate.`\
+https://nytimes.com/2026/03/17/us/elections/raja-krishnamoorthi-illinois-democratic-senate-candidate.html
+
+**5 Things to Know About Juliana Stratton**\
+`The lieutenant governor of Illinois, who is running in the Senate Democratic primary, is a close ally of Gov. JB Pritzker who has said ICE should be abolished.`\
+https://nytimes.com/2026/03/17/us/elections/juliana-stratton-illinois-democratic-senate-candidate.html
+
+**5 Things to Know About Robin Kelly**\
+`The Senate hopeful has clashed with Gov. JB Pritzker, a fellow Democrat, and has the endorsement of the Congressional Black Caucus.`\
+https://nytimes.com/2026/03/17/us/elections/robin-kelly-illinois-democratic-senate-candidate.html
+
+**An Off-Duty Officer Shot a Man in the Head, N.Y.P.D. Says**\
+`The officer, whom police did not identify but who works at Gracie Mansion and City Hall, is now under investigation. The man who was shot, a 30-year-old, is in critical condition.`\
+https://nytimes.com/2026/03/17/nyregion/nyc-nypd-shooting-bronx.html
+
 **Plus-Size Fliers Once Loved Southwest. Now They Say It’s Fat Shaming.**\
 `Since the airline changed its policy on larger passengers this year, travelers say agents have publicly scrutinized their bodies and made them buy extra seats.`\
 https://nytimes.com/2026/03/17/travel/southwest-large-passengers-extra-seat.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-direc
 **Trump Says U.S. Doesn’t Need Help From U.S. Allies in Iran**\
 `Amid mounting criticism from other countries and his own administration, President Trump told reporters that the U.S. didn’t need help opening the Strait of Hormuz.`\
 https://nytimes.com/video/us/politics/100000010785651/trump-nato-iran-war.html
-
-**Did ‘KPop Demon Hunters’ ... Get Robbed?**\
-`Wesley Morris talks about the big Oscars wins for “KPop Demon Hunters” and asks: Should it have been nominated in even more categories?`\
-https://nytimes.com/video/podcasts/100000010784953/did-kpop-demon-hunters-get-robbed.html
-
-**Here’s how The Times reports live election results and calls races.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-how-the-times-reports-live-election-results-and-calls-races
-
-**Manchester City 1 Real Madrid 2 (Agg: 1-5) – Vinicius Jr's double, where does this leave Pep?**\
-`Madrid made their first-leg advantage over City count as Vinicius Jr had the last laugh at the Etihad`\
-https://nytimes.com/athletic/7122002/2026/03/17/manchester-city-1-real-madrid-2-vinicius-junior-pep-guardiola/
-
-**Kharg Island Is an Appealing Target for Trump, With High Risks**\
-`A U.S. attack or a move to seize control of Iran’s main oil export hub could cripple the country’s ability to profit from its natural resources. But it would also risk sending energy prices even higher.`\
-https://nytimes.com/2026/03/17/us/politics/kharg-island-iran-trump-risks.html
 
