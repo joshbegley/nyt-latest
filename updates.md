@@ -1,3 +1,19 @@
+**England's 2026 World Cup squad: Who are our writers picking - and who is missing out?**\
+`Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
+https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
+
+**Anfield's faith in Liverpool and Slot is eroding. The season is at a tipping point**\
+`Fans' support for their team has never been unconditional and patience has been stretched to breaking point by a poor campaign`\
+https://nytimes.com/athletic/7112667/2026/03/17/liverpool-anfield-fans-arne-slot/
+
+**Who is the most underrated player in world football?**\
+`Real Madrid's Trent Alexander-Arnold suggested Federico Valverde was the most underrated player in the game. Is he right?`\
+https://nytimes.com/athletic/7122686/2026/03/17/most-underrated-player-world-football-analysis/
+
+**Can London City Lionesses build a fanbase to rival the likes of Arsenal?**\
+`Without the support of a men's team, London City are using a different approach to attract fans`\
+https://nytimes.com/athletic/7120217/2026/03/17/london-city-lionesses-build-fanbase-rival-arsenal/
+
 **Row Z: Paul Tierney channels his inner David Brent, and will no one respect the football?**\
 `Our weekly roundup of football's absurder side also takes in Roy Keane's assessments of totally random Premier League managers`\
 https://nytimes.com/athletic/7122144/2026/03/17/tierney-rosenior-brent-keane-tottenham-row-z/

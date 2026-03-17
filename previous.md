@@ -1,3 +1,19 @@
+**England's 2026 World Cup squad: Who are our writers picking - and who is missing out?**\
+`Does Foden make the cut? Should 16-year-old Dowman be on the plane? Who is the back-up to Kane? Does Maguire return? `\
+https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
+
+**Anfield's faith in Liverpool and Slot is eroding. The season is at a tipping point**\
+`Fans' support for their team has never been unconditional and patience has been stretched to breaking point by a poor campaign`\
+https://nytimes.com/athletic/7112667/2026/03/17/liverpool-anfield-fans-arne-slot/
+
+**Who is the most underrated player in world football?**\
+`Real Madrid's Trent Alexander-Arnold suggested Federico Valverde was the most underrated player in the game. Is he right?`\
+https://nytimes.com/athletic/7122686/2026/03/17/most-underrated-player-world-football-analysis/
+
+**Can London City Lionesses build a fanbase to rival the likes of Arsenal?**\
+`Without the support of a men's team, London City are using a different approach to attract fans`\
+https://nytimes.com/athletic/7120217/2026/03/17/london-city-lionesses-build-fanbase-rival-arsenal/
+
 **Row Z: Paul Tierney channels his inner David Brent, and will no one respect the football?**\
 `Our weekly roundup of football's absurder side also takes in Roy Keane's assessments of totally random Premier League managers`\
 https://nytimes.com/athletic/7122144/2026/03/17/tierney-rosenior-brent-keane-tottenham-row-z/
@@ -21,20 +37,4 @@ https://nytimes.com/issue/todayspaper/2026/03/17/todays-new-york-times
 **Trump’s Dangerous Lack of a Strategy in Iran**\
 `The early reality of the Iran war is not cooperating with President Trump’s bluster.`\
 https://nytimes.com/2026/03/17/opinion/trump-iran-war-strategy.html
-
-**Former Syracuse QB Rex Culpepper dies at 28 after dirt bike accident**\
-`Culpepper spent most of his career at Syracuse as a backup quarterback and was diagnosed with testicular cancer in 2018. `\
-https://nytimes.com/athletic/7124514/2026/03/17/syracuse-rex-culpepper-dies-brad-qb/
-
-**How Fandom Is Driving Katseye’s Pop Music Machine**\
-`Fans of the group have leveraged their influence into friendship and rivalry. Then a member’s sudden hiatus sent them into a spiral.`\
-https://nytimes.com/2026/03/17/arts/music/katseye-fans-pop-music-manon-boycott.html
-
-**As American Bombers Take Off From Britain, Memories of Iraq Loom Large**\
-`R.A.F. Fairford was the site of repeated antiwar protests during the Iraq war in 2003. Now it is being used again as a base for U.S. bombing missions in the Middle East.`\
-https://nytimes.com/2026/03/17/world/europe/iran-uk-raf-fairford-starmer-trump.html
-
-**Connections: Sports Edition Coach: Hints and answers for March 17, 2026**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/7124610/2026/03/17/connections-sports-edition-hints-answers-march-17-2026/
 
