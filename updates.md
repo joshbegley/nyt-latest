@@ -1,3 +1,23 @@
+**China Is Embracing OpenClaw a New A.I. Agent, and the Government Is Wary**\
+`Excitement about A.I. assistant tools is running into growing concerns about the security risks of software that operates autonomously on user’s devices.`\
+https://nytimes.com/2026/03/17/business/china-ai-agent.html
+
+**USMNT March roster: Pochettino includes Reyna for USA's last pre-World Cup squad**\
+`Reyna's lack of club playing time is no problem for Mauricio Pochettino, while injuries to some have opened the door to others at a key time`\
+https://nytimes.com/athletic/7123469/2026/03/17/usmnt-march-roster-belgium-portugal-pochettino-gio-reyna/
+
+**Judge Orders Prosecutors to Testify**\
+`Judge Zahid Quraishi of U.S. District Court ejected a federal prosecutor from his courtroom and ordered the three leaders designated to run the U.S. attorney’s office in New Jersey to return to court to testify.`\
+https://nytimes.com/interactive/2026/03/17/nyregion/judge-quraishi-hearing-transcript.html
+
+**How to watch Islanders vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125554/2026/03/17/islanders-vs-maple-leafs-stream-how-to-watch-march-17/
+
+**Dolphins agree to trade WR Jaylen Waddle to Broncos: Sources**\
+`Denver adds a playmaker for quarterback Bo Nix.`\
+https://nytimes.com/athletic/7125519/2026/03/17/jaylen-waddle-trade-broncos-dolphins-nfl-news/
+
 **How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125540/2026/03/17/hurricanes-vs-blue-jackets-stream-how-to-watch-march-17/
