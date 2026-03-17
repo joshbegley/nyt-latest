@@ -1,3 +1,7 @@
+**America, Alone**\
+`We explain why America’s allies aren’t coming to the rescue in the Strait of Hormuz.`\
+https://nytimes.com/2026/03/17/briefing/america-alone.html
+
 **Champions League odds: Will the Premier League’s trailing clubs prevail?**\
 `Chelsea, Liverpool, Manchester City and Tottenham Hotspur all face an uphill task to make the final eight of the Champions League`\
 https://nytimes.com/athletic/7124952/2026/03/17/champions-league-odds-man-city-chelsea-liverpool-spurs/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/world/asia/afghanistan-pakistan-kabul-hospital.ht
 **Why a House candidate is attacking an ad praising her.**\
 `By Tim Balk`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/why-a-house-candidate-is-attacking-an-ad-praising-her
-
-**Expert picks for the 2026 NCAA Tournament bracket: Why Brendan Marks has Duke winning it all**\
-`A Duke team led by a freshman Player of the Year candidate is Brendan Marks' pick for the second consecutive year.`\
-https://nytimes.com/athletic/7123628/2026/03/17/march-madness-expert-bracket-picks-duke-champion/
 
