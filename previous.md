@@ -1,3 +1,7 @@
+**When to Expect Primary Election Results From Illinois**\
+`Voters kicked off the state’s midterm contests for U.S. Senate, U.S. House and other offices on Tuesday.`\
+https://nytimes.com/2026/03/17/us/elections/primary-election-illinois-results-timing.html
+
 **How Fox Sports landed Zlatan Ibrahimović: 'He was at the top of the list'**\
 `Fox began its pursuit of Ibrahimović last fall. The Swedish star will join Thierry Henry and Alexi Lalas atop its lineup of analysts.`\
 https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/juliana-stratton-illinois-democratic
 **5 Things to Know About Robin Kelly**\
 `The Senate hopeful has clashed with Gov. JB Pritzker, a fellow Democrat, and has the endorsement of the Congressional Black Caucus.`\
 https://nytimes.com/2026/03/17/us/elections/robin-kelly-illinois-democratic-senate-candidate.html
-
-**An Off-Duty Officer Shot a Man in the Head, N.Y.P.D. Says**\
-`The officer, whom police did not identify but who works at Gracie Mansion and City Hall, is now under investigation. The man who was shot, a 30-year-old, is in critical condition.`\
-https://nytimes.com/2026/03/17/nyregion/nyc-nypd-shooting-bronx.html
 

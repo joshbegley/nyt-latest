@@ -1,3 +1,7 @@
+**When to Expect Primary Election Results From Illinois**\
+`Voters kicked off the state’s midterm contests for U.S. Senate, U.S. House and other offices on Tuesday.`\
+https://nytimes.com/2026/03/17/us/elections/primary-election-illinois-results-timing.html
+
 **How Fox Sports landed Zlatan Ibrahimović: 'He was at the top of the list'**\
 `Fox began its pursuit of Ibrahimović last fall. The Swedish star will join Thierry Henry and Alexi Lalas atop its lineup of analysts.`\
 https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox-sports/
