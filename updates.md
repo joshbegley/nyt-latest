@@ -1,3 +1,19 @@
+**How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125540/2026/03/17/hurricanes-vs-blue-jackets-stream-how-to-watch-march-17/
+
+**How to watch Bruins vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125537/2026/03/17/bruins-vs-canadiens-stream-how-to-watch-march-17/
+
+**Why Won’t Europe Help Trump in Iran? Let’s Count the Reasons.**\
+`President Trump says his NATO allies are disloyal for not helping the United States to clear an oil blockade. But they have a long list of incentives to refuse.`\
+https://nytimes.com/2026/03/17/world/europe/europe-trump-strait-hormuz-oil.html
+
+**What is the Basij?**\
+`The large, plainclothes militia group is deeply embedded in Iranian society and has been used to crush dissent, often with brutal tactics.`\
+https://nytimes.com/2026/03/17/world/middleeast/basij-militia-iran.html
+
 **Albert Zuckerman, Literary Agent Called the ‘Hero of the Blockbuster,’ Dies at 94**\
 `During his 50-year career, he represented dozens of best-selling authors, including Ken Follett, Stephen Hawking and Michael Lewis.`\
 https://nytimes.com/2026/03/17/books/albert-zuckerman-dead.html

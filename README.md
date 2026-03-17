@@ -1,3 +1,7 @@
+**Dolphins agree to trade WR Jaylen Waddle to Broncos: Sources**\
+`Denver adds a playmaker for quarterback Bo Nix.`\
+https://nytimes.com/athletic/7125519/2026/03/17/jaylen-waddle-trade-broncos-dolphins-nfl-news/
+
 **How to watch Hurricanes vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125540/2026/03/17/hurricanes-vs-blue-jackets-stream-how-to-watch-march-17/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125240/2026/03/17/gerrit-cole-yankees-spring-train
 **How to watch Heat vs. Hornets: Time, TV, streaming**\
 `Find out how to watch the Miami Heat play the Charlotte Hornets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125479/2026/03/17/heat-vs-hornets-stream-how-to-watch-march-17/
-
-**How to watch Thunder vs. Magic: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Orlando Magic, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125477/2026/03/17/thunder-vs-magic-stream-how-to-watch-march-17/
 
