@@ -1,3 +1,11 @@
+**What the Oscars Got Right**\
+`Giving Michael B. Jordan and “KPop Demon Hunters” their due, to start.`\
+https://nytimes.com/2026/03/16/podcasts/cannonball-oscar-recap.html
+
+**Old-Fashioned, for One**\
+`Kiran Pandey presents a puzzle for our modern times.`\
+https://nytimes.com/2026/03/16/crosswords/daily-puzzle-2026-03-17.html
+
 **Florida College Republican Group Penalized Over Antisemitism Accusations**\
 `After the University of Florida restricted the Republican organization from operating on campus, the group sued the university arguing its First Amendment rights were violated.`\
 https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-antisemitism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/grenell-kennedy-center.html
 **Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
 `Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
 https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/
-
-**The Shortsightedness of Trump’s War in Iran**\
-`Is the U.S. repeating a century-old mistake in Iran? On “The Ezra Klein Show,” Ali Vaez, the Iran project director for the International Crisis Group, warns that Western-backed “short-term gains” often lead to unintended consequences.`\
-https://nytimes.com/video/opinion/100000010763736/the-shortsightedness-of-trumps-war-in-iran.html
-
-**Trump Claims an Ex-President Confided His Regrets on Iran. But Who?**\
-`The New York Times reached out to people close to President Trump’s predecessors. They disputed Mr. Trump’s claims.`\
-https://nytimes.com/2026/03/16/us/politics/trump-iran-presidents-democrats.html
 
