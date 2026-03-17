@@ -1,3 +1,7 @@
+**Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
+`"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
+https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/
+
 **LA 2028 soccer schedule: San Diego to host bronze-medal matches, men's tournament to open Games**\
 `The distribution of soccer matches across the seven cities was announced by the Games organisers.`\
 https://nytimes.com/athletic/7124928/2026/03/17/la-2028-soccer-schedule-venues/

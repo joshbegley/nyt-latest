@@ -1,3 +1,7 @@
+**Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
+`"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
+https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/
+
 **LA 2028 soccer schedule: San Diego to host bronze-medal matches, men's tournament to open Games**\
 `The distribution of soccer matches across the seven cities was announced by the Games organisers.`\
 https://nytimes.com/athletic/7124928/2026/03/17/la-2028-soccer-schedule-venues/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124496/2026/03/17/cubs-jameson-taillon-spring-trai
 **Mixed results for two key Flyers who recently changed positions**\
 `Trevor Zegras and Matvei Michkov have played their preferred positions since the trade deadline. Early returns show a work in progress.`\
 https://nytimes.com/athletic/7123948/2026/03/17/flyers-trevor-zegras-matvei-michkov-positions-faceoffs/
-
-**Artemi Panarin's return gives Rangers chance to reminisce and look ahead**\
-`"It's obviously weird to see him in a different jersey and play against him," Mika Zibanejad said after the Rangers' 4-1 loss to the Kings.`\
-https://nytimes.com/athletic/7124501/2026/03/17/artemi-panarin-return-rangers-loss-kings/
 
