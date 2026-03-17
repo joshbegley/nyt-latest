@@ -1,3 +1,15 @@
+**Ross Chastain, Daniel Suárez still hot after Las Vegas run-in: 'We don't get along'**\
+`After trading paint with each other Sunday in the cool-down lap, the former teammates had more words for each other Tuesday.`\
+https://nytimes.com/athletic/7126592/2026/03/17/nascar-ross-chastain-daniel-suarez-incident-argument-fight/
+
+**An Unexploded Bomb on a Colombian Farm Leads to a Diplomatic Clash**\
+`The Times photographed an unexploded munition in southern Colombia, near the Ecuadorean border. A high-stakes feud between both countries quickly ensued.`\
+https://nytimes.com/2026/03/17/world/americas/colombia-ecuador-bomb-petro-noboa.html
+
+**She Needed a Rug. One Dumpster Dive Later, She Had the Red Carpet.**\
+`Paige Thalia’s apartment floor got an upgrade this week thanks to some leftovers from the Academy Awards.`\
+https://nytimes.com/2026/03/17/style/oscars-red-carpet-dumpster-dive.html
+
 **Jesse Jackson Jr. Seeks Comeback After Corruption Scandal**\
 `After his promising career was halted by a corruption scandal that sent him to prison, the former Democratic congressman is trying to return to the House.`\
 https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-illinois-house-primary.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
 **Alfredo Bryce Echenique, 87, Dies; Novelist Bared Peru’s Privileged Class**\
 `“The other Peruvian” (alongside Mario Vargas Llosa), he exposed the heedlessness of the upper crust, which he knew well, and the quiet suffering of the classes underneath.`\
 https://nytimes.com/2026/03/17/books/alfred-bryce-echenique-dead.html
-
-**Creative, Quick and Not ‘Dumb’ at All: What It’s Like to Have Dyslexia**\
-`As many as 20 percent of Americans have dyslexia, a learning disorder that is not connected to IQ.`\
-https://nytimes.com/2026/03/17/well/dyslexia-trump-newsom-stigma.html
-
-**Is Latin America Abandoning Cuba?**\
-`President Trump is turning up the pressure on Cuba, but other Latin American countries, even those on the left, are staying quiet. We look at why.`\
-https://nytimes.com/2026/03/17/world/cuba-latin-america-iran-larijani-kabul.html
-
-**Kenny Pickett still wants to start, but focused on being 'positive addition' with Panthers**\
-`Pickett is eager to work with Bryce Young and Dave Canales: “I really just wanted to get in a great system with great people."`\
-https://nytimes.com/athletic/7125862/2026/03/17/panthers-kenny-pickett-quarterback-free-agency/
 
