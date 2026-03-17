@@ -1,3 +1,11 @@
+**This is what happened on March 16.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-16
+
+**After Pulling Back, Oil Prices Resume Their Rise**\
+`Shipping routes crucial to global commerce remained disrupted as the conflict in the Middle East continued.`\
+https://nytimes.com/2026/03/17/business/oil-stock-gas-markets-iran.html
+
 **Brighton's Wieffer says he prefers playing in midfield rather than at right-back**\
 `The 26-year-old has primarily been deployed as a full-back under head coach Fabian Hurzeler.`\
 https://nytimes.com/athletic/7122503/2026/03/17/brighton-mats-wieffer-right-back-midfield/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/crosswords/spelling-bee-forum.html
 **In Rural New York, Some See Proposed A.I. Center as a Needless Intrusion**\
 `The data center, to be built between Buffalo and Rochester, will raise electric bills and harm a nearby tribal reservation, opponents argue. “I can’t think of one good reason for it,” a local resident said.`\
 https://nytimes.com/2026/03/17/nyregion/ai-data-center-new-york.html
-
-**Wolves, unity and a pre-match huddle that actually appears to work**\
-`Rob Edwards' side are doomed to relegation but, having improved dramatically in recent weeks, are rebuilding the relationship with the fans`\
-https://nytimes.com/athletic/7124336/2026/03/17/wolves-huddle-edwards-unity/
-
-**Jimmy Kimmel Has a Bone to Pick With Trump’s War Plans**\
-`“The only war Trump had an exit plan for was Vietnam,” Kimmel remarked after the president said he would end the war in Iran when he “feels it in his bones.”`\
-https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
 

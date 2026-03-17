@@ -1,3 +1,11 @@
+**This is what happened on March 16.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-16
+
+**After Pulling Back, Oil Prices Resume Their Rise**\
+`Shipping routes crucial to global commerce remained disrupted as the conflict in the Middle East continued.`\
+https://nytimes.com/2026/03/17/business/oil-stock-gas-markets-iran.html
+
 **Brighton's Wieffer says he prefers playing in midfield rather than at right-back**\
 `The 26-year-old has primarily been deployed as a full-back under head coach Fabian Hurzeler.`\
 https://nytimes.com/athletic/7122503/2026/03/17/brighton-mats-wieffer-right-back-midfield/
