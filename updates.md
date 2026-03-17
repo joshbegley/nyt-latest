@@ -1,3 +1,19 @@
+**Is Latin America Abandoning Cuba?**\
+`President Trump is turning up the pressure on Cuba, but other Latin American countries, even those on the left, are staying quiet. We look at why.`\
+https://nytimes.com/2026/03/17/world/cuba-latin-america-iran-larijani-kabul.html
+
+**Kenny Pickett still wants to start, but focused on being 'positive addition' with Panthers**\
+`Pickett is eager to work with Bryce Young and Dave Canales: “I really just wanted to get in a great system with great people."`\
+https://nytimes.com/athletic/7125862/2026/03/17/panthers-kenny-pickett-quarterback-free-agency/
+
+**Israel Says It Has Killed Ali Larijani, Iran’s De Facto Political Leader**\
+`The killing, which Iran has not yet confirmed, could embolden Iranian hard-liners, as the U.S.-Israeli bombing campaign continues.`\
+https://nytimes.com/2026/03/17/world/middleeast/israel-ali-larijani-iran-death.html
+
+**A War With, Not for, Israel**\
+`Israel is the rare U.S. ally that pulls its weight, shares the risk and contributes to victory.`\
+https://nytimes.com/2026/03/17/opinion/iran-war-israel-us-allies.html
+
 **Why Tanking Doesn’t Work in the N.B.A.**\
 `Losing more games means a better odd to a No. 1 draft pick, but it doesn’t guarantee a successful rebuild. Zach Harper, a basketball writer for The Athletic, explains why.`\
 https://nytimes.com/video/the-athletic/100000010784835/why-tanking-doesnt-work-in-the-nba.html
