@@ -1,3 +1,8 @@
+**Jaylen Brown feeling the love from Boston during rewarding Celtics season**\
+`Brown heard several more M-V-P chants while scoring 41 points in the Celtics' 120-112 win over the Phoenix Suns.
+`\
+https://nytimes.com/athletic/7124639/2026/03/17/jaylen-brown-celtics-feeling-love-boston/
+
 **2026 NHL Draft ranking: Gavin McKenna returns to top of Wheeler's list**\
 `McKenna and Stenberg have been 1-2 on all five of Wheeler's lists, but the Penn State star has regained the No. 1 spot.`\
 https://nytimes.com/athletic/7105520/2026/03/17/2026-nhl-draft-ranking-gavin-mckenna-ivar-stenberg-prospects/
