@@ -1,3 +1,7 @@
+**Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
+`Maikel Garcia keyed a seventh-inning rally and now Venezuela will attempt to take down another superpower on the way to a WBC title.`\
+https://nytimes.com/athletic/7123965/2026/03/16/venezuela-team-usa-wbc-final-italy/
+
 **Brent Burns passes Bobby Orr on list of goals by NHL defensemen**\
 `The goal also marks the 14th time Burns has reached double-digits in goals for a season.`\
 https://nytimes.com/athletic/7014541/2026/03/16/brent-burns-bobby-orr-nhl-goals-defensemen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-
 **Utah Mother Found Guilty of Fatally Poisoning Husband**\
 `Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
 https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
-
-**Boston Fleet acquire Jessie Eldridge from Seattle Torrent: Why the trade was made**\
-`“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
-https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
 

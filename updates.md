@@ -1,3 +1,7 @@
+**Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
+`Maikel Garcia keyed a seventh-inning rally and now Venezuela will attempt to take down another superpower on the way to a WBC title.`\
+https://nytimes.com/athletic/7123965/2026/03/16/venezuela-team-usa-wbc-final-italy/
+
 **Brent Burns passes Bobby Orr on list of goals by NHL defensemen**\
 `The goal also marks the 14th time Burns has reached double-digits in goals for a season.`\
 https://nytimes.com/athletic/7014541/2026/03/16/brent-burns-bobby-orr-nhl-goals-defensemen/
