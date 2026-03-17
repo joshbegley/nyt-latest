@@ -1,3 +1,7 @@
+**Flick says he will retire from management when he leaves Barcelona**\
+`Re-elected club president Joan Laporta has said that they want to announce Flick's contract extension "as soon as possible".  `\
+https://nytimes.com/athletic/7125131/2026/03/17/barcelona-news-flick-retire-future-update-contract/
+
 **Israel’s Killing of Ali Larijani Could Allow Military to Tighten Grip on Iran**\
 `As Iran’s top national security official, Mr. Larijani had a reputation for acting as a bridge between hard-line figures in the armed forces and more moderate political factions.`\
 https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death-iran-military-control-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html
 **Trump Administration Live Updates: Senate to Open Debate on Bill to Stiffen Voting Rules**\
 ``\
 https://nytimes.com/live/2026/03/17/us/trump-news
-
-**John Galliano Returns to Fashion — and This Time, You Can Afford Him**\
-`The designer is embarking on a partnership with Zara.`\
-https://nytimes.com/2026/03/17/style/john-galliano-zara.html
 
