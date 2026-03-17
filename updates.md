@@ -1,3 +1,7 @@
+**Trump Is Trying to Bully America Into Supporting His War. It Won’t Work.**\
+`Even as he’s wrecking American institutions, he is revealing the limits of his cultural influence.`\
+https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
+
 **The Shortsightedness of Trump’s War in Iran**\
 `Is the U.S. repeating a century-old mistake in Iran? On “The Ezra Klein Show,” Ali Vaez, the Iran project director for the International Crisis Group, warns that Western-backed “short-term gains” often lead to unintended consequences.`\
 https://nytimes.com/video/opinion/100000010763736/the-shortsightedness-of-trumps-war-in-iran.html
