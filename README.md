@@ -1,3 +1,19 @@
+**Plus-Size Fliers Once Loved Southwest. Now They Say It’s Fat Shaming.**\
+`Since the airline changed its policy on larger passengers this year, travelers say agents have publicly scrutinized their bodies and made them buy extra seats.`\
+https://nytimes.com/2026/03/17/travel/southwest-large-passengers-extra-seat.html
+
+**Independent Polls are Scarce in the Illinois Democratic Senate Primary**\
+`In a rare open race for one of the state’s Senate seats, surveys suggest a wide range of potential outcomes.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-independent-polls.html
+
+**Maxx Crosby on what went down in Baltimore: 'I was terrified'**\
+`The Las Vegas Raiders star told his side of the story in a Tuesday episode of “The Rush with Maxx Crosby.”`\
+https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-failed-physical/
+
+**Oscars Viewership Slides 9%, Its First Drop Since 2021**\
+`The 17.9 million total followed similar drops for the Grammys and the Golden Globes.`\
+https://nytimes.com/2026/03/17/business/media/oscars-academy-awards-ratings.html
+
 **NFLPA elects JC Tretter as executive director 8 months after he resigned from union**\
 `Tretter won a three-way election that included interim executive director David White and American Conference commissioner Tim Pernetti.`\
 https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-director-elected/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7122002/2026/03/17/manchester-city-1-real-madrid-2-
 **Kharg Island Is an Appealing Target for Trump, With High Risks**\
 `A U.S. attack or a move to seize control of Iran’s main oil export hub could cripple the country’s ability to profit from its natural resources. But it would also risk sending energy prices even higher.`\
 https://nytimes.com/2026/03/17/us/politics/kharg-island-iran-trump-risks.html
-
-**Ali Larijani, a Top Iranian Politician and Emissary, Is Dead at 67**\
-`Mr. Larijani, the top national security official and a confidante of the former supreme leader, expertly navigated Iran’s internal politics and led the brutal crackdown on protests this year.`\
-https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death.html
-
-**The Briefing: Arsenal 2 Bayer Leverkusen 0 (Agg: 3-1) – Was Eze's one of this season's best Champions League goals? What next?**\
-`Analysis of Arsenal's Champions League last 16 victory over Bayer Leverkusen`\
-https://nytimes.com/athletic/7122000/2026/03/17/arsenal-2-bayer-leverkusen-0-eze-highlights/
-
-**Morocco crowned AFCON winners 57 days after final as Senegal victory annulled**\
-`CAF's statement on Tuesday, 57 days after January's final, said “all other motions or prayers for relief are dismissed”.`\
-https://nytimes.com/athletic/7126755/2026/03/17/afcon-morocco-senegal-final-overturned/
-
-**The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 2-8) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
-`Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
-https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
 

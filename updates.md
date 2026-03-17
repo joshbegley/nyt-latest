@@ -1,3 +1,11 @@
+**Morocco crowned AFCON winners 57 days after final as Senegal victory annulled**\
+`CAF's statement on Tuesday, 57 days after January's final, said “all other motions or prayers for relief are dismissed”.`\
+https://nytimes.com/athletic/7126755/2026/03/17/afcon-morocco-senegal-final-overturned/
+
+**The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 2-8) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
+`Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
+https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
+
 **Maxx Crosby on what went down in Baltimore: 'I'm freaking out'**\
 `The Las Vegas Raiders star told his side of the story in a Tuesday episode of “The Rush with Maxx Crosby.”`\
 https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-failed-physical/

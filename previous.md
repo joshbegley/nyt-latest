@@ -1,11 +1,3 @@
-**Maxx Crosby on what went down in Baltimore: 'I'm freaking out'**\
-`The Las Vegas Raiders star told his side of the story in a Tuesday episode of “The Rush with Maxx Crosby.”`\
-https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-failed-physical/
-
-**Oscars Viewership Slides 9%, Its First Drop Since 2021**\
-`The 17.9 million total followed similar drops for the Grammys and the Golden Globes.`\
-https://nytimes.com/2026/03/17/business/media/oscars-academy-awards-ratings.html
-
 **NFLPA elects JC Tretter as executive director 8 months after he resigned from union**\
 `Tretter won a three-way election that included interim executive director David White and American Conference commissioner Tim Pernetti.`\
 https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-director-elected/
@@ -37,4 +29,12 @@ https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death.html
 **The Briefing: Arsenal 2 Bayer Leverkusen 0 (Agg: 3-1) – Was Eze's one of this season's best Champions League goals? What next?**\
 `Analysis of Arsenal's Champions League last 16 victory over Bayer Leverkusen`\
 https://nytimes.com/athletic/7122000/2026/03/17/arsenal-2-bayer-leverkusen-0-eze-highlights/
+
+**Morocco crowned AFCON winners 57 days after final as Senegal victory annulled**\
+`CAF's statement on Tuesday, 57 days after January's final, said “all other motions or prayers for relief are dismissed”.`\
+https://nytimes.com/athletic/7126755/2026/03/17/afcon-morocco-senegal-final-overturned/
+
+**The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 2-8) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
+`Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
+https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
 
