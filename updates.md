@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Faults Allies Over Their Lukewarm Responses to Securing Strait**\
+`Quotation of the Day for Tuesday, March 17, 2026.`\
+https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-trump-faults-allies-over-their-lukewarm-responses-to-securing-strait.html
+
 **Oil Begins Flowing Through California Pipeline Under Trump Order**\
 `Oil had not flowed through the pipeline since a 2015 rupture caused an environmental disaster on California’s Central Coast. It sets up a new fight between the Trump administration and state officials.`\
 https://nytimes.com/2026/03/16/us/santa-barbara-oil-pipeline-trump.html

@@ -1,3 +1,23 @@
+**How Fandom Is Driving Katseye’s Pop Music Machine**\
+`Fans of the group have leveraged their influence into friendship and rivalry. Then a member’s sudden hiatus sent them into a spiral.`\
+https://nytimes.com/2026/03/17/arts/music/katseye-fans-pop-music-manon-boycott.html
+
+**As American Bombers Take Off From Britain, Memories of Iraq Loom Large**\
+`R.A.F. Fairford was the site of repeated antiwar protests during the Iraq war in 2003. Now it is being used again as a base for U.S. bombing missions in the Middle East.`\
+https://nytimes.com/2026/03/17/world/europe/iran-uk-raf-fairford-starmer-trump.html
+
+**Connections: Sports Edition Coach: Hints and answers for March 17, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7124610/2026/03/17/connections-sports-edition-hints-answers-march-17-2026/
+
+**As War With Iran Hurts Oil Prices, U.S. Turns to Iranian Boats for Help**\
+`Iranian-linked ships carrying Russian oil were among those that received temporary exemptions from sanctions, a sign of how dire the energy crisis is becoming.`\
+https://nytimes.com/2026/03/17/business/iran-war-boats-russian-oil.html
+
+**Corrections: March 17, 2026**\
+`Corrections that appeared in print on Tuesday, March 17, 2026.`\
+https://nytimes.com/2026/03/17/pageoneplus/corrections-march-17-2026.html
+
 **Quote of the Day: Trump Faults Allies Over Their Lukewarm Responses to Securing Strait**\
 `Quotation of the Day for Tuesday, March 17, 2026.`\
 https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-trump-faults-allies-over-their-lukewarm-responses-to-securing-strait.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-champions
 **Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
 `Maikel Garcia keyed a seventh-inning rally and now Venezuela will attempt to take down another superpower on the way to a WBC title.`\
 https://nytimes.com/athletic/7123965/2026/03/16/venezuela-team-usa-wbc-final-italy/
-
-**Brent Burns passes Bobby Orr on list of goals by NHL defensemen**\
-`The goal also marks the 14th time Burns has reached double digits in goals for a season.`\
-https://nytimes.com/athletic/7014541/2026/03/16/brent-burns-bobby-orr-nhl-goals-defensemen/
-
-**Hawks' 10-game win streak marks longest in over a decade as postseason push continues**\
-`The win also puts Atlanta just 1 1/2 games behind Orlando for the fifth spot in the East, in a pack of five teams between fifth and ninth.`\
-https://nytimes.com/athletic/7124404/2026/03/16/hawks-winning-streak-10-magic-nba/
-
-**What the Oscars Got Right**\
-`Giving Michael B. Jordan and “KPop Demon Hunters” their due, to start.`\
-https://nytimes.com/2026/03/16/podcasts/cannonball-oscar-recap.html
-
-**Old-Fashioned, for One**\
-`Kiran Pandey presents a puzzle for our modern times.`\
-https://nytimes.com/2026/03/16/crosswords/daily-puzzle-2026-03-17.html
-
-**Florida College Republican Group Penalized Over Antisemitism Accusations**\
-`After the University of Florida restricted the Republican organization from operating on campus, the group sued the university arguing its First Amendment rights were violated.`\
-https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-antisemitism.html
 
