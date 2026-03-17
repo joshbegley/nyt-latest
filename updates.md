@@ -1,3 +1,15 @@
+**Illinois Primaries Flooded With Money From AIPAC and Cryptocurrency**\
+`Various groups connected to the pro-Israel lobby have spent millions on House races, while cryptocurrency super PACs have spent heavily in the Democratic primary for Senate.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-primaries-aipac-cryptocurrency-ai-superpacs.html
+
+**Marquise Brown agrees to free-agent deal with Eagles: Source**\
+`Brown had 49 catches for 587 yards with five TDs last season, providing the Chiefs with one of their most consistent offensive options.`\
+https://nytimes.com/athletic/7087940/2026/03/17/marquise-brown-nfl-free-agency-2026/
+
+**An ‘Unprecedented’ Outbreak of Meningitis Raises Alarm in Britain**\
+`Two people have died in an outbreak of meningococcal disease. Many cases were traced to a nightclub in Canterbury that is popular with students at the University of Kent.`\
+https://nytimes.com/2026/03/17/world/europe/meningitis-b-outbreak-kent-uk.html
+
 **Christopher A. Sims, 83, Dies; Won Nobel for Modeling Economic Policy**\
 `He and Thomas J. Sargent shared the prize in 2011 for devising statistical tools to help guide economic policymakers.`\
 https://nytimes.com/2026/03/17/business/economy/christopher-a-sims-dead.html

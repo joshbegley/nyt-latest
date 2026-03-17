@@ -1,3 +1,7 @@
+**Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
+`Adolescents said they were more likely to share photos with a dating partner, or when they had been worn down with repeated requests.`\
+https://nytimes.com/2026/03/17/well/family/teen-sextortion-sexting-nude-images.html
+
 **Illinois Primaries Flooded With Money From AIPAC and Cryptocurrency**\
 `Various groups connected to the pro-Israel lobby have spent millions on House races, while cryptocurrency super PACs have spent heavily in the Democratic primary for Senate.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-primaries-aipac-cryptocurrency-ai-superpacs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/technology/netanyahu-ai-video-iran-israel.html
 **How a Melting Glacier Could Affect Tens of Millions Around the Globe**\
 `A collapse of the Thwaites Glacier in Antarctica would sharply accelerate sea-level rise in coastal cities.`\
 https://nytimes.com/interactive/2026/03/17/climate/thwaites-glacier-rising-sea-level-risk-floods.html
-
-**Trump Says Newsom Shouldn’t Be President Because He Is Dyslexic**\
-`President Trump said “a president should not have learning disabilities,” prompting criticism from a group that advocates for people with learning disabilities.`\
-https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disabilities.html
 
