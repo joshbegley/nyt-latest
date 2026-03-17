@@ -1,9 +1,13 @@
+**In WBC championship between U.S. and Venezuela, which team has the edge?**\
+`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game. `\
+https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-championship-united-states-venezuela-lineup-edge/
+
 **Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
 `Maikel Garcia keyed a seventh-inning rally and now Venezuela will attempt to take down another superpower on the way to a WBC title.`\
 https://nytimes.com/athletic/7123965/2026/03/16/venezuela-team-usa-wbc-final-italy/
 
 **Brent Burns passes Bobby Orr on list of goals by NHL defensemen**\
-`The goal also marks the 14th time Burns has reached double-digits in goals for a season.`\
+`The goal also marks the 14th time Burns has reached double digits in goals for a season.`\
 https://nytimes.com/athletic/7014541/2026/03/16/brent-burns-bobby-orr-nhl-goals-defensemen/
 
 **Hawks' 10-game win streak marks longest in over a decade as postseason push continues**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.
 **Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
 `Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
 https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
-
-**Utah Mother Found Guilty of Fatally Poisoning Husband**\
-`Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
-https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
 
