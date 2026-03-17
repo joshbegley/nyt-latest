@@ -1,3 +1,7 @@
+**Iran’s Leadership Suffers a Double Blow**\
+`Also, the Senate begins a bitter debate about voting rules. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2026/03/17/briefing/irans-leadership-suffers-a-double-blow.html
+
 **Until Saturday: Underdogs still matter**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/17/nyregion/mamdani-st-patricks-day-palestinians.htm
 **Small U.S. Airports Could Close if Shutdown Continues, Official Warns**\
 `T.S.A. officers, working without pay for more than a month, have called out of work and quit in growing numbers as the shutdown drags on.`\
 https://nytimes.com/2026/03/17/travel/tsa-small-airport-closures.html
-
-**The Art of the Fashion Farewell**\
-`How designers took their bows this season.`\
-https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
 

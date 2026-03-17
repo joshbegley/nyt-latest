@@ -1,3 +1,7 @@
+**Until Saturday: Underdogs still matter**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/
+
 **Ross Chastain, Daniel Suárez still hot after Las Vegas run-in: 'We don't get along'**\
 `After trading paint with each other Sunday in the cool-down lap, the former teammates had more words for each other Tuesday.`\
 https://nytimes.com/athletic/7126592/2026/03/17/nascar-ross-chastain-daniel-suarez-incident-argument-fight/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/17/travel/tsa-small-airport-closures.html
 **The Art of the Fashion Farewell**\
 `How designers took their bows this season.`\
 https://nytimes.com/2026/03/17/style/fashion-designers-shows-farewell.html
-
-**Alfredo Bryce Echenique, 87, Dies; Novelist Bared Peru’s Privileged Class**\
-`“The other Peruvian” (alongside Mario Vargas Llosa), he exposed the heedlessness of the upper crust, which he knew well, and the quiet suffering of the classes underneath.`\
-https://nytimes.com/2026/03/17/books/alfred-bryce-echenique-dead.html
 

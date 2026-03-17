@@ -1,3 +1,7 @@
+**Until Saturday: Underdogs still matter**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/7126716/2026/03/17/march-madness-underdogs-until-saturday/
+
 **Ross Chastain, Daniel Suárez still hot after Las Vegas run-in: 'We don't get along'**\
 `After trading paint with each other Sunday in the cool-down lap, the former teammates had more words for each other Tuesday.`\
 https://nytimes.com/athletic/7126592/2026/03/17/nascar-ross-chastain-daniel-suarez-incident-argument-fight/
