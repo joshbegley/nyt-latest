@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126167/2026/03/17/76ers-vs-nuggets-stream-how-to-watch-march-17/
+
 **Gotham FC, Washington Spirit set for first NWSL match in NYC at Citi Field**\
 `The historic match will mark a significant step for Gotham as they re-center themselves in the New York City market.`\
 https://nytimes.com/athletic/7125781/2026/03/17/gotham-fc-washington-spirit-citi-field-nwsl/
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/7125734/2026/03/17/noahkai-banks-usmnt-germany-maur
 **Trump Says U.S. Does Not ‘Need or Desire’ Help From Allies on Iran**\
 `President Trump has faced mounting criticism over the U.S.-Israeli assault on Iran from allies and even members of his own administration.`\
 https://nytimes.com/2026/03/17/us/politics/trump-nato-iran-strait-of-hormuz.html
-
-**Jaylen Waddle trade grades: Has Dolphins' teardown gone too far?**\
-`On the other side, the Broncos get a needed complement to Courtland Sutton.`\
-https://nytimes.com/athletic/7125582/2026/03/17/jaylen-waddle-broncos-dolphins-trade-grades/
 
