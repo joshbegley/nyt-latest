@@ -1,3 +1,7 @@
+**What is the Basij?**\
+`The large, plainclothes militia group is deeply embedded in Iranian society and has been used to crush dissent, often with brutal tactics.`\
+https://nytimes.com/2026/03/17/world/middleeast/basij-militia-iran.html
+
 **Albert Zuckerman, Literary Agent Called the ‘Hero of the Blockbuster,’ Dies at 94**\
 `During his 50-year career, he represented dozens of best-selling authors, including Ken Follett, Stephen Hawking and Michael Lewis.`\
 https://nytimes.com/2026/03/17/books/albert-zuckerman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/books/len-deighton-dead.html
 **Dozens Killed in Airstrike on Kabul Drug Treatment Center**\
 `Dozens of people died on Monday in an airstrike that hit a drug rehabilitation center in Kabul. Pakistani officials said the strike was targeting a weapons depot.`\
 https://nytimes.com/video/world/middleeast/100000010783791/airstrike-pakistan-drug-treatment-center-kabul.html
-
-**Blue Jackets are still fighting for a playoff spot. Here's what they're up against**\
-`The Blue Jackets have been the hottest club in the NHL since Jan. 11. It hasn't been enough to earn them a playoff spot yet. `\
-https://nytimes.com/athletic/7121630/2026/03/17/blue-jackets-playoff-spot-nhl-standings/
 

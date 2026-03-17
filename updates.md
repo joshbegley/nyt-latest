@@ -1,3 +1,7 @@
+**Albert Zuckerman, Literary Agent Called the ‘Hero of the Blockbuster,’ Dies at 94**\
+`During his 50-year career, he represented dozens of best-selling authors, including Ken Follett, Stephen Hawking and Michael Lewis.`\
+https://nytimes.com/2026/03/17/books/albert-zuckerman-dead.html
+
 **How to watch Pistons vs. Wizards: Time, TV, streaming**\
 `Find out how to watch the Detroit Pistons play the Washington Wizards, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125509/2026/03/17/pistons-vs-wizards-stream-how-to-watch-march-17/
