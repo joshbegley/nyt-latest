@@ -1,3 +1,11 @@
+**Ex-Sheriff’s Deputy in Cryptocurrency Extortion Plot Sentenced to 5 Years**\
+`The former deputy with the Los Angeles County Sheriff’s Department pleaded guilty last year to conspiracy charges for his role in the scheme, according to federal prosecutors.`\
+https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencing.html
+
+**The Iran War Is Pushing Some Countries to Cut Back On Energy Use**\
+`As the conflict enters its third week, some nations are trying to reduce energy use, including a mandatory energy holiday in Sri Lanka.`\
+https://nytimes.com/2026/03/17/climate/iran-war-energy-use.html
+
 **What to Know About Banksy and the Effort to Unmask Him**\
 `An investigation by Reuters, which says it has identified the street artist, hinges on a police report from his arrest in New York two decades ago.`\
 https://nytimes.com/2026/03/17/arts/design/banksy-identity-robin-gunningham-david-jones.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/7126263/2026/03/17/sabres-vs-golden-knights-stream-
 **How to watch Lightning vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7126254/2026/03/17/lightning-vs-kraken-stream-how-to-watch-march-17/
-
-**How to watch Panthers vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126248/2026/03/17/panthers-vs-canucks-stream-how-to-watch-march-17/
-
-**Tribunal Calls for Retrial of the Vatican’s ‘Trial of the Century’**\
-`Three years ago, the Vatican’s criminal court convicted a cardinal for the first time in history. Now, an appeals court has ruled there were irregularities in his prosecution.`\
-https://nytimes.com/2026/03/17/world/europe/vatican-cardinal-retrial.html
-
-**Prime Tire: Yes, Verstappen still hates the new cars**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7126198/2026/03/17/chinese-gp-max-verstappen-prime-tire/
 
