@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Faults Allies Over Their Lukewarm Responses to Securing Strait**\
+`Quotation of the Day for Tuesday, March 17, 2026.`\
+https://nytimes.com/2026/03/16/pageoneplus/quote-of-the-day-trump-faults-allies-over-their-lukewarm-responses-to-securing-strait.html
+
 **Oil Begins Flowing Through California Pipeline Under Trump Order**\
 `Oil had not flowed through the pipeline since a 2015 rupture caused an environmental disaster on California’s Central Coast. It sets up a new fight between the Trump administration and state officials.`\
 https://nytimes.com/2026/03/16/us/santa-barbara-oil-pipeline-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/crosswords/daily-puzzle-2026-03-17.html
 **Florida College Republican Group Penalized Over Antisemitism Accusations**\
 `After the University of Florida restricted the Republican organization from operating on campus, the group sued the university arguing its First Amendment rights were violated.`\
 https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-antisemitism.html
-
-**Warriors' Steve Kerr becomes NBA's 28th coach to reach 600 regular-season wins**\
-`Kerr became just the 28th coach in league history to reach the 600-win mark, a win that came at an opportune time for the Warriors.`\
-https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
 
