@@ -1,3 +1,7 @@
+**Trump Bullied Allies. Now They’re Hard to Find.**\
+`Readers discuss developments in the Iran war, including strains with allies. Also: The high cost of opera, not just at the Met.`\
+https://nytimes.com/2026/03/17/opinion/trump-allies-iran-war.html
+
 **How to watch Sharks vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7125916/2026/03/17/sharks-vs-oilers-stream-how-to-watch-march-17/

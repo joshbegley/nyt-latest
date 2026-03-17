@@ -1,40 +1,40 @@
-**Trump Bullied Allies. Now They’re Hard to Find.**\
-`Readers discuss developments in the Iran war, including strains with allies. Also: The high cost of opera, not just at the Met.`\
-https://nytimes.com/2026/03/17/opinion/trump-allies-iran-war.html
+**Pennsylvania State House Special Election Results**\
+`Get live results and maps from the March 17, 2026 Pennsylvania special elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-pennsylvania-state-house-specials.html
 
-**How to watch Sharks vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125916/2026/03/17/sharks-vs-oilers-stream-how-to-watch-march-17/
+**Illinois Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-primary.html
 
-**How to watch Predators vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125893/2026/03/17/predators-vs-jets-stream-how-to-watch-march-17/
+**Pochettino on the case for Gio and USMNT's key pre-World Cup injuries**\
+`It's been two months since Gio Reyna last played for his club, but he'll have another chance to show he's World Cup-worthy`\
+https://nytimes.com/athletic/7125733/2026/03/17/mauricio-pochettino-gio-reyna-usmnt-march-roster-injuries-adams-pulisic/
 
-**How to watch Wild vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125882/2026/03/17/wild-vs-blackhawks-stream-how-to-watch-march-17/
+**Art But Make It Sports creator discusses his new book**\
+`Rader's popular social media accounts have now been translated into book form.`\
+https://nytimes.com/athletic/7105411/2026/03/17/art-but-make-it-sports-book-lj-rader/
 
-**Slot 'must have done a lot wrong' to receive Anfield boos**\
-`Slot had boos directed at him following Liverpool's 1-1 draw with Tottenham Hotspur.`\
-https://nytimes.com/athletic/7125787/2026/03/17/arne-slot-liverpool-fans-boos/
+**Academy ‘Extremely Upset’ After Teyana Taylor Says Oscars Security Shoved Her**\
+`The academy said an employee of an outside security firm hired for the Oscars had “incidental contact” with the actress, which it called “not acceptable.”`\
+https://nytimes.com/2026/03/17/movies/teyana-taylor-oscars-security.html
 
-**Why the Broncos swung big for Jaylen Waddle and what he can bring to their offense**\
-`The Broncos were willing to pay a big price to add a playmaker who has averaged more than 75 receptions and 1,000 yards per season.`\
-https://nytimes.com/athletic/7125744/2026/03/17/broncos-jaylen-waddle-trade-dolphins/
+**Illinois U.S. Senate Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-us-senate-primary.html
 
-**Sam Kerr is Australia's 'immense' captain and match winner again as Matildas reach final**\
-`Reaching the final represents the nation's first shot at soccer silverware for eight years`\
-https://nytimes.com/athletic/7125597/2026/03/17/australia-china-asian-cup-sam-kerr/
+**Illinois Ninth Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-9-primary.html
 
-**New York Theater Settles Case That Argued Discounts Were Discriminatory**\
-`The lawsuit objected to a “BIPOC night” program at Playwrights Horizons, an Off Broadway nonprofit.`\
-https://nytimes.com/2026/03/17/theater/playwrights-horizons-lawsuit-race-discounts.html
+**Illinois Second Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-2-primary.html
 
-**Matt Leinart won't allow USC to unretire his No. 11 jersey for high-level recruits**\
-`Matt Leinart said the only way he would consider allowing another player at USC to wear No. 11 is if one of his sons was a Trojan.`\
-https://nytimes.com/athletic/7125732/2026/03/17/matt-leinart-usc-unretire-jersey-college-football-recruiting/
+**Illinois First Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-1-primary.html
 
-**Everyone Deserves a Teeny Turner**\
-`My family treasures this tiny but mighty precision screwdriver. Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
-https://nytimes.com/wirecutter/reviews/teeny-turner-review/
+**Illinois Third Congressional District Primary Election Results**\
+`Get live results and maps from the 2026 Illinois primary elections.`\
+https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-3-primary.html
 
