@@ -1,3 +1,7 @@
+**Breaking down men's NCAA tournament upset potential in Round 1**\
+`An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
+https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
+
 **In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
 `Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123690/2026/03/17/tigers-kevin-mcgonigle-spring-tr
 **Mookie Betts hopes new bat speed, workout routine will restore his offense**\
 `A mysterious stomach ailment last spring training helped put Betts on a path to his worst offensive season. Now, he says he's back.`\
 https://nytimes.com/athletic/7124077/2026/03/17/dodgers-mookie-betts-bat-speed/
-
-**African Mean Girls? Fresh Take on Teen Cliques Is Broadway Bound.**\
-`“School Girls; Or, The African Mean Girls Play,” written by Jocelyn Bioh and directed by Whitney White, will start performances in September.`\
-https://nytimes.com/2026/03/17/theater/school-girls-bioh-broadway.html
 
