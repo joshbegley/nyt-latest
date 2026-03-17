@@ -1,3 +1,19 @@
+**Israel Keeps Killing Key Iranian Leaders. Will It Work?**\
+`Israeli officials trumpeted airstrikes that killed Iran’s de facto leader and the commanders of a militia notorious for violently suppressing protests. But “decapitation has its limits,” an analyst warns.`\
+https://nytimes.com/2026/03/17/world/middleeast/israel-iran-leader-deaths.html
+
+**Israel, Generational Divide Animate Democratic House Primaries in Illinois**\
+`Crowded Democratic fields will determine the power of pro-Israel lobbying dollars and how eager voters are for a new crop of leaders.`\
+https://nytimes.com/2026/03/17/us/elections/democratic-house-primaries-illinois-elections.html
+
+**Ex-Sheriff’s Deputy in Cryptocurrency Extortion Plot Sentenced to 5 Years**\
+`The former deputy with the Los Angeles County Sheriff’s Department pleaded guilty last year to conspiracy charges for his role in the scheme, according to federal prosecutors.`\
+https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencing.html
+
+**The Iran War Is Pushing Some Countries to Cut Back On Energy Use**\
+`As the conflict enters its third week, some nations are trying to reduce energy use, including a mandatory energy holiday in Sri Lanka.`\
+https://nytimes.com/2026/03/17/climate/iran-war-energy-use.html
+
 **What to Know About Banksy and the Effort to Unmask Him**\
 `An investigation by Reuters, which says it has identified the street artist, hinges on a police report from his arrest in New York two decades ago.`\
 https://nytimes.com/2026/03/17/arts/design/banksy-identity-robin-gunningham-david-jones.html
@@ -17,24 +33,4 @@ https://nytimes.com/video/us/100000010784787/meteor-ohio-nasa.html
 **U.N. Says Attacks on Iran Set to Drive Hunger to Record Levels**\
 `Tens of millions more people around the world could face acute hunger as the war in the Middle East continues to disrupt shipping and drive up oil prices.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-strikes-hunger-record-levels.html
-
-**How to watch Sabres vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126263/2026/03/17/sabres-vs-golden-knights-stream-how-to-watch-march-17/
-
-**How to watch Lightning vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126254/2026/03/17/lightning-vs-kraken-stream-how-to-watch-march-17/
-
-**How to watch Panthers vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126248/2026/03/17/panthers-vs-canucks-stream-how-to-watch-march-17/
-
-**Tribunal Calls for Retrial of the Vatican’s ‘Trial of the Century’**\
-`Three years ago, the Vatican’s criminal court convicted a cardinal for the first time in history. Now, an appeals court has ruled there were irregularities in his prosecution.`\
-https://nytimes.com/2026/03/17/world/europe/vatican-cardinal-retrial.html
-
-**Prime Tire: Yes, Verstappen still hates the new cars**\
-`Welcome to Prime Tire, The Athletic's F1 newsletter.`\
-https://nytimes.com/athletic/7126198/2026/03/17/chinese-gp-max-verstappen-prime-tire/
 
