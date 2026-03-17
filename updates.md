@@ -1,3 +1,15 @@
+**No Trump Pick as Deadline Locks In Texas Senate Race**\
+`President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
+https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
+
+**NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
+`Bowman, a playoff participant in eight of the past nine seasons, is almost certain to miss out this year with the extended absence.`\
+https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
+
+**Trump’s Next Decision: Whether to Retrieve Iran’s Nuclear Fuel, Whatever the Risk**\
+`A mission to seize or destroy Iran’s nuclear material would be one of the riskiest military operations in modern American history.`\
+https://nytimes.com/2026/03/17/us/politics/trump-iran-nuclear-fuel.html
+
 **Fernandez casts doubt on Chelsea future after PSG loss**\
 `The 25-year-old's contract runs until 2032.`\
 https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/

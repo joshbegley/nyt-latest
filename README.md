@@ -1,9 +1,13 @@
+**How Fox Sports landed Zlatan Ibrahimović: 'He was at the top of the list'**\
+`Fox began its pursuit of Ibrahimović last fall. The Swedish star will join Thierry Henry and Alexi Lalas atop its lineup of analysts.`\
+https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox-sports/
+
 **No Trump Pick as Deadline Locks In Texas Senate Race**\
 `President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
 https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
 
 **NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
-`Bowman, a playoff participant in eight of the past nine seasons, is almost certain to miss out this year with the extended absence.`\
+`Bowman, a playoff participant in seven of the past eight seasons, is almost certain to miss out this year with the extended absence.`\
 https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
 
 **Trump’s Next Decision: Whether to Retrieve Iran’s Nuclear Fuel, Whatever the Risk**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/robin-kelly-illinois-democratic-sena
 **An Off-Duty Officer Shot a Man in the Head, N.Y.P.D. Says**\
 `The officer, whom police did not identify but who works at Gracie Mansion and City Hall, is now under investigation. The man who was shot, a 30-year-old, is in critical condition.`\
 https://nytimes.com/2026/03/17/nyregion/nyc-nypd-shooting-bronx.html
-
-**Plus-Size Fliers Once Loved Southwest. Now They Say It’s Fat Shaming.**\
-`Since the airline changed its policy on larger passengers this year, travelers say agents have publicly scrutinized their bodies and made them buy extra seats.`\
-https://nytimes.com/2026/03/17/travel/southwest-large-passengers-extra-seat.html
 

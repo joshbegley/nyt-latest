@@ -1,3 +1,15 @@
+**No Trump Pick as Deadline Locks In Texas Senate Race**\
+`President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
+https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
+
+**NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
+`Bowman, a playoff participant in eight of the past nine seasons, is almost certain to miss out this year with the extended absence.`\
+https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
+
+**Trump’s Next Decision: Whether to Retrieve Iran’s Nuclear Fuel, Whatever the Risk**\
+`A mission to seize or destroy Iran’s nuclear material would be one of the riskiest military operations in modern American history.`\
+https://nytimes.com/2026/03/17/us/politics/trump-iran-nuclear-fuel.html
+
 **Fernandez casts doubt on Chelsea future after PSG loss**\
 `The 25-year-old's contract runs until 2032.`\
 https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/17/nyregion/nyc-nypd-shooting-bronx.html
 **Plus-Size Fliers Once Loved Southwest. Now They Say It’s Fat Shaming.**\
 `Since the airline changed its policy on larger passengers this year, travelers say agents have publicly scrutinized their bodies and made them buy extra seats.`\
 https://nytimes.com/2026/03/17/travel/southwest-large-passengers-extra-seat.html
-
-**Independent Polls are Scarce in the Illinois Democratic Senate Primary**\
-`In a rare open race for one of the state’s Senate seats, surveys suggest a wide range of potential outcomes.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-independent-polls.html
-
-**Maxx Crosby on what went down in Baltimore: 'I was terrified'**\
-`The Las Vegas Raiders star told his side of the story in a Tuesday episode of “The Rush with Maxx Crosby.”`\
-https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-failed-physical/
-
-**Oscars Viewership Slides 9%, Its First Drop Since 2021**\
-`The 17.9 million total followed similar drops for the Grammys and the Golden Globes.`\
-https://nytimes.com/2026/03/17/business/media/oscars-academy-awards-ratings.html
 
