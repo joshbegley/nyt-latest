@@ -1,3 +1,19 @@
+**How to watch Sharks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125916/2026/03/17/sharks-vs-oilers-stream-how-to-watch-march-17/
+
+**How to watch Predators vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125893/2026/03/17/predators-vs-jets-stream-how-to-watch-march-17/
+
+**How to watch Wild vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125882/2026/03/17/wild-vs-blackhawks-stream-how-to-watch-march-17/
+
+**Slot 'must have done a lot wrong' to receive Anfield boos**\
+`Slot had boos directed at him following Liverpool's 1-1 draw with Tottenham Hotspur.`\
+https://nytimes.com/athletic/7125787/2026/03/17/arne-slot-liverpool-fans-boos/
+
 **Why the Broncos swung big for Jaylen Waddle and what he can bring to their offense**\
 `The Broncos were willing to pay a big price to add a playmaker who has averaged more than 75 receptions and 1,000 yards per season.`\
 https://nytimes.com/athletic/7125744/2026/03/17/broncos-jaylen-waddle-trade-dolphins/
@@ -21,20 +37,4 @@ https://nytimes.com/wirecutter/reviews/teeny-turner-review/
 **Submit your questions for Mike DeFabo’s Steelers mailbag**\
 `The Steelers are through the first wave of free agency with plenty of work still to do.`\
 https://nytimes.com/athletic/7125784/2026/03/17/steelers-mailbag-free-agency-draft/
-
-**How to watch Cavaliers vs. Bucks: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Milwaukee Bucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125809/2026/03/17/cavaliers-vs-bucks-stream-how-to-watch-march-17/
-
-**How to watch Pacers vs. Knicks: Time, TV, streaming**\
-`Find out how to watch the Indiana Pacers play the New York Knicks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125802/2026/03/17/pacers-vs-knicks-stream-how-to-watch-march-17/
-
-**How to watch Suns vs. Timberwolves: Time, TV, streaming**\
-`Find out how to watch the Phoenix Suns play the Minnesota Timberwolves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7125798/2026/03/17/suns-vs-timberwolves-stream-how-to-watch-march-17/
-
-**Krishnamoorthi Has a Huge Ad Spending Advantage**\
-`More than two-thirds of the media buys in the Illinois Senate race have gone toward Representative Raja Krishnamoorthi, with much of that coming from his own campaign.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-ad-spending.html
 
