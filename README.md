@@ -7,7 +7,7 @@ https://nytimes.com/athletic/7125364/2026/03/17/washington-nationals-q-and-a-day
 https://nytimes.com/2026/03/17/business/air-travel-iran-war-fares-jet-fuel.html
 
 **Mamdani Moves to End City’s Defense of Adams in Sexual Assault Lawsuit**\
-`New York City has been representing former Mayor Eric Adams in a civil lawsuit filed in 2024.`\
+`New York City has been paying for the lawyers representing former Mayor Eric Adams in a civil lawsuit concerning an alleged sexual assault in the 1990s.`\
 https://nytimes.com/2026/03/17/nyregion/eric-adams-sexual-assault-lawsuit.html
 
 **Many Teens Face Strong Peer Pressure to Share Sexual Images, Study Finds**\
