@@ -1,3 +1,15 @@
+**Retiro Park **\
+``\
+https://nytimes.com/card/2026/03/17/travel/
+
+**Netanyahu Posts ‘Proof of Life’ Video as A.I. Sows Doubts About What’s Real**\
+`The unusual video is the latest demonstration that artificial intelligence is undermining trust — even in footage that is authentic.`\
+https://nytimes.com/2026/03/17/technology/netanyahu-ai-video-iran-israel.html
+
+**How a Melting Glacier Could Affect Tens of Millions Around the Globe**\
+`A collapse of the Thwaites Glacier in Antarctica would sharply accelerate sea-level rise in coastal cities.`\
+https://nytimes.com/interactive/2026/03/17/climate/thwaites-glacier-rising-sea-level-risk-floods.html
+
 **Trump Says Newsom Shouldn’t Be President Because He Is Dyslexic**\
 `President Trump said “a president should not have learning disabilities,” prompting criticism from a group that advocates for people with learning disabilities.`\
 https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disabilities.html
