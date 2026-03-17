@@ -1,3 +1,7 @@
+**Boston Fleet acquire Jessie Eldridge from Seattle Torrent in exchange for Theresa Schafzal**\
+`“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
+https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
+
 **A Hard-Knock Life: A Trump Cabinet Hopeful Is Moved Offstage**\
 `Richard Grenell once hoped to be President Trump’s secretary of state. Instead, Mr. Trump just replaced him as Kennedy Center president.`\
 https://nytimes.com/2026/03/16/us/politics/grenell-kennedy-center.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/opinion/trump-iran-war-support.html
 **Fast-Moving Fire in Queens Kills 4, Including a Child**\
 `Fierce winds fueled a blaze in a mixed-use building on Monday, killing four people and injuring 12 others, officials said.`\
 https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
-
-**Aide Accused by Hegseth of Leaking Is Hired for Intelligence Job**\
-`Dan Caldwell will serve as an adviser to senior intelligence officials. His hiring signals the end of a high-profile investigation.`\
-https://nytimes.com/2026/03/16/us/politics/dan-caldwell-pentagon-dni.html
 
