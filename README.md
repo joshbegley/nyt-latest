@@ -1,3 +1,7 @@
+**Illinois Primaries Flooded With Money From AIPAC and Cryptocurrency**\
+`Various groups connected to the pro-Israel lobby have spent millions on House races, while cryptocurrency super PACs have spent heavily in the Democratic primary for Senate.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-primaries-aipac-cryptocurrency-ai-superpacs.html
+
 **Marquise Brown agrees to free-agent deal with Eagles: Source**\
 `Brown had 49 catches for 587 yards with five TDs last season, providing the Chiefs with one of their most consistent offensive options.`\
 https://nytimes.com/athletic/7087940/2026/03/17/marquise-brown-nfl-free-agency-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/17/climate/thwaites-glacier-rising-sea-l
 **Trump Says Newsom Shouldn’t Be President Because He Is Dyslexic**\
 `President Trump said “a president should not have learning disabilities,” prompting criticism from a group that advocates for people with learning disabilities.`\
 https://nytimes.com/2026/03/17/us/trump-newsom-dyslexic-president-learning-disabilities.html
-
-**Jonathan Groff in ‘Merrily We Roll Along,’ and More Theater to Stream**\
-`Joined by Daniel Radcliffe, Groff stars in the hit Broadway production of the Sondheim musical. And there are (count ’em) three productions of “The Importance of Being Earnest” this month.`\
-https://nytimes.com/2026/03/17/theater/jonathan-groff-merrily-we-roll-along-theater-to-stream.html
 
