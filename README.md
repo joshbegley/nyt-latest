@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/17/dining/nyc-restaurant-news.html
 `Since a school and a synagogue were attacked over two days, an unsettling feeling has spread among Jews in the Netherlands.`\
 https://nytimes.com/2026/03/17/world/europe/antisemitism-netherlands-amsterdam-rotterdam.html
 
-**What I'm hearing about the Penguins incredible march toward playoffs**\
+**What I'm hearing about the Penguins' incredible march toward playoffs**\
 `The Penguins, the surprise of the NHL, might not be a one-year fluke. `\
 https://nytimes.com/athletic/7125717/2026/03/17/penguins-nhl-playoffs-standings-race/
 
