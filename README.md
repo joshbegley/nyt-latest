@@ -1,3 +1,7 @@
+**Gotham FC, Washington Spirit set for first NWSL match in NYC at Citi Field**\
+`The historic match will mark a significant step for Gotham as they re-center themselves in the New York City market.`\
+https://nytimes.com/athletic/7125781/2026/03/17/gotham-fc-washington-spirit-citi-field-nwsl/
+
 **Illinois voters are choosing a successor to Senator Richard J. Durbin, long a force on Capitol Hill.**\
 `Senator Richard J. Durbin, the No. 2 Senate Democrat, has been a leading liberal voice during his decades in office.`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/durbin-illinois-senate-primary-election
@@ -25,8 +29,4 @@ https://nytimes.com/2026/03/17/us/politics/trump-nato-iran-strait-of-hormuz.html
 **Jaylen Waddle trade grades: Has Dolphins' teardown gone too far?**\
 `On the other side, the Broncos get a needed complement to Courtland Sutton.`\
 https://nytimes.com/athletic/7125582/2026/03/17/jaylen-waddle-broncos-dolphins-trade-grades/
-
-**Eau de Chocolat: A Smelly Ice Cream Ad Tempts Few London Commuters**\
-`Magnum Ice Cream is scaling back a scented ad at King’s Cross station after commuters complained that the aroma was “sickly” and “artificial.”`\
-https://nytimes.com/2026/03/17/world/europe/magnum-ice-cream-scent-ad-campaign-london.html
 
