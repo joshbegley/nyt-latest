@@ -1,3 +1,7 @@
+**Peter Thiel Fears the Antichrist Is Coming. In Rome, Some Call His View Heresy.**\
+`The right-wing tech investor is giving lectures near the Catholic church’s administrative heart. Commentators there are rejecting his apocalyptic vision.`\
+https://nytimes.com/2026/03/17/world/europe/peter-thiel-rome-antichrist-catholics.html
+
 **Breaking down men's NCAA tournament upset potential in Round 1**\
 `An in-depth, region-by-region look at potential first-round upsets based on historical statistical markers.`\
 https://nytimes.com/athletic/7123051/2026/03/17/the-definitive-guide-to-march-madness-2026-first-round-upsets/
