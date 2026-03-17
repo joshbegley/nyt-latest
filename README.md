@@ -1,3 +1,11 @@
+**Expert picks for the 2026 NCAA Tournament bracket: Why Brendan Marks has Duke winning it all**\
+`A Duke team led by a freshman Player of the Year candidate is Brendan Marks' pick for the second consecutive year.`\
+https://nytimes.com/athletic/7123628/2026/03/17/march-madness-expert-bracket-picks-duke-champion/
+
+**The Pulse: How to actually win your bracket pool**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7122905/2026/03/17/ncaa-bracket-strategy-the-pulse/
+
 **2026 NHL Draft ranking: Gavin McKenna returns to top of Wheeler's list**\
 `McKenna and Stenberg have been 1-2 on all five of Wheeler's lists, but the Penn State star has regained the No. 1 spot.`\
 https://nytimes.com/athletic/7105520/2026/03/17/2026-nhl-draft-ranking-gavin-mckenna-ivar-stenberg-prospects/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/7124639/2026/03/17/jaylen-brown-celtics-feeling-lov
 **Maple Leafs were embarrassed enough to fight back. Now what?**\
 `Sure, the Leafs eventually woke up. The problem is, this has happened before, and there's no clear solution in sight.`\
 https://nytimes.com/athletic/7123256/2026/03/17/maple-leafs-matthews-hit-response-roster-culture/
-
-**At the WBC final, Roman Anthony's journey comes full circle with Team USA**\
-`Three years ago, Roman Anthony paid for his ticket to the WBC championship. Tuesday night, he'll play in it.`\
-https://nytimes.com/athletic/7124871/2026/03/17/world-baseball-classic-team-usa-roman-anthony-journey/
-
-**2026 NHL prospect pool rankings: No. 24 Tampa Bay Lightning**\
-`It has been a long time since the Lightning hit on a prospect at the draft. Still, they have a few relevant prospects in their pool.`\
-https://nytimes.com/athletic/6963887/2026/03/17/tampa-bay-lightning-nhl-prospect-rankings-2026/
 
