@@ -1,3 +1,11 @@
+**Maxx Crosby on what went down in Baltimore: 'I'm freaking out'**\
+`The Las Vegas Raiders star told his side of the story in a Tuesday episode of “The Rush with Maxx Crosby.”`\
+https://nytimes.com/athletic/7126643/2026/03/17/maxx-crosby-ravens-raiders-failed-physical/
+
+**Oscars Viewership Slides 9%, Its First Drop Since 2021**\
+`The 17.9 million total followed similar drops for the Grammys and the Golden Globes.`\
+https://nytimes.com/2026/03/17/business/media/oscars-academy-awards-ratings.html
+
 **NFLPA elects JC Tretter as executive director 8 months after he resigned from union**\
 `Tretter won a three-way election that included interim executive director David White and American Conference commissioner Tim Pernetti.`\
 https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-director-elected/
