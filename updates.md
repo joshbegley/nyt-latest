@@ -1,3 +1,11 @@
+**NFLPA elects JC Tretter as executive director 8 months after he resigned from union**\
+`Tretter won a three-way election that included interim executive director David White and American Conference commissioner Tim Pernetti.`\
+https://nytimes.com/athletic/7111818/2026/03/17/nflpa-jc-tretter-executive-director-elected/
+
+**Manchester City 1 Real Madrid 2 (Agg: 1-5) – Vinicius Jr's double, where does this leave Pep?**\
+`Madrid made their first-leg advantage over City count as Vinicius Jr had the last laugh at the Etihad`\
+https://nytimes.com/athletic/7122002/2026/03/17/manchester-city-1-real-madrid-2-vinicius-junior-pep-guardiola/
+
 **Trump Says U.S. Doesn’t Need Help From U.S. Allies in Iran**\
 `Amid mounting criticism from other countries and his own administration, President Trump told reporters that the U.S. didn’t need help opening the Strait of Hormuz.`\
 https://nytimes.com/video/us/politics/100000010785651/trump-nato-iran-war.html
