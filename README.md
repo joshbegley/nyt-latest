@@ -1,3 +1,8 @@
+**‘It’s insane’: Inside the early days of the Washington Nationals’ tech revolution**\
+`The Nationals have a new front office, a new manager and tons of new technology they lacked under former GM Mike Rizzo.
+`\
+https://nytimes.com/athletic/7124468/2026/03/17/washington-nationals-technology-new-front-office/
+
 **Here’s the latest.**\
 `By Lisa Lerer`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-the-latest
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/7124166/2026/03/17/wbc-final-explainer-usa-venezuel
 **Colts depth chart: Glaring holes at linebacker, defensive end after start of free agency**\
 `Free agency continues and the draft looms, but if the Colts want to end their five-year playoff drought, they have a lot more work to do.`\
 https://nytimes.com/athletic/7123847/2026/03/17/colts-depth-chart-nfl-free-agency/
-
-**Hand cramps, hydration, history: Heat's official scorer on Adebayo's 83-point night**\
-`“To document everything, to do it by hand, it’s still important to do,” said Jamie Carrig, the Heat's scorekeeper.`\
-https://nytimes.com/athletic/7123510/2026/03/17/heat-bam-adebayo-official-scorekeeper/
 
