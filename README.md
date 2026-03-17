@@ -1,9 +1,13 @@
+**Oil Begins Flowing Through California Pipeline Under Trump Order**\
+`Oil had not flowed through the pipeline since a 2015 rupture caused an environmental disaster on California’s Central Coast. It sets up a new fight between the Trump administration and state officials.`\
+https://nytimes.com/2026/03/16/us/santa-barbara-oil-pipeline-trump.html
+
 **Here’s What Happened in the War in the Middle East on Monday**\
 `President Trump said he might postpone a trip to China to focus on the war. More than a million people have been displaced in Lebanon this month, according to the country’s health ministry.`\
 https://nytimes.com/2026/03/16/world/middleeast/iran-war-recap-lebanon-ground-invasion.html
 
 **In WBC championship between U.S. and Venezuela, which team has the edge?**\
-`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game.`\
+`After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game in Miami.`\
 https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-championship-united-states-venezuela-lineup-edge/
 
 **Venezuela topples Italy to clinch matchup in WBC final with Team USA**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/16/us/politics/university-of-florida-republicans-ant
 **Warriors' Steve Kerr becomes NBA's 28th coach to reach 600 regular-season wins**\
 `Kerr became just the 28th coach in league history to reach the 600-win mark, a win that came at an opportune time for the Warriors.`\
 https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
-
-**How Michael B. Jordan Won Best Actor**\
-`The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
-https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
 
