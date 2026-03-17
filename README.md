@@ -18,11 +18,11 @@ https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death.html
 `Analysis of Arsenal's Champions League last 16 victory over Bayer Leverkusen`\
 https://nytimes.com/athletic/7122000/2026/03/17/arsenal-2-bayer-leverkusen-0-eze-highlights/
 
-**Senegal declared to have forfeited AFCON 2025 final with Morocco crowned winners**\
+**Morocco crowned AFCON winners 57 days after final as Senegal victory annulled**\
 `CAF's statement on Tuesday, 57 days after January's final, said “all other motions or prayers for relief are dismissed”.`\
 https://nytimes.com/athletic/7126755/2026/03/17/afcon-morocco-senegal-final-overturned/
 
-**The Briefing: Chelsea 0 Paris Saint-Germain 3 – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
+**The Briefing: Chelsea 0 Paris Saint-Germain 3 (Agg: 8-2) – Shambolic start and Kvaratskhelia unplayable in Chelsea's humbling night**\
 `Any hope of Chelsea comeback was ended by a mixture of defensive incompetence and PSG brilliance`\
 https://nytimes.com/athletic/7122001/2026/03/17/chelsea-0-paris-saint-germain-3-briefing/
 
