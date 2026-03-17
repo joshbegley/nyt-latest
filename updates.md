@@ -1,3 +1,7 @@
+**Gotham FC, Washington Spirit set for first NWSL match in NYC at Citi Field**\
+`The historic match will mark a significant step for Gotham as they re-center themselves in the New York City market.`\
+https://nytimes.com/athletic/7125781/2026/03/17/gotham-fc-washington-spirit-citi-field-nwsl/
+
 **What I'm hearing about the Penguins' incredible march toward playoffs**\
 `The Penguins, the surprise of the NHL, might not be a one-year fluke. `\
 https://nytimes.com/athletic/7125717/2026/03/17/penguins-nhl-playoffs-standings-race/
