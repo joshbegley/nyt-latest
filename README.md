@@ -1,40 +1,40 @@
-**Memes, billboard ads and rocketing fandom: Why ‘Big Sister’ George Russell went viral in China**\
-`At the Chinese Grand Prix, it was clear that George Russell's popularity in China has surged. `\
-https://nytimes.com/athletic/7119540/2026/03/17/george-russell-viral-china-f1/
+**Trump Suggests ‘Taking’ Cuba as Island Deals With Blackout**\
+`The president said he believed he would have the “honor of taking Cuba” on Monday. His comments came as a nationwide blackout and an energy crisis cripple the island.`\
+https://nytimes.com/video/world/americas/100000010783511/cuba-blackout-trump-take.html
 
-**5 big risks the Patriots are taking this offseason: Alijah Vera-Tucker, A.J. Brown, more**\
-`The Patriots have made some moves this offseason that could pay off in a big way. But these gambles could also go the other way.`\
-https://nytimes.com/athletic/7123030/2026/03/17/patriots-offseason-risks-alijah-vera-tucker-aj-brown/
+**Another Tanker Is Attacked Near the Strait of Hormuz**\
+`The ship was struck near an Emirati port, in the first such attack in five days. The United Arab Emirates also said it was intercepting Iranian drones and missiles.`\
+https://nytimes.com/2026/03/17/world/middleeast/tanker-attack-iran-war-strait-hormuz-oil.html
 
-**Three words: Angel City saved the ‘best for last’ in emphatic NWSL home opener victory**\
-`The Los Angeles team showed a renewed energy with a dominant win against the Chicago Stars.`\
-https://nytimes.com/athletic/7123402/2026/03/17/angel-city-best-for-last-nwsl-opener/
+**Why Team USA has a rookie pitcher starting with a WBC title on the line**\
+`Nolan McLean is a still a rookie, but Team USA is putting their trust in his electric fastball and poise in the WBC final.`\
+https://nytimes.com/athletic/7123241/2026/03/17/nolan-mclean-world-baseball-classic-finale-mets/
 
-**A.I. Is Coming for Politics**\
-`How ready are we?`\
-https://nytimes.com/2026/03/17/opinion/ai-economy-trump-future.html
+**Why robo-umps have made 5-foot-6 Jose Altuve and 6-foot-7 Aaron Judge coursework for MLB catchers**\
+`Some thought robo-umps would kill pitch framing. Instead, catchers are making it a weapon, learning each hitter's zone to use against them.`\
+https://nytimes.com/athletic/7122786/2026/03/17/mlb-catchers-strike-zone-umpire-judge-altuve/
 
-**Admiral’s Comments Undercut Pentagon’s Cluster Munition Policy**\
-`The first Trump administration defended cluster munitions as “legitimate,” but on Monday, Adm. Brad Cooper condemned them as “inherently indiscriminate.”`\
-https://nytimes.com/2026/03/17/us/politics/cluster-munitions-iran.html
+**Browns QB tracker: Shedeur Sanders appears to be early leader to win starting job**\
+`After one week of free agency and no additions to the QB room, Sanders may have a runway to begin the 2026 season as Cleveland's starter.`\
+https://nytimes.com/athletic/7123750/2026/03/17/browns-shedeur-sanders-2026-starting-quarterback/
 
-**March Has Always Been a Month of Weather Extremes. But This Is Ridiculous.**\
-`Snow, tornadoes, record-breaking heat, a dust storm — and that’s just last weekend. Here’s how to understand what’s going on, and the role climate change is playing in all of it.`\
-https://nytimes.com/2026/03/17/weather/weird-weather-march-heat-snow-tornado.html
+**WBC final explainer: Determined Venezuela looks to play spoiler for Dream Team USA**\
+`There’s never been this much American buzz around a World Baseball Classic. Could Team Venezuela put an end to the WBC Dream Team's run?`\
+https://nytimes.com/athletic/7124166/2026/03/17/wbc-final-explainer-usa-venezuela/
 
-**In the Oscars Audience, Stars Caught Their Breath**\
-`Our photographer captured unguarded moments with Michael B. Jordan, Paul Thomas Anderson, Gwyneth Paltrow and other celebrities in the crowd.`\
-https://nytimes.com/2026/03/17/movies/oscars-audience-michael-b-jordan-paul-thomas-anderson.html
+**Colts depth chart: Glaring holes at linebacker, defensive end after start of free agency**\
+`Free agency continues and the draft looms, but if the Colts want to end their five-year playoff drought, they have a lot more work to do.`\
+https://nytimes.com/athletic/7123847/2026/03/17/colts-depth-chart-nfl-free-agency/
 
-**Senate to Take Up Voter Bill Sought by Trump but Opposed by Democrats**\
-`The Republican leader said he couldn’t overcome a filibuster but, under relentless pressure from the president and the far right, would put Democrats on the record against the restrictive voter I.D. bill.`\
-https://nytimes.com/2026/03/17/us/politics/senate-voter-bill-filibuster.html
+**Hand cramps, hydration, history: Heat's official scorer on Adebayo's 83-point night**\
+`“To document everything, to do it by hand, it’s still important to do,” said Jamie Carrig, the Heat's scorekeeper.`\
+https://nytimes.com/athletic/7123510/2026/03/17/heat-bam-adebayo-official-scorekeeper/
 
-**Trump Administration to Music Fans: Just Kidding About Coming to Save You**\
-`The Justice Department’s Live Nation settlement took everyone by surprise, even its lead counsel.`\
-https://nytimes.com/2026/03/17/opinion/trump-administration-music-fans-kid-rock.html
+**Ranking 2.0 for the top 2026 MLB starting fantasy pitchers with Stuff+ powered projections**\
+`It's the last week-plus for fantasy teams to draft their squads. These updated starting pitching ranks could help those last-minute drafts.`\
+https://nytimes.com/athletic/7123481/2026/03/17/mlb-starting-pitcher-rankings-2026-fantasy-baseball-updated/
 
-**The Prospect Park Rose Garden Is Being Reimagined**\
-`The garden, in the Vale, hasn’t had roses for decades. Now it will become a pollinator garden as part of a $37.5 million restoration project.`\
-https://nytimes.com/2026/03/17/nyregion/prospect-park-rose-garden-vale.html
+**NFL free agency 2026 winners and losers: Ravens' value play; Raiders left hanging**\
+`The Ravens may have gotten a bad rap for canceling the Maxx Crosby trade, but won in terms of adding a pass rusher and keeping draft picks.`\
+https://nytimes.com/athletic/7116434/2026/03/17/nfl-free-agency-2026-winners-loses-ravens-raiders/
 
