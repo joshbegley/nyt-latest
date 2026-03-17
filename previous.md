@@ -1,3 +1,7 @@
+**Health Groups Hailed a Vaccine Ruling, but Their Relief May Be Short-Lived**\
+`Lawyers for both sides in the federal lawsuit, brought by six medical organizations, are trying to understand the ramifications of the judge’s decision.`\
+https://nytimes.com/2026/03/17/health/rfk-jr-vaccine-policy-lawsuit-court-ruling.html
+
 **Miami Cubans Fear Trump Won’t Go Far Enough: ‘The Castros Have to Go’**\
 `Many Cubans in Florida have sought regime change for decades. They fear that President Trump’s talks with Cuba will not lead to wholesale political transformation.`\
 https://nytimes.com/2026/03/17/us/politics/florida-cuba-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/democratic-house-primaries-illinois-
 **Ex-Sheriff’s Deputy in Cryptocurrency Extortion Plot Sentenced to 5 Years**\
 `The former deputy with the Los Angeles County Sheriff’s Department pleaded guilty last year to conspiracy charges for his role in the scheme, according to federal prosecutors.`\
 https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencing.html
-
-**The Iran War Is Pushing Some Countries to Cut Back On Energy Use**\
-`As the conflict enters its third week, some nations are trying to reduce energy use, including a mandatory energy holiday in Sri Lanka.`\
-https://nytimes.com/2026/03/17/climate/iran-war-energy-use.html
 
