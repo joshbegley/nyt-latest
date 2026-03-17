@@ -1,3 +1,11 @@
+**Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
+`Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
+https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
+
+**Utah Mother Found Guilty of Poisoning Husband**\
+`Kouri Richins was accused of mixing a lethal dose of fentanyl into a drink she made for her husband. She later wrote a children’s book about coping with grief.`\
+https://nytimes.com/2026/03/16/us/kouri-richins-murder-verdict.html
+
 **Boston Fleet acquire Jessie Eldridge from Seattle Torrent in exchange for Theresa Schafzal**\
 `“This trade was about what we believe is the best fit for our team and the identity we’re trying to build," said Seattle GM Meghan Turner.`\
 https://nytimes.com/athletic/7124300/2026/03/16/boston-fleet-trade-theresa-schafzal-jessie-eldridge-seattle-torrent/
