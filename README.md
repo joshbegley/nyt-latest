@@ -1,3 +1,7 @@
+**Here’s What Happened in the War in the Middle East on Monday**\
+`President Trump said he might postpone a trip to China to focus on the war. More than a million people have been displaced in Lebanon this month, according to the country’s health ministry.`\
+https://nytimes.com/2026/03/16/world/middleeast/iran-war-recap-lebanon-ground-invasion.html
+
 **In WBC championship between U.S. and Venezuela, which team has the edge?**\
 `After two weeks of nail-biting baseball, the World Baseball Classic will come to an end with Tuesday's championship game. `\
 https://nytimes.com/athletic/7123912/2026/03/16/world-baseball-classic-championship-united-states-venezuela-lineup-edge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124383/2026/03/16/steve-kerr-600-win-warriors/
 **How Michael B. Jordan Won Best Actor**\
 `The “Sinners” star became the consensus pick as voters soured on Timothée Chalamet, the “Marty Supreme” lead. It helped that the winner is a bankable performer.`\
 https://nytimes.com/2026/03/16/movies/oscars-michael-b-jordan-timothee-chalamet.html
-
-**Jimmy Butler on rejoining Warriors, start of ACL rehab: 'I'm trying to get back out there'**\
-`Butler, who was acquired from the Heat last year, said it has been "tough," being away from the Warriors since being injured.`\
-https://nytimes.com/athletic/7124194/2026/03/16/jimmy-butler-acl-surgery-update-warriors/
 
