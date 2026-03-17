@@ -1,3 +1,7 @@
+**When does your state vote? Here’s the 2026 primary calendar.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-does-your-state-vote-heres-the-2026-primary-calendar
+
 **Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
 `"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
 https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/

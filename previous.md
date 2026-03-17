@@ -1,3 +1,7 @@
+**When does your state vote? Here’s the 2026 primary calendar.**\
+`By The New York Times`\
+https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-does-your-state-vote-heres-the-2026-primary-calendar
+
 **Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
 `"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
 https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7123312/2026/03/17/anton-frondell-blackhawks-prospe
 **Should the Cubs be concerned about Jameson Taillon's spring training?**\
 `"We got (two) more starts left to get this turned around. That's kind of where we're at ... I'm confident Jame-o will," Craig Counsell said.`\
 https://nytimes.com/athletic/7124496/2026/03/17/cubs-jameson-taillon-spring-training-concern/
-
-**Mixed results for two key Flyers who recently changed positions**\
-`Trevor Zegras and Matvei Michkov have played their preferred positions since the trade deadline. Early returns show a work in progress.`\
-https://nytimes.com/athletic/7123948/2026/03/17/flyers-trevor-zegras-matvei-michkov-positions-faceoffs/
 
