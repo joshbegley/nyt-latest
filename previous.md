@@ -1,3 +1,7 @@
+**Jimmy Kimmel Says the ‘Only War Trump Had an Exit Plan for Was Vietnam’**\
+`The host made the remark about Donald Trump avoiding the draft after the president said he would end the war in Iran when he “feels it in his bones.”`\
+https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
+
 **Word of the Day: adverse**\
 `This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/7119602/2026/03/17/manchester-city-style-guardiola/
 https://nytimes.com/athletic/7123676/2026/03/17/max-dowman-england-world-cup/
 
 **War in the Gulf Is Now Churning the U.S.-China Relationship**\
-`With the Xi-Trump summit now almost certainly delayed, and tensions rising over the war in Iran, vital issues for both the U.S. and China are also being cast into uncertainty.`\
+`With the Xi-Trump summit almost certainly delayed, and tensions rising over the war in Iran, vital issues for both the U.S. and China are also being cast into uncertainty.`\
 https://nytimes.com/2026/03/17/world/asia/iran-war-china-us-trump-xi.html
 
 **Chelsea's Premier League punishment should temper rose-tinted view of Abramovich era**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7120555/2026/03/17/england-2026-world-cup-squad/
 **Anfield's faith in Liverpool and Slot is eroding. The season is at a tipping point**\
 `Fans' support for their team has never been unconditional and patience has been stretched to breaking point by a poor campaign`\
 https://nytimes.com/athletic/7112667/2026/03/17/liverpool-anfield-fans-arne-slot/
-
-**Who is the most underrated player in world football?**\
-`Real Madrid's Trent Alexander-Arnold suggested Federico Valverde was the most underrated player in the game. Is he right?`\
-https://nytimes.com/athletic/7122686/2026/03/17/most-underrated-player-world-football-analysis/
 

@@ -1,3 +1,11 @@
+**Jimmy Kimmel Says the ‘Only War Trump Had an Exit Plan for Was Vietnam’**\
+`The host made the remark about Donald Trump avoiding the draft after the president said he would end the war in Iran when he “feels it in his bones.”`\
+https://nytimes.com/2026/03/17/arts/television/jimmy-kimmel-trump-mideast-war-strait.html
+
+**War in the Gulf Is Now Churning the U.S.-China Relationship**\
+`With the Xi-Trump summit almost certainly delayed, and tensions rising over the war in Iran, vital issues for both the U.S. and China are also being cast into uncertainty.`\
+https://nytimes.com/2026/03/17/world/asia/iran-war-china-us-trump-xi.html
+
 **Word of the Day: adverse**\
 `This word has appeared in 391 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/17/learning/word-of-the-day-adverse.html
