@@ -1,3 +1,7 @@
+**Memes, billboard ads and rocketing fandom: Why ‘Big Sister’ George Russell went viral in China**\
+`At the Chinese Grand Prix, it was clear that George Russell's popularity in China has surged. `\
+https://nytimes.com/athletic/7119540/2026/03/17/george-russell-viral-china-f1/
+
 **5 big risks the Patriots are taking this offseason: Alijah Vera-Tucker, A.J. Brown, more**\
 `The Patriots have made some moves this offseason that could pay off in a big way. But these gambles could also go the other way.`\
 https://nytimes.com/athletic/7123030/2026/03/17/patriots-offseason-risks-alijah-vera-tucker-aj-brown/

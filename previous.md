@@ -1,3 +1,7 @@
+**Memes, billboard ads and rocketing fandom: Why ‘Big Sister’ George Russell went viral in China**\
+`At the Chinese Grand Prix, it was clear that George Russell's popularity in China has surged. `\
+https://nytimes.com/athletic/7119540/2026/03/17/george-russell-viral-china-f1/
+
 **5 big risks the Patriots are taking this offseason: Alijah Vera-Tucker, A.J. Brown, more**\
 `The Patriots have made some moves this offseason that could pay off in a big way. But these gambles could also go the other way.`\
 https://nytimes.com/athletic/7123030/2026/03/17/patriots-offseason-risks-alijah-vera-tucker-aj-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/opinion/trump-administration-music-fans-kid-rock.
 **The Prospect Park Rose Garden Is Being Reimagined**\
 `The garden, in the Vale, hasn’t had roses for decades. Now it will become a pollinator garden as part of a $37.5 million restoration project.`\
 https://nytimes.com/2026/03/17/nyregion/prospect-park-rose-garden-vale.html
-
-**As Carney Travels the Globe for New Alliances, He Looks Away on Human Rights**\
-`Canada’s prime minister chooses pragmatism in a turbulent world, which means doing business with countries that do not share Canada’s democratic values. Some critics see this as weakness.`\
-https://nytimes.com/2026/03/17/world/canada/canada-carney-alliances-human-rights.html
 
