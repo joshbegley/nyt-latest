@@ -1,3 +1,15 @@
+**What I'm hearing about the Penguins incredible march toward playoffs**\
+`The Penguins, the surprise of the NHL, might not be a one-year fluke. `\
+https://nytimes.com/athletic/7125717/2026/03/17/penguins-nhl-playoffs-standings-race/
+
+**Pochettino: Top teen Banks 'very clear' he's undecided between USA, Germany**\
+`The Hawaii-born teenager is eligible to play for both the U.S. and Germany and won't be swayed with a World Cup approaching`\
+https://nytimes.com/athletic/7125734/2026/03/17/noahkai-banks-usmnt-germany-mauricio-pochettino-world-cup/
+
+**Trump Says U.S. Does Not ‘Need or Desire’ Help From Allies on Iran**\
+`President Trump has faced mounting criticism over the U.S.-Israeli assault on Iran from allies and even members of his own administration.`\
+https://nytimes.com/2026/03/17/us/politics/trump-nato-iran-strait-of-hormuz.html
+
 **Jaylen Waddle trade grades: Has Dolphins' teardown gone too far?**\
 `On the other side, the Broncos get a needed complement to Courtland Sutton.`\
 https://nytimes.com/athletic/7125582/2026/03/17/jaylen-waddle-broncos-dolphins-trade-grades/
