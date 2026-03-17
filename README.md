@@ -1,3 +1,7 @@
+**Did ‘KPop Demon Hunters’ ... Get Robbed?**\
+`Wesley Morris talks about the big Oscars wins for “KPop Demon Hunters” and asks: Should it have been nominated in even more categories?`\
+https://nytimes.com/video/podcasts/100000010784953/did-kpop-demon-hunters-get-robbed.html
+
 **Here’s how The Times reports live election results and calls races.**\
 `By The New York Times`\
 https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/heres-how-the-times-reports-live-election-results-and-calls-races
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/17/us/politics/kharg-island-iran-trump-risks.html
 `Mr. Larijani, the top national security official and a confidante of the former supreme leader, expertly navigated Iran’s internal politics and led the brutal crackdown on protests this year.`\
 https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death.html
 
-**Arsenal 2 Bayer Leverkusen 0 (3-1 agg) - Was Eze's one of this season's best Champions League goals? What next?**\
+**The Briefing: Arsenal 2 Bayer Leverkusen 0 (Agg: 3-1) – Was Eze's one of this season's best Champions League goals? What next?**\
 `Analysis of Arsenal's Champions League last 16 victory over Bayer Leverkusen`\
 https://nytimes.com/athletic/7122000/2026/03/17/arsenal-2-bayer-leverkusen-0-eze-highlights/
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/03/17/us/politics/homeland-security-funding
 **White House Offers Narrow Immigration Enforcement Changes As Talks Drag On**\
 `Administration officials have put forth several proposals to answer Democratic demands for major changes in President Trump’s crackdown in exchange for reopening the Department of Homeland Security.`\
 https://nytimes.com/2026/03/17/us/politics/trump-immigration-dhs-shutdown.html
-
-**Iran’s Leadership Suffers a Double Blow**\
-`Also, the Senate begins a bitter debate about voting rules. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2026/03/17/briefing/irans-leadership-suffers-a-double-blow.html
 
