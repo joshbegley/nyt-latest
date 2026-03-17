@@ -1,3 +1,7 @@
+**A Hard-Knock Life: A Trump Cabinet Hopeful Is Moved Offstage**\
+`Richard Grenell once hoped to be President Trump’s secretary of state. Instead, Mr. Trump just replaced him as Kennedy Center president.`\
+https://nytimes.com/2026/03/16/us/politics/grenell-kennedy-center.html
+
 **Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
 `Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
 https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire
 **Aide Accused by Hegseth of Leaking Is Hired for Intelligence Job**\
 `Dan Caldwell will serve as an adviser to senior intelligence officials. His hiring signals the end of a high-profile investigation.`\
 https://nytimes.com/2026/03/16/us/politics/dan-caldwell-pentagon-dni.html
-
-**Administration Targeted Climate Lab in Effort to Free Trump Ally, Lawsuit Claims**\
-`The complaint says efforts to dismantle an atmospheric research center are part of a broader political campaign that endangers climate and weather studies.`\
-https://nytimes.com/2026/03/16/climate/ncar-climate-lab-lawsuit-trump.html
 

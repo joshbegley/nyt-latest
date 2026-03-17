@@ -1,3 +1,7 @@
+**Academy Awards Q&A with Steve Kerr after Oscars win: 'It was pretty cool'**\
+`Kerr, who served as an executive producer on the short film, "All the Empty Rooms," spoke with pride and passion before Monday's game.`\
+https://nytimes.com/athletic/7123949/2026/03/16/steve-kerr-oscars-reaction-thoughts-warriors/
+
 **Fast-Moving Fire in Queens Kills 4, Including a Child**\
 `Fierce winds fueled a blaze in a mixed-use building on Monday, killing four people and injuring 12 others, officials said.`\
 https://nytimes.com/video/nyregion/100000010783112/flushing-queens-building-fire.html
