@@ -1,3 +1,7 @@
+**How to watch 76ers vs. Nuggets: Time, TV, streaming**\
+`Find out how to watch the Philadelphia 76ers play the Denver Nuggets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126167/2026/03/17/76ers-vs-nuggets-stream-how-to-watch-march-17/
+
 **Gotham FC, Washington Spirit set for first NWSL match in NYC at Citi Field**\
 `The historic match will mark a significant step for Gotham as they re-center themselves in the New York City market.`\
 https://nytimes.com/athletic/7125781/2026/03/17/gotham-fc-washington-spirit-citi-field-nwsl/

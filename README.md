@@ -1,3 +1,15 @@
+**Leon Draisaitl out for 2025-26 season with lower-body injury**\
+`Draisaitl left during the first period of Sunday’s 3-1 win over the Predators after a hit by Ozzy Wiesblatt.`\
+https://nytimes.com/athletic/7126144/2026/03/17/leon-draisaitl-injury-out-oilers-nhl-season/
+
+**Donald Trump's reaction to Venezuela's WBC success: 'STATEHOOD, #51, ANYONE?'**\
+`Political questions have followed the Venezuelan national team throughout the tournament, including in the lead-up to Monday’s semifinal.`\
+https://nytimes.com/athletic/7125943/2026/03/17/donald-trump-venezuela-world-baseball-classic/
+
+**How to watch Spurs vs. Kings: Time, TV, streaming**\
+`Find out how to watch the San Antonio Spurs play the Sacramento Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7126180/2026/03/17/spurs-vs-kings-stream-how-to-watch-march-17/
+
 **How to watch 76ers vs. Nuggets: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Denver Nuggets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7126167/2026/03/17/76ers-vs-nuggets-stream-how-to-watch-march-17/
@@ -21,12 +33,4 @@ https://nytimes.com/2026/03/17/world/europe/antisemitism-netherlands-amsterdam-r
 **What I'm hearing about the Penguins' incredible march toward playoffs**\
 `The Penguins, the surprise of the NHL, might not be a one-year fluke. `\
 https://nytimes.com/athletic/7125717/2026/03/17/penguins-nhl-playoffs-standings-race/
-
-**Pochettino: Top teen Banks 'very clear' he's undecided between USA, Germany**\
-`The Hawaii-born teenager is eligible to play for both the U.S. and Germany and won't be swayed with a World Cup approaching`\
-https://nytimes.com/athletic/7125734/2026/03/17/noahkai-banks-usmnt-germany-mauricio-pochettino-world-cup/
-
-**Trump Says U.S. Does Not ‘Need or Desire’ Help From Allies on Iran**\
-`President Trump has faced mounting criticism over the U.S.-Israeli assault on Iran from allies and even members of his own administration.`\
-https://nytimes.com/2026/03/17/us/politics/trump-nato-iran-strait-of-hormuz.html
 
