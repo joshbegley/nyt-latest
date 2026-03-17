@@ -1,3 +1,7 @@
+**'It’s just an addiction' – Travelling with Manchester United's Irish supporters**\
+`For many Irish Manchester United fans, following the team home and away is a way of life`\
+https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporters/
+
 **Why Do Men Buy Shoes That Are Too Big?**\
 `It’s an affliction — and not one relegated to the Trump administration.`\
 https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html

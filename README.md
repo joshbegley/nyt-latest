@@ -1,3 +1,7 @@
+**In Illinois, AIPAC Becomes a Major Issue in Democratic House Races**\
+`Several groups with ties to the pro-Israel group have spent at least $20 million in four primaries backing candidates who are likely to support their cause in Washington.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-primary-election-aipac-israel.html
+
 **Why Do Men Buy Shoes That Are Too Big?**\
 `It’s an affliction — and not one relegated to the Trump administration.`\
 https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7124077/2026/03/17/dodgers-mookie-betts-bat-speed/
 **African Mean Girls? Fresh Take on Teen Cliques Is Broadway Bound.**\
 `“School Girls; Or, The African Mean Girls Play,” written by Jocelyn Bioh and directed by Whitney White, will start performances in September.`\
 https://nytimes.com/2026/03/17/theater/school-girls-bioh-broadway.html
-
-**Who should Slot pick in Liverpool's biggest game of the season?**\
-`Our writers pick their XIs for the visit of the Turkish champions, which could define the Merseysiders' campaign`\
-https://nytimes.com/athletic/7123119/2026/03/17/liverpool-galatasaray-predictions-team/
 
