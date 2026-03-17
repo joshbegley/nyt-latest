@@ -1,3 +1,19 @@
+**Read Joe Kent’s Resignation Letter**\
+`Joe Kent, the director of the National Counterterrorism Center, announced on Tuesday that he would resign immediately, citing his opposition to the Iran war.`\
+https://nytimes.com/interactive/2026/03/17/us/joe-kent-resignation-letter-iran.html
+
+**The Bounce: The NBA's baby steps toward expanding to Seattle and Las Vegas**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7125180/2026/03/17/nba-expansion-seattle-las-vegas-the-bounce/
+
+**Map: Small Earthquake Shakes Northern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2026/03/17/us/quake-tracker-northern-california.html
+
+**Spain and Argentina's Qatar Finalissima was cancelled. Why couldn't Messi vs Yamal be moved?**\
+`One of football’s most lucrative and high-profile contests ended up collapsing in a cloud of acrimony this week. What happened?`\
+https://nytimes.com/athletic/7125028/2026/03/17/messi-yamal-spain-argentina-finalissima/
+
 **Trump’s Gutting of Election Security Fuels Worries for Midterms**\
 `Officials say the crippling of the Cybersecurity and Infrastructure Security Agency, which the president himself created, could open elections to cyberattacks and foreign influence.`\
 https://nytimes.com/2026/03/17/us/politics/trump-cisa-election-security.html
