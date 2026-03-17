@@ -1,3 +1,7 @@
+**A Posthumous Endorsement From Jesse Jackson Was Not Final, His Son Says**\
+`Days after Lt. Gov. Juliana Stratton said the late civil rights leader had supported her campaign, one of his sons said the elder Mr. Jackson had not made a final choice.`\
+https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html
+
 **'A horse': John Carlson gives the Ducks everything they hoped to see**\
 `Carlson played in all situations in his debut and showed why Anaheim valued him before the trade deadline.`\
 https://nytimes.com/athletic/7124351/2026/03/17/john-carlson-anaheim-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/style/john-galliano-zara.html
 **'It’s just an addiction' – Travelling with Manchester United's Irish supporters**\
 `For many Irish Manchester United fans, following the team home and away is a way of life`\
 https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporters/
-
-**The 12 men's basketball teams with the best chance of winning their first championship**\
-`With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
-https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
 
