@@ -1,3 +1,7 @@
+**Everyone Deserves a Teeny Turner**\
+`My family treasures this tiny but mighty precision screwdriver. Surprisingly useful, it makes a delightful gift for new homeowners and new parents alike.`\
+https://nytimes.com/wirecutter/reviews/teeny-turner-review/
+
 **USA closer Mason Miller available for World Baseball Classic final**\
 `Should he pitch Tuesday, it would mark three appearances in five days — a significant workload considering the calendar and the intensity.`\
 https://nytimes.com/athletic/7125207/2026/03/17/usa-closer-mason-miller-available-for-world-baseball-classic-final/
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/17/arts/design/banksy-identity-robin-gunningham-davi
 **Submit your questions for Michael-Shawn Dugar's mailbag**\
 `With the first wave of NFL free agency past, what's on your mind, Seahawks fans? Michael-Shawn Dugar is here to answer your questions.`\
 https://nytimes.com/athletic/7126284/2026/03/17/seahawks-mailbag-free-agency-questions/
-
-**Anthony Edwards to miss time with injury, threatening Wolves' playoff seeding**\
-`Edwards will be re-evaluated in 1-2 weeks, the team announced, which could also threaten his all-NBA eligibility. `\
-https://nytimes.com/athletic/7126261/2026/03/17/anthony-edwards-injury-update-status-timberwolves-nba/
 
