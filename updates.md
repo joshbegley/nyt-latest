@@ -1,3 +1,7 @@
+**Israel’s Killing of Ali Larijani Could Allow Military to Tighten Grip on Iran**\
+`As Iran’s top national security official, Mr. Larijani had a reputation for acting as a bridge between hard-line figures in the armed forces and more moderate political factions.`\
+https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death-iran-military-control-israel.html
+
 **A Posthumous Endorsement From Jesse Jackson Was Not Final, His Son Says**\
 `Days after Lt. Gov. Juliana Stratton said the late civil rights leader had supported her campaign, one of his sons said the elder Mr. Jackson had not made a final choice.`\
 https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html

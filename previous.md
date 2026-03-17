@@ -1,3 +1,7 @@
+**Israel’s Killing of Ali Larijani Could Allow Military to Tighten Grip on Iran**\
+`As Iran’s top national security official, Mr. Larijani had a reputation for acting as a bridge between hard-line figures in the armed forces and more moderate political factions.`\
+https://nytimes.com/2026/03/17/world/middleeast/ali-larijani-death-iran-military-control-israel.html
+
 **A Posthumous Endorsement From Jesse Jackson Was Not Final, His Son Says**\
 `Days after Lt. Gov. Juliana Stratton said the late civil rights leader had supported her campaign, one of his sons said the elder Mr. Jackson had not made a final choice.`\
 https://nytimes.com/2026/03/17/us/elections/jackson-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/17/us/trump-news
 **John Galliano Returns to Fashion — and This Time, You Can Afford Him**\
 `The designer is embarking on a partnership with Zara.`\
 https://nytimes.com/2026/03/17/style/john-galliano-zara.html
-
-**'It’s just an addiction' – Travelling with Manchester United's Irish supporters**\
-`For many Irish Manchester United fans, following the team home and away is a way of life`\
-https://nytimes.com/athletic/7124794/2026/03/17/manchester-united-irish-supporters/
 
