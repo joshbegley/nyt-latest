@@ -1,3 +1,15 @@
+**Why Do Men Buy Shoes That Are Too Big?**\
+`It’s an affliction — and not one relegated to the Trump administration.`\
+https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html
+
+**Trump Administration Live Updates: Senate to Open Debate on Bill to Stiffen Voting Rules**\
+``\
+https://nytimes.com/live/2026/03/17/us/trump-news
+
+**John Galliano Returns to Fashion — and This Time, You Can Afford Him**\
+`The designer is embarking on a partnership with Zara.`\
+https://nytimes.com/2026/03/17/style/john-galliano-zara.html
+
 **The 12 men's basketball teams with the best chance of winning their first championship**\
 `With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
 https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7123119/2026/03/17/liverpool-galatasaray-prediction
 **Iran’s Hormuz Stranglehold Upends Markets and Geopolitics**\
 `Energy prices continued to climb around the world as war in the Middle East intensifies. That has scrambled President Trump’s foreign policy strategy.`\
 https://nytimes.com/2026/03/17/business/dealbook/iran-hormuz-markets-geopolitics.html
-
-**At Least 23 Killed in Nigeria as Insurgent Attacks Go On Despite U.S. Help**\
-`A teaching hospital and two markets in the city of Maiduguri were hit in what a military spokesman said were suicide bombings by Boko Haram.`\
-https://nytimes.com/2026/03/17/world/africa/nigeria-suicide-bombings-maiduguri.html
-
-**When does your state vote? Here’s the 2026 primary calendar.**\
-`By The New York Times`\
-https://nytimes.com/live/2026/03/17/us/illinois-election-primary-midterms/when-does-your-state-vote-heres-the-2026-primary-calendar
-
-**Kevin Durant, shut down by Lakers' double teams, takes blame for Rockets' loss**\
-`"It's on me," Durant said after Houston's 100-92 loss on Monday. "I'm the offense."`\
-https://nytimes.com/athletic/7124882/2026/03/17/kevin-durant-rockets-loss-lakers/
 

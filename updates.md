@@ -1,3 +1,15 @@
+**Why Do Men Buy Shoes That Are Too Big?**\
+`It’s an affliction — and not one relegated to the Trump administration.`\
+https://nytimes.com/2026/03/17/style/men-big-shoes-trump-administration.html
+
+**Trump Administration Live Updates: Senate to Open Debate on Bill to Stiffen Voting Rules**\
+``\
+https://nytimes.com/live/2026/03/17/us/trump-news
+
+**John Galliano Returns to Fashion — and This Time, You Can Afford Him**\
+`The designer is embarking on a partnership with Zara.`\
+https://nytimes.com/2026/03/17/style/john-galliano-zara.html
+
 **The 12 men's basketball teams with the best chance of winning their first championship**\
 `With brackets unveiled, we're taking a look at the most promising potential first-time champs.`\
 https://nytimes.com/athletic/7105478/2026/03/17/march-madness-national-championship-houston-illinois-purdue-gonzaga/
