@@ -1,3 +1,11 @@
+**Israel Keeps Killing Key Iranian Leaders. Will It Work?**\
+`Israeli officials trumpeted airstrikes that killed Iran’s de facto leader and the commanders of a militia notorious for violently suppressing protests. But “decapitation has its limits,” an analyst warns.`\
+https://nytimes.com/2026/03/17/world/middleeast/israel-iran-leader-deaths.html
+
+**Israel, Generational Divide Animate Democratic House Primaries in Illinois**\
+`Crowded Democratic fields will determine the power of pro-Israel lobbying dollars and how eager voters are for a new crop of leaders.`\
+https://nytimes.com/2026/03/17/us/elections/democratic-house-primaries-illinois-elections.html
+
 **Ex-Sheriff’s Deputy in Cryptocurrency Extortion Plot Sentenced to 5 Years**\
 `The former deputy with the Los Angeles County Sheriff’s Department pleaded guilty last year to conspiracy charges for his role in the scheme, according to federal prosecutors.`\
 https://nytimes.com/2026/03/17/us/los-angeles-sheriff-deputy-extortion-sentencing.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/100000010784787/meteor-ohio-nasa.html
 **U.N. Says Attacks on Iran Set to Drive Hunger to Record Levels**\
 `Tens of millions more people around the world could face acute hunger as the war in the Middle East continues to disrupt shipping and drive up oil prices.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-strikes-hunger-record-levels.html
-
-**How to watch Sabres vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Buffalo Sabres play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126263/2026/03/17/sabres-vs-golden-knights-stream-how-to-watch-march-17/
-
-**How to watch Lightning vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7126254/2026/03/17/lightning-vs-kraken-stream-how-to-watch-march-17/
 
