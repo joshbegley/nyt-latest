@@ -1,3 +1,11 @@
+**How to watch Texas vs. NC State men's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125972/2026/03/17/texas-vs-nc-state-stream-how-to-watch-march-17-2/
+
+**How to watch Texas vs. NC State men's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the NC State Wolfpack, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7125969/2026/03/17/texas-vs-nc-state-stream-how-to-watch-march-17/
+
 **Pennsylvania State House Special Election Results**\
 `Get live results and maps from the March 17, 2026 Pennsylvania special elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-pennsylvania-state-house-specials.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-9-pr
 **Illinois Second Congressional District Primary Election Results**\
 `Get live results and maps from the 2026 Illinois primary elections.`\
 https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-2-primary.html
-
-**Illinois First Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Illinois primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-1-primary.html
-
-**Illinois Third Congressional District Primary Election Results**\
-`Get live results and maps from the 2026 Illinois primary elections.`\
-https://nytimes.com/interactive/2026/us/elections/results-illinois-us-house-3-primary.html
 
