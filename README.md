@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘The Shadow of Your Smile’ and More**\
+`Text by Reis Thebault`\
+https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
+
 **New Broncos WR Jaylen Waddle arrives eager to aid title pursuit 'in every fashion'**\
 `The blockbuster deal Denver struck for the accomplished wide receiver became official Wednesday.`\
 https://nytimes.com/athletic/7129353/2026/03/18/jaylen-waddle-broncos-trade-receiver/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/iran-leadership-larijani-israel-beirut.html
 **How the Giants could draw inspiration from Team Venezuela's win**\
 `There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
 https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
-
-**Palestinian Man Recounts Brutal Sexual Assault by Israeli Settlers**\
-`The man said his attackers stripped him naked, beat him and zip-tied his genitalia, an account corroborated by family members and a rights activist who were also beaten.`\
-https://nytimes.com/2026/03/18/world/middleeast/west-bank-sexual-assault-israel-settlers.html
 
