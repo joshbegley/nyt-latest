@@ -1,40 +1,40 @@
-**Xavi Espart is Barcelona's new La Masia star, compared to Philipp Lahm by Hansi Flick**\
-`The 18-year-old right-back made his Barca debut in last week's Champions League trip to Newcastle`\
-https://nytimes.com/athletic/7127680/2026/03/18/barcelona-la-masia-espart-flick-lahm/
+**Kent Hughes on Canadiens' roller coaster, his mystery target at the deadline, more**\
+`The Canadiens general manager says his inactivity at the trade deadline "wasn’t for a lack of trying."`\
+https://nytimes.com/athletic/7126079/2026/03/18/kent-hughes-canadiens-trade-deadline/
 
-**Here’s the latest.**\
-`By Lisa Lerer`\
-https://nytimes.com/live/2026/03/18/us/illinois-election-primary-midterms/heres-the-latest
+**Bills post-free-agency roster needs: Which positions could still use some help?**\
+`The Bills' priorities will now shift after they picked up a few pieces in free agency.`\
+https://nytimes.com/athletic/7125704/2026/03/18/bills-free-agency-roster-needs/
 
-**Election Live Updates: Stratton Calls to ‘Abolish ICE’ After Illinois Primary Win**\
-`Lt. Gov. Juliana Stratton, heavily favored to succeed Senator Richard J. Durbin, heads a group of Democrats in deep-blue Illinois aiming to take over for party mainstays.`\
-https://nytimes.com/live/2026/03/18/us/illinois-election-primary-midterms
+**Cameron Young just won The Players. A simple mental shift helped make it happen**\
+`Talent was never the issue for Young. It was where his mind drifted when things didn’t go according to plan. He's worked to change that.`\
+https://nytimes.com/athletic/7127018/2026/03/18/cameron-young-players-mental-skill/
 
-**What's next for the WNBA after reaching a historic CBA deal?**\
-`Now that a deal is made, the WNBA must harness momentum and stick to a rapid schedule.`\
-https://nytimes.com/athletic/7126514/2026/03/18/whats-next-wnba-cba-deal/
+**How Bo Groulx became a late-season surprise for the Maple Leafs**\
+`Groulx has become a story in Toronto, raising questions about his future with the organization and the role of the Marlies with the Leafs.`\
+https://nytimes.com/athletic/7125825/2026/03/18/maple-leafs-bo-groulx-season-nhl-marlies/
 
-**Colts mailbag: Where will they find an impact edge rusher? Should they sign a veteran QB?**\
-`When will the Colts move Anthony Richardson Sr.? What are newcomer Colby Wooden's strengths? Where's the "urgency"? `\
-https://nytimes.com/athletic/7126713/2026/03/18/colts-mailbag-edge-rusher-veteran-qb/
+**As injury-riddled 76ers near playoffs, what are their best- and worst-case scenarios?**\
+`Philadelphia remains one of the Eastern Conference's most volatile and confusing teams as near the postseason.`\
+https://nytimes.com/athletic/7127206/2026/03/18/76ers-playoffs-scenarios-joel-embiid-nba/
 
-**Which teams can realistically win the NCAA Tournament? These 11 have a shot**\
-`Including Florida last season, 20 of the last 23 national champions have entered March Madness as one of KenPom’s top six teams.`\
-https://nytimes.com/athletic/7126456/2026/03/18/ncaa-tournament-favorites-win-duke-arizona/
+**Mavericks haven't been this bad on offense since the '90s. 3 things going wrong**\
+`The Mavericks entered the season with high hopes. They now statistically own one of the NBA's worst offenses. What's the explanation?`\
+https://nytimes.com/athletic/7126201/2026/03/18/mavericks-offense-struggle-nba-observations/
 
-**How can Samurai Japan and others improve their standing ahead of the next WBC?**\
-`The final date has yet to be decided, but the next tournament could be in 2030, meaning many of these teams will look remarkably different.`\
-https://nytimes.com/athletic/7127306/2026/03/18/world-baseball-classic-samurai-japan-look-ahead/
+**2026 NHL prospect pool rankings: No. 23 Minnesota Wild**\
+`The Wild's pool looks a lot different today than it has in recent years after high-profile graduations and trades.`\
+https://nytimes.com/athletic/6970413/2026/03/18/minnesota-wild-nhl-prospect-rankings-2026/
 
-**MLB All-Under-25 Team: Paul Skenes, Nick Kurtz, PCA headline a talented crew**\
-`Several big-name stars have aged out, but they've been replaced by a slew of powerful bats and electric arms.  `\
-https://nytimes.com/athletic/7123833/2026/03/18/mlb-all-under-25-team-skenes-kurtz-crow-armstrong/
+**How to watch men’s March Madness First Four: Miami (OH)-SMU, PVAMU-Lehigh on Day 2**\
+`March Madness continues in Dayton with Day 2 of the First Four, featuring Prairie View A&M-Lehigh and Miami (OH)-SMU. Here's how to watch. `\
+https://nytimes.com/athletic/7126510/2026/03/18/march-madness-first-four-miami-ohio-tv-odds/
 
-**Giants mock draft: A needs-based projection as free agency winds down**\
-`A look at how John Harbaugh's plans could play out next month.`\
-https://nytimes.com/athletic/7126483/2026/03/18/new-york-giants-mock-draft-post-free-agency/
+**NBA expansion? League has issues to fix before thinking about Seattle, Las Vegas**\
+`The NBA has problems and without fixes, expansion will only make them worse. `\
+https://nytimes.com/athletic/7124180/2026/03/18/nba-expansion-tanking-issues/
 
-**God, NIL and AJ Dybantsa: BYU's unlikely rise as a college basketball power**\
-`AJ Dybantsa's one and only March Madness run signifies something bigger at BYU. `\
-https://nytimes.com/athletic/7127115/2026/03/18/ncaa-tournament-march-madness-byu-money-aj-dybantsa/
+**Apex predators vs. mythic beings: Who wins? We asked zoologists and other experts**\
+`Mythic beings? Severe weather events? Apex predators? The Athletic asked zoologists, meteorologists and more to find the definitive answer.`\
+https://nytimes.com/athletic/7126151/2026/03/18/mascot-fight-bracket-march-madness-2026/
 
