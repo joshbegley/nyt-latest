@@ -1,3 +1,7 @@
+**Have PSG rediscovered the form that led them to Champions League glory?**\
+`The holders dismantled Chelsea with ease and now have many of their injured players back as they head into the quarter-finals`\
+https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
+
 **This has been Rosenior's real welcome to Chelsea. Where does this extraordinary week leave him?**\
 `From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
 https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/

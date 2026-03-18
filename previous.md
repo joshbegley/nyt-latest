@@ -1,3 +1,7 @@
+**Have PSG rediscovered the form that led them to Champions League glory?**\
+`The holders dismantled Chelsea with ease and now have many of their injured players back as they head into the quarter-finals`\
+https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
+
 **This has been Rosenior's real welcome to Chelsea. Where does this extraordinary week leave him?**\
 `From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
 https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7127026/2026/03/18/pep-guardiola-manchester-city-st
 **John McGinn, Demi Lovato, and a summer training regime made in the USA**\
 `In the Arizona heat, the Villa midfielder prepared for the season with Natalie Kollars, a PT whose clients range from Disney to the NFL`\
 https://nytimes.com/athletic/7122025/2026/03/18/mcginn-villa-kollars-arizona-incognito-lovato/
-
-**This is not the season Xavi Simons was expecting**\
-`When Xavi Simons joined Spurs he will have had big European nights in mind - but now he must fight for a place in the starting XI`\
-https://nytimes.com/athletic/7111293/2026/03/18/xavi-simons-tottenham-season/
 
