@@ -1,3 +1,20 @@
+**A Novel Follows a Life in Exile: Always on the Move, Past in Tow**\
+`“Paradiso 17,” by Hannah Lillith Assadi, considers the toll of displacement through the tale of a Palestinian émigré.`\
+https://nytimes.com/2026/03/18/books/review/hannah-lillith-assadi-paradiso-17.html
+
+**Nigeria to appeal as claim DR Congo fielded ineligible players in World Cup play-off rejected**\
+`The NFF filed a petition to FIFA “alleging "perceived fraud" in the supplying of passports.`\
+https://nytimes.com/athletic/7128340/2026/03/18/nigeria-dr-congo-fifa-appeal/
+
+**Why the Maple Leafs signed NCAA free agent Vincent Borgesi**\
+`The newest Maple Leafs NCAA signing is small for an NHL defenceman. His college coach says he makes up for it with his play driving.`\
+https://nytimes.com/athletic/7128133/2026/03/18/maple-leafs-ncaa-free-agent-vincent-borgesi/
+
+**The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
+
 **The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
