@@ -1,3 +1,7 @@
+**Jessie Holmes, former reality TV star, wins second Iditarod championship**\
+`Holmes became the sixth musher to win consecutive Iditarod championships after traveling for nine days across the 975-mile Alaskan course.`\
+https://nytimes.com/athletic/7128256/2026/03/18/iditarod-race-winner-jessie-holmes/
+
 **Hot spring hitters on the rise in fantasy baseball: Luke Keaschall, Sal Stewart and more**\
 `Owen Poindexter looks at some hot hitters this spring who have boosted their fantasy baseball draft stock.`\
 https://nytimes.com/athletic/7127595/2026/03/18/fantasy-baseball-hot-hitters-spring-late-round-buys/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/health/menopause-heart-disease-risk-jama.html
 **Zanzibari Pizza, Very Versatile and Supremely Shareable**\
 `It’s one of a collection of recipes Yewande Komolafe has assembled for warm gatherings.`\
 https://nytimes.com/2026/03/18/dining/zanzibari-pizza-very-versatile-and-supremely-shareable.html
-
-**A Novel Follows a Life in Exile: Always on the Move, Past in Tow**\
-`“Paradiso 17,” by Hannah Lillith Assadi, considers the toll of displacement through the tale of a Palestinian émigré.`\
-https://nytimes.com/2026/03/18/books/review/hannah-lillith-assadi-paradiso-17.html
 
