@@ -1,3 +1,19 @@
+**Powell Says He Will Remain as Fed Chair Until Successor Is Confirmed**\
+`Jerome H. Powell, who leads the central bank, also said he would not leave the Fed until a criminal investigation into his handling of renovations was over.`\
+https://nytimes.com/2026/03/18/business/economy/fed-chair-powell-warsh-trump.html
+
+**He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
+`The police say a man tried to rob six Chase branches in five days and netted a total of $605. In three of the robbery attempts, he left empty-handed.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
+
+**Iran Maintains Near-Total Internet Blackout Amid U.S.-Israeli Strikes**\
+`As the war has stretched into its third week, the Iranian government has blocked internet access for most of its 92 million citizens.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-internet-shutdown.html
+
+**Omar López shined as Venezuela's manager, showing he can 'lead on a big stage'**\
+`López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
+https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
+
 **In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
 `To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
 https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
