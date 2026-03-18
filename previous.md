@@ -1,10 +1,14 @@
+**Dissecting Liam Rosenior's note writing (when Chelsea were six goals behind against PSG)**\
+`This is Tim Spiers's tongue-in-cheek breakdown of Liam Rosenior's late-game instructions to Alejandro Garnacho and the Chelsea players`\
+https://nytimes.com/athletic/7128639/2026/03/18/chelsea-liam-rosenior-note/
+
 **Why are U.S. traffic deaths increasing again?**\
 `Plus, the rise of “autobesity.”`\
 https://nytimes.com/2026/03/18/headway/motor-vehicles-fatalities-newsletter.html
 
 **What to Know about the Meningitis Outbreak in Britain**\
 `At least 20 young adults are believed to be infected, and two have died, in an outbreak of meningococcal disease in the county of Kent, in southeast England.`\
-https://nytimes.com/2026/03/18/world/europe/what-to-know-about-the-meningitis-outbreak-in-britain.html
+https://nytimes.com/2026/03/18/world/europe/uk-meningitis-outbreak-what-to-know.html
 
 **How to watch Miami (OH) vs. SMU men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the SMU Mustangs, with time, TV channel and streaming information.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128487/2026/03/18/aribim-pepple-canada-roster-who/
 **Read the document**\
 `A letter to Gov. Kathy Hochul of New York from scientists about the the climate law.`\
 https://nytimes.com/interactive/2026/03/18/us/hochul-letter-march7.html
-
-**Read the document**\
-`A letter from senators to Gov. Kathy Hochul about the climate law.`\
-https://nytimes.com/interactive/2026/03/18/us/hochul-from-senators.html
 
