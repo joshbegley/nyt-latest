@@ -1,3 +1,15 @@
+**Top prospect Harry Ford, a key offseason acquisition, among Nationals' latest cuts**\
+`Ford was acquired from the Mariners. He'll start the year in Triple A but could still factor heavily in the catching plans later this year.`\
+https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
+
+**A Cafe on the Edge of Destruction**\
+`Near the center of Beirut, one image captures the aftermath of what was left of Zahyre Cafe after an Israeli strike.`\
+https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
+
+**Iran Executes Swedish Citizen Accused of Spying**\
+`The case indicates that more than two weeks into the war, Iran continues its prosecution of foreigners. Sweden said its citizen did not get a fair trial.`\
+https://nytimes.com/2026/03/18/world/middleeast/swedish-citizen-executed-iran.html
+
 **Dissecting Liam Rosenior's note writing (when Chelsea were six goals behind against PSG)**\
 `This is Tim Spiers's tongue-in-cheek breakdown of Liam Rosenior's late-game instructions to Alejandro Garnacho and the Chelsea players`\
 https://nytimes.com/athletic/7128639/2026/03/18/chelsea-liam-rosenior-note/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabili
 **Luigi Mangione’s Lawyers Seek to Postpone His Federal Murder Trial**\
 `Lawyers asked a federal judge to move his trial to 2027, to give them time to prepare for a separate state case. Prosecutors are expected to oppose the request.`\
 https://nytimes.com/2026/03/18/nyregion/luigi-mangione-federal-murder-trial-delay.html
-
-**How to watch SFA vs. Missouri State women's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Stephen F. Austin Ladyjacks play the Missouri State Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128872/2026/03/18/sfa-vs-missouri-state-stream-how-to-watch-march-18/
-
-**Canada calls up Aribim Pepple, of English third tier, for its March roster**\
-`An injury to Promise David means there is an opportunity for Pepple, Plymouth Argyle's 23-year-old striker who has been in strong form.`\
-https://nytimes.com/athletic/7128487/2026/03/18/aribim-pepple-canada-roster-who/
-
-**Read the document**\
-`A letter to Gov. Kathy Hochul of New York from scientists about the the climate law.`\
-https://nytimes.com/interactive/2026/03/18/us/hochul-letter-march7.html
 
