@@ -1,7 +1,3 @@
-**NASCAR Truck Series driver Daniel Dye suspended indefinitely for homophobic comments**\
-`Dye apologized to IndyCar's David Malukas in a statement after mocking his voice as "gay." Dye will also undergo sensitivity training.`\
-https://nytimes.com/athletic/7126802/2026/03/17/nascar-daniel-dye-suspended-homophobic-comments/
-
 **When to Expect Primary Election Results From Illinois**\
 `Voters kicked off the state’s midterm contests for U.S. Senate, U.S. House and other offices on Tuesday.`\
 https://nytimes.com/2026/03/17/us/elections/primary-election-illinois-results-timing.html
@@ -37,4 +33,8 @@ https://nytimes.com/2026/03/17/us/elections/raja-krishnamoorthi-illinois-democra
 **5 Things to Know About Juliana Stratton**\
 `The lieutenant governor of Illinois, who is running in the Senate Democratic primary, is a close ally of Gov. JB Pritzker who has said ICE should be abolished.`\
 https://nytimes.com/2026/03/17/us/elections/juliana-stratton-illinois-democratic-senate-candidate.html
+
+**5 Things to Know About Robin Kelly**\
+`The Senate hopeful has clashed with Gov. JB Pritzker, a fellow Democrat, and has the endorsement of the Congressional Black Caucus.`\
+https://nytimes.com/2026/03/17/us/elections/robin-kelly-illinois-democratic-senate-candidate.html
 
