@@ -1,3 +1,7 @@
+**James Barnard, a Global Force in Wastewater Treatment, Dies at 90**\
+`An environmental engineer, he invented a biological method to remove nitrogen and phosphorous from wastewater, an advance that transformed the industry worldwide.`\
+https://nytimes.com/2026/03/18/science/james-barnard-dead.html
+
 **Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
 `Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/us/cesar-chavez-universities-building-names.html
 **California Heat Wave Brings High Temperatures During Winter**\
 `Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
 https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html
-
-**Empowering Iran’s Hard-liners**\
-`U.S.-Israeli attacks helped ultraconservatives cement power. That could make ending the war tougher.`\
-https://nytimes.com/2026/03/18/world/iran-leadership-larijani-israel-beirut.html
 

@@ -1,3 +1,15 @@
+**Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
+`Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
+
+**What’s in Our Queue? ‘The Shadow of Your Smile’ and More**\
+`Text by Reis Thebault`\
+https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
+
+**At last, 'Cream Abdul-Jabbar' and Saint Louis arrive at March Madness**\
+`"Cream Abdul-Jabbar." "Larry Blurred." "Milk Chamberlain." Robbie Avila has accumulated many nicknames — and now he'll get his March moment.`\
+https://nytimes.com/athletic/7129464/2026/03/18/robbie-avila-saint-louis-ncaa-tournament-cream-abdul-jabbar/
+
 **New Broncos WR Jaylen Waddle arrives eager to aid title pursuit 'in every fashion'**\
 `The blockbuster deal Denver struck for the accomplished wide receiver became official Wednesday.`\
 https://nytimes.com/athletic/7129353/2026/03/18/jaylen-waddle-broncos-trade-receiver/
