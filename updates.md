@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
+
+**Retired Belgian Diplomat, 93, Faces Trial Over 1961 Killing of Congolese Leader**\
+`A Brussels court ruled that Étienne Davignon must stand trial for the murder of Patrice Lumumba, the first prime minister of the Democratic Republic of Congo.`\
+https://nytimes.com/2026/03/18/world/europe/belgium-congo-lumumba-trial.html
+
+**Tracking Tropical Cyclone Narelle**\
+`See the likely path and wind arrival times for Narelle`\
+https://nytimes.com/interactive/2026/03/18/weather/narelle-map-path-tracker.html
+
 **At SXSW, ‘Sparks’ Was Flying High**\
 `Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
 https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html

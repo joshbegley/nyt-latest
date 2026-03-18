@@ -1,3 +1,15 @@
+**Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
+
+**Retired Belgian Diplomat, 93, Faces Trial Over 1961 Killing of Congolese Leader**\
+`A Brussels court ruled that Étienne Davignon must stand trial for the murder of Patrice Lumumba, the first prime minister of the Democratic Republic of Congo.`\
+https://nytimes.com/2026/03/18/world/europe/belgium-congo-lumumba-trial.html
+
+**Tracking Tropical Cyclone Narelle**\
+`See the likely path and wind arrival times for Narelle`\
+https://nytimes.com/interactive/2026/03/18/weather/narelle-map-path-tracker.html
+
 **At SXSW, ‘Sparks’ Was Flying High**\
 `Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
 https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/swedish-citizen-executed-iran.ht
 **Dissecting Liam Rosenior's note writing (when Chelsea were six goals behind against PSG)**\
 `This is Tim Spiers's tongue-in-cheek breakdown of Liam Rosenior's late-game instructions to Alejandro Garnacho and the Chelsea players`\
 https://nytimes.com/athletic/7128639/2026/03/18/chelsea-liam-rosenior-note/
-
-**Why are U.S. traffic deaths increasing again?**\
-`Plus, the rise of “autobesity.”`\
-https://nytimes.com/2026/03/18/headway/motor-vehicles-fatalities-newsletter.html
-
-**What to Know about the Meningitis Outbreak in Britain**\
-`At least 20 young adults are believed to be infected, and two have died, in an outbreak of meningococcal disease in the county of Kent, in southeast England.`\
-https://nytimes.com/2026/03/18/world/europe/uk-meningitis-outbreak-what-to-know.html
-
-**How to watch Miami (OH) vs. SMU men's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Miami (OH) RedHawks play the SMU Mustangs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128898/2026/03/18/miami-oh-vs-smu-stream-how-to-watch-march-18/
 
