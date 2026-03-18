@@ -1,3 +1,19 @@
+**N.Y.C. Teacher Is Accused of Having Child Sex Abuse Images and Meth Pipe**\
+`The teacher, Joseph Taylor McKeel, was arrested Wednesday morning as he was on his way to work.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-teacher-child-sex-abuse.html
+
+**Chavez Inspired California’s Latino Leaders but Left a Complex Legacy**\
+`Latino politicians describe having been awed by Mr. Chavez’s work on behalf of farm workers. They are now devastated by the sexual abuse allegations against him.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-latinos-california.html
+
+**A Peek Into Trump’s Planning of America’s 250th Suggests a Religious Focus**\
+`A closed-door White House event included news about the National Garden of American Heroes and an emphasis on the role of religion in the founding.`\
+https://nytimes.com/2026/03/18/arts/design/trump-america-250-year-anniversary-plan.html
+
+**On Iran, Gabbard Turned Intelligence Duties Over to Trump**\
+`Tulsi Gabbard, the director of national intelligence, was left to square the president’s comments about an imminent nuclear threat from Iran with a letter from one of her trusted aides.`\
+https://nytimes.com/2026/03/18/us/politics/tulsi-gabbard-iran-trump.html
+
 **California Probably Hasn’t Seen the Worst of This Week’s Heat Wave**\
 `From San Francisco to Los Angeles and farther inland, the highest temperatures of this heat wave are expected in the second half of the week.`\
 https://nytimes.com/2026/03/18/weather/california-heat-forecast-la-sf.html
