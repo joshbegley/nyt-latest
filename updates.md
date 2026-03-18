@@ -1,3 +1,7 @@
+**You Might Take a Spin in This**\
+`Adam Vincent’s puzzle is a winner.`\
+https://nytimes.com/2026/03/17/crosswords/daily-puzzle-2026-03-18.html
+
 **Toni Preckwinkle, Longtime Chicago Democrat, Holds Off Moderate Challenger**\
 `Ms. Preckwinkle has been president of the Cook County Board for four terms. Brendan Reilly, a member of the Chicago City Council, mounted a challenge to her right in a Democratic primary.`\
 https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois.html

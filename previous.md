@@ -1,3 +1,7 @@
+**You Might Take a Spin in This**\
+`Adam Vincent’s puzzle is a winner.`\
+https://nytimes.com/2026/03/17/crosswords/daily-puzzle-2026-03-18.html
+
 **Toni Preckwinkle, Longtime Chicago Democrat, Holds Off Moderate Challenger**\
 `Ms. Preckwinkle has been president of the Cook County Board for four terms. Brendan Reilly, a member of the Chicago City Council, mounted a challenge to her right in a Democratic primary.`\
 https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/world/americas/cuba-americans-invest-businesses.h
 **Cade Cunningham's back spasms at forefront of Pistons' untimely injuries**\
 `Cunningham collided with Wizards rookie Tre Johnson when the two were attempting to corral a loose ball with 7:44 left in the first quarter.`\
 https://nytimes.com/athletic/7127128/2026/03/17/cade-cunningham-back-spasms-pistons-wizards/
-
-**U.S. Says Anthropic Is an ‘Unacceptable’ National Security Risk**\
-`In a legal filing, the government said it questioned whether the A.I. start-up could be a “trusted partner” in wartime, which led it to label the company a supply chain risk.`\
-https://nytimes.com/2026/03/17/technology/anthropic-pentagon-national-security-risk.html
 
