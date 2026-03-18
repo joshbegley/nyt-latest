@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/7127959/2026/03/18/senegal-government-afcon-title-morocco/
 
 **Israel Says It Killed Iran’s Intelligence Minister**\
-`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran did not immediately comment.`\
+`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran confirmed the killing.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
 
 **Arsenal's transitions are hard to handle - just ask Bayer Leverkusen**\

@@ -1,3 +1,7 @@
+**Senegal's government calls for investigation after AFCON title removed**\
+`The Government of Senegal expressed "deep dismay" at the "unlawful" decision and promised to pursue legal action.`\
+https://nytimes.com/athletic/7127959/2026/03/18/senegal-government-afcon-title-morocco/
+
 **Israel Says It Killed Iran’s Intelligence Minister**\
 `The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran did not immediately comment.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/7128286/2026/03/18/charles-barkley-dick-vitale-firs
 **How Alvaro Arbeloa changed Xabi Alonso's Real Madrid - and what it means for his future**\
 `Does Tuesday night's Champions League victory over Manchester City mean the 43-year-old's job is safe?`\
 https://nytimes.com/athletic/7128066/2026/03/18/real-madrid-alvaro-arbeloa-xabi-alonso/
-
-**Why seniors are appealing in the NBA Draft again: 12 to watch in the NCAA Tournament**\
-`The final 30 to 40 picks of the NBA draft could be a parade of seniors, and they’re likely to be better prospects than those in the past.`\
-https://nytimes.com/athletic/7126877/2026/03/18/march-madness-nba-draft-seniors/
-
-**Corrections: March 18, 2026**\
-`Corrections that appeared in print on Wednesday, March 18, 2026.`\
-https://nytimes.com/2026/03/18/pageoneplus/corrections-march-18-2026.html
 
