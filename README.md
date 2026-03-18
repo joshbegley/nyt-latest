@@ -1,3 +1,11 @@
+**The Buzziest Outcomes From the Illinois Races**\
+`Here’s a rundown of the best comeback, proudest governor and most expensive water at a candidate’s watch party.`\
+https://nytimes.com/2026/03/18/us/politics/what-happened-illinois-election.html
+
+**Did you enjoy the Charles Barkley-Dick Vitale 'First Four 'TV experience?**\
+`The highly anticipated pairing left some fans wanting more analysis, less schtick. What did you think? Take a quick poll.`\
+https://nytimes.com/athletic/7128286/2026/03/18/charles-barkley-dick-vitale-first-four-tv/
+
 **How Alvaro Arbeloa changed Xabi Alonso's Real Madrid - and what it means for his future**\
 `Does Tuesday night's Champions League victory over Manchester City mean the 43-year-old's job is safe?`\
 https://nytimes.com/athletic/7128066/2026/03/18/real-madrid-alvaro-arbeloa-xabi-alonso/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/technology/personaltech/how-to-follow-the-game-ev
 **The Manosphere Is Just Another Grift**\
 `A new documentary shows that social media misogyny is just a new way to sell old garbage.`\
 https://nytimes.com/2026/03/18/opinion/manosphere-trump-maga-documentary.html
-
-**My Relative Takes Forever to Reply to My Texts. What Can I Do?**\
-`Stung by a family member’s laggardly response times, a reader considers confronting the issue head-on: “Do you make all your friends wait like this?”`\
-https://nytimes.com/2026/03/18/style/slow-text-replies-bad-texter.html
-
-**Al Hilal targeting Liverpool’s Hughes for sporting director role**\
-`The former Scotland midfielder was widely credited with playing a key role in Liverpool’s Premier League title win last season.`\
-https://nytimes.com/athletic/7128078/2026/03/18/richard-hughes-liverpool-al-hilal/
 
