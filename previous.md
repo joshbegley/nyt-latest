@@ -1,40 +1,40 @@
-**Colts mailbag: Where will they find an impact edge rusher? Should they sign a veteran QB?**\
-`When will the Colts move Anthony Richardson Sr.? What are newcomer Colby Wooden's strengths? Where's the "urgency"? `\
-https://nytimes.com/athletic/7126713/2026/03/18/colts-mailbag-edge-rusher-veteran-qb/
+**Kent Hughes on Canadiens' roller coaster, his mystery target at the deadline, more**\
+`The Canadiens general manager says his inactivity at the trade deadline "wasn’t for a lack of trying."`\
+https://nytimes.com/athletic/7126079/2026/03/18/kent-hughes-canadiens-trade-deadline/
 
-**Which teams can realistically win the NCAA Tournament? These 11 have a shot**\
-`Including Florida last season, 20 of the last 23 national champions have entered March Madness as one of KenPom’s top six teams.`\
-https://nytimes.com/athletic/7126456/2026/03/18/ncaa-tournament-favorites-win-duke-arizona/
+**Bills post-free-agency roster needs: Which positions could still use some help?**\
+`The Bills' priorities will now shift after they picked up a few pieces in free agency.`\
+https://nytimes.com/athletic/7125704/2026/03/18/bills-free-agency-roster-needs/
 
-**How can Samurai Japan and others improve their standing ahead of the next WBC?**\
-`The final date has yet to be decided, but the next tournament could be in 2030, meaning many of these teams will look remarkably different.`\
-https://nytimes.com/athletic/7127306/2026/03/18/world-baseball-classic-samurai-japan-look-ahead/
+**Cameron Young just won The Players. A simple mental shift helped make it happen**\
+`Talent was never the issue for Young. It was where his mind drifted when things didn’t go according to plan. He's worked to change that.`\
+https://nytimes.com/athletic/7127018/2026/03/18/cameron-young-players-mental-skill/
 
-**MLB All-Under-25 Team: Paul Skenes, Nick Kurtz, PCA headline a talented crew**\
-`Several big-name stars have aged out, but they've been replaced by a slew of powerful bats and electric arms.  `\
-https://nytimes.com/athletic/7123833/2026/03/18/mlb-all-under-25-team-skenes-kurtz-crow-armstrong/
+**How Bo Groulx became a late-season surprise for the Maple Leafs**\
+`Groulx has become a story in Toronto, raising questions about his future with the organization and the role of the Marlies with the Leafs.`\
+https://nytimes.com/athletic/7125825/2026/03/18/maple-leafs-bo-groulx-season-nhl-marlies/
 
-**Giants mock draft: A needs-based projection as free agency winds down**\
-`A look at how John Harbaugh's plans could play out next month.`\
-https://nytimes.com/athletic/7126483/2026/03/18/new-york-giants-mock-draft-post-free-agency/
+**As injury-riddled 76ers near playoffs, what are their best- and worst-case scenarios?**\
+`Philadelphia remains one of the Eastern Conference's most volatile and confusing teams as near the postseason.`\
+https://nytimes.com/athletic/7127206/2026/03/18/76ers-playoffs-scenarios-joel-embiid-nba/
 
-**God, NIL and AJ Dybantsa: BYU's unlikely rise as a college basketball power**\
-`AJ Dybantsa's one and only March Madness run signifies something bigger at BYU. `\
-https://nytimes.com/athletic/7127115/2026/03/18/ncaa-tournament-march-madness-byu-money-aj-dybantsa/
+**Mavericks haven't been this bad on offense since the '90s. 3 things going wrong**\
+`The Mavericks entered the season with high hopes. They now statistically own one of the NBA's worst offenses. What's the explanation?`\
+https://nytimes.com/athletic/7126201/2026/03/18/mavericks-offense-struggle-nba-observations/
 
-**Quietly, methodically, Jets GM Darren Mougey is having a moment**\
-`He isn't delivering wins yet, but the trade-happy exec is winning on the roster-building margins.`\
-https://nytimes.com/athletic/7127047/2026/03/18/darren-mougey-jets-gm-free-agency-trades/
+**2026 NHL prospect pool rankings: No. 23 Minnesota Wild**\
+`The Wild's pool looks a lot different today than it has in recent years after high-profile graduations and trades.`\
+https://nytimes.com/athletic/6970413/2026/03/18/minnesota-wild-nhl-prospect-rankings-2026/
 
-**Venezuela's historic WBC title fueled by power, pitching — and passion**\
-`Emotional scenes and joyful tears punctuated Venezuela's unlikely WBC championship: "We feel the jersey. We feel our country."`\
-https://nytimes.com/athletic/7127546/2026/03/18/venezuela-mlb-wbc-championship-emotion/
+**How to watch men’s March Madness First Four: Miami (OH)-SMU, PVAMU-Lehigh on Day 2**\
+`March Madness continues in Dayton with Day 2 of the First Four, featuring Prairie View A&M-Lehigh and Miami (OH)-SMU. Here's how to watch. `\
+https://nytimes.com/athletic/7126510/2026/03/18/march-madness-first-four-miami-ohio-tv-odds/
 
-**What is the Steelers' plan at quarterback if Aaron Rodgers retires?: Mailbag**\
-`Plus, realistic draft targets, and one big difference between Mike McCarthy and Mike Tomlin so far.`\
-https://nytimes.com/athletic/7127363/2026/03/18/steelers-mailbag-aaron-rodgers-qb-options/
+**NBA expansion? League has issues to fix before thinking about Seattle, Las Vegas**\
+`The NBA has problems and without fixes, expansion will only make them worse. `\
+https://nytimes.com/athletic/7124180/2026/03/18/nba-expansion-tanking-issues/
 
-**MLB Hope-O-Meter fan survey: How are you feeling about your favorite team in 2026?**\
-`We want to know how you feel about your team. Pull no punches. Or, indulge your barely-hidden glee. `\
-https://nytimes.com/athletic/7125654/2026/03/18/mlb-optimism-favorite-team-2026/
+**Apex predators vs. mythic beings: Who wins? We asked zoologists and other experts**\
+`Mythic beings? Severe weather events? Apex predators? The Athletic asked zoologists, meteorologists and more to find the definitive answer.`\
+https://nytimes.com/athletic/7126151/2026/03/18/mascot-fight-bracket-march-madness-2026/
 
