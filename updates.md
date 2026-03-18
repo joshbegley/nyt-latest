@@ -1,3 +1,11 @@
+**Steph and Dell Curry on the Current Era of Basketball**\
+`Are the Currys the supreme basketball family in America? Steph and Dell Curry debate and weigh in on their friendly rivalry with the James household. They discuss legacy, intense workout regimens and what it takes for American basketball to dominate today.`\
+https://nytimes.com/video/the-athletic/100000010784825/steph-and-dell-curry-on-the-current-era-of-basketball.html
+
+**Cesar Chavez Day Is Less Than 2 Weeks Away in Several States**\
+`California was the first to designate the activist’s birthday as a state holiday. It is enshrined in state law.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-day-holiday-california.html
+
 **JB Pritzker on His Mother’s Alcoholism and Becoming an Orphan at 17**\
 `JB Pritzker’s father died from a heart attack when he was 7, and he lost his mother to alcoholism when he was 17. The Illinois governor spoke about those tragedies and how they shaped his life on “The Interview.”`\
 https://nytimes.com/video/podcasts/100000010787213/jb-pritzker-on-his-mothers-alcoholism-and-becoming-an-orphan-at-17.html
