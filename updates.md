@@ -1,3 +1,11 @@
+**Giannis, Bucks at odds over whether star should finish the season: Sources**\
+`The Bucks believe it would benefit Antetokounmpo to sit out the team's 14 remaining games, but he wants to play, per league sources.`\
+https://nytimes.com/athletic/7128193/2026/03/18/giannis-antetokounmpo-bucks-injury-playing-time-nba/
+
+**U.S. Intelligence Saw No Change in Iran’s Missile Capabilities Before War**\
+`On Wednesday, the director of national intelligence and C.I.A. director contradicted one of the justifications the Trump administration had given for its attacks on Iran.`\
+https://nytimes.com/2026/03/18/world/middleeast/tulsi-gabbard-senate-testimony-iran-war.html
+
 **Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
