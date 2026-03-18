@@ -1,3 +1,7 @@
+**Jack Hughes wants "Golden Goal" puck back from Hockey Hall of Fame**\
+`The star of Team USA's Olympic win against Canada would like to get a hold of the memento currently on display in the Toronto Hall.`\
+https://nytimes.com/athletic/7128337/2026/03/18/jack-hughes-wants-golden-goal-puck-from-hockey-hall-of-fame/
+
 **U.S. Suspends Oil Shipping Rules to Ease Gas Price Pressures**\
 `The Jones Act dictates that only ships made in the United States can transport cargo between U.S. ports. Such vessels, which must also be crewed by Americans, charge customers more than foreign ships.`\
 https://nytimes.com/2026/03/18/business/jones-act-oil-prices-trump-iran.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-inj
 `The Government of Senegal expressed "deep dismay" at the "unlawful" decision and promised to pursue legal action.`\
 https://nytimes.com/athletic/7127959/2026/03/18/senegal-government-afcon-title-morocco/
 
-**Israel Says It Killed Iran’s Intelligence Minister**\
+**Iran’s Intelligence Minister Killed in an Airstrike**\
 `The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran confirmed the killing.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
 
@@ -30,8 +34,4 @@ https://nytimes.com/2026/03/18/us/cesar-chavez-sexual-abuse-allegations-ufw.html
 **6 Takeaways From the Times Investigation Into Cesar Chavez**\
 `The revered union leader who campaigned for farm workers’ rights has been accused by women in the movement of years of sexual assault, some involving girls.`\
 https://nytimes.com/2026/03/18/us/cesar-chavez-sexual-assault-allegations-takeaways.html
-
-**The Buzziest Outcomes From the Illinois Races**\
-`Here’s a rundown of the best comeback, proudest governor and most expensive water at a candidate’s watch party.`\
-https://nytimes.com/2026/03/18/us/politics/what-happened-illinois-election.html
 

@@ -1,3 +1,7 @@
+**U.S. Suspends Oil Shipping Rules to Ease Gas Price Pressures**\
+`The Jones Act dictates that only ships made in the United States can transport cargo between U.S. ports. Such vessels, which must also be crewed by Americans, charge customers more than foreign ships.`\
+https://nytimes.com/2026/03/18/business/jones-act-oil-prices-trump-iran.html
+
 **The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
@@ -30,8 +34,4 @@ https://nytimes.com/2026/03/18/us/cesar-chavez-sexual-assault-allegations-takeaw
 **The Buzziest Outcomes From the Illinois Races**\
 `Here’s a rundown of the best comeback, proudest governor and most expensive water at a candidate’s watch party.`\
 https://nytimes.com/2026/03/18/us/politics/what-happened-illinois-election.html
-
-**Did you enjoy the Charles Barkley-Dick Vitale First Four TV experience?**\
-`The highly anticipated pairing left some fans wanting more analysis, less schtick. What did you think? Take a quick poll.`\
-https://nytimes.com/athletic/7128286/2026/03/18/charles-barkley-dick-vitale-first-four-tv/
 

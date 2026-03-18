@@ -1,3 +1,12 @@
+**U.S. Suspends Oil Shipping Rules to Ease Gas Price Pressures**\
+`The Jones Act dictates that only ships made in the United States can transport cargo between U.S. ports. Such vessels, which must also be crewed by Americans, charge customers more than foreign ships.`\
+https://nytimes.com/2026/03/18/business/jones-act-oil-prices-trump-iran.html
+
+**The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
+
 **The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
