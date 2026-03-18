@@ -1,3 +1,19 @@
+**Homelessness, Benefit Cuts, Budget Woes: A New Commissioner’s Challenges**\
+`Erin Dalton, who is starting her job as commissioner of social services under Mayor Zohran Mamdani, says she’ll be tackling some of the country’s toughest problems.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-commissioner-homelessness-benefit-cuts-budget.html
+
+**March Madness**\
+`Will you be watching? What predictions can you make?`\
+https://nytimes.com/2026/03/18/learning/march-madness.html
+
+**An Army Reservist Owns a Cannabis Dispensary. It May End His Career.**\
+`Selling marijuana is strictly prohibited in the military. What that means for soldiers who own businesses is unclear.`\
+https://nytimes.com/2026/03/18/nyregion/times-square-cannabis-army.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2026/03/18/crosswords/spelling-bee-forum.html
+
 **Have PSG rediscovered the form that led them to Champions League glory?**\
 `The holders dismantled Chelsea with ease and now have many of their injured players back as they head into the quarter-finals`\
 https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
@@ -6,7 +22,7 @@ https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
 `From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
 https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/
 
-**Dink, flick, twirl, crack: Eze's beautiful moment - and why it meant so much to Arsenal**\
+**Dink, flick, twirl, crack: Eze's beautiful moment — and why it meant so much to Arsenal**\
 `A goal of sublime quality burst open the Champions League tie against Leverkusen and showed why Arsenal bought the playmaker`\
 https://nytimes.com/athletic/7127121/2026/03/18/eberechi-eze-arsenal-goal-bayer-leverkusen/
 
@@ -21,20 +37,4 @@ https://nytimes.com/live/2026/03/18/world/iran-war-news-trump-oil
 **From League Cup final to feeding Komodo dragons: 24 hours in the life of Phallon Tullis-Joyce**\
 `Man Utd's USWNT goalkeeper discusses her love of conservation and how it intersects with football - all while it's dinner time at the zoo`\
 https://nytimes.com/athletic/7124949/2026/03/18/phallon-tullis-joyce-komodo-dragons/
-
-**Word of the Day: enlighten**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2026/03/18/learning/word-of-the-day-enlighten.html
-
-**Mixed Results for AIPAC and Allies in Illinois House Primaries**\
-`Organizations linked to the pro-Israel lobbying organization had some victories and some less-than-ideal outcomes in closely watched Democratic contests.`\
-https://nytimes.com/2026/03/18/us/elections/house-primaries-aipac-allies-illinois.html
-
-**The case for Guardiola to stay at Manchester City**\
-`A last-16 Champions League exit to Real Madrid was deflating but this team has shown enough promise for Guardiola to stick around`\
-https://nytimes.com/athletic/7127026/2026/03/18/pep-guardiola-manchester-city-stay-next-season/
-
-**John McGinn, Demi Lovato, and a summer training regime made in the USA**\
-`In the Arizona heat, the Villa midfielder prepared for the season with Natalie Kollars, a PT whose clients range from Disney to the NFL`\
-https://nytimes.com/athletic/7122025/2026/03/18/mcginn-villa-kollars-arizona-incognito-lovato/
 
