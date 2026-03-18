@@ -1,3 +1,7 @@
+**The case for Guardiola to stay at Manchester City**\
+`A last-16 Champions League exit to Real Madrid was deflating but this team has shown enough promise for Guardiola to stick around`\
+https://nytimes.com/athletic/7127026/2026/03/18/pep-guardiola-manchester-city-stay-next-season/
+
 **John McGinn, Demi Lovato, and a summer training regime made in the USA**\
 `In the Arizona heat, the Villa midfielder prepared for the season with Natalie Kollars, a PT whose clients range from Disney to the NFL`\
 https://nytimes.com/athletic/7122025/2026/03/18/mcginn-villa-kollars-arizona-incognito-lovato/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/us/elections/illinois-primary-elections-takeaways
 **Forest in flux: The threat of relegation, financial implications, and player futures**\
 `The club face a crucial few months on and off the pitch. We look at the battles ahead`\
 https://nytimes.com/athletic/7125036/2026/03/18/nottingham-forest-finances-relegation-cost/
-
-**Sir Jim Ratcliffe talked about Man Utd's players, coach, finances and future. One year on, how does it look?**\
-`A year on from speaking freely about his mistakes and ambitions with Manchester United, how much did Sir Jim Ratcliffe get right?`\
-https://nytimes.com/athletic/7125144/2026/03/18/jim-ratcliffe-manchester-united-players-coach-finances/
 
