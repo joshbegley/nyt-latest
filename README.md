@@ -1,3 +1,11 @@
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`The deaths of two top Iranian officials were announced on Tuesday, while President Trump once again lashed out at NATO allies who refused to aid the U.S. war effort against Iran.`\
+https://nytimes.com/2026/03/17/world/middleeast/iran-war-israel-middle-east-recap.html
+
+**‘Ulster American’ Review: Matthew Broderick as a Star Blinded by Privilege**\
+`David Ireland’s satire follows a Hollywood actor whose cluelessness leads to a combustible confrontation.`\
+https://nytimes.com/2026/03/17/theater/ulster-american-review-matthew-broderick.html
+
 **Counties to Watch in the Illinois Democratic Senate Primary**\
 `There is more to the state than Chicago and its suburbs, even if that area makes up a large majority of the vote.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-key-counties.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
 **NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
 `Bowman, a playoff participant in seven of the past eight seasons, is almost certain to miss out this year with the extended absence.`\
 https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
-
-**Trump’s Next Decision: Whether to Retrieve Iran’s Nuclear Fuel, Whatever the Risk**\
-`A mission to seize or destroy Iran’s nuclear material would be one of the riskiest military operations in modern American history.`\
-https://nytimes.com/2026/03/17/us/politics/trump-iran-nuclear-fuel.html
-
-**Fernandez casts doubt on Chelsea future after PSG loss**\
-`The 25-year-old's contract runs until 2032.`\
-https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/
 
