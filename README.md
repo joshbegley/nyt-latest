@@ -1,4 +1,8 @@
-**Child Care Company Agrees to Curtail Expansion After N.Y.C. Abuse Case**\
+**Panthers trading QB Andy Dalton to Eagles: Sources**\
+`The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
+https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
+
+**Child Care Company Agrees to Pause Expansion After N.Y.C. Abuse Case**\
 `Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
 https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmae
 **How to watch Lakers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129088/2026/03/18/lakers-vs-rockets-stream-how-to-watch-march-18/
-
-**McNeese viral student manager Amir Khan is back for March Madness**\
-`In 2025, Khan led McNeese men's basketball team out of the locker room while performing rap songs and carrying a massive boombox.`\
-https://nytimes.com/athletic/7121481/2026/03/18/mcneese-viral-student-manager-amir-aura-khan-march-madness/
 

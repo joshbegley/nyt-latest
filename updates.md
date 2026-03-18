@@ -1,3 +1,15 @@
+**Child Care Company Agrees to Curtail Expansion After N.Y.C. Abuse Case**\
+`Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
+https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
+
+**Drew Allar looking healthy as he shows off arm strength at Penn State's pro day**\
+`Allar, returning from an ankle injury last season, threw to Penn State teammates in a pro day workout with NFL scouts in attendance. `\
+https://nytimes.com/athletic/7129051/2026/03/18/drew-allar-penn-state-pro-day-nfl-draft/
+
+**How to watch Flyers vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7129141/2026/03/18/flyers-vs-ducks-stream-how-to-watch-march-18/
+
 **How to watch Blues vs. Flames: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129130/2026/03/18/blues-vs-flames-stream-how-to-watch-march-18/
