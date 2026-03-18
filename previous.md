@@ -1,3 +1,11 @@
+**Changing How We Vote**\
+`We examine the SAVE America Act.`\
+https://nytimes.com/2026/03/18/briefing/changing-how-we-vote.html
+
+**Israel Intensifies Strikes on Beirut, Targeting Areas Once Considered Safe**\
+`The Israeli military widened its attacks to the districts in the center of the Lebanese capital, destroying buildings, forcing residents to flee and killing at least 10.`\
+https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-beirut-lebanon-hezbollah.html
+
 **Down to Business: 2026 season marks arrival of NWSL 4.0**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/7126469/2026/03/18/nwsl-2026-big-investment-berman-down-to-business/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7126733/2026/03/18/phillies-adolis-garcia-opening-d
 **Chiefs mailbag: Does Rueben Bain Jr. or Jeremiyah Love fit K.C.'s draft plans?**\
 `Here's what Chiefs fans should expect to change from the team's offense under coach Andy Reid in the 2026 season.`\
 https://nytimes.com/athletic/7125656/2026/03/18/chiefs-mailbag-nfl-draft-plans/
-
-**Cowboys projected depth chart: Why 3 positions remain biggest needs**\
-`The Cowboys filled some holes in free agency, but several still exist defensively.`\
-https://nytimes.com/athletic/7126851/2026/03/18/cowboys-depth-chart-free-agency-2026/
-
-**'Good point for us': Bruins head home in a playoff spot after second straight OT loss**\
-`The Bruins return from a trip with a respectable 4 points of 6.`\
-https://nytimes.com/athletic/7127350/2026/03/18/bruins-overtime-loss-peeke-goal-defense-canadiens/
 

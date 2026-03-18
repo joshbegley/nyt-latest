@@ -1,3 +1,11 @@
+**Changing How We Vote**\
+`We examine the SAVE America Act.`\
+https://nytimes.com/2026/03/18/briefing/changing-how-we-vote.html
+
+**Israel Intensifies Strikes on Beirut, Targeting Areas Once Considered Safe**\
+`The Israeli military widened its attacks to the districts in the center of the Lebanese capital, destroying buildings, forcing residents to flee and killing at least 10.`\
+https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-beirut-lebanon-hezbollah.html
+
 **Down to Business: 2026 season marks arrival of NWSL 4.0**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/7126469/2026/03/18/nwsl-2026-big-investment-berman-down-to-business/
