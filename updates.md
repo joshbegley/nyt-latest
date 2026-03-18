@@ -1,3 +1,15 @@
+**Sir Jim Ratcliffe talked about Man Utd's players, coach, finances and future. One year on, how does it look?**\
+`A year on from speaking freely about his mistakes and ambitions with Manchester United, how much did Sir Jim Ratcliffe get right?`\
+https://nytimes.com/athletic/7125144/2026/03/18/jim-ratcliffe-manchester-united-players-coach-finances/
+
+**Fernandes, Raya, Thiago? Picking our Premier League player of the year nominees**\
+`With less than a quarter of the season to go, we asked our writers who they believe should be this season's nominees`\
+https://nytimes.com/athletic/7122824/2026/03/18/premier-league-player-of-the-year-list/
+
+**Explained: Could Iran's World Cup games be moved from the U.S. to Mexico?**\
+`Iran says it is negotiating to move its World Cup games to Mexico. FIFA says the schedule will not change. So what's going on?`\
+https://nytimes.com/athletic/7126567/2026/03/18/iran-world-cup-mexico/
+
 **The New York Times in Print for Wednesday, March 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/18/todays-new-york-times

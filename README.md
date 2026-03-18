@@ -1,3 +1,11 @@
+**Stratton Wins and AIPAC’s Power Is Tested: 4 Illinois Takeaways**\
+`Democratic voters put Lt. Gov. Juliana Stratton on a path to the Senate, while the pro-Israel lobby notched its first major victories of the year but also faced a tough defeat.`\
+https://nytimes.com/2026/03/18/us/elections/illinois-primary-elections-takeaways.html
+
+**Forest in flux: The threat of relegation, financial implications, and player futures**\
+`The club face a crucial few months on and off the pitch. We look at the battles ahead`\
+https://nytimes.com/athletic/7125036/2026/03/18/nottingham-forest-finances-relegation-cost/
+
 **Sir Jim Ratcliffe talked about Man Utd's players, coach, finances and future. One year on, how does it look?**\
 `A year on from speaking freely about his mistakes and ambitions with Manchester United, how much did Sir Jim Ratcliffe get right?`\
 https://nytimes.com/athletic/7125144/2026/03/18/jim-ratcliffe-manchester-united-players-coach-finances/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7127436/2026/03/18/wild-blackhawks-filip-gustavsson
 **Connections: Sports Edition Coach: Hints and answers for March 18, 2026**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/7127551/2026/03/18/connections-sports-edition-hints-answers-march-18-2026/
-
-**Trump Promised the ‘World’s Lowest’ Drug Prices. We Checked the Numbers.**\
-`The TrumpRx website claims to offer the best prices for medications. Here’s where Americans still pay more — and much more.`\
-https://nytimes.com/2026/03/18/world/europe/trumprx-drug-prices-really-cheapest-world-comparison.html
-
-**The Faroe Islands Are Changing Some of Europe’s Strictest Abortion Rules**\
-`A new law allowing abortion up to 12 weeks will be a major shift in an archipelago of 55,000 people, and there are strong feelings on both sides.`\
-https://nytimes.com/2026/03/18/world/europe/faroe-islands-abortion-europe.html
 
