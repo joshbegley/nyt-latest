@@ -1,3 +1,11 @@
+**The Premier League has the money but Europe's elite are leaving it behind**\
+`English clubs have had a chastening experience in the Champions League last 16, and things could be about to get worse`\
+https://nytimes.com/athletic/7127697/2026/03/18/premier-league-clubs-champions-league/
+
+**Late Night Wonders Which Former President Spoke With Trump**\
+`In guessing which ex-leader Trump might have discussed Iran with, Jimmy Fallon said “two things seem equally possible: Either Trump’s lying, or Joe Biden doesn’t remember talking to him.”`\
+https://nytimes.com/2026/03/18/arts/television/late-night-trump-iran.html
+
 **Homelessness, Benefit Cuts, Budget Woes: A New Commissioner’s Challenges**\
 `Erin Dalton, who is starting her job as commissioner of social services under Mayor Zohran Mamdani, says she’ll be tackling some of the country’s toughest problems.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-commissioner-homelessness-benefit-cuts-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7127121/2026/03/18/eberechi-eze-arsenal-goal-bayer-
 **Here’s the latest.**\
 `By Francesca Regalado, Ephrat Livni and Farnaz Fassihi`\
 https://nytimes.com/live/2026/03/18/world/iran-war-news-trump-oil/heres-the-latest
-
-**Iran War Live Updates: Missiles Hit Israel as Iran Responds to Latest Killings**\
-`Two people were killed by missile strikes in the Israeli city of Ramat Gan, officials said, as Tehran retaliated for the killing of its de facto leader and a militia commander. Heavy airstrikes were also reported in Beirut.`\
-https://nytimes.com/live/2026/03/18/world/iran-war-news-trump-oil
-
-**From League Cup final to feeding Komodo dragons: 24 hours in the life of Phallon Tullis-Joyce**\
-`Man Utd's USWNT goalkeeper discusses her love of conservation and how it intersects with football - all while it's dinner time at the zoo`\
-https://nytimes.com/athletic/7124949/2026/03/18/phallon-tullis-joyce-komodo-dragons/
 
