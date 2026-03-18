@@ -1,3 +1,11 @@
+**'For me it's too much': Sabalenka could skip tournament over criticism**\
+`The world No. 1 said that criticism from the director of the Dubai Tennis Championships over her withdrawal from the event was “ridiculous.”`\
+https://nytimes.com/athletic/7128036/2026/03/18/tennis-aryna-sabalenka-dubai-championships/
+
+**'Does he care?' The question followed Darryn Peterson all year. He answers now**\
+`Darryn Peterson's body struggled to cooperate this season. It turned a potential fairytale into a complex drama. `\
+https://nytimes.com/athletic/7127440/2026/03/18/march-madness-darryn-peterson-kansas-basketball-nba/
+
 **Realistic Canucks rebuild timelines and the next core: Mailbag, part 2**\
 `Plus, which year would be better for the Canucks to have the first-overall selection, 2026 or 2027?`\
 https://nytimes.com/athletic/7120080/2026/03/18/vancouver-canucks-rebuild-draft-timeline-core-mailbag/
