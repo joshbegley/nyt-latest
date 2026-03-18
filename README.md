@@ -1,3 +1,11 @@
+**California Heat Wave Brings High Temperatures During Winter**\
+`Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
+https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html
+
+**Empowering Iran’s Hard-liners**\
+`U.S.-Israeli attacks helped ultraconservatives cement power. That could make ending the war tougher.`\
+https://nytimes.com/2026/03/18/world/iran-leadership-larijani-israel-beirut.html
+
 **How the Giants could draw inspiration from Team Venezuela's win**\
 `There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
 https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/business/economy/fed-chair-powell-warsh-trump.htm
 **He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
 `A man is accused of handing tellers notes, demanding money at six Chase branches in five days. In three of the attempts, he left empty-handed.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
-
-**Iran Maintains Near-Total Internet Blackout Amid U.S.-Israeli Strikes**\
-`As the war has stretched into its third week, the Iranian government has blocked internet access for most of its 92 million citizens.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-internet-shutdown.html
-
-**In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
-`To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
-https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
 

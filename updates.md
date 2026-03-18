@@ -1,3 +1,11 @@
+**How the Giants could draw inspiration from Team Venezuela's win**\
+`There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
+https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
+
+**Palestinian Man Recounts Brutal Sexual Assault by Israeli Settlers**\
+`The man said his attackers stripped him naked, beat him and zip-tied his genitalia, an account corroborated by family members and a rights activist who were also beaten.`\
+https://nytimes.com/2026/03/18/world/middleeast/west-bank-sexual-assault-israel-settlers.html
+
 **Read the Statement From Dolores Huerta on Cesar Chavez’s Abuse**\
 `“I can no longer stay silent and must share my own experiences,” she wrote.`\
 https://nytimes.com/2026/03/18/us/dolores-huerta-statement-cesar-chavez.html
