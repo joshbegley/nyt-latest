@@ -1,3 +1,7 @@
+**WNBA, players reach labor agreement after marathon negotiations**\
+`After more than a year of often tense negotiations, the WNBA and the players' union have reached a verbal agreement.`\
+https://nytimes.com/athletic/7113991/2026/03/18/wnba-players-new-labor-deal/
+
 **The Premier League has the money but Europe's elite are leaving it behind**\
 `English clubs have had a chastening experience in the Champions League last 16, and things could be about to get worse`\
 https://nytimes.com/athletic/7127697/2026/03/18/premier-league-clubs-champions-league/
