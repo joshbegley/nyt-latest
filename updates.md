@@ -1,3 +1,7 @@
+**Judge Orders Voice of America to Restart All News Operations**\
+`More than 1,000 full-time journalists and support staff at the news group were ordered to return to work by March 23 and to resume broadcasting.`\
+https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html
+
 **Police Kill Gunman Who Shot Employee at Georgia V.A. Clinic**\
 `The employee’s condition was not immediately disclosed. The Department of Veterans Affairs said the clinic would be closed for the rest of the week, while the authorities investigate.`\
 https://nytimes.com/2026/03/17/us/jasper-va-shooting.html

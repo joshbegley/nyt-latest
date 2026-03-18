@@ -1,3 +1,7 @@
+**Your Guide to Madrid**\
+`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
+https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
+
 **Judge Orders Voice of America to Restart All News Operations**\
 `More than 1,000 full-time journalists and support staff at the news group were ordered to return to work by March 23 and to resume broadcasting.`\
 https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-st
 **In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**\
 `Chief Petty Officer Shannon Kent was killed in action during a special operations mission in Syria in 2019. Mr. Kent said he could not support “sending the next generation off to fight and die” in Iran.`\
 https://nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html
-
-**NASCAR Truck Series driver Daniel Dye suspended indefinitely for homophobic comments**\
-`Dye apologized to IndyCar's David Malukas in a statement after mocking his voice as "gay." Dye will also undergo sensitivity training.`\
-https://nytimes.com/athletic/7126802/2026/03/17/nascar-daniel-dye-suspended-homophobic-comments/
 
