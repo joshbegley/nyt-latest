@@ -1,3 +1,7 @@
+**Omar López shined as Team Venezuela manager, showing he can 'lead on a big stage'**\
+`López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
+https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
+
 **Carol Kitman, 96, Dies; Photographer Documented the Vindman Twins**\
 `A chance encounter in Brooklyn led to a decades-long project following the boys’ lives, from childhood to national prominence as critics of President Trump.`\
 https://nytimes.com/2026/03/18/arts/carol-kitman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125555/2026/03/18/march-madness-best-bets-futures-
 **The Briefing: Barcelona 7 Newcastle 2 – Champions League contenders, defensive disaster and Raphinha shines**\
 `The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
 https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
-
-**Panthers trading QB Andy Dalton to Eagles: Sources**\
-`The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
-https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
 
