@@ -1,3 +1,7 @@
+**Stratton Favored to Succeed Durbin After Senate Primary Win in Illinois**\
+`Lt. Gov. Juliana Stratton of Illinois won the Democratic nomination for Senate on Tuesday. She is heavily favored to succeed the retiring Senator Dick Durbin in November.`\
+https://nytimes.com/video/us/elections/100000010786341/illinois-senate-democratic-primary-stratton.html
+
 **'It could be the end of my career': Schmeichel out of World Cup with injury**\
 `The 39-year-old Denmark international has been sidelined this month with a shoulder injury initially sustained last year. `\
 https://nytimes.com/athletic/7127773/2026/03/18/kasper-schmeichel-denmark-celtic-world-cup-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/crosswords/spelling-bee-forum.html
 **Have PSG rediscovered the form that led them to Champions League glory?**\
 `The holders dismantled Chelsea with ease and now have many of their injured players back as they head into the quarter-finals`\
 https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
-
-**This has been Rosenior's real welcome to Chelsea. Where does this extraordinary week leave him?**\
-`From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
-https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/
 

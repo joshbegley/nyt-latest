@@ -1,3 +1,7 @@
+**Stratton Favored to Succeed Durbin After Senate Primary Win in Illinois**\
+`Lt. Gov. Juliana Stratton of Illinois won the Democratic nomination for Senate on Tuesday. She is heavily favored to succeed the retiring Senator Dick Durbin in November.`\
+https://nytimes.com/video/us/elections/100000010786341/illinois-senate-democratic-primary-stratton.html
+
 **'It could be the end of my career': Schmeichel out of World Cup with injury**\
 `The 39-year-old Denmark international has been sidelined this month with a shoulder injury initially sustained last year. `\
 https://nytimes.com/athletic/7127773/2026/03/18/kasper-schmeichel-denmark-celtic-world-cup-injury-update/
