@@ -22,7 +22,7 @@ https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/here
 `Austin Mock publishes his best bets for the First Four and the first round as well as futures bets for the Sweet 16 and on.`\
 https://nytimes.com/athletic/7125555/2026/03/18/march-madness-best-bets-futures-first-four-first-round-final-four/
 
-**The Briefing: Barcelona 7 Newcastle 2 - Champions League contenders, defensive disaster and Raphinha shines**\
+**The Briefing: Barcelona 7 Newcastle 2 – Champions League contenders, defensive disaster and Raphinha shines**\
 `The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
 https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
 
