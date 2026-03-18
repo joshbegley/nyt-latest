@@ -1,3 +1,11 @@
+**'For me it's too much': Sabalenka could skip tournament over criticism**\
+`The world No. 1 said that criticism from the director of the Dubai Tennis Championships over her withdrawal from the event was “ridiculous.”`\
+https://nytimes.com/athletic/7128036/2026/03/18/tennis-aryna-sabalenka-dubai-championships/
+
+**'Does he care?' The question followed Darryn Peterson all year. He answers now**\
+`Darryn Peterson's body struggled to cooperate this season. It turned a potential fairytale into a complex drama. `\
+https://nytimes.com/athletic/7127440/2026/03/18/march-madness-darryn-peterson-kansas-basketball-nba/
+
 **Realistic Canucks rebuild timelines and the next core: Mailbag, part 2**\
 `Plus, which year would be better for the Canucks to have the first-overall selection, 2026 or 2027?`\
 https://nytimes.com/athletic/7120080/2026/03/18/vancouver-canucks-rebuild-draft-timeline-core-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.htm
 **Israel Expands Strikes on Central Beirut**\
 `Israel carried out several strikes on central parts of Beirut, the capital of Lebanon, on Wednesday. The attacks raised fears that areas once considered off limits were no longer safe.`\
 https://nytimes.com/video/world/middleeast/100000010786596/israel-beirut-lebanon-strikes.html
-
-**The Chargers' offseason so far has been a big bet on OC Mike McDaniel**\
-`With the free agency class dwindling, the Chargers have put their chips on the table. Or, truthfully, in the hands of McDaniel.`\
-https://nytimes.com/athletic/7126555/2026/03/18/chargers-offseason-free-agency-mike-mcdaniel/
-
-**Reds' Hunter Greene followed doctor's advice in avoiding surgery last October**\
-`Cincinnati ace likely won't pitch until July after undergoing arthroscopic surgery on his elbow last week.`\
-https://nytimes.com/athletic/7127247/2026/03/18/reds-hunter-greene-surgery/
 
