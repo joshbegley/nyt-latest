@@ -1,3 +1,11 @@
+**FEMA to Relaunch Climate Resiliency Grants, Complying With Court Order**\
+`A judge ruled in December that the agency could not cancel a program that had helped states invest billions of dollars in disaster readiness.`\
+https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
+
+**Bear That Clawed 2 People in California Is Euthanized, Orphaning Its Cubs**\
+`Officials in Monrovia, Calif., had lobbied state wildlife officers to relocate the bear and her two cubs to the Angeles National Forest instead.`\
+https://nytimes.com/2026/03/18/us/bear-euthanized-california-cubs-orphaned.html
+
 **N.Y.C. Teacher Is Accused of Having Child Sex Abuse Images and Meth Pipe**\
 `The teacher, Joseph Taylor McKeel, was arrested Wednesday morning as he was on his way to work.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-teacher-child-sex-abuse.html

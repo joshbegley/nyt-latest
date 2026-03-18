@@ -1,3 +1,11 @@
+**FEMA to Relaunch Climate Resiliency Grants, Complying With Court Order**\
+`A judge ruled in December that the agency could not cancel a program that had helped states invest billions of dollars in disaster readiness.`\
+https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
+
+**Bear That Clawed 2 People in California Is Euthanized, Orphaning Its Cubs**\
+`Officials in Monrovia, Calif., had lobbied state wildlife officers to relocate the bear and her two cubs to the Angeles National Forest instead.`\
+https://nytimes.com/2026/03/18/us/bear-euthanized-california-cubs-orphaned.html
+
 **N.Y.C. Teacher Is Accused of Having Child Sex Abuse Images and Meth Pipe**\
 `The teacher, Joseph Taylor McKeel, was arrested Wednesday morning as he was on his way to work.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-teacher-child-sex-abuse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7129186/2026/03/18/champions-league-quarter-final-b
 **On Iran, Gabbard Turned Intelligence Duties Over to Trump**\
 `Tulsi Gabbard, the director of national intelligence, was left to square the president’s comments about an imminent nuclear threat from Iran with a letter from one of her trusted aides.`\
 https://nytimes.com/2026/03/18/us/politics/tulsi-gabbard-iran-trump.html
-
-**Following Trump, Republicans in Congress Propose to Ban Most Voting by Mail**\
-`A restrictive voter I.D. bill under consideration in the Senate could severely limit mail-in voting. Conservatives are pressing to end the practice outright, taking aim at an option that is widely used by voters.`\
-https://nytimes.com/2026/03/18/us/politics/trump-republicans-ban-mail-voting.html
-
-**Finally, Phillies' Andrew Painter is on the verge of the big leagues — and it shows**\
-`The Phillies have not set the rotation, but Painter will be in it. He looks ready for the challenge. Wednesday, he reached a different gear.`\
-https://nytimes.com/athletic/7129373/2026/03/18/andrew-painter-phillies-mlb-debut-2026/
 
