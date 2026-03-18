@@ -2,7 +2,7 @@
 `In Barrie’s 13 years at ESPN, he has been a college football host, play-by-play announcer, "SportsCenter" anchor and more.`\
 https://nytimes.com/athletic/7128510/2026/03/18/sec-nation-host-matt-barrie-laura-rutledge/
 
-**WADA, after disputed Trump Olympic ban report, delays discussion until after World Cup**\
+**WADA, after disputed Trump Olympic ban report, delays discussion on unpaid dues**\
 `WADA said it will revisit the discussion at the executive committee's next meeting in Serbia in September.`\
 https://nytimes.com/athletic/7128189/2026/03/18/wada-report-trump-la-olympics-ban-delay-world-cup/
 
