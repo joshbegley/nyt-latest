@@ -1,3 +1,19 @@
+**Ukko-Pekka Luukkonen stands out, Buffalo ties for East lead: Sabres thoughts**\
+`Buffalo made another statement Tuesday night in Las Vegas, tying the Carolina Hurricanes atop the Eastern Conference.`\
+https://nytimes.com/athletic/7127684/2026/03/18/sabres-ukko-pekka-luukkonen-win-golden-knights/
+
+**Pritzker’s Gamble to Become a Kingmaker in Illinois Pays Off**\
+`Gov. JB Pritzker invested capital, both political and the more traditional kind, in the Senate race of his lieutenant governor, Juliana Stratton. Her victory could help them both.`\
+https://nytimes.com/2026/03/18/us/elections/jb-pritzker-juliana-stratton.html
+
+**Phillies notes: Adolis García's new stance, roster decisions loom, Dante Nori's WBC**\
+`Team officials held a roster meeting Tuesday, and Orion Kerkering's status affects things. Here's where the bullpen and bench battles stand.`\
+https://nytimes.com/athletic/7126733/2026/03/18/phillies-adolis-garcia-opening-day-roster/
+
+**Chiefs mailbag: Does Rueben Bain Jr. or Jeremiyah Love fit K.C.'s draft plans?**\
+`Here's what Chiefs fans should expect to change from the team's offense under coach Andy Reid in the 2026 season.`\
+https://nytimes.com/athletic/7125656/2026/03/18/chiefs-mailbag-nfl-draft-plans/
+
 **Cowboys projected depth chart: Why 3 positions remain biggest needs**\
 `The Cowboys filled some holes in free agency, but several still exist defensively.`\
 https://nytimes.com/athletic/7126851/2026/03/18/cowboys-depth-chart-free-agency-2026/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7127018/2026/03/18/cameron-young-players-mental-ski
 **How Bo Groulx became a late-season surprise for the Maple Leafs**\
 `Groulx has become a story in Toronto, raising questions about his future with the organization and the role of the Marlies with the Leafs.`\
 https://nytimes.com/athletic/7125825/2026/03/18/maple-leafs-bo-groulx-season-nhl-marlies/
-
-**As injury-riddled 76ers near playoffs, what are their best- and worst-case scenarios?**\
-`Philadelphia remains one of the Eastern Conference's most volatile and confusing teams as near the postseason.`\
-https://nytimes.com/athletic/7127206/2026/03/18/76ers-playoffs-scenarios-joel-embiid-nba/
-
-**Mavericks haven't been this bad on offense since the '90s. 3 things going wrong**\
-`The Mavericks entered the season with high hopes. They now statistically own one of the NBA's worst offenses. What's the explanation?`\
-https://nytimes.com/athletic/7126201/2026/03/18/mavericks-offense-struggle-nba-observations/
-
-**2026 NHL prospect pool rankings: No. 23 Minnesota Wild**\
-`The Wild's pool looks a lot different today than it has in recent years after high-profile graduations and trades.`\
-https://nytimes.com/athletic/6970413/2026/03/18/minnesota-wild-nhl-prospect-rankings-2026/
-
-**How to watch men’s March Madness First Four: Miami (OH)-SMU, PVAMU-Lehigh on Day 2**\
-`March Madness continues in Dayton with Day 2 of the First Four, featuring Prairie View A&M-Lehigh and Miami (OH)-SMU. Here's how to watch. `\
-https://nytimes.com/athletic/7126510/2026/03/18/march-madness-first-four-miami-ohio-tv-odds/
 

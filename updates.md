@@ -1,3 +1,11 @@
+**Cowboys projected depth chart: Why 3 positions remain biggest needs**\
+`The Cowboys filled some holes in free agency, but several still exist defensively.`\
+https://nytimes.com/athletic/7126851/2026/03/18/cowboys-depth-chart-free-agency-2026/
+
+**'Good point for us': Bruins head home in a playoff spot after second straight OT loss**\
+`The Bruins return from a trip with a respectable 4 points of 6.`\
+https://nytimes.com/athletic/7127350/2026/03/18/bruins-overtime-loss-peeke-goal-defense-canadiens/
+
 **Kent Hughes on Canadiens' roller coaster, his mystery target at the deadline, more**\
 `The Canadiens general manager says his inactivity at the trade deadline "wasn’t for a lack of trying."`\
 https://nytimes.com/athletic/7126079/2026/03/18/kent-hughes-canadiens-trade-deadline/
