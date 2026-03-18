@@ -1,3 +1,7 @@
+**Israel Kills Another Top Iranian Official as Tehran Retaliates**\
+`An Israeli airstrike killed Iran’s intelligence minister, continuing its targeting of high-ranking officials. In retaliation for the killings of two other top officials the day before, Iran launched missile attacks that killed two people outside Tel Aviv.`\
+https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmaeil-khatib-killed.html
+
 **How to watch Lakers vs. Rockets: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129088/2026/03/18/lakers-vs-rockets-stream-how-to-watch-march-18/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/us/cesar-chavez-texas-farmworker-uprising-labor.h
 **GM meetings: Bettman defiant about playoff format, goalie interference debate gets testy**\
 `This week’s three-day NHL general manager meetings wrapped up on Wednesday in South Florida.`\
 https://nytimes.com/athletic/7128497/2026/03/18/nhl-gm-meetings-gary-bettman-playoffs-goalie-interference/
-
-**Giannis, Bucks at odds over whether star should finish the season: Sources**\
-`The Bucks believe it would benefit Antetokounmpo to sit out the team's 14 remaining games, but he wants to play, per league sources.`\
-https://nytimes.com/athletic/7128193/2026/03/18/giannis-antetokounmpo-bucks-injury-playing-time-nba/
 
