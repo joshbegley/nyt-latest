@@ -1,3 +1,19 @@
+**Xavi Espart is Barcelona's new La Masia star, compared to Philipp Lahm by Hansi Flick**\
+`The 18-year-old right-back made his Barca debut in last week's Champions League trip to Newcastle`\
+https://nytimes.com/athletic/7127680/2026/03/18/barcelona-la-masia-espart-flick-lahm/
+
+**Here’s the latest.**\
+`By Lisa Lerer`\
+https://nytimes.com/live/2026/03/18/us/illinois-election-primary-midterms/heres-the-latest
+
+**Election Live Updates: Stratton Calls to ‘Abolish ICE’ After Illinois Primary Win**\
+`Lt. Gov. Juliana Stratton, heavily favored to succeed Senator Richard J. Durbin, heads a group of Democrats in deep-blue Illinois aiming to take over for party mainstays.`\
+https://nytimes.com/live/2026/03/18/us/illinois-election-primary-midterms
+
+**What's next for the WNBA after reaching a historic CBA deal?**\
+`Now that a deal is made, the WNBA must harness momentum and stick to a rapid schedule.`\
+https://nytimes.com/athletic/7126514/2026/03/18/whats-next-wnba-cba-deal/
+
 **Colts mailbag: Where will they find an impact edge rusher? Should they sign a veteran QB?**\
 `When will the Colts move Anthony Richardson Sr.? What are newcomer Colby Wooden's strengths? Where's the "urgency"? `\
 https://nytimes.com/athletic/7126713/2026/03/18/colts-mailbag-edge-rusher-veteran-qb/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7126483/2026/03/18/new-york-giants-mock-draft-post-
 **God, NIL and AJ Dybantsa: BYU's unlikely rise as a college basketball power**\
 `AJ Dybantsa's one and only March Madness run signifies something bigger at BYU. `\
 https://nytimes.com/athletic/7127115/2026/03/18/ncaa-tournament-march-madness-byu-money-aj-dybantsa/
-
-**Quietly, methodically, Jets GM Darren Mougey is having a moment**\
-`He isn't delivering wins yet, but the trade-happy exec is winning on the roster-building margins.`\
-https://nytimes.com/athletic/7127047/2026/03/18/darren-mougey-jets-gm-free-agency-trades/
-
-**Venezuela's historic WBC title fueled by power, pitching — and passion**\
-`Emotional scenes and joyful tears punctuated Venezuela's unlikely WBC championship: "We feel the jersey. We feel our country."`\
-https://nytimes.com/athletic/7127546/2026/03/18/venezuela-mlb-wbc-championship-emotion/
-
-**What is the Steelers' plan at quarterback if Aaron Rodgers retires?: Mailbag**\
-`Plus, realistic draft targets, and one big difference between Mike McCarthy and Mike Tomlin so far.`\
-https://nytimes.com/athletic/7127363/2026/03/18/steelers-mailbag-aaron-rodgers-qb-options/
-
-**MLB Hope-O-Meter fan survey: How are you feeling about your favorite team in 2026?**\
-`We want to know how you feel about your team. Pull no punches. Or, indulge your barely-hidden glee. `\
-https://nytimes.com/athletic/7125654/2026/03/18/mlb-optimism-favorite-team-2026/
 
