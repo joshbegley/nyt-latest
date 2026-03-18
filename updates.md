@@ -1,3 +1,7 @@
+**Toni Preckwinkle, Longtime Chicago Democrat, Holds Off Moderate Challenger**\
+`Ms. Preckwinkle has been president of the Cook County Board for four terms. Brendan Reilly, a member of the Chicago City Council, mounted a challenge to her right in a Democratic primary.`\
+https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois.html
+
 **Don Tracy Wins Republican Senate Primary in Illinois**\
 `The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
