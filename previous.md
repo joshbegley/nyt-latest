@@ -1,3 +1,31 @@
+**No football experience? No problem: Colts sign ex-Notre Dame basketball player**\
+`The Colts are giving Towt a chance to play tight end because he's a good athlete with promising ball skills and he's a low-risk addition.`\
+https://nytimes.com/athletic/7128936/2026/03/18/colts-carson-towt-notre-dame-basketball/
+
+**Can the Democrats Become the Party of the People Again?**\
+`The Democratic Party is pulling in a populist direction. But not all populisms are equal.`\
+https://nytimes.com/2026/03/18/opinion/democrats-populism-inequality.html
+
+**The Tropical St. Patrick’s Day That Honors African History**\
+`Montserrat treats the holiday as both a national celebration and a more somber milestone: a commemoration of a failed slave rebellion.`\
+https://nytimes.com/2026/03/18/world/americas/montserrat-st-patricks-day.html
+
+**Trump’s Homeland Security Pick Says He’d End Policy That Slowed Disaster Aid**\
+`The president’s nominee, Markwayne Mullin, said he would avoid “micromanaging” FEMA.`\
+https://nytimes.com/2026/03/18/climate/mullin-fema-noem-delays.html
+
+**F.D.A. Investigates 7 E. Coli Illnesses as Raw Dairy Farm Denies Any Link**\
+`The outbreak has sickened people in California, Texas and Florida. The agency said Cheddar cheese products from Raw Farm are “the likely source,” but the company denies it and has not recalled them.`\
+https://nytimes.com/2026/03/18/us/fda-e-coli-raw-milk-cheese-california.html
+
+**Cesar Chavez Helped Spark a Texas Farmworker Uprising**\
+`Farmworkers in Texas took cues from strikes Chavez helped lead in California to demand better pay and more rights.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-texas-farmworker-uprising-labor.html
+
+**GM meetings: Bettman defiant about playoff format, goalie interference debate gets testy**\
+`This week’s three-day NHL general manager meetings wrapped up on Wednesday in South Florida.`\
+https://nytimes.com/athletic/7128497/2026/03/18/nhl-gm-meetings-gary-bettman-playoffs-goalie-interference/
+
 **Giannis, Bucks at odds over whether star should finish the season: Sources**\
 `The Bucks believe it would benefit Antetokounmpo to sit out the team's 14 remaining games, but he wants to play, per league sources.`\
 https://nytimes.com/athletic/7128193/2026/03/18/giannis-antetokounmpo-bucks-injury-playing-time-nba/
@@ -9,32 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/tulsi-gabbard-senate-testimony-i
 **Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
-
-**Retired Belgian Diplomat, 93, Faces Trial Over 1961 Killing of Congolese Leader**\
-`A Brussels court ruled that Étienne Davignon must stand trial for the murder of Patrice Lumumba, the first prime minister of the Democratic Republic of Congo.`\
-https://nytimes.com/2026/03/18/world/europe/belgium-congo-lumumba-trial.html
-
-**Tracking Tropical Cyclone Narelle**\
-`See the likely path and wind arrival times for Narelle`\
-https://nytimes.com/interactive/2026/03/18/weather/narelle-map-path-tracker.html
-
-**At SXSW, ‘Sparks’ Was Flying High**\
-`Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
-https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html
-
-**Bob Motzko won't return as University of Minnesota men's hockey coach: Sources**\
-`Motzko, 64, helped re-establish the hockey program in his eight seasons. His career record with the Gophers was 172-104-24.`\
-https://nytimes.com/athletic/7128828/2026/03/18/bob-motzko-university-minnesota-gophers-mens-hockey-coach/
-
-**Alvin Greene, a No-Show Senate Nominee Who Won Primary, Dies at 48**\
-`He made no effort to campaign but won the South Carolina Democratic primary in 2010, becoming the state’s first Black major-party nominee for Senate.`\
-https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
-
-**Top prospect Harry Ford, a key offseason acquisition, among Nationals' latest cuts**\
-`Ford was acquired from the Mariners. He'll start the year in Triple A but could still factor heavily in the catching plans later this year.`\
-https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
-
-**A Cafe on the Edge of Destruction**\
-`Near the center of Beirut, one image captures the aftermath of an Israeli strike.`\
-https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
 

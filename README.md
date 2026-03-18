@@ -1,3 +1,11 @@
+**How to watch Lakers vs. Rockets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7129088/2026/03/18/lakers-vs-rockets-stream-how-to-watch-march-18/
+
+**McNeese State's viral student manager Amir Khan is back for March Madness**\
+`In 2025, Khan led McNeese State's men's basketball team out of the locker room while performing rap songs and carrying a massive boombox.`\
+https://nytimes.com/athletic/7121481/2026/03/18/mcneese-state-viral-student-manager-amir-aura-khan-march-madness/
+
 **No football experience? No problem: Colts sign ex-Notre Dame basketball player**\
 `The Colts are giving Towt a chance to play tight end because he's a good athlete with promising ball skills and he's a low-risk addition.`\
 https://nytimes.com/athletic/7128936/2026/03/18/colts-carson-towt-notre-dame-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128497/2026/03/18/nhl-gm-meetings-gary-bettman-pla
 **Giannis, Bucks at odds over whether star should finish the season: Sources**\
 `The Bucks believe it would benefit Antetokounmpo to sit out the team's 14 remaining games, but he wants to play, per league sources.`\
 https://nytimes.com/athletic/7128193/2026/03/18/giannis-antetokounmpo-bucks-injury-playing-time-nba/
-
-**U.S. Intelligence Saw No Change in Iran’s Missile Capabilities Before War**\
-`On Wednesday, the director of national intelligence and C.I.A. director contradicted one of the justifications the Trump administration had given for its attacks on Iran.`\
-https://nytimes.com/2026/03/18/world/middleeast/tulsi-gabbard-senate-testimony-iran-war.html
-
-**Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
 
