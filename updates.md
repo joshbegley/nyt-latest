@@ -1,3 +1,7 @@
+**Al Hilal targeting Liverpool’s Hughes for sporting director role**\
+`The former Scotland midfielder was widely credited with playing a key role in Liverpool’s Premier League title win last season.`\
+https://nytimes.com/athletic/7128078/2026/03/18/richard-hughes-liverpool-al-hilal/
+
 **Trump Administration Live Updates: Homeland Security Pick to Face Confirmation Hearing**\
 ``\
 https://nytimes.com/live/2026/03/18/us/trump-news

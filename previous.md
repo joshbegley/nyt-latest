@@ -1,3 +1,7 @@
+**Al Hilal targeting Liverpool’s Hughes for sporting director role**\
+`The former Scotland midfielder was widely credited with playing a key role in Liverpool’s Premier League title win last season.`\
+https://nytimes.com/athletic/7128078/2026/03/18/richard-hughes-liverpool-al-hilal/
+
 **Trump Administration Live Updates: Homeland Security Pick to Face Confirmation Hearing**\
 ``\
 https://nytimes.com/live/2026/03/18/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/ukrainian-experts-in-middle-east
 **TAFC: Senegal's AFCON win voided after 57 days. Plus: Trophyless season for Guardiola?**\
 `Today in TAFC: The fallout from CAF's decision to award the AFCON title to Morocco. Plus: Iran's Mexico possibility, and trophyless Pep?`\
 https://nytimes.com/athletic/7127846/2026/03/18/afcon-void-senegal-morocco/
-
-**Rosenthal: Bryce Harper met the moment at WBC, but a title yet again proved elusive**\
-`Harper's actions before, during and after the WBC final against Venezuela showed his understanding of his place in the game.`\
-https://nytimes.com/athletic/7127918/2026/03/18/bryce-harper-world-baseball-classic-team-usa/
 
