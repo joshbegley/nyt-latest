@@ -1,3 +1,11 @@
+**California Heat Wave Brings High Temperatures During Winter**\
+`Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
+https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html
+
+**Empowering Iran’s Hard-liners**\
+`U.S.-Israeli attacks helped ultraconservatives cement power. That could make ending the war tougher.`\
+https://nytimes.com/2026/03/18/world/iran-leadership-larijani-israel-beirut.html
+
 **How the Giants could draw inspiration from Team Venezuela's win**\
 `There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
 https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
