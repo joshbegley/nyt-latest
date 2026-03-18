@@ -1,3 +1,15 @@
+**Year After Trump Takeover, Institute of Peace Is Little More Than Scenery**\
+`As a lawsuit by the former staff drags on, the fight highlights President Trump’s upending of traditional peace-building and the lasting effects of his administration’s cost-cutting blitz.`\
+https://nytimes.com/2026/03/17/us/politics/institute-of-peace-trump.html
+
+**Here’s What Happened in the War in the Middle East on Tuesday**\
+`The deaths of two top Iranian officials were announced on Tuesday, while President Trump once again lashed out at NATO allies who refused to aid the U.S. war effort against Iran.`\
+https://nytimes.com/2026/03/17/world/middleeast/iran-war-israel-middle-east-recap.html
+
+**‘Ulster American’ Review: Matthew Broderick as a Star Blinded by Privilege**\
+`David Ireland’s satire follows a Hollywood actor whose cluelessness leads to a combustible confrontation.`\
+https://nytimes.com/2026/03/17/theater/ulster-american-review-matthew-broderick.html
+
 **Counties to Watch in the Illinois Democratic Senate Primary**\
 `There is more to the state than Chicago and its suburbs, even if that area makes up a large majority of the vote.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-key-counties.html
