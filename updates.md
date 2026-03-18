@@ -1,3 +1,7 @@
+**Jessie Holmes, former reality TV star, wins second Iditarod championship**\
+`Holmes became the sixth musher to win consecutive Iditarod championships after traveling for nine days across the 975-mile Alaskan course.`\
+https://nytimes.com/athletic/7128256/2026/03/18/iditarod-race-winner-jessie-holmes/
+
 **Hot spring hitters on the rise in fantasy baseball: Luke Keaschall, Sal Stewart and more**\
 `Owen Poindexter looks at some hot hitters this spring who have boosted their fantasy baseball draft stock.`\
 https://nytimes.com/athletic/7127595/2026/03/18/fantasy-baseball-hot-hitters-spring-late-round-buys/
