@@ -1,3 +1,7 @@
+**Over 200 Ukrainian Experts in Middle East to Help Fight Drones, Zelensky Says**\
+`President Volodymyr Zelensky said that 11 countries in the region have asked for Kyiv’s assistance. Russia has launched such drones against Ukraine for years.`\
+https://nytimes.com/2026/03/18/world/middleeast/ukrainian-experts-in-middle-east-fight-drones.html
+
 **TAFC: Senegal's AFCON win voided after 57 days. Plus: Trophyless season for Guardiola?**\
 `Today in TAFC: The fallout from CAF's decision to award the AFCON title to Morocco. Plus: Iran's Mexico possibility, and trophyless Pep?`\
 https://nytimes.com/athletic/7127846/2026/03/18/afcon-void-senegal-morocco/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7127597/2026/03/18/ncaa-tournament-march-madness-me
 **Recruiting revisited: Re-ranking the top players by position in the 2024 cycle**\
 `Who's been the top QB, Julian Sayin or CJ Carr? Who gets the nod at running back? Can anyone come close to Jeremiah Smith at wide receiver?`\
 https://nytimes.com/athletic/7125158/2026/03/18/college-football-recruiting-ranking-2024-cj-carr-julian-sayin/
-
-**I was in Senegal for AFCON celebrations - they will always view themselves as champions**\
-`The decision to award the AFCON title to Morocco matters little - Senegalese' celebrations live long in the memory and will not be tarnished`\
-https://nytimes.com/athletic/7127838/2026/03/18/senegal-afcon-morocco-champions-appeal/
 
