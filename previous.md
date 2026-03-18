@@ -1,9 +1,14 @@
+**The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
+
 **Senegal's government calls for investigation after AFCON title removed**\
 `The Government of Senegal expressed "deep dismay" at the "unlawful" decision and promised to pursue legal action.`\
 https://nytimes.com/athletic/7127959/2026/03/18/senegal-government-afcon-title-morocco/
 
 **Israel Says It Killed Iran’s Intelligence Minister**\
-`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran did not immediately comment.`\
+`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran confirmed the killing.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
 
 **Arsenal's transitions are hard to handle - just ask Bayer Leverkusen**\
@@ -29,8 +34,4 @@ https://nytimes.com/2026/03/18/us/politics/what-happened-illinois-election.html
 **Did you enjoy the Charles Barkley-Dick Vitale First Four TV experience?**\
 `The highly anticipated pairing left some fans wanting more analysis, less schtick. What did you think? Take a quick poll.`\
 https://nytimes.com/athletic/7128286/2026/03/18/charles-barkley-dick-vitale-first-four-tv/
-
-**How Alvaro Arbeloa changed Xabi Alonso's Real Madrid - and what it means for his future**\
-`Does Tuesday night's Champions League victory over Manchester City mean the 43-year-old's job is safe?`\
-https://nytimes.com/athletic/7128066/2026/03/18/real-madrid-alvaro-arbeloa-xabi-alonso/
 
