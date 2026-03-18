@@ -1,3 +1,27 @@
+**Weighing the Costs of Corporate Silence**\
+`The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission is said to weigh a rule change. What it could mean for investors is likely to stir debate.`\
+https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.html
+
+**Israel Expands Strikes on Central Beirut**\
+`Israel carried out several strikes on central parts of Beirut, the capital of Lebanon, on Wednesday. The attacks raised fears that areas once considered off limits were no longer safe.`\
+https://nytimes.com/video/world/middleeast/100000010786596/israel-beirut-lebanon-strikes.html
+
+**The Chargers' offseason so far has been a big bet on OC Mike McDaniel**\
+`With the free agency class dwindling, the Chargers have put their chips on the table. Or, truthfully, in the hands of McDaniel.`\
+https://nytimes.com/athletic/7126555/2026/03/18/chargers-offseason-free-agency-mike-mcdaniel/
+
+**Reds' Hunter Greene followed doctor's advice in avoiding surgery last October**\
+`Cincinnati ace likely won't pitch until July after undergoing arthroscopic surgery on his elbow last week.`\
+https://nytimes.com/athletic/7127247/2026/03/18/reds-hunter-greene-surgery/
+
+**'They were awesome to me': Flyers' Trevor Zegras looks forward to seeing Ducks fans again**\
+`Both Zegras and the Ducks have moved on since the 2019 first-round draft pick was traded to the Flyers. Both sides have prospered.`\
+https://nytimes.com/athletic/7127518/2026/03/18/flyers-trevor-zegras-looking-forward-to-seeing-ducks-fans-again-they-were-awesome-to-me/
+
+**Texas Rangers 2026 watch guide: Broadcast info for regional and national games**\
+`Here's how to watch Wyatt Langford, Evan Carter and the Texas Rangers across their 2026 schedule.`\
+https://nytimes.com/athletic/7123369/2026/03/18/texas-rangers-tv-schedule-streaming-langford-nimmo-2026/
+
 **Over 200 Ukrainian Experts in Middle East to Help Fight Drones, Zelensky Says**\
 `President Volodymyr Zelensky said that 11 countries in the region have asked for Kyiv’s assistance. Russia has launched such drones against Ukraine for years.`\
 https://nytimes.com/2026/03/18/world/middleeast/ukrainian-experts-in-middle-east-fight-drones.html
@@ -13,29 +37,4 @@ https://nytimes.com/athletic/7127918/2026/03/18/bryce-harper-world-baseball-clas
 **Should the Jets try to make playoffs or embrace the draft? A debate with myself**\
 `To tank, or not to tank? That certainly is the question, with the Jets and their fans pulled between two imperfect possibilities.`\
 https://nytimes.com/athletic/7126472/2026/03/18/winnipeg-jets-playoffs-chase-draft-tanking/
-
-**What I'm hearing with less than a week left in Red Sox camp: Triston Casas, Danny Coulombe**\
-`Matt Thaiss has an upward mobility clause and Boston will need to make a decision about him soon. Plus, Jarren Duran's new outlook and more.`\
-https://nytimes.com/athletic/7125953/2026/03/18/red-sox-spring-training-updates-triston-casas/
-
-**After looking in the mirror, Deandre Ayton is ‘110 percent’ bought in for the Lakers**\
-`Less scoring, more impact and a renewed focus is changing everything for the former No. 1 pick. 
-`\
-https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
-
-**A Jayson Tatum-Tom Brady comparison? Here’s one that’s hard to ignore**\
-`Brady’s '09 return from injury turned the Patriots back into a championship-caliber team, and Tatum has done the same for the Celtics.`\
-https://nytimes.com/athletic/7124502/2026/03/18/jayson-tatum-celtics-championship-contenders-tom-brady/
-
-**Remembering the 1940 Rangers: Frank Boucher takes over as coach for New York's third title**\
-`The Rangers, under the guidance of their second head coach, redefined how hockey teams kill penalties en route to a Stanley Cup.`\
-https://nytimes.com/athletic/7126700/2026/03/18/new-york-rangers-1940-stanley-cup-centennial-season/
-
-**The Athletic's men's NCAA Tournament staff picks: Consensus bracket, bold predictions**\
-`Arizona was the national championship pick for 14 of the 28 writers and editors we surveyed this week.`\
-https://nytimes.com/athletic/7127597/2026/03/18/ncaa-tournament-march-madness-mens-consensus-predictions-bracket/
-
-**Recruiting revisited: Re-ranking the top players by position in the 2024 cycle**\
-`Who's been the top QB, Julian Sayin or CJ Carr? Who gets the nod at running back? Can anyone come close to Jeremiah Smith at wide receiver?`\
-https://nytimes.com/athletic/7125158/2026/03/18/college-football-recruiting-ranking-2024-cj-carr-julian-sayin/
 
