@@ -1,5 +1,9 @@
+**Counties to Watch in the Illinois Democratic Senate Primary**\
+`There is more to the state than Chicago and its suburbs, even if that area makes up a large majority of the vote.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-key-counties.html
+
 **Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
-`Under the circumstances, Cubs manager Craig Counsell said Tuesday, “We got good news.”`\
+`Cubs manager Craig Counsell said Tuesday, “We got good news,” after MRI on outfielder's knee reveals sprain.`\
 https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
 
 **In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**\
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/politics/trump-iran-nuclear-fuel.html
 **Fernandez casts doubt on Chelsea future after PSG loss**\
 `The 25-year-old's contract runs until 2032.`\
 https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-contract/
-
-**Reds to start season with 6 pitchers in 5-man rotation**\
-`Pitchers Chase Burns, Rhett Lowder and Brandon Williamson were told Tuesday they had made the team coming out of spring.`\
-https://nytimes.com/athletic/7126859/2026/03/17/reds-rotation-6-pitchers-5-spots/
 

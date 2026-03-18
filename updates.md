@@ -1,3 +1,11 @@
+**Counties to Watch in the Illinois Democratic Senate Primary**\
+`There is more to the state than Chicago and its suburbs, even if that area makes up a large majority of the vote.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-key-counties.html
+
+**Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
+`Cubs manager Craig Counsell said Tuesday, “We got good news,” after MRI on outfielder's knee reveals sprain.`\
+https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
+
 **Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
 `Under the circumstances, Cubs manager Craig Counsell said Tuesday, “We got good news.”`\
 https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
