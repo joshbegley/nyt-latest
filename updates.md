@@ -1,3 +1,7 @@
+**Israel Says It Killed Iran’s Intelligence Minister**\
+`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran did not immediately comment.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
+
 **Arsenal's transitions are hard to handle - just ask Bayer Leverkusen**\
 `Knowing Mikel Arteta's side have become a dangerous threat on the transition is one thing. Stopping it is another`\
 https://nytimes.com/athletic/7127756/2026/03/18/arsenal-transition-champions-league-leverkusen-arteta/

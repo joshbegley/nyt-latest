@@ -1,3 +1,7 @@
+**Israel Says It Killed Iran’s Intelligence Minister**\
+`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran did not immediately comment.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
+
 **Arsenal's transitions are hard to handle - just ask Bayer Leverkusen**\
 `Knowing Mikel Arteta's side have become a dangerous threat on the transition is one thing. Stopping it is another`\
 https://nytimes.com/athletic/7127756/2026/03/18/arsenal-transition-champions-league-leverkusen-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7126877/2026/03/18/march-madness-nba-draft-seniors/
 **Corrections: March 18, 2026**\
 `Corrections that appeared in print on Wednesday, March 18, 2026.`\
 https://nytimes.com/2026/03/18/pageoneplus/corrections-march-18-2026.html
-
-**'For me it's too much': Sabalenka could skip tournament over criticism**\
-`The world No. 1 said that criticism from the director of the Dubai Tennis Championships over her withdrawal from the event was “ridiculous.”`\
-https://nytimes.com/athletic/7128036/2026/03/18/tennis-aryna-sabalenka-dubai-championships/
 
