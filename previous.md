@@ -1,3 +1,11 @@
+**Strange Filip Gustavsson exit doesn't deter a slump-busting Wild OT win: Takeaways**\
+`Minnesota had lost four of its last five heading into the team's St. Patrick's Day showdown and it found a way to win 4-3 against Chicago.`\
+https://nytimes.com/athletic/7127436/2026/03/18/wild-blackhawks-filip-gustavsson-ot-win/
+
+**Connections: Sports Edition Coach: Hints and answers for March 18, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7127551/2026/03/18/connections-sports-edition-hints-answers-march-18-2026/
+
 **Trump Promised the ‘World’s Lowest’ Drug Prices. We Checked the Numbers.**\
 `The TrumpRx website claims to offer the best prices for medications. Here’s where Americans still pay more — and much more.`\
 https://nytimes.com/2026/03/18/world/europe/trumprx-drug-prices-really-cheapest-world-comparison.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7127169/2026/03/17/blackhawks-defense-young-prospec
 **Anthony Edwards, Obama promo shows Edwards' unmatched potential as NBA's comedic voice**\
 `Whether Edwards likes it or not, he’s the kind of player the league can market to the masses.`\
 https://nytimes.com/athletic/7127245/2026/03/17/anthony-edwards-barack-obama-commercial-presidential-center/
-
-**This is what happened on March 17.**\
-`(No description)`\
-https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-17
-
-**Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
-`LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
-https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/
 

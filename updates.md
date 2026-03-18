@@ -1,3 +1,11 @@
+**Strange Filip Gustavsson exit doesn't deter a slump-busting Wild OT win: Takeaways**\
+`Minnesota had lost four of its last five heading into the team's St. Patrick's Day showdown and it found a way to win 4-3 against Chicago.`\
+https://nytimes.com/athletic/7127436/2026/03/18/wild-blackhawks-filip-gustavsson-ot-win/
+
+**Connections: Sports Edition Coach: Hints and answers for March 18, 2026**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/7127551/2026/03/18/connections-sports-edition-hints-answers-march-18-2026/
+
 **Trump Promised the ‘World’s Lowest’ Drug Prices. We Checked the Numbers.**\
 `The TrumpRx website claims to offer the best prices for medications. Here’s where Americans still pay more — and much more.`\
 https://nytimes.com/2026/03/18/world/europe/trumprx-drug-prices-really-cheapest-world-comparison.html
