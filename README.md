@@ -1,3 +1,7 @@
+**Powell Says He Will Remain as Fed Chair Until Successor Is Confirmed**\
+`Jerome H. Powell, who leads the central bank, also said he would not leave the Fed until a criminal investigation into his handling of renovations was over.`\
+https://nytimes.com/2026/03/18/business/economy/fed-chair-powell-warsh-trump.html
+
 **He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
 `The police say a man tried to rob six Chase branches in five days and netted a total of $605. In three of the robbery attempts, he left empty-handed.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
@@ -14,7 +18,7 @@ https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.ht
 `Our national security reporter David E. Sanger describes how President Trump is considering a risky commando operation at an Iranian nuclear site.`\
 https://nytimes.com/video/world/middleeast/100000010785078/why-trump-keeps-saying-nuclear.html
 
-**Omar López shined as Team Venezuela manager, showing he can 'lead on a big stage'**\
+**Omar López shined as Venezuela's manager, showing he can 'lead on a big stage'**\
 `López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
 https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010787572/why-is-nba-youngboy-on-a-nett
 **The Good List: 6 Things to Add Delight to Your Day**\
 `Peony tulips, transcendent eye contact and a new game from the creator of Wordle.`\
 https://nytimes.com/2026/03/18/briefing/the-good-list-6-things-to-add-delight-to-your-day.html
-
-**World Cup 2026: U.S. host cities awarded $625m in security funding after delay**\
-`The funding, awarded by the Federal Emergency Management Agency, was held up following a partisan row over the partial DHS shutdown.`\
-https://nytimes.com/athletic/7129095/2026/03/18/fema-funding-world-cup-host-cities-dhs/
 
