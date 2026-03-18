@@ -1,3 +1,11 @@
+**Sports card lessons learned from Bam Adebayo's 83-point performance**\
+`Interest in Adebayo's basketball cards skyrocketed after he scored 83 points in a game, but now it's come back down almost as quickly`\
+https://nytimes.com/athletic/7128409/2026/03/18/bam-adebayo-cards-83-points/
+
+**How to watch Richmond vs. Nebraska women's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Richmond Spiders play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128560/2026/03/18/richmond-vs-nebraska-stream-how-to-watch-march-18/
+
 **Maybe It’s a Bad Idea to Fall in Love When You’re Facing Death**\
 `At 61, divorced and living with Stage 4 lung cancer, a writer chooses deep fondness instead.`\
 https://nytimes.com/2026/03/18/well/dating-with-cancer.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7127595/2026/03/18/fantasy-baseball-hot-hitters-spr
 **How to watch Warriors vs. Celtics: Time, TV, streaming**\
 `Find out how to watch the Golden State Warriors play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128470/2026/03/18/warriors-vs-celtics-stream-how-to-watch-march-18/
-
-**Cesar Chavez’s Name Has Been Woven Into America**\
-`There are many streets and boulevards, schools and statues dedicated to the civil rights activist.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-street-statue-california.html
-
-**How Cesar Chavez Became a Labor Hero**\
-`Born into poverty in Arizona, his family was drawn to California’s fields. There, he became a civil rights icon for Mexican Americans.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-labor-farm-union-ufw.html
 
