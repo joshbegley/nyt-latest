@@ -1,3 +1,19 @@
+**Champions League quarter-final bracket and predictions**\
+`The Champions League is heading into the quarter-final stage after the end of the last-16 round on Wednesday night`\
+https://nytimes.com/athletic/7129186/2026/03/18/champions-league-quarter-final-bracket-predictions/
+
+**What’s a Threat? Gabbard Says It’s Up to Trump.**\
+`Tulsi Gabbard was left to square the president’s comments about an imminent nuclear threat from Iran with a letter from one of her trusted aides.`\
+https://nytimes.com/2026/03/18/us/politics/tulsi-gabbard-iran-trump.html
+
+**Following Trump, Republicans in Congress Propose to Ban Most Voting by Mail**\
+`A restrictive voter I.D. bill under consideration in the Senate could severely limit mail-in voting. Conservatives are pressing to end the practice outright, taking aim at an option that is widely used by voters.`\
+https://nytimes.com/2026/03/18/us/politics/trump-republicans-ban-mail-voting.html
+
+**Finally, Phillies' Andrew Painter is on the verge of the big leagues — and it shows**\
+`The Phillies have not set the rotation, but Painter will be in it. He looks ready for the challenge. Wednesday, he reached a different gear.`\
+https://nytimes.com/athletic/7129373/2026/03/18/andrew-painter-phillies-mlb-debut-2026/
+
 **From Serial Productions: The Idiot**\
 `Compassion has its limits when it comes to your own cousin.`\
 https://nytimes.com/2026/03/18/podcasts/serial-theidiot.html
