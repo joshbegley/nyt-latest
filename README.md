@@ -3,7 +3,7 @@
 https://nytimes.com/2026/03/18/us/nebraska-wildfires-evacuations.html
 
 **For Iranians, Bombing of Gas Field Worsens Already Dire Energy Crisis**\
-`The South Pars gas field is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
+`The South Pars gas field, hit by airstrikes on Wednesday, is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
 https://nytimes.com/2026/03/18/climate/south-pars-iran-gas-field-bombing.html
 
 **For Tschabalala Self, Art Is Romantic**\
