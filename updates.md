@@ -1,3 +1,7 @@
+**The case for Guardiola to stay at Manchester City**\
+`A last-16 Champions League exit to Real Madrid was deflating but this team has shown enough promise for Guardiola to stick around`\
+https://nytimes.com/athletic/7127026/2026/03/18/pep-guardiola-manchester-city-stay-next-season/
+
 **John McGinn, Demi Lovato, and a summer training regime made in the USA**\
 `In the Arizona heat, the Villa midfielder prepared for the season with Natalie Kollars, a PT whose clients range from Disney to the NFL`\
 https://nytimes.com/athletic/7122025/2026/03/18/mcginn-villa-kollars-arizona-incognito-lovato/
