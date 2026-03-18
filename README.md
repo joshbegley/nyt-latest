@@ -1,3 +1,11 @@
+**He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
+`The police say a man tried to rob six Chase branches in five days and netted a total of $605. In three of the robbery attempts, he left empty-handed.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
+
+**Iran Maintains Near-Total Internet Blackout Amid U.S.-Israeli Strikes**\
+`As the war has stretched into its third week, the Iranian government has blocked internet access for most of its 92 million citizens.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-internet-shutdown.html
+
 **In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
 `To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
 https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/briefing/the-good-list-6-things-to-add-delight-to
 **World Cup 2026: U.S. host cities awarded $625m in security funding after delay**\
 `The funding, awarded by the Federal Emergency Management Agency, was held up following a partisan row over the partial DHS shutdown.`\
 https://nytimes.com/athletic/7129095/2026/03/18/fema-funding-world-cup-host-cities-dhs/
-
-**Could Amtrak rail yard sale in the South Loop lead to a new White Sox stadium?**\
-`Justin Ishbia's private equity firm is purchasing land in the South Loop, sparking speculation it could be a site for a future Sox ballpark.`\
-https://nytimes.com/athletic/7129164/2026/03/18/white-sox-justin-ishbia-new-stadium-amtrak-railyard/
-
-**Here are five takeaways from the Federal Reserve meeting.**\
-`By Colby Smith`\
-https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/here-are-five-takeaways-from-the-federal-reserve-meeting
 

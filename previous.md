@@ -1,3 +1,11 @@
+**In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
+`To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
+https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
+
+**Why Trump Keeps Saying ‘Nuclear’**\
+`Our national security reporter David E. Sanger describes how President Trump is considering a risky commando operation at an Iranian nuclear site.`\
+https://nytimes.com/video/world/middleeast/100000010785078/why-trump-keeps-saying-nuclear.html
+
 **Omar López shined as Team Venezuela manager, showing he can 'lead on a big stage'**\
 `López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
 https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7129164/2026/03/18/white-sox-justin-ishbia-new-stad
 **Here are five takeaways from the Federal Reserve meeting.**\
 `By Colby Smith`\
 https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/here-are-five-takeaways-from-the-federal-reserve-meeting
-
-**March Madness best bets for First Four, first round and beyond**\
-`Austin Mock publishes his best bets for the First Four and the first round as well as futures bets for the Sweet 16 and on.`\
-https://nytimes.com/athletic/7125555/2026/03/18/march-madness-best-bets-futures-first-four-first-round-final-four/
-
-**The Briefing: Barcelona 7 Newcastle 2 – Champions League contenders, defensive disaster and Raphinha shines**\
-`The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
-https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
 

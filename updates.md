@@ -1,3 +1,11 @@
+**In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
+`To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
+https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
+
+**Why Trump Keeps Saying ‘Nuclear’**\
+`Our national security reporter David E. Sanger describes how President Trump is considering a risky commando operation at an Iranian nuclear site.`\
+https://nytimes.com/video/world/middleeast/100000010785078/why-trump-keeps-saying-nuclear.html
+
 **Omar López shined as Team Venezuela manager, showing he can 'lead on a big stage'**\
 `López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
 https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
