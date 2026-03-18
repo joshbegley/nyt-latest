@@ -1,5 +1,5 @@
 **Weighing the Costs of Corporate Silence**\
-`The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission weighs a rule change. What it could mean for investors is likely to stir debate.`\
+`The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission is said to weigh a rule change. What it could mean for investors is likely to stir debate.`\
 https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.html
 
 **Israel Expands Strikes on Central Beirut**\
