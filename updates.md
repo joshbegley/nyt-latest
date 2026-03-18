@@ -1,3 +1,7 @@
+**Alvin Greene, a No-Show Senate Nominee Who Won Primary, Dies at 48**\
+`He made no effort to campaign but won the South Carolina Democratic primary in 2010, becoming the state’s first Black major-party nominee for Senate.`\
+https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
+
 **Top prospect Harry Ford, a key offseason acquisition, among Nationals' latest cuts**\
 `Ford was acquired from the Mariners. He'll start the year in Triple A but could still factor heavily in the catching plans later this year.`\
 https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/

@@ -1,3 +1,7 @@
+**Alvin Greene, a No-Show Senate Nominee Who Won Primary, Dies at 48**\
+`He made no effort to campaign but won the South Carolina Democratic primary in 2010, becoming the state’s first Black major-party nominee for Senate.`\
+https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
+
 **Top prospect Harry Ford, a key offseason acquisition, among Nationals' latest cuts**\
 `Ford was acquired from the Mariners. He'll start the year in Triple A but could still factor heavily in the catching plans later this year.`\
 https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128553/2026/03/18/senegal-morocco-cas-afcon-appeal
 **Pakistan Pauses Afghanistan Airstrikes After Outrage Over Civilian Deaths**\
 `At least 143 people were killed in a Pakistani airstrike that hit a drug rehabilitation facility in Kabul on Monday, according to a top U.N. official.`\
 https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabilitation-strikes.html
-
-**Luigi Mangione’s Lawyers Seek to Postpone His Federal Murder Trial**\
-`Lawyers asked a federal judge to move his trial to 2027, to give them time to prepare for a separate state case. Prosecutors are expected to oppose the request.`\
-https://nytimes.com/2026/03/18/nyregion/luigi-mangione-federal-murder-trial-delay.html
 
