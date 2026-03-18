@@ -1,3 +1,11 @@
+**Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
+`Under the circumstances, Cubs manager Craig Counsell said Tuesday, “We got good news.”`\
+https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
+
+**In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**\
+`Chief Petty Officer Shannon Kent was killed in action during a special operations mission in Syria in 2019. Mr. Kent said he could not support “sending the next generation off to fight and die” in Iran.`\
+https://nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html
+
 **NASCAR Truck Series driver Daniel Dye suspended indefinitely for homophobic comments**\
 `Dye apologized to IndyCar's David Malukas in a statement after mocking his voice as "gay." Dye will also undergo sensitivity training.`\
 https://nytimes.com/athletic/7126802/2026/03/17/nascar-daniel-dye-suspended-homophobic-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7126973/2026/03/17/enzo-fernandez-chelsea-future-co
 **Reds to start season with 6 pitchers in 5-man rotation**\
 `Pitchers Chase Burns, Rhett Lowder and Brandon Williamson were told Tuesday they had made the team coming out of spring.`\
 https://nytimes.com/athletic/7126859/2026/03/17/reds-rotation-6-pitchers-5-spots/
-
-**5 Things to Know About Raja Krishnamoorthi**\
-`The congressman, an Ivy League-educated lawyer known for his fund-raising prowess, is aiming to become the second Indian American elected to the Senate.`\
-https://nytimes.com/2026/03/17/us/elections/raja-krishnamoorthi-illinois-democratic-senate-candidate.html
-
-**5 Things to Know About Juliana Stratton**\
-`The lieutenant governor of Illinois, who is running in the Senate Democratic primary, is a close ally of Gov. JB Pritzker who has said ICE should be abolished.`\
-https://nytimes.com/2026/03/17/us/elections/juliana-stratton-illinois-democratic-senate-candidate.html
 
