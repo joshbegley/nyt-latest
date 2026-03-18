@@ -1,3 +1,7 @@
+**World Cup 2026: U.S. host cities awarded $625m in security funding after delay**\
+`The funding, awarded by the Federal Emergency Management Agency, was held up following a partisan row over the partial DHS shutdown.`\
+https://nytimes.com/athletic/7129095/2026/03/18/fema-funding-world-cup-host-cities-dhs/
+
 **Could Amtrak rail yard sale in the South Loop lead to a new White Sox stadium?**\
 `Justin Ishbia's private equity firm is purchasing land in the South Loop, sparking speculation it could be a site for a future Sox ballpark.`\
 https://nytimes.com/athletic/7129164/2026/03/18/white-sox-justin-ishbia-new-stadium-amtrak-railyard/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result
 `The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
 https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
 
-**Child Care Company Agrees to Pause Expansion After N.Y.C. Abuse Case**\
+**Child Care Company Agrees to Pause N.Y.C. Expansion After Abuse Case**\
 `Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
 https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7129141/2026/03/18/flyers-vs-ducks-stream-how-to-wa
 **How to watch Blues vs. Flames: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129130/2026/03/18/blues-vs-flames-stream-how-to-watch-march-18/
-
-**How to watch Stars vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7129128/2026/03/18/stars-vs-avalanche-stream-how-to-watch-march-18/
 
