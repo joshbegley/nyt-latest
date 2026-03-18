@@ -1,3 +1,7 @@
+**Don Tracy Wins Republican Senate Primary in Illinois**\
+`The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
+
 **Darren Bailey Wins Second Chance to Challenge Illinois Gov. JB Pritzker**\
 `Mr. Bailey, a former lawmaker aligned with President Trump, lost to Mr. Pritzker in 2022. Mr. Pritzker had no opposition in a Democratic primary.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/technology/anthropic-pentagon-national-security-r
 **Your Guide to Madrid**\
 `From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
 https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
-
-**Judge Orders Voice of America to Restart All News Operations**\
-`More than 1,000 full-time journalists and support staff at the news group were ordered to return to work by March 23 and to resume broadcasting.`\
-https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html
 

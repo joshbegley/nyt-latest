@@ -1,3 +1,7 @@
+**Darren Bailey Wins Second Chance to Challenge Illinois Gov. JB Pritzker**\
+`Mr. Bailey, a former lawmaker aligned with President Trump, lost to Mr. Pritzker in 2022. Mr. Pritzker had no opposition in a Democratic primary.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary.html
+
 **First Four: Howard tops UMBC for first tournament win, advances to face No. 1 Michigan**\
 `Ose Okojie finished with 23 points, and the Bison beat the Retrievers 86-83 to claim their first NCAA Tournament victory in school history.`\
 https://nytimes.com/athletic/7126887/2026/03/17/mens-march-madness-first-four-umbc-howard-texas-nc-state/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
 **Judge Orders Voice of America to Restart All News Operations**\
 `More than 1,000 full-time journalists and support staff at the news group were ordered to return to work by March 23 and to resume broadcasting.`\
 https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html
-
-**Police Kill Gunman Who Shot Employee at Georgia V.A. Clinic**\
-`The employee’s condition was not immediately disclosed. The Department of Veterans Affairs said the clinic would be closed for the rest of the week, while the authorities investigate.`\
-https://nytimes.com/2026/03/17/us/jasper-va-shooting.html
 
