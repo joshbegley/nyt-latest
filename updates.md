@@ -1,3 +1,11 @@
+**First Four: Howard tops UMBC for first tournament win, advances to face No. 1 Michigan**\
+`Ose Okojie finished with 23 points, and the Bison beat the Retrievers 86-83 to claim their first NCAA Tournament victory in school history.`\
+https://nytimes.com/athletic/7126887/2026/03/17/mens-march-madness-first-four-umbc-howard-texas-nc-state/
+
+**Postmaster Says Service Will Be ‘Out of Cash’ in Under a Year**\
+`The U.S.P.S. leader said at a hearing that the service could run out of cash within a year and asked lawmakers to increase its borrowing limits.`\
+https://nytimes.com/2026/03/17/us/politics/usps-postal-service-finances.html
+
 **Donna Miller Beats Jesse Jackson Jr. in House Primary**\
 `Ms. Miller, a Cook County commissioner and a former health care consultant, blocked a comeback attempt from Mr. Jackson, who had served time in federal prison.`\
 https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-il-house-primary.html
