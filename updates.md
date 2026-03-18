@@ -1,3 +1,15 @@
+**Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
+`Under the circumstances, Cubs manager Craig Counsell said Tuesday, “We got good news.”`\
+https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
+
+**In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**\
+`Chief Petty Officer Shannon Kent was killed in action during a special operations mission in Syria in 2019. Mr. Kent said he could not support “sending the next generation off to fight and die” in Iran.`\
+https://nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html
+
+**NASCAR Truck Series driver Daniel Dye suspended indefinitely for homophobic comments**\
+`Dye apologized to IndyCar's David Malukas in a statement after mocking his voice as "gay." Dye will also undergo sensitivity training.`\
+https://nytimes.com/athletic/7126802/2026/03/17/nascar-daniel-dye-suspended-homophobic-comments/
+
 **When to Expect Primary Election Results From Illinois**\
 `Voters kicked off the state’s midterm contests for U.S. Senate, U.S. House and other offices on Tuesday.`\
 https://nytimes.com/2026/03/17/us/elections/primary-election-illinois-results-timing.html
