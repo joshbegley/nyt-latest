@@ -1,3 +1,11 @@
+**The Windup: Eerily similar WBC defeat for USA**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7128482/2026/03/18/venezuela-usa-world-baseball-classic-championship-the-windup/
+
+**‘I Can No Longer Stay Silent,’ Huerta Says in a Statement**\
+`The labor leader said Wednesday that she had felt constrained to keep secret her abuse by Cesar Chavez — and the two children that she bore as a result.`\
+https://nytimes.com/2026/03/18/us/dolores-huerta-statement-chavez-sex-abuse.html
+
 **Despite Moscow’s Threats, Poland Rules to Extradite Archaeologist to Ukraine**\
 `Kyiv accuses Alexander Butyagin, a prominent antiquities scholar, of destroying cultural heritage during his excavations in Russia-occupied Crimea. The Kremlin has condemned his arrest.`\
 https://nytimes.com/2026/03/18/world/europe/alexander-butyagin-archaeologist-poland-extradite.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-south-pars-gas-oi
 **N.Y.C. High School Student Freed After 10 Months in ICE Detention**\
 `The arrest of Dylan Lopez Contreras last year was the first reported case of a public school student in the city being taken by federal immigration agents since President Trump returned to office.`\
 https://nytimes.com/2026/03/18/nyregion/nyc-high-school-student-ice-freed.html
-
-**What the Fed’s rate decision means for your finances**\
-`See how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/what-the-feds-rate-decision-means-for-your-finances
-
-**For U.S., Unmet Expectations in Iran Fit a Familiar Pattern in the Region**\
-`Iran’s military retaliation, along with the political defiance of its new leaders, evokes a decades-old pattern of unrealized goals for American interventions in the region.`\
-https://nytimes.com/2026/03/18/us/israel-us-iran-strategy-war.html
 
