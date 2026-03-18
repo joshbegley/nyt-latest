@@ -1,3 +1,15 @@
+**Quote of the Day: Tech’s Big Bet On Weapons Is Paying Off**\
+`Quotation of the Day for Wednesday, March 18, 2026.`\
+https://nytimes.com/2026/03/17/pageoneplus/quote-of-the-day-techs-big-bet-on-weapons-is-paying-off.html
+
+**A look at the future? Blackhawks go with youngest defenseman group yet**\
+`Against the Wild, the Blackhawks' entire defense was 24 years old or younger, with increasing comfort evident in an overtime loss.`\
+https://nytimes.com/athletic/7127169/2026/03/17/blackhawks-defense-young-prospects-del-mastro-levshunov-crevier-wild/
+
+**Anthony Edwards, Obama promo shows Edwards' unmatched potential as NBA's comedic voice**\
+`Whether Edwards likes it or not, he’s the kind of player the league can market to the masses.`\
+https://nytimes.com/athletic/7127245/2026/03/17/anthony-edwards-barack-obama-commercial-presidential-center/
+
 **This is what happened on March 17.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-17
