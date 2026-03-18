@@ -1,3 +1,7 @@
+**Corrections: March 18, 2026**\
+`Corrections that appeared in print on Wednesday, March 18, 2026.`\
+https://nytimes.com/2026/03/18/pageoneplus/corrections-march-18-2026.html
+
 **'For me it's too much': Sabalenka could skip tournament over criticism**\
 `The world No. 1 said that criticism from the director of the Dubai Tennis Championships over her withdrawal from the event was “ridiculous.”`\
 https://nytimes.com/athletic/7128036/2026/03/18/tennis-aryna-sabalenka-dubai-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/18/us/trump-news
 **Weighing the Costs of Corporate Silence**\
 `The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission is said to weigh a rule change. What it could mean for investors is likely to stir debate.`\
 https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.html
-
-**Israel Expands Strikes on Central Beirut**\
-`Israel carried out several strikes on central parts of Beirut, the capital of Lebanon, on Wednesday. The attacks raised fears that areas once considered off limits were no longer safe.`\
-https://nytimes.com/video/world/middleeast/100000010786596/israel-beirut-lebanon-strikes.html
 

@@ -1,3 +1,7 @@
+**Corrections: March 18, 2026**\
+`Corrections that appeared in print on Wednesday, March 18, 2026.`\
+https://nytimes.com/2026/03/18/pageoneplus/corrections-march-18-2026.html
+
 **'For me it's too much': Sabalenka could skip tournament over criticism**\
 `The world No. 1 said that criticism from the director of the Dubai Tennis Championships over her withdrawal from the event was “ridiculous.”`\
 https://nytimes.com/athletic/7128036/2026/03/18/tennis-aryna-sabalenka-dubai-championships/
