@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
 
+**After looking in the mirror, Deandre Ayton is ‘110 percent’ bought in for the Lakers**\
+`Less scoring, more impact and a renewed focus is changing everything for the former No. 1 pick. 
+`\
+https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
+
 **TAFC: Senegal's AFCON win voided after 57 days. Plus: Trophyless season for Guardiola?**\
 `Today in TAFC: The fallout from CAF's decision to award the AFCON title to Morocco. Plus: Iran's Mexico possibility, and trophyless Pep?`\
 https://nytimes.com/athletic/7127846/2026/03/18/afcon-void-senegal-morocco/
