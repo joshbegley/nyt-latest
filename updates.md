@@ -1,3 +1,7 @@
+**The Pulse: Second place, again**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7126437/2026/03/18/usa-venezuela-wbc-final-the-pulse/
+
 **Ukko-Pekka Luukkonen stands out, Buffalo ties for East lead: Sabres thoughts**\
 `Buffalo made another statement Tuesday night in Las Vegas, tying the Carolina Hurricanes atop the Eastern Conference.`\
 https://nytimes.com/athletic/7127684/2026/03/18/sabres-ukko-pekka-luukkonen-win-golden-knights/

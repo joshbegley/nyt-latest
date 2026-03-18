@@ -1,3 +1,15 @@
+**Down to Business: 2026 season marks arrival of NWSL 4.0**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/7126469/2026/03/18/nwsl-2026-big-investment-berman-down-to-business/
+
+**Mandel's Mailbag: Next double CFP/NCAA Tournament champion? Dabo or Joey McGuire?**\
+`In the spirit of March, it's a college football/hoops crossover mailbag today, from the next 2006-07 Florida to vanishing two-sport stars.`\
+https://nytimes.com/athletic/7126630/2026/03/18/college-football-basketball-national-champions-cfp-tournament/
+
+**Ten seasons, one Champions League. Should Guardiola have done better in Europe with Man City?**\
+`They have been England's premier side domestically for a decade but, as Michael Cox explains, something has been lacking in Europe`\
+https://nytimes.com/athletic/7127034/2026/03/18/guardiola-champions-league-manchester-city/
+
 **The Pulse: Second place, again**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7126437/2026/03/18/usa-venezuela-wbc-final-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7126851/2026/03/18/cowboys-depth-chart-free-agency-
 **'Good point for us': Bruins head home in a playoff spot after second straight OT loss**\
 `The Bruins return from a trip with a respectable 4 points of 6.`\
 https://nytimes.com/athletic/7127350/2026/03/18/bruins-overtime-loss-peeke-goal-defense-canadiens/
-
-**Kent Hughes on Canadiens' roller coaster, his mystery target at the deadline, more**\
-`The Canadiens general manager says his inactivity at the trade deadline "wasn’t for a lack of trying."`\
-https://nytimes.com/athletic/7126079/2026/03/18/kent-hughes-canadiens-trade-deadline/
-
-**Bills post-free-agency roster needs: Which positions could still use some help?**\
-`The Bills' priorities will now shift after they picked up a few pieces in free agency.`\
-https://nytimes.com/athletic/7125704/2026/03/18/bills-free-agency-roster-needs/
-
-**Cameron Young just won The Players. A simple mental shift helped make it happen**\
-`Talent was never the issue for Young. It was where his mind drifted when things didn’t go according to plan. He's worked to change that.`\
-https://nytimes.com/athletic/7127018/2026/03/18/cameron-young-players-mental-skill/
 

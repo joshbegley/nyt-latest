@@ -1,3 +1,7 @@
+**The Pulse: Second place, again**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/7126437/2026/03/18/usa-venezuela-wbc-final-the-pulse/
+
 **Ukko-Pekka Luukkonen stands out, Buffalo ties for East lead: Sabres thoughts**\
 `Buffalo made another statement Tuesday night in Las Vegas, tying the Carolina Hurricanes atop the Eastern Conference.`\
 https://nytimes.com/athletic/7127684/2026/03/18/sabres-ukko-pekka-luukkonen-win-golden-knights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7125704/2026/03/18/bills-free-agency-roster-needs/
 **Cameron Young just won The Players. A simple mental shift helped make it happen**\
 `Talent was never the issue for Young. It was where his mind drifted when things didn’t go according to plan. He's worked to change that.`\
 https://nytimes.com/athletic/7127018/2026/03/18/cameron-young-players-mental-skill/
-
-**How Bo Groulx became a late-season surprise for the Maple Leafs**\
-`Groulx has become a story in Toronto, raising questions about his future with the organization and the role of the Marlies with the Leafs.`\
-https://nytimes.com/athletic/7125825/2026/03/18/maple-leafs-bo-groulx-season-nhl-marlies/
 
