@@ -1,3 +1,11 @@
+**Police Kill Gunman Who Shot Employee at Georgia V.A. Clinic**\
+`The employee’s condition was not immediately disclosed. The Department of Veterans Affairs said the clinic would be closed for the rest of the week, while the authorities investigate.`\
+https://nytimes.com/2026/03/17/us/jasper-va-shooting.html
+
+**Boston World Cup games no longer in jeopardy after Foxboro board vote gives all clear**\
+`A dispute over security funding has led to concern about the status of games at Gillette Stadium`\
+https://nytimes.com/athletic/7127156/2026/03/17/boston-world-cup-fifa-foxboro-gillette-kraft-vote/
+
 **Year After Trump Takeover, Institute of Peace Is Little More Than Scenery**\
 `As a lawsuit by the former staff drags on, the fight highlights President Trump’s upending of traditional peace-building and the lasting effects of his administration’s cost-cutting blitz.`\
 https://nytimes.com/2026/03/17/us/politics/institute-of-peace-trump.html

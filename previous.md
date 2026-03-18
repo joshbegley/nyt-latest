@@ -1,3 +1,11 @@
+**Police Kill Gunman Who Shot Employee at Georgia V.A. Clinic**\
+`The employee’s condition was not immediately disclosed. The Department of Veterans Affairs said the clinic would be closed for the rest of the week, while the authorities investigate.`\
+https://nytimes.com/2026/03/17/us/jasper-va-shooting.html
+
+**Boston World Cup games no longer in jeopardy after Foxboro board vote gives all clear**\
+`A dispute over security funding has led to concern about the status of games at Gillette Stadium`\
+https://nytimes.com/athletic/7127156/2026/03/17/boston-world-cup-fifa-foxboro-gillette-kraft-vote/
+
 **Year After Trump Takeover, Institute of Peace Is Little More Than Scenery**\
 `As a lawsuit by the former staff drags on, the fight highlights President Trump’s upending of traditional peace-building and the lasting effects of his administration’s cost-cutting blitz.`\
 https://nytimes.com/2026/03/17/us/politics/institute-of-peace-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7126802/2026/03/17/nascar-daniel-dye-suspended-homo
 **When to Expect Primary Election Results From Illinois**\
 `Voters kicked off the state’s midterm contests for U.S. Senate, U.S. House and other offices on Tuesday.`\
 https://nytimes.com/2026/03/17/us/elections/primary-election-illinois-results-timing.html
-
-**How Fox Sports landed Zlatan Ibrahimović: 'He was at the top of the list'**\
-`Fox began its pursuit of Ibrahimović last fall. The Swedish star will join Thierry Henry and Alexi Lalas atop its lineup of analysts.`\
-https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox-sports/
-
-**No Trump Pick as Deadline Locks In Texas Senate Race**\
-`President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
-https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
 
