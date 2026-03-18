@@ -1,3 +1,7 @@
+**Read the Statement From Dolores Huerta on Cesar Chavez’s Abuse**\
+`“I can no longer stay silent and must share my own experiences,” she wrote.`\
+https://nytimes.com/2026/03/18/us/dolores-huerta-statement-cesar-chavez.html
+
 **Strikes Deliver Another Blow to Iran’s Domestic Energy Sites**\
 `The attacks could worsen the severe electricity shortages that Iranians already face.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-israel-strikes-energy-gas-sites.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010785078/why-trump-keeps-sayin
 **Omar López shined as Venezuela's manager, showing he can 'lead on a big stage'**\
 `López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
 https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
-
-**Carol Kitman, 96, Dies; Photographer Documented the Vindman Twins**\
-`A chance encounter in Brooklyn led to a decades-long project following the boys’ lives, from childhood to national prominence as critics of President Trump.`\
-https://nytimes.com/2026/03/18/arts/carol-kitman-dead.html
 

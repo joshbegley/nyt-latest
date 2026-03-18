@@ -1,3 +1,19 @@
+**Strikes Deliver Another Blow to Iran’s Domestic Energy Sites**\
+`The attacks could worsen the severe electricity shortages that Iranians already face.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-war-israel-strikes-energy-gas-sites.html
+
+**How Trump Should Extricate Himself From His Iran Quagmire**\
+`Declaring victory and ending the war might not be so easy.`\
+https://nytimes.com/2026/03/18/opinion/trump-iran-war.html
+
+**Officer at Troubled Brooklyn Jail Charged With Sexually Abusing Inmate**\
+`James Johnson, a correction officer at the Metropolitan Detention Center, first abused a male inmate inside a chaplain’s office, prosecutors said.`\
+https://nytimes.com/2026/03/18/nyregion/mdc-correctional-officer-indicted-sexual-abuse.html
+
+**He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
+`A man is accused of handing tellers notes, demanding money at six Chase branches in five days. In three of the attempts, he left empty-handed.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
+
 **Powell Says He Will Remain as Fed Chair Until Successor Is Confirmed**\
 `Jerome H. Powell, who leads the central bank, also said he would not leave the Fed until a criminal investigation into his handling of renovations was over.`\
 https://nytimes.com/2026/03/18/business/economy/fed-chair-powell-warsh-trump.html
