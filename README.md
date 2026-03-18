@@ -1,3 +1,11 @@
+**Champions League quarter-final bracket and predictions**\
+`The Champions League is heading into the quarter-final stage after the end of the last-16 round on Wednesday night`\
+https://nytimes.com/athletic/7129186/2026/03/18/champions-league-quarter-final-bracket-predictions/
+
+**What’s a Threat? Gabbard Says It’s Up to Trump.**\
+`Tulsi Gabbard was left to square the president’s comments about an imminent nuclear threat from Iran with a letter from one of her trusted aides.`\
+https://nytimes.com/2026/03/18/us/politics/tulsi-gabbard-iran-trump.html
+
 **Following Trump, Republicans in Congress Propose to Ban Most Voting by Mail**\
 `A restrictive voter I.D. bill under consideration in the Senate could severely limit mail-in voting. Conservatives are pressing to end the practice outright, taking aim at an option that is widely used by voters.`\
 https://nytimes.com/2026/03/18/us/politics/trump-republicans-ban-mail-voting.html
@@ -29,8 +37,4 @@ https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
 **The Briefing: Liverpool 4 Galatasaray 0 - Chances aplenty, Salah scores, pressure eases on Slot**\
 `Liverpool progress to the Champions League quarter-finals with a convincing win over Galatasaray`\
 https://nytimes.com/athletic/7125261/2026/03/18/liverpool-4-galatasaray-0-champions-league-mo-salah/
-
-**The Briefing: Tottenham 3 Atletico 2 – Can Spurs and their fans take hope from this? Is Tudor safe now?**\
-`Diego Simeone's side advanced to the quarter-finals but Spurs can take lessons for crucial Nottingham Forest game on Sunday`\
-https://nytimes.com/athletic/7125263/2026/03/18/tottenham-atletico-champions-league-tel-simons-tudor/
 
