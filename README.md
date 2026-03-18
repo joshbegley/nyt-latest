@@ -1,3 +1,15 @@
+**Nebraska Wildfires Consume Nearly 800,000 Acres**\
+`The Morrill fire, the largest wildfire in state history, was 16 percent contained on Wednesday. The blaze was blamed for the death of an 86-year-old woman, the governor said.`\
+https://nytimes.com/2026/03/18/us/nebraska-wildfires-evacuations.html
+
+**For Iranians, Bombing of Gas Field Worsens Already Dire Energy Crisis**\
+`The South Pars gas field is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
+https://nytimes.com/2026/03/18/climate/south-pars-iran-gas-field-bombing.html
+
+**For Tschabalala Self, Art Is Romantic**\
+`The painter and sculptor discusses neighborhood murals, nonlinear storytelling and her commission for the New Museum, a 13-foot-tall rendering of a couple mid-embrace.`\
+https://nytimes.com/2026/03/18/t-magazine/tschabalala-self-new-museum.html
+
 **2 Charged With Surveillance for Iran on London’s Jews**\
 `The suspects are accused of gathering information last summer on targets linked to the city’s Jewish community.`\
 https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
@@ -21,16 +33,4 @@ https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices
 **What’s in Our Queue? ‘The Shadow of Your Smile’ and More**\
 `Text by Reis Thebault`\
 https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
-
-**New Broncos WR Jaylen Waddle arrives eager to aid title pursuit 'in every fashion'**\
-`The blockbuster deal Denver struck for the accomplished wide receiver became official Wednesday.`\
-https://nytimes.com/athletic/7129353/2026/03/18/jaylen-waddle-broncos-trade-receiver/
-
-**At last, 'Cream Abdul-Jabbar' and Saint Louis arrive at March Madness**\
-`"Cream Abdul-Jabbar." "Larry Blurred." "Milk Chamberlain." Robbie Avila has accumulated many nicknames — and now he'll get his March moment.`\
-https://nytimes.com/athletic/7129464/2026/03/18/robbie-avila-saint-louis-ncaa-tournament-cream-abdul-jabbar/
-
-**After Vowing to Overhaul 911 Response, Mamdani Takes Cautious First Step**\
-`Mayor Zohran Mamdani is creating a Mayor’s Office of Community Safety, a pared-down version of a major campaign pledge with a smaller budget than promised.`\
-https://nytimes.com/2026/03/18/nyregion/mamdani-department-community-safety-nyc.html
 
