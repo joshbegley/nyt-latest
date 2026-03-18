@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
 
+**After looking in the mirror, Deandre Ayton is ‘110 percent’ bought in for the Lakers**\
+`Less scoring, more impact and a renewed focus is changing everything for the former No. 1 pick. 
+`\
+https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
+
 **Over 200 Ukrainian Experts in Middle East to Help Fight Drones, Zelensky Says**\
 `President Volodymyr Zelensky said that 11 countries in the region have asked for Kyiv’s assistance. Russia has launched such drones against Ukraine for years.`\
 https://nytimes.com/2026/03/18/world/middleeast/ukrainian-experts-in-middle-east-fight-drones.html
