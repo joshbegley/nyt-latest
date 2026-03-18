@@ -1,3 +1,15 @@
+**No football experience? No problem: Colts sign ex-Notre Dame basketball player**\
+`The Colts are giving Towt a chance to play tight end because he's a good athlete with promising ball skills and he's a low-risk addition.`\
+https://nytimes.com/athletic/7128936/2026/03/18/colts-carson-towt-notre-dame-basketball/
+
+**Can the Democrats Become the Party of the People Again?**\
+`The Democratic Party is pulling in a populist direction. But not all populisms are equal.`\
+https://nytimes.com/2026/03/18/opinion/democrats-populism-inequality.html
+
+**The Tropical St. Patrick’s Day That Honors African History**\
+`Montserrat treats the holiday as both a national celebration and a more somber milestone: a commemoration of a failed slave rebellion.`\
+https://nytimes.com/2026/03/18/world/americas/montserrat-st-patricks-day.html
+
 **Trump’s Homeland Security Pick Says He’d End Policy That Slowed Disaster Aid**\
 `The president’s nominee, Markwayne Mullin, said he would avoid “micromanaging” FEMA.`\
 https://nytimes.com/2026/03/18/climate/mullin-fema-noem-delays.html
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/tulsi-gabbard-senate-testimony-i
 **Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
-
-**Retired Belgian Diplomat, 93, Faces Trial Over 1961 Killing of Congolese Leader**\
-`A Brussels court ruled that Étienne Davignon must stand trial for the murder of Patrice Lumumba, the first prime minister of the Democratic Republic of Congo.`\
-https://nytimes.com/2026/03/18/world/europe/belgium-congo-lumumba-trial.html
-
-**Tracking Tropical Cyclone Narelle**\
-`See the likely path and wind arrival times for Narelle`\
-https://nytimes.com/interactive/2026/03/18/weather/narelle-map-path-tracker.html
-
-**At SXSW, ‘Sparks’ Was Flying High**\
-`Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
-https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html
 
