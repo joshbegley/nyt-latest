@@ -1,3 +1,16 @@
+**Jack Hughes wants the 'Golden Goal' puck from Hockey Hall of Fame**\
+`The star of Team USA's Olympic win against Canada would like to get a hold of the memento currently on display in Toronto.`\
+https://nytimes.com/athletic/7128337/2026/03/18/jack-hughes-olympic-puck-hockey-hall-of-fame/
+
+**The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
+
+**Iran’s Intelligence Minister Killed in an Airstrike**\
+`The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran confirmed the killing.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
+
 **The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.
 `\
