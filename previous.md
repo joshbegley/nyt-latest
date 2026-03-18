@@ -1,3 +1,7 @@
+**Centrist Melissa Bean Wins 8th District Democratic Primary**\
+`Ms. Bean, a moderate former congresswoman, defeated a left-wing rival in the primary race for the Chicago-area seat to be vacated by Representative Raja Krishnamoorthi.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-8th-district-democratic-primary.html
+
 **You Might Take a Spin in This**\
 `Adam Vincent’s puzzle is a winner.`\
 https://nytimes.com/2026/03/17/crosswords/daily-puzzle-2026-03-18.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/politics/usps-postal-service-finances.html
 **Cuban Americans Will Be Allowed to Own Businesses in Cuba, but Is That Enough?**\
 `The Cuban government announced that Cubans living abroad can own and invest in businesses, but experts said they were disappointed that the measures didn’t go further.`\
 https://nytimes.com/2026/03/17/world/americas/cuba-americans-invest-businesses.html
-
-**Cade Cunningham's back spasms at forefront of Pistons' untimely injuries**\
-`Cunningham collided with Wizards rookie Tre Johnson when the two were attempting to corral a loose ball with 7:44 left in the first quarter.`\
-https://nytimes.com/athletic/7127128/2026/03/17/cade-cunningham-back-spasms-pistons-wizards/
 
