@@ -1,3 +1,23 @@
+**Trump Promised the ‘World’s Lowest’ Drug Prices. We Checked the Numbers.**\
+`The TrumpRx website claims to offer the best prices for medications. Here’s where Americans still pay more — and much more.`\
+https://nytimes.com/2026/03/18/world/europe/trumprx-drug-prices-really-cheapest-world-comparison.html
+
+**The Faroe Islands Are Changing Some of Europe’s Strictest Abortion Rules**\
+`A new law allowing abortion up to 12 weeks will be a major shift in an archipelago of 55,000 people, and there are strong feelings on both sides.`\
+https://nytimes.com/2026/03/18/world/europe/faroe-islands-abortion-europe.html
+
+**Trump’s Friendship With Japan’s Leader Faces Test Over Iran**\
+`In Washington on Thursday, President Trump is expected to press Sanae Takaichi for military help in the Strait of Hormuz. But she faces constraints on what she can offer.`\
+https://nytimes.com/2026/03/18/world/asia/trump-japan-takaichi-iran-hormuz.html
+
+**As War Chokes Natural Gas Supply, Asia Turns Back to Coal**\
+`Across Asia, a sharp drop in liquefied natural gas supplies is pushing major importers back toward coal, undermining L.N.G.’s long-held role as a stable energy anchor.`\
+https://nytimes.com/2026/03/18/business/iran-war-lng-asia-japan.html
+
+**Netanyahu Hopes Strikes on Iran Will Lead to Uprising and Regime Change**\
+`Israeli attacks have targeted the command centers of Iran’s repressive, internal security forces in hopes that Iranians will overthrow their rulers. Some see that as wishful thinking.`\
+https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-iran-war-regime-change.html
+
 **Quote of the Day: Tech’s Big Bet On Weapons Is Paying Off**\
 `Quotation of the Day for Wednesday, March 18, 2026.`\
 https://nytimes.com/2026/03/17/pageoneplus/quote-of-the-day-techs-big-bet-on-weapons-is-paying-off.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happ
 **Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
 `LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
 https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/
-
-**Star-studded Team USA upset as Venezuela wins first WBC title**\
-`Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
-https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
-
-**La Shawn K. Ford Wins Nomination for House Seat Long Held by Danny Davis**\
-`Mr. Ford, who received Mr. Davis’s endorsement, emerged from a wide field of candidates seeking to represent a district that includes the West Side of Chicago.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-district-7-primary-election-la-shawn-ford.html
-
-**Juliana Stratton Wins Democratic Primary for Senate in Deep-Blue Illinois**\
-`Ms. Stratton, the state’s lieutenant governor, prevailed with millions of dollars of help from Gov. JB Pritzker, a billionaire. She will be heavily favored in the general election.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-senate-democratic-primary-juliana-stratton.html
-
-**Daniel Biss, Mayor of Evanston, Ill., Wins Democratic Nomination for House Seat**\
-`Mr. Biss emerged after being an early front-runner in the turbulent, crowded contest to replace a longtime incumbent in Illinois’s Ninth District.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democratic-primary-biss.html
-
-**Centrist Melissa Bean Wins 8th District Democratic Primary**\
-`Ms. Bean, a moderate former congresswoman, defeated a left-wing rival in the primary race for the Chicago-area seat to be vacated by Representative Raja Krishnamoorthi.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-8th-district-democratic-primary.html
 
