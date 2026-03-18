@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
+
 **Retired Belgian Diplomat, 93, Faces Trial Over 1961 Killing of Congolese Leader**\
 `A Brussels court ruled that Étienne Davignon must stand trial for the murder of Patrice Lumumba, the first prime minister of the Democratic Republic of Congo.`\
 https://nytimes.com/2026/03/18/world/europe/belgium-congo-lumumba-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/swedish-citizen-executed-iran.ht
 **Dissecting Liam Rosenior's note writing (when Chelsea were six goals behind against PSG)**\
 `This is Tim Spiers's tongue-in-cheek breakdown of Liam Rosenior's late-game instructions to Alejandro Garnacho and the Chelsea players`\
 https://nytimes.com/athletic/7128639/2026/03/18/chelsea-liam-rosenior-note/
-
-**Why are U.S. traffic deaths increasing again?**\
-`Plus, the rise of “autobesity.”`\
-https://nytimes.com/2026/03/18/headway/motor-vehicles-fatalities-newsletter.html
 
