@@ -1,3 +1,7 @@
+**Your Guide to Madrid**\
+`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
+https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
+
 **Judge Orders Voice of America to Restart All News Operations**\
 `More than 1,000 full-time journalists and support staff at the news group were ordered to return to work by March 23 and to resume broadcasting.`\
 https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html

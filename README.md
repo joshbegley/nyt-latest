@@ -1,3 +1,15 @@
+**Cuban Americans Will Be Allowed to Own Businesses in Cuba, but Is That Enough?**\
+`The Cuban government announced that Cubans living abroad can own and invest in businesses, but experts said they were disappointed that the measures didn’t go further.`\
+https://nytimes.com/2026/03/17/world/americas/cuba-americans-invest-businesses.html
+
+**Cade Cunningham's back spasms at forefront of Pistons' untimely injuries**\
+`Cunningham collided with Wizards rookie Tre Johnson when the two were attempting to corral a loose ball with 7:44 left in the first frame.`\
+https://nytimes.com/athletic/7127128/2026/03/17/cade-cunningham-back-spasms-pistons-wizards/
+
+**U.S. Says Anthropic Is an ‘Unacceptable’ National Security Risk**\
+`In a legal filing, the government said it questioned whether the A.I. start-up could be a “trusted partner” in wartime, which led it to label the company a supply chain risk.`\
+https://nytimes.com/2026/03/17/technology/anthropic-pentagon-national-security-risk.html
+
 **Your Guide to Madrid**\
 `From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
 https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
@@ -10,7 +22,7 @@ https://nytimes.com/2026/03/17/us/politics/voice-of-america-news.html
 `The employee’s condition was not immediately disclosed. The Department of Veterans Affairs said the clinic would be closed for the rest of the week, while the authorities investigate.`\
 https://nytimes.com/2026/03/17/us/jasper-va-shooting.html
 
-**Boston World Cup games no longer in jeopardy after Foxboro board vote gives all clear**\
+**Boston World Cup games no longer in jeopardy after Foxborough board vote gives all clear**\
 `A dispute over security funding has led to concern about the status of games at Gillette Stadium`\
 https://nytimes.com/athletic/7127156/2026/03/17/boston-world-cup-fifa-foxboro-gillette-kraft-vote/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/17/world/middleeast/iran-war-israel-middle-east-reca
 **‘Ulster American’ Review: Matthew Broderick as a Star Blinded by Privilege**\
 `David Ireland’s satire follows a Hollywood actor whose cluelessness leads to a combustible confrontation.`\
 https://nytimes.com/2026/03/17/theater/ulster-american-review-matthew-broderick.html
-
-**Counties to Watch in the Illinois Democratic Senate Primary**\
-`There is more to the state than Chicago and its suburbs, even if that area makes up a large majority of the vote.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-democratic-senate-primary-key-counties.html
-
-**Seiya Suzuki’s availability for Cubs’ Opening Day remains in doubt**\
-`Cubs manager Craig Counsell said Tuesday, “We got good news,” after MRI on outfielder's knee reveals sprain.`\
-https://nytimes.com/athletic/7127065/2026/03/17/seiya-suzuki-cubs-opening-day-status/
-
-**In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**\
-`Chief Petty Officer Shannon Kent was killed in action during a special operations mission in Syria in 2019. Mr. Kent said he could not support “sending the next generation off to fight and die” in Iran.`\
-https://nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html
 
