@@ -1,3 +1,11 @@
+**Following Trump, Republicans in Congress Propose to Ban Most Voting by Mail**\
+`A restrictive voter I.D. bill under consideration in the Senate could severely limit mail-in voting. Conservatives are pressing to end the practice outright, taking aim at an option that is widely used by voters.`\
+https://nytimes.com/2026/03/18/us/politics/trump-republicans-ban-mail-voting.html
+
+**Finally, Phillies' Andrew Painter is on the verge of the big leagues — and it shows**\
+`The Phillies have not set the rotation, but Painter will be in it. He looks ready for the challenge. Wednesday, he reached a different gear.`\
+https://nytimes.com/athletic/7129373/2026/03/18/andrew-painter-phillies-mlb-debut-2026/
+
 **From Serial Productions: The Idiot**\
 `Compassion has its limits when it comes to your own cousin.`\
 https://nytimes.com/2026/03/18/podcasts/serial-theidiot.html
@@ -22,15 +30,7 @@ https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
 `Liverpool progress to the Champions League quarter-finals with a convincing win over Galatasaray`\
 https://nytimes.com/athletic/7125261/2026/03/18/liverpool-4-galatasaray-0-champions-league-mo-salah/
 
-**The Briefing: Tottenham 3 Atletico 2 - Can Spurs and their fans take hope from this? Is Tudor safe now?**\
-`Tottenham produced a strong performance on the night but Simeone's side advanced to the quarter-finals as 7-5 winners on aggregate...`\
+**The Briefing: Tottenham 3 Atletico 2 – Can Spurs and their fans take hope from this? Is Tudor safe now?**\
+`Diego Simeone's side advanced to the quarter-finals but Spurs can take lessons for crucial Nottingham Forest game on Sunday`\
 https://nytimes.com/athletic/7125263/2026/03/18/tottenham-atletico-champions-league-tel-simons-tudor/
-
-**James Barnard, a Global Force in Wastewater Treatment, Dies at 90**\
-`An environmental engineer, he invented a biological method to remove nitrogen and phosphorous from wastewater, an advance that transformed the industry worldwide.`\
-https://nytimes.com/2026/03/18/science/james-barnard-dead.html
-
-**Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
-`Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
 
