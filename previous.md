@@ -1,3 +1,7 @@
+**This has been Rosenior's real welcome to Chelsea. Where does this extraordinary week leave him?**\
+`From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
+https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/
+
 **Dink, flick, twirl, crack: Eze's beautiful moment - and why it meant so much to Arsenal**\
 `A goal of sublime quality burst open the Champions League tie against Leverkusen and showed why Arsenal bought the playmaker`\
 https://nytimes.com/athletic/7127121/2026/03/18/eberechi-eze-arsenal-goal-bayer-leverkusen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122025/2026/03/18/mcginn-villa-kollars-arizona-inc
 **This is not the season Xavi Simons was expecting**\
 `When Xavi Simons joined Spurs he will have had big European nights in mind - but now he must fight for a place in the starting XI`\
 https://nytimes.com/athletic/7111293/2026/03/18/xavi-simons-tottenham-season/
-
-**Can Phil Parkinson teach a new set of Wrexham players how to pull off a Hollywood ending?**\
-`Parkinson's teams have form for finishing seasons strongly. They need all of that knowhow in this run-in`\
-https://nytimes.com/athletic/7126506/2026/03/18/wrexham-championship-promotion-parkinson-analysis/
 
