@@ -1,3 +1,11 @@
+**The Buzziest Outcomes From the Illinois Races**\
+`Here’s a rundown of the best comeback, proudest governor and most expensive water at a candidate’s watch party.`\
+https://nytimes.com/2026/03/18/us/politics/what-happened-illinois-election.html
+
+**Did you enjoy the Charles Barkley-Dick Vitale 'First Four 'TV experience?**\
+`The highly anticipated pairing left some fans wanting more analysis, less schtick. What did you think? Take a quick poll.`\
+https://nytimes.com/athletic/7128286/2026/03/18/charles-barkley-dick-vitale-first-four-tv/
+
 **How Alvaro Arbeloa changed Xabi Alonso's Real Madrid - and what it means for his future**\
 `Does Tuesday night's Champions League victory over Manchester City mean the 43-year-old's job is safe?`\
 https://nytimes.com/athletic/7128066/2026/03/18/real-madrid-alvaro-arbeloa-xabi-alonso/
