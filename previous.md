@@ -1,3 +1,7 @@
+**TAFC: Senegal's AFCON win voided after 57 days. Plus: Trophyless season for Guardiola?**\
+`Today in TAFC: The fallout from CAF's decision to award the AFCON title to Morocco. Plus: Iran's Mexico possibility, and trophyless Pep?`\
+https://nytimes.com/athletic/7127846/2026/03/18/afcon-void-senegal-morocco/
+
 **Rosenthal: Bryce Harper met the moment at WBC, but a title yet again proved elusive**\
 `Harper's actions before, during and after the WBC final against Venezuela showed his understanding of his place in the game.`\
 https://nytimes.com/athletic/7127918/2026/03/18/bryce-harper-world-baseball-classic-team-usa/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/7125158/2026/03/18/college-football-recruiting-rank
 **I was in Senegal for AFCON celebrations - they will always view themselves as champions**\
 `The decision to award the AFCON title to Morocco matters little - Senegalese' celebrations live long in the memory and will not be tarnished`\
 https://nytimes.com/athletic/7127838/2026/03/18/senegal-afcon-morocco-champions-appeal/
-
-**Salvador Perez gets touchstone moment with Venezuela in what could be final WBC**\
-`The veteran catcher was at the center of the 3-2 victory over the United States Tuesday night.`\
-https://nytimes.com/athletic/7127864/2026/03/18/salvador-perez-venezuela-wbc-win/
 
