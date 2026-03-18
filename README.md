@@ -1,3 +1,7 @@
+**Despite Moscow’s Threats, Poland Rules to Extradite Archaeologist to Ukraine**\
+`Kyiv accuses Alexander Butyagin, a prominent antiquities scholar, of destroying cultural heritage during his excavations in Russia-occupied Crimea. The Kremlin has condemned his arrest.`\
+https://nytimes.com/2026/03/18/world/europe/alexander-butyagin-archaeologist-poland-extradite.html
+
 **Trump Renews Demand for Rate Cuts as Fed Grapples With War in Iran**\
 `Oil prices are soaring, threatening a wider problem with inflation, but the president has insisted that borrowing costs must be lowered.`\
 https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/trump-rate-cuts-iran
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/what
 **For U.S., Unmet Expectations in Iran Fit a Familiar Pattern in the Region**\
 `Iran’s military retaliation, along with the political defiance of its new leaders, evokes a decades-old pattern of unrealized goals for American interventions in the region.`\
 https://nytimes.com/2026/03/18/us/israel-us-iran-strategy-war.html
-
-**My Friend’s Husband Is a Tax Deadbeat. Should I Tell the I.R.S.?**\
-`I am troubled that this man, a public-school teacher, has been avoiding something I consider to be a civic duty.`\
-https://nytimes.com/2026/03/18/magazine/friend-husband-tax-deadbeat-ethics.html
 

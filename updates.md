@@ -1,3 +1,7 @@
+**Federal Reserve Faces a Tenuous Moment for Rates and the Economy**\
+`Officials at the central bank will release their latest decision on interest rates amid a weakening job market and war with Iran.`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates
+
 **Trump Renews Demand for Rate Cuts as Fed Grapples With War in Iran**\
 `Oil prices are soaring, threatening a wider problem with inflation, but the president has insisted that borrowing costs must be lowered.`\
 https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/trump-rate-cuts-iran
