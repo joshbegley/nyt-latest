@@ -1,3 +1,11 @@
+**Carol Kitman, 96, Dies; Photographer Documented the Vindman Twins**\
+`A chance encounter in Brooklyn led to a decades-long project following the boys’ lives, from childhood to national prominence as critics of President Trump.`\
+https://nytimes.com/2026/03/18/arts/carol-kitman-dead.html
+
+**Red Sox reworked contract with Danny Coulombe after issues with physical: Source**\
+`After the Red Sox raised concerns with his initial physical, Coulombe's contract was restructured with a lower base pay but roster bonuses.`\
+https://nytimes.com/athletic/7129197/2026/03/18/red-sox-danny-coulombe-physical-contract/
+
 **Why Is NBA YoungBoy on a Nettspend Song?**\
 `Our critic Jon Caramanica on how Nettspend and NBA YoungBoy’s recent collaboration is emblematic of hip-hop’s rapid evolution.`\
 https://nytimes.com/video/podcasts/100000010787572/why-is-nba-youngboy-on-a-nettspend-song.html
