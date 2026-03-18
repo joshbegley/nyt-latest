@@ -1,3 +1,7 @@
+**Omar López shined as Team Venezuela manager, showing he can 'lead on a big stage'**\
+`López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
+https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
+
 **Carol Kitman, 96, Dies; Photographer Documented the Vindman Twins**\
 `A chance encounter in Brooklyn led to a decades-long project following the boys’ lives, from childhood to national prominence as critics of President Trump.`\
 https://nytimes.com/2026/03/18/arts/carol-kitman-dead.html
