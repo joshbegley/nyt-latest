@@ -1,3 +1,7 @@
+**N.Y.C. Teacher Is Accused of Having Child Sex Abuse Images and Meth Pipe**\
+`The teacher, Joseph Taylor McKeel, was arrested Wednesday morning as he was on his way to work.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-teacher-child-sex-abuse.html
+
 **Chavez Inspired California’s Latino Leaders but Left a Complex Legacy**\
 `Latino politicians describe having been awed by Mr. Chavez’s work on behalf of farm workers. They are now devastated by the sexual abuse allegations against him.`\
 https://nytimes.com/2026/03/18/us/cesar-chavez-latinos-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/us/politics/trump-republicans-ban-mail-voting.htm
 **Finally, Phillies' Andrew Painter is on the verge of the big leagues — and it shows**\
 `The Phillies have not set the rotation, but Painter will be in it. He looks ready for the challenge. Wednesday, he reached a different gear.`\
 https://nytimes.com/athletic/7129373/2026/03/18/andrew-painter-phillies-mlb-debut-2026/
-
-**From Serial Productions: The Idiot**\
-`Compassion has its limits when it comes to your own cousin.`\
-https://nytimes.com/2026/03/18/podcasts/serial-theidiot.html
 
