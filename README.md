@@ -1,3 +1,11 @@
+**California Probably Hasn’t Seen the Worst of This Week’s Heat Wave**\
+`From San Francisco to Los Angeles and farther inland, the highest temperatures of this heat wave are expected in the second half of the week.`\
+https://nytimes.com/2026/03/18/weather/california-heat-forecast-la-sf.html
+
+**Exploding Comet Is Spotted by NASA’s Hubble Space Telescope**\
+`In a stroke of luck, astronomers saw the comet C/2025 K1 (ATLAS)  break into four or five fragments in November after it passed close to the sun.`\
+https://nytimes.com/2026/03/18/science/comet-fragments-hubble-telescope.html
+
 **Arizona State coach does not travel with team to First Four due to illness**\
 `Miller, 40, hopes to join the Sun Devils in Iowa City in time for the Thursday night contest versus Virginia.`\
 https://nytimes.com/athletic/7129505/2026/03/18/arizona-state-coach-first-four-illness/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/us/nebraska-wildfires-evacuations.html
 **For Iranians, Bombing of Gas Field Worsens Already Dire Energy Crisis**\
 `The South Pars gas field, hit by airstrikes on Wednesday, is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
 https://nytimes.com/2026/03/18/climate/south-pars-iran-gas-field-bombing.html
-
-**For Tschabalala Self, Art Is Romantic**\
-`The painter and sculptor discusses neighborhood murals, nonlinear storytelling and her commission for the New Museum, a 13-foot-tall rendering of a couple mid-embrace.`\
-https://nytimes.com/2026/03/18/t-magazine/tschabalala-self-new-museum.html
-
-**2 Charged With Surveillance for Iran on London’s Jews**\
-`The suspects are accused of gathering information last summer on targets linked to the city’s Jewish community.`\
-https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
 
