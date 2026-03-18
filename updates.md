@@ -1,3 +1,11 @@
+**Trump’s D.H.S. Nominee Says He Would Approach Disaster Policy Differently From Noem**\
+`President Trump’s Homeland Security nominee, Senator Markwayne Mullin, Republican of Oklahoma, struck a softer tone at his confirmation hearing on Wednesday, reflecting the administration’s efforts to project a more moderate tone toward immigration enforcement.`\
+https://nytimes.com/video/us/politics/100000010788091/dhs-markwayne-mullin-hearing.html
+
+**Iran Turns Out for Funeral for Those Killed in Strikes**\
+`Some died in Iran, others on a sea far from home. They were honored together Wednesday at a procession in Tehran.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-funeral-photo.html
+
 **Days of Anger and Fear for Iranians Living With Waves of Airstrikes**\
 `Residents in Tehran and elsewhere say the attacks come at all hours and rock the ground.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-us-israel-strikes.html

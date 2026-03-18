@@ -1,3 +1,11 @@
+**Trump’s D.H.S. Nominee Says He Would Approach Disaster Policy Differently From Noem**\
+`President Trump’s Homeland Security nominee, Senator Markwayne Mullin, Republican of Oklahoma, struck a softer tone at his confirmation hearing on Wednesday, reflecting the administration’s efforts to project a more moderate tone toward immigration enforcement.`\
+https://nytimes.com/video/us/politics/100000010788091/dhs-markwayne-mullin-hearing.html
+
+**Iran Turns Out for Funeral for Those Killed in Strikes**\
+`Some died in Iran, others on a sea far from home. They were honored together Wednesday at a procession in Tehran.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-funeral-photo.html
+
 **Days of Anger and Fear for Iranians Living With Waves of Airstrikes**\
 `Residents in Tehran and elsewhere say the attacks come at all hours and rock the ground.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-us-israel-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/arts/design/trump-america-250-year-anniversary-pl
 **California Probably Hasn’t Seen the Worst of This Week’s Heat Wave**\
 `From San Francisco to Los Angeles and farther inland, the highest temperatures of this heat wave are expected in the second half of the week.`\
 https://nytimes.com/2026/03/18/weather/california-heat-forecast-la-sf.html
-
-**Exploding Comet Is Spotted by NASA’s Hubble Space Telescope**\
-`In a stroke of luck, astronomers saw the comet C/2025 K1 (ATLAS)  break into four or five fragments in November after it passed close to the sun.`\
-https://nytimes.com/2026/03/18/science/comet-fragments-hubble-telescope.html
-
-**Arizona State coach does not travel with team to First Four due to illness**\
-`Miller, 40, hopes to join the Sun Devils in Iowa City in time for the Thursday night contest versus Virginia.`\
-https://nytimes.com/athletic/7129505/2026/03/18/arizona-state-coach-first-four-illness/
 

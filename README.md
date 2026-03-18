@@ -1,3 +1,19 @@
+**Senate G.O.P. Again Blocks Bid to Stop Iran War Until Trump Wins Authorization**\
+`For the second time since the war began, Senate Democrats tried and failed to win passage of a resolution that would have halted the offensive until President Trump went to Congress for approval.`\
+https://nytimes.com/2026/03/18/us/politics/senate-republicans-trump-iran-war-authorization.html
+
+**Celtics legend Robert Parish is fan of Joe Mazzulla: 'He don’t take no crap'**\
+`Although Parish emphasized his respect for the current Celtics, he said he would choose the 1986 title team over the 2024 winners.`\
+https://nytimes.com/athletic/7129422/2026/03/18/robert-parish-book-joe-mazzulla-nba/
+
+**Messi scores 900th career goal to give Miami lead in Concacaf Champions Cup**\
+`The Argentina superstar wasted no time in recording another slice of history`\
+https://nytimes.com/athletic/7129755/2026/03/18/lionel-messi-concacaf-champions-cup-inter-miami-900/
+
+**Jim Irsay collection sells for more than $94 million at auction**\
+`From famous guitars to Secretariat's Triple Crown saddle, the Irsay collection featured an incredible variety of historic items. `\
+https://nytimes.com/athletic/7129744/2026/03/18/jim-irsay-collection-auctions-total-94-million-in-sales-set-28-records/
+
 **Trump’s D.H.S. Nominee Says He Would Approach Disaster Policy Differently From Noem**\
 `President Trump’s Homeland Security nominee, Senator Markwayne Mullin, Republican of Oklahoma, struck a softer tone at his confirmation hearing on Wednesday, reflecting the administration’s efforts to project a more moderate tone toward immigration enforcement.`\
 https://nytimes.com/video/us/politics/100000010788091/dhs-markwayne-mullin-hearing.html
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
 **Bear That Clawed 2 People in California Is Euthanized, Orphaning Its Cubs**\
 `Officials in Monrovia, Calif., had lobbied state wildlife officers to relocate the bear and her two cubs to the Angeles National Forest instead.`\
 https://nytimes.com/2026/03/18/us/bear-euthanized-california-cubs-orphaned.html
-
-**N.Y.C. Teacher Is Accused of Having Child Sex Abuse Images and Meth Pipe**\
-`The teacher, Joseph Taylor McKeel, was arrested Wednesday morning as he was on his way to work.`\
-https://nytimes.com/2026/03/18/nyregion/nyc-teacher-child-sex-abuse.html
-
-**Chavez Inspired California’s Latino Leaders but Left a Complex Legacy**\
-`Latino politicians describe having been awed by Mr. Chavez’s work on behalf of farm workers. They are now devastated by the sexual abuse allegations against him.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-latinos-california.html
-
-**A Peek Into Trump’s Planning of America’s 250th Suggests a Religious Focus**\
-`A closed-door White House event included news about the National Garden of American Heroes and an emphasis on the role of religion in the founding.`\
-https://nytimes.com/2026/03/18/arts/design/trump-america-250-year-anniversary-plan.html
-
-**California Probably Hasn’t Seen the Worst of This Week’s Heat Wave**\
-`From San Francisco to Los Angeles and farther inland, the highest temperatures of this heat wave are expected in the second half of the week.`\
-https://nytimes.com/2026/03/18/weather/california-heat-forecast-la-sf.html
 
