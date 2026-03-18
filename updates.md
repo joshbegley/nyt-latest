@@ -1,3 +1,7 @@
+**Arizona State coach does not travel with team to First Four due to illness**\
+`Miller, 40, hopes to join the Sun Devils in Iowa City in time for the Thursday night contest versus Virginia.`\
+https://nytimes.com/athletic/7129505/2026/03/18/arizona-state-coach-first-four-illness/
+
 **Champions League quarter-final bracket and predictions**\
 `The Champions League is heading into the quarter-final stage after the end of the last-16 round on Wednesday night`\
 https://nytimes.com/athletic/7129186/2026/03/18/champions-league-quarter-final-bracket-predictions/
