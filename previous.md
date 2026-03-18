@@ -1,3 +1,11 @@
+**The United Farm Workers Became Both Voice and Muscle for Field Workers**\
+`The organization that sprang from the grape fields found a home in the halls of power, in Sacramento and beyond.`\
+https://nytimes.com/2026/03/18/us/the-united-farm-workers-became-both-voice-and-muscle-for-field-workers.html
+
+**How to watch Penguins vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128520/2026/03/18/penguins-vs-hurricanes-stream-how-to-watch-march-18/
+
 **How to watch Devils vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128518/2026/03/18/devils-vs-rangers-stream-how-to-watch-march-18/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/us/dolores-huerta-cesar-chavez-allegations-ufw.ht
 **Here’s what to know.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2026/03/18/us/cesar-chavez-fallout/heres-what-to-know
-
-**Live Updates: Cesar Chavez Allegations Prompt Widespread Outrage and Cancellations**\
-`Events honoring the labor icon have been derailed by a New York Times report that he abused girls and women for years.`\
-https://nytimes.com/live/2026/03/18/us/cesar-chavez-fallout
-
-**Women Who Undergo Menopause Before 40 Face Higher Heart Attack Risk**\
-`A new study found that women who went through so-called premature menopause had 40 percent more fatal and nonfatal heart attacks over the course of their lives.`\
-https://nytimes.com/2026/03/18/health/menopause-heart-disease-risk-jama.html
 

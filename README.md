@@ -1,6 +1,14 @@
+**Maybe It’s a Bad Idea to Fall in Love When You’re Facing Death**\
+`At 61, divorced and living with Stage 4 lung cancer, a writer chooses deep fondness instead.`\
+https://nytimes.com/2026/03/18/well/dating-with-cancer.html
+
+**Google Sits Pretty as A.I. Rivals Compete for Pentagon Favor**\
+`The tech giant has been rebuilding its relationship with the Defense Department and is poised to benefit as it sidesteps competitors’ controversies.`\
+https://nytimes.com/2026/03/18/technology/google-ai-pentagon.html
+
 **The United Farm Workers Became Both Voice and Muscle for Field Workers**\
 `The organization that sprang from the grape fields found a home in the halls of power, in Sacramento and beyond.`\
-https://nytimes.com/2026/03/18/us/the-united-farm-workers-became-both-voice-and-muscle-for-field-workers.html
+https://nytimes.com/2026/03/18/us/ufw-united-farmworkers-union-chavez.html
 
 **How to watch Penguins vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/7127595/2026/03/18/fantasy-baseball-hot-hitters-spr
 `Find out how to watch the Golden State Warriors play the Boston Celtics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128470/2026/03/18/warriors-vs-celtics-stream-how-to-watch-march-18/
 
-**How Cesar Chavez Became a Labor Hero**\
-`Born into poverty in Arizona, his family was drawn to California’s fields. There, he became a civil rights icon for Mexican Americans.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-labor-farm-union-ufw.html
-
 **Cesar Chavez’s Name Has Been Woven Into America**\
 `There are many streets and boulevards, schools and statues dedicated to the civil rights activist.`\
 https://nytimes.com/2026/03/18/us/cesar-chavez-street-statue-california.html
 
-**Who Is Dolores Huerta, the Activist Accusing Chavez?**\
-`A leader of the movement to secure rights for migrant farmworkers, she is a close friend of former Speaker Nancy Pelosi and received the Presidential Medal of Freedom from Barack Obama.`\
-https://nytimes.com/2026/03/18/us/dolores-huerta-cesar-chavez-allegations-ufw.html
-
-**Here’s what to know.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2026/03/18/us/cesar-chavez-fallout/heres-what-to-know
+**How Cesar Chavez Became a Labor Hero**\
+`Born into poverty in Arizona, his family was drawn to California’s fields. There, he became a civil rights icon for Mexican Americans.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-labor-farm-union-ufw.html
 

@@ -1,3 +1,11 @@
+**The United Farm Workers Became Both Voice and Muscle for Field Workers**\
+`The organization that sprang from the grape fields found a home in the halls of power, in Sacramento and beyond.`\
+https://nytimes.com/2026/03/18/us/the-united-farm-workers-became-both-voice-and-muscle-for-field-workers.html
+
+**How to watch Penguins vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128520/2026/03/18/penguins-vs-hurricanes-stream-how-to-watch-march-18/
+
 **How to watch Devils vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128518/2026/03/18/devils-vs-rangers-stream-how-to-watch-march-18/
