@@ -1,3 +1,7 @@
+**How to watch Devils vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128518/2026/03/18/devils-vs-rangers-stream-how-to-watch-march-18/
+
 **Jessie Holmes, former reality TV star, wins second Iditarod championship**\
 `Holmes became the sixth musher to win consecutive Iditarod championships after traveling for nine days across the 975-mile Alaskan course.`\
 https://nytimes.com/athletic/7128256/2026/03/18/iditarod-race-winner-jessie-holmes/

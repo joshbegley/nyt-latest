@@ -1,3 +1,7 @@
+**How to watch Devils vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128518/2026/03/18/devils-vs-rangers-stream-how-to-watch-march-18/
+
 **Jessie Holmes, former reality TV star, wins second Iditarod championship**\
 `Holmes became the sixth musher to win consecutive Iditarod championships after traveling for nine days across the 975-mile Alaskan course.`\
 https://nytimes.com/athletic/7128256/2026/03/18/iditarod-race-winner-jessie-holmes/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/18/us/cesar-chavez-fallout
 **Women Who Undergo Menopause Before 40 Face Higher Heart Attack Risk**\
 `A new study found that women who went through so-called premature menopause had 40 percent more fatal and nonfatal heart attacks over the course of their lives.`\
 https://nytimes.com/2026/03/18/health/menopause-heart-disease-risk-jama.html
-
-**Zanzibari Pizza, Very Versatile and Supremely Shareable**\
-`It’s one of a collection of recipes Yewande Komolafe has assembled for warm gatherings.`\
-https://nytimes.com/2026/03/18/dining/zanzibari-pizza-very-versatile-and-supremely-shareable.html
 
