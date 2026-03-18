@@ -1,3 +1,7 @@
+**Donna Miller Beats Jesse Jackson Jr. in House Primary**\
+`Ms. Miller, a Cook County commissioner and a former health care consultant, blocked a comeback attempt from Mr. Jackson, who had served time in federal prison.`\
+https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-il-house-primary.html
+
 **Curt Cignetti to drive Indy 500 pace car after leading Indiana to college football title**\
 `Cignetti's role at the Indy 500 is no surprise considering the buzz surrounding the Hoosiers coach.`\
 https://nytimes.com/athletic/7126462/2026/03/17/curt-cignetti-indy-500-pace-car-indiana-college-football/
