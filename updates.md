@@ -1,3 +1,7 @@
+**Don Tracy Wins Republican Senate Primary in Illinois**\
+`The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
+
 **Darren Bailey Wins Second Chance to Challenge Illinois Gov. JB Pritzker**\
 `Mr. Bailey, a former lawmaker aligned with President Trump, lost to Mr. Pritzker in 2022. Mr. Pritzker had no opposition in a Democratic primary.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary.html

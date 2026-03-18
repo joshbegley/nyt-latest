@@ -1,3 +1,7 @@
+**Toni Preckwinkle, Longtime Chicago Democrat, Holds Off Moderate Challenger**\
+`Ms. Preckwinkle has been president of the Cook County Board for four terms. Brendan Reilly, a member of the Chicago City Council, mounted a challenge to her right in a Democratic primary.`\
+https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois.html
+
 **Don Tracy Wins Republican Senate Primary in Illinois**\
 `The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7127128/2026/03/17/cade-cunningham-back-spasms-pist
 **U.S. Says Anthropic Is an ‘Unacceptable’ National Security Risk**\
 `In a legal filing, the government said it questioned whether the A.I. start-up could be a “trusted partner” in wartime, which led it to label the company a supply chain risk.`\
 https://nytimes.com/2026/03/17/technology/anthropic-pentagon-national-security-risk.html
-
-**Your Guide to Madrid**\
-`From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
-https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
 
