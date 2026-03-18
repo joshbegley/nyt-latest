@@ -1,3 +1,7 @@
+**Arizona State coach does not travel with team to First Four due to illness**\
+`Miller, 40, hopes to join the Sun Devils in Iowa City in time for the Thursday night contest versus Virginia.`\
+https://nytimes.com/athletic/7129505/2026/03/18/arizona-state-coach-first-four-illness/
+
 **Champions League quarter-final bracket and predictions**\
 `The Champions League is heading into the quarter-final stage after the end of the last-16 round on Wednesday night`\
 https://nytimes.com/athletic/7129186/2026/03/18/champions-league-quarter-final-bracket-predictions/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/t-magazine/tschabalala-self-new-museum.html
 **2 Charged With Surveillance for Iran on London’s Jews**\
 `The suspects are accused of gathering information last summer on targets linked to the city’s Jewish community.`\
 https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
-
-**The Briefing: Liverpool 4 Galatasaray 0 - Chances aplenty, Salah scores, pressure eases on Slot**\
-`Liverpool progress to the Champions League quarter-finals with a convincing win over Galatasaray`\
-https://nytimes.com/athletic/7125261/2026/03/18/liverpool-4-galatasaray-0-champions-league-mo-salah/
 
