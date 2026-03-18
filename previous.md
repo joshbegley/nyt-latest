@@ -1,3 +1,11 @@
+**The Art of the Fashion Farewell**\
+`The way fashion designers take a bow can reveal how confident they feel after the show. Here are some of the farewells from this season.`\
+https://nytimes.com/video/fashion/runway-couture/100000010772324/the-art-of-the-fashion-farewell.html
+
+**For Universities Grappling With Chavez’s Name, Change May Take Time**\
+`Schools have moved quickly to distance themselves from the labor leader after abuse allegations emerged. Still, many have careful procedures for weighing renamings and other changes.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-universities-building-names.html
+
 **California Heat Wave Brings High Temperatures During Winter**\
 `Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
 https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/opinion/trump-iran-war.html
 **Officer at Troubled Brooklyn Jail Charged With Sexually Abusing Inmate**\
 `James Johnson, a correction officer at the Metropolitan Detention Center, first abused a male inmate inside a chaplain’s office, prosecutors said.`\
 https://nytimes.com/2026/03/18/nyregion/mdc-correctional-officer-indicted-sexual-abuse.html
-
-**Powell Says He Will Remain as Fed Chair Until Successor Is Confirmed**\
-`Jerome H. Powell, who leads the central bank, also said he would not leave the Fed until a criminal investigation into his handling of renovations was over.`\
-https://nytimes.com/2026/03/18/business/economy/fed-chair-powell-warsh-trump.html
-
-**He Tried to Rob 6 Banks, Police Say. His Total Takings: $605.**\
-`A man is accused of handing tellers notes, demanding money at six Chase branches in five days. In three of the attempts, he left empty-handed.`\
-https://nytimes.com/2026/03/18/nyregion/nyc-bank-robber-chase.html
 

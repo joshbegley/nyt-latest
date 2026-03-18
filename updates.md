@@ -1,3 +1,11 @@
+**The Art of the Fashion Farewell**\
+`The way fashion designers take a bow can reveal how confident they feel after the show. Here are some of the farewells from this season.`\
+https://nytimes.com/video/fashion/runway-couture/100000010772324/the-art-of-the-fashion-farewell.html
+
+**For Universities Grappling With Chavez’s Name, Change May Take Time**\
+`Schools have moved quickly to distance themselves from the labor leader after abuse allegations emerged. Still, many have careful procedures for weighing renamings and other changes.`\
+https://nytimes.com/2026/03/18/us/cesar-chavez-universities-building-names.html
+
 **California Heat Wave Brings High Temperatures During Winter**\
 `Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
 https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html

@@ -1,3 +1,19 @@
+**New Broncos WR Jaylen Waddle arrives eager to aid title pursuit 'in every fashion'**\
+`The blockbuster deal Denver struck for the accomplished wide receiver became official Wednesday.`\
+https://nytimes.com/athletic/7129353/2026/03/18/jaylen-waddle-broncos-trade-receiver/
+
+**At last, Avila arrives to March Madness**\
+`"Cream Abdul-Jabbar." "Larry Blurred." "Milk Chamberlain." Robbie Avila has accumulated many nicknames — and now he'll get his March moment.`\
+https://nytimes.com/athletic/7129464/2026/03/18/robbie-avila-saint-louis-ncaa-tournament-cream-abdul-jabbar/
+
+**After Vowing to Overhaul 911 Response, Mamdani Takes Cautious First Step**\
+`Mayor Zohran Mamdani is creating a Mayor’s Office of Community Safety, a pared-down version of a major campaign pledge with a smaller budget than promised.`\
+https://nytimes.com/2026/03/18/nyregion/mamdani-department-community-safety-nyc.html
+
+**Barcelona's Garcia expected to miss up to three weeks with calf injury**\
+`Barca believe Garcia has sustained a minor injury to his right calf, with further tests expected on Thursday.`\
+https://nytimes.com/athletic/7129346/2026/03/18/barcelona-joan-garcia-injury-champions-league-news/
+
 **The Art of the Fashion Farewell**\
 `The way fashion designers take a bow can reveal how confident they feel after the show. Here are some of the farewells from this season.`\
 https://nytimes.com/video/fashion/runway-couture/100000010772324/the-art-of-the-fashion-farewell.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseba
 **Palestinian Man Recounts Brutal Sexual Assault by Israeli Settlers**\
 `The man said his attackers stripped him naked, beat him and zip-tied his genitalia, an account corroborated by family members and a rights activist who were also beaten.`\
 https://nytimes.com/2026/03/18/world/middleeast/west-bank-sexual-assault-israel-settlers.html
-
-**Read the Statement From Dolores Huerta on Cesar Chavez’s Abuse**\
-`“I can no longer stay silent and must share my own experiences,” she wrote.`\
-https://nytimes.com/2026/03/18/us/dolores-huerta-statement-cesar-chavez.html
-
-**Strikes Deliver Another Blow to Iran’s Domestic Energy Sites**\
-`The attacks could worsen the severe electricity shortages that Iranians already face.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-war-israel-strikes-energy-gas-sites.html
-
-**How Trump Should Extricate Himself From His Iran Quagmire**\
-`Declaring victory and ending the war might not be so easy.`\
-https://nytimes.com/2026/03/18/opinion/trump-iran-war.html
-
-**Officer at Troubled Brooklyn Jail Charged With Sexually Abusing Inmate**\
-`James Johnson, a correction officer at the Metropolitan Detention Center, first abused a male inmate inside a chaplain’s office, prosecutors said.`\
-https://nytimes.com/2026/03/18/nyregion/mdc-correctional-officer-indicted-sexual-abuse.html
 
