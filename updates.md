@@ -1,3 +1,7 @@
+**Daniel Biss, Mayor of Evanston, Ill., Wins Democratic Nomination for House Seat**\
+`Mr. Biss emerged after being an early front-runner in the turbulent, crowded contest to replace a longtime incumbent in Illinois’s Ninth District.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democratic-primary-biss.html
+
 **Centrist Melissa Bean Wins 8th District Democratic Primary**\
 `Ms. Bean, a moderate former congresswoman, defeated a left-wing rival in the primary race for the Chicago-area seat to be vacated by Representative Raja Krishnamoorthi.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-8th-district-democratic-primary.html
