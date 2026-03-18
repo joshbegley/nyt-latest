@@ -1,3 +1,7 @@
+**Read the Statement From Dolores Huerta on Cesar Chavez’s Abuse**\
+`“I can no longer stay silent and must share my own experiences,” she wrote.`\
+https://nytimes.com/2026/03/18/us/dolores-huerta-statement-cesar-chavez.html
+
 **Strikes Deliver Another Blow to Iran’s Domestic Energy Sites**\
 `The attacks could worsen the severe electricity shortages that Iranians already face.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-war-israel-strikes-energy-gas-sites.html

@@ -1,3 +1,11 @@
+**How the Giants could draw inspiration from Team Venezuela's win**\
+`There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
+https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
+
+**Palestinian Man Recounts Brutal Sexual Assault by Israeli Settlers**\
+`The man said his attackers stripped him naked, beat him and zip-tied his genitalia, an account corroborated by family members and a rights activist who were also beaten.`\
+https://nytimes.com/2026/03/18/world/middleeast/west-bank-sexual-assault-israel-settlers.html
+
 **Read the Statement From Dolores Huerta on Cesar Chavez’s Abuse**\
 `“I can no longer stay silent and must share my own experiences,” she wrote.`\
 https://nytimes.com/2026/03/18/us/dolores-huerta-statement-cesar-chavez.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/iran-internet-shutdown.html
 **In the Catskills, a Lunch Where the Guests Glazed Their Own Pots**\
 `To mark the opening of her first solo museum show, the artist Jennie Jieun Lee invited friends over for an afternoon of community and crafts.`\
 https://nytimes.com/2026/03/18/t-magazine/jennie-jieun-lee-sculpture-ceramics.html
-
-**Why Trump Keeps Saying ‘Nuclear’**\
-`Our national security reporter David E. Sanger describes how President Trump is considering a risky commando operation at an Iranian nuclear site.`\
-https://nytimes.com/video/world/middleeast/100000010785078/why-trump-keeps-saying-nuclear.html
-
-**Omar López shined as Venezuela's manager, showing he can 'lead on a big stage'**\
-`López is a cherished member of the Astros organization who has now demonstrated on a big stage that he can be an elite manager.`\
-https://nytimes.com/athletic/7129201/2026/03/18/omar-lopez-team-venezuela-houston-astros/
 
