@@ -1,3 +1,11 @@
+**Trump’s Ballroom: Put It Underground?**\
+`Readers criticize President Trump’s proposed ballroom addition to the White House. Also: Trust the pediatrician; troops, not “boots on the ground.”`\
+https://nytimes.com/2026/03/18/opinion/trump-ballroom-east-wing-white-house.html
+
+**Joe Kent Is a Dangerous Conspiracy Theorist. His Bravery Is Going to Make Him a Star.**\
+`Kent’s resignation letter is partly rooted in truth, even if it taps into old antisemitic tropes about occult Jewish control.`\
+https://nytimes.com/2026/03/18/opinion/joe-kent-israel-iran.html
+
 **Penguins' Sidney Crosby, injured in Olympics, set to return to lineup**\
 `Sidney Crosby will make his return from a knee injury on Wednesday in Raleigh. `\
 https://nytimes.com/athletic/7128616/2026/03/18/penguins-sidney-crosby-injury-return-nhl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128789/2026/03/18/hawks-vs-mavericks-stream-how-to
 **Tom Pidcock wins Milano-Torino to underscore credentials ahead of Milan-Sanremo tilt**\
 `The Briton is one of the favorites to win the first cycling Monument of the 2026 season on Saturday`\
 https://nytimes.com/athletic/7128748/2026/03/18/tom-pidcock-milano-torino-sanremo/
-
-**How to watch Thunder vs. Nets: Time, TV, streaming**\
-`Find out how to watch the Oklahoma City Thunder play the Brooklyn Nets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128785/2026/03/18/thunder-vs-nets-stream-how-to-watch-march-18/
-
-**How to watch Clippers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128782/2026/03/18/clippers-vs-pelicans-stream-how-to-watch-march-18/
 

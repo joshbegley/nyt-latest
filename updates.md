@@ -1,3 +1,11 @@
+**Trump’s Ballroom: Put It Underground?**\
+`Readers criticize President Trump’s proposed ballroom addition to the White House. Also: Trust the pediatrician; troops, not “boots on the ground.”`\
+https://nytimes.com/2026/03/18/opinion/trump-ballroom-east-wing-white-house.html
+
+**Joe Kent Is a Dangerous Conspiracy Theorist. His Bravery Is Going to Make Him a Star.**\
+`Kent’s resignation letter is partly rooted in truth, even if it taps into old antisemitic tropes about occult Jewish control.`\
+https://nytimes.com/2026/03/18/opinion/joe-kent-israel-iran.html
+
 **Penguins' Sidney Crosby, injured in Olympics, set to return to lineup**\
 `Sidney Crosby will make his return from a knee injury on Wednesday in Raleigh. `\
 https://nytimes.com/athletic/7128616/2026/03/18/penguins-sidney-crosby-injury-return-nhl/
