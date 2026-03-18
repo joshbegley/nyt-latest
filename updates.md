@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
 
+**After looking in the mirror, Deandre Ayton is ‘110 percent’ bought in for the Lakers**\
+`Less scoring, more impact and a renewed focus is changing everything for the former No. 1 pick. 
+`\
+https://nytimes.com/athletic/7127470/2026/03/18/deandre-ayton-lakers-nba/
+
 **Rosenthal: Bryce Harper met the moment at WBC, but a title yet again proved elusive**\
 `Harper's actions before, during and after the WBC final against Venezuela showed his understanding of his place in the game.`\
 https://nytimes.com/athletic/7127918/2026/03/18/bryce-harper-world-baseball-classic-team-usa/
