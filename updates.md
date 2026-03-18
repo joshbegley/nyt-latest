@@ -1,3 +1,15 @@
+**Why Is NBA YoungBoy on a Nettspend Song?**\
+`Our critic Jon Caramanica on how Nettspend and NBA YoungBoy’s recent collaboration is emblematic of hip-hop’s rapid evolution.`\
+https://nytimes.com/video/podcasts/100000010787572/why-is-nba-youngboy-on-a-nettspend-song.html
+
+**The Good List: 6 Things to Add Delight to Your Day**\
+`Peony tulips, transcendent eye contact and a new game from the creator of Wordle.`\
+https://nytimes.com/2026/03/18/briefing/the-good-list-6-things-to-add-delight-to-your-day.html
+
+**The Briefing: Barcelona 7 Newcastle 2 – Champions League contenders, defensive disaster and Raphinha shines**\
+`The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
+https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
+
 **World Cup 2026: U.S. host cities awarded $625m in security funding after delay**\
 `The funding, awarded by the Federal Emergency Management Agency, was held up following a partisan row over the partial DHS shutdown.`\
 https://nytimes.com/athletic/7129095/2026/03/18/fema-funding-world-cup-host-cities-dhs/
