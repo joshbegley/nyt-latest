@@ -1,3 +1,11 @@
+**Carol Kitman, 96, Dies; Photographer Documented the Vindman Twins**\
+`A chance encounter in Brooklyn led to a decades-long project following the boys’ lives, from childhood to national prominence as critics of President Trump.`\
+https://nytimes.com/2026/03/18/arts/carol-kitman-dead.html
+
+**Red Sox reworked contract with Danny Coulombe after issues with physical: Source**\
+`After the Red Sox raised concerns with his initial physical, Coulombe's contract was restructured with a lower base pay but roster bonuses.`\
+https://nytimes.com/athletic/7129197/2026/03/18/red-sox-danny-coulombe-physical-contract/
+
 **Why Is NBA YoungBoy on a Nettspend Song?**\
 `Our critic Jon Caramanica on how Nettspend and NBA YoungBoy’s recent collaboration is emblematic of hip-hop’s rapid evolution.`\
 https://nytimes.com/video/podcasts/100000010787572/why-is-nba-youngboy-on-a-nettspend-song.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result
 **Panthers trading QB Andy Dalton to Eagles: Sources**\
 `The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
 https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
-
-**Child Care Company Agrees to Pause N.Y.C. Expansion After Abuse Case**\
-`Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
-https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
-
-**Drew Allar looking healthy as he shows off arm strength at Penn State's pro day**\
-`Allar, returning from an ankle injury last season, threw to Penn State teammates in a pro day workout with NFL scouts in attendance. `\
-https://nytimes.com/athletic/7129051/2026/03/18/drew-allar-penn-state-pro-day-nfl-draft/
 
