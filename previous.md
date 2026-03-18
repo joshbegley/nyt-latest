@@ -1,32 +1,40 @@
-**Couple Killed in Cluster Bomb Attack Near Tel Aviv**\
-`Neighbors told Israeli news media that their apartment building was hit soon after a siren sounded.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-war-bombing-tel-aviv-deaths.html
+**Trump Renews Demand for Rate Cuts as Fed Grapples With War in Iran**\
+`Oil prices are soaring, threatening a wider problem with inflation, but the president has insisted that borrowing costs must be lowered.`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/trump-rate-cuts-iran
 
-**Silicon Valley Musters Behind-the-Scenes Support for Anthropic**\
-`Tech companies have been reluctant to directly confront Trump administration officials over their contract feud with the A.I. start-up.`\
-https://nytimes.com/2026/03/18/technology/silicon-valley-anthropic-pentagon.html
+**Two measures, two stories about inflation**\
+`The Federal Reserve must contend with price readings that seem headed in opposite directions.`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/two-measures-two-stories-about-inflation
 
-**Make your NCAA Tournament bracket picks fast, and smart, with these tips**\
-`Did you put off your NCAA tournament pool picks until the last minute? We got you.`\
-https://nytimes.com/athletic/7128444/2026/03/18/last-minute-march-madness-bracket-picks-tips-strategies/
+**Federal Reserve Faces a Tenuous Moment for Rates and the Economy**\
+`Officials at the central bank will release their latest decision on interest rates after the job market weakened and war with Iran pushed up prices.`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates
 
-**The internet immortality of an epic March Madness underdog**\
-`Every March, when the bracket begins to wobble and another underdog starts to believe, the internet looks for UMBC.`\
-https://nytimes.com/athletic/7128218/2026/03/18/umbc-twitter-march-madness-social-media/
+**An Abandoned Russian Tanker Is Drifting at Sea. Will Anyone Stop It?**\
+`An attack forced its crew to abandon ship in early March. No country has intervened, despite fears of environmental disaster.`\
+https://nytimes.com/2026/03/18/world/europe/abandoned-russian-tanker-mediterranean-sea.html
 
-**Matt Barrie to succeed Laura Rutledge as 'SEC Nation' host: Sources**\
-`In Barrie’s 13 years at ESPN, he has been a college football host, play-by-play announcer, "SportsCenter" anchor and more.`\
-https://nytimes.com/athletic/7128510/2026/03/18/sec-nation-host-matt-barrie-laura-rutledge/
+**How to read the Fed’s projections like a pro.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/fed-dot-plot
 
-**WADA, after disputed Trump Olympic ban report, delays discussion on unpaid dues**\
-`WADA said it will revisit the discussion at the executive committee's next meeting in Serbia in September.`\
-https://nytimes.com/athletic/7128189/2026/03/18/wada-report-trump-la-olympics-ban-delay-world-cup/
+**Iran’s South Pars Gas Field Is Attacked, Sending Energy Prices Soaring**\
+`The field is part of a vast gas reservoir shared by Iran and Qatar. The strike appeared to be the most significant attack on an energy site since the U.S.-Israeli air war against Iran began.`\
+https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-south-pars-gas-oil-prices.html
 
-**How to watch Prairie View A&M vs. Lehigh men's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Prairie View A&M Panthers play the Lehigh Mountain Hawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128598/2026/03/18/prairie-view-a-m-vs-lehigh-stream-how-to-watch-march-18/
+**N.Y.C. High School Student Freed After 10 Months in ICE Detention**\
+`The arrest of Dylan Lopez Contreras last year was the first reported case of a public school student in the city being taken by federal immigration agents since President Trump returned to office.`\
+https://nytimes.com/2026/03/18/nyregion/nyc-high-school-student-ice-freed.html
 
-**Paul Questions Mullin’s Character Over Response to Attack by Neighbor**\
-`Senator Rand Paul was assaulted in 2017. Markwayne Mullin acknowledged that he once said he understood the reason for the attack, but did not apologize.`\
-https://nytimes.com/2026/03/18/us/politics/paul-mullin-confirmation-hearing.html
+**What the Fed’s rate decision means for your finances**\
+`See how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/what-the-feds-rate-decision-means-for-your-finances
+
+**For U.S., Unmet Expectations in Iran Fit a Familiar Pattern in the Region**\
+`Iran’s military retaliation, along with the political defiance of its new leaders, evokes a decades-old pattern of unrealized goals for American interventions in the region.`\
+https://nytimes.com/2026/03/18/us/israel-us-iran-strategy-war.html
+
+**My Friend’s Husband Is a Tax Deadbeat. Should I Tell the I.R.S.?**\
+`I am troubled that this man, a public-school teacher, has been avoiding something I consider to be a civic duty.`\
+https://nytimes.com/2026/03/18/magazine/friend-husband-tax-deadbeat-ethics.html
 

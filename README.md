@@ -7,7 +7,7 @@ https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/trum
 https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/two-measures-two-stories-about-inflation
 
 **Federal Reserve Faces a Tenuous Moment for Rates and the Economy**\
-`Officials at the central bank will release their latest decision on interest rates after the job market weakened and war with Iran pushed up prices.`\
+`Officials at the central bank will release their latest decision on interest rates amid a weakening job market and war with Iran.`\
 https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates
 
 **An Abandoned Russian Tanker Is Drifting at Sea. Will Anyone Stop It?**\
