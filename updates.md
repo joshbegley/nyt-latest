@@ -1,3 +1,7 @@
+**Star-studded Team USA is upset as Venezuela wins first WBC title**\
+`Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
+https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
+
 **La Shawn K. Ford Wins Nomination for House Seat Long Held by Danny Davis**\
 `Mr. Ford, who received Mr. Davis’s endorsement, emerged from a wide field of candidates seeking to represent a district that includes the West Side of Chicago.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-district-7-primary-election-la-shawn-ford.html

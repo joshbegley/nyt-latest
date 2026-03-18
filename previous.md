@@ -1,3 +1,7 @@
+**Star-studded Team USA is upset as Venezuela wins first WBC title**\
+`Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
+https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
+
 **La Shawn K. Ford Wins Nomination for House Seat Long Held by Danny Davis**\
 `Mr. Ford, who received Mr. Davis’s endorsement, emerged from a wide field of candidates seeking to represent a district that includes the West Side of Chicago.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-district-7-primary-election-la-shawn-ford.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary
 **First Four: Howard tops UMBC for first tournament win, advances to face No. 1 Michigan**\
 `Ose Okojie finished with 23 points, and the Bison beat the Retrievers 86-83 to claim their first NCAA Tournament victory in school history.`\
 https://nytimes.com/athletic/7126887/2026/03/17/mens-march-madness-first-four-umbc-howard-texas-nc-state/
-
-**Donna Miller Beats Jesse Jackson Jr. in House Primary**\
-`Ms. Miller, a Cook County commissioner and a former health care consultant, blocked a comeback attempt from Mr. Jackson, who had served time in federal prison.`\
-https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-il-house-primary.html
 
