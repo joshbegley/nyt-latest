@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Homeland Security Pick to Face Confirmation Hearing**\
+``\
+https://nytimes.com/live/2026/03/18/us/trump-news
+
 **Weighing the Costs of Corporate Silence**\
 `The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission is said to weigh a rule change. What it could mean for investors is likely to stir debate.`\
 https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.html
