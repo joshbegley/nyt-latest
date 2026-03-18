@@ -1,3 +1,15 @@
+**Down to Business: 2026 season marks arrival of NWSL 4.0**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/7126469/2026/03/18/nwsl-2026-big-investment-berman-down-to-business/
+
+**Mandel's Mailbag: Next double CFP/NCAA Tournament champion? Dabo or Joey McGuire?**\
+`In the spirit of March, it's a college football/hoops crossover mailbag today, from the next 2006-07 Florida to vanishing two-sport stars.`\
+https://nytimes.com/athletic/7126630/2026/03/18/college-football-basketball-national-champions-cfp-tournament/
+
+**Ten seasons, one Champions League. Should Guardiola have done better in Europe with Man City?**\
+`They have been England's premier side domestically for a decade but, as Michael Cox explains, something has been lacking in Europe`\
+https://nytimes.com/athletic/7127034/2026/03/18/guardiola-champions-league-manchester-city/
+
 **The Pulse: Second place, again**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/7126437/2026/03/18/usa-venezuela-wbc-final-the-pulse/
