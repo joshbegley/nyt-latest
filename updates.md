@@ -1,3 +1,11 @@
+**From Serial Productions: The Idiot**\
+`Compassion has its limits when it comes to your own cousin.`\
+https://nytimes.com/2026/03/18/podcasts/serial-theidiot.html
+
+**For Iranians, Bombing of Gas Field Worsens Already Dire Energy Crisis**\
+`The South Pars gas field, hit by airstrikes on Wednesday, is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
+https://nytimes.com/2026/03/18/climate/south-pars-iran-gas-field-bombing.html
+
 **Nebraska Wildfires Consume Nearly 800,000 Acres**\
 `The Morrill fire, the largest wildfire in state history, was 16 percent contained on Wednesday. The blaze was blamed for the death of an 86-year-old woman, the governor said.`\
 https://nytimes.com/2026/03/18/us/nebraska-wildfires-evacuations.html

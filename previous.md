@@ -1,9 +1,13 @@
+**From Serial Productions: The Idiot**\
+`Compassion has its limits when it comes to your own cousin.`\
+https://nytimes.com/2026/03/18/podcasts/serial-theidiot.html
+
 **Nebraska Wildfires Consume Nearly 800,000 Acres**\
 `The Morrill fire, the largest wildfire in state history, was 16 percent contained on Wednesday. The blaze was blamed for the death of an 86-year-old woman, the governor said.`\
 https://nytimes.com/2026/03/18/us/nebraska-wildfires-evacuations.html
 
 **For Iranians, Bombing of Gas Field Worsens Already Dire Energy Crisis**\
-`The South Pars gas field is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
+`The South Pars gas field, hit by airstrikes on Wednesday, is central to the energy supply of Iran, which was already suffering blackouts before the war.`\
 https://nytimes.com/2026/03/18/climate/south-pars-iran-gas-field-bombing.html
 
 **For Tschabalala Self, Art Is Romantic**\
@@ -29,8 +33,4 @@ https://nytimes.com/2026/03/18/science/james-barnard-dead.html
 **Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
 `Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
-
-**What’s in Our Queue? ‘The Shadow of Your Smile’ and More**\
-`Text by Reis Thebault`\
-https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
 
