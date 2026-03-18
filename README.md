@@ -1,3 +1,15 @@
+**Quote of the Day: Tech’s Big Bet On Weapons Is Paying Off**\
+`Quotation of the Day for Wednesday, March 18, 2026.`\
+https://nytimes.com/2026/03/17/pageoneplus/quote-of-the-day-techs-big-bet-on-weapons-is-paying-off.html
+
+**A look at the future? Blackhawks go with youngest defenseman group yet**\
+`Against the Wild, the Blackhawks' entire defense was 24 years old or younger, with increasing comfort evident in an overtime loss.`\
+https://nytimes.com/athletic/7127169/2026/03/17/blackhawks-defense-young-prospects-del-mastro-levshunov-crevier-wild/
+
+**Anthony Edwards, Obama promo shows Edwards' unmatched potential as NBA's comedic voice**\
+`Whether Edwards likes it or not, he’s the kind of player the league can market to the masses.`\
+https://nytimes.com/athletic/7127245/2026/03/17/anthony-edwards-barack-obama-commercial-presidential-center/
+
 **This is what happened on March 17.**\
 `(No description)`\
 https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-17
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democ
 **Centrist Melissa Bean Wins 8th District Democratic Primary**\
 `Ms. Bean, a moderate former congresswoman, defeated a left-wing rival in the primary race for the Chicago-area seat to be vacated by Representative Raja Krishnamoorthi.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-8th-district-democratic-primary.html
-
-**You Might Take a Spin in This**\
-`Adam Vincent’s puzzle is a winner.`\
-https://nytimes.com/2026/03/17/crosswords/daily-puzzle-2026-03-18.html
-
-**Toni Preckwinkle, Longtime Chicago Democrat, Holds Off Moderate Challenger**\
-`Ms. Preckwinkle has been president of the Cook County Board for four terms. Brendan Reilly, a member of the Chicago City Council, mounted a challenge to her right in a Democratic primary.`\
-https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois.html
-
-**Don Tracy Wins Republican Senate Primary in Illinois**\
-`The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
 

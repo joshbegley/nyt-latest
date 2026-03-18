@@ -1,3 +1,7 @@
+**This is what happened on March 17.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-17
+
 **Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
 `LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
 https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/

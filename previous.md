@@ -1,3 +1,7 @@
+**This is what happened on March 17.**\
+`(No description)`\
+https://nytimes.com/live/2026/world/us-israel-iran-attack-maps/this-is-what-happened-on-march-17
+
 **Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
 `LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
 https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/cook-county-board-president-illinois
 **Don Tracy Wins Republican Senate Primary in Illinois**\
 `The former state party chair will begin the general election as a significant underdog in a heavily Democratic state.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-tracy.html
-
-**Darren Bailey Wins Second Chance to Challenge Illinois Gov. JB Pritzker**\
-`Mr. Bailey, a former lawmaker aligned with President Trump, lost to Mr. Pritzker in 2022. Mr. Pritzker had no opposition in a Democratic primary.`\
-https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary.html
 
