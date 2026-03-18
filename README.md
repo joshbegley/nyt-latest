@@ -1,3 +1,7 @@
+**Daniel Biss, Mayor of Evanston, Ill., Wins Democratic Nomination for House Seat**\
+`Mr. Biss emerged after being an early front-runner in the turbulent, crowded contest to replace a longtime incumbent in Illinois’s Ninth District.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democratic-primary-biss.html
+
 **Centrist Melissa Bean Wins 8th District Democratic Primary**\
 `Ms. Bean, a moderate former congresswoman, defeated a left-wing rival in the primary race for the Chicago-area seat to be vacated by Representative Raja Krishnamoorthi.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-8th-district-democratic-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7126462/2026/03/17/curt-cignetti-indy-500-pace-car-
 **Postmaster Says Service Will Be ‘Out of Cash’ in Under a Year**\
 `The U.S.P.S. leader said at a hearing that the service could run out of cash within a year and asked lawmakers to increase its borrowing limits.`\
 https://nytimes.com/2026/03/17/us/politics/usps-postal-service-finances.html
-
-**Cuban Americans Will Be Allowed to Own Businesses in Cuba, but Is That Enough?**\
-`The Cuban government announced that Cubans living abroad can own and invest in businesses, but experts said they were disappointed that the measures didn’t go further.`\
-https://nytimes.com/2026/03/17/world/americas/cuba-americans-invest-businesses.html
 
