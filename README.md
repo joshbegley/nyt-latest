@@ -1,3 +1,11 @@
+**How to watch SFA vs. Missouri State women's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Stephen F. Austin Ladyjacks play the Missouri State Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128872/2026/03/18/sfa-vs-missouri-state-stream-how-to-watch-march-18/
+
+**Canada calls up Aribim Pepple, of English third tier, for its March roster**\
+`An injury to Promise David means there is an opportunity for Pepple, Plymouth Argyle's 23-year-old striker who has been in strong form.`\
+https://nytimes.com/athletic/7128487/2026/03/18/aribim-pepple-canada-roster-who/
+
 **Read the document**\
 `A letter to Gov. Kathy Hochul of New York from scientists about the the climate law.`\
 https://nytimes.com/interactive/2026/03/18/us/hochul-letter-march7.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128807/2026/03/18/raptors-vs-bulls-stream-how-to-w
 **How to watch Nuggets vs. Grizzlies: Time, TV, streaming**\
 `Find out how to watch the Denver Nuggets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128798/2026/03/18/nuggets-vs-grizzlies-stream-how-to-watch-march-18/
-
-**Mullin’s Softer Tone at Hearing Underscores G.O.P. Shift on Immigration**\
-`The senator sounded a warmer and fuzzier tone at his D.H.S. confirmation hearing than President Trump often has, the latest sign that the administration wants to project a more moderated approach.`\
-https://nytimes.com/2026/03/18/us/politics/trump-mullin-dhs-hearing-immigration.html
-
-**How to watch Trail Blazers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128794/2026/03/18/trail-blazers-vs-pacers-stream-how-to-watch-march-18/
 
