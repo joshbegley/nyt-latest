@@ -1,3 +1,7 @@
+**The Briefing: Barcelona 7 Newcastle 2 - Champions League contenders, defensive disaster and Raphinha shines**\
+`The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
+https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
+
 **Panthers trading QB Andy Dalton to Eagles: Sources**\
 `The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
 https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/us/politics/jd-vance-joe-kent-resignation.html
 **Israel Kills Another Top Iranian Official as Tehran Retaliates**\
 `An Israeli airstrike killed Iran’s intelligence minister, continuing its targeting of high-ranking officials. In retaliation for the killings of two other top officials the day before, Iran launched missile attacks that killed two people outside Tel Aviv.`\
 https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmaeil-khatib-killed.html
-
-**How to watch Lakers vs. Rockets: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7129088/2026/03/18/lakers-vs-rockets-stream-how-to-watch-march-18/
 
