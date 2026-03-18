@@ -1,3 +1,15 @@
+**2 Charged With Surveillance for Iran on London’s Jews**\
+`The suspects are accused of gathering information last summer on targets linked to the city’s Jewish community.`\
+https://nytimes.com/2026/03/18/world/europe/iran-uk-arrests-surveillance.html
+
+**The Briefing: Liverpool 4 Galatasaray 0 - Chances aplenty, Salah scores, pressure eases on Slot**\
+`Liverpool progress to the Champions League quarter-finals with a convincing win over Galatasaray`\
+https://nytimes.com/athletic/7125261/2026/03/18/liverpool-4-galatasaray-0-champions-league-mo-salah/
+
+**The Briefing: Tottenham 3 Atletico 2 - Can Spurs and their fans take hope from this? Is Tudor safe now?**\
+`Tottenham produced a strong performance on the night but Simeone's side advanced to the quarter-finals as 7-5 winners on aggregate...`\
+https://nytimes.com/athletic/7125263/2026/03/18/tottenham-atletico-champions-league-tel-simons-tudor/
+
 **James Barnard, a Global Force in Wastewater Treatment, Dies at 90**\
 `An environmental engineer, he invented a biological method to remove nitrogen and phosphorous from wastewater, an advance that transformed the industry worldwide.`\
 https://nytimes.com/2026/03/18/science/james-barnard-dead.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/7129464/2026/03/18/robbie-avila-saint-louis-ncaa-to
 **After Vowing to Overhaul 911 Response, Mamdani Takes Cautious First Step**\
 `Mayor Zohran Mamdani is creating a Mayor’s Office of Community Safety, a pared-down version of a major campaign pledge with a smaller budget than promised.`\
 https://nytimes.com/2026/03/18/nyregion/mamdani-department-community-safety-nyc.html
-
-**Barcelona's Garcia expected to miss up to three weeks with calf injury**\
-`Barca believe Garcia has sustained a minor injury to his right calf, with further tests expected on Thursday.`\
-https://nytimes.com/athletic/7129346/2026/03/18/barcelona-joan-garcia-injury-champions-league-news/
-
-**The Art of the Fashion Farewell**\
-`The way fashion designers take a bow can reveal how confident they feel after the show. Here are some of the farewells from this season.`\
-https://nytimes.com/video/fashion/runway-couture/100000010772324/the-art-of-the-fashion-farewell.html
-
-**For Universities Grappling With Chavez’s Name, Change May Take Time**\
-`Schools have moved quickly to distance themselves from the labor leader after abuse allegations emerged. Still, many have careful procedures for weighing renamings and other changes.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-universities-building-names.html
-
-**California Heat Wave Brings High Temperatures During Winter**\
-`Across the state, California is experiencing abnormally high temperatures because of a heat wave. Heat advisories and extreme heat warnings are in effect from Napa to San Diego.`\
-https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.html
 

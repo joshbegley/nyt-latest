@@ -1,3 +1,7 @@
+**James Barnard, a Global Force in Wastewater Treatment, Dies at 90**\
+`An environmental engineer, he invented a biological method to remove nitrogen and phosphorous from wastewater, an advance that transformed the industry worldwide.`\
+https://nytimes.com/2026/03/18/science/james-barnard-dead.html
+
 **Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
 `Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
