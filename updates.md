@@ -1,3 +1,7 @@
+**Why seniors are appealing in the NBA Draft again: 12 to watch in the NCAA Tournament**\
+`The final 30 to 40 picks of the NBA draft could be a parade of seniors, and they’re likely to be better prospects than those in the past.`\
+https://nytimes.com/athletic/7126877/2026/03/18/march-madness-nba-draft-seniors/
+
 **Corrections: March 18, 2026**\
 `Corrections that appeared in print on Wednesday, March 18, 2026.`\
 https://nytimes.com/2026/03/18/pageoneplus/corrections-march-18-2026.html
