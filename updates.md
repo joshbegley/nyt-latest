@@ -1,3 +1,15 @@
+**The Briefing: Barcelona 7 Newcastle 2 - Champions League contenders, defensive disaster and Raphinha shines**\
+`The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
+https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
+
+**Panthers trading QB Andy Dalton to Eagles: Sources**\
+`The Panthers made the 38-year-old Dalton available via trade last month, then added Kenny Pickett in free agency last week.`\
+https://nytimes.com/athletic/7129154/2026/03/18/andy-dalton-trade-eagles-panthers/
+
+**Child Care Company Agrees to Pause Expansion After N.Y.C. Abuse Case**\
+`Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
+https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
+
 **Child Care Company Agrees to Curtail Expansion After N.Y.C. Abuse Case**\
 `Bright Horizons, the child care giant, will also surrender permits for a Manhattan branch where workers were charged with abusing toddlers.`\
 https://nytimes.com/2026/03/18/nyregion/bright-horizons-settlement-permits.html
