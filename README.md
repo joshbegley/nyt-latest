@@ -1,3 +1,11 @@
+**Giannis, Bucks at odds over whether star should finish the season: Sources**\
+`The Bucks believe it would benefit Antetokounmpo to sit out the team's 14 remaining games, but he wants to play, per league sources.`\
+https://nytimes.com/athletic/7128193/2026/03/18/giannis-antetokounmpo-bucks-injury-playing-time-nba/
+
+**U.S. Intelligence Saw No Change in Iran’s Missile Capabilities Before War**\
+`On Wednesday, the director of national intelligence and C.I.A. director contradicted one of the justifications the Trump administration had given for its attacks on Iran.`\
+https://nytimes.com/2026/03/18/world/middleeast/tulsi-gabbard-senate-testimony-iran-war.html
+
 **Tiny Love Stories: ‘My Friends Said That He Was Too Old for Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2026/03/18/style/tiny-modern-love-stories-my-friends-said-that-he-was-too-old-for-me.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
 **A Cafe on the Edge of Destruction**\
 `Near the center of Beirut, one image captures the aftermath of an Israeli strike.`\
 https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
-
-**Iran Executes Swedish Citizen Accused of Spying**\
-`The case indicates that more than two weeks into the war, Iran continues its prosecution of foreigners. Sweden said its citizen did not get a fair trial.`\
-https://nytimes.com/2026/03/18/world/middleeast/swedish-citizen-executed-iran.html
-
-**Dissecting Liam Rosenior's note writing (when Chelsea were six goals behind against PSG)**\
-`This is Tim Spiers's tongue-in-cheek breakdown of Liam Rosenior's late-game instructions to Alejandro Garnacho and the Chelsea players`\
-https://nytimes.com/athletic/7128639/2026/03/18/chelsea-liam-rosenior-note/
 
