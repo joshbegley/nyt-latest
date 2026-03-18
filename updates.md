@@ -1,3 +1,11 @@
+**La Shawn K. Ford Wins Nomination for House Seat Long Held by Danny Davis**\
+`Mr. Ford, who received Mr. Davis’s endorsement, emerged from a wide field of candidates seeking to represent a district that includes the West Side of Chicago.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-district-7-primary-election-la-shawn-ford.html
+
+**Juliana Stratton Wins Democratic Primary for Senate in Deep-Blue Illinois**\
+`Ms. Stratton, the state’s lieutenant governor, prevailed with millions of dollars of help from Gov. JB Pritzker, a billionaire. She will be heavily favored in the general election.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-senate-democratic-primary-juliana-stratton.html
+
 **Daniel Biss, Mayor of Evanston, Ill., Wins Democratic Nomination for House Seat**\
 `Mr. Biss emerged after being an early front-runner in the turbulent, crowded contest to replace a longtime incumbent in Illinois’s Ninth District.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democratic-primary-biss.html

@@ -1,3 +1,11 @@
+**La Shawn K. Ford Wins Nomination for House Seat Long Held by Danny Davis**\
+`Mr. Ford, who received Mr. Davis’s endorsement, emerged from a wide field of candidates seeking to represent a district that includes the West Side of Chicago.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-district-7-primary-election-la-shawn-ford.html
+
+**Juliana Stratton Wins Democratic Primary for Senate in Deep-Blue Illinois**\
+`Ms. Stratton, the state’s lieutenant governor, prevailed with millions of dollars of help from Gov. JB Pritzker, a billionaire. She will be heavily favored in the general election.`\
+https://nytimes.com/2026/03/17/us/elections/illinois-senate-democratic-primary-juliana-stratton.html
+
 **Daniel Biss, Mayor of Evanston, Ill., Wins Democratic Nomination for House Seat**\
 `Mr. Biss emerged after being an early front-runner in the turbulent, crowded contest to replace a longtime incumbent in Illinois’s Ninth District.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-9th-district-congress-democratic-primary-biss.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7126887/2026/03/17/mens-march-madness-first-four-um
 **Donna Miller Beats Jesse Jackson Jr. in House Primary**\
 `Ms. Miller, a Cook County commissioner and a former health care consultant, blocked a comeback attempt from Mr. Jackson, who had served time in federal prison.`\
 https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-il-house-primary.html
-
-**Curt Cignetti to drive Indy 500 pace car after leading Indiana to college football title**\
-`Cignetti's role at the Indy 500 is no surprise considering the buzz surrounding the Hoosiers coach.`\
-https://nytimes.com/athletic/7126462/2026/03/17/curt-cignetti-indy-500-pace-car-indiana-college-football/
-
-**Postmaster Says Service Will Be ‘Out of Cash’ in Under a Year**\
-`The U.S.P.S. leader said at a hearing that the service could run out of cash within a year and asked lawmakers to increase its borrowing limits.`\
-https://nytimes.com/2026/03/17/us/politics/usps-postal-service-finances.html
 
