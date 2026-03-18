@@ -1,3 +1,11 @@
+**Stratton Wins and AIPAC’s Power Is Tested: 4 Illinois Takeaways**\
+`Democratic voters put Lt. Gov. Juliana Stratton on a path to the Senate, while the pro-Israel lobby notched its first major victories of the year but also faced a tough defeat.`\
+https://nytimes.com/2026/03/18/us/elections/illinois-primary-elections-takeaways.html
+
+**Forest in flux: The threat of relegation, financial implications, and player futures**\
+`The club face a crucial few months on and off the pitch. We look at the battles ahead`\
+https://nytimes.com/athletic/7125036/2026/03/18/nottingham-forest-finances-relegation-cost/
+
 **Sir Jim Ratcliffe talked about Man Utd's players, coach, finances and future. One year on, how does it look?**\
 `A year on from speaking freely about his mistakes and ambitions with Manchester United, how much did Sir Jim Ratcliffe get right?`\
 https://nytimes.com/athletic/7125144/2026/03/18/jim-ratcliffe-manchester-united-players-coach-finances/
