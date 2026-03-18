@@ -1,6 +1,6 @@
-**Jack Hughes wants "Golden Goal" puck back from Hockey Hall of Fame**\
-`The star of Team USA's Olympic win against Canada would like to get a hold of the memento currently on display in the Toronto Hall.`\
-https://nytimes.com/athletic/7128337/2026/03/18/jack-hughes-wants-golden-goal-puck-from-hockey-hall-of-fame/
+**Jack Hughes wants the 'Golden Goal' puck from Hockey Hall of Fame**\
+`The star of Team USA's Olympic win against Canada would like to get a hold of the memento currently on display in Toronto.`\
+https://nytimes.com/athletic/7128337/2026/03/18/jack-hughes-olympic-puck-hockey-hall-of-fame/
 
 **U.S. Suspends Oil Shipping Rules to Ease Gas Price Pressures**\
 `The Jones Act dictates that only ships made in the United States can transport cargo between U.S. ports. Such vessels, which must also be crewed by Americans, charge customers more than foreign ships.`\
