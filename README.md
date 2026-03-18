@@ -4,7 +4,7 @@ https://nytimes.com/2026/03/18/headway/motor-vehicles-fatalities-newsletter.html
 
 **What to Know about the Meningitis Outbreak in Britain**\
 `At least 20 young adults are believed to be infected, and two have died, in an outbreak of meningococcal disease in the county of Kent, in southeast England.`\
-https://nytimes.com/2026/03/18/world/europe/what-to-know-about-the-meningitis-outbreak-in-britain.html
+https://nytimes.com/2026/03/18/world/europe/uk-meningitis-outbreak-what-to-know.html
 
 **How to watch Miami (OH) vs. SMU men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the SMU Mustangs, with time, TV channel and streaming information.`\

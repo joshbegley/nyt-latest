@@ -1,3 +1,7 @@
+**Why are U.S. traffic deaths increasing again?**\
+`Plus, the rise of “autobesity.”`\
+https://nytimes.com/2026/03/18/headway/motor-vehicles-fatalities-newsletter.html
+
 **What to Know about the Meningitis Outbreak in Britain**\
 `At least 20 young adults are believed to be infected, and two have died, in an outbreak of meningococcal disease in the county of Kent, in southeast England.`\
 https://nytimes.com/2026/03/18/world/europe/what-to-know-about-the-meningitis-outbreak-in-britain.html
