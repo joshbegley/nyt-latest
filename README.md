@@ -1,3 +1,11 @@
+**A Novel Follows a Life in Exile: Always on the Move, Past in Tow**\
+`“Paradiso 17,” by Hannah Lillith Assadi, considers the toll of displacement through the tale of a Palestinian émigré.`\
+https://nytimes.com/2026/03/18/books/review/hannah-lillith-assadi-paradiso-17.html
+
+**Nigeria to appeal as claim DR Congo fielded ineligible players in World Cup play-off rejected**\
+`The NFF filed a petition to FIFA “alleging "perceived fraud" in the supplying of passports.`\
+https://nytimes.com/athletic/7128340/2026/03/18/nigeria-dr-congo-fifa-appeal/
+
 **Why the Maple Leafs signed NCAA free agent Vincent Borgesi**\
 `The newest Maple Leafs NCAA signing is small for an NHL defenceman. His college coach says he makes up for it with his play driving.`\
 https://nytimes.com/athletic/7128133/2026/03/18/maple-leafs-ncaa-free-agent-vincent-borgesi/
@@ -26,12 +34,4 @@ https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khati
 **Arsenal's transitions are hard to handle - just ask Bayer Leverkusen**\
 `Knowing Mikel Arteta's side have become a dangerous threat on the transition is one thing. Stopping it is another`\
 https://nytimes.com/athletic/7127756/2026/03/18/arsenal-transition-champions-league-leverkusen-arteta/
-
-**Morocco being handed Senegal's AFCON title leaves tournament’s credibility in tatters**\
-`Shock decision to strip the champions of the trophy and give it to their host-nation opponents came 57 days after a chaotic final`\
-https://nytimes.com/athletic/7128044/2026/03/18/morocco-senegal-afcon-decision-column/
-
-**Cesar Chavez, a Civil Rights Icon, Is Accused of Abusing Girls for Years**\
-`An investigation by The New York Times found extensive evidence that the United Farm Workers co-founder groomed and sexually abused girls who worked in the movement.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-sexual-abuse-allegations-ufw.html
 
