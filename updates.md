@@ -1,3 +1,7 @@
+**Star-studded Team USA upset as Venezuela wins first WBC title**\
+`Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
+https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
+
 **Star-studded Team USA is upset as Venezuela wins first WBC title**\
 `Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
 https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
