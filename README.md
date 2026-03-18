@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Homeland Security Pick to Face Confirmation Hearing**\
+``\
+https://nytimes.com/live/2026/03/18/us/trump-news
+
 **Weighing the Costs of Corporate Silence**\
 `The days of the quarterly earnings report could be numbered as the Securities and Exchange Commission is said to weigh a rule change. What it could mean for investors is likely to stir debate.`\
 https://nytimes.com/2026/03/18/business/dealbook/quarterly-reports-sec-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7127846/2026/03/18/afcon-void-senegal-morocco/
 **Rosenthal: Bryce Harper met the moment at WBC, but a title yet again proved elusive**\
 `Harper's actions before, during and after the WBC final against Venezuela showed his understanding of his place in the game.`\
 https://nytimes.com/athletic/7127918/2026/03/18/bryce-harper-world-baseball-classic-team-usa/
-
-**Should the Jets try to make playoffs or embrace the draft? A debate with myself**\
-`To tank, or not to tank? That certainly is the question, with the Jets and their fans pulled between two imperfect possibilities.`\
-https://nytimes.com/athletic/7126472/2026/03/18/winnipeg-jets-playoffs-chase-draft-tanking/
 
