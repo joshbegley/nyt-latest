@@ -1,3 +1,7 @@
+**Days of Anger and Fear for Iranians Living With Waves of Airstrikes**\
+`Residents in Tehran and elsewhere say the attacks come at all hours and rock the ground.`\
+https://nytimes.com/2026/03/18/world/middleeast/iran-war-us-israel-strikes.html
+
 **Women in California Politics See Their Own Stories in Chavez Accusations**\
 `“I’ve seen the repercussions when you speak out against a man in power, and you are blamed for the repercussions,” a Los Angeles City Council member said.`\
 https://nytimes.com/2026/03/18/us/women-california-politics-cesar-chavez.html
