@@ -1,3 +1,7 @@
+**Revelations of Cesar Chavez’s Abuse Spur a Widespread Outcry**\
+`Also, oil prices jump after airstrikes hit a crucial energy site. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2026/03/18/briefing/cesar-chavez-accusations-iran-oil-prices.html
+
 **What’s in Our Queue? ‘The Shadow of Your Smile’ and More**\
 `Text by Reis Thebault`\
 https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
@@ -6,7 +10,7 @@ https://nytimes.com/card/2026/03/18/arts/editors-recommendations-shadowsmile
 `The blockbuster deal Denver struck for the accomplished wide receiver became official Wednesday.`\
 https://nytimes.com/athletic/7129353/2026/03/18/jaylen-waddle-broncos-trade-receiver/
 
-**At last, Avila arrives to March Madness**\
+**At last, 'Cream Abdul-Jabbar' and Saint Louis arrive at March Madness**\
 `"Cream Abdul-Jabbar." "Larry Blurred." "Milk Chamberlain." Robbie Avila has accumulated many nicknames — and now he'll get his March moment.`\
 https://nytimes.com/athletic/7129464/2026/03/18/robbie-avila-saint-louis-ncaa-tournament-cream-abdul-jabbar/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000010788214/california-winter-heat-wave.ht
 **Empowering Iran’s Hard-liners**\
 `U.S.-Israeli attacks helped ultraconservatives cement power. That could make ending the war tougher.`\
 https://nytimes.com/2026/03/18/world/iran-leadership-larijani-israel-beirut.html
-
-**How the Giants could draw inspiration from Team Venezuela's win**\
-`There were two San Francisco Giants on Team Venezuela, but that wasn't the only reason you could make a connection between those two clubs.`\
-https://nytimes.com/athletic/7129322/2026/03/18/sf-giants-venezuela-world-baseball-classic/
 
