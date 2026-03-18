@@ -1,3 +1,7 @@
+**Year After Trump Takeover, Institute of Peace Is Little More Than Scenery**\
+`As a lawsuit by the former staff drags on, the fight highlights President Trump’s upending of traditional peace-building and the lasting effects of his administration’s cost-cutting blitz.`\
+https://nytimes.com/2026/03/17/us/politics/institute-of-peace-trump.html
+
 **Here’s What Happened in the War in the Middle East on Tuesday**\
 `The deaths of two top Iranian officials were announced on Tuesday, while President Trump once again lashed out at NATO allies who refused to aid the U.S. war effort against Iran.`\
 https://nytimes.com/2026/03/17/world/middleeast/iran-war-israel-middle-east-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7126631/2026/03/17/world-cup-zlatan-ibrahimovic-fox
 **No Trump Pick as Deadline Locks In Texas Senate Race**\
 `President Trump’s decision not to weigh in before the deadline means both John Cornyn and Ken Paxton remain on the ballot, extending their costly and increasingly personal battle into a May runoff.`\
 https://nytimes.com/2026/03/17/us/politics/texas-senate-trump-cornyn-paxton.html
-
-**NASCAR's Alex Bowman to miss at least next three races, imperiling playoff hopes**\
-`Bowman, a playoff participant in seven of the past eight seasons, is almost certain to miss out this year with the extended absence.`\
-https://nytimes.com/athletic/7126769/2026/03/17/alex-bowman-nascar-vertigo-races-playoffs/
 
