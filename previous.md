@@ -1,3 +1,7 @@
+**Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
+`LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
+https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/
+
 **Star-studded Team USA upset as Venezuela wins first WBC title**\
 `Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
 https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/17/us/elections/illinois-republican-senate-primary-t
 **Darren Bailey Wins Second Chance to Challenge Illinois Gov. JB Pritzker**\
 `Mr. Bailey, a former lawmaker aligned with President Trump, lost to Mr. Pritzker in 2022. Mr. Pritzker had no opposition in a Democratic primary.`\
 https://nytimes.com/2026/03/17/us/elections/illinois-governor-republican-primary.html
-
-**First Four: Howard tops UMBC for first tournament win, advances to face No. 1 Michigan**\
-`Ose Okojie finished with 23 points, and the Bison beat the Retrievers 86-83 to claim their first NCAA Tournament victory in school history.`\
-https://nytimes.com/athletic/7126887/2026/03/17/mens-march-madness-first-four-umbc-howard-texas-nc-state/
 

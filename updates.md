@@ -1,3 +1,7 @@
+**Martinez injury-time stunner sends LAFC to Concacaf Champions Cup quarters**\
+`LAFC is onto the next round in dramatic fashion, thanks to its young star's clutch moment`\
+https://nytimes.com/athletic/7127433/2026/03/17/lafc-alajuelense-concacaf-champions-cup-david-martinez/
+
 **Star-studded Team USA upset as Venezuela wins first WBC title**\
 `Venezuela breaks a 2-2 tie on Eugenio Suárez's ninth-inning double to deny the United States.`\
 https://nytimes.com/athletic/7127154/2026/03/17/team-usa-venezuela-wbc-final/
