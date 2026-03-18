@@ -1,3 +1,15 @@
+**Could Amtrak rail yard sale in the South Loop lead to a new White Sox stadium?**\
+`Justin Ishbia's private equity firm is purchasing land in the South Loop, sparking speculation it could be a site for a future Sox ballpark.`\
+https://nytimes.com/athletic/7129164/2026/03/18/white-sox-justin-ishbia-new-stadium-amtrak-railyard/
+
+**Here are five takeaways from the Federal Reserve meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2026/03/18/business/federal-reserve-interest-rates/here-are-five-takeaways-from-the-federal-reserve-meeting
+
+**March Madness best bets for First Four, first round and beyond**\
+`Austin Mock publishes his best bets for the First Four and the first round as well as futures bets for the Sweet 16 and on.`\
+https://nytimes.com/athletic/7125555/2026/03/18/march-madness-best-bets-futures-first-four-first-round-final-four/
+
 **The Briefing: Barcelona 7 Newcastle 2 - Champions League contenders, defensive disaster and Raphinha shines**\
 `The Athletic's experts analyse Barcelona's 7-2 win over Newcastle United`\
 https://nytimes.com/athletic/7125259/2026/03/18/barcelona-newcastle-score-result-report-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7129130/2026/03/18/blues-vs-flames-stream-how-to-wa
 **How to watch Stars vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129128/2026/03/18/stars-vs-avalanche-stream-how-to-watch-march-18/
-
-**Taylor Frankie Paul’s Turn on ‘The Bachelorette’ Is Coming Under Fire**\
-`The reality star who rose to fame on “The Secret Lives of Mormon Wives” is being investigated for domestic violence along with the father of one of her children.`\
-https://nytimes.com/2026/03/18/arts/television/bachelorette-taylor-frankie-paul.html
-
-**Vance Says He Welcomes Disagreement, but Supports Joe Kent’s Resignation**\
-`In Michigan, Vice President JD Vance said that “when the president of the United States makes a decision, it’s your job to help make that decision as effective and successful as possible.”`\
-https://nytimes.com/2026/03/18/us/politics/jd-vance-joe-kent-resignation.html
-
-**Israel Kills Another Top Iranian Official as Tehran Retaliates**\
-`An Israeli airstrike killed Iran’s intelligence minister, continuing its targeting of high-ranking officials. In retaliation for the killings of two other top officials the day before, Iran launched missile attacks that killed two people outside Tel Aviv.`\
-https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmaeil-khatib-killed.html
 
