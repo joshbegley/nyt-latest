@@ -1,3 +1,7 @@
+**Bob Motzko won't return as University of Minnesota men's hockey coach: Sources**\
+`Motzko, 64, helped re-establish the hockey program in his eight seasons. His career record with the Gophers was 172-104-24.`\
+https://nytimes.com/athletic/7128828/2026/03/18/bob-motzko-university-minnesota-gophers-mens-hockey-coach/
+
 **Alvin Greene, a No-Show Senate Nominee Who Won Primary, Dies at 48**\
 `He made no effort to campaign but won the South Carolina Democratic primary in 2010, becoming the state’s first Black major-party nominee for Senate.`\
 https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
@@ -7,7 +11,7 @@ https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
 https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
 
 **A Cafe on the Edge of Destruction**\
-`Near the center of Beirut, one image captures the aftermath of what was left of Zahyre Cafe after an Israeli strike.`\
+`Near the center of Beirut, one image captures the aftermath of an Israeli strike.`\
 https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
 
 **Iran Executes Swedish Citizen Accused of Spying**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128898/2026/03/18/miami-oh-vs-smu-stream-how-to-wa
 **Senegal, Morocco and CAS: Could AFCON final result be overturned (again)?**\
 `Analysing how Senegal are likely to appeal controversial judgment, their chances of success and how long it could take`\
 https://nytimes.com/athletic/7128553/2026/03/18/senegal-morocco-cas-afcon-appeal/
-
-**Pakistan Pauses Afghanistan Airstrikes After Outrage Over Civilian Deaths**\
-`At least 143 people were killed in a Pakistani airstrike that hit a drug rehabilitation facility in Kabul on Monday, according to a top U.N. official.`\
-https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabilitation-strikes.html
 

@@ -1,3 +1,11 @@
+**Bob Motzko won't return as University of Minnesota men's hockey coach: Sources**\
+`Motzko, 64, helped re-establish the hockey program in his eight seasons. His career record with the Gophers was 172-104-24.`\
+https://nytimes.com/athletic/7128828/2026/03/18/bob-motzko-university-minnesota-gophers-mens-hockey-coach/
+
+**A Cafe on the Edge of Destruction**\
+`Near the center of Beirut, one image captures the aftermath of an Israeli strike.`\
+https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
+
 **Alvin Greene, a No-Show Senate Nominee Who Won Primary, Dies at 48**\
 `He made no effort to campaign but won the South Carolina Democratic primary in 2010, becoming the state’s first Black major-party nominee for Senate.`\
 https://nytimes.com/2026/03/18/us/politics/alvin-greene-dead.html
