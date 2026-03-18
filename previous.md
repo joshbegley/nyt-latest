@@ -1,3 +1,7 @@
+**At SXSW, ‘Sparks’ Was Flying High**\
+`Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
+https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html
+
 **Bob Motzko won't return as University of Minnesota men's hockey coach: Sources**\
 `Motzko, 64, helped re-establish the hockey program in his eight seasons. His career record with the Gophers was 172-104-24.`\
 https://nytimes.com/athletic/7128828/2026/03/18/bob-motzko-university-minnesota-gophers-mens-hockey-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/europe/uk-meningitis-outbreak-what-to-know.
 **How to watch Miami (OH) vs. SMU men's basketball: First Four Time, TV, streaming**\
 `Find out how to watch the Miami (OH) RedHawks play the SMU Mustangs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7128898/2026/03/18/miami-oh-vs-smu-stream-how-to-watch-march-18/
-
-**Senegal, Morocco and CAS: Could AFCON final result be overturned (again)?**\
-`Analysing how Senegal are likely to appeal controversial judgment, their chances of success and how long it could take`\
-https://nytimes.com/athletic/7128553/2026/03/18/senegal-morocco-cas-afcon-appeal/
 

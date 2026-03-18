@@ -1,3 +1,7 @@
+**At SXSW, ‘Sparks’ Was Flying High**\
+`Fergus Campbell, Lola Lafia and a merry band of Zoomers dazzled at their first film festival with an affecting debut about friendship, time travel and queer identity.`\
+https://nytimes.com/2026/03/18/style/sparks-movie-sxsw-elsie-fisher-madison-hu.html
+
 **Bob Motzko won't return as University of Minnesota men's hockey coach: Sources**\
 `Motzko, 64, helped re-establish the hockey program in his eight seasons. His career record with the Gophers was 172-104-24.`\
 https://nytimes.com/athletic/7128828/2026/03/18/bob-motzko-university-minnesota-gophers-mens-hockey-coach/
