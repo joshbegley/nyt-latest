@@ -1,3 +1,7 @@
+**Top prospect Harry Ford, a key offseason acquisition, among Nationals' latest cuts**\
+`Ford was acquired from the Mariners. He'll start the year in Triple A but could still factor heavily in the catching plans later this year.`\
+https://nytimes.com/athletic/7128928/2026/03/18/nationals-harry-ford-optioned/
+
 **A Cafe on the Edge of Destruction**\
 `Near the center of Beirut, one image captures the aftermath of what was left of Zahyre Cafe after an Israeli strike.`\
 https://nytimes.com/2026/03/18/world/middleeast/lebanon-cafe-israel-strike-image.html
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabili
 **Luigi Mangione’s Lawyers Seek to Postpone His Federal Murder Trial**\
 `Lawyers asked a federal judge to move his trial to 2027, to give them time to prepare for a separate state case. Prosecutors are expected to oppose the request.`\
 https://nytimes.com/2026/03/18/nyregion/luigi-mangione-federal-murder-trial-delay.html
-
-**How to watch SFA vs. Missouri State women's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Stephen F. Austin Ladyjacks play the Missouri State Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128872/2026/03/18/sfa-vs-missouri-state-stream-how-to-watch-march-18/
 
