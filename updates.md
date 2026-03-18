@@ -1,3 +1,7 @@
+**Women in California Politics See Their Own Stories in Chavez Accusations**\
+`“I’ve seen the repercussions when you speak out against a man in power, and you are blamed for the repercussions,” a Los Angeles City Council member said.`\
+https://nytimes.com/2026/03/18/us/women-california-politics-cesar-chavez.html
+
 **FEMA to Relaunch Climate Resiliency Grants, Complying With Court Order**\
 `A judge ruled in December that the agency could not cancel a program that had helped states invest billions of dollars in disaster readiness.`\
 https://nytimes.com/2026/03/18/climate/fema-bric-grants-relaunch.html
