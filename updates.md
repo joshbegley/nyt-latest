@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
 
+**The Bounce: Can the Timberwolves survive without Anthony Edwards?**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.
+`\
+https://nytimes.com/athletic/7128282/2026/03/18/timberwolves-anthony-edwards-injury-nba-the-bounce/
+
 **Israel Says It Killed Iran’s Intelligence Minister**\
 `The Israeli military said on Wednesday that it had killed Esmaeil Khatib in an airstrike. Iran confirmed the killing.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-intelligence-minister-khatib-israel.html
