@@ -1,3 +1,19 @@
+**Pakistan Pauses Afghanistan Airstrikes After Outrage Over Civilian Deaths**\
+`At least 143 people were killed in a Pakistani airstrike that hit a drug rehabilitation facility in Kabul on Monday, according to a top U.N. official.`\
+https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabilitation-strikes.html
+
+**Luigi Mangione’s Lawyers Seek to Postpone His Federal Murder Trial**\
+`Lawyers asked a federal judge to move his trial to 2027, to give them time to prepare for a separate state case. Prosecutors are expected to oppose the request.`\
+https://nytimes.com/2026/03/18/nyregion/luigi-mangione-federal-murder-trial-delay.html
+
+**How to watch SFA vs. Missouri State women's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Stephen F. Austin Ladyjacks play the Missouri State Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128872/2026/03/18/sfa-vs-missouri-state-stream-how-to-watch-march-18/
+
+**Canada calls up Aribim Pepple, of English third tier, for its March roster**\
+`An injury to Promise David means there is an opportunity for Pepple, Plymouth Argyle's 23-year-old striker who has been in strong form.`\
+https://nytimes.com/athletic/7128487/2026/03/18/aribim-pepple-canada-roster-who/
+
 **Read the document**\
 `A letter to Gov. Kathy Hochul of New York from scientists about the the climate law.`\
 https://nytimes.com/interactive/2026/03/18/us/hochul-letter-march7.html
@@ -14,27 +30,11 @@ https://nytimes.com/athletic/7128842/2026/03/18/senators-vs-capitals-stream-how-
 `Readers criticize President Trump’s proposed ballroom addition to the White House. Also: Trust the pediatrician; troops, not “boots on the ground.”`\
 https://nytimes.com/2026/03/18/opinion/trump-ballroom-east-wing-white-house.html
 
-**Joe Kent Is a Dangerous Conspiracy Theorist. His Bravery Is Going to Make Him a Star.**\
+**Joe Kent’s Resignation Letter Is Dangerous Because It’s Half True**\
 `Kent’s resignation letter is partly rooted in truth, even if it taps into old antisemitic tropes about occult Jewish control.`\
 https://nytimes.com/2026/03/18/opinion/joe-kent-israel-iran.html
 
 **Penguins' Sidney Crosby, injured in Olympics, set to return to lineup**\
 `Sidney Crosby will make his return from a knee injury on Wednesday in Raleigh. `\
 https://nytimes.com/athletic/7128616/2026/03/18/penguins-sidney-crosby-injury-return-nhl/
-
-**How to watch Raptors vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Toronto Raptors play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128807/2026/03/18/raptors-vs-bulls-stream-how-to-watch-march-18/
-
-**How to watch Nuggets vs. Grizzlies: Time, TV, streaming**\
-`Find out how to watch the Denver Nuggets play the Memphis Grizzlies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128798/2026/03/18/nuggets-vs-grizzlies-stream-how-to-watch-march-18/
-
-**Mullin’s Softer Tone at Hearing Underscores G.O.P. Shift on Immigration**\
-`The senator sounded a warmer and fuzzier tone at his D.H.S. confirmation hearing than President Trump often has, the latest sign that the administration wants to project a more moderated approach.`\
-https://nytimes.com/2026/03/18/us/politics/trump-mullin-dhs-hearing-immigration.html
-
-**How to watch Trail Blazers vs. Pacers: Time, TV, streaming**\
-`Find out how to watch the Portland Trail Blazers play the Indiana Pacers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7128794/2026/03/18/trail-blazers-vs-pacers-stream-how-to-watch-march-18/
 
