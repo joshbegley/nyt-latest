@@ -6,7 +6,7 @@ https://nytimes.com/athletic/7127232/2026/03/18/psg-champions-league-chelsea/
 `From a player pushing a ball bay to punishment for financial breaches, leaked team news to that huddle, it has been quite a week at Chelsea`\
 https://nytimes.com/athletic/7127299/2026/03/18/rosenior-chelsea-psg-champions-league/
 
-**Dink, flick, twirl, crack: Eze's beautiful moment - and why it meant so much to Arsenal**\
+**Dink, flick, twirl, crack: Eze's beautiful moment — and why it meant so much to Arsenal**\
 `A goal of sublime quality burst open the Champions League tie against Leverkusen and showed why Arsenal bought the playmaker`\
 https://nytimes.com/athletic/7127121/2026/03/18/eberechi-eze-arsenal-goal-bayer-leverkusen/
 
