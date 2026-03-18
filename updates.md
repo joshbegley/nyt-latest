@@ -1,3 +1,15 @@
+**What to Know about the Meningitis Outbreak in Britain**\
+`At least 20 young adults are believed to be infected, and two have died, in an outbreak of meningococcal disease in the county of Kent, in southeast England.`\
+https://nytimes.com/2026/03/18/world/europe/what-to-know-about-the-meningitis-outbreak-in-britain.html
+
+**How to watch Miami (OH) vs. SMU men's basketball: First Four Time, TV, streaming**\
+`Find out how to watch the Miami (OH) RedHawks play the SMU Mustangs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128898/2026/03/18/miami-oh-vs-smu-stream-how-to-watch-march-18/
+
+**Senegal, Morocco and CAS: Could AFCON final result be overturned (again)?**\
+`Analysing how Senegal are likely to appeal controversial judgment, their chances of success and how long it could take`\
+https://nytimes.com/athletic/7128553/2026/03/18/senegal-morocco-cas-afcon-appeal/
+
 **Pakistan Pauses Afghanistan Airstrikes After Outrage Over Civilian Deaths**\
 `At least 143 people were killed in a Pakistani airstrike that hit a drug rehabilitation facility in Kabul on Monday, according to a top U.N. official.`\
 https://nytimes.com/2026/03/18/world/asia/pakistan-afghanistan-war-drug-rehabilitation-strikes.html
