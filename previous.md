@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, March 18, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/18/todays-new-york-times
+
+**Cubans Want a Deal. Just Not This One.**\
+`Trump wants a symbolic win. Islanders want actual democracy.`\
+https://nytimes.com/2026/03/18/opinion/cuba-trump-deal-castro-power.html
+
+**They’re Young, Conservative and Embracing Antisemitism**\
+`Michelle Goldberg on a dark political reality she found in Florida.`\
+https://nytimes.com/2026/03/18/opinion/fishback-florida-governor-antisemitism.html
+
 **Strange Filip Gustavsson exit doesn't deter a slump-busting Wild OT win: Takeaways**\
 `Minnesota had lost four of its last five heading into the team's St. Patrick's Day showdown and it found a way to win 4-3 against Chicago.`\
 https://nytimes.com/athletic/7127436/2026/03/18/wild-blackhawks-filip-gustavsson-ot-win/
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/18/business/iran-war-lng-asia-japan.html
 **Netanyahu Hopes Strikes on Iran Will Lead to Uprising and Regime Change**\
 `Israeli attacks have targeted the command centers of Iran’s repressive, internal security forces in hopes that Iranians will overthrow their rulers. Some see that as wishful thinking.`\
 https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-iran-war-regime-change.html
-
-**Quote of the Day: Tech’s Big Bet On Weapons Is Paying Off**\
-`Quotation of the Day for Wednesday, March 18, 2026.`\
-https://nytimes.com/2026/03/17/pageoneplus/quote-of-the-day-techs-big-bet-on-weapons-is-paying-off.html
-
-**A look at the future? Blackhawks go with youngest defenseman group yet**\
-`Against the Wild, the Blackhawks' entire defense was 24 years old or younger, with increasing comfort evident in an overtime loss.`\
-https://nytimes.com/athletic/7127169/2026/03/17/blackhawks-defense-young-prospects-del-mastro-levshunov-crevier-wild/
-
-**Anthony Edwards, Obama promo shows Edwards' unmatched potential as NBA's comedic voice**\
-`Whether Edwards likes it or not, he’s the kind of player the league can market to the masses.`\
-https://nytimes.com/athletic/7127245/2026/03/17/anthony-edwards-barack-obama-commercial-presidential-center/
 

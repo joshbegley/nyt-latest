@@ -1,3 +1,15 @@
+**Sir Jim Ratcliffe talked about Man Utd's players, coach, finances and future. One year on, how does it look?**\
+`A year on from speaking freely about his mistakes and ambitions with Manchester United, how much did Sir Jim Ratcliffe get right?`\
+https://nytimes.com/athletic/7125144/2026/03/18/jim-ratcliffe-manchester-united-players-coach-finances/
+
+**Fernandes, Raya, Thiago? Picking our Premier League player of the year nominees**\
+`With less than a quarter of the season to go, we asked our writers who they believe should be this season's nominees`\
+https://nytimes.com/athletic/7122824/2026/03/18/premier-league-player-of-the-year-list/
+
+**Explained: Could Iran's World Cup games be moved from the U.S. to Mexico?**\
+`Iran says it is negotiating to move its World Cup games to Mexico. FIFA says the schedule will not change. So what's going on?`\
+https://nytimes.com/athletic/7126567/2026/03/18/iran-world-cup-mexico/
+
 **The New York Times in Print for Wednesday, March 18, 2026**\
 ``\
 https://nytimes.com/issue/todayspaper/2026/03/18/todays-new-york-times
@@ -25,16 +37,4 @@ https://nytimes.com/2026/03/18/world/europe/trumprx-drug-prices-really-cheapest-
 **The Faroe Islands Are Changing Some of Europe’s Strictest Abortion Rules**\
 `A new law allowing abortion up to 12 weeks will be a major shift in an archipelago of 55,000 people, and there are strong feelings on both sides.`\
 https://nytimes.com/2026/03/18/world/europe/faroe-islands-abortion-europe.html
-
-**Trump’s Friendship With Japan’s Leader Faces Test Over Iran**\
-`In Washington on Thursday, President Trump is expected to press Sanae Takaichi for military help in the Strait of Hormuz. But she faces constraints on what she can offer.`\
-https://nytimes.com/2026/03/18/world/asia/trump-japan-takaichi-iran-hormuz.html
-
-**As War Chokes Natural Gas Supply, Asia Turns Back to Coal**\
-`Across Asia, a sharp drop in liquefied natural gas supplies is pushing major importers back toward coal, undermining L.N.G.’s long-held role as a stable energy anchor.`\
-https://nytimes.com/2026/03/18/business/iran-war-lng-asia-japan.html
-
-**Netanyahu Hopes Strikes on Iran Will Lead to Uprising and Regime Change**\
-`Israeli attacks have targeted the command centers of Iran’s repressive, internal security forces in hopes that Iranians will overthrow their rulers. Some see that as wishful thinking.`\
-https://nytimes.com/2026/03/18/world/middleeast/israel-strikes-iran-war-regime-change.html
 

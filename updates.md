@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, March 18, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/18/todays-new-york-times
+
+**Cubans Want a Deal. Just Not This One.**\
+`Trump wants a symbolic win. Islanders want actual democracy.`\
+https://nytimes.com/2026/03/18/opinion/cuba-trump-deal-castro-power.html
+
+**They’re Young, Conservative and Embracing Antisemitism**\
+`Michelle Goldberg on a dark political reality she found in Florida.`\
+https://nytimes.com/2026/03/18/opinion/fishback-florida-governor-antisemitism.html
+
 **Strange Filip Gustavsson exit doesn't deter a slump-busting Wild OT win: Takeaways**\
 `Minnesota had lost four of its last five heading into the team's St. Patrick's Day showdown and it found a way to win 4-3 against Chicago.`\
 https://nytimes.com/athletic/7127436/2026/03/18/wild-blackhawks-filip-gustavsson-ot-win/
