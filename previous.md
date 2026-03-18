@@ -1,3 +1,19 @@
+**How to watch Blues vs. Flames: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7129130/2026/03/18/blues-vs-flames-stream-how-to-watch-march-18/
+
+**How to watch Stars vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7129128/2026/03/18/stars-vs-avalanche-stream-how-to-watch-march-18/
+
+**Taylor Frankie Paul’s Turn on ‘The Bachelorette’ Is Coming Under Fire**\
+`The reality star who rose to fame on “The Secret Lives of Mormon Wives” is being investigated for domestic violence along with the father of one of her children.`\
+https://nytimes.com/2026/03/18/arts/television/bachelorette-taylor-frankie-paul.html
+
+**Vance Says He Welcomes Disagreement, but Supports Joe Kent’s Resignation**\
+`In Michigan, Vice President JD Vance said that “when the president of the United States makes a decision, it’s your job to help make that decision as effective and successful as possible.”`\
+https://nytimes.com/2026/03/18/us/politics/jd-vance-joe-kent-resignation.html
+
 **Israel Kills Another Top Iranian Official as Tehran Retaliates**\
 `An Israeli airstrike killed Iran’s intelligence minister, continuing its targeting of high-ranking officials. In retaliation for the killings of two other top officials the day before, Iran launched missile attacks that killed two people outside Tel Aviv.`\
 https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmaeil-khatib-killed.html
@@ -6,9 +22,9 @@ https://nytimes.com/video/world/middleeast/100000010786694/iran-israel-war-esmae
 `Find out how to watch the Los Angeles Lakers play the Houston Rockets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129088/2026/03/18/lakers-vs-rockets-stream-how-to-watch-march-18/
 
-**McNeese State's viral student manager Amir Khan is back for March Madness**\
-`In 2025, Khan led McNeese State's men's basketball team out of the locker room while performing rap songs and carrying a massive boombox.`\
-https://nytimes.com/athletic/7121481/2026/03/18/mcneese-state-viral-student-manager-amir-aura-khan-march-madness/
+**McNeese viral student manager Amir Khan is back for March Madness**\
+`In 2025, Khan led McNeese men's basketball team out of the locker room while performing rap songs and carrying a massive boombox.`\
+https://nytimes.com/athletic/7121481/2026/03/18/mcneese-viral-student-manager-amir-aura-khan-march-madness/
 
 **No football experience? No problem: Colts sign ex-Notre Dame basketball player**\
 `The Colts are giving Towt a chance to play tight end because he's a good athlete with promising ball skills and he's a low-risk addition.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/18/opinion/democrats-populism-inequality.html
 **The Tropical St. Patrick’s Day That Honors African History**\
 `Montserrat treats the holiday as both a national celebration and a more somber milestone: a commemoration of a failed slave rebellion.`\
 https://nytimes.com/2026/03/18/world/americas/montserrat-st-patricks-day.html
-
-**Trump’s Homeland Security Pick Says He’d End Policy That Slowed Disaster Aid**\
-`The president’s nominee, Markwayne Mullin, said he would avoid “micromanaging” FEMA.`\
-https://nytimes.com/2026/03/18/climate/mullin-fema-noem-delays.html
-
-**F.D.A. Investigates 7 E. Coli Illnesses as Raw Dairy Farm Denies Any Link**\
-`The outbreak has sickened people in California, Texas and Florida. The agency said Cheddar cheese products from Raw Farm are “the likely source,” but the company denies it and has not recalled them.`\
-https://nytimes.com/2026/03/18/us/fda-e-coli-raw-milk-cheese-california.html
-
-**Cesar Chavez Helped Spark a Texas Farmworker Uprising**\
-`Farmworkers in Texas took cues from strikes Chavez helped lead in California to demand better pay and more rights.`\
-https://nytimes.com/2026/03/18/us/cesar-chavez-texas-farmworker-uprising-labor.html
-
-**GM meetings: Bettman defiant about playoff format, goalie interference debate gets testy**\
-`This week’s three-day NHL general manager meetings wrapped up on Wednesday in South Florida.`\
-https://nytimes.com/athletic/7128497/2026/03/18/nhl-gm-meetings-gary-bettman-playoffs-goalie-interference/
 

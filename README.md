@@ -1,3 +1,7 @@
+**How to watch Flyers vs. Ducks: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Anaheim Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7129141/2026/03/18/flyers-vs-ducks-stream-how-to-watch-march-18/
+
 **How to watch Blues vs. Flames: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7129130/2026/03/18/blues-vs-flames-stream-how-to-watch-march-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128936/2026/03/18/colts-carson-towt-notre-dame-bas
 **Can the Democrats Become the Party of the People Again?**\
 `The Democratic Party is pulling in a populist direction. But not all populisms are equal.`\
 https://nytimes.com/2026/03/18/opinion/democrats-populism-inequality.html
-
-**The Tropical St. Patrick’s Day That Honors African History**\
-`Montserrat treats the holiday as both a national celebration and a more somber milestone: a commemoration of a failed slave rebellion.`\
-https://nytimes.com/2026/03/18/world/americas/montserrat-st-patricks-day.html
 
