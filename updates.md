@@ -1,3 +1,15 @@
+**Read the document**\
+`A letter to Gov. Kathy Hochul of New York from scientists about the the climate law.`\
+https://nytimes.com/interactive/2026/03/18/us/hochul-letter-march7.html
+
+**Read the document**\
+`A letter from senators to Gov. Kathy Hochul about the climate law.`\
+https://nytimes.com/interactive/2026/03/18/us/hochul-from-senators.html
+
+**How to watch Senators vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7128842/2026/03/18/senators-vs-capitals-stream-how-to-watch-march-18/
+
 **Trump’s Ballroom: Put It Underground?**\
 `Readers criticize President Trump’s proposed ballroom addition to the White House. Also: Trust the pediatrician; troops, not “boots on the ground.”`\
 https://nytimes.com/2026/03/18/opinion/trump-ballroom-east-wing-white-house.html
