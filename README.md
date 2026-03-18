@@ -10,7 +10,7 @@ https://nytimes.com/2026/03/17/us/elections/jesse-jackson-jr-il-house-primary.ht
 `Cignetti's role at the Indy 500 is no surprise considering the buzz surrounding the Hoosiers coach.`\
 https://nytimes.com/athletic/7126462/2026/03/17/curt-cignetti-indy-500-pace-car-indiana-college-football/
 
-**Postmaster General Appeals for Help Avoiding Financial Disaster. Lawmakers Instead Focused on Waste.**\
+**Postmaster Says Service Will Be ‘Out of Cash’ in Under a Year**\
 `The U.S.P.S. leader said at a hearing that the service could run out of cash within a year and asked lawmakers to increase its borrowing limits.`\
 https://nytimes.com/2026/03/17/us/politics/usps-postal-service-finances.html
 
