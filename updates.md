@@ -1,3 +1,19 @@
+**Cuban Americans Will Be Allowed to Own Businesses in Cuba, but Is That Enough?**\
+`The Cuban government announced that Cubans living abroad can own and invest in businesses, but experts said they were disappointed that the measures didn’t go further.`\
+https://nytimes.com/2026/03/17/world/americas/cuba-americans-invest-businesses.html
+
+**Cade Cunningham's back spasms at forefront of Pistons' untimely injuries**\
+`Cunningham collided with Wizards rookie Tre Johnson when the two were attempting to corral a loose ball with 7:44 left in the first frame.`\
+https://nytimes.com/athletic/7127128/2026/03/17/cade-cunningham-back-spasms-pistons-wizards/
+
+**U.S. Says Anthropic Is an ‘Unacceptable’ National Security Risk**\
+`In a legal filing, the government said it questioned whether the A.I. start-up could be a “trusted partner” in wartime, which led it to label the company a supply chain risk.`\
+https://nytimes.com/2026/03/17/technology/anthropic-pentagon-national-security-risk.html
+
+**Boston World Cup games no longer in jeopardy after Foxborough board vote gives all clear**\
+`A dispute over security funding has led to concern about the status of games at Gillette Stadium`\
+https://nytimes.com/athletic/7127156/2026/03/17/boston-world-cup-fifa-foxboro-gillette-kraft-vote/
+
 **Your Guide to Madrid**\
 `From the top attractions to the most frequently asked questions, our guide has all you need to plan your next visit.`\
 https://nytimes.com/interactive/2026/travel/madrid-spain-guide.html
