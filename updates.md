@@ -1,3 +1,11 @@
+**The Windup: Eerily similar WBC defeat for USA**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7128482/2026/03/18/venezuela-usa-world-baseball-classic-championship-the-windup/
+
+**‘I Can No Longer Stay Silent,’ Huerta Says in a Statement**\
+`The labor leader said Wednesday that she had felt constrained to keep secret her abuse by Cesar Chavez — and the two children that she bore as a result.`\
+https://nytimes.com/2026/03/18/us/dolores-huerta-statement-chavez-sex-abuse.html
+
 **Despite Moscow’s Threats, Poland Rules to Extradite Archaeologist to Ukraine**\
 `Kyiv accuses Alexander Butyagin, a prominent antiquities scholar, of destroying cultural heritage during his excavations in Russia-occupied Crimea. The Kremlin has condemned his arrest.`\
 https://nytimes.com/2026/03/18/world/europe/alexander-butyagin-archaeologist-poland-extradite.html
