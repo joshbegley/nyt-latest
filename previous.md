@@ -1,3 +1,11 @@
+**Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
+`After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
+https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
+
+**White House Seeks to Reassure Americans on Rising Costs**\
+`Also, March Madness begins. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/19/briefing/white-house-oil-prices-cuba-electricity.html
+
 **Giants' Hayden Birdsong to undergo Tommy John surgery**\
 `The 24-year-old righty was already an unlikely candidate to make the major-league roster. Now he will miss the entire 2026 season.`\
 https://nytimes.com/athletic/7132272/2026/03/19/sf-giants-hayden-birdsong-tommy-john-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.h
 **FBS ends first-half suspension for targeting, holds off on short-shorts rule**\
 `Targeting offenders will still be ejected from the game, and repeat offenders will have stiffer penalties.`\
 https://nytimes.com/athletic/7132265/2026/03/19/college-football-targeting-penalty-suspension/
-
-**Duke rallies from 13-point deficit to escape 16th-seeded Siena**\
-`Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
-https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/
-
-**White House Looks for Ways to Soothe American Jitters Over Surging Prices**\
-`President Trump and Prime Minister Benjamin Netanyahu of Israel suggested that the war with Iran could end soon, but that there were still more attacks ahead.`\
-https://nytimes.com/2026/03/19/world/middleeast/trump-oil-iran-war-mideast-japan.html
 

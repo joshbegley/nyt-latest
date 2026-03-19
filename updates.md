@@ -1,3 +1,11 @@
+**Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
+`After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
+https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
+
+**White House Seeks to Reassure Americans on Rising Costs**\
+`Also, March Madness begins. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/19/briefing/white-house-oil-prices-cuba-electricity.html
+
 **Giants' Hayden Birdsong to undergo Tommy John surgery**\
 `The 24-year-old righty was already an unlikely candidate to make the major-league roster. Now he will miss the entire 2026 season.`\
 https://nytimes.com/athletic/7132272/2026/03/19/sf-giants-hayden-birdsong-tommy-john-surgery/
