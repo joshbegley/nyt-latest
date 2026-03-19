@@ -1,3 +1,23 @@
+**We almost lost college basketball. Then we started paying players**\
+`It wasn't long ago men's college hoops felt doomed. I'm here to tell you it has never been better.`\
+https://nytimes.com/athletic/7126636/2026/03/19/march-madness-college-basketball-nil-popularity/
+
+**Alex Eala returns to the Miami Open, where a dream run launched a tennis phenomenon**\
+`Last year's run to the semifinals propelled Eala up the tennis rankings — and into the sport's wider consciousness.`\
+https://nytimes.com/athletic/7124102/2026/03/19/tennis-alex-eala-philippines-miami-open/
+
+**Getting to know the 13 new Falcons after the first wave of free agency**\
+`The Falcons have added more than a dozen free agents, mostly on short-term deals, in the first 10 days of NFL free agency.`\
+https://nytimes.com/athletic/7129264/2026/03/19/atlanta-falcons-nfl-free-agency-jahan-dotson/
+
+**Patriots NFL Draft big board: 15 players they could pursue in the first three rounds**\
+`We refresh our Patriots big board for the 2026 NFL Draft with five players they could take with each of their first three picks.`\
+https://nytimes.com/athletic/7128923/2026/03/19/patriots-nfl-draft-big-board-tj-parker/
+
+**White Identity Is Galvanizing the Right**\
+`He wrote a book on anti-white bias. The White House noticed.`\
+https://nytimes.com/2026/03/19/opinion/interesting-times-podcast-jeremy-carl.html
+
 **Can Military Excellence Save Us From Trump’s Incompetence?**\
 `It should never have come to this.`\
 https://nytimes.com/2026/03/19/opinion/trump-iran-war.html
@@ -17,24 +37,4 @@ https://nytimes.com/2026/03/19/world/asia/japan-takaichi-washington-internship.h
 **TikTok’s Hottest Drama? Crying Doctors and Crushed Dreams.**\
 `Match Week videos, in which early-career doctors film themselves receiving their residency assignments, scratch a very real parasocial itch.`\
 https://nytimes.com/2026/03/19/style/match-week-doctors-residency-tiktok.html
-
-**Should the United States End the Death Penalty?**\
-`President Trump has encouraged states to pursue the death penalty. The New York Times editorial board argues it is a cruel and unjust punishment. What do you think?`\
-https://nytimes.com/2026/03/19/learning/should-the-united-states-end-the-death-penalty.html
-
-**The States Pushing for Ten Commandments Displays in Classrooms**\
-`Texas, Louisiana and Arkansas have passed laws requiring the posters in public schools. Several other states are considering similar measures.`\
-https://nytimes.com/2026/03/19/us/ten-commandments-schools-states.html
-
-**It’s All About Hormuz**\
-`The U.S. cannot both end the war immediately and claim victory. It is one or the other.`\
-https://nytimes.com/2026/03/19/opinion/iran-war-strait-hormuz.html
-
-**Musk Whips Up Frenzy Against Thune Over Voter ID Bill**\
-`The billionaire Elon Musk is furiously pushing on social media for Senator John Thune, the majority leader, to pass the SAVE America Act. But so far, he hasn’t publicly spent money to promote the bill.`\
-https://nytimes.com/2026/03/19/us/politics/elon-musk-john-thune-save-america-act.html
-
-**After K-Pop and K-Drama, Here Come K-Games**\
-`The open-world fantasy Crimson Desert looks like the latest example of South Korea’s evolution into a gaming powerhouse.`\
-https://nytimes.com/2026/03/19/arts/crimson-desert-south-korea-k-games.html
 
