@@ -1,3 +1,7 @@
+**RT Reporter and Cameraman Injured by Israeli Strike in Lebanon**\
+`A British correspondent for RT, the Russian state broadcaster, and his cameraman were wounded in an Israeli strike near a bridge in southern Lebanon on Thursday, the network said.`\
+https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-isreal-iran-war.html
+
 **Trump’s Planned White House Screening Center Is Too Big, Arts Panel Says**\
 `The Commission of Fine Arts delayed a vote on the facility, a new, 33,000-square-foot security screening center for White House visitors, because of concerns over the design.`\
 https://nytimes.com/2026/03/19/us/politics/trump-white-house-visitor-center.html

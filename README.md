@@ -1,3 +1,35 @@
+**Have You Turned to A.I. For Advice on a Romantic Relationship?**\
+`People are using generative A.I. chatbots for help on everything from starting to ending a relationship. Have you? How did it turn out?`\
+https://nytimes.com/2026/03/19/technology/have-you-turned-to-ai-for-advice-on-a-romantic-relationship.html
+
+**Tampa Bay Rays will wear patches stitched with pieces of wrecked Tropicana Field roof**\
+`As the Rays move back into their hurricane-damaged stadium, their new patch with Webull offers a tangible reminder of the long road there.`\
+https://nytimes.com/athletic/7131971/2026/03/19/tampa-bay-rays-will-wear-patches-stitched-with-pieces-of-wrecked-tropicana-field-roof/
+
+**How to watch Flyers vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132075/2026/03/19/flyers-vs-kings-stream-how-to-watch-march-19/
+
+**How to watch Mammoth vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132068/2026/03/19/mammoth-vs-golden-knights-stream-how-to-watch-march-19/
+
+**How to watch Sabres vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132061/2026/03/19/sabres-vs-sharks-stream-how-to-watch-march-19/
+
+**Elizabeth Warren Backs Graham Platner in Maine, Splitting With Chuck Schumer**\
+`The intervention by Ms. Warren is the latest instance of her embracing a candidate at odds with Mr. Schumer, the top Senate Democrat.`\
+https://nytimes.com/2026/03/19/us/politics/elizabeth-warren-graham-platner-maine-schumer-senate.html
+
+**How to watch Lightning vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132054/2026/03/19/lightning-vs-canucks-stream-how-to-watch-march-19/
+
+**The Windup: Previewing the AL East**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/7131462/2026/03/19/american-league-east-preview-the-windup/
+
 **RT Reporter and Cameraman Injured by Israeli Strike in Lebanon**\
 `A British correspondent for RT, the Russian state broadcaster, and his cameraman were wounded in an Israeli strike near a bridge in southern Lebanon on Thursday, the network said.`\
 https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-isreal-iran-war.html
@@ -5,36 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-is
 **How to watch 76ers vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Philadelphia 76ers play the Sacramento Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131996/2026/03/19/76ers-vs-kings-stream-how-to-watch-march-19/
-
-**U.S. Lifts Fertilizer Sanctions on Belarus as Iran War Causes Price Surge**\
-`The Trump administration made the move in exchange for Belarus’s freeing of 250 political prisoners, part of a rapprochement between the two countries.`\
-https://nytimes.com/2026/03/19/world/europe/belarus-prisoners-fertilizer-potash-sanctions.html
-
-**Trump’s Planned White House Screening Center Is Too Big, Arts Panel Says**\
-`The Commission of Fine Arts delayed a vote on the facility, a new, 33,000-square-foot security screening center for White House visitors, because of concerns over the design.`\
-https://nytimes.com/2026/03/19/us/politics/trump-white-house-visitor-center.html
-
-**After Period of Instability, BAM Names New President**\
-`Tamara McCaw, a longtime arts leader with experience at the Brooklyn Academy of Music, will lead it with a focus on stability.`\
-https://nytimes.com/2026/03/19/arts/music/bam-brooklyn-president-tamara-mccaw.html
-
-**What’s Going On in This Graph? | March 25, 2026**\
-`How do Americans feel about the affordability of education, housing, health care, having a family and retirement?`\
-https://nytimes.com/2026/03/19/learning/whats-going-on-in-this-graph-march-25-2026.html
-
-**What’s Going On in This Picture? | March 23, 2026**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2026/03/19/learning/whats-going-on-in-this-picture-march-23-2026.html
-
-**MLB further embraces sports betting in deal with prediction platform Polymarket**\
-`MLB is currently mired in a betting scandal involving several pitchers. MLB and Polymarket execs say deals like this make the game safer. `\
-https://nytimes.com/athletic/7131682/2026/03/19/mlb-deal-polymarket-prediction-markets/
-
-**The Planet’s Warning Signs Are Flashing Red**\
-`Climate scientists say many of the effects of climate change are happening faster than they predicted, the latest on the war in Iran and more news.`\
-https://nytimes.com/2026/03/19/climate/the-planets-warning-signs-climate-change.html
-
-**The Latest Toy to Jump to the Big Screen: Labubu**\
-`Pop Mart and Sony announced on Thursday that they were developing a feature film about the fuzzy trinkets. “It’s completely ruthless marketing,” one expert said.`\
-https://nytimes.com/2026/03/19/movies/labubu-movie-paul-king.html
 
