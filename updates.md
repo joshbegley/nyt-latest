@@ -1,3 +1,15 @@
+**Iran football team returns home, two players still in Australia**\
+`Seven members of the travelling party had initially decided to claim humanitarian asylum in Australia after safety concerns. `\
+https://nytimes.com/athletic/7130452/2026/03/19/iran-asian-cup-womens-football-latest/
+
+**NFL beat writer 2026 mock draft 2.0: How far could Jeremiyah Love slide?**\
+`If Love doesn't go in the top five, there aren't many teams with a glaring need at running back. Could he become Derrick Henry's successor?`\
+https://nytimes.com/athletic/7125848/2026/03/19/nfl-mock-draft-2026-beat-writer/
+
+**The 2026 Aces Project. MLB insiders rank starting pitchers: Who’s ‘just a guy’ and who’s No. 1?**\
+`We asked a group of executives, scouts and analysts to rank the best pitchers in baseball. Here are their picks. `\
+https://nytimes.com/athletic/7122226/2026/03/19/2026-aces-project-mlb-insiders-rank-pitchers/
+
 **Can Vladimir Guerrero Jr. carry his big-stage performances back to the Blue Jays?**\
 `Guerrero continues to demonstrate a knack for the big moment. Now the Blue Jays hope he can recreate that approach over the regular season.`\
 https://nytimes.com/athletic/7128966/2026/03/19/blue-jays-vladimir-guerrero-postseason-wbc/
