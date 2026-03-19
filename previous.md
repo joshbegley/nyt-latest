@@ -1,3 +1,11 @@
+**With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
+`High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
+https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
+
+**Review: ‘The Wild Party’ Has a Ball at City Center**\
+`Encores! revisits a Jazz Age tale of debauchery, with showstoppers from Jasmine Amy Rogers, Adrienne Warren, Jordan Donica, Tonya Pinkins and others.`\
+https://nytimes.com/2026/03/19/theater/the-wild-party-review-warren-rogers-pinkins-donica.html
+
 **‘Africa Will Write Its Own History.’ Who Was Patrice Lumumba?**\
 `Remembering the African leader after a Brussels court this week ordered a retired Belgian diplomat stand trial for his 1961 assassination.`\
 https://nytimes.com/2026/03/19/world/africa/patrice-lumumba-assassination-congo-belgium.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/theater/jane-lapotaire-dead.html
 **Have You Turned to A.I. For Advice on a Romantic Relationship?**\
 `People are using generative A.I. chatbots for help on everything from starting to ending a relationship. Have you? How did it turn out?`\
 https://nytimes.com/2026/03/19/technology/have-you-turned-to-ai-for-advice-on-a-romantic-relationship.html
-
-**Tampa Bay Rays will wear patches stitched with pieces of wrecked Tropicana Field roof**\
-`As the Rays move back into their hurricane-damaged stadium, their new patch with Webull offers a tangible reminder of the long road there.`\
-https://nytimes.com/athletic/7131971/2026/03/19/tampa-bay-rays-roof-patches/
-
-**How to watch Flyers vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7132075/2026/03/19/flyers-vs-kings-stream-how-to-watch-march-19/
 

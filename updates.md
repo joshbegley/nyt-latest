@@ -1,3 +1,11 @@
+**With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
+`High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
+https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
+
+**Review: ‘The Wild Party’ Has a Ball at City Center**\
+`Encores! revisits a Jazz Age tale of debauchery, with showstoppers from Jasmine Amy Rogers, Adrienne Warren, Jordan Donica, Tonya Pinkins and others.`\
+https://nytimes.com/2026/03/19/theater/the-wild-party-review-warren-rogers-pinkins-donica.html
+
 **‘Africa Will Write Its Own History.’ Who Was Patrice Lumumba?**\
 `Remembering the African leader after a Brussels court this week ordered a retired Belgian diplomat stand trial for his 1961 assassination.`\
 https://nytimes.com/2026/03/19/world/africa/patrice-lumumba-assassination-congo-belgium.html

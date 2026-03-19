@@ -1,3 +1,7 @@
+**When could Cade Cunningham return? Explaining collapsed lung recovery**\
+`Detroit’s two-week re-evaluation timeline fits the typical treatment for a collapsed lung, but recovery could take many forms.`\
+https://nytimes.com/athletic/7131740/2026/03/19/cade-cunningham-collapsed-lung-injury-explained/
+
 **With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
 `High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
 https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132151/2026/03/19/idaho-vs-houston-stream-how-to-w
 **Jane Lapotaire, British Actress Who Won a Tony for ‘Piaf,’ Dies at 81**\
 `In a distinguished career in classical and contemporary plays, she drew acclaim on both sides of the Atlantic for her dramatic portrayal of the French singer Édith Piaf.`\
 https://nytimes.com/2026/03/19/theater/jane-lapotaire-dead.html
-
-**Have You Turned to A.I. For Advice on a Romantic Relationship?**\
-`People are using generative A.I. chatbots for help on everything from starting to ending a relationship. Have you? How did it turn out?`\
-https://nytimes.com/2026/03/19/technology/have-you-turned-to-ai-for-advice-on-a-romantic-relationship.html
 
