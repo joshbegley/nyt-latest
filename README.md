@@ -1,3 +1,11 @@
+**Jeff Bezos in Talks to Raise $100 Billion Fund to Transform Companies With A.I.**\
+`The new fund would operate alongside the Amazon founder’s A.I. start-up, Project Prometheus.`\
+https://nytimes.com/2026/03/19/technology/jeff-bezos-ai-fund-project-prometheus.html
+
+**Trump’s Handpicked Arts Commission Approves Gold Coin With His Face on It**\
+`Many of America’s founders were fiercely against taking steps that would make its government officials appear like kings, and that included featuring them on the country’s coins.`\
+https://nytimes.com/2026/03/19/us/politics/arts-commission-trump-coin.html
+
 **Cesar Chavez Avenue May Soon Be Gone. Yet to Be Confronted: His Legacy.**\
 `After the revelations of sex abuse, the public is left to make sense of the labor leader’s work and life.`\
 https://nytimes.com/2026/03/19/us/politics/cesar-chavez-memorials-renaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
 **Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
 `Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his company unfairly dominates the music industry.`\
 https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
-
-**Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
-`President Donald Trump made a joke about the Japanese attack on Dec.`\
-https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.html
-
-**FBS ends first-half suspension for targeting, holds off on short-shorts rule**\
-`Targeting offenders will still be ejected from the game, and repeat offenders will have stiffer penalties.`\
-https://nytimes.com/athletic/7132265/2026/03/19/college-football-targeting-penalty-suspension/
 
