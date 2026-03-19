@@ -1,3 +1,7 @@
+**Gas Prices in Japan Hit Record High, Testing Leader’s Cost-of-Living Pledge**\
+`Japan is deploying subsidies to blunt fuel price increases but remains vulnerable to the long-term economic risks of the war in the Middle East.`\
+https://nytimes.com/2026/03/19/business/japan-gas-prices.html
+
 **Cuba Is Going Dark**\
 `Cuba is facing a historic electricity crisis. Blackouts have gotten worse, and on some days the entire island is plunged into near total darkness.`\
 https://nytimes.com/interactive/2026/03/19/world/americas/cuba-blackout-electricity.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/heres-the-late
 **Iran War Live Updates: Qatar Reports More Attacks on Energy Infrastructure as Oil Prices Rise**\
 `Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $114 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
 https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil
-
-**Late Night Tells the Tale of the Dueling Senators**\
-`“Also very funny to describe a duel as being between two consenting adults. You know, because if only one person consents, that’s murder,” said Seth Meyers, host of “Late Night.”`\
-https://nytimes.com/2026/03/19/arts/television/late-night-dueling-senators.html
 
