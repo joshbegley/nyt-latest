@@ -1,3 +1,7 @@
+**Bears' NFL Draft big board: Safety, edge top growing list of needs**\
+`After a flurry of moves to start the 2026 league year, the Bears still have needs all over their defense. Who could they look to draft?`\
+https://nytimes.com/athletic/7129131/2026/03/19/bears-nfl-draft-big-board-safety-edge/
+
 **Rangers' rivalry woes persist as Jack Hughes continues dominant stretch**\
 `The Rangers have one chance left to avoid posting their first season with no wins against the Devils and Islanders in franchise history.`\
 https://nytimes.com/athletic/7130195/2026/03/19/rangers-rivalry-jack-hughes-devils/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128590/2026/03/19/colton-herta-cadillac-f1-indycar
 **Why is Trae Young playing right now? To 'build that chemistry' with Wizards teammates**\
 `The Wizards should use their last 14 games to begin to explore the possibilities of what they could look like with their real roster.`\
 https://nytimes.com/athletic/7125627/2026/03/19/trae-young-washington-wizards/
-
-**16 stats: The Blue Jackets have arrived as a legitimate Stanley Cup dark horse**\
-`At long last, it feels like the Blue Jackets have arrived. Plus: Matthew Schaefer is back to dominating and the Leafs are stubborn. `\
-https://nytimes.com/athletic/7128935/2026/03/19/blue-jackets-nhl-stanley-cup-stats/
 

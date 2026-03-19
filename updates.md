@@ -1,3 +1,7 @@
+**Bears' NFL Draft big board: Safety, edge top growing list of needs**\
+`After a flurry of moves to start the 2026 league year, the Bears still have needs all over their defense. Who could they look to draft?`\
+https://nytimes.com/athletic/7129131/2026/03/19/bears-nfl-draft-big-board-safety-edge/
+
 **Rangers' rivalry woes persist as Jack Hughes continues dominant stretch**\
 `The Rangers have one chance left to avoid posting their first season with no wins against the Devils and Islanders in franchise history.`\
 https://nytimes.com/athletic/7130195/2026/03/19/rangers-rivalry-jack-hughes-devils/
