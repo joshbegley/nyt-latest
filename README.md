@@ -1,3 +1,15 @@
+**Who owns Jack Hughes' golden-goal puck and what's it worth? We explain**\
+`Where is the puck, who owns it , how much is it worth and does Hughes still want it back? We answer these questions and more. `\
+https://nytimes.com/athletic/7131673/2026/03/19/jack-hughes-puck-controversy-winter-olympics-nhl/
+
+**How to watch Pennsylvania vs. Illinois men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Pennsylvania Quakers play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131761/2026/03/19/pennsylvania-vs-illinois-stream-how-to-watch-march-19/
+
+**Alabama preparing to play without Holloway after arrest, Oats says**\
+`Oats said he does not know if or when Holloway could return later in the NCAA Tournament.`\
+https://nytimes.com/athletic/7131759/2026/03/19/aden-holloway-alabama-arrest-ncaa-tournament-nate-oats/
+
 **FIFA rules women's teams must have a woman as head or assistant coach**\
 `In competitions under the football governing body's remit, each team must have at least two female staff on their bench. `\
 https://nytimes.com/athletic/7130675/2026/03/19/fifa-womens-coach-rules/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/7131400/2026/03/19/nfl-rule-change-proposal-trade-d
 **Remote Part of Australia Braces for ‘Significant’ Tropical System**\
 `Tropical Cyclone Narelle is expected to hit northern Queensland as the equivalent of a Category 4 hurricane.`\
 https://nytimes.com/2026/03/19/weather/tropical-cyclone-narelle-australia.html
-
-**U.S. Encourages Flow of Iranian Oil While It Battles Iran**\
-`Treasury Secretary Scott Bessent said removing sanctions on Iranian oil would lower global prices.`\
-https://nytimes.com/2026/03/19/us/politics/iran-oil-sanctions.html
-
-**She Died After Her Pacemaker Battery Failed. Its Maker Knew of Problems for Years.**\
-`Boston Scientific announced multiple recalls but has said its battery issues were limited. One internal test in 2025 found batteries with an “extremely high failure rate.”`\
-https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scientific.html
-
-**How to watch Blackhawks vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131659/2026/03/19/blackhawks-vs-wild-stream-how-to-watch-march-19/
 
