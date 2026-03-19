@@ -1,3 +1,11 @@
+**Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
+`President Dondald Trump made a joke about the Japanese attack on Dec.`\
+https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.html
+
+**FBS ends first-half suspension for targeting, holds off on short-shorts rule**\
+`Targeting offenders will still be ejected from the game, and repeat offenders will have stiffer penalties.`\
+https://nytimes.com/athletic/7132265/2026/03/19/college-football-targeting-penalty-suspension/
+
 **Duke rallies back from 13-point deficit to escape 16th-seeded Siena**\
 `Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
 https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/

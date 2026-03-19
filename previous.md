@@ -1,3 +1,11 @@
+**Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
+`President Dondald Trump made a joke about the Japanese attack on Dec.`\
+https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.html
+
+**FBS ends first-half suspension for targeting, holds off on short-shorts rule**\
+`Targeting offenders will still be ejected from the game, and repeat offenders will have stiffer penalties.`\
+https://nytimes.com/athletic/7132265/2026/03/19/college-football-targeting-penalty-suspension/
+
 **Duke rallies back from 13-point deficit to escape 16th-seeded Siena**\
 `Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
 https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/19/arts/design/thomas-gentille-dead.html
 **Democrats Demand Answers on Jared Kushner’s Mideast Business Dealings**\
 `Two prominent lawmakers wrote to the White House and Mr. Kushner after The New York Times revealed private fund-raising efforts by President Trump’s envoy in the region.`\
 https://nytimes.com/2026/03/19/business/jared-kushner-mideast-private-equity.html
-
-**Student Loan Office to Leave the Education Department**\
-`The office will move to the Treasury Department as the Trump administration slowly dismantles the agency overseeing federal education policy.`\
-https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-department.html
-
-**Trump’s Reaction to Israeli Strike on Gas Field Exposes Divergent Strategies**\
-`President Trump said he complained to Prime Minister Benjamin Netanyahu of Israel about the attack, which sent energy markets reeling. But Israeli officials said the Americans were informed beforehand.`\
-https://nytimes.com/2026/03/19/us/politics/trump-netanyahu-iran-gas-field-attack.html
 
