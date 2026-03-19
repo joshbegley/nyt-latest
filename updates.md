@@ -1,3 +1,11 @@
+**Afroman Wins Civil Trial Over Use of Police Raid Footage in His Music Videos**\
+`Seven law enforcement officers had accused the rapper, whose name is Joseph E. Foreman, of causing them “humiliation” by using images from their 2022 raid on his Ohio home in two music videos.`\
+https://nytimes.com/2026/03/19/us/afroman-trial-lemon-cake-verdict.html
+
+**Oil Prices Keep Climbing on Heightened Fears Over Energy Supplies**\
+`Attacks on major energy facilities in Iran and Qatar injected new uncertainty into the outlook for oil and gas prices.`\
+https://nytimes.com/2026/03/19/business/oil-prices-iran-war.html
+
 **The Iran War’s Economic Threat to Europe and Asia**\
 `Inflation and its consequences for growth is a growing concern for countries where memories of the 2022 energy crisis are fresh.`\
 https://nytimes.com/2026/03/19/business/iran-war-fiscal-spending-debt.html
