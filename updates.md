@@ -1,3 +1,19 @@
+**Student Freed From ICE Detention Worries About Those Left Behind**\
+`Dylan Lopez Contreras, the first known New York City public school student to be taken by federal agents last year, said he would “continue fighting” for migrants who remained in detention.`\
+https://nytimes.com/2026/03/19/nyregion/nyc-high-school-student-ice-freed.html
+
+**Five things about Panthers LB Devin Lloyd: He plays one speed — fast**\
+`"You can’t help but be optimistic for the future and what we’re gonna do on Sundays," Lloyd said Thursday.`\
+https://nytimes.com/athletic/7132016/2026/03/19/panthers-devin-lloyd-defense-free-agency/
+
+**Italy's espresso machine, Ohtani jersey, highlight WBC auctions**\
+`Key items from the World Baseball Classic are now available to purchase through MLB auctions. `\
+https://nytimes.com/athletic/7131813/2026/03/19/italy-wbc-espresso-machine-ohtani-jersey-auction/
+
+**When could Cade Cunningham return? Explaining collapsed lung recovery**\
+`Detroit’s two-week re-evaluation timeline fits the typical treatment for a collapsed lung, but recovery could take many forms.`\
+https://nytimes.com/athletic/7131740/2026/03/19/cade-cunningham-collapsed-lung-injury-explained/
+
 **With a 3-point sharpshooter's first 2 of the year, 12-seed High Point stuns Wisconsin**\
 `High Point, the Big South Conference champions, came back from as many as 10 down to unseat the Big Ten's Badgers.`\
 https://nytimes.com/athletic/7132133/2026/03/19/high-point-wisconsin-ncaa-tournament/
