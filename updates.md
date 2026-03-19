@@ -1,3 +1,11 @@
+**Giants' Hayden Birdsong to undergo Tommy John surgery**\
+`The 24-year-old righty was already an unlikely candidate to make the major-league roster. Now he will miss the entire 2026 season.`\
+https://nytimes.com/athletic/7132272/2026/03/19/sf-giants-hayden-birdsong-tommy-john-surgery/
+
+**Amid Power Outages, Cubans Worry About Access to Food and Clean Water**\
+`A devastating electricity crisis has made it harder for Cubans to access food, running water and medical care. The island nation mostly relied on Venezuela’s oil to generate its electricity. But in January, the Trump administration ordered Venezuela to stop supplying oil to Cuba.`\
+https://nytimes.com/video/world/americas/100000010789711/cuba-power-outages-food-water.html
+
 **Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
 `Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his company unfairly dominates the music industry.`\
 https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html

@@ -1,3 +1,7 @@
+**White House Seeks to Reassure Americans on Rising Costs**\
+`Also, March Madness begins. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2026/03/19/briefing/white-house-oil-prices-cuba-electricity.html
+
 **Giants' Hayden Birdsong to undergo Tommy John surgery**\
 `The 24-year-old righty was already an unlikely candidate to make the major-league roster. Now he will miss the entire 2026 season.`\
 https://nytimes.com/athletic/7132272/2026/03/19/sf-giants-hayden-birdsong-tommy-john-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132265/2026/03/19/college-football-targeting-penal
 **Duke rallies from 13-point deficit to escape 16th-seeded Siena**\
 `Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
 https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/
-
-**White House Looks for Ways to Soothe American Jitters Over Surging Prices**\
-`President Trump and Prime Minister Benjamin Netanyahu of Israel suggested that the war with Iran could end soon, but that there were still more attacks ahead.`\
-https://nytimes.com/2026/03/19/world/middleeast/trump-oil-iran-war-mideast-japan.html
 
