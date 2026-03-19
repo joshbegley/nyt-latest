@@ -1,3 +1,23 @@
+**General Says U.S. Boat Strikes Are Not Answer to Country’s Drug Problem**\
+`Gen. Francis L. Donovan, the head of the military’s Southern Command, said he was working with regional allies on the issue.`\
+https://nytimes.com/2026/03/19/us/politics/boat-strikes-caribbean.html
+
+**A Gift From Trump to the Supreme Court**\
+`In a caustic critique of the court issued on social media late Sunday night, the president inadvertently buttressed its independence.`\
+https://nytimes.com/2026/03/19/us/the-docket-gift-trump-supreme-court.html
+
+**Mortgage Rates Inch Higher as War Weighs on Housing Market**\
+`Rising energy costs and concerns about inflation have helped lift borrowing costs for a home mortgage for the third consecutive week.`\
+https://nytimes.com/2026/03/19/business/mortgage-rates-iran-war.html
+
+**Contradicting Trump, Israeli Officials Say U.S. Was Told about South Pars Attack**\
+`President Trump said the United States “knew nothing” about an attack on the gas field in Iran, which sent global oil and gas prices soaring.`\
+https://nytimes.com/2026/03/19/world/middleeast/israel-iran-south-pars-gas-field-trump.html
+
+**Arkansas U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Arkansas U.S. Senate election.`\
+https://nytimes.com/interactive/polls/arkansas-us-senate-election-polls-2026.html
+
 **How to watch Texas A&M vs. Saint Mary's (CA) men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131324/2026/03/19/texas-a-m-vs-saint-mary-s-ca-stream-how-to-watch-march-19/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/7131295/2026/03/19/vcu-vs-north-carolina-stream-how
 **How to watch Texas vs. BYU men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Texas Longhorns play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131293/2026/03/19/texas-vs-byu-stream-how-to-watch-march-19/
-
-**Father of a Palestinian woman killed with three others during a missile attack expresses shock.**\
-`The victims are the first Palestinians in the Israeli-occupied West Bank to be killed as a result of the Middle East war.`\
-https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/palestinian-women-killed-salon-missile-strike
-
-**Trey Yesavage's shoulder injury another hit to Blue Jays' rotation**\
-`Yesavage is a long-term piece and one of the few young future building blocks on the the Jays’ current roster.`\
-https://nytimes.com/athletic/7131164/2026/03/19/trey-yesavage-injury-il-blue-jays-season-start/
-
-**How to watch Samford vs. Southern women's basketball: First Four Time, TV, streaming**\
-`Find out how to watch the Samford Bulldogs play the Southern Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131248/2026/03/19/samford-vs-southern-stream-how-to-watch-march-19/
-
-**Extended Mideast Conflict Would Slow Trade and Growth, W.T.O. Warns**\
-`The trade organization said that a slowdown in trade in 2026 could become even more extreme if the war in the Middle East persists.`\
-https://nytimes.com/2026/03/19/business/economy/mideast-conflict-trade-wto.html
-
-**The Long Farewell to Mark Zuckerberg’s Metaverse**\
-`Meta announced changes that effectively leave Mr. Zuckerberg’s vision of an immersive digital world based in virtual reality only on life support.`\
-https://nytimes.com/2026/03/19/technology/mark-zuckerbergs-metaverse-vr-horizon-worlds.html
 
