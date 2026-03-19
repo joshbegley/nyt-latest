@@ -1,3 +1,7 @@
+**Word of the Day: immaterial**\
+`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/19/learning/word-of-the-day-immaterial.html
+
 **How fit do you need to be to play first-class cricket? The Athletic found out**\
 `Lancashire County Cricket Club opened their doors as the first-team squad reported back for pre-season testing, from time trials to planks`\
 https://nytimes.com/athletic/7128087/2026/03/19/cricket-fitness-pre-season-lancashire/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
 `The Dutch legend talks punditry, connecting with players, and his own coaching ambitions — all while covering a huge Champions League tie`\
 https://nytimes.com/athletic/7128219/2026/03/19/clarence-seedorf-interview-amazon/
 
-**What happens now to the winners' medals and the trophy? Answering unepected AFCON final questions**\
+**What happens now to the winners' medals and the trophy? Answering unexpected AFCON final questions**\
 `Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
 https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7128199/2026/03/19/alternative-premier-league-table
 **Lennart Karl, Bayern Munich’s teenage prodigy who is being called up by Germany**\
 `The 18-year-old was excellent in the win against Atalanta and will have his eyes on the World Cup after breaking into the Germany squad`\
 https://nytimes.com/athletic/7129424/2026/03/19/lennart-karl-germany-call-up-bayern/
-
-**The Arsenal trio facing Man City at Wembley who have come full circle**\
-`Rice, Havertz and Timber made Arsenal debuts against City in 2023 — and all three have gone on to be vital pieces in Arteta's squad`\
-https://nytimes.com/athletic/7114857/2026/03/19/rice-timber-havertz-arsenal-man-city/
 

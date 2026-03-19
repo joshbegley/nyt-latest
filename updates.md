@@ -1,3 +1,11 @@
+**Word of the Day: immaterial**\
+`This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2026/03/19/learning/word-of-the-day-immaterial.html
+
+**What happens now to the winners' medals and the trophy? Answering unexpected AFCON final questions**\
+`Also: what happens to the land the Senegal players were given by their government? And what about bets placed on the final?`\
+https://nytimes.com/athletic/7128680/2026/03/19/afcon-final-senegal-morocco-questions/
+
 **How fit do you need to be to play first-class cricket? The Athletic found out**\
 `Lancashire County Cricket Club opened their doors as the first-team squad reported back for pre-season testing, from time trials to planks`\
 https://nytimes.com/athletic/7128087/2026/03/19/cricket-fitness-pre-season-lancashire/
