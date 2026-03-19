@@ -1,3 +1,15 @@
+**Madrid's Courtois sidelined for at least six weeks with thigh injury**\
+`On Wednesday, Courtois did not expect the issue to be major before tests on Thursday proved otherwise.`\
+https://nytimes.com/athletic/7126646/2026/03/19/thibaut-courtois-injury-real-madrid-news-2026/
+
+**QB Carson Wentz re-signing with Minnesota Vikings: Sources**\
+`Wentz will rejoin a quarterback room that includes Kyler Murray and J.J. McCarthy.`\
+https://nytimes.com/athletic/7130754/2026/03/19/minnesota-vikings-carzon-wentz-qb-signed-stays/
+
+**Timothée Chalamet’s Biggest Fan Takes a Step Back**\
+`After a rocky Oscars campaign, the actor may have lost favor with parts of his fervent fan base, including the popular social media account Club Chalamet.`\
+https://nytimes.com/2026/03/19/style/timothee-chalamet-fans-club.html
+
 **UFC's White House bouts to be sanctioned, regulated by ABC, not D.C. commission**\
 `The UFC worked with the D.C. Combat Sports Commission for its previous two Washington events, which were held at Capital One Arena.`\
 https://nytimes.com/athletic/7129747/2026/03/19/ufc-white-house-dc-commission-regulations-sanctioned/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7130431/2026/03/19/world-cup-2026-ice-bills-congres
 **UEFA to meet European leagues to discuss less intrusive VAR approach**\
 `UEFA is determined to persuade the likes of the Premier League, LaLiga and Serie A to adopt a more light-touch approach to VAR.`\
 https://nytimes.com/athletic/7130415/2026/03/19/uefa-var-european-leagues-meeting/
-
-**Fletcher turned down a first-team role in January. Now he is delivering with the U18s**\
-`He has guided the age-group side to the FA Youth Cup semi-final and they are flying in the league`\
-https://nytimes.com/athletic/7130360/2026/03/19/darren-fletcher-manchester-united-u18s/
-
-**Chelsea's goalkeepers are struggling. Is Mike Penders a risk worth taking?**\
-`Chelsea goalkeeper Mike Penders is currently on loan at Strasbourg. The Athletic analyses his readiness for the Premier League`\
-https://nytimes.com/athletic/7124950/2026/03/19/chelsea-goalkeepers-mike-penders-analysis/
-
-**How to watch the 2026 Los Angeles Angels season: TV info for Mike Trout's team**\
-`Here's how to watch Mike Trout and the Halos amid regional sports network changes and national TV updates.`\
-https://nytimes.com/athletic/7126194/2026/03/19/los-angeles-angels-mike-trout-how-to-watch-2026/
 
