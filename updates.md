@@ -1,3 +1,7 @@
+**Trump and Iran Won’t Leave the Agenda as European Leaders Meet**\
+`A gathering in Brussels was meant to concentrate on jump-starting the E.U. economy. Instead, the fallout of the war in the Middle East is front and center.`\
+https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html
+
 **Europe’s Leaders Gather in Brussels, Their Agenda Derailed by Trump**\
 `The meeting was meant to concentrate on jump-starting the bloc’s economy. Instead, the fallout of the attack on Iran is front and center.`\
 https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html

@@ -1,3 +1,7 @@
+**Arkansas, St. John’s lead public betting, putting sportsbooks on upset watch**\
+`Who are people betting on to win it all? What are the biggest bets going into the tournament? We got you covered on the betting action.`\
+https://nytimes.com/athletic/7129466/2026/03/19/ncaa-tournament-betting-duke-florida-michigan-arkansas-alabama-high-point/
+
 **Trump and Iran Won’t Leave the Agenda as European Leaders Meet**\
 `A gathering in Brussels was meant to concentrate on jump-starting the E.U. economy. Instead, the fallout of the war in the Middle East is front and center.`\
 https://nytimes.com/2026/03/19/world/europe/eu-leaders-summit-iran-gas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7126194/2026/03/19/los-angeles-angels-mike-trout-ho
 **Noahkai Banks deserves the right to decide his own international future**\
 `The 18-year-old is eligible to play for both the U.S. and Germany and faces a tough decision amid a sea of outside noise`\
 https://nytimes.com/athletic/7130238/2026/03/19/usmnt-world-cup-noahkai-banks-germany-pochettino-donovan/
-
-**Analyzing the Chargers' depth chart after the first wave of free agency**\
-`The Chargers have made a few splashes in free agency, but at receiver, they should stick with Ladd McConkey and let Keenan Allen walk.`\
-https://nytimes.com/athletic/7128955/2026/03/19/chargers-depth-chart-free-agency-2026/
 
