@@ -1,3 +1,15 @@
+**'Fly, Eagle Fly': Jonathan Jones flies himself to Philly to sign contract**\
+`Veteran defensive back, who earned his pilot's license in 2023, made the trek from Charlotte, N.C. to Philadelphia.`\
+https://nytimes.com/athletic/7129866/2026/03/18/eagles-cb-jonathan-jones-pilot/
+
+**Family of Minneapolis Boy Detained by ICE Faces Fast-Track Deportation**\
+`The family of 5-year-old Liam Conejos Ramos, who became a symbol of Trump’s immigration crackdown, is appealing their accelerated removal.`\
+https://nytimes.com/2026/03/18/us/family-minneapolis-boy-ice-deportation.html
+
+**At Arkansas, John Calipari sounds like himself again**\
+`Let Calipari flex. The Razorbacks enter the NCAA Tournament averaging 89.9 points per game and playing a gorgeous brand of basketball.`\
+https://nytimes.com/athletic/7129844/2026/03/18/john-calipari-arkansas-march-madness-ncaa-tournament-rebirth/
+
 **Duke assistant Evan Bradds taking Belmont head coaching job: Source**\
 `Make that three years in a row Duke coach Jon Scheyer is losing at least one assistant coach.`\
 https://nytimes.com/athletic/7130046/2026/03/18/evan-bradds-duke-belmont-head-coach-hiring/
