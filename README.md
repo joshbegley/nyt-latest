@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By Francesca Regalado, Ravi Mattu, Rebecca Elliott and River Akira Davis`\
+https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil/heres-the-latest
+
+**Iran War Live Updates: Qatar Reports More Attacks on Energy Infrastructure as Oil Prices Rise**\
+`Qatar blamed Tehran for strikes on its natural gas facilities, a day after Iran’s largest natural gas source was hit. The price of oil climbed to $112 a barrel as uncertainty over the war’s impacts on energy supplies grew.`\
+https://nytimes.com/live/2026/03/19/world/iran-war-news-trump-oil
+
 **Late Night Tells the Tale of the Dueling Senators**\
 `“Also very funny to describe a duel as being between two consenting adults. You know, because if only one person consents, that’s murder,” said Seth Meyers, host of “Late Night.”`\
 https://nytimes.com/2026/03/19/arts/television/late-night-dueling-senators.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/7110936/2026/03/19/leny-yoro-manchester-united-cat/
 **How to navigate FPL’s blank gameweek with only free transfers**\
 `It's more important to own quality over quantity in a blank gameweek. If you have the core template players, that can be enough to carry you`\
 https://nytimes.com/athletic/7127893/2026/03/19/fantasy-premier-leagues-fpl-tips-blank-gameweek-31/
-
-**Newcastle have a sole purpose to their season now. Can they achieve it?**\
-`Newcastle are out of each cup competition and have one goal for the season — securing European football for the next campaign`\
-https://nytimes.com/athletic/7128447/2026/03/19/newcastle-barcelona-analysis-european-qualification-premier-league/
-
-**Chelsea's huddle and pre-match rituals in sport: Psychological weapon or silly gimmick?**\
-`Chelsea's huddle has drawn a lot of debate. So what is the point of it and other pre-match rituals? Sarah Shephard explains`\
-https://nytimes.com/athletic/7128059/2026/03/19/chelsea-huddle-pre-match-ritual/
 
