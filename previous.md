@@ -1,40 +1,40 @@
-**Finding fantasy baseball bargains and busts using standard deviation of launch angle**\
-`John Laghezza examines launch-angle tightness as a metric to be used in predicting batting average upside.`\
-https://nytimes.com/athletic/7122238/2026/03/19/fantasy-baseball-launch-angle-bargains-busts/
+**Rangers' rivalry woes persist as Jack Hughes continues dominant stretch**\
+`The Rangers have one chance left to avoid posting their first season with no wins against the Devils and Islanders in franchise history.`\
+https://nytimes.com/athletic/7130195/2026/03/19/rangers-rivalry-jack-hughes-devils/
 
-**How to watch TCU vs. Ohio State men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130484/2026/03/19/tcu-vs-ohio-state-stream-how-to-watch-march-19/
+**Crosby scores in return, but Penguins drop a wild one in overtime**\
+`The Penguins and Hurricanes played another thriller, this one in Sidney Crosby's return, tying an NHL record in the process.`\
+https://nytimes.com/athletic/7128831/2026/03/19/penguins-crosby-return-karlsson-skinner-overtime-hurricanes/
 
-**How to watch South Florida vs. Louisville men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the South Florida Bulls play the Louisville Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130481/2026/03/19/south-florida-vs-louisville-stream-how-to-watch-march-19/
+**Breaking down Lionel Messi's 900 career goals**\
+`As soccer's greatest-ever player has hit another milestone, Will Jeanes crunches his astonishing numbers`\
+https://nytimes.com/athletic/6842374/2026/03/19/lionel-messi-900-goals-breakdown/
 
-**How to watch Troy vs. Nebraska men's basketball: First Round Time, TV, streaming**\
-`Find out how to watch the Troy Trojans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7130479/2026/03/19/troy-vs-nebraska-stream-how-to-watch-march-19/
+**Sabres player survey: Best and worse dressed, least likely to pick up the check, more**\
+`The Sabres are winning games and having fun on the ice, but what are they really like as a group?`\
+https://nytimes.com/athletic/7129165/2026/03/19/buffalo-sabres-player-survey-2026-season/
 
-**Iran football team returns home, two players still in Australia**\
-`Seven members of the travelling party had initially decided to claim humanitarian asylum in Australia after safety concerns. `\
-https://nytimes.com/athletic/7130452/2026/03/19/iran-asian-cup-womens-football-latest/
+**2026 NHL prospect pool rankings: No. 22 New Jersey Devils**\
+`The Devils lack a top prospect up front, but have a star goalie, multiple legit D prospects and some peripheral forwards.`\
+https://nytimes.com/athletic/6964156/2026/03/19/new-jersey-devils-nhl-prospect-rankings-2026/
 
-**Can Vladimir Guerrero Jr. carry his big-stage performances back to the Blue Jays?**\
-`Guerrero continues to demonstrate a knack for the big moment. Now the Blue Jays hope he can recreate that approach over the regular season.`\
-https://nytimes.com/athletic/7128966/2026/03/19/blue-jays-vladimir-guerrero-postseason-wbc/
+**His heart stopped at halftime. But that was never the end of basketball for Tyon Grant-Foster**\
+`After two collapses led to two heart surgeries, Grant-Foster, 26, fought to return to play. Now he gets a final shot at the NCAA Tournament.`\
+https://nytimes.com/athletic/7128992/2026/03/19/ncaa-tournament-march-madness-tyon-grant-foster-gonzaga-heart/
 
-**NFL beat writer 2026 mock draft 2.0: How far could Jeremiyah Love slide?**\
-`If Love doesn't go in the top five, there aren't many teams with a glaring need at running back. Could he become Derrick Henry's successor?`\
-https://nytimes.com/athletic/7125848/2026/03/19/nfl-mock-draft-2026-beat-writer/
+**Inside women's football transfers: Data, pathways and ‘speed dating’**\
+`The women’s football market is still in its relative infancy. More professionals are looking to connect and build data-driven models`\
+https://nytimes.com/athletic/7125392/2026/03/19/transferroom-womens-marketplace-football-transfer-window-transparency/
 
-**What is a physical? Explaining the medical exams needed to approve NFL transactions**\
-`While physical exams at the NFL combine require a "clearance rate," those performed before trades or signings are more discussion-based.`\
-https://nytimes.com/athletic/7129252/2026/03/19/nfl-physical-exam-maxx-crosby-ravens-raiders/
+**Colton Herta sacrificed IndyCar stability for F2 risk, all to chase an F1 dream**\
+`The 25-year-old has been on the brink of F1 for several seasons. Cadillac's arrival offers his best shot, but via an unusual route in F2`\
+https://nytimes.com/athletic/7128590/2026/03/19/colton-herta-cadillac-f1-indycar/
 
-**The 2026 Aces Project. MLB insiders rank starting pitchers: Who’s ‘just a guy’ and who’s No. 1?**\
-`We asked a group of executives, scouts and analysts to rank the best pitchers in baseball. Here are their picks. `\
-https://nytimes.com/athletic/7122226/2026/03/19/2026-aces-project-mlb-insiders-rank-pitchers/
+**Why is Trae Young playing right now? To 'build that chemistry' with Wizards teammates**\
+`The Wizards should use their last 14 games to begin to explore the possibilities of what they could look like with their real roster.`\
+https://nytimes.com/athletic/7125627/2026/03/19/trae-young-washington-wizards/
 
-**Jac Caglianone, Shane Baz and other breakout MLB candidates for 2026**\
-`These players aren't technically prospects anymore, but they are still early on enough in their careers to make significant changes.`\
-https://nytimes.com/athletic/7124750/2026/03/19/mlb-breakout-candidates-2026/
+**16 stats: The Blue Jackets have arrived as a legitimate Stanley Cup dark horse**\
+`At long last, it feels like the Blue Jackets have arrived. Plus: Matthew Schaefer is back to dominating and the Leafs are stubborn. `\
+https://nytimes.com/athletic/7128935/2026/03/19/blue-jackets-nhl-stanley-cup-stats/
 
