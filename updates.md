@@ -1,3 +1,19 @@
+**The Bounce: Choosing a side in Giannis vs. Bucks. Plus, the madness begins!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7130858/2026/03/19/giannis-bucks-dispute-march-madness-prospects-the-bounce/
+
+**The New Museum Reopens, Asking, ‘What Is Human?’**\
+`It’s a big, serious, adult show worth debating and even fighting over — just the way our critic likes it.`\
+https://nytimes.com/2026/03/19/arts/design/new-museum-reopening-new-humans-phillips-gioni.html
+
+**Who could help the Sixers? Players for Philly fans to watch in March Madness**\
+`A 6-foot-3 guard who can shoot, a 7-3 center who is a great rim protector and eight other prospects who can fit with the Sixers.`\
+https://nytimes.com/athletic/7130269/2026/03/19/philadelphia-sixers-ncaa-tournament-nba-draft/
+
+**What Exactly Is Trauma Bonding?**\
+`Lately people have adopted the phrase “trauma bond” both online and off. But as a psychological term, the phrase has a long history that describes something different from how it’s commonly used. Christina Caron, a mental health reporter for Well, explains.`\
+https://nytimes.com/video/well/100000010781639/what-exactly-is-trauma-bonding.html
+
 **2 Men Charged With Spying for Iran on Britain’s Oldest Synagogue**\
 `The men, both Iranian citizens, are accused of conducting surveillance on several Jewish institutions and community buildings in London.`\
 https://nytimes.com/2026/03/19/world/europe/iran-spy-charged-uk-jewish-london.html

@@ -1,3 +1,7 @@
+**Leeds' Stach earns Germany recall, four years after last appearance**\
+`Stach has played twice for Germany, with both appearances coming in 2022 under Hansi Flick.`\
+https://nytimes.com/athletic/7131040/2026/03/19/leeds-anton-stach-germany-recall/
+
 **The Bounce: Choosing a side in Giannis vs. Bucks. Plus, the madness begins!**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/7130858/2026/03/19/giannis-bucks-dispute-march-madness-prospects-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2026/03/19/t-magazine/ceramics-kintsugi-classes.html
 **Howie Rose, radio voice of the Mets, says he will retire at season's end**\
 `Rose, 72, has had a decorated career as a New York voice, most notably with the Mets, as well as the Rangers and the Islanders.`\
 https://nytimes.com/athletic/7130842/2026/03/19/howie-rose-mets-retire-radio-media/
-
-**Canada's World Cup plans come into focus as Marsch names squad for March camp**\
-`The World Cup co-host will play friendlies against Iceland and Tunisia in Toronto with a 26-man squad and two mainstays as training players`\
-https://nytimes.com/athletic/7129301/2026/03/19/canada-marsch-march-squad-world-cup/
 

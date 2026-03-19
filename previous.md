@@ -1,3 +1,19 @@
+**The Bounce: Choosing a side in Giannis vs. Bucks. Plus, the madness begins!**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/7130858/2026/03/19/giannis-bucks-dispute-march-madness-prospects-the-bounce/
+
+**The New Museum Reopens, Asking, ‘What Is Human?’**\
+`It’s a big, serious, adult show worth debating and even fighting over — just the way our critic likes it.`\
+https://nytimes.com/2026/03/19/arts/design/new-museum-reopening-new-humans-phillips-gioni.html
+
+**Who could help the Sixers? Players for Philly fans to watch in March Madness**\
+`A 6-foot-3 guard who can shoot, a 7-3 center who is a great rim protector and eight other prospects who can fit with the Sixers.`\
+https://nytimes.com/athletic/7130269/2026/03/19/philadelphia-sixers-ncaa-tournament-nba-draft/
+
+**What Exactly Is Trauma Bonding?**\
+`Lately people have adopted the phrase “trauma bond” both online and off. But as a psychological term, the phrase has a long history that describes something different from how it’s commonly used. Christina Caron, a mental health reporter for Well, explains.`\
+https://nytimes.com/video/well/100000010781639/what-exactly-is-trauma-bonding.html
+
 **2 Men Charged With Spying for Iran on Britain’s Oldest Synagogue**\
 `The men, both Iranian citizens, are accused of conducting surveillance on several Jewish institutions and community buildings in London.`\
 https://nytimes.com/2026/03/19/world/europe/iran-spy-charged-uk-jewish-london.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7130842/2026/03/19/howie-rose-mets-retire-radio-med
 **Canada's World Cup plans come into focus as Marsch names squad for March camp**\
 `The World Cup co-host will play friendlies against Iceland and Tunisia in Toronto with a 26-man squad and two mainstays as training players`\
 https://nytimes.com/athletic/7129301/2026/03/19/canada-marsch-march-squad-world-cup/
-
-**Summit sign USWNT forward Yazmeen Ryan, midfielder Delanie Sheehan in deal with Dash**\
-`The transfer could total as much as $1.1 million, the two teams announced Thursday.`\
-https://nytimes.com/athletic/7130299/2026/03/19/summit-sign-yazmeen-ryan-delanie-sheehan-dash/
-
-**Attacks on Energy Infrastructure Could Lead to Much Higher Prices**\
-`Attacks on oil and natural gas facilities this week could make it much harder for Persian Gulf countries to rebuild and restart production when the war eventually end.`\
-https://nytimes.com/2026/03/19/business/energy-environment/iran-oil-natural-gas-attacks.html
-
-**Analysing the Champions League quarter-finals: Star players, top youngsters, trophy favourites**\
-`The Champions League quarter-finals are set, presenting a mouthwatering set of ties. Our experts have their say `\
-https://nytimes.com/athletic/7130652/2026/03/19/champions-league-quarter-finals-analysis-favourites/
-
-**Pistons' Cade Cunningham diagnosed with collapsed lung: Sources**\
-`Cunningham's diagnosis comes as a major blow to a Detroit team already without a key member of its rotation in big man Isaiah Stewart.`\
-https://nytimes.com/athletic/7130859/2026/03/19/cade-cunningham-injury-sidelines-pistons/
 
