@@ -1,3 +1,7 @@
+**Gas Prices in Japan Hit Record High, Testing Leader’s Cost-of-Living Pledge**\
+`Japan is deploying subsidies to blunt fuel price increases but remains vulnerable to the long-term economic risks of the war in the Middle East.`\
+https://nytimes.com/2026/03/19/business/japan-gas-prices.html
+
 **Cuba Is Going Dark**\
 `Cuba is facing a historic electricity crisis. Blackouts have gotten worse, and on some days the entire island is plunged into near total darkness.`\
 https://nytimes.com/interactive/2026/03/19/world/americas/cuba-blackout-electricity.html
