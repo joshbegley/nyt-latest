@@ -1,3 +1,23 @@
+**Shohei Ohtani eager for bigger pitching workload: 'He expects perfection'**\
+`In his first spring training pitching appearance, the Dodgers star reached 99 mph and looked like the Cy Young candidate he aims to be.`\
+https://nytimes.com/athletic/7129663/2026/03/18/shohei-ohtani-dodgers-cy-young/
+
+**While NCAA Tournament expansion plans are on ice, players and coaches have their own ideas**\
+`Players and coaches offer ideas to tweak the NCAA Tournament, including best-of-3 series.`\
+https://nytimes.com/athletic/7129899/2026/03/18/ncaa-basketball-tournament-expansion-ideas/
+
+**First Four: Prairie View A&M beats Lehigh for first NCAA Tournament win**\
+`Prairie View A&M trailed by two points at halftime, but clamped down defensively and found a rhythm offensively in the second half.`\
+https://nytimes.com/athletic/7129676/2026/03/18/march-madness-2026-mens-first-four-score-results/
+
+**Bondi Doesn’t Commit to Deposition With House Panel Over Epstein Files**\
+`Under the rules of the oversight committee, Attorney General Pam Bondi received a subpoena requiring her to appear. The panel’s Republican chairman said he sent the summons reluctantly.`\
+https://nytimes.com/2026/03/18/us/politics/pam-bondi-house-oversight-epstein-files.html
+
+**At Arkansas, John Calipari sounds like himself again**\
+`His player-first sermons sound like a refreshing cultural disruption again, not just a sales pitch from a slick recruiter.`\
+https://nytimes.com/athletic/7129844/2026/03/18/john-calipari-arkansas-march-madness-ncaa-tournament-rebirth/
+
 **Daniel Palencia cements status as Cubs’ closer with WBC championship moment**\
 `Palencia posted five scoreless appearances for Team Venezuela in the World Baseball Classic, including the final out vs. Team USA.`\
 https://nytimes.com/athletic/7129828/2026/03/18/daniel-palencia-cubs-closer-wbc-championship/
