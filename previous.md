@@ -1,3 +1,19 @@
+**Duke rallies back from 13-point deficit to escape 16th-seeded Siena**\
+`Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
+https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/
+
+**White House Looks for Ways to Soothe American Jitters Over Surging Prices**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel suggested that the war with Iran could end soon, but that there were still more attacks ahead.`\
+https://nytimes.com/2026/03/19/world/middleeast/trump-oil-iran-war-mideast-japan.html
+
+**The Downfall of a Food Icon**\
+`We look at how Noma, the restaurant that revolutionized fine dining, became a byword for toxic kitchen culture.`\
+https://nytimes.com/2026/03/19/world/noma-restaurant-iran-oil-ozempic.html
+
+**How injuries to Bennett Sousa and Josh Hader will alter Astros' bullpen plans**\
+`Sousa seemed a lock for both the Opening Day roster until he injured his left oblique in a Grapefruit League game.`\
+https://nytimes.com/athletic/7132096/2026/03/19/astros-bennett-sousa-josh-hader-injuries-bullpen-plans/
+
 **Islanders announce relocation of AHL affiliate from Bridgeport to Hamilton**\
 `The team will play out of the TD Coliseum starting the 2026-27 season and the move still awaits approval from the AHL's Board of Governors.`\
 https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ahl-affiliate-relocation-team/
@@ -21,20 +37,4 @@ https://nytimes.com/2026/03/19/us/politics/student-loan-office-education-departm
 **Trump’s Reaction to Israeli Strike on Gas Field Exposes Divergent Strategies**\
 `President Trump said he complained to Prime Minister Benjamin Netanyahu of Israel about the attack, which sent energy markets reeling. But Israeli officials said the Americans were informed beforehand.`\
 https://nytimes.com/2026/03/19/us/politics/trump-netanyahu-iran-gas-field-attack.html
-
-**FIFA opts against action over Israeli teams playing in West Bank**\
-`It was determined no action would be taken as “the final legal status of the West Bank remains an unresolved and highly complex matter”.`\
-https://nytimes.com/athletic/7131897/2026/03/19/fifa-israel-west-bank-fifa/
-
-**‘The Bachelorette’ Season Canceled After Leaked Video of Assault**\
-`Taylor Frankie Paul, who was set to star in the TV show, had pleaded guilty to aggravated assault after an encounter with her partner in 2023.`\
-https://nytimes.com/2026/03/19/arts/television/bachelorette-canceled-taylor-frankie-paul-video.html
-
-**Hecklers Roast My $800 Stroller Wagon. After 650 Miles, I Still Love It.**\
-`After pushing through snow, sand, and mud, my family of four has come to view the luxury stroller wagon as a necessity.`\
-https://nytimes.com/wirecutter/reviews/veer-cruiser-xl-stroller-wagon-review/
-
-**Student Freed From ICE Detention Worries About Those Left Behind**\
-`Dylan Lopez Contreras, the first known New York City public school student to be taken by federal agents last year, said he would “continue fighting” for migrants who remained in detention.`\
-https://nytimes.com/2026/03/19/nyregion/nyc-high-school-student-ice-freed.html
 
