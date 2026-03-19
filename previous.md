@@ -1,5 +1,5 @@
 **Jack Hughes clarifies comments about golden goal puck in HHOF: 'Honored that it's there'**\
-`A Devils spokesperson said that Hughes wasn't previously aware of the IIHF's process regarding pucks from international competitions.`\
+`A Devils spokesperson said Hughes wasn't previously aware of the IIHF's process regarding pucks from international competitions.`\
 https://nytimes.com/athletic/7130114/2026/03/18/jack-hughes-hhof-golden-goal-puck-devils/
 
 **Joseph Duggar of ‘19 Kids and Counting’ Faces Child Sex Abuse Charges**\
