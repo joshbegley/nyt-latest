@@ -1,3 +1,19 @@
+**Flyers' Jamie Drysdale opens up about breakthrough season: 'This is who I am'**\
+`After a tough start to his career in Anaheim, the defenseman is finding himself and his game with the Flyers.`\
+https://nytimes.com/athletic/7129998/2026/03/19/flyers-jamie-drysdale-breakthrough-season/
+
+**Reds prospects to watch in Spring Breakout game against the Giants**\
+`Many of the Reds' top prospects will be on the field when MLB's Spring Breakout returns on Thursday.`\
+https://nytimes.com/athletic/7129741/2026/03/19/reds-prospects-to-watch-spring-breakout/
+
+**Maple Leafs face biggest offseason question under pall of injury: Will Auston Matthews stay?**\
+`Amid controversy, an unsavory discussion point has gone largely unspoken: the possibility we've seen Auston Matthews' last act in Toronto.`\
+https://nytimes.com/athletic/7129542/2026/03/19/maple-leafs-auston-matthews-future-trade/
+
+**7 questions with the Cardinals' Chaim Bloom: Offseason trades, what he learned in Boston and more**\
+`The Cardinals' president of baseball operations talks to The Athletic about his first official offseason on the job.`\
+https://nytimes.com/athletic/7129163/2026/03/19/chaim-bloom-st-louis-cardinals-baseball/
+
 **The Pulse: Wake up, the basketball is here**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7129230/2026/03/19/ncaa-tournament-first-round-the-pulse/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/7128831/2026/03/19/penguins-crosby-return-karlsson-
 **Breaking down Lionel Messi's 900 career goals**\
 `As soccer's greatest-ever player has hit another milestone, Will Jeanes crunches his astonishing numbers`\
 https://nytimes.com/athletic/6842374/2026/03/19/lionel-messi-900-goals-breakdown/
-
-**Sabres player survey: Best and worse dressed, least likely to pick up the check, more**\
-`The Sabres are winning games and having fun on the ice, but what are they really like as a group?`\
-https://nytimes.com/athletic/7129165/2026/03/19/buffalo-sabres-player-survey-2026-season/
-
-**2026 NHL prospect pool rankings: No. 22 New Jersey Devils**\
-`The Devils lack a top prospect up front, but have a star goalie, multiple legit D prospects and some peripheral forwards.`\
-https://nytimes.com/athletic/6964156/2026/03/19/new-jersey-devils-nhl-prospect-rankings-2026/
-
-**His heart stopped at halftime. But that was never the end of basketball for Tyon Grant-Foster**\
-`After two collapses led to two heart surgeries, Grant-Foster, 26, fought to return to play. Now he gets a final shot at the NCAA Tournament.`\
-https://nytimes.com/athletic/7128992/2026/03/19/ncaa-tournament-march-madness-tyon-grant-foster-gonzaga-heart/
-
-**Inside women's football transfers: Data, pathways and ‘speed dating’**\
-`The women’s football market is still in its relative infancy. More professionals are looking to connect and build data-driven models`\
-https://nytimes.com/athletic/7125392/2026/03/19/transferroom-womens-marketplace-football-transfer-window-transparency/
 

@@ -1,3 +1,19 @@
+**Flyers' Jamie Drysdale opens up about breakthrough season: 'This is who I am'**\
+`After a tough start to his career in Anaheim, the defenseman is finding himself and his game with the Flyers.`\
+https://nytimes.com/athletic/7129998/2026/03/19/flyers-jamie-drysdale-breakthrough-season/
+
+**Reds prospects to watch in Spring Breakout game against the Giants**\
+`Many of the Reds' top prospects will be on the field when MLB's Spring Breakout returns on Thursday.`\
+https://nytimes.com/athletic/7129741/2026/03/19/reds-prospects-to-watch-spring-breakout/
+
+**Maple Leafs face biggest offseason question under pall of injury: Will Auston Matthews stay?**\
+`Amid controversy, an unsavory discussion point has gone largely unspoken: the possibility we've seen Auston Matthews' last act in Toronto.`\
+https://nytimes.com/athletic/7129542/2026/03/19/maple-leafs-auston-matthews-future-trade/
+
+**7 questions with the Cardinals' Chaim Bloom: Offseason trades, what he learned in Boston and more**\
+`The Cardinals' president of baseball operations talks to The Athletic about his first official offseason on the job.`\
+https://nytimes.com/athletic/7129163/2026/03/19/chaim-bloom-st-louis-cardinals-baseball/
+
 **The Pulse: Wake up, the basketball is here**\
 `Welcome to The Pulse, The Athletic's daily newsletter.`\
 https://nytimes.com/athletic/7129230/2026/03/19/ncaa-tournament-first-round-the-pulse/
