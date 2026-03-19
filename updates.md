@@ -1,3 +1,15 @@
+**California Sex Abuse Laws Could Put U.F.W. at Financial Risk**\
+`Cesar Chavez’s labor union, United Farm Workers, could still face lawsuits for his sex abuse of girls and women, experts say.`\
+https://nytimes.com/2026/03/18/us/california-sex-abuse-laws-ufw-financial-risk.html
+
+**At Peak Pique**\
+`Center your mind to solve John Kugelman’s layered crossword.`\
+https://nytimes.com/2026/03/18/crosswords/daily-puzzle-2026-03-19.html
+
+**Fly, Eagle Fly: Jonathan Jones flies himself to Philly to sign contract**\
+`Veteran defensive back, who earned his pilot's license in 2023, made the trek from Charlotte, N.C. to Philadelphia.`\
+https://nytimes.com/athletic/7129866/2026/03/18/eagles-cb-jonathan-jones-pilot/
+
 **'Fly, Eagle Fly': Jonathan Jones flies himself to Philly to sign contract**\
 `Veteran defensive back, who earned his pilot's license in 2023, made the trek from Charlotte, N.C. to Philadelphia.`\
 https://nytimes.com/athletic/7129866/2026/03/18/eagles-cb-jonathan-jones-pilot/

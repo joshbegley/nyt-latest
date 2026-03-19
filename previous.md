@@ -1,4 +1,12 @@
-**'Fly, Eagle Fly': Jonathan Jones flies himself to Philly to sign contract**\
+**California Sex Abuse Laws Could Put U.F.W. at Financial Risk**\
+`Cesar Chavez’s labor union, United Farm Workers, could still face lawsuits for his sex abuse of girls and women, experts say.`\
+https://nytimes.com/2026/03/18/us/california-sex-abuse-laws-ufw-financial-risk.html
+
+**At Peak Pique**\
+`Center your mind to solve John Kugelman’s layered crossword.`\
+https://nytimes.com/2026/03/18/crosswords/daily-puzzle-2026-03-19.html
+
+**Fly, Eagle Fly: Jonathan Jones flies himself to Philly to sign contract**\
 `Veteran defensive back, who earned his pilot's license in 2023, made the trek from Charlotte, N.C. to Philadelphia.`\
 https://nytimes.com/athletic/7129866/2026/03/18/eagles-cb-jonathan-jones-pilot/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/us/politics/pam-bondi-house-oversight-epstein-fil
 **At Arkansas, John Calipari sounds like himself again**\
 `Let Calipari flex. The Razorbacks enter the NCAA Tournament averaging 89.9 points per game and playing a gorgeous brand of basketball.`\
 https://nytimes.com/athletic/7129844/2026/03/18/john-calipari-arkansas-march-madness-ncaa-tournament-rebirth/
-
-**Daniel Palencia cements status as Cubs’ closer with WBC championship moment**\
-`Palencia posted five scoreless appearances for Team Venezuela in the World Baseball Classic, including the final out vs. Team USA.`\
-https://nytimes.com/athletic/7129828/2026/03/18/daniel-palencia-cubs-closer-wbc-championship/
-
-**Analyzing Barack Obama's 2026 men's NCAA Tournament bracket picks**\
-`Continuing an annual tradition he began in 2009, the former president made his NCAA Tournament picks, taking Arizona to win it all.`\
-https://nytimes.com/athletic/7129553/2026/03/18/barack-obama-ncaa-tournament-bracket/
 
