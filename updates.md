@@ -1,3 +1,19 @@
+**Trump Says He Won’t Send Troops to Iran But Leaves Wiggle Room**\
+`The president was cagey about his plans for Iran. He confirmed the Pentagon was seeking $200 billion to support a protracted war effort while also claiming it would be over soon.`\
+https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
+
+**Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
+`Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his government unfairly dominates the music industry.`\
+https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
+
+**Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
+`President Donald Trump made a joke about the Japanese attack on Dec.`\
+https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.html
+
+**Duke rallies from 13-point deficit to escape 16th-seeded Siena**\
+`Duke didn't lead in the second half until the 4:25 mark, but made enough plays late to survive.`\
+https://nytimes.com/athletic/7132233/2026/03/19/duke-siena-march-madness-2026-score-results-takeaways/
+
 **Trump Makes Pearl Harbor Joke In Meeting With Japan’s Prime Minister**\
 `President Dondald Trump made a joke about the Japanese attack on Dec.`\
 https://nytimes.com/video/us/politics/100000010789647/trump-japan-pearl-harbor.html
