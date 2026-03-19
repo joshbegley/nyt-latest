@@ -1,3 +1,7 @@
+**Duke assistant Evan Bradds taking Belmont head coaching job: Source**\
+`Make that three years in a row Duke coach Jon Scheyer is losing at least one assistant coach.`\
+https://nytimes.com/athletic/7130046/2026/03/18/evan-bradds-duke-belmont-head-coach-hiring/
+
 **Shohei Ohtani eager for bigger pitching workload: 'He expects perfection'**\
 `In his first spring training pitching appearance, the Dodgers star reached 99 mph and looked like the Cy Young candidate he aims to be.`\
 https://nytimes.com/athletic/7129663/2026/03/18/shohei-ohtani-dodgers-cy-young/
