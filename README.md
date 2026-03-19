@@ -34,7 +34,3 @@ https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scien
 `Find out how to watch the Chicago Blackhawks play the Minnesota Wild, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131659/2026/03/19/blackhawks-vs-wild-stream-how-to-watch-march-19/
 
-**How to watch Panthers vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Florida Panthers play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131651/2026/03/19/panthers-vs-oilers-stream-how-to-watch-march-19/
-
