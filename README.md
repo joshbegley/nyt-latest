@@ -1,3 +1,7 @@
+**Arkansas U.S. Senate Election 2026: Latest Polls**\
+`Track the latest polls in the Arkansas U.S. Senate election.`\
+https://nytimes.com/interactive/polls/arkansas-us-senate-election-polls-2026.html
+
 **How to watch Texas A&M vs. Saint Mary's (CA) men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the Saint Mary's Gaels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7131324/2026/03/19/texas-a-m-vs-saint-mary-s-ca-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7131248/2026/03/19/samford-vs-southern-stream-how-t
 **Extended Mideast Conflict Would Slow Trade and Growth, W.T.O. Warns**\
 `The trade organization said that a slowdown in trade in 2026 could become even more extreme if the war in the Middle East persists.`\
 https://nytimes.com/2026/03/19/business/economy/mideast-conflict-trade-wto.html
-
-**The Long Farewell to Mark Zuckerberg’s Metaverse**\
-`Meta announced changes that effectively leave Mr. Zuckerberg’s vision of an immersive digital world based in virtual reality only on life support.`\
-https://nytimes.com/2026/03/19/technology/mark-zuckerbergs-metaverse-vr-horizon-worlds.html
 
