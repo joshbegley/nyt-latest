@@ -18,7 +18,7 @@ https://nytimes.com/2026/03/19/us/politics/boat-strikes-caribbean.html
 `In a caustic critique of the court issued on social media late Sunday night, the president inadvertently buttressed its independence.`\
 https://nytimes.com/2026/03/19/us/the-docket-gift-trump-supreme-court.html
 
-**Mortgage Rates Inch Higher as War Weighs on Housing Market**\
+**Mortgage Rates Highest in Three Months as War Weighs on Housing Market**\
 `Rising energy costs and concerns about inflation have helped lift borrowing costs for a home mortgage for the third consecutive week.`\
 https://nytimes.com/2026/03/19/business/mortgage-rates-iran-war.html
 

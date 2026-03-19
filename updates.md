@@ -1,3 +1,15 @@
+**Howie Rose, the fans' soundtrack of so many Mets summers, puts it in the books**\
+`The longtime New York Mets radio play-by-play voice announced his retirement on Thursday.`\
+https://nytimes.com/athletic/7131122/2026/03/19/howie-rose-new-york-mets-retirement/
+
+**Uber to Buy Rivian Vehicles for Use as Driverless Taxis**\
+`The deal provides cash to Rivian and is part of Uber’s attempts to stay relevant in a driverless future.`\
+https://nytimes.com/2026/03/19/business/uber-rivian-driverless-taxis.html
+
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag as the Rams slowly start looking ahead to the 2026 NFL Draft.  `\
+https://nytimes.com/athletic/7131339/2026/03/19/rams-mailbag-2026-nfl-free-agency/
+
 **General Says U.S. Boat Strikes Are Not Answer to Country’s Drug Problem**\
 `Gen. Francis L. Donovan, the head of the military’s Southern Command, said he was working with regional allies on the issue.`\
 https://nytimes.com/2026/03/19/us/politics/boat-strikes-caribbean.html
