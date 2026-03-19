@@ -1,3 +1,7 @@
+**Trump Says He Won’t Send Troops to Iran But Leaves Wiggle Room**\
+`The president was cagey about his plans for Iran. He confirmed the Pentagon was seeking $200 billion to support a protracted war effort while also claiming it would be over soon.`\
+https://nytimes.com/2026/03/19/world/middleeast/trump-iran-us-troops.html
+
 **Monopoly? Not a Chance, Says Live Nation’s Chief at Antitrust Trial.**\
 `Michael Rapino, the chief executive of the live entertainment colossus, fought back against accusations his government unfairly dominates the music industry.`\
 https://nytimes.com/2026/03/19/arts/music/live-nation-ticketmaster-trial-rapino.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ah
 **High Point's Flynn Clayman after upset of Wisconsin: 'We played somebody now'**\
 `After his Panthers upset the Badgers in the NCAA Tournament, coach Flynn Clayman called out those who question mid-majors like High Point.`\
 https://nytimes.com/athletic/7132212/2026/03/19/high-point-wisconsin-flynn-clayman-upset-ncaa/
-
-**Thomas Gentille, Artist Who Made Wearable Sculpture, Dies at 89**\
-`He was a master jeweler, but his pieces looked more like miniature contemporary artworks than anything you’d find at Cartier.`\
-https://nytimes.com/2026/03/19/arts/design/thomas-gentille-dead.html
 
