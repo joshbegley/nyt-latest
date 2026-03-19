@@ -1,40 +1,36 @@
-**How to watch Clippers vs. Pelicans: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Clippers play the New Orleans Pelicans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131591/2026/03/19/clippers-vs-pelicans-stream-how-to-watch-march-19/
-
-**How to watch Bucks vs. Jazz: Time, TV, streaming**\
-`Find out how to watch the Milwaukee Bucks play the Utah Jazz, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131589/2026/03/19/bucks-vs-jazz-stream-how-to-watch-march-19/
-
-**24 States Sue the E.P.A. for Renouncing Its Power to Fight Climate Change**\
-`The suit accuses the agency of illegally repealing the endangerment finding, the scientific assessment that required it to regulate greenhouse gases.`\
-https://nytimes.com/2026/03/19/climate/epa-endangerment-states-lawsuit.html
-
-**Talk of the Devils: Is Kobbie Mainoo playing his way to the World Cup?**\
-`What we're talking about at Manchester United this week, including Mainoo's World Cup chances with England`\
-https://nytimes.com/athletic/7130706/2026/03/19/kobbie-mainoo-manchester-united-world-cup/
-
-**What Teenagers Are Saying About Holding Parents Responsible for School Shootings**\
-`Students react to the conviction of Colin Gray, the father of a teenage gunman who killed four people at Apalachee High School in 2024.`\
-https://nytimes.com/2026/03/19/learning/what-teenagers-are-saying-about-holding-parents-responsible-for-school-shootings.html
-
-**Broncos mailbag: Submit your questions for beat writer Nick Kosmider**\
-`What's next for Denver after its splash acquisition of wide receiver Jaylen Waddle?`\
-https://nytimes.com/athletic/7131485/2026/03/19/broncos-mailbag-request-2026-draft/
-
-**Lawsuit Accuses Justice Dept. Leadership of ‘Political Retribution’**\
-`The suit filed by two fired F.B.I. agents aimed to hold the Trump administration accountable for the purge of personnel who had worked on the investigations of Mr. Trump or his allies.`\
-https://nytimes.com/2026/03/19/us/politics/fbi-retribution-lawsuit.html
-
-**New report proposes 'ground-breaking' solution to English football's financial issues**\
-`Fair Game issued proposals it believes could end the ongoing deadlock regarding how money is distributed through the pyramid.`\
-https://nytimes.com/athletic/7131039/2026/03/19/fair-game-report-english-football-finances/
-
-**U.K. Advisers Sent to U.S. to Help Develop Options to Reopen Strait of Hormuz**\
-`The move comes after President Trump sharply criticized Prime Minister Keir Starmer for not supporting his initial military strikes on Iran.`\
-https://nytimes.com/2026/03/19/world/middleeast/uk-us-strait-of-hormuz-reopening-plans.html
+**How does Cade Cunningham’s collapsed lung impact the East Conference playoff race?**\
+`Cade Cunningham's injury for the No. 1 seed Pistons could open the door for their Eastern Conference rivals. `\
+https://nytimes.com/athletic/7131229/2026/03/19/pistons-cade-cunningham-lung-injury-playoffs/
 
 **‘Miroirs No. 3’ Review: Kindness and Its Reverse Image**\
 `In the lovely new movie from the acclaimed German director Christian Petzold (“Barbara”), a woman wakes to life after an accident.`\
 https://nytimes.com/2026/03/19/movies/miroirs-no-3-review-christian-petzold.html
+
+**Reports of Sexual Abuse by Cesar Chavez**\
+`Readers react to the Times investigation of the labor leader and civil rights icon. Also: A decision on vaccines; shielding lawyers.`\
+https://nytimes.com/2026/03/19/opinion/cesar-chavez-sexual-abuse.html
+
+**Patel Says Agents Who Worked Mar-a-Lago Case Were Fired for Ethics Violations**\
+`The assertion by the F.B.I. director to a House committee is likely to be challenged in court.`\
+https://nytimes.com/2026/03/19/us/politics/patel-fbi-mar-a-lago-trump.html
+
+**Spanish Police Search for American College Student Missing After Club Visit**\
+`James Gracey, a 20-year-old student at the University of Alabama, disappeared during a visit to a beachfront nightclub in Barcelona. The police are searching with helicopters and underwater units.`\
+https://nytimes.com/2026/03/19/world/europe/american-student-missing-spain-barcelona-james-gracey.html
+
+**M.T.A. Aims to Replace Thousands of Aging Subway Cars Built in the 1980s**\
+`Transit officials will commit billions of dollars over the next few years to replace Reagan-era subway cars that have aged beyond their useful life.`\
+https://nytimes.com/2026/03/19/nyregion/mta-new-subway-cars.html
+
+**How to watch Lakers vs. Heat: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Lakers play the Miami Heat, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131616/2026/03/19/lakers-vs-heat-stream-how-to-watch-march-19/
+
+**In Dubai, the World’s Luxury Brands Face a Wartime Crisis**\
+`Executives for high-end brands worry that a prolonged war will hurt sales in a city important to the future of the luxury industry.`\
+https://nytimes.com/2026/03/19/business/dubai-luxury-shopping-iran-war.html
+
+**How to watch Cavaliers vs. Bulls: Time, TV, streaming**\
+`Find out how to watch the Cleveland Cavaliers play the Chicago Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131599/2026/03/19/cavaliers-vs-bulls-stream-how-to-watch-march-19/
 

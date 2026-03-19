@@ -1,3 +1,23 @@
+**She Died After Her Pacemaker Battery Failed. Its Maker Knew of Problems for Years.**\
+`Boston Scientific announced multiple recalls but has said its battery issues were limited. One internal test in 2025 found batteries with an “extremely high failure rate.”`\
+https://nytimes.com/2026/03/19/business/pacemakers-batteries-recall-boston-scientific.html
+
+**How to watch Blackhawks vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131659/2026/03/19/blackhawks-vs-wild-stream-how-to-watch-march-19/
+
+**How to watch Panthers vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131651/2026/03/19/panthers-vs-oilers-stream-how-to-watch-march-19/
+
+**How to watch Kraken vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7131649/2026/03/19/kraken-vs-predators-stream-how-to-watch-march-19/
+
+**WNBA's historic collective bargaining agreement is worth toasting ... for now**\
+`The massive salary gains are rightfully celebrated, but if the league's trajectory continues, the financials may seem outdated soon.`\
+https://nytimes.com/athletic/7131466/2026/03/19/wnba-cba-labor-agreement-history/
+
 **How does Cade Cunningham’s collapsed lung impact the East Conference playoff race?**\
 `Cade Cunningham's injury for the No. 1 seed Pistons could open the door for their Eastern Conference rivals. `\
 https://nytimes.com/athletic/7131229/2026/03/19/pistons-cade-cunningham-lung-injury-playoffs/
@@ -13,24 +33,4 @@ https://nytimes.com/2026/03/19/opinion/cesar-chavez-sexual-abuse.html
 **Patel Says Agents Who Worked Mar-a-Lago Case Were Fired for Ethics Violations**\
 `The assertion by the F.B.I. director to a House committee is likely to be challenged in court.`\
 https://nytimes.com/2026/03/19/us/politics/patel-fbi-mar-a-lago-trump.html
-
-**Spanish Police Search for American College Student Missing After Club Visit**\
-`James Gracey, a 20-year-old student at the University of Alabama, disappeared during a visit to a beachfront nightclub in Barcelona. The police are searching with helicopters and underwater units.`\
-https://nytimes.com/2026/03/19/world/europe/american-student-missing-spain-barcelona-james-gracey.html
-
-**M.T.A. Aims to Replace Thousands of Aging Subway Cars Built in the 1980s**\
-`Transit officials will commit billions of dollars over the next few years to replace Reagan-era subway cars that have aged beyond their useful life.`\
-https://nytimes.com/2026/03/19/nyregion/mta-new-subway-cars.html
-
-**How to watch Lakers vs. Heat: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Lakers play the Miami Heat, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131616/2026/03/19/lakers-vs-heat-stream-how-to-watch-march-19/
-
-**In Dubai, the World’s Luxury Brands Face a Wartime Crisis**\
-`Executives for high-end brands worry that a prolonged war will hurt sales in a city important to the future of the luxury industry.`\
-https://nytimes.com/2026/03/19/business/dubai-luxury-shopping-iran-war.html
-
-**How to watch Cavaliers vs. Bulls: Time, TV, streaming**\
-`Find out how to watch the Cleveland Cavaliers play the Chicago Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/7131599/2026/03/19/cavaliers-vs-bulls-stream-how-to-watch-march-19/
 
