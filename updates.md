@@ -1,3 +1,7 @@
+**Mullin Faces Questions About War Zone Observations**\
+`The nominee for homeland security secretary suggested that he had observed war firsthand but declined to provide details, which he said were “classified.”`\
+https://nytimes.com/2026/03/18/us/politics/mullin-smell-war.html
+
 **Iranian Missile Attack Leaves 3 Palestinians Dead in West Bank**\
 `Several others were injured in the strike, which hit a caravan being used as a hair salon in the town of Beit Awwa, according to Palestinian officials.`\
 https://nytimes.com/2026/03/18/world/middleeast/iran-west-bank-missile-strike.html
