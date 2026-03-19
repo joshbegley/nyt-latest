@@ -1,3 +1,11 @@
+**Salah shows he still has the swagger of old and remains a match-winner**\
+`The Egyptian has endured a difficult season but he was heavily involved against Galatasaray, recovering well from a missed penalty`\
+https://nytimes.com/athletic/7129576/2026/03/19/mohamed-salah-liverpool-galatasaray/
+
+**The night Spurs rediscovered their pride**\
+`Tottenham produced their best performance of the season against Atletico, now they need to replicate it against Nottingham Forest on Sunday`\
+https://nytimes.com/athletic/7125020/2026/03/19/tottenham-atletico-champions-league-relegation-battle/
+
 **Word of the Day: immaterial**\
 `This word has appeared in 66 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2026/03/19/learning/word-of-the-day-immaterial.html
