@@ -1,3 +1,7 @@
+**Finding fantasy baseball bargains and busts using standard deviation of launch angle**\
+`John Laghezza examines launch-angle tightness as a metric to be used in predicting batting average upside.`\
+https://nytimes.com/athletic/7122238/2026/03/19/fantasy-baseball-launch-angle-bargains-busts/
+
 **How to watch TCU vs. Ohio State men's basketball: First Round Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Ohio State Buckeyes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/7130484/2026/03/19/tcu-vs-ohio-state-stream-how-to-watch-march-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7122226/2026/03/19/2026-aces-project-mlb-insiders-r
 **Jac Caglianone, Shane Baz and other breakout MLB candidates for 2026**\
 `These players aren't technically prospects anymore, but they are still early on enough in their careers to make significant changes.`\
 https://nytimes.com/athletic/7124750/2026/03/19/mlb-breakout-candidates-2026/
-
-**'Fins up': How two LIU basketball superfans built a March Madness phenomenon**\
-`Despite never attending LIU, David Pochapin and Cameron Koffman started the "Fins up" movement, which has become a national sensation.`\
-https://nytimes.com/athletic/7129655/2026/03/19/liu-basketball-march-madness-fins-up-ncaa-tournament/
 
