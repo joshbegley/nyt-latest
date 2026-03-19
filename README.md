@@ -1,3 +1,7 @@
+**How to watch Idaho vs. Houston men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132151/2026/03/19/idaho-vs-houston-stream-how-to-watch-march-19/
+
 **Jane Lapotaire, British Actress Who Won a Tony for ‘Piaf,’ Dies at 81**\
 `In a distinguished career in classical and contemporary plays, she drew acclaim on both sides of the Atlantic for her dramatic portrayal of the French singer Édith Piaf.`\
 https://nytimes.com/2026/03/19/theater/jane-lapotaire-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7132054/2026/03/19/lightning-vs-canucks-stream-how-
 **The Windup: Previewing the AL East**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/7131462/2026/03/19/american-league-east-preview-the-windup/
-
-**RT Reporter and Cameraman Injured by Israeli Strike in Lebanon**\
-`A British correspondent for RT, the Russian state broadcaster, and his cameraman were wounded in an Israeli strike near a bridge in southern Lebanon on Thursday, the network said.`\
-https://nytimes.com/video/world/middleeast/100000010789510/lebanon-airstrikes-isreal-iran-war.html
 
