@@ -1,3 +1,7 @@
+**Islanders announce relocation of AHL affiliate from Bridgeport to Hamilton**\
+`The team will play out of the TD Coliseum starting the 2026-27 season and the move still awaits approval from the AHL's Board of Governors.`\
+https://nytimes.com/athletic/7132223/2026/03/19/islanders-bridgeport-hamilton-ahl-affiliate-relocation-team/
+
 **High Point's Flynn Clayman after upset of Wisconsin: 'We played somebody now'**\
 `After his Panthers upset the Badgers in the NCAA Tournament, coach Flynn Clayman called out those who question mid-majors like High Point.`\
 https://nytimes.com/athletic/7132212/2026/03/19/high-point-wisconsin-flynn-clayman-upset-ncaa/
