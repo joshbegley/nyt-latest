@@ -1,3 +1,7 @@
+**Chavez’s Tarnished Legacy**\
+`We look at a major Times investigation into a labor rights icon.`\
+https://nytimes.com/2026/03/19/briefing/chavezs-tarnished-legacy.html
+
 **Flyers' Jamie Drysdale opens up about breakthrough season: 'This is who I am'**\
 `After a tough start to his career in Anaheim, the defenseman is finding himself and his game with the Flyers.`\
 https://nytimes.com/athletic/7129998/2026/03/19/flyers-jamie-drysdale-breakthrough-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/7130195/2026/03/19/rangers-rivalry-jack-hughes-devi
 **Crosby scores in return, but Penguins drop a wild one in overtime**\
 `The Penguins and Hurricanes played another thriller, this one in Sidney Crosby's return, tying an NHL record in the process.`\
 https://nytimes.com/athletic/7128831/2026/03/19/penguins-crosby-return-karlsson-skinner-overtime-hurricanes/
-
-**Breaking down Lionel Messi's 900 career goals**\
-`As soccer's greatest-ever player has hit another milestone, Will Jeanes crunches his astonishing numbers`\
-https://nytimes.com/athletic/6842374/2026/03/19/lionel-messi-900-goals-breakdown/
 
