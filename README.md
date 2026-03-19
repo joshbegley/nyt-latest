@@ -1,3 +1,11 @@
+**Shohei Ohtani eager for bigger pitching workload: 'He expects perfection'**\
+`In his first spring training pitching appearance, the Dodgers star reached 99 mph and looked like the Cy Young candidate he aims to be.`\
+https://nytimes.com/athletic/7129663/2026/03/18/shohei-ohtani-dodgers-cy-young/
+
+**While NCAA Tournament expansion plans are on ice, players and coaches have their own ideas**\
+`Players and coaches offer ideas to tweak the NCAA Tournament, including best-of-3 series.`\
+https://nytimes.com/athletic/7129899/2026/03/18/ncaa-basketball-tournament-expansion-ideas/
+
 **First Four: Prairie View A&M beats Lehigh for first NCAA Tournament win**\
 `Prairie View A&M trailed by two points at halftime, but clamped down defensively and found a rhythm offensively in the second half.`\
 https://nytimes.com/athletic/7129676/2026/03/18/march-madness-2026-mens-first-four-score-results/
@@ -29,12 +37,4 @@ https://nytimes.com/2026/03/18/world/middleeast/iran-west-bank-missile-strike.ht
 **A.I. Replica of Val Kilmer to Appear in Film After His Death**\
 `Kilmer’s estate collaborated with the filmmakers to make a digital likeness of the actor, who died of cancer last year.`\
 https://nytimes.com/2026/03/18/movies/val-kilmer-ai-movie.html
-
-**LeBron James’ path to NBA ownership ‘less likely’ as partners pass on expansion bid: Sources**\
-`LeBron James has repeatedly made it clear that he wants to own an NBA team in Las Vegas. That dream is looking more unlikely now.`\
-https://nytimes.com/athletic/7129770/2026/03/18/lebron-james-nba-expansion-ownership-vegas-seattle-bid/
-
-**Here’s What Happened in the War in the Middle East on Wednesday**\
-`A day of strikes on energy facilities and testimony in Washington to members of Congress.`\
-https://nytimes.com/2026/03/18/world/middleeast/iran-war-recap-middle-east.html
 
