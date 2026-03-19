@@ -1,3 +1,15 @@
+**Would losing Enzo Fernandez actually be a problem for Chelsea on the pitch?**\
+`Enzo Fernandez is a keen talent and losing him would require a remodelling of the Chelsea team`\
+https://nytimes.com/athletic/7129333/2026/03/19/enzo-fernandez-chelsea-analysis-transfer/
+
+**The New York Times in Print for Thursday, March 19, 2026**\
+``\
+https://nytimes.com/issue/todayspaper/2026/03/19/todays-new-york-times
+
+**Destroying Lebanon Won’t Defeat Hezbollah**\
+`A failure by Israel to engage with the Lebanese government in the fight against Hezbollah will undermine its own interests.`\
+https://nytimes.com/2026/03/19/opinion/israel-lebanon-iran-hezbollah.html
+
 **Afroman Wins Civil Trial Over Use of Police Raid Footage in His Music Videos**\
 `Seven law enforcement officers had accused the rapper, whose name is Joseph E. Foreman, of causing them “humiliation” by using images from their 2022 raid on his Ohio home in two music videos.`\
 https://nytimes.com/2026/03/19/us/afroman-trial-lemon-cake-verdict.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/7128755/2026/03/19/kristaps-porzingis-warriors-celt
 **Ozempic Is About to Go Generic for Billions of People**\
 `In India, China and several other nations, Novo Nordisk is on the verge of losing patent protection for its blockbuster weight loss drug, opening the door for cheaper competing versions.`\
 https://nytimes.com/2026/03/19/health/ozempic-wegovy-generic-india-china-canada.html
-
-**Corrections: March 19, 2026**\
-`Corrections that appeared in print on Thursday, March 19, 2026.`\
-https://nytimes.com/2026/03/19/pageoneplus/corrections-march-19-2026.html
-
-**Quote of the Day: A History of Conflicts That All Fell Short**\
-`Quotation of the Day for Thursday, March 19, 2026.`\
-https://nytimes.com/2026/03/18/pageoneplus/quote-of-the-day-a-history-of-conflicts-that-all-fell-short.html
-
-**Jack Hughes clarifies comments about golden goal puck in HHOF: 'Honored that it's there'**\
-`A Devils spokesperson said Hughes wasn't previously aware of the IIHF's process regarding pucks from international competitions.`\
-https://nytimes.com/athletic/7130114/2026/03/18/jack-hughes-hhof-golden-goal-puck-devils/
 
