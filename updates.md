@@ -1,3 +1,15 @@
+**Back with Phillies, Bryce Harper is zoned in on better at-bats, 140-walks goal**\
+`For Harper, everything is about his decisions in 0-0 counts. He is focused on being more selective and has set an ambitious walks goal.`\
+https://nytimes.com/athletic/7131978/2026/03/19/bryce-harper-phillies-wbc-walk-goal/
+
+**How to watch Kennesaw State vs. Gonzaga men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Kennesaw State Owls play the Gonzaga Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132164/2026/03/19/kennesaw-state-vs-gonzaga-stream-how-to-watch-march-19/
+
+**How to watch Idaho vs. Houston men's basketball: First Round Time, TV, streaming**\
+`Find out how to watch the Idaho Vandals play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/7132151/2026/03/19/idaho-vs-houston-stream-how-to-watch-march-19/
+
 **Jane Lapotaire, British Actress Who Won a Tony for ‘Piaf,’ Dies at 81**\
 `In a distinguished career in classical and contemporary plays, she drew acclaim on both sides of the Atlantic for her dramatic portrayal of the French singer Édith Piaf.`\
 https://nytimes.com/2026/03/19/theater/jane-lapotaire-dead.html
